@@ -1,3 +1,90 @@
+###  Публикация: 1193900   (213767) от 23.12.2017
+
+Давид Тухманов - Мой адрес - Советский Союз (1998) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чистые пруды
+02. Восточная песня
+03. Мой адрес - Советский Союз
+04. Жил - был я(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D304BDABAE67967D080C7BBFC82982BDFCDC3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344129   (213721) от 09.12.2019
+
+VA - Qua La Mano (1980) Musica Di Detto Mariano, LP [MP3|320 Kbps] <Electronic, Funk Soul, Instrumental, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка композитора Detto Mariano связанная с одноименным кинофильмом "Qua La Mano", где в главных ролях снимались: Adriano Celentano & Enrico Montesano.01. Angella Dean - Mad (5:29)
+02. Buz Butler - His Majesty (6:03)
+03. Moonalisa - Get Ready (3:58)
+04. Detto Mariano - Gocce D'Acqua (Strumentale) (2:50)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Instrumental, DiscoПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E949CDD42D45CD65890B719D58A35B3BAB9D514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344111   (213621) от 09.12.2019
+
+Vanessa Paradis - Best Of & Variations (2019) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <French Pop, Pop-Rock, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angora (2:08)
+02. Dans l'univers (4:07)
+03. Le baiser (4:10)
+04. Tu me manques (pourtant tu es là) (4:15)(   Читать дальше...   )Жанр: French Pop, Pop-Rock, Chanson |Продолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B92DE99B0ABD151B0A68076A195926BA7C4382F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960836   (213562) от 18.08.2023
 
 Скрябiн та Проекти Кузьми (Скрябин) - 18 Albums + 6 Single + 2 Live's + Compilation & Remixes (1995-2019) [APE, FLAC|Lossless|image + .cue, tracks + .cue, tracks] <Alternative Pop, Rock, Syn ...
@@ -661,93 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEA5CEF07804A7EC9E25DCA1CB660C308B6FB56F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645133   (209498) от 08.07.2023
-
-Григорий Лепс - Завтра (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Завтра
-2. Мне не нужна
-3. Параноик
-4. Бейби (feat. Ваня Дмитриенко)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E726F9D4C59DADB3816324373EB16C640B7C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645138   (209409) от 08.07.2023
-
-Taylor Swift - Speak Now (Taylor's Version) (2023) 2xCD [FLAC|Lossless|tracks + .cue] <Country, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc One:
-01. Mine (Taylor's Version) 3:51
-02. Spark Fly (Taylor's Version) 4:21
-03. Back To December (Taylor's Version) 4:54(   Читать дальше...   )Жанр: Country, Pop RockПродолжительность: 01:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0687790A2B9F1CBCBBB45E99667837033CDE648E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645592   (209371) от 10.07.2023
-
-VA - Easy Modern Classics (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Photograph
-02. Christina Perri - A Thousand Years
-03. Bruno Mars - Talking to the Moon
-04. Coldplay - Everglow(   Читать дальше...   )Жанр: PopПродолжительность: 02:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924E87BF219700DE814941F5FBA1FF08880DA36D
 ```
 
 https://mybot314.ru/tekegram_catalog/

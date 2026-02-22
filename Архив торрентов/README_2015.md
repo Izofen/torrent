@@ -1,3 +1,30 @@
+###  Публикация: 1014559   (776456) от 07.05.2016
+
+Lacuna Coil - The House Of Shame / Delirium (2016) EP [MP3|320 кб/с] <Gothic Metal, Alternative Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The House Of Shame
+02. DeliriumЖанр: Gothic Metal, Alternative MetalПродолжительность: 00:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B1B27173F28CE488B90C6375528696124AF78A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014412   (776454) от 07.05.2016
 
 Военная тайна с Игорем Прокопенко (2016.05.07) SATRip
@@ -656,32 +683,6 @@ Kingdom Come: Deliverance – это захватывающая РПГ с отк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3181190A714AF0CFD106B6AF7744CCDF19C94764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212252   (776340) от 10.03.2018
-
-7-Data Recovery Suite 4.2 Enterprise RePack (& Portable) by elchupacabra[Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776340.jpg" />
-</div>
-
-
-###  Подробнее
-
-7-Data Recovery Suite — утилита для восстановления информации с: DE HDD, SATA HDD, SCSI HDD, FireWire HDD, SSD, USB HDD, External HDD, Hardware RAID, Floppy drive, USB flash drive, Compact flash card, Secure Digital card, Memory card/Memory stick, Micro card, Zip drive, IPod и других носителей, в результате порчи или сбоя оборудования, деятельности вирусов или форматирования. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B60E3B460C90F0EEE1F316C4CDD83F3C667FC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

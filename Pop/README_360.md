@@ -1,3 +1,90 @@
+###  Публикация: 646376   (35807) от 29.11.2024
+
+Адриано Челентано - Избранное. Коллекция от Ридерз Дайджест (3CD) (2012) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Soli. (4:03)
+02 - People. (5:23)
+03 - Pay Pay Pay. (4:18)
+04 - Io E Te. (5:13)(   Читать дальше...   )Жанр: popПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB643D0A66FE59162F855175A09CD051C99B79A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763041   (35775) от 29.11.2024
+
+VA - Союз 19 Альбомов (1998-2007) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Верка Сердючка - Dancing Lasha Tumbai
+02. Фабрика - Зажигают огоньки
+03. Сергей Трофимов - Город Сочи
+04. DJ Clon & Ангел-А - А ты меня любишь ага!(   Читать дальше...   )Жанр: PopПродолжительность: 24:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631E2D89283AC8029B869F0444739BE34BBC2AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763105   (35749) от 29.11.2024
+
+VA - Hottest Hits 100 Greatest Songs of All Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35749.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You (3:53)
+002. Bruno Mars - Locked Out of Heaven (3:53)
+003. Coldplay - Viva La Vida (4:02)
+004. Ava Max - Sweet but Psycho (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5269B49211FC46A2851AA29428F204A20CB581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763070   (35734) от 29.11.2024
 
 Тимур Родригез - Настроение Родригез (2024) [MP3|320 Kbps] <Pop>
@@ -659,93 +746,6 @@ VA - BRAVO - The Hits 2024 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:862BC665E5B83EE92793FDA8D0D086A9C7AF4CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764950   (34402) от 12.12.2024
-
-Michael Jackson - Off the Wall (1979) CD, Album, Reissue, Remastered, Special Edition, 2001 [FLAC|Lossless|tracks + .cue] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t Stop ’til You Get Enough    [0:06:03.70]
-02. Rock With You    [0:03:39.40]
-03. Workin’ Day and Night    [0:05:13.39]
-04. Get on the Floor    [0:04:38.00](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267D9D8B91967A7364C8EAB8404A00D26DEAA808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765609   (34188) от 14.12.2024
-
-VA - Игорь Крутой - 70 (трибьют-альбом) (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Баста - Мадонна [00:03:48]
-02 - Леонид Агутин - Мой друг [00:03:54]
-03 - ANNA ASTI - Я хочу быть… [00:03:04]
-04 - Люся Чеботина - Акапулько [00:03:06](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE551D476BC763C0FC81D4756BF5C227F1A2134F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766230   (33871) от 17.12.2024
-
-VA - 10's Nostalgia Best from the Tens (2024) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Thinking Out Loud - (04:42)
- 02. Dua Lipa - Don’t Start Now - (03:03)
- 03. Jason DeRulo - Want to Want Me - (03:26)
- 04. Coldplay - A Sky Full of Stars - (04:28)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D657B4EF033C2C575704833A549E6D1E7848614B
 ```
 
 https://mybot314.ru/tekegram_catalog/

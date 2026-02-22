@@ -1,3 +1,32 @@
+###  Публикация: 1455464   (1025619) от 19.03.2021
+
+VA - Tribute To Красная плесень (2014) 2CD [FLAC|Lossless|image + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Старый газовый котёл - Клава              [3:12]
+02. Мазер факер - Мы е... первый раз          [2:48]
+03. Палата № 6 - Г.Ю. Рок-н-ролл              [3:11]
+04. Зюг-Вест - Желтая подводная лодка         [2:15](   Читать дальше...   )Жанр: PunkПродолжительность: 02:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4286C4ABDCDFAC2BAFFC8B4640CB543F3CA50C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455831   (1025495) от 20.03.2021
 
 Sanctorium - Ornaments (2020) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC57315735BADD47CE8BADCF42095F5DCAD75BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471662   (1014967) от 21.05.2021
-
-Х*й Забей - Ходить по земле (2011) [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Если срут (1:10)
-02. Подружить (1:10)
-03. Трофейной (1:43)
-04. Конвертация (1:30)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F5FB8F03BB447ADECDB3AFA82B35BF34E28397
 ```
 
 https://mybot314.ru/tekegram_catalog/

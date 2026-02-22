@@ -1,3 +1,32 @@
+###  Публикация: 1691664   (123049) от 13.01.2024
+
+Henry "Red" Allen - 1933 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Gonna Lose Your Gal [3:04]
+02. Dark Clouds [3:05]
+03. My Galveston Gal [3:04]
+04. I Wish I Were Twins [2:48](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, SwingПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9201F5313DE40F4CA76E305F5C5F89D4664D4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691868   (122932) от 14.01.2024
 
 Chris Rea - God's Great Banana Skin (1992) [OGG Vorbis|480 Kbps] <Blues Rock, Country Rock, Soft Rock>
@@ -716,35 +745,6 @@ Mildred Bailey - 1938 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2A095314444599963B2D4FB9A9A5EAE9CD4EF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692485   (122387) от 17.01.2024
-
-Chris Rea - The Return Of The Fabulous Hofner Bluenotes (2008) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twister Inside
-02.  Legacy Blues
-03.  When The Truth Comes Out
-04.  Blues For Janice(   Читать дальше...   )Жанр: Blues Rock, Soft Rock, RockПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF9FA69947A28B96137CB5CEA833EC678656A12
 ```
 
 https://mybot314.ru/tekegram_catalog/

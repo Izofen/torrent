@@ -1,3 +1,90 @@
+###  Публикация: 1775689   (71376) от 28.01.2025
+
+VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ritchie Family - The Best Disco In Town
+02. Gloria Gaynor - Never Can Say Goodbye
+03. Kool & The Gang - Celebration
+04. Earth, Wind & Fire - September(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC53B775E038784EE74703583B7ABC015143E0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775632   (71374) от 28.01.2025
+
+VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jacksons - Blame It on the Boogie
+02. McFadden & Whitehead - Ain't No Stoppin' Us Now
+03. The Gap Band - Say Oops Upside Your Head
+04. Donna Summer - Last Dance(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD99B6EA5EB972AD06715B755B888A9D05552A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775687   (71371) от 28.01.2025
+
+VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ritchie Family - The Best Disco In Town
+02. Gloria Gaynor - Never Can Say Goodbye
+03. Kool & The Gang - Celebration
+04. Earth, Wind & Fire - September(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB16539F317FB6C34ACEC464E7BFCE518D7D493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776352   (71314) от 31.01.2025
 
 Mflex Sounds - Misleading Truth (Volumes) (2025) [MP3|320 Kbps] <Italo-Disco>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B3FD1CAEE2634BE2E95721120FCD7CE921891B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779636   (70627) от 14.02.2025
-
-Юлия Коган - Соло на нервах (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70627.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Соло на нервах
-2. Таблетка
-3. Быть для тебя
-4. Влюбились и выжили(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:138C0C8891AC00A196443BA15C7C8AE6B0B3C469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779216   (70567) от 15.02.2025
-
-VA - Billboard Top Hits 1977 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heatwave - Boogie Nights
-02. Alan O'Day - Undercover Angel
-03. Daryl Hall And John Oates - Rich Girl
-04. Peter Frampton - I'm In You(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4491ED213700004BC81C11888F63EEE0686BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780051   (70555) от 16.02.2025
-
-V.A. - Viva Italia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gino Santi - Tornero
-02. Claudia Donato - Se Ne Va
-03. Angela Amico - Andiamo Via
-04. Umberto Mariotta - Grande Grande Grande(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2EB3A568F7AE2B570EA31A1AE999F6D465C7BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

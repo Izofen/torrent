@@ -1,3 +1,90 @@
+###  Публикация: 1252530   (409436) от 05.10.2018
+
+The Four Freshmen - Greatest Hits (1993) Curb Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graduation Day [3:06]
+02. Day by Day [1:59]
+03. It's a Blue World [2:58]
+04. Charmaine [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC217A6CF2B5F20BBA59D907F181B11FE116EF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252527   (409431) от 05.10.2018
+
+John Scofield - Bar Talk (1980) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beckon Call [7:03]
+02. New Strings Attached [6:12]
+03. Never [6:49]
+04. How to Marry a Millionaire [6:37](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6E7D4C43CA27ECB80B636F6597CB5FF3F91F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252464   (409088) от 05.10.2018
+
+Scott Bradlee's Postmodern Jukebox - Blue Mirror (2018) [FLAC|Lossless|WEB-DL|tracks] <Swing, Vocal Jazz, Covers>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Wants to Live Forever (feat. Morgan James)
+02. Africa (feat. Casey Abrams & Snuffy Walden)
+03. Life on Mars? (feat. Olivia Kuper Harris)
+04. High & Dry (feat. Carrie Manolakos)(   Читать дальше...   )Жанр: Swing, Vocal Jazz, CoversПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44413CF13DD8A444170FA37E43C25DD16B6466B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168506   (408945) от 24.09.2017
 
 Dave Brubeck - Time Was (2005) 4CD, Proper Box [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
@@ -658,93 +745,6 @@ Dean Martin - Singles (1949-1962) 2001, EMI[FLAC|Lossless|tracks + .cue] <Vocal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7559C3911464D306147B272F33FA714590539A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413596   (408435) от 04.10.2020
-
-Jimmу Ваrnеs - Му Сriminаl Rесоrds (2019) [FLAC|Lossless|image + .cue] <Rock, Classic Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Criminal Records
-02. Shutting Down Our Town
-03. I'm In A Bad Mood
-04. Stolen Car (The Road's On Fire)Жанр: Rock, Classic Rock, Blues RockПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B401CA1D0EAF6E4DF3A0DF3E35BDB96A04032BD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413495   (408434) от 04.10.2020
-
-Louis Armstrong & King Oliver With Bessie Smith - High Society (1923 - 1926) 1997, Tradition [FLAC|Lossless|tracks + .cue] <Early Jazz, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Lovin' Man [2:48]
-02. Sugarfoot Stomp (Dippermouth Blues) [2:59]
-03. Southern Stomps [2:39]
-04. Big Butter and Egg Man from the West [3:11](   Читать дальше...   )Жанр: Early Jazz, New Orleans JazzПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCB80A3B99B56430F289D87D776541D32373175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948938   (408398) от 22.10.2015
-
-Grant Green - Visions (1971) /2009, EMI Music/[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Does Anybody Really Know What Time It Is [05:13]
- 02.Maybe Tomorrow [04:56]
- 03.Mozart Symphony #40 In G Minor, K550, 1st Movement [04:08]
- 04.Love On A Two Way Street [04:48](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99099527530BBCB45A6DB9927D1D6D4F5E8E4E78
 ```
 
 https://mybot314.ru/tekegram_catalog/

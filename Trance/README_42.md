@@ -1,3 +1,32 @@
+###  Публикация: 1193694   (261985) от 22.12.2017
+
+VA - Entrancing Music Top 20 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kate Miles, DJ T.H. & Floe – Like A Miracle (Denis Kenzo Remix)
+02. Denis Sender, DJ T.H. & Cari – I Found You (Maywave Remix)
+03. Floe, Aly Frank & J.Puchler – Home (LTN Remix)
+04. Kiran M Sajeev – Bharat Mata (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F53BCCE4C4037873430C391F1211F1E993C9F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193790   (261979) от 22.12.2017
 
 VA - Black Hole Trance Music 12-17 (2017) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Anjuna25 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21B4E1A4C349B2F3B799E65D4715E917E5B15238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617539   (250303) от 07.03.2023
-
-Cosmic Gate - MOSAIIK Chapter One (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate with Diana Miro - Blame (03:40)
-02. Cosmic Gate - Feel It (03:28)
-03. Cosmic Gate with Diana Miro - Nothing To Hide (03:36)
-04. Cosmic Gate - Your Mind (03:49)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272294E7E63244A510D47AA6EF0C39DABF3D96F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

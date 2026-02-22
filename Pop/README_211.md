@@ -1,3 +1,119 @@
+###  Публикация: 1413598   (408430) от 04.10.2020
+
+It's Immaterial - Life's Hard And Then You Die (1986) 2016, Deluxe Edition, 30th Anniversary Edition [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space (Peel Session) (03:49)
+02. Hang On Sleepy Town (Peel Session) (04:11)
+03. Festival Time (Peel Session) (03:31)
+04. Rope (Peel Session) (03:32)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 02:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D6077BE84187C28C6FF429DDFA0602DCC05681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413655   (408341) от 04.10.2020
+
+VA - Euro Disco - The Lost Legends Vol. 30 (2019) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spin - We Sacrifice (Dub Mix) [00:05:45]
+02. Manige - Romeo Love [00:03:10]
+03. Pierre Groscolas - She's A Lady (Mix Long Version) [00:05:31]
+04. Tony Caso - All The Love In My Heart [00:05:09](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9589A1E9B52028891012BE0C1193EE2DCD5C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188056   (408278) от 02.09.2022
+
+ВИА Песняры - Лучшее (2009) [FLAC|Lossless]<РОР>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОРПродолжительность: 01:19:45
+
+01. Белая Русь Ты Моя [02:38.25]
+02. Любовь [03:44.58](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0D8D07406F48B99A5E1ED5CB297FA75E175C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413541   (408208) от 04.10.2020
+
+Melanie C - Melanie C (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who I Am
+02. Blame It On Me
+03. Good Enough
+04. Escape(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEC9DABC15D864819F7B92DB662978E2CF39356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949229   (408154) от 22.10.2015
 
 VA - So Fresh The Hits Of Winter 2015 (2015) [FLAC|tracks]<Pop, Dance, R&B>
@@ -656,128 +772,6 @@ VA - One Shot 80 Vol.1-18 (1998-2006) [MP3|320 кб/с]<Disco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9646F06617754C0943A9D4B6FAA6681DFA73205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563090   (405178) от 20.10.2012
-
-VA - Platinum 80s (2002) [FLAC|Lossless]<Pop, Rock, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Lennon - (Just Like) Starting Over [03:58]
-02. Pink Floyd - Another Brick In The Wall (Pt. 2) [03:54]
-03. Van Halen - Why Can't This Be Love [03:34]
-04. Frankie Goes To Hollywood - Relax [03:59]
-05. Duran Duran - Rio [04:47]
-06. Crowded House - Don't Dream It's Over [03:56]
-07. Belinda Carlisle - Heaven Is A Place On Earth [04:07]
-08. Bananarama - Venus [03:41]
-09. Fine Young Cannibals - Good Thing [03:14]
-10. Communards - Don't Leave Me This Way [04:34](   Читать дальше...   )Жанр: Pop, Rock, Soul, DiscoПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168978   (405054) от 25.09.2017
-
-Fifth Harmony - Fifth Harmony (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down (Feat. Gucci Mane)
-02. He Like That
-03. Sauced Up
-04. Make You Mad(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960C8177023CCB42A58DFBE23EEF814BB0257C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168941   (405052) от 25.09.2017
-
-D.C. LaRue - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405052.jpg" />
-</div>
-
-
-###  Подробнее
-
-D.C. LaRue, настоящее имя - Дэвид Чарльз Леро, родился 26 апреля 1948 года в городе Мериден, штат Коннектикут. Американский певец, автор песен и продюсер. Его музыка в 1970-х и начале 1980-х годов пользовалась успехом в клубах и танцевальных чартах по всему миру.Список альбомов:
-1976 - The Tea Dance
-1978 - Confessions
-1979 - Forces Of The Night(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Disco, Pop RockПродолжительность: 02:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBD5FF70DB1716C461CBE626E0E239DE43FE595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168751   (404987) от 25.09.2017
-
-VA - House Disco Soul (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mighty Nighty – Mental Holiday (70’s Classic Disco mix) (03:44)
-02. Jean Claude Project – Partial Transition (Le Disco mix) (03:36)
-03. Tommy Whyte – Get Up My Hands (Disco Love mix) (03:52)
-04. Doctor Rich – Between You And Me (Cocco’s Disco mix) (03:36)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C22D4C0D240AE12AE3081A86BFC6E8BC8D3831E
 ```
 
 https://mybot314.ru/tekegram_catalog/

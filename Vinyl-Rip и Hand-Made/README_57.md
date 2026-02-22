@@ -1,3 +1,177 @@
+###  Публикация: 968277   (155725) от 23.12.2015
+
+Mylene Farmer - Interstellaires (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellaires (3:11)
+02. Stolen Car (en duo avec Sting) (3:23)
+03. A rebours (4:10)
+04. C'est pas moi (3:41)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2C047B00BD522C8EEB1D6CC7EE29E93D48E48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677142   (153594) от 16.11.2023
+
+Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153594.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. In Mist She Was Standing (14:10)
+A2. Under the Weeping Moon (09:51)
+B1. Silhouette (03:10)
+B2. Forest of October (13:03)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45B9C244FF72A4FA6B123411546ABA46B313364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347227   (153359) от 22.12.2019
+
+Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upconvert]
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Drummer Boy 4:23
+02. White Christmas 3:59
+03. Feliz Navidad 3:07
+04. Jingle Bells 2:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CBEF722B966FB86EDD8764BA3E04922802AD39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968539   (153215) от 24.12.2015
+
+Foreigner - Inside Information (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Turns To Stone (4:34)
+02. Can't Wait (4:32)
+03. Say You Will (4:16)
+04. I Don't Want To Live Without You (4:55)(   Читать дальше...   )Производство: Atlantic Recording - 781 808-1Жанр: RockПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822ECB3340E14E6102E47DF3AA1A5400E5F4E39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854276   (152320) от 28.12.2014
+
+Blue Oyster Cult - The Revolution By Night (1983)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152320.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Take Me Away (4:32)
+A2. Eyes On Fire (3:56)
+A3. Shooting Shark (7:10)
+A4. Veins (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3CE59B9AFAE8E5F77E1AC279E587E1EC22CE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672832   (152209) от 17.10.2025
+
+Carach Angren - Studio Albums (7 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carach Angren — нидерландская симфо-блэк-метал-группа, образованная в 2003 году. Отличительной особенностью коллектива является концептуальность каждого студийного альбома, где лирическая составляющая основывается на хоррор-тематике: легендах о призраках, различных мифах, сказках и рассказах.2008 - Lammendam
+2010 - Death Came Through A Phantom Ship
+2012 - Where The Corpses Sink Forever
+2015 - This Is No FairytaleЖанр: Symphonic Black MetalПродолжительность: 05:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B350C19B51CD0A1C56FB5BD10DB67E2684986D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086353   (152171) от 24.12.2016
 
 Демис  Руссос - Большой успех Демиса Руссоса (1980) 2 LP [WavPack|192/32|tracks|Vinyl-Rip] <Pop>
@@ -574,180 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2952542D757E130C61F699A5AAF7DF9B1D19E72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678462   (146041) от 21.11.2023
-
-Vince Neil - Exposed (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Look In Her Eyes (05:51)
-02 - Sister Of Pain (05:03)
-03 - Can't Have Your Cake (03:56)
-04 - The Edge (04:54)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5352D3FC1302D1FEB52ED3AB839E50F51FB247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969121   (145212) от 28.12.2015
-
-Группа Диалог - Просто (1985) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поймем Потом • We'll Understand One Day	3:35
-02. Свет в Окне • Light In The Window	3:20
-03. Маргарита • Margarita	1:40
-04. Любил Тебя • I Loved You	3:05(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6E780DD19E0C0090CA31C0C0B25A0E4F67B65A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087703   (144425) от 28.12.2016
-
-П. Чайковский - Сюита из балета Лебединое озеро, Увертюра до минор (Е. Светланов) (1991) [WavPack2.0|192/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Сюита из балета Лебединое озеро
-01. Сцена 3:22
-02. Вальс 7:24(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46E827C6AD0E40FC2A61D1F1F05CA9090CBB33D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271896   (144407) от 27.12.2018
-
-VA - The Civil War - Original Soundtrack Recording. Traditional American Songs And Instrumental Music Featured In The Film By Ken Burns (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144407.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Old Bethpage Brass Band - Drums Of War"
-A2 Paul Roebling - Oliver Wendell Holmes (Quote)
-A3 Evan Stover, Jay Ungar, Matt Glaser (Fiddle) and Molly Mason, Russ Barenberg (Guitar) - Ashokan Farewell
-A4 Jacqueline Schwab (Piano) - Battle Cry Of Freedom(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678765   (142479) от 23.11.2023
-
-Opeth - Still Life (1999) Reissue 2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142479.jpg" />
-</div>
-
-
-###  Подробнее
-
-A. The Moor (11:23)
-B1. Godhead's Lament (9:47)
-B2. Benighted (4:59)
-C1. Moonlapse Vertigo (8:59)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED8610D4BC63645E0CE188C2522045293D0B553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272624   (142464) от 28.12.2018
-
-VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. ''Руки Вверх'' - Ай-яй-яй
-02. ''Вирус'' - Кап-кап
-03. ''Ночной Патруль'' - Первая любовь(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1830285191AF037FD3DBCB88D0639DF252DB9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

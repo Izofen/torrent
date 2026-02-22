@@ -1,3 +1,90 @@
+###  Публикация: 1550977   (591238) от 13.05.2022
+
+Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kinkali - 5:04
+02. Afror - 8:42
+03. Unsleepers - 5:06
+04. Buran  - 8:55(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AEAAFB6530623EF609969B00FB0D32E416F11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550910   (591237) от 13.05.2022
+
+Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Meddler [8:31]
+02. Ode to Ray [6:10]
+03. Whims of the Bluebird [10:09]
+04. Falling in Love [7:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836C40AE7A3A0D272E79313F7F4DF1323C87AD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550780   (591203) от 13.05.2022
+
+Gilbert Sigrist - Tribute to Hammond Organ (2014) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Jazz Club (02:18)
+ 02. The Blues Room (02:39)
+ 03. Afternoon Romance (02:01)
+ 04. Uptown Waltz (01:57)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222700ADF0FA416F9362A8F8636D3D575B581142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550513   (591202) от 13.05.2022
 
 VA - The Exciting & Dynamic Sounds of the Hammond B3 Organ (2020) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
@@ -658,93 +745,6 @@ Melanie Durrant - Anticipation (2015) [FLAC|tracks+.cue]<Funk, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1CEF5421ED8FE1B4B8655A843677E7073DBD8BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917390   (589604) от 11.07.2015
-
-The Other Mules - Here With The Blues (2015) [MP3|320 кб/с]<Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knocking At Your Door (03:01)
-02. Satisfied (04:52)
-03. Ain't Going Down (05:06)
-04. I Want To Be Loved (02:59)(   Читать дальше...   )Жанр: Rockin' BluesПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1192F8BB2AA52CC8649AC86342D7E2A613FDBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917357   (589585) от 11.07.2015
-
-John Lee Hooker - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dimples (2:14)
-02.  Mambo chillun (2:47)
-03.  I'm so excited (2:52)
-04.  Time is marchin' (3:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E617BAADA76EE893BBF3C8478BE3D51F2FDCBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917461   (589573) от 11.07.2015
-
-VA - Burlesque (48 Best Of Tease & Drama) (2015) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Freitas - Marlowe's Blues (02:58)
-02. Tim Brown - Retro Funk Groove (02:50)
-03. Max DiCarlo - Pink Panther Meets Jessica Rabbit (01:45)
-04. Richard Freitas - Piano Man's Heat (02:21)(   Читать дальше...   )Производство: Whisky LullabyЖанр: JazzПродолжительность: 02:21:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A258DBCD869E8759CBF698CA0BC8D6049A9370C
 ```
 
 https://mybot314.ru/tekegram_catalog/

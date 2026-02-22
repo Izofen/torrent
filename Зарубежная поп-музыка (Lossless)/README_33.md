@@ -1,3 +1,33 @@
+###  Публикация: 1281801   (749826) от 09.02.2019
+
+Dua Lipa - Dua Lipa (2017) 2018, Reissue, 2CD, Complete Edition [FLAC|Lossless|tracks + .cue] <Synth-pop, Ballad, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749826.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Genesis (3:27)
+ 02. Lost in Your Light (3:24)
+ 03. Hotter Than Hell (3:10)(   Читать дальше...   )Жанр: Synth-pop, Ballad, Pop RockПродолжительность: CD1 - 00:57:07
+CD2 - 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE65DF8EC5A93BFB63526783F9A93EE9743D7A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216572   (749431) от 31.03.2018
 
 Потап и Настя - Не пара-альбом №1 (2008) |Lossless|image + .cue]<Pop>
@@ -713,35 +743,6 @@ Ally - With You In The Room (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8B026FFDF37CB116D756E38AE13F2CDABB43FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526503   (738489) от 24.01.2022
-
-Sam Martin - Blue Tuesday (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Was Always You (4:00)
- 02. All My Tears (2:41)
- 03. I Still Haven't Found What I'm Looking For (3:39)
- 04. A Day In The Life (3:58)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94058FC10A61408234BCC418CC679E2DB2A22A98
 ```
 
 https://mybot314.ru/tekegram_catalog/

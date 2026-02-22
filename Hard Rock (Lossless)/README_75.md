@@ -1,3 +1,32 @@
+###  Публикация: 1544376   (234291) от 16.04.2022
+
+Ronnie Romero - Raised On Radio (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sin's A Good Man's Brother (Grand Funk Railroad)
+02. Backstreet Love Affair (Survivor)
+03. No Smoke Without a Fire (Bad Company)
+04. I Was Born To Love You (Queen)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671E9003FD165F2FE1FB0E7C1D9B4CFE78F6ADA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644092   (234140) от 04.07.2023
 
 Winger - Seven (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -718,33 +747,6 @@ Rusty Bonez - Brainworm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99B430142FC09E2E04701E34D2AB9CE921B4A359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645509   (232815) от 09.07.2023
-
-King Weird - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Sludge, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232815.jpg" />
-</div>
-
-
-###  Подробнее
-
-2021 - King Weird
-2023 - Lucid DreamЖанр: Heavy, Sludge, Prog RockПродолжительность: 2 CD, 01:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3334B82250392D08C5213D62BF343A0F7F694A6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,38 +1,3 @@
-###  Публикация: 491337   (246354) от 03.05.2012
-
-Серия "Giants of Jazz - Immortal Concerts" / Count Basie & His Orchestra - The Music Of Neal Hefti & Benny Carter (1957-1961 / 1990) [APE|Lossless]<Jazz, Swing, Big band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Kid From Red Bank (N. Hefti) (2:34)
-02. After Supper (N. Hefti) (3:23)
-03. Flight Of The Foo Birds (N. Hefti) (3:22)
-04. Teddy The Toad (N. Hefti) (3:17)
-05. Whirly Bird (N. Hefti) (3:49)
-06. Midnite Blue (N. Hefti) (4:27)
-07. Fantail (N. Hefti) (2:55)
-08. Lil' Darlin' (N. Hefti)(4:48)
-09. Vine Street Rumble (B. Carter)(3:42)
-10. Katy-Do (B. Carter) (4:29)(   Читать дальше...   )Жанр: Jazz, Swing, Big bandПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447638   (246023) от 14.02.2021
 
 Kandace Springs - The Women Who Raised Me (2020) [FLAC|Lossless|image + .cue] <Jazz, Soul>
@@ -751,6 +716,35 @@ Janet Klein - Come Into My Parlor (1998) Coeur De Jeanette Productions[FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF4AB0CA667F56A4D72D07F09B48E7DD9A0FD577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063352   (245211) от 16.10.2016
+
+Peggy Lee - Miss Wonderful (1959) 1992, MCA Victor[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mister Wonderful [03:22]
+ 02.They Can't Take That Away From Me [02:59]
+ 03.Where Flamingos Fly [02:31]
+ 04.You've Got To See Mama Every Night [02:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4849728D8DC6AE7587C06B8431B7ACF0A2AFCAF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

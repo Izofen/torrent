@@ -1,3 +1,32 @@
+###  Публикация: 1339657   (265358) от 20.11.2019
+
+Mustasch - Killing It For Life (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265358.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Where Angels Fear To Tread (Album Version) [4:08]
+ 2 - Ransacker [5:13]
+ 3 - Before A Grave [5:06]
+ 4 - Freddie Mercury [4:53](   Читать дальше...   )Жанр: Heavy Metal, Stoner MetalПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD3E002AD2CB4D7C9F714F9CE96F1EB3946E7A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339666   (265257) от 20.11.2019
 
 Lindemann - F&M Frau Und Mann (Deluxe Edition) (2019) [MP3|320 Kbps] <Industrial, Neue Deutsche Harte>
@@ -798,35 +827,6 @@ Keep of Kalessin - Katharsis (2023) [MP3|320 Kbps] <Melodic Black, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D7E1024E958920C7BFFBE3B5D6AF6EEC5C887C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626150   (254661) от 30.04.2023
-
-Metallica - 72 Seasons (2023) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 72 Seasons
-02. Shadows Follow
-03. Screaming Suicide
-04. Sleepwalk My Life Away(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 01:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB66207345442589DF740B08089EAE40A46B8BD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

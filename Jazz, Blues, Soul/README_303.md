@@ -1,3 +1,91 @@
+###  Публикация: 380515   (500101) от 27.08.2011
+
+Hot Chocolate - Box Selection: Their 8 RAK Albums 1974-1983 (2011, Remastered) [FLAC|Lossless]<Funk, Soul, Disco>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hot Chocolate — британская поп-группа, образованная в 1969 году году в Брикстоне, Лондон, Англия, певцом и бас-гитаристом Эрролом Брауном, и исполнявшая софт-рок с элементами фанка и музыки соул.
+
+Первое название группы звучало, как The Hot Chocolate Band, но продюсер Микки Мост сократил название. "Горячий шоколад" начали с того, что записали реггей-версию песни «Give Peace A Chance» и за разрешением на выпуск обратились в Apple Records. Джону Леннону их версия настолько понравилась, что группа подписала с лейблом контракт, но этот союз из-за распада The Beatles оказался недолговечным.
+
+В первую десятку британского хит-парада входили 12 синглов и 4 альбома группы: на 1-е место поднимались сингл «So You Win Again» (1977), а также сборники The Very best Of… (1987) и Their Greatest Hits (1993). В 1986 году группа распалась, а в 1992 году появился совершенно новый состав Hot Chocolate, который гастролирует по сей день.Жанр: Funk, Soul, DiscoПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564483   (499750) от 19.07.2022
+
+Max Roach Double Quartet - Bright Moments (1987) Soul Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bright Moments [9:14]
+02. Elixir Suite [9:47]
+03. Hi Fly [7:51]
+04. Tribute to Duke and Mingus [5:24](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB335F86B2078C33430661F59CB83D825E507649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564482   (499744) от 19.07.2022
+
+Max Roach Double Quartet - Easy Winners (1985) Soul Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Says [12:54]
+02. Sis [6:38]
+03. A Little Booker [13:56]
+04. Easy Winners [4:55]Жанр: Hard Bop, Post-BopПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB6E0C0F7983CC7A5EF1EC989D4868C23481D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564570   (499716) от 19.07.2022
 
 DC Carnes - Delta Crossroads - Vol II (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -661,93 +749,6 @@ Z.Z. Hill - The Complete Hill/UA Recordings (1996) [MP3|320 кб/с]<Modern Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC48EB0756CC6FD51FBED9B1484CDD6C5BB9C6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935634   (498509) от 09.09.2015
-
-Rusty Bryant - Fire Eater (1971) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Eater [09:37]
-02. Free At Last [08:37]
-03. The Hooker [09:31]
-04. Mister S. [07:38]Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C98D6A4BE7CE11FEAAB3FD9B185357D262A2FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935754   (498454) от 09.09.2015
-
-Memphis Train - No Buts, No Maybes (2015) [MP3|320 кб/с]<Modern Electric Blues, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Got No Money (05:00)
-02. I'm A Mess (03:05)
-03. Change Your Mind (02:32)
-04. Electric Souls (05:18)(   Читать дальше...   )Жанр: Modern Electric Blues, Rockin' BluesПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48618BF53FA3957F39202DD8F961F3B0472A27C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935751   (498448) от 09.09.2015
-
-Mick Rothman - Place, Loss, Love & Life (2015) [MP3|320 кб/с]<Blues, Country Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albuquerque, Albuquerque (feat. Lump, Shuffle & The Str8 8s) (03:02)
-02. Wanted It That Way (feat. Lump, Shuffle & The Str8 8s) (04:12)
-03. I Want to Be Alone (feat. Lump, Shuffle & The Str8 8s) (03:23)
-04. A Certain Age (feat. Lump, Shuffle & The Str8 8s) (02:55)(   Читать дальше...   )Жанр: Blues, Country BluesПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE38E6D5D12487F81CE88DD6A0F8729D66A3ED3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

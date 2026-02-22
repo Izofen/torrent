@@ -1,3 +1,38 @@
+###  Публикация: 292670   (900384) от 11.02.2011
+
+Hibria - Blind Ride - Hibria - Blind Ride (2011) [MP3|320 kbps]<Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1.Blind Ride (Intro)
+2.Nonconforming Minds
+3.Welcome to the Horror Show
+4.Shoot Me Down
+5.Blinded by Faith
+6.The Shelter’s on Fire
+7.Beyond Regrets of the Past
+8.I Feel No Bliss
+9.Sight of Blindness
+10.Tough Is the Way(   Читать дальше...)Жанр: Power MetalПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E96CD7C5C1F73D331679169B7893DC13FAD1F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 294277   (900382) от 11.02.2011
 
 VA - Trance Technology - Part 2 (08.02.2011) [MP3|320 kbps]<Trance, Progressive Trance, Uplifting Trance>
@@ -717,32 +752,6 @@ VA - 100 Best Relaxing Classics (6CD) (2008) [FLAC|Lossless]<Instrumental, Class
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369983   (900333) от 25.03.2020
-
-Movavi Slideshow Maker 6 v6.4.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Slideshow Maker – это простая и удобная программа для создания слайд-шоу на русском языке. Вы сможете самостоятельно превращать фотографии из вашей коллекции в красивое видео, причем для этого вам не потребуется каких-либо специальных навыков. Загрузите изображения в программу, соедините фото анимированными переходами, добавьте подходящий саундтрек, наложите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2020Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F59BFE16810954586BC3447E703DC22D6013AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

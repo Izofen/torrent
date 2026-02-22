@@ -1,3 +1,177 @@
+###  Публикация: 1806936   (11279) от 16.07.2025
+
+Nathan James - Hollywood Mortician (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Metalcore, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crown of Thorns [00:03:08]
+02. Ghost Under The Veil [00:03:11]
+03. Lost Angeles [00:03:19]
+04. The Hanged Man [00:02:49](   Читать дальше...   )Жанр: Nu-Metal, Metalcore, Industrial MetalПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D1B88B7EF5AB0BAED1EB2EE3E9E7F60FF1E578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806997   (11278) от 16.07.2025
+
+Don Felder - The Vault 1975-2025 Fifty Years Of Music (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Move On (3:12)
+02.  Free At Last (4:46)
+03.  Hollywood Victim (5:17)
+04.  Last All Night (3:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3766CF3F61FACFA6C59CC60BDA33CDCFFCA9CC6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806981   (11277) от 16.07.2025
+
+Art Nation - Re-Revolution (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Need you to Understand (3:51)
+02.  3000 Beats (3:58)
+03.  I Want Out (3:12)
+04.  Number One (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413ADCFC0953CFDCB28E14C6AE414B0A33658FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806982   (11275) от 16.07.2025
+
+Big Boy Bloater - Dirty Disco Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dirty Disco Blues (3:24)
+02.  Kensington Gore (3:23)
+03.  I Don't Miss You As Much As You Thought I Would (4:11)
+04.  The Devil Went Down To Rehab (4:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6F2A8771FCAFFE567A21AE016C83633A439562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807202   (11191) от 17.07.2025
+
+Styx - Circling From Above (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circling From Above (1:57)
+02. Build And Destroy (3:52)
+03. Michigan (3:04)
+04. King Of Love (3:30)(   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D91FD6797FEA31864A73A4DF943106F7B4B50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807189   (11175) от 17.07.2025
+
+Joe Bonamassa - Breakthrough (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakthrough (4:10)
+02. Trigger Finger (4:05)
+03. I'll Take The Blame (3:35)
+04. Drive By The Exit Sign (4:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833D8E9D46A9F96CDC2A60A426A56CC2ED94AD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807200   (11173) от 17.07.2025
 
 Five Finger Death Punch - Best Off (Volume 1) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal>
@@ -571,180 +745,6 @@ Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58DF6D39AE8A45904FA395B0ABE78E0191C99F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810155   (9424) от 03.08.2025
-
-Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft rock, pop rock, jazz, new wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стинг (англ. Sting; настоящее имя — Гордон Мэттью Томас Самнер (англ. Gordon Matthew Thomas Sumner); родился 2 октября 1951, Уоллсенд (англ.)русск.) — британский музыкант-мультиинструменталист, певец и автор песен, актёр, общественный деятель и филантроп. Лидер группы The Police в 1976—1984 годах. С 1984 года выступает сольно. На протяжении своей музыкальной карьеры (   Читать дальше...   )1985 - The Dream Of The Blue Turtles (Germany, A&M Records – 393 750-1)
-1987 - ...Nothing Like The Sun (Germany, A&M Records – 393912-1)
-1991 - The Soul Cages (UK, A&M Records – 396 405-1)
-1993 - Ten Summoner's Tales (UK, A&M Records – 540 075-1)Жанр: Soft rock, pop rock, jazz, new waveПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82900E2275BEF4CFCCC364933E049698093EE7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810505   (9276) от 05.08.2025
-
-Pink Floyd - Collection (+Solo) (1967-2018) [DSD 128|tracks, image + .cue|Vinyl-Rip] < Progressive rock, psychedelic rock, alternative rock, jazz rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pink Floyd — одна из самых великих групп в истории рок-музыки, знаменитая своими философскими текстами, акустическими экспериментами, инновациями в оформлении альбомов и грандиозными шоу. Является одной из влиятельных и наиболее успешных групп в рок-музыке — 74,5 млн проданных альбомов в США (седьмое место), в мире же было продано около 300 млн (не считая сольных (   Читать дальше...   )1967 - The Piper At The Gates Of Dawn, PFRLP1, Germany, 2016,
-1968 - A Saucerful Of Secrets, PFRLP2, Germany, 2016,
-1969 - Soundtrack From The Film "More", PFRLP3,
-1969 - Ummagumma, 2LP, PFRLP4,Жанр: Progressive rock, psychedelic rock, alternative rock, jazz rockПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6315DB1502077BAA5A1EC716C15CE0D8591D6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810345   (9258) от 05.08.2025
-
-Frank Sinatra - The Collection 1953-1962, Original Master Recording, MFSL Box (1983) [DSD 128|tracks|Vinyl-Rip] <Jazz, Vocal, Ballad, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Синатра (Frank Sinatra) - легендарный американский певец, актёр и одна из наиболее выдающихся фигур в музыкальной индустрии 20 века. Родился 12 декабря 1915 года в Хобокене, Нью-Джерси, и ушёл из жизни 14 мая 1998 года в Лос-Анджелесе, Калифорния. Синатра стал известным благодаря своему потрясающему голосу, уникальному стилю исполнения и широкому музыкальному (   Читать дальше...   )LP1, Swing Easy/ Songs for Young Lovers, MFSL 1-130, (mono)
-LP2, In The Wee Small Hours, MFSL 1-131, (mono)
-LP3, Songs For Swingin' Lovers, MFSL 1-146, (mono)
-LP4, Close To You, MFSL 1-132, (mono)Жанр: Vocal, Ballad, SwingПродолжительность: 00:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0EFF431D62180F064DFD29AFE03DE9621067AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810678   (9211) от 05.08.2025
-
-John Skelley - We Were Lightning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Raised on Radio Static (3:11)
-02.  Punch the Clock, Light the Fire (3:16)
-03.  Backseat Sparks (3:05)
-04.  Last Call Saints (3:18)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0EC9A49E2ADFB7587F02CA2B652E666415834A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741971   (8892) от 08.08.2025
-
-Chaos Magic (Caterina Nix & Timo Tolkki project) - Studio Albums (4 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chaos Magic - хэви-метал проект, созданный Катериной Никс и Тимо Толкки.2015 - Chaos Magic
-2019 - Furyborn
-2020 - Desert Rose (EP)
-2022 - EmergeЖанр: Symphonic MetalПродолжительность: 03:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30181E5CEE86954F23E78EEFACCC9106E424D2D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515607   (8865) от 09.08.2025
-
-Evanescence - Дискография (11 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Nu Metal, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evanescence («исчезание», «мимолётность») — американская рок-группа, основанная в г. Литл-Рок, штат Арканзас, в 1995 году.1998/1999 - Evanescence/Sound Asleep (EP)
-2000 - Origin
-2003 - Fallen
-2006 - The Open DoorЖанр: Gothic Rock, Nu Metal, Symphonic MetalПродолжительность: 11:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F98183A290A7421AFFC6F6F64DC463CAE7B4F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

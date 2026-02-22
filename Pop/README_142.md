@@ -1,3 +1,119 @@
+###  Публикация: 1543385   (631983) от 10.04.2022
+
+Виктория Черенцова - Кукуруза (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. До завтра, Москва (3:53)
+02. Я люблю тебя (3:30)
+03. Будь со мной (3:36)
+04. Танцуй (3:42)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDCEDF5DB75177EC3E92C87BEDFDD6923CDF4FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228980   (631978) от 03.06.2018
+
+VA - Ещё одна вечеринка!! (1995) [FLAC|Lossless|image + .cue]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Каролина - Вот и всё
+02. Лариса Черникова - Подари мне ночь
+03. Кай Метов - А ты меня не поняла (Techno Mix)
+04. Юла и Джимми Джи - Рэйв Тайм (Sovok Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85882F0058BEC2735DC0C08C8F4D895F1B6A52F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294057   (631858) от 06.04.2019
+
+Weyes Blood - Titanic Rising (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Lot's Gonna Change (04:21)
+02. Andromeda (04:40)
+03. Everyday (05:07)
+04. Something to Believe (04:45)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E224C1CE0EC0B086D11B257E393492B0F2485F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543390   (631835) от 10.04.2022
+
+Виктория Черенцова - Карантин (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карантин (3:05)
+02. Не бойся (4:11)
+03. Опять дожди (3:51)
+04. Однажды ты соскучишься по мне (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15699D4FE94381D537A176B15C30B724455233F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143930   (631630) от 20.06.2017
 
 Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop, Disco>
@@ -647,120 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530B92DF2AF51AE9A9D5F78E0326F14013EB7EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035382   (628527) от 16.07.2016
-
-VA - Come and Get It: The Best of Apple Records (2010) Remaster [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаю Вашему вниманию компиляционный альбом лучших песен, выпущенный лейблом Apple Records 25 октября 2010 года. В альбом вошли ремастированные композиции, изданные Apple Records в период с 1968 по 1973 год. Ремастирование песен для альбома провела та же команда инженеров, что в 2009 году ремастировала альбомы The Beatles.
-"На «Come and Get It: The Best (   Читать дальше...   )01. Mary Hopkin - Those Were the Days  (5:11)
-02. James Taylor - Carolina in My Mind  (3:39)
-03. The Iveys - Maybe Tomorrow  (2:54)
-04. Black Dyke Band - Thingumybob  (1:56)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EF3B31EFEA66F5DEA51D6C606A129E9DD9F0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035473   (628525) от 16.07.2016
-
-Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track] <Pop, Hip-Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Me [00:03:51]Жанр: Pop, Hip-HopПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1264EE03FD48E4EA2F89233B33E689B4025FD14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035497   (628514) от 16.07.2016
-
-Дима Билан - Я ночной хулиган (2003) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Я ночной хулиган  "
-02. "Звёздочка моя ясная  "
-03. "Малыш   "
-04. "Я так люблю тебя  "(   Читать дальше...   )Жанр: PopПродолжительность: 00: 59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C59087CA6BB751E5716C0C70B7023780AF20AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294476   (628376) от 08.04.2019
-
-Lou & Hollywood Bananas - Meet The Ska All Stars: Greatest Hits (1980) LP [MP3|320 Kbps] <Pop, Disco, Ska>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hong-Kong Ska (2:20)
-02. I Won't Never Let You Go (2:43)
-03. Ska-Baloo Cha (2:52)
-04. Skeilzat (4:07)(   Читать дальше...   )Жанр: Pop, Disco, SkaПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38256E09B5A8AEF24FC507AF2C3A8A5053D6CB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

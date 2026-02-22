@@ -1,3 +1,61 @@
+###  Публикация: 1087282   (146572) от 27.12.2016
+
+VA - AFTR:HRS (Mixed by Tiesto) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep House, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuits D'Etoiles feat. Noemie - Un Autre Monde [4:24]
+02. Niklas Ibach feat. Dan Reeder - The Blues [2:23]
+03. Florian Paetzold - Easy [4:12]
+04. Autograf - Heartbeat (Alex Schulz Remix) [2:52](   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 01:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685A0219C1E2DEA38BF64328007A3DB08DC09853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520107   (145509) от 26.12.2021
+
+VA - Anjunabeats. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Lange – Rift (Alex O'Rion remix) (07:59)
+02. Jordin Post – Azure (04:42)
+03. Above & Beyond & Andy Moor – Air For Life (Dosem remix) (04:38)
+04. PROFF & Mokka – Your Light (Mixed) (06:32)(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 02:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FE198DFB38E15D84FC0C1CA72F65CDA42E3128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272450   (144809) от 27.12.2018
 
 Massimo Vivona - Metromatiko (2018) Headzone Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Progressive House>
@@ -685,60 +743,6 @@ Vintage & Morelli - Hymn To The Night (2019) Silk Music [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B3E56087A2E1707DE3FE79C5975AC0CC5592842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679569   (138064) от 25.11.2023
-
-Coiro - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C715C4007EDFC9ED253734A421726632D064EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273354   (138046) от 31.12.2018
-
-Thomas Rossetti - Feel Nature EP (2019) Maintain Replay Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature (06:03)
- 02. Air High (06:30)
- 03. Feel (06:41)Жанр: Tech House, MinimalПродолжительность: 00:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872C0A3CF1803C26A5136A35A72839AC5F46C739
 ```
 
 https://mybot314.ru/tekegram_catalog/

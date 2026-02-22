@@ -1,3 +1,90 @@
+###  Публикация: 1411398   (427279) от 25.09.2020
+
+Diana Krall - This Dream Of You (2020) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. But Beautiful
+02. That’s All / Azure-Te
+03. Autumn In New York
+04. Almost Like Being In Love(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8487BC9365DD97AC59D8047F7E692F50C3DD9431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324261   (427268) от 08.09.2019
+
+VA - 100 Hits The Blues (2019) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аналогичный сборник был выпущен в 2016 году с подзаголовком "100 Legendary Blues Classics", но как-то для широкой аудитории он прошел довольно не замеченным. Наверное поэтому Demon Music Group на этот раз решила совместить и выпустить дуплетом еще раз 100 Hits The Blues и почти одновременно 100 Hits Jazz (немного позже и этот рип появится на трекере). Да, (   Читать дальше...   )CD1:
+01. Roosevelt Sykes - Hangover  (3:19)
+02. Elmore James - Dust My Blues  (3:11)
+03. Little Willie John - Need Your Love So Bad  (2:17)(   Читать дальше...   )Релиз состоялся: 05.05.2019Жанр: BluesПродолжительность: 04:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A103C3D73CE2AE998E5A89673F839ACB6C68ECCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166359   (426920) от 16.09.2017
+
+Sonny Criss - Plays Cole Porter (1956) 2006, Toshiba [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You [04:14]
+02. Anything Goes [03:14]
+03. Easy To Love [03:17]
+04. It's Alright With Me [03:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEEC4863AB38A3D40E959345679058BD0482E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166116   (426787) от 16.09.2017
 
 Bobby Flurie - Alternative Universe (2009) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -658,93 +745,6 @@ Norman Connors - Take It To The Limit & Mr. C (2010) Expansion Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A833994E068C90A6EE6C5D8E55181C5AB3AEDF66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166703   (424576) от 17.09.2017
-
-Jake Green Band - Live @ Malmo festival (2011) Live [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bad Bad Feeling   (07:50) 
-02.  Blues Don't Bother Me   (03:18) 
-03.  When The Morning Comes   (05:49) 
-04.  Borderline   (05:22) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59EB931F45A6330199C720988A7CBFAACB33C5EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166499   (424436) от 17.09.2017
-
-John Mayall And The Bluesbreakers - A Hard Road (1967) Reissue, 1987, London Records [MP3|320 Kbps] <British Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hard Road
-02. It's Over
-03. You Don't Love Me
-04. The Stumble(   Читать дальше...   )Жанр: British Blues, Blues RockПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EECAC6CC166FE4590DA1B820C2892B3F602479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166745   (424260) от 17.09.2017
-
-The Willows - Tea for Three (2017) [MP3|320 Kbps] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakfast in Bed
-02. Fuddy Duddy
-03. Wishing Well
-04. What Are You Waiting For(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C0FE04AE82E99647901C74343E033BBBFC5804
 ```
 
 https://mybot314.ru/tekegram_catalog/

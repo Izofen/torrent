@@ -1,3 +1,61 @@
+###  Публикация: 1252942   (921991) от 18.08.2021
+
+R.Hz - Discography 53 Releases (2016-2021) Ubertrend Records, Toxic Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starry Sky (09:36)
+ 02. Steam (07:19)
+ 03. Scatter (06:50)
+ 04. Comb (06:34)Тип издания: WebЖанр: Dub Techno, Ambient, Techno •Продолжительность: 28:06:27 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83660884DAE8A226FBAB315110A2F41B12856251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096138   (920991) от 23.01.2017
+
+VA - Kind Vibrations (2015) [FLAC|Lossless|tracks] <Downtempo, Ambient, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sufi's Life - Blessings To All [08:49]
+02. Tor.Ma In Dub - The Secret Message [04:00]
+03. Ishdub - Tatanka (Melodica Version) [06:17]
+04. Gnomes of Kush - Jah Love The Kush [03:57](   Читать дальше...   )Жанр: Downtempo, Ambient, HouseПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B568E97F330AFB41E0BC9D7BB28DED519822532B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096400   (920938) от 23.01.2017
 
 VA - Deep Chilled Island Moods - Volumen Uno (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House, Nu Disco>
@@ -668,64 +726,6 @@ Variant - Discography 36 Releases (2009-2016) echospace [detroit] [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E955C33CEBAB4D82FD6486DC13EA411904C234C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990619   (910113) от 26.02.2016
-
-VA - Suntribe Vol.8 (2004) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Righi & Dan - Havana Loca (4:59)
-02. Unisono fx - Rain (latin club) (5:20)
-03. Asia Teck - Medioriente (6:39)
-04. Friday Tribe - King Chop (5:16)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8073D8036C1B92E828AFCFEF0CAF536CA39A7F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990814   (910064) от 26.02.2016
-
-Millimetric - Reconfiguration (2011) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, EBM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoking Kills (The Hacker Remix) (06:57)
-02. Dans Mes Yeux (Lyynk Remix) (05:11)
-03. Manic Depression (David Carretta Remix) (07:27)
-04. Colargol (Adriano Canzian Remix) (06:53)(   Читать дальше...   )Жанр: Techno, Electro, EBMПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3C094639010A57B8DDA74600DFF3FA62CD7490
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,33 @@
+###  Публикация: 1433119   (158041) от 20.12.2020
+
+VA - Enigmatica (Сборник Качественной Электронной Музыки) (2013) [FLAC|Lossless|WEB-DL|tracks] <Enigmatic, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Андрей Мольдон (Messiah project) родился 27.06 1973 в г. Тверь, с 1999 года постоянно проживает в г. Москва.
+Все поклонники Энигмы (Enigma) и музыки данного направления уже могли познакомиться с некоторыми работами автора. Так как не было никакой информации, всё его творчество принималось за бутлеги Энигмы, выпускаемые "нашими пиратами". Но вот теперь пришло (   Читать дальше...   )01. Ethna - Rapa Nui (6:33)
+02. Marah Cash - Enigmatica (5:49)
+03. Meduzza - Eastern Barbarians (5:15)
+04. Ethna - Coldfire Dance (3:56)(   Читать дальше...   )Жанр: Enigmatic, DowntempoПродолжительность: 03:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6527E78506EAB4A46CB8130FF9D4C3CE9A86B40F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194208   (157901) от 24.12.2017
 
 Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -772,35 +802,6 @@ Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F27F73B418F362E9DAAB22EC8EE7BE1D71BDD294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085913   (154584) от 23.12.2016
-
-Ветер всем - Колыбель (2010) [FLAC|Lossless|tracks] <Folk-Rock, World Music, Ethno>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У Егорья
-02. Полно
-03. Девушка
-04. Ходом водом(   Читать дальше...   )Жанр: Folk-Rock, World Music, EthnoПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C8077C76C9F68E474B621F402C08027EC1889A
 ```
 
 https://mybot314.ru/tekegram_catalog/

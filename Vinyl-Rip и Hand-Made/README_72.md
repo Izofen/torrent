@@ -1,3 +1,176 @@
+###  Публикация: 1717401   (111153) от 20.04.2024
+
+Виталий Дубинин - Бал-Маскарад (3 издания) (2022-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бал-Маскарад - сольный проект Виталия Дубинина с участием Сергея Маврина и Михаила Бугаева (Гран-Куражъ)2022 - Бал-Маскарад
+2023 - Live-маскарад
+2023 - Бал-Маскарад. ПостскриптумЖанр: Heavy Metal, Hard RockПродолжительность: 02:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1003AE418AA6C52FD362413FC35BAE7970E9DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717775   (111110) от 21.04.2024
+
+Warfect - Spectre of Devastation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spectre Of Devastation
+02. Pestilence
+03. Rat King
+04. Left To Rot(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2824F01F2C95FC9787A4AA945F737EE835F2DD44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715639   (111072) от 22.04.2024
+
+Poisonblack - Studio Albums (6 releases) (2003-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Groove/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Poisonblack — финская метал-группа, возглавляемая бывшем фронтменом Sentenced, певцом и гитаристом Вилле Лайхиала.2003 - Escapexstacy
+2006 - Lust Stained Despair
+2008 - A Dead Heavy Day
+2010 - Of Rust And BonesЖанр: Heavy/Groove/Gothic MetalПродолжительность: 05:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C2594363B9035A13F3A27CFCB0A75CF11EE2FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717915   (111067) от 22.04.2024
+
+U.D.O. - Solid (1997) Released, 2011, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Independence Day
+02. Two Faced Woman
+03. Desperate Balls
+04. The Punisher(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400A9C0F401B1D74AC86D5F4B27B5E510137712C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718027   (111059) от 22.04.2024
+
+U.D.O. - Holy (1999) [APE|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111059.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Holy
+A2 Raiders Of Beyond
+A3 Shout It Out
+A4 Recall The Sin(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139FEEC517B52DD5EB5DA417F73536DA1ECDFE63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718042   (111022) от 23.04.2024
+
+U.D.O. - Thunderball (2004) Released, 2012, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderball
+02. The Arbiter
+03. Pull The Trigger
+04. Fistful Of Anger(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AA0255165B1FF9C6538BB8A77B2F61A0F0C7DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718265   (110968) от 24.04.2024
 
 U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
@@ -570,180 +743,6 @@ Foo Fighters — американская рок-группа, основанн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBD777DE3720436C7D4B0B11215EC9AF4E67A75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722393   (109702) от 11.05.2024
-
-Richard Marx - Rush Street (1992) Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109702.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Take This Heart
-A2 Keep Coming Back
-A3 Big Boy Now
-A4 Calling You(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B8781127FD652CFA383F36639CBF0CA6FB1AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722548   (109682) от 12.05.2024
-
-VA - Metal Massacre (1982) Reissue, 1984, Metal Blade Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock, Glam, Thrash>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109682.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Black N Blue - Chains Around Heaven
-A2 - Bitch - Live For The Whip
-A3 - Malice - Captive Of Light
-A4 - Avatar - Octave(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Glam, ThrashПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F06BC36E1AA4F30250E1BC51530B826585CFD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722688   (109676) от 12.05.2024
-
-Sinner - Studio Albums (12 releases) (1995-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sinner — немецкая хэви-метал группа, образованная вокалистом и басистом Мэтом Синнером (Матиас Лэш) в 1982 году1995 - Bottom Line
-1996 - Judgement Day
-1998 - The Nature Of Evil
-2000 - The End Of SanctuaryЖанр: Heavy MetalПродолжительность: 11:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E242B7904CABA9742E337938A69F64E56EDE9626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723486   (109455) от 16.05.2024
-
-Starship - No Protection (1987) Specialty Records Pressing [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, AOR>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109455.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Beat Patrol
-A2 Nothing's Gonna Stop Us Now
-A3 It's Not Over ('Til It's Over)
-A4 Girls Like You)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B9F7FC7F5E4D94440627A31CC3B7FD38F2CAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723587   (109425) от 16.05.2024
-
-VA - Metal Massacre 02 (1982) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Glam, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109425.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Armored Saint - Lesson Well Learned
-A2 - 3rd Stage Alert - Mind Invader
-A3 - Surgical Steel - Rivit Head
-A4 - Obsession - Shadows Of Steel(   Читать дальше...   )Жанр: Thrash, Glam, Heavy MetalПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C1617AB2EE576FD0036BA5EF3A22255F71FF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723770   (109393) от 17.05.2024
-
-VA - Metal Massacre 03 (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109393.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Slayer - Aggressive Perfector
-A2 - Bitch - Riding In Thunder
-A3 - Tyrant - The Battle Of Armageddon
-A4 - Medusa - Piranahs(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5996F447F29D79F27C94B7B0E181CF5110616AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

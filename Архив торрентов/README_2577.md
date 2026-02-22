@@ -1,3 +1,32 @@
+###  Публикация: 1142242   (644857) от 13.06.2017
+
+SoundSpirit - Love and Other Drugs (2017) [MP3|320 Kbps] <Electronic, Psy-Trance, Psychedelic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644857.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Perfect Day 7:39
+2. Love 8:24
+3. Follow Me 8:26
+4. Viva Seduction 7:56(   Читать дальше...   )Жанр: Electronic, Psy-Trance, PsychedelicПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF83B3238EA6087410D32F3191B2AEF63CFE8403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141367   (644854) от 13.06.2017
 
 Eff Dst - Blackout (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Industrial, Downtempo>
@@ -667,32 +696,6 @@ Spec Ops: The Line сочетает увлекательную сюжетную 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B7D5B4EEC59DA48B13D73266B3BE3D10A386512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518092   (644677) от 02.07.2012
-
-Футбол. Чемпионат Европы 2012. Все Голы + Бонус (2012) HDTVRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все голы Чемпионата Европы 2012 по футболу, плюс бонус!Жанр: СпортПродолжительность: 82 ~ 00:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A4E33F4E8C2DDF1BD3687B69E549E655054C3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

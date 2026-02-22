@@ -1,3 +1,90 @@
+###  Публикация: 1170230   (399623) от 01.10.2017
+
+Steve Marcus - Smile (1993) Red Baron [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oleo [03:53]
+02. Hillary [07:47]
+03. Confirmation [07:13]
+04. Smile [06:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFE9CAC8CE801DB3C5CD65098A6339D16E8A8BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170188   (399544) от 01.10.2017
+
+Jessy Martens & Band - Tricky Thing (2017) [MP3|320 Kbps] <Contemporary Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stronger (03:50)
+02. Pack Of Lies (04:50)
+03. Hush Now (06:05)
+04. Tricky Thing (04:32)(   Читать дальше...   )Жанр: Contemporary BluesПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F941515A27F91C1898C79E618749DE43169131D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170395   (399475) от 01.10.2017
+
+Black Stone Cherry - Black To Blues (2017) EP [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Built For Comfort (04:24)
+02. Champagne & Reefer (03:44)
+03. Palace Of The King (02:58)
+04. Hoochie Coochie Man (04:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF029D112FDD244DB47D6ECD8152937F04F0AD8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 399295   (399430) от 14.10.2011
 
 Sam Levine - Smooth Sax Romance (2011) [FLAC|Lossless]<Smooth Jazz>
@@ -679,99 +766,6 @@ Terry Gibbs - Plays Jewish Melodies In Jazztime (1963) 2002, Verve [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2D6E6D3E027C68800193CCC618A824FDD9C5AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172171   (394097) от 07.10.2017
-
-VA - Disney Adventures in Bossa Nova (2009) Disney [FLAC|Lossless|tracks + .cue] <Bossa Nova, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Valle - Cruela Cruel [02:55]
-02. Joice - Hi-Ho [01:27]
-03. Quarteto Em Cy & MPB4 - Somente o Necessario [02:23]
-04. Bana Lobo - Aqui No Mar [04:17](   Читать дальше...   )Жанр: Bossa Nova, Brazilian JazzПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CB55FEC0298603CC6946B16736C35B279B6783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172294   (393932) от 07.10.2017
-
-Snowy White and The White Flames - Reunited (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have I Got Blues For You (05:03)
-02. Headful Of Blues (06:37)
-03. I've Heard It All Before (04:17)
-04. Where Will You Belong (04:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33100DDE95DEEEFB12CEE5D23024F6C953DEA46D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568747   (393685) от 01.11.2012
-
-Diana Krall - Glad Rag Doll (Deluxe Edition) (2012) [FLAC|Lossless]<Jazz / Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Just Couldn't Say Goodbye (3:07)
-02. There Ain't No Sweet Man That's Worth The Salt Of My Tears (4:30)
-03. Just Like A Butterfly That's Caught In The Rain (3:43)
-04. You Know - I Know Ev'rything's Made For Love (3:47)
-05. Glad Rag Doll (4:34)
-06. I'm A Little Mixed Up (4:37)
-07. Prairie Lullaby (4:22)
-08. Here Lies Love (5:09)
-09. I Used To Love You But It's All Over Now (2:50)
-10. Let It Rain (5:44)(   Читать дальше...   )Жанр: Jazz / VocalПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

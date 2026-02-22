@@ -1,3 +1,29 @@
+###  Публикация: 993128   (893115) от 06.03.2016
+
+Red Giant Shooter Suite 13.0.1 CE RePack by TeamVR [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Giant Shooter Suite 13 - Новая версия пакета плагинов, предназначенных для операторов и редакторов видео, работающих с медиа информацией из видеокамер и аудиоустройств. Shooter Suite представляет собой набор из четырёх инструментов, которые дают вам свободу, чтобы снимать, как вы хотите, с уверенностью, что ваши кадры будут перенесены из камеры на тайм-линию (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B065E18CBBDBEBD32B233BD0FF137B131754FCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993919   (893113) от 06.03.2016
 
 Игра на понижение / The Big Short (2015) BDRip [H.264/720p] [Line]
@@ -667,41 +693,6 @@ Jenna Jameson / Дженна Джеймсон [JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A45AB9C0CADFC4CBFC592174DF4048F29FFA6855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762289   (892979) от 02.03.2014
-
-Paul Michael Meredith - Daybreak (2000) [MP3|320 кб/с]<New age, Relax, Nature sounds, Harp>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(4:15) 01. Daybreak
-(3:56) 02. Through Open Windows
-(3:34) 03. Gentle Breeze
-(5:20) 04. Shadow And Light
-(4:21) 05. Promise Of Love
-(6:30) 06. Dusk To Dawn
-(4:04) 07. Water's Edge
-(4:48) 08. Everywhere You Look
-(4:15) 09. Softly
-(5:13) 10. Morning Mist(   Читать дальше...   )Жанр: New age, Relax, Nature sounds, HarpПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECA42D8BBD184F0D4428BB09629FEB2876D6B9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

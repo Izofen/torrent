@@ -1,3 +1,32 @@
+###  Публикация: 1653450   (205452) от 16.08.2023
+
+Gene Ammons - Funky (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky [9:01]
+02. Pint Size [12:24]
+03. Stella By Starlight [8:58]
+04. King Size [9:17]Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB7BF3375D88E6B4117C6F79FCD1C663B42DE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653552   (205437) от 16.08.2023
 
 Dr. John - Things Happen That Way (2022) [FLAC|Lossless|tracks + .cue] <Blues, Pop, Folk>
@@ -716,35 +745,6 @@ The Hurricane Party - Cat. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF31F86211BA7F044CFF4E4DA956F276247D24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656313   (203325) от 30.08.2023
-
-Gurf Morlix - I Challenge the Beast (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart (4:27)
-02. Miss Nellie's Place (5:34)
-03. The Beast (6:25)
-04. Beautiful Crazy World (4:26)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75F9B694A77B86F36172747CAFD20362298A153
 ```
 
 https://mybot314.ru/tekegram_catalog/

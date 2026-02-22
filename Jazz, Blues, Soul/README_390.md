@@ -1,3 +1,61 @@
+###  Публикация: 1263491   (288260) от 19.11.2018
+
+Hiroshi Matsumoto & Hideo Ichikawa Quartet - Megalopolis (1969) 2006, Think! Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sketch of City Life [15:31]
+02. Nostalgia [4:37]
+03. Megalopolis [5:56]
+04. Serenade to a Dimly Lit Street [5:10](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3967BF2EE05ECABA1BEB355E2952950403951016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186186   (288246) от 24.11.2017
+
+VA - Blues & Boogie (2017) Artist Collection Vol.10 [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Jones - You Don't Have To (04:55)
+02. Blues Rocket Men - Blues Day (03:38)
+03. Nico Brina - Don't Mess Around With A Pianoman (02:45)
+04. Andi's Blues Orchester - Hard Road Blues (03:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208DDA30106371E91AB3D62A85908283A48912DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263466   (288151) от 19.11.2018
 
 Norio Maeda Trio - Alpha Ray (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -685,64 +743,6 @@ Greg Miller - Destination For Dreamers (2015) [MP3|320 кб/с]<Harmonica Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F41277F2EEE99BB5B2EB06CCFE70A44B122E8588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186803   (284797) от 26.11.2017
-
-Rob Schneiderman - Radio Waves (1991) Reservoir [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Extra Time [08:31]
-02. Gravitation [06:37]
-03. Blue Moon [08:51]
-04. There's a Small Hotel [05:55](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05AB80A8C1131056654F7458C62D9C499F231D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186797   (284793) от 26.11.2017
-
-Alex Riel & Stefan Pasborg - Drumfaces (2013) Stunt Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie's Tune [07:51]
-02. Byen Vagner [06:08]
-03. Big Noise from Winnetka [06:07]
-04. Lux [05:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CD7B3FD97825B63F5888D24032A00B598E27EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 971127   (988585) от 01.01.2016
+
+Gepy & Gepy - Il Meglio (1997) [FLAC|Lossless|image + .cue]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body To Body 7:04
+02. Pui' 3:29
+03. Angela 3:37
+04. Angelo Blu 3:03(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA2433943E29C2B18E45447FFAEC974EAA2BE96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970984   (988480) от 01.01.2016
+
+Степ - Ти не пожалкуєш (1997) [FLAC|Lossless|image+.cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шалалулей
+    02. Жнива
+    03. Ти не пожалкуєш
+    04. Жінка моя(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BA831A5C39BF509106058CB876281D134D721E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970801   (988477) от 01.01.2016
+
+Sandra - The Art Of Love (2007) [FLAC|Lossless|image + .cue] <Pop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What D'Ya Think Of Me [04:34]
+02. The Way I Am [03:31]
+03. The Art Of Love [04:14]
+04. What Is It About Me [03:54](   Читать дальше...   )Жанр: Pop, ElectroПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB45FAEAB22CDB38866E7DC56228A5479E0BF20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970626   (988406) от 01.01.2016
+
+VA - Radio 538 Hitzone Christmas 2015 (2015) [FLAC|Lossless|image+.cue] <Pop, Rock, Holiday, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Have Yourself A Merry Little Christmas - 2:49
+02. Justin Bieber & Mariah Carey - All I Want For Christmas Is You (SuperFestive!) (Album Version) - 4:01
+03. The Common Linnets - Christmas Around Me - 3:01
+04. Coldplay - Christmas Lights - 4:04(   Читать дальше...   )Жанр: Pop, Rock, Indie, Electronic, R&B, Soul, Folk, Country, Holiday, ChristmasПродолжительность: 02:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5816155FB79A721D743941B086B01CCAE8838B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611651   (987903) от 31.01.2013
 
 Ricchi E Poveri - Perdutamente Amore (2012) [FLAC|Lossless]<Pop>
@@ -650,122 +766,6 @@ Klusters - Olbers' Paradox (2015) [OGG|406-488 кб/с] <Alternative Pop, Psyche
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FA337532E2E73384F2840892437E07456EF1D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971901   (984548) от 04.01.2016
-
-Oonagh - Oonagh (2014) Attea Ranta • Second Edition [FLAC|Lossless|image + .cue] <Pop, Ethno-Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaa [03:55]
-02. Vergiss Mein Nicht (Duet Mit Santiano) [04:24]
-03. Orome [03:45]
-04. Falke Flieg [03:32](   Читать дальше...   )Жанр: Pop, Ethno-Pop, FolkПродолжительность: 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A907249CB894256324FEC4718CDEDBBF674EF555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355403   (983619) от 26.01.2020
-
-Crystal Grass featuring Steve Leach - Dance Up A Storm (1976) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream On (3:57)
-02. Now And Forever (3:00)
-03. I Sure Like The Change (2:55)
-04. I Wanna Thank You For The Music (4:47)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310FCB726140309327CE80BFB05719696F74B7A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355555   (983535) от 26.01.2020
-
-Lola Marsh - Someday Tomorrow Maybe (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes (03:44)
-02. Only For A Moment (02:48)
-03. Hold On (03:48)
-04. Strangers On The Subway (03:11)(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, FolkПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F2A09EA77B9EF482DA07470471665D5A3475618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355502   (983522) от 26.01.2020
-
-Tindersticks - See My Girls (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See My Girls (Edit) [04:24]
-02. A Street Walker's Carol [04:19]
-03. Blood and Bone [05:35]
-04. See My Girls (Le Chien Version) [05:31]Жанр: Pop RockПродолжительность: 00:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FF6C7DB9A492234D7C36530CEBBF78079E5247
 ```
 
 https://mybot314.ru/tekegram_catalog/

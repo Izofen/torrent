@@ -1,3 +1,32 @@
+###  Публикация: 1395469   (755585) от 10.07.2020
+
+Seventh Sign From Heaven - The Woman And The Dragon (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stayed in the Dark (03:20)
+ 02. Rise (03:17)
+ 03. The Devil Fears Your Name (04:22)
+ 04. The Woman and the Dragon (04:20)(   Читать дальше...   )Жанр: Heavy Metal,  Power MetalПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1075EE085B97422FDCDCED3CDA1273C6B11064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395449   (755570) от 10.07.2020
 
 Kiko Loureiro - Open Source (2020) [MP3|320 Kbps] <Progressive Metal, Instrumental Music>
@@ -713,34 +742,6 @@ Derkéta - группа из города Питтсбурга, штат Пен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DE1CC3E8F7CCFE2B3CDF7D737ACCDC18C96B5BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216800   (747925) от 01.04.2018
-
-Primordial - 2 релиза (2018) [MP3|320 Kbps] <Folk Metal, Progressive Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2018 - Exile Amongst The Ruins
-2018 - Heathen Legacy (EP)Жанр: Folk Metal, Progressive Metal, Black Metal|Продолжительность: 01:33:12 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52CC9D9E47521FFAB0AB9078633587D21822BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

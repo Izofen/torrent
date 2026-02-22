@@ -1,3 +1,32 @@
+###  Публикация: 1413080   (411916) от 02.10.2020
+
+VA - Lazy Morning (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America - Ventura Highway (03:31)
+02. Kate Bush - Army Dreamers (02:54)
+03. Tom Petty - Wildflowers (03:10)
+04. Emmylou Harris - Here, There and Everywhere (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22B3608F97FEB13A48FEE64AE3847D56F33BC2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413020   (411894) от 02.10.2020
 
 VA - Heartbreak Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
@@ -717,35 +746,6 @@ Rod Stewart - Star profile (2000) [FLAC|Lossless|image + .cue] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD62A8B14197EFD4C8FD6B7EE6E8CC37D79AAE94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173466   (390406) от 11.10.2017
-
-Julio Iglesias - The Real... Julio Iglesias (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. La Vida Sigue Igual
-02. Manuela
-03. Por El Amor De Una Mujer(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 03:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7531EAC15FB0A811D5FC0F3EC291FA9A16FF3AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

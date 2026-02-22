@@ -1,3 +1,30 @@
+###  Публикация: 1211908   (776703) от 09.03.2018
+
+Bartender 3 v.3.0.45 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все "лишние" иконки. В настройках приложения можно указать, какие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CD4071F796BC861857E679BCA7253F46634075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211821   (776699) от 09.03.2018
 
 Adobe Audition CC 2018 (11.0.2.2) Portable by XpucT (DC) [Ru/En]
@@ -672,35 +699,6 @@ VA - City Trance, Vol. One (2016)[MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8434B0AA02EDF7F81CF939A6E38888395D6628A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014475   (776573) от 07.05.2016
-
-VA - Trance Parade (2016) [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel & Make One - The Power Of Nature (Ahmed Romel Remix)
-02. Aurosonic feat. Nicol Cache - Tell Me Why (Mhammed El Alami Remix)
-03. Christish pres. MANA - Kimochi (Simon O'Shine Remix)
-04. NoMosk & Nathia Kate - Moments (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748CFF05C6B93C28E0F2B5D2B67D4C3ED643A994
 ```
 
 https://mybot314.ru/tekegram_catalog/

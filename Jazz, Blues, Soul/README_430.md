@@ -1,3 +1,32 @@
+###  Публикация: 1637458   (238275) от 04.06.2023
+
+Eddie Condon - 1942 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Leave Me Daddy [2:39]
+02. Fidgety Feet [2:42]
+03. Mammy O'Mine [4:22]
+04. Lonesome Tag Blues [4:06](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8F35BBDE09A42961C8ECA3D2A4B8281D24026A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637866   (238253) от 06.06.2023
 
 Blue Recluse - Rarely Fatal - Rarely Fatal (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -716,35 +745,6 @@ Karin Krog & Bengt Hallberg - Two Of A Kind (1982) 1987, Meantime Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:561489DBA1341C6C5C72E15699BD65636B42C3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626119   (237815) от 13.04.2023
-
-Sidney Bechet - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Royal Garden Blues [6:34]
-02. Slow Blues [6:43]
-03. Old Fashioned Love [5:28]
-04. Fast Blues [6:03](   Читать дальше...   )Жанр: Dixieland, Swing, New Orleans JazzПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4B681873D5F5EC75EC1DC0CCEA71ECBBE7E0F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

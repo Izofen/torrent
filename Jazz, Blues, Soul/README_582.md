@@ -1,3 +1,38 @@
+###  Публикация: 445799   (92158) от 04.02.2012
+
+Johan Clement Trio - Trio (1990) [FLAC|Lossless]<Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Merchant
+02. Trico Tism
+03. J.J. Strutt
+04. Darn That Dream
+05. Soft Winds
+06. I Love You
+07. Gamble Time
+08. I Mean You
+09. If I Should Lose You
+10. Duplex(   Читать дальше...   )1990Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 445629   (92140) от 03.02.2012
 
 Annie Sellick (feat. Joey DeFrancesco) - No Greater Thrill (2003) [FLAC|Lossless]<Vocal Jazz>
@@ -848,41 +883,6 @@ VA - Jazz and '70s, '80s, '90s ( Collection ) (2008) [FLAC|Lossless]<Jazz>
 08. Stella Starlight Trio - Black Hole Sun (Soundgarden - 1994)
 09. Anakelly - November Rain (Guns N Roses - 1991)
 10. Jamie Lancaster - It Ain't Over 'Til It's Over (Lenny Kravitz - 1991)(   Читать дальше...   )2008Жанр: JazzПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484821   (89381) от 19.04.2012
-
-Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Punta Del Soul (5:31)
-02. Southwest Passage (5:50)
-03. First-time Love (4:05)
-04. Western Women (4:40)
-05. Dancing in the Township (6:07)
-06. Old Bones (6:14)
-07. In the Middle of the Night (5:52)
-08. T. K. O. (5:48)
-09. Polina (6:56)
-10. Lupita (1:08)(   Читать дальше...   )1989Жанр: Jazz, Contemporary, Crossover JazzПродолжительность: 01:02:27
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,93 @@
+###  Публикация: 210632   (981837) от 04.01.2014
+
+Caetano Veloso - A Bossa de Caetano (2000) [FLAC|Lossless]<Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Samba de verao   (3:11)
+02.  Chega de saudade   (2:09)
+03.  Desde que o samba e samba   (5:13)
+04.  Coisa mais linda   (3:16)
+05.  Get out of town   (3:57)
+06.  Quando eu penso na Bahia   (1:53)
+07.  Chuvas de verao   (2:53)
+08.  Lindeza   (4:09)
+09.  Chora tua tristeza   (3:02)
+10.  Nega maluca   (3:58)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761B30A63DCA1874EDC0B35AE99D9AC8E2FA96EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741823   (981835) от 04.01.2014
+
+V.A. - Jazz And Floyd (2013) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella Starlight Trio - Another Brick In The Wall (Part 2)
+02. The Cooltrane Quartet - Breathe (In The Air)
+03. Michelle Simonal - Time
+04. George White Group - Money(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF0E660AF38BED936DD4D479DA09FBA0408D156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165253   (981678) от 11.01.2010
+
+Benny Goodman And His Orchestra - The Essential BG (4 CD) (2006) [MP3|320 kbps]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Jazz
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613377   (981677) от 05.02.2013
 
 Various Artists - The Art Of The Ballad (The Best of Mapleshade) (1999) [FLAC|Lossless]<Jazz>
@@ -720,93 +810,6 @@ Soulounge - Home (2004) [MP3|~190 кб/с] <Soul, Jazz, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08FCAB11DBA0AE74B485A8693C4D732DB18566A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972993   (980704) от 07.01.2016
-
-VA - Jazz Masterpieces Remixed (2015) [FLAC|tracks] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Herbie Hancock - Cantaloupe Island (Remix) (03:25)
-02. Horace Silver - Song for My Father (Remix) (05:19)
-03. Kenny Dorham - Blue Bossa (Remix) (03:40)
-04. Bill Withers - Ain't No Sunshine When You're Gone (Remix) (04:59)(   Читать дальше...   )Производство: Zip MusicЖанр: Jazz, Smooth JazzПродолжительность: 00:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14299F2845A2394D6FCFB805C4FA7A962AC519C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973133   (980671) от 07.01.2016
-
-Dave's True Story - 4 albums (1993-2005) [APE|Lossless|image + .cue] <Jazz, Female Vocals, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980671.jpg" />
-</div>
-
-
-###  Подробнее
-
-DAVE’S TRUE STORY – исключение из всех возможных правил! Начиналось всё это в 1989 году, как джазовый дуэт Дэвид Кантор & Келли Флинт. Затем к ним присоединились Джеф Эйрич и Крис Ботти. И результат совместного творчества, как говорится, превзошёл все ожидания… Музыка, прозрачна, как акварель, а вокал… Это нечто!.. Недаром Келли Флинт называют обладательницей (   Читать дальше...   )Список альбомов:
-1993 - Dave's True Story
-1998 - Sex Without Bodies
-2000 - Unauthorized(   Читать дальше...   )Жанр: Jazz, Female Vocals, SwingПродолжительность: 03:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD09D8591BCCA0A29BA42F80D5B3EF6E6FB5025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972661   (980662) от 07.01.2016
-
-Dave's True Story - 4 albums (1993-2005) [MP3|320 кб/с] <Jazz, Female Vocals, Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980662.jpg" />
-</div>
-
-
-###  Подробнее
-
-DAVE’S TRUE STORY – исключение из всех возможных правил! Начиналось всё это в 1989 году, как джазовый дуэт Дэвид Кантор & Келли Флинт. Затем к ним присоединились Джеф Эйрич и Крис Ботти. И результат совместного творчества, как говорится, превзошёл все ожидания… Музыка, прозрачна, как акварель, а вокал… Это нечто!.. Недаром Келли Флинт называют обладательницей (   Читать дальше...   )Список альбомов:
-1993 - Dave's True Story
-1998 - Sex Without Bodies
-2000 - Unauthorized(   Читать дальше...   )Жанр: Jazz, Female Vocals, SwingПродолжительность: 03:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17FFAF46754CF490CE96B393BC194C2C95116F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1597351   (166821) от 14.12.2022
+
+Paul Candow - Mechanics of Manipulation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold Me Down (3:22)
+02. Last Time (3:09)
+03. Whiskey (3:53)
+04. Information Overload (3:32)(   Читать дальше...   )Жанр: Blues,RockПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFA9CC45AF29C4AD185A513B6FD1C9EAA0B3634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597333   (166811) от 14.12.2022
 
 VA - Uplifting Country Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country Rock>
@@ -716,35 +745,6 @@ Phil Hey Quartet - Subduction: Live at the Artists' Quarter (2005) Self-Released
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:362AE94E82271BD07F0DF24DAD3C68AFB03A5F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597592   (165872) от 15.12.2022
-
-Goodbye June - See Where The Night Goes (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Step Aside (4:08)
-02. See Where The Night Goes (3:49)
-03. Breathe And Attack (4:01)
-04. Take A Ride (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB360C5F985F4E5A6C0F481B16C64C3F184BD8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

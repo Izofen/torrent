@@ -1,3 +1,32 @@
+###  Публикация: 1410786   (434056) от 22.09.2020
+
+VA - Redux Selection Vol.9 (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airdream - Different Worlds (Extended Mix)
+02. Trance Reserve - 34 (Extended Mix)
+03. Terra V - Beyond the World (Extended Mix)
+04. Daniel Cesana - We Are All Heroes (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FBB88A59E9E4C284CDC216D1CDF24D8060B48D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410693   (434055) от 22.09.2020
 
 Glary Disk Cleaner 5.0.1.221 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -657,32 +686,6 @@ QLPro Studio инструмент управления базами данных
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:969B2A6034EAE7C816EED2C9DE6D93AF84C6CCAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571283   (433949) от 21.08.2022
-
-Valentina Studio Pro 12.5.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 17.08.2022Разработчик: 2001 - 2022 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8529083D1E5170573E8F5126EB0362B3BD04DE36
 ```
 
 https://mybot314.ru/tekegram_catalog/

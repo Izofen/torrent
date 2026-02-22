@@ -1,3 +1,90 @@
+###  Публикация: 1847521   (1052192) от 12.01.2026
+
+496 West - Heights (2026) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Horizons (3:51)
+02.  Velvet Groove (4:55)
+03.  Crush On You (3:53)
+04.  Piano Funk (3:50)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF8681E56CA191F3D1FAE9A2F50EFD2939D59B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847523   (1052191) от 12.01.2026
+
+Electro Swing Celebration - Electro Swing Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Disco Shuffle (2:52)
+02.  Bourbon & Brass (2:36)
+03.  Radio Electroswing (2:26)
+04.  Electro Swing Party (2:57)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDAA610B1734ED24A6D041BF89E36518BE97B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847526   (1052189) от 12.01.2026
+
+Lowell Hopper - Mystique (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Free Fallin' (5:02)
+02.  Mystique (4:27)
+03.  Hit And Miss (4:45)
+04.  Romance (4:26)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985A846A2EEC3586020973E11756BE4E88EA92BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847527   (1052187) от 12.01.2026
 
 The Neo Swingers - Electro Swing X-Mas 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
@@ -658,93 +745,6 @@ Threestyle - Reasons 2 Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08DFD0EF4EBA6BD03536D3A9319E0DEA4BA6A91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844693   (1050286) от 27.12.2025
-
-Threestyle - Christmas Is My Favourite Season (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Christmas Is My Favourite Season (3:22)
-02.  First Christmas (3:45)
-03.  Christmas in July (3:45)
-04.  New Kind of Christmas (3:29)(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, ChristmasПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E883CAD2AF6AB845A43B2B0883D5C6B30C07F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844696   (1050283) от 27.12.2025
-
-Threestyle, Magdalena Chovancova, Robert Fertl, Damon Dae - We Have That Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Love for Free (3:49)
-02.  Change of Heart (3:54)
-03.  Real Love (4:38)
-04.  All over Again (4:16)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB4F92F8732CE5C8274029FD55199AA16AC5982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844701   (1050281) от 27.12.2025
-
-Tony O Blues - Free Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hard Day Blues (4:25)
-02.  Rich Man's Woman (4:44)
-03.  Free Life (3:56)
-04.  You Don't Know Me (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C5725550838B8EDCA4576ECC55A6C5E69095B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

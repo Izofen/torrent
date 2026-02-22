@@ -1,3 +1,90 @@
+###  Публикация: 932374   (509553) от 29.08.2015
+
+The Lew Tabackin Quartet - Desert Lady (1990) /Concord Jazz/[FLAC|tracks+.cue]<Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot House [04:09]
+02. Pyramid [09:41]
+03. Serenade To Sweden [08:05]
+04. Chelsea Bridge [07:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08A50E1B202FC51FB402A1F22E1FB5CD38DFAF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932426   (509551) от 29.08.2015
+
+Marie Seferian Quartett - Mille Nuits (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La plainte des fontaines
+02. Nos regards
+03. Myosotis I
+04. Myosotis II(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB85BFA10913AB93A5038FE2B47E305119B1C992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932369   (509549) от 29.08.2015
+
+Ted Curson - Quicksand (1974) /2013, Warner/[FLAC|tracks+.cue]<Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiderlegs [07:54]
+02. Tears For Dolphy [08:17]
+03. Typical Ted [07:27]
+04. Greasy As A Porkchop [05:56](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5845C6E57F7B52E774CED6EB4FE56C26339781FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932220   (509545) от 29.08.2015
 
 John Coltrane - First Meditations (for quartet) (1965) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
@@ -664,93 +751,6 @@ Sidney Bechet - 1923 - 1936 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ED18A679D583EB0E796AEE7799CAD4F311FA29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316360   (506925) от 25.07.2019
-
-Frank Foster - Well Water (1977) 2007, Piadrum Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy Spring [7:19]
-02. Cecilia Is Love [9:51]
-03. Simone [9:11]
-04. There'll Be a Time [6:12](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588468E993BB21C4D4CBF3B2F5D3309B1D6D0CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316362   (506924) от 25.07.2019
-
-Skip Wilkins - Solo: Recorded Live in Concert at Lafayette College (2007) Dreambox Media [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peau Douce [4:03]
-02. It Was Bound to Happen [3:37]
-03. Skylark [5:51]
-04. Nardis [4:39](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64036EA7B1229CA97D5C5975C2668DAE5FB725B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316268   (506922) от 25.07.2019
-
-USA Gospelchor Feat. Joan Orleans - Higher And Higher (1997) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Happy Day (4:22)
-02. You Are The Light (4:23)
-03. Showers Of Blessing (5:27)
-04. We Are The World (5:25)(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC19C3FEDBA8E778F59E576FFE1308AC5B192AB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

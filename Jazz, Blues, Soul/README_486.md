@@ -1,3 +1,32 @@
+###  Публикация: 1517462   (162082) от 16.12.2021
+
+Reckless and Blue - Can't Give Me the Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Woman Blues (3:06)
+02. Reckless Woman (3:38)
+03. Can't Give Me the Blues (4:15)
+04. Wanna Be Your Man (4:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF064C9296D4C379FC98D6996FA3272429EC302A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432734   (162045) от 19.12.2020
 
 Ryan Neville and The Midnight Blues Band - Fire on the Tracks (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -717,35 +746,6 @@ Jeremy Pelt - Insight (2002) Criss Cross [FLAC|Lossless|tracks + .cue] <Post-Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:163621D4EBF0D82D5D854E09D1499B91CFA78CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675401   (160319) от 09.11.2023
-
-Billy Hart - All Our Reasons (2012) ECM [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song For Balkis [12:53]
-02. Ohnedaruth [6:06]
-03. Tolli's Dance [5:32]
-04. Nostalgia For The Impossible [5:53](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCBA67AAF2E37D5ACEA4BC47971577D7A68B026
 ```
 
 https://mybot314.ru/tekegram_catalog/

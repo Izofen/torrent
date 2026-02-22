@@ -1,3 +1,29 @@
+###  Публикация: 1524793   (742248) от 17.01.2022
+
+HDCleaner 2.013 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742248.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows от компании Майкрософт. Данный набор эффективных средств ля очистки ПК создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956D8F9AC012D59957BEAEB611D6BBA17AC5AE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524719   (742247) от 17.01.2022
 
 Audiority - Space Station UM282 1.0.0 VST, VST3, AAX (x64) [En]
@@ -664,35 +690,6 @@ Slimjet 10.0.3.0 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E15D50B072A2EA35F8F7E978FC6028C4A813A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021069   (742074) от 28.05.2016
-
-Julio Iglesias - Un Hombre Solo (1987) [WavPack 2.0|192/32|image +.cue|Vinyl-Rip] <Pop, Vocal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742074.jpg" />
-</div>
-
-
-###  Подробнее
-
-sideA
-A1 Lo Mejor De Tu Vida
-A2 Todo El Amor Que Te Hace Falta
-A3 Intentando Otra Vez Enamorarte(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5051C2F1C5982BD435A5ECB57193AA7862E1746
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1796372   (18318) от 14.05.2025
+
+KISS - Compilation (2025) [MP3|320 Kbps] <Rock, Glam>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18318.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. My Way [04:00]
+002. Psycho Circus [05:34]
+003. Crazy Crazy Nights [03:48]
+004. Shout It Out Loud [03:17](   Читать дальше...   )Жанр: Rock, GlamПродолжительность: 07:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49E6AB54912649149D8A5AAA0286502A21FCE1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798758   (17281) от 23.05.2025
 
 VA - Сказочный  том (2003-2024) [MP3|320 Kbps] <Folk rock, Post punk>
@@ -716,35 +745,6 @@ David Lee Roth - Voice Of Rock - Compilation (1985-2023) [MP3|320 Kbps] <Hard ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CE4264FE12103A06A693C2035853CF81C67DCFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438017   (5103) от 31.08.2025
-
-VA - Workout Motivation (2019-2025) Alternative Edition, Mixed by Sergey Sychev [MP3|320 Kbps] <Rock, Alternative, Other> - Обновляемая раздача
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5103.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deuce - Do You Think About Me
-2. We As Human - Double Life - EP Version
-3. Manafest - Kamikaze
-4. Rain City Drive - Ride or Die(   Читать дальше...   )Жанр: Rock, Alternative, Other, CoverПродолжительность: 19:01:17 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3329148FA7971377155BD80F88748653C472C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1738863   (106203) от 25.07.2024
+
+Rodrigo Belloni - Like a Train (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears Like a River (5:55)
+02. I Learned Throughout the Years (4:33)
+03. You Are the Reason (3:55)
+04. Travelin' Band (3:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F780E4521F78FD4915E7FD88BB0ECD078BEAC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738875   (106202) от 25.07.2024
 
 The Chatham Singers - Blues That Kills (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ Utopianisti - Reason In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA5C55A39D84E1650C2012324041E52D7488AED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741193   (105710) от 05.08.2024
-
-Shakatak - The Very Best of Shakatak 1988-2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Island Girl
-02. Low Down
-03. Blue Note
-04. Open Your Eyes(   Читать дальше...   )Жанр: Smooth Jazz, FunkПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A4C5F45EDBD0B396387A500328D796A75AEF51
 ```
 
 https://mybot314.ru/tekegram_catalog/

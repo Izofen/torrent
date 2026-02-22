@@ -1,3 +1,96 @@
+###  Публикация: 544292   (491142) от 07.09.2012
+
+VA - Jazz and Beatles Part Two (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01..  Various Artists -  Intro  (0:15)
+02..  Astrid Bergman -  Sgt.Pepper's Lonely Hearts Club Band   (2:03)
+03..  Deborah Dixon & Les Crossaders -  She Loves You  (2:14)
+04..  Stella Starlight Trio feat. Lizette -  Can't Buy Me Love  (2:44)
+05..  The Bryan J. White Quartet -  Penny Lane  (3:37)
+06..  Celso Mendes feat. Lua -  Revolution  (4:31)
+07..  48th St. Collective -  I Feel Fine  (2:37)
+08..  Mandy Jones -  Paperback Writer  (2:03)
+09..  Scubba feat. Sarah Menescal -  Ticket To Ride  (4:16)
+10..  Jazzystics feat. Deborah Dixon -  Get Back  (2:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318897   (490987) от 08.08.2019
+
+Chuck Hedges & The Johnny Varro Trio - Skylark (1983) 1995, Delmark Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You're Smiling [4:37]
+02. Here's That Rainy Day [4:04]
+03. Autumn Leaves [4:20]
+04. 'Round Midnight [3:38](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CA3E84B65FD8B9DAC90A24C37971EA8C79B5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565770   (490445) от 25.07.2022
+
+The Uptown String Quartet - Max Roach Presents The Uptown String Quartet (1989) Philips [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Extensions [3:36]
+02. Let Us Break Bread Together [3:08]
+03. Jelly Roll Rag [3:17]
+04. Tricotism [3:34](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03B942084BB16CA195A1327E6C1F2601E088F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565773   (490427) от 25.07.2022
 
 Supersonic Blues Machine - Voodoo Nation (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -654,93 +747,6 @@ Ruby Braff & Dick Hyman - Music from My Fair Lady (1989) Concord Jazz [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B7638B1D213BDE9410FAB9A8267F44C35A40799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404915   (489759) от 27.08.2020
-
-Ruby Braff - Ruby Braff Remembers Louis Armstrong: Being with You (1996) 1997, Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Never Knew (That Roses Grew) [9:34]
-02. Little One [4:23]
-03. Keepin' Out of Mischief Now [12:03]
-04. If I Could Be with You (One Hour Tonight) [4:55](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FC6BC8F21F591610CCE09157E2BF8B46B4D76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055369   (488438) от 22.09.2016
-
-Andy Narell - Light In Your Eyes (1989) Windham Hill Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Light In Your Eyes [07:27]
- 02.The Strayaway Child [07:36]
- 03.A Stitch in Time [04:19]
- 04.La Samba [05:22](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8050EB74D637DDC93C801F3650FA0A13EBCF90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937611   (488374) от 15.09.2015
-
-Earl Coleman featuring Billy Taylor - Love Songs (1967) /2013, Warner/[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. People [03:33]
-02. There's No You [03:59]
-03. A Day In The Life Of A Fool [02:53]
-04. I've Got You Under My Skin [02:57](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD5E7BA04C132AF6A9BA58F2DCC0CF3E1409F31
 ```
 
 https://mybot314.ru/tekegram_catalog/

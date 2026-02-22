@@ -1,3 +1,32 @@
+###  Публикация: 1288221   (697866) от 10.03.2019
+
+VA - German Top 50 Official Dance Charts 08.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris - Giant
+02. Niels Van Gogh - Pulverturm (Tiësto's Big Room Remix)
+03. Hugel - WTF (feat. Amber Van Day)
+04. David Guetta - Better When You're Gone(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60322510B63C9AF5E0A17B94EBE11226D724758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288174   (697504) от 10.03.2019
 
 VA - Pop Lolipop (2019) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Русский отрыв на Русском радио. Версия № 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC03E0BA3DFEA9FBE5C9456F327CAFC7015C1963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133617   (691496) от 14.05.2017
-
-VA - Весенняя 100-ка популярных треков. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691496.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Дорошенко - Мне Хочется Влюбиться 3:37
-002. Xana - Красивыи Мужчина 4:00
-003. Инесса Михно - На Десять Минут 3:59
-004. Смирнов & Комапния - Я Люблю Тебя 3:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1742D793624ACDDE5881268EEED29CB230E88DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

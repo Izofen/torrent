@@ -1,3 +1,32 @@
+###  Публикация: 1624114   (255542) от 04.04.2023
+
+Anne Bisson - Be My Lover (2023) Japan [FLAC|Lossless|tracks] <Vocal Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moondance
+02. Blue Bayou
+03. I Wake Up
+04. Are You Sure You Want Me?(   Читать дальше...   )Жанр: Vocal Jazz, Smooth JazzПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3093DF6191E1DADD0311EC4A7C3E57851C1B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624580   (255449) от 07.04.2023
 
 VA - In a Blue Hour (2006) 2CD, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Hard Bop, Blues>
@@ -718,41 +747,6 @@ Annie Ross - The Best of Annie Ross (2025) Remastered [FLAC 24/44.1|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F27889396690415E8BFBCFF61767B3B7FA610C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497991   (253681) от 17.05.2012
-
-Charles Brown - Charles Brown (1946) (1997) [FLAC|Lossless]<Vocal Jazz, Piano Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. You Are My First Love (3:08)
-02. Race-Track Blues (3:02)
-03. Till The Real Thing Comes Along (3:07)
-04. Rocks In My Bed (2:41)
-05. Travelin' Blues (2:53)
-06. I'll Get Along Somehow (3:13)
-07. What Do You Know About Love? (3:13)
-08. It's The Talk Of The Town (3:16)
-09. Nutmeg (2:55)
-10. Warsaw Concerto (Parts 1 & 2) (5:04)(   Читать дальше...   )Жанр: Vocal Jazz, Piano BluesПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

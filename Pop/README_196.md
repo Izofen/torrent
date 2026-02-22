@@ -1,3 +1,134 @@
+###  Публикация: 546575   (466578) от 18.09.2012
+
+Boney M - Ultimate Long Versions & Rarities 1976-1987 (2009) [FLAC|Lossless]<Pop, Disco, Eurodance.>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exodus (Noah's Ark 2001Maxi Version)
+02. Wild Planet (Maxi Version)
+03. Somewhere In The World (Long Version)
+04. Future World (Long Promo Version)
+05. 10.000 Lightyears (Promo Version)
+06. Kalimba De Luna (US Club Mix)
+07. Young, Free And Single (12' Version)
+08. Daddy Cool (Anniversary Recording '86Special Club Mix)
+09. Mother And Child Reunion (Frank Farian CorporationLong Version)
+10. I'm Alive (Frank Farian CorporationLong Version)(   Читать дальше...   )Жанр: Pop, Disco, Eurodance.Продолжительность: 01:02:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407411   (466560) от 07.09.2020
+
+Grand Tour - On Such A Winter's Day (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Grand Tour  (5:56)
+02. Let's Go Boating  (5:49)
+03. Still I'm Sad  (6:00)
+04. Flight From Versailles  (6:16)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D64518FC308B624EA65236A226CFDADFF9393A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407412   (466552) от 07.09.2020
+
+Beatrice Egli - Mini Schwiiz - mini Heimat (2020) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Du gisch mim Läbe en Sinn (Schweizerdeutsch)
+02. Mini Schwiiz, mini Heimat
+03. Vivila
+04. Terra Australia (Promets-moi de me faire revenir)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369576DE01C2C72E73D4162A2D720A974A569BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547780   (466451) от 18.09.2012
+
+Boney M. - Original Version - Long Version - Rarities (2012) 4xCD Box Set / CD Records / [FLAC|Lossless]<Disco, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Chain Gang (Long Version) (5:41)
+02. Exodus (Maxi Version) (5:47)
+03. Gotta Go Home (Long 12'' Version) (5:07)
+04. Help! Help! (Long Version) (6:06) и т.д.01. Silly Confusion (12'' Version) (4:01)
+02. African Moon (Long Version) (6:43)
+03. I See A Boat On The River (Long 12'' Version) (6:07)
+04. I'm Alive  (Fr. Farian Corp. Long Version) (5:15)
+05. Going Back West (3:12)
+06. Hooray! Hooray! It's A Holi-Holiday (3:39)
+07. Love For Sale (4:15)
+08. Hold On! I'm Comin' (3:38)
+09. Bang Bang Lulu (3:01)
+10. Barbarella Fortuneteller (2:56)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 05:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0872B34A69D3E9F51E05A76C7507536AE1DB9622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568089   (466013) от 06.08.2022
 
 Gilbert O'sullivan - Driven (2022) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Folk Rock>
@@ -643,134 +774,6 @@ Jetty Road - Hearts On Fire (2015) [FLAC|tracks +.cue]<Country, Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11CFA3A2136922435B8A5062FB4E997D13CFFF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940542   (462396) от 27.09.2015
-
-VA - Radio 538 Hitzone 75 (2015) [FLAC|Lossless]<Top 40, Pop, Rock, Dance, R&B, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R. City feat. Adam Levine - Locked Away (3:46)
-02. Adam Lambert - Ghost Town (3:28)
-03. Shaggy feat. Mohombi, Faydee & Costi - I Need Your Love (3:37)
-04. Pharrell Williams - Freedom (2:43)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Electronic, Electronic, Dancepop, Electro, House, R&B, Soul, LatinПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8D2F631AFE38C17C632367427280CDB9A0B89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549201   (462382) от 20.09.2012
-
-VA - Ciao Italia: The ultimate Italian collection (2012) 4CD[MP3|320 кб/с]<Pop, Oldes>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nada - Il re di denari [02:34]
-02. Nico Fidenco - A casa di Irene [03:11]
-03. Nicola Di Bari - La prima cosa bella [03:11]
-04. Patty Pravo - La spada nel cuore [04:30]
-05. Tony Renis - Quando quando quando [02:48]
-06. Luigi Tenco - Ciao amore [03:04]
-07. Riccardo Cocciante - Io canto [04:29]
-08. The Rokes - Eccola di nuovo [03:30]
-09. Bruno Lauzi - Amore caro, amore bello [03:12]
-10. Franco Califano - Tutto il resto e' noia [04:41](   Читать дальше...   )Жанр: Pop, OldesПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74199E0D814C9C59C0C1EC831D0AD2254A3D362E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549251   (462377) от 20.09.2012
-
-VA - Ciao Italia! 2 The ultimate Italian collection (2012) 4CD [MP3|320 кб/с]<Pop, Rock, Disco, Oldes>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paolo Conte - Via con me [02:49]
-02. Giusy Ferrari - Novembre [03:11]
-03. Gigi D’Alessio - Amore mio [04:04]
-04. Lucio Dalla - L' anno che verra [04:25]
-05. Milva - Per cosa [04:21]
-06. Marino Marini - Piccolissima serenata [03:08]
-07. Jimmy Fontana - Pensiamoci ogni sera [03:36]
-08. Bruno Lauzi - Il tuo amore [02:46]
-09. Bobby Solo - Non c' e piu niente da fare [03:00]
-10. Mal - Pensiero d' amore [03:21](   Читать дальше...   )Жанр: Pop, Rock, Disco, OldesФормат: BoxSet 4CD Premium CD - Not For SaleПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AAAD695614F47F5DFC8F6104352E6610AA039A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059654   (461832) от 04.10.2016
-
-Venus Gang - Galactic Soul (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект известного французского музыканта, композитора и продюсера - Jean-Pierre Massiera.01. Cosmic Daddy (5:19)
-02. Space Inferno (3:41)
-03. Take Me Back To My Planet (3:43)
-04. Telstar (3:22)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699AE570D9EFC7F9E9F9BE4AACDA257A0A4BE276
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 994173   (891651) от 07.03.2016
+
+VA - Xela - Boomkat Selected Mixtapes Volume 6 - Listen With Xela (2004) [FLAC|Lossless|tracks + .cue] <IDM, Experimental, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edward Artemiev - Solaris Part I (02:43)
+02. Carbon Framework - Krane (03:39)
+03. Spencer Moore - Driveway To The Cemetery (Night Of The Living Dead OST) (02:01)
+04. Goblin - Jane Mirror Theme (00:52)(   Читать дальше...   )Жанр: IDM, Experimental, AmbientПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBB19E89DD10688F43184B1902DF26118E17A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994258   (891650) от 07.03.2016
 
 Биатлон. Чемпионат Мира 2016. Осло-Хольменколлен (Норвегия). Гонка преследования  12.5 км Мужчины (06.03.2016) HDTVRip [H.264/720p-LQ]
@@ -681,35 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0F3149DE982D3EF1B1FC7D875AFB2B7592FD1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101257   (891504) от 09.02.2017
-
-Биатлон. Зимняя Универсиада 2017. Алматы (Казахстан).  Мужчины. Гонка преследования 12,5 км (03.01.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891504.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 февраля 2017, пятница
-Зимняя Универсиада 2017. Алматы (Казахстан)
-Мужчины. Гонка преследования 12,5 км
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF58D0CEC666BD1C401D6F7A0FEF1E67A5FDB13
 ```
 
 https://mybot314.ru/tekegram_catalog/

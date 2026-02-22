@@ -1,3 +1,32 @@
+###  Публикация: 1028317   (690873) от 22.06.2016
+
+Amy Janelle - Shining True (2010) [FLAC|Lossless|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally Home [00:04:08]
+02. Enchantment [00:03:46]
+03. Spirited Smile [00:04:28]
+04. Foreboding Chimes [00:04:14](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFA5A0D1CA19955953C9AD59DF41788D5C5E04D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 210689   (690827) от 22.06.2010
 
 VA - Record Chill-Out Part 1-6 (2007-2010) [MP3|320 kbps]<Chill-Out>
@@ -734,35 +763,6 @@ Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Ser
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4890C61467294260D8E3AD9664081E18CC158588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133869   (688965) от 15.05.2017
-
-Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where There Is Darkness (03:14)
-02. Arrival of the Blood Ravens (03:58)
-03. Tip of the Spear (01:20)
-04. Cyprus Ultima Third Movement (05:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E20B84EAF725CB0694318F862F6C788D854EFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

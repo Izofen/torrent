@@ -1,3 +1,121 @@
+###  Публикация: 548435   (805683) от 26.10.2021
+
+Michael Jackson - Bad (1987) 2012, 25th Anniversary Deluxe Edition, 3CD [FLAC|Lossless] <Pop, R&B, Funk, Dance, Rock, Dubstep>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный релиз состоит из трёх CD-дисков из нового Коллекционного издания в формате Бокс Сета, состоящего из 3-х СD-дисков (и 1-го DVD, в этой раздаче отсутствует).
+
+Диск 1 - ремастеринговые хиты основного альбома (01. Bad (4:08)
+02. The Way You Make Me Feel (4:59)
+03. Speed Demon (4:05)
+04. Liberian Girl (3:50)(   Читать дальше...   )Жанр: Pop, R&B, Funk, Dance, Rock, DubstepПродолжительность: 03:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E82C0398F650ADDF86FE4472D6378CA51BBD37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009975   (805564) от 23.04.2016
+
+VA - Radio 538 Hitzone 77 (2016) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
+01. Dua Lipa - Be The One  (3:24)
+02. Coldplay -  Hymn For The Weekend  (4:21)
+03. Fifth Harmony feat. Ty Dolla Sign - Work From Home  (3:38)(   Читать дальше...   )Жанр: Top 40, Pop, RockПродолжительность: 02:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD27BB68E39FCFDFCF08699ABE1BFE4DCB98C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119906   (805484) от 29.03.2017
+
+VA - Sports Megamix 2017.1 (2017) 3CD [MP3|320 Kbps] <Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805484.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robin Schulz feat. Akon - Heatwave (Muzzaik Remix) (2:11)
+002. Crew 7 - Last Night A DJ Saved My Life (Club Mix) (1:48)
+003. Marco Tolo feat. Jean Pearl - Would I Lie To You (Baby) (Extended Mix) (1:48)
+004. Propulsive & Robin Embrace - Give Me Tonight (Extended Mix) (1:36)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 03:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1A5FAF10E1DF334E26C016785899DC909F9894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119660   (805365) от 29.03.2017
+
+Baby's Gang - Challenger (2016) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Challenger (05:18)
+02. Jamin (05:58)
+03. Happy Birthday (To My Mammy) (04:57)
+04. Happy Song (Remix) (05:38)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB39570A0F9885EA958661296552C857B40127F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 318570   (805153) от 04.04.2011
 
 Duran Duran - Greatest (1998) [FLAC|Lossless]<Pop, New Wave>
@@ -629,122 +747,6 @@ Michael Jackson - Xscape (2014) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8115C3C8A96798FE09C93453B88953B2239E924B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505997   (801819) от 29.10.2021
-
-Dami Im - My Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pray (00:03:53)
-02 - Scared to Talk To You (00:03:09)
-03 - Lonely Cactus (00:03:11)
-04 - Marching On (00:03:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6664DD5763864228703DCF004DBEB857A4D16E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505889   (801730) от 29.10.2021
-
-Engelbert Humperdinck - In Time (1972) [MP3|320 Kbps] <Pop, Folk, World, & Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801730.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Baby I'm A Want You
-A2 Day After Day
-A3 Too Beautiful To Last
-A4 (They Long To Be) Close To You(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 00:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FE48C1E7B273AF1354E940F292FEFF72D471CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506050   (801568) от 29.10.2021
-
-DATA - Opera Electronica (серия "Другие восьмидесятые") (1981) CD, Album, Remastered, 2017, Angel Air Records [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuckooland
-02. I Want to Know
-03. Fallout
-04. Fever of Love(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30468249A66247934D9D10F15B0C3A68D1A12A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505989   (801519) от 29.10.2021
-
-Олег Газманов - Юбилейный альбом (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801519.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А я девушек люблю
-2. Дождись
-3. Единственная
-4. Есаул(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98202D066250D24ECD79BE8891FEF266628F7BFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

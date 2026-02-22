@@ -1,3 +1,32 @@
+###  Публикация: 1033497   (637943) от 11.07.2016
+
+VA - Молодежный Сборник Хитов 50x50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637943.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jasmine Thompson - Oasis
+002. Ilona - Я Super
+003. Rasmus Skott - Acted Show
+004. Нетсмысла - Мегаполис(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C391892A4CA6CD8321FAA09E9FA018389428954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519190   (637499) от 06.07.2012
 
 VA - Молодежный летний муз-прорыв (2012) [MP3|256 кб/с]<Pop>
@@ -758,41 +787,6 @@ VA - Muz-сливки хит-парадов (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61036E06032782262F8BD2A0D8A5396B825BDD08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520662   (631591) от 09.07.2012
-
-VA - Танцевальный клубный заряд (2012) [MP3|256-320 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631591.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tiesto - What Can We Do (A Deeper Love) (6:26)
-2. Michael Mind Project - Rio de Janeiro (3:15)
-3. Dj Jim & Dj Tarantino - Arabian Theme (electro mix) (5:38)
-4. UCast - Barracuda (original mix) (7:42)
-5. Nova Scotia feat. Jenny Johnston - Kaliedoscope Skies (Club Edit) (3:58)
-6. Настя Любимова - I See You (DJ Solovey Remix) (Radio Edit) (3:54)
-7. Алишер - Море (3:58)
-8. Dancefloor Devils - Moments (Radio Edit) (3:02)
-9. Sebastian Ingrosso & Alesso - Calling (Original Instrumental Mix) (5:38)
-10. Dash Berlin feat. Emma Hewitt - Disarm Yourself (Shibbybangs vs. R-Boy Bangleg Mix) (4:51)Жанр: Pop,Dance, ClubПродолжительность: 07:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA16022E62A234282077954837FD9CAFAA06104
 ```
 
 https://mybot314.ru/tekegram_catalog/

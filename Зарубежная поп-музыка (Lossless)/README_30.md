@@ -1,3 +1,32 @@
+###  Публикация: 1207047   (781322) от 16.02.2018
+
+Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 L'amas d'chair
+2 Aie
+3 Soirees parisiennes
+4 Toi qui m'ecoutes(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206792   (781313) от 16.02.2018
 
 Nina Zilli - Modern Art (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ Nicole - Mit Dir Vielleicht (1994) [FLAC|Lossless|image + .cue] <Pop, Schlager>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4CCC133BB72678F81F64541670428087FEB05F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014965   (775811) от 09.05.2016
-
-Gino Vannelli - Big Dreamers Never Sleep (1987) [APE|Lossless|image + .cue] <Pop, Synth-Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Name Of Money
-02. Time Out
-03. Wild Horses
-04. Young Lover(   Читать дальше...   )Жанр: Pop, Synth-Pop, ElectronicПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A835180FA01687E1269692EEA6108BA09E64EF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

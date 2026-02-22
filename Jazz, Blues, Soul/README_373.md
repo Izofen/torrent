@@ -1,3 +1,61 @@
+###  Публикация: 1579812   (333502) от 29.09.2022
+
+Mayra Aveliz - Get In (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me Time (3:33)
+02. I Need Your Love so Bad (4:00)
+03. What About Love (3:12)
+04. My Dear (2:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CA946DECF4AD736FED83A41B71A6F5E7F17434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579817   (333500) от 29.09.2022
+
+The Jujubes - Raging Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wang Dang Doodle (4:03)
+02. Crocodile (3:38)
+03. You Ain't so Bad (3:08)
+04. True Religion (4:37)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540E077173E8813B3A6640A4793ADE512FC301BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579775   (333499) от 29.09.2022
 
 Jesse J-Dog Boartfield - Jri Revisited (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -710,67 +768,6 @@ Melody Gardot - My One And Only Thrill (2009) [MP3|160 kbps]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B7649B683EBBAC9033E9683085275D424F1BBB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580413   (330813) от 01.10.2022
-
-VA - Paul Jones: The Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: BluesПродолжительность: 01:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764594C31012FCC155E3AFFA4F4DE1BC33ADB86B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259440   (330779) от 20.11.2010
-
-Troy Turner - Whole Lotta Blues (2010) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whole Lotta Blues 03:17
-02. Come To Your Senses 04:14
-03. Out On The Streets 03:09
-04. Not Ready 03:35
-05. Foolin' Yourself 03:25
-06. Fired On A Thursday 03:10
-07. Goin' Fishin' 03:10
-08. Never Too Big For The Blues 03:38
-09. Going Down 05:18
-10. Don't Push Your Luck 05:05(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

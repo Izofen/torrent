@@ -1,3 +1,119 @@
+###  Публикация: 922088   (571691) от 27.07.2015
+
+Sophie Marceau - Certitude (1985) [MP3|192 кб/с]<French Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bérézina
+02. Formose Tripper
+03. Vive la Mariée Señor
+04. L’hirondelle Dans le Sel(   Читать дальше...   )Жанр: French Pop, ChansonПродолжительность: 00:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD02AC5CB18DFA40042EE003287CF0A9BA2CDDA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922248   (571591) от 27.07.2015
+
+Город 312 - Star-Hit - Звёздная коллекция (2010) [FLAC|image + .cue]<Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 213 дорог [2:50]
+02. Останусь [3:41]
+03. Вне зоны доступа [3:32]
+04. Весна [2:58](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B170FB4CAEE5ADD139BD28CCFC0DC250A9FE49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234498   (571024) от 05.07.2018
+
+VA - 40 Tubes Ete (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571024.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Aya Nakamura - Djadja
+02. Maitre Gims, Vianney, Maitre Gims en duo avec Vianney - La meme
+03. El Profesor, Hugel - Bella ciao (HUGEL Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9CE0B6A9EF1F7D0E93E376335D2E3504C037EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234435   (571019) от 05.07.2018
+
+Planet Earth - Planet Earth (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocket Man (5:04)
+02. Space Boogie (4:33)
+03. Across The Universe (4:06)
+04. Telstar (4:24)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EC91631D2ADB91E383887230E2D8B5A5028A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234500   (571017) от 05.07.2018
 
 Hipnosis - Hipnosis (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Spacesynth>
@@ -659,119 +775,6 @@ Tommy Seebach - Disco Tango (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC49AFE2433D781565F33535AC374140AAFAEED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555435   (568732) от 04.06.2022
-
-Geoff Love's Big Disco Sound - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джефф Лав - музыкальный директор, аранжировщик, композитор и одна из самых популярных музыкальных личностей Великобритании с 1957 года. В 70х, на волне востребованного диско, создал оркестровую группу Geoff Love's Big Disco Sound.Список альбомов:
-1976 - Dance Dance Dance
-1977 - You Should Be Dancing - Volume 2
-1978 - Big Disco Movie Hits(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 03:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C6DD42965763812E59116EC764802123A78C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303776   (568631) от 23.05.2019
-
-Sting - My Songs (2019) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brand New DayЖанр: PopПродолжительность: 01:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C3021F76B2DFB3E3B3B80CF643015DA8F5935E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152161   (568555) от 21.07.2017
-
-Lana Del Rey - Lust For Life (2017) [FLAC|Lossless|Web-DL|tracks] <Indie Pop, Baroque Pop, Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Love (4:33)
-02 - Lust For Life (4:24)
-03 - 13 Beaches (4:56)
-04 - Cherry (3:01)(   Читать дальше...   )Производство: Interscope Records, Polydor – B0026668-02Жанр: Indie Pop, Baroque Pop, Dream PopПродолжительность: 01:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92AB40B66B3BB0F53A6CD28BDB62AFA38BF0A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044087   (568534) от 18.08.2016
-
-Евгений Осин - Разлука (2016) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любимая
-02. Белая метель
-03. На тропинке
-04. Рыбацкая(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BA0160926DF9A054C2E3B42093CF319A004F55
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,96 @@
+###  Публикация: 1163888   (446355) от 07.09.2017
+
+Joachim Kuhn - Springfever (1976) 2008, Wounded Bird [APE|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Amber [10:11]
+02. Sunshine [03:46]
+03. Two Whips [04:42]
+04. Spring Fever [03:51](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4FF55467B5F28AEE76B612AFB9C0681DCE70F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552399   (446234) от 27.09.2012
+
+Mel Torme - The Mel Torme Collection 1944-1985 (1996) BoxSet 4CD[FLAC|Lossless]<Jazz, Bop, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_446234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comin’ Home Baby [02:44]
+02. Right Now [02:14]
+03. Cast Your Fate To The Winds [02:20]
+04. Hey, Look Me Over [03:08]
+05. Forty Second Street [02:23]
+06. Sunday In New York [02:32]
+07. You’d Better Love Me [02:23]
+08. I’ve Got You Under My Skin [02:48]
+09. The Folks That Live On The Hill [03:38]
+10. Haven’t We Met [02:27](   Читать дальше...   )Жанр: Jazz, Bop, VocalПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163861   (446213) от 07.09.2017
+
+Charlie Parker - Chasin' The Bird (1940-e - 1950-e) 4CD, 2005, Proper Records [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446213.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Bird Takes Off:
+01. Cherokee [02:51]
+02. I'm Forever Blowing Bubbles [04:00]
+03. Sweet Georgia Brown [07:44](   Читать дальше...   )Жанр: BopПродолжительность: 05:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31373C4E2BD441D2D304873892F20363647B27D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061530   (446146) от 11.10.2016
 
 Norah Jones - Little Broken Hearts [SHM-CD] [Limited Pressing] [Japan Bonus Track] (2016) [FLAC|Lossless|image + .cue] <Vokal Jazz>
@@ -688,93 +781,6 @@ Luiz Bonfa - Le roi de la Bossa Nova (1963) 2005 [WavPack|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FFF6457A67F2DFE22DFAF190A66ED9215254593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216112   (444426) от 05.10.2015
-
-Melody Gardot - 4 альбома (2005-2009) [FLAC|track+ .cue]<Jazz, Vocal Jazz, Female Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_444426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская джазовая певица и инструменталистка Мелоди Гардо олицетворяет собой не только безграничный музыкальный талант, но и удивительную стойкость, силу воли и мужество, которые помогли ей победить тяжелые обстоятельства и стать той, кем она является сейчас. Мелоди родилась в Нью-Джерси в 1985 году. Несмотря на страстное увлечение музыкой и регулярные занятия (   Читать дальше...   )Список альбомов:
-2005 - Some Lessons
-2007 - Worrisome Heart
-2009 - My One and Only Thrill/Live In Paris (EP)Жанр: Jazz, Vocal Jazz, Female VocalПродолжительность: 02:17:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164200   (444275) от 08.09.2017
-
-Rick Derringer - Tend The Fire (1996) [FLAC|Lossless|tracks + .cue] <Blues Rock, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'm Set On You   (05:36) 
-02.  Wound Up Tight   (04:45) 
-03.  Who Do You Love?   (05:32) 
-04.  Big Time Love   (05:10) (   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A827F0FB3C7723AD65E8488227C629B94EC2384E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061900   (444078) от 12.10.2016
-
-VA - Vintage Cafe: Cool Jazz, Chill and Lounge (2016) [MP3|320 Kbps] <Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - Happy (3:28)
-02. Ginnie - Love Yourself (5:53)
-03. Henrietta Adewole - Ain't Nobody (Chill Mix) (4:42)
-04. Meg Birch - P.Y.T. (Pretty Young Thing) (3:29)(   Читать дальше...   )Производство: This is AcousticЖанр: Jazz, LoungeПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BADE60303AB7A6F22965E9CAC04EC9E05D9ED9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 802625   (626611) от 06.07.2014
+
+Diana Krall - The Very Best Of Diana Krall (2007), Limited Canadian Edition [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'S Wonderful 4:26
+02. Peel Me A Grape 5:49
+03. Pick Yourself Up 3:01
+04. Frim Fram Sauce 5:00(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059C094309B73986BA7807BF173001295C6E7834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229488   (626571) от 06.06.2018
 
 Chet Baker - For Lovers (1952 - 1959) 3CD, 2018, Jazz Images [FLAC|Lossless|image + .cue] <Cool, West Coast Jazz>
@@ -740,35 +769,6 @@ Christian McBride & Inside Straight - Live At The Village Vanguard (2014) 2021, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF74574346318CD678A6DCCB5A8FE06B2D9EF859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145092   (623795) от 24.06.2017
-
-Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Mission
-02. Soulsalicious
-03. Senorita Bonita
-04. Cancun (A Tribute To Henry Mancini)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Bossa NovaПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F02443C9D1A3DC9E1A9855EAC0E08CCCD0C3F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

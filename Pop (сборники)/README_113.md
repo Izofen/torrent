@@ -1,3 +1,32 @@
+###  Публикация: 1599266   (159323) от 25.12.2022
+
+Bishop Briggs - Compilation (2022) [MP3|320 Kbps] <Pop, Dark Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be Your Love (West Coast Massive Remix)
+02. Tempt My Trouble
+03. Dark Side
+04. River(   Читать дальше...   )Жанр: Pop, Dark PopПродолжительность: 01:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311D732B0624D3C174CC6270563DCBADECAC6CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676070   (159239) от 11.11.2023
 
 VA - Female pop assorted compilation part  40 (2023) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - A Wave Of Positivity: Pop Dance Project (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C354E1E07B37CC30D6E348D951E546F8309C715A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271780   (148636) от 24.12.2018
-
-VA - Billboard Year End Hot 100 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148636.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drake - God's Plan
-002. Ed Sheeran - Perfect
-003. Bebe Rexha;Florida Georgia Line - Meant to Be (feat. Florida Georgia Line)
-004. Camila Cabello;Young Thug - Havana(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4354B865D4C9B58795E8D41C9AE9A71E1AF7CB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

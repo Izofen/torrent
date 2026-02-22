@@ -1,3 +1,90 @@
+###  Публикация: 1571738   (429847) от 23.08.2022
+
+The Strongman Blues Remedy - The Strongman Blues Remedy Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Luck (3:02)
+02. Swansong (feat. Steve Marriner)(3:20)
+03. Fine Young Man (feat. Dawn Tyler Watson) (3:45)
+04. I Don't Miss You (feat. Harrison Kennedy) (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C2CC08E603AEDA984B81550B7D70FC0D6A0CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571715   (429846) от 23.08.2022
+
+Jim Dan Dee - Real Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Things That I Used To Do (3:11)
+02. Weep For Me (3:03)
+03. Real Blues (3:44)
+04. Two Timing Woman (2:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A896F2FB3055033ED1F0C5E1A3C7C8293D43D6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571707   (429844) от 23.08.2022
+
+Big Johnny Blue - Big Johnny Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Amerikah (4:47)
+02. I'm Hurtin (6:05)
+03. Bee Bop Rocket (3:45)
+04. PB & J (4:31)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82947F780F9CC9C26C61F647756867561D39AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571702   (429843) от 23.08.2022
 
 Woody Shaw - The Complete CBS Studio Recordings Of Woody Shaw (1977, 1979, 1981) 3CD, 1992, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop, Big Band>
@@ -669,93 +756,6 @@ Arni Egilsson, Ray Brown, Pete Jolly - Basses Loaded (1996) Cambria [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7074C53580F8AFEA699F40FFB57EAA4DEBEEC27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411398   (427279) от 25.09.2020
-
-Diana Krall - This Dream Of You (2020) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Beautiful
-02. That’s All / Azure-Te
-03. Autumn In New York
-04. Almost Like Being In Love(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8487BC9365DD97AC59D8047F7E692F50C3DD9431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324261   (427268) от 08.09.2019
-
-VA - 100 Hits The Blues (2019) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аналогичный сборник был выпущен в 2016 году с подзаголовком "100 Legendary Blues Classics", но как-то для широкой аудитории он прошел довольно не замеченным. Наверное поэтому Demon Music Group на этот раз решила совместить и выпустить дуплетом еще раз 100 Hits The Blues и почти одновременно 100 Hits Jazz (немного позже и этот рип появится на трекере). Да, (   Читать дальше...   )CD1:
-01. Roosevelt Sykes - Hangover  (3:19)
-02. Elmore James - Dust My Blues  (3:11)
-03. Little Willie John - Need Your Love So Bad  (2:17)(   Читать дальше...   )Релиз состоялся: 05.05.2019Жанр: BluesПродолжительность: 04:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A103C3D73CE2AE998E5A89673F839ACB6C68ECCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166359   (426920) от 16.09.2017
-
-Sonny Criss - Plays Cole Porter (1956) 2006, Toshiba [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love You [04:14]
-02. Anything Goes [03:14]
-03. Easy To Love [03:17]
-04. It's Alright With Me [03:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEEC4863AB38A3D40E959345679058BD0482E14
 ```
 
 https://mybot314.ru/tekegram_catalog/

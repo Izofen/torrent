@@ -1,3 +1,32 @@
+###  Публикация: 1005150   (834369) от 08.04.2016
+
+Sabrina Carpenter - Eyes Wide Open (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes Wide Open (3:13)
+02. Can't Blame a Girl for Trying (2:49)
+03. The Middle of Starting Over (3:33)
+04. We'll Be The Stars (3:07)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A6CFA40982484828D3DEDBFF9C4F1B01DB63D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005092   (834161) от 08.04.2016
 
 M83 - Junk (2016) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Electronic>
@@ -712,35 +741,6 @@ Wild Belle - Dreamland (2016) [FLAC|Lossless|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8922D845772BEDBB99CFFFAC377AD2F7D9F3FE12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503362   (821344) от 18.10.2021
-
-VA - Hit Connection 2011.3 (2011) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elisa Tovati & Tom Dice - Il Nous Faut (3:08)
-02. MIKA - Elle Me Dit (3:41)
-03. Maroon 5 & Christina Aguilera - Moves Like Jagger (3:24)
-04. Rihanna - Man Down (4:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7FC47DFEB532C3FC296181331B483EF6D24A31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1102231   (891288) от 09.02.2017
+
+Soen - Lykaia (2017) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sectarian (5:55)
+02. Orison (7:08)
+03. Lucidity (6:37)
+04. Opal (6:46)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B15D9D9ECE2ADD8B8ADBBAC4897396E2EAEBA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102542   (891167) от 09.02.2017
 
 Witherfall - Nocturnes And Requiems (2017) [MP3|320 Kbps] <Progressive Power Metal>
@@ -741,35 +770,6 @@ Testament - Titans Of Creation (2020) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D55A970C60E61DB2F9F7A9C95F218D057FAF865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371549   (886622) от 02.04.2020
-
-Nightwish - Human. :II: Nature. (2020) 2CD [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vista
-02. The Blue
-03. The Green
-04. Moors(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C8C09D42D1F316E24CCEAD3E1AC9ACDF04B370
 ```
 
 https://mybot314.ru/tekegram_catalog/

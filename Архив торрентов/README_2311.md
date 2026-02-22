@@ -1,3 +1,32 @@
+###  Публикация: 1026544   (704160) от 15.06.2016
+
+VA - Platipus: Archive 10 (2016) [MP3|320 кб/с] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art Of Trance - Swarm (08:01)
+02. Moogwai - Nord Song (Detuned mix) (07:43)
+03. Narcotik - Twelve Miles (original Remastered mix) (09:31)
+04. Union Jack - Triclops (Glen Morrison remix) (06:52)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE594509C38676510BF373110E8BFF2FBAB90BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026529   (704155) от 15.06.2016
 
 Registry Life 3.29 DC 15.06.16 [Ru/En]
@@ -679,32 +708,6 @@ Lubuntu*Pack 14.04 (апрель 2018) [i386 + amd64] (2xDVD)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70A9EE20CD29E91F590CCDF375AC641BD862C02C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026520   (703965) от 15.06.2016
-
-Download Master 6.9.1.1517 RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Download Master эффективно решает 3 главных проблемы, возникающих при закачке файлов из Интернет: скорость закачки, продолжение прерванных закачек и управление закачанными файлами. Основными чертами, выделяющими Download Master среди других программ, являются высочайшая эффективность работы и удобный пользовательский интерфейс. Download Master позволяет значительно (   Читать дальше...   )Язык интерфейса: Русский, Украинский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F09B0F9AC340D0490D1533FD4626E9506955D18
 ```
 
 https://mybot314.ru/tekegram_catalog/

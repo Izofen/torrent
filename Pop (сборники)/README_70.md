@@ -1,3 +1,32 @@
+###  Публикация: 1046183   (552911) от 26.08.2016
+
+VA - Хиты летние за рулем. Версия 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552911.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olivia Holt - Phoenix
+002. Анита Цой - Без Вещей
+003. Е2 Знакомы - Мама
+004. Pitbull Feat. Becky G - Superstar(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66648C2E80C922F3F598D66037F0C07A093F2785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046187   (552904) от 26.08.2016
 
 VA - TOP летние хиты на Русском радио. Сборник 9 (2016) [MP3|256 Kbps] <Pop>
@@ -719,35 +748,6 @@ VA - German Top 100 Single Charts 27.07.2018 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC690AE6AACF6F0E52B605DAE76B0C142E50D1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238353   (546969) от 29.07.2018
-
-VA - Shazam: Хит-парад Russia Top 100 Июль (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546969.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clean Bandit feat. Demi Lovato - Solo 3:41
-002. The Prince Karma - Later Bitches 4:08
-003. Dynoro & Gigi D'Agostino - In My Mind 3:05
-004. CYGO - Panda E 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86271A260B8E94FA0FE6ED750CA7FEA68DB9878D
 ```
 
 https://mybot314.ru/tekegram_catalog/

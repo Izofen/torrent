@@ -1,3 +1,102 @@
+###  Публикация: 566857   (398128) от 28.10.2012
+
+VA - Best of: Ibiza Beach House 2007-2012 (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz City - Welcome 2 House Music (On and on Mix)
+02. Housework - Wanted Music (In the Air Mix)
+03. Aircraft 72 - I Can Fly (Beachflow Cut)
+04. Pascal Dubois - Beachdancer (Spheric Dream Cut)
+05. Calido - El calor (Chillhouse Mix)
+06. Phil Kinley - Tropicana Beach Club (Latin Mix)
+07. Housework - Can't Stop (On da Beach Cut)
+08. Clublife - Salsa del mare (Summer Vibrations Cut)
+09. Floating Clouds - No Silence (Francesco's Chillgroove Mix)
+10. Phil Kinley - On the Sunny Side (Factor 30 Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80802DC839B5E81B8A6F7002305B254E3F83CAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170836   (397770) от 03.10.2017
+
+DJ VoJo - Aloha (2017) [MP3|320 Kbps] <Tropical House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight
+02. Tropical Rain
+03. Adventure Island
+04. Lost in Sea(   Читать дальше...   )Жанр: Tropical HouseПродолжительность: 01:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7988E463FAEA99D5AA8F5A390505A99324ECCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567679   (396148) от 30.10.2012
+
+VA - Halloween Nights (2012) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396148.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Calippo - Halloween - Original Mix (6:38)
+2. Dinka - Here I Am - Original Mix (6:36)
+3. Ad Brown - Good Feeling - Chris Reece Remix (6:06)
+4. George F. Zimmer - Progressive Nights - Original Mix (6:41)
+5. Johnson & Haske vs. Jerome Isma-Ae feat. Mo Morsy - Too Bad to Forgive - Original Mix (8:07)
+6. Leventina - Right or Wrong - Original Mix (6:22)
+7. Dave202 - Vintage - Original Mix (6:37)
+8. Helvetic Nerds - Herodes - Original Mix (6:06)
+9. Jidax - Thunder - Original Mix (5:53)
+10. Hailing Jordan - Rat - Original Mix (5:58)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C418E338B44248E0092814744884AAF041B313BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568174   (395085) от 31.10.2012
 
 VA - New York Disco House Grooves Vol.1: Manhattan Night Club Selection (2012) [MP3|320 кб/с]<Deep House>
@@ -670,92 +769,6 @@ VA - Amsterdam Coffeeshop Chillout Vol.13 (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42A4410D0629E4AB9D950F744E714DEC595092F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069036   (376443) от 03.11.2016
-
-VA - Workout Traxx - Best of 2016 Vol 1 (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Popovic - Rise Up 05:08
-02. David K (Ger) - Open Eyes 06:49
-03. Samantha Mayer - Check That Sound (Extended Mix) 05:10
-04. Delbert Schneider - My Way Out 04:11(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 04:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B451F38481161D2767FCE6971DA017667C650E0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573609   (376417) от 12.11.2012
-
-DeepSide DeeJays - 3 Релиза (2009-2012) [MP3|320 кб/с]<House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look Into My Eyes (Radio Edit) (4:07)
-02. Look Into My Eyes (Extended Mix) (5:42)
-03. Look Into My Eyes (Club Edit) (5:29)Жанр: House, DanceПродолжительность: 00:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46FBDB1C971132BB1FBD060A9B44CF27628C38B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068995   (376250) от 03.11.2016
-
-Roald Velden - Nowhere (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roald Velden – Everything Fades Away (3:16)
-02. Roald Velden – Thru The Rain (7:45)
-03. Roald Velden & Lessov – Purple Sky (7:40)
-04. Roald Velden – Nowhere (7:50)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3A4A5C5661F982179B2DA61739340A1CAA1440
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1665532   (181570) от 01.10.2023
+
+Psychework - Spark of Hope (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shape of a Ghost [00:05:36]
+02. River Runs Red [00:04:40]
+03. Kiova [00:03:48]
+04. Interstellar [00:03:38](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDBB48E176FCC3994EE047554737A7A39F6873D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665578   (181566) от 01.10.2023
+
+The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agora [00:03:35]
+02. Otus [00:09:38]
+03. 2054 [00:07:23]
+04. Urian [00:07:28](   Читать дальше...   )Жанр: Mathcore, Progressive MetalПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC273EB87600ACAF799EA0990CD35F1EF0A8AEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665685   (181557) от 01.10.2023
+
+Fat Freddy's Drop & Kings - Blackbird Returns (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dub, Reggae, Jazzy Roots, Neo Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – BLACKBIRD (REMIX)
+02 – Russia (10th Anniversary Remix)
+03 – Clean The House (Remix)
+04 – Silver & Gold (Remix)(   Читать дальше...   )Жанр: Dub, Reggae, Jazzy Roots, Neo SoulПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDAF022DB4A027A504AD33A8ECE9A1A068B0BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665691   (181553) от 01.10.2023
+
+Bullant - Late Life Circ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like It's Not Fun [00:05:32]
+02. Tiny Bad Boy [00:05:26]
+03. Perv [00:05:52]
+04. Perfect Shelving Technique [00:08:06](   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C311F82582F5A38D8E4C7D93E6619BD3032F0B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665541   (181528) от 01.10.2023
+
+Blackbriar - A Dark Euphony (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Unwelcome Guest (4:10)
+02. Far Distant Land (4:38)
+03. Spirit of Forgetfulness (3:50)
+04. Bloody Footprints in the Snow (5:11)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B447CB66805D376947ACD5679D9C93B0909FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665660   (181497) от 01.10.2023
+
+Stam1na - X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Thrash, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kombustio [00:03:48]
+02. Muistipalatsi [00:04:57]
+03. Vereen piirretty viiva [00:03:52]
+04. Utopia [00:04:29](   Читать дальше...   )Жанр: Progressive, Thrash, Heavy MetalПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B096B1E7851E67B6CF05F9D7C848CC7AEF4A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665539   (181468) от 01.10.2023
 
 KK's Priest - The Sinner Rides Again (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -569,180 +743,6 @@ Kylie Minogue - Tension (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B7CF7824EC10993AE0235718685190B66E1BDE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666080   (180116) от 03.10.2023
-
-Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Padam Padam (2:46)
-02. Hold On To Now (3:58)
-03. Things We Do For Love (3:10)
-04. Tension (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050ECBFE7C7D63B3138ABA625EB15FBF32DBA005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666172   (180013) от 03.10.2023
-
-Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, declipped] [FLAC|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia (3:04)
-02. Don't Start Now (3:03)
-03. Cool (3:29)
-04. Physical (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36D88635320CD5AD68676CE4356BFD73B4B6FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666440   (179695) от 04.10.2023
-
-October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179695.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 At The Edge Of An Empty Horizon
-A2 Bloodlines
-A3 The Verge Of Oblivion
-B1 Snakes Of The Old World(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D765D4C105AB58FD8FF557E03D6CE5AD277A4F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666478   (179676) от 04.10.2023
-
-Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, Power Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179676.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Jerusalem D.C.
-A2 In Eternum
-A3 El Amor Brujo
-B1 Tu Funeral(   Читать дальше...   )Жанр: Celtic, Folk, Power Metal, Hard RockПродолжительность: 01:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A6F5D2E60D625DE094F7B18F2E46DB02F28095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593733   (179548) от 28.11.2022
-
-VA - Superior Audiophile (2022) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Pop, Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elisabeth Karsten - Pardon, Goddess of the Night 6:32
-02. Oslo Gospel Choir - Å Hvor Salig Å Få Vandre 4:40
-03. Kari Brenmes - Coastal Ship 4:26
-04. Ketil Bjørnstad - Molo 5:30(   Читать дальше...   )Жанр: Pop, Jazz, Vocal JazzПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8FD09FC4F479C286B468B51C3B77CDE17F8EC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666697   (179068) от 05.10.2023
-
-Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179068.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Chain Gang
-A2 Money Doesn't Count
-A3 Danger Comeback
-A4 Icecold(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FA6A4EB2F2B5EED9F5AE6DAC3534E56D07C001
 ```
 
 https://mybot314.ru/tekegram_catalog/

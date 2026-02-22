@@ -1,3 +1,32 @@
+###  Публикация: 1524779   (130378) от 18.01.2022
+
+Molly Nilsson - Extreme (2022) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absolute Power (03:49)
+ 02. Earth Girls (04:11)
+ 03. Fearless Like A Child (04:03)
+ 04. Kids Today (04:05)(   Читать дальше...   )Жанр: Dream PopПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938E3E603B696ACF6E34F9526BE29425A0211AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525129   (130036) от 19.01.2022
 
 Beach House - Once Twice Melody (2022) 3[EP] [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Rock, Indie Pop>
@@ -717,35 +746,6 @@ Hurts - Happiness (2010) 1st EU Press [APE|Lossless|image + .cue] <SynthPop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10F2FEECB4DA9FD1C824EB85DEF52BA0D34017D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690347   (121888) от 20.01.2024
-
-A-HA - Scoundrel Days (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scoundrel Days (4:02)
-02. The Swing Of Things (4:14)
-03. I’ve Been Losing You (4:23)
-04. October (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C734DC6405306DAB7A9405058B2CCEA8E3600A4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

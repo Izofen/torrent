@@ -1,3 +1,32 @@
+###  Публикация: 1340474   (262906) от 26.11.2019
+
+Imaginary Sound Project - Synthesizer Dreams - World Hits On Synthesizer (1991) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Day In Paradise - Phil Collins (3:52)
+02. Lady In Black - Ken Hensley (3:29)
+03. Bright Eyes - Mike Batt (4:04)
+04. To Love Somebody - B, M & R Gibb (4:38)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499F3B6FE375FAE1E4F5A84D5E6A4AA67925CF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340296   (262895) от 26.11.2019
 
 Amanaska - Panorama (2003) [MP3|320 Kbps] <World Music, Ethno, Worldbeat>
@@ -787,41 +816,6 @@ Nicole feat: Brulé - Passion Spirit (2001) [MP3|192 кб/с]<Native American, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1378A7B602606DB1ED3FEA9D8F9FBD079302D1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502101   (259308) от 29.05.2012
-
-VA - Earthtone Collection Vol.1-3 (1998-2000) [MP3|320 кб/с]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(4:20) 01. Nicholas Gunn - Flight Of The Condor
-(4:08) 02. Ah-Kin - New Fire
-(6:44) 03. Ayman - Night Traveller
-(4:25) 04. Ginkgo Garden - One And Twain
-(4:23) 05. Mars Lasar - Pioneers
-(4:38) 06. Ginkgo Garden - Rhythm Of The Living Thing
-(4:05) 07. Nicholas Gunn - Havasu Falls
-(6:12) 08. F.R.E.U.D. - The Miracle Of Moona
-(4:50) 09. Primal Instinct - Morning Drum
-(6:24) 10. Stonecoat - Answer Mother Earth(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2055BF33637DBD3DB222EE5B2CCF665181D51004
 ```
 
 https://mybot314.ru/tekegram_catalog/

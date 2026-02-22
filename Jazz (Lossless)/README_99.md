@@ -1,3 +1,32 @@
+###  Публикация: 1206516   (782161) от 14.02.2018
+
+Dinah Washington - Ballads (1962, 1963) 2002, Roulette Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Man [03:01]
+02. I Wanna Be Around [03:41]
+03. I Didn't Know About You [03:07]
+04. Funny Thing [02:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2EB95DE7413E6991806622BCEE1FFC2335B562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206537   (782160) от 14.02.2018
 
 Ron Carter And The WDR Big Band - My Personal Songbook (2015) In+Out Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Big Band>
@@ -716,34 +745,6 @@ Christine Jensen Jazz Orchestra - Habitat (2013) Justin Time Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9DF4DFFD20F3F1B38FF567B4127020D447A7B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208011   (780126) от 21.02.2018
-
-Pharoah Sanders - Izipho Zam: My Gifts (1969) 2006, Bomba Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prince of Peace [08:52]
-02. Balance [12:40]
-03. Izipho Zam [28:47]Жанр: Avant-Garde JazzПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7619A2C45ABA5A4D448271086710FE96F4E7B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

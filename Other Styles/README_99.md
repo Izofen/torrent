@@ -1,3 +1,32 @@
+###  Публикация: 1296191   (610126) от 18.04.2019
+
+Faun - XV - Best Of (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pagan, Folk, Medieval>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Diese kalte Nacht (3:05)
+02.Federkleid (4:43)
+03.Feuer (4:39)
+04.FAUN feat. Micha Rhein - Buntes Volk (4:19)(   Читать дальше...   )Жанр: Pagan, Folk, MedievalПродолжительность: 02:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A480B5324D7CC711002FE2CF7E764CBEA211B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525096   (609888) от 20.07.2012
 
 Grupo Contraste - Native Voice (2004) [MP3|320 кб/с]<Native American, Ethno, Ambient, New Age>
@@ -740,35 +769,6 @@ VA - Borderlands 3 Original Game Soundtrack (2019) [FLAC|Lossless|tracks] <Game 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B1B5783847552EB87C0E4693376FC380345A0E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231743   (603195) от 21.06.2018
-
-Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exile [03:31]
-02. Revolt [02:11]
-03. Cytokine Storm [01:59]
-04. Heart and Soul [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1AEC102A73C568A9EFF3EE5841C6FB7C6FEBDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

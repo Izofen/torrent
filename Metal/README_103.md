@@ -1,3 +1,32 @@
+###  Публикация: 1638231   (238031) от 07.06.2023
+
+Dieth - To Hell and Back (2023) [MP3|320 Kbps] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Hell and Back (03:55)
+02. Don't Get Mad ... Get Even! (04:37)
+03. Wicked Disdain (03:36)
+04. Free Us All (05:19)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5F175E585047347123704E2C131AD6DD1440BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581833   (237981) от 07.10.2022
 
 Coffin Torture - 2 Albums (2018-2022) [MP3|320 Kbps] <Sludge, Doom, Death>
@@ -717,35 +746,6 @@ Sunborn - Imperishable (2021) [MP3|320 Kbps] <Melodic Death, Groove Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:614E20F61760FA4E7B7E6E14405A19380882F5CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458000   (235784) от 28.03.2021
-
-Woe Unto Me - Spiral-Shaped Hopewreck (2021) [MP3|320 Kbps] <Melodic Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - And Every Piece of a Being Was Washed Away by The [00:01:10]
-02 - Spiral-Shaped Hopewreck [00:11:30]
-03 - Dissolving and Then Forming a New Image So [00:00:50]
-04 - Sad and Slow [00:06:07](   Читать дальше...   )Жанр: Melodic Metal, Doom MetalПродолжительность: 00:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FDA601B30A95A1F9E7A931CE9B039CF2FF3123A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 970788   (976420) от 11.01.2016
+
+В центре внимания / Spotlight (2015) DVDScr
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанная на реальных событиях история журналистского расследования одного из самых громких в истории США секс-скандалов. Корреспонденты бостонской газеты разоблачают случаи педофилии, в которых обвиняются представители Церкви…Производство: СШАЖанр: Триллер, драма, биография, историяРежиссер: Том МакКартиАктеры: Марк Руффало, Майкл Китон, Рэйчел МакАдамс, Лив Шрайбер, Джон Слэттери, Стэнли Туччи, Брайан Д’Арси Джеймс, Елена Стайтелер, Джин Аморозо, Даг Мюррэй, Шэрон МакФарлэйн, Джейми Шеридан, Нил Хафф, Билли Крадап, Роберт Б. Кеннеди, Дуан Мюррэй, Брайан Чемберлен, Майкл Сирил Крейтон, Пол Гилфойл, Майкл КантримэнПеревод: Любительский двухголосый (Паровоз Продакшн)Субтитры: ОтсутствуютПродолжительность: 02:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A35D0B8A5C2D5CC46FB1BA0D23820F0A09A7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 850435   (976419) от 11.01.2016
 
 7 гномов / The 7D (2014) SATRip (Сезон:1, серии: 1-24 из 24 (эпизоды: 1-47 из 47))
@@ -700,41 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74DFE693558607B38B497260F6068FDAFF102B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616077   (976315) от 09.02.2013
-
-VA - Trance Classics Reloaded (2013) [MP3|320 кб/с]<Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz vs Ferry Corsten - Loops & Tings (Radio Edit)
-02. Marcel Woods - Advanced (Tiesto Remix)
-03. System F - Out Of The Blue 2010 (Giuseppe Ottaviani Remix)
-04. Planet Perfecto Knights - ResuRection (Paul Oakenfold Full On Fluoro Radio Edit)
-05. Three Drives - Letting You Go (Greece 2000) (Dabruck & Klein Vocal Radio Edit)
-06. Andrew Bennett - The Age Of Love (Radio Mix)
-07. Ferry Corsten - Punk (Arty Rock-n-Rolla Mix)
-08. Veracocha - Carte Blanche (2008 Radio Edit)
-09. Grace - Not Over Yet (Max Graham vs Protoculture Remix Edit)
-10. Southside Spinners - Luvstruck 2005 (Klubbheads 2005 Radio Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FDEF5069144B1738101E74EDDE5A21932CD6429
 ```
 
 https://mybot314.ru/tekegram_catalog/

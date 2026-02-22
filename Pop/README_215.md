@@ -1,3 +1,119 @@
+###  Публикация: 1414352   (385304) от 08.10.2020
+
+Billie Eilish - No Time To Die (2020) Single [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Time To Die (04:02)Жанр: PopПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BACE70503A808288145F83EAFFC9A3C519F44513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414353   (385302) от 08.10.2020
+
+Billie Eilish - No Time To Die (2020) Single [FLAC|Lossless|WEB-DL|tracks]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Time To Die (04:02)Жанр: PopПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184928427D1897E1E93424E7C7E706E595A2A285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571404   (385276) от 08.11.2012
+
+Christina Aguilera - Lotus (Deluxe Version) (2012) [mp3|320 кб/с ]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lotus Intro
+ 02. Army Of Me
+ 03. Red Hot Kinda Love
+ 04. Make The World Move (feat. CeeLo Green)
+ 05. Your Body
+ 06. Let There Be Love
+ 07. Sing For Me
+ 08. Blank Page
+ 09. Cease Fire
+ 10. Around The World(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DB2C0AA32280F8B013B9940BEB7B0750235C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174512   (385227) от 15.10.2017
+
+Mireille Mathieu – Ennio Morricone (2016) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un jour tu reviendras 05:09
+02. J’oublie la pluie et le soleil 03:54
+03. La Califfa 02:34
+04. L’eblouissante lumiere 04:38(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0830DC7CA31C564E1F25634F0F06D436EFCB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326425   (385098) от 20.09.2019
 
 Катя Лель - Моя тема (2019) [MP3|320 Kbps] <Pop>
@@ -632,122 +748,6 @@ Fun Fun - Color My Love (2017) Limited Edition, RE. [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0AB5BECE9921104541854F1203BDE5F1ABAF890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326683   (383230) от 21.09.2019
-
-a-ha - Time and Again: The Ultimate a-ha (2016) 2CD, Compilation, RE. [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take on Me (Kygo Remix) (3:46)
-02. The Sun Always Shines on T.V. (F. F. Squad's 'Radiant 4K' Remix) (5:38)
-03. Cry Wolf (Jellybean Mix) (5:14)
-04. Touchy! (House Mix) (5:22)(   Читать дальше...   )Жанр: Pop Rock, New Wave, Synthpop |Продолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185E52E37FDFF0FDF247D64ADF30BFB0027C934B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068131   (383110) от 31.10.2016
-
-Patrick Lindner - Eine Handvoll Herzlichkeit (1996) [FLAC|Lossless|image + .cue] <Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383110.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Die Kloane aus der letzten Bank
-2. Ich hatt dich sowieso geku.t
-3. Heut' Nacht haben die Sternerln a Pause
-4. Du schaffst mi(   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D60666111372A03BB99FA698805D3F18528D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326754   (383105) от 21.09.2019
-
-Fancy - Greatest Hits & More (2019) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slice Me Nice 4:23
-02. Chinese Eyes 4:29
-03. Get Lost Tonight 4:30
-04. L.A.D.Y. O. 4:21(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, DanceПродолжительность: 02:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1DC383E324F778560D8C3EE81AFAA5FA21D184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067894   (383092) от 31.10.2016
-
-Ilya - Gospel (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie, Downtempo, Trip-Hop, Vocal Jazz, Dream-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running For Superman (3:25)
-02. Gospel (5:30)
-03. Little By Little (3:32)
-04. All Gonna Pray (4:13)(   Читать дальше...   )Жанр: Indie, Downtempo, Trip-Hop, Vocal Jazz, Dream-PopПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CDC5D360430E31842BED44314D1B6055314855
 ```
 
 https://mybot314.ru/tekegram_catalog/

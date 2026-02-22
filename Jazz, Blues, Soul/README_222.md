@@ -1,3 +1,90 @@
+###  Публикация: 1137892   (665717) от 28.05.2017
+
+Alice Babs - Alice and Wonderband (1959) 1993, RCA/BMG Ariola AB Sweden [FLAC |Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Words Blues (Hallberg-Babs) - 3:03
+02. Just A-Sittin' and A'Rockin' (Strayhorn-Ellington-Gaines) - 2:57
+03. Willow Weep for Me (Ronell) - 4:47
+04. I Didn't Know What Time It Was (Rodgers-Hart) - 2:42(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DE978F3B6C75A3103392E8E55525910098E3F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137987   (665711) от 28.05.2017
+
+Francesco Cafiso New York Quartet - New York Lullaby (2006) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby Of Birdland [07:58]
+02. Reflections [04:11]
+03. Polka Dots And Moonbeams [06:26]
+04. My Old Flame [09:45](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48390C35968CD84E94C026994323CFF51031BC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138226   (665709) от 28.05.2017
+
+Aaron Parks, Ben Street, Billy Hart - Find The Way (2017) ECM [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrift [05:47]
+02. Song for Sashou [06:23]
+03. Unravel [04:44]
+04. Hold Music [04:20](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4822DB7F8C5844AA8BE0F66A0AC771045FC83EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137888   (665643) от 28.05.2017
 
 Gregor Hilden & Johnny Rogers Band - Soul Serenade (2001) [FLAC|Lossless|image + .cue] <Blues>
@@ -658,93 +745,6 @@ Gary Eisenbraun - Sticks and Stones (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59CEC8C2BEC50E716D462318188A24B4C54241CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138683   (663249) от 30.05.2017
-
-Terri Wells - Just Like Dreamin' (1984) 2012,  Big Break Records [FLAC|Lossless|tracks + .cue] <Soul, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Givin' All My Love (6:33)
-02. Just Like Dreamin' (5:16)
-03. Falling Leaves (4:42)
-04. Can't Stop (4:11)(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57EE7E5427A04D99A92C3B826A7AD55CB7997A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138643   (663248) от 30.05.2017
-
-Al Cohn & Zoot Sims - Al And Zoot / You 'N' Me (1957, 1960) 2002, Азбука Звука [APE|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Wonderful World [06:30]
-02. Brandy and Beer [03:50]
-03. Two Funky People [04:30]
-04. Chasing the Blues [06:10](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA29AD42BEC864E99CF4D6ED4E206C0943462F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138718   (663247) от 30.05.2017
-
-Jeff Kashiwa - Let It Ride (2012) Native Language Music [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Ride [04:16]
-02. Stomp [04:41]
-03. The Name Game [05:08]
-04. Up [03:36](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1E6D8C4730A7DA11F0841E87AF3A93E0793832
 ```
 
 https://mybot314.ru/tekegram_catalog/

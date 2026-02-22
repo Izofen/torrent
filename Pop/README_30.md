@@ -1,3 +1,143 @@
+###  Публикация: 603201   (996864) от 15.01.2013
+
+Army of Lovers - The Best Of (1999) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hands Up
+02.Let The Sunshine In
+03.Sexual Revolution
+04.I Am
+05.My Army Of Lovers
+06.Israelism
+07.Lit De Parade
+08.Give My Life
+09.La Place De Saint Tropez
+10.Carry My Urn To Ukraine(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1239168E50B54B3E032F85778B10EB8630FC5F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605032   (996213) от 18.01.2013
+
+Night Works - Urban Heat Island (2013) [MP3|320 кб/с]<Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys Born in Confident Times
+02. Modern European
+03. Lifeline
+04. Nathaniel
+05. Armajaro
+06. I Tried So Hard
+07. The Eveningtime
+08. Share the Weather
+09. Riches (Vocal Dub)
+10. Long Forgotten Boy(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9C9CF47E504B8CA0B8634A67D55FF5425A0360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604561   (996134) от 18.01.2013
+
+Francesco Napoli - Disco Italiano (2010) [MP3|~225 кб/с (V1)]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Americano 03:28
+02. Balla... Balla Vol. 1 05:43
+03. Balla... Balla Vol. 2 06:44
+04. Ma Quale Idea 04:28
+05. Lady Lay 03:12
+06. Torner· 03:04
+07. Hay L'amore 03:07
+08. Lady Fantasy 03:09
+09. Marina 02:44
+10. Vamos A La Playa 03:43(   Читать дальше...   )Жанр: popПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635044622E30383A77728FBB5E9FDF8374265CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605036   (996070) от 18.01.2013
+
+Gazebo - Greatest Hits (1991) [MP3|320 кб/с]<pop, disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lunatic
+02 Love In Your Eyes
+03 London-Paris
+04 Masterpiece
+05 I Like Chopin
+06 Midnight Cocktail
+07 Gimmick!
+08 Telephone Mama
+09 Alice In Wonderland
+10 Coincidence(   Читать дальше...   )Жанр: pop, discoПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F8388D01480757DCF2A566036A2AF24DD92C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603817   (996007) от 18.01.2013
 
 VA - Hits Of The 60's - 250 Hits Of The Supersixties (2009) 10CD[MP3|320 кб/с]<Pop, Disco, Retro>
@@ -701,122 +841,6 @@ C.C.Catch - 25th Anniversary Box (5CD) (2011) [MP3|320 kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7BCD7FBE1E7CE5D953CE49B03134DC7DCEDE38B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971127   (988585) от 01.01.2016
-
-Gepy & Gepy - Il Meglio (1997) [FLAC|Lossless|image + .cue]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body To Body 7:04
-02. Pui' 3:29
-03. Angela 3:37
-04. Angelo Blu 3:03(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA2433943E29C2B18E45447FFAEC974EAA2BE96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970984   (988480) от 01.01.2016
-
-Степ - Ти не пожалкуєш (1997) [FLAC|Lossless|image+.cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шалалулей
-    02. Жнива
-    03. Ти не пожалкуєш
-    04. Жінка моя(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BA831A5C39BF509106058CB876281D134D721E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970801   (988477) от 01.01.2016
-
-Sandra - The Art Of Love (2007) [FLAC|Lossless|image + .cue] <Pop, Electro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What D'Ya Think Of Me [04:34]
-02. The Way I Am [03:31]
-03. The Art Of Love [04:14]
-04. What Is It About Me [03:54](   Читать дальше...   )Жанр: Pop, ElectroПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB45FAEAB22CDB38866E7DC56228A5479E0BF20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970626   (988406) от 01.01.2016
-
-VA - Radio 538 Hitzone Christmas 2015 (2015) [FLAC|Lossless|image+.cue] <Pop, Rock, Holiday, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Have Yourself A Merry Little Christmas - 2:49
-02. Justin Bieber & Mariah Carey - All I Want For Christmas Is You (SuperFestive!) (Album Version) - 4:01
-03. The Common Linnets - Christmas Around Me - 3:01
-04. Coldplay - Christmas Lights - 4:04(   Читать дальше...   )Жанр: Pop, Rock, Indie, Electronic, R&B, Soul, Folk, Country, Holiday, ChristmasПродолжительность: 02:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5816155FB79A721D743941B086B01CCAE8838B
 ```
 
 https://mybot314.ru/tekegram_catalog/

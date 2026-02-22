@@ -1,3 +1,38 @@
+###  Публикация: 617163   (973411) от 11.02.2013
+
+VA - Best DJ of Radio Records (2013) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Марсель - Остановись (KIDO Dub Step Remix)
+002 Molella - Even In The Rain (Club Edit)
+003 Серебро - Мальчик (DJ Niki Radio Remix)
+004 DJ Agr f. Airbse - Resurron
+005 MC 77 feat. Лукас (Паль-То) - Цыганочка (DJ Amor Remix)
+006 IQ-Talo & Miss Laluna - Sweet Little Lies (AlexKea feat. RainDropz! Remix Edit)
+007 DJ Цветкоff & Mayo - Пусть Будет Так (Amen) (Radio Mix)
+008 Addicted Craze Feat. Kevin Kelly - Drinks Up to the Sky
+009 Диля Даль - Спасибо, мэрси (DJ Nejtrino & DJ Kirill Clash Remix)
+010 Ke$ha- Crazy Kids (D3Y Remix Edit)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAC88551D76784D49D35BB60E6931FC78F6EE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975153   (973199) от 14.01.2016
 
 VA - Зимний Горячий Best-Hits (2016) [MP3|256 кб/с] <Pop>
@@ -734,35 +769,6 @@ VA - Начинаем отмечать! №3 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A301ADE05219BBB292D756B404A8912963683C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088784   (953897) от 02.01.2017
-
-VA - Полный отрыв. Зимние хиты. Сборник № 2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Не.Kurili Feat. Mansarda - Оскал 5:31
-002. Adlernebel - The Forgotten Trail 8:39
-003. Original Sin - Red Mist 4:20
-004. Mc Doni - Полегче 2:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0B47675C23BAB17282D65019009AC5610791DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

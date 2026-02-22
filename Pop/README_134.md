@@ -1,3 +1,119 @@
+###  Публикация: 1292255   (648755) от 28.03.2019
+
+VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malik Djoudi - Epouser la nuit [3:37]
+02. Fontaines D.C. - Roy's tune [3:00]
+03. These new puritans - Into the fire [3:42]
+04. The psychotic monks - Closure [3:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0444D29082C6E72618F887E33E789704ECFF776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292050   (648746) от 28.03.2019
+
+VA - Après Ski Top 100 (2019) 4CD [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648746.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Armin Van Buuren - Blah Blah Blah
+02. De Alpenzusjes - Naar Voren, Naar Achter (Tu Tu Song)
+03. Gebroeders Ko - Schatje Mag Ik Je Foto_(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 05:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18CCE8915073E359E61EE9D44F2F7D070DB6BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292231   (648741) от 28.03.2019
+
+Barbra Streisand - I Can Get It for You Wholesale (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Funny Thing Happened
+02. A Gift Today
+03. Ballad of the Garment Trade
+04. Eat a Little Something(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702F4558046930B09A295544D214EFFD74B86656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292071   (648628) от 28.03.2019
+
+VA - 100 Greatest Sad Songs (2019) [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648628.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Clean Bandit feat. Julia Michaels - I Miss You (Acoustic)
+002. Gnash feat. Olivia O'Brien - i hate u, i love u
+003. All Saints - Never Ever
+004. Coldplay, Seeb - Fix You(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 06:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EC59F48E4344851A07201FD6B2D2E079B73F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292169   (648623) от 28.03.2019
 
 The Palladium Singers - 100 Hits from the Musicals (2007) Box Set, 5CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Cover, Stage & Screen>
@@ -646,125 +762,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80C5B40F1910CA54FF23BBDCD0E6B3518B605235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541291   (646938) от 02.04.2022
-
-Famous Groupies - Rehearsing The Multiverse (2019) 2020,  ATOZ [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Bury Me 3:55
-02. Wouldn't That Be Lovely 1:39
-03. We All Fall Down 2:22
-04. Tonight 0:31(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614713B4DDD67011F3659F9F16752A5B6FF7D621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292458   (646920) от 29.03.2019
-
-Amy Correia - Christmas in L.A. (2000) Single [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas in L.A. (feat. The Tinseltown Tabernacle Choir) (4:15)Жанр: PopПродолжительность: 00:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AEFDE6CA5AFE1F41EFCD6BFC457C5CB071053B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517161   (646860) от 01.07.2012
-
-Владимир Пресняков - Лучшая Коллекция (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Стюардесса по имени Жанна
- 02.Ночкой темной
- 03.Курочка Ряба
- 04.Ночной звонок
- 05.Ты скажи
- 06.Недотрога
- 07.Падший ангел
- 08.Острова
- 09.Дождь
- 10.Ты сделана из огня(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009CB2478A5EF00F570649CA78D93ED581442902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540874   (646857) от 02.04.2022
-
-Mad Show Boys - Чудо из ниоткуда (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Омерзительный сосед (4:08)
-02.Фея лени (3:01)
-03.Люблю ролевика (3:49)
-04.Оптимистюшки (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2450D3C8F90307813E3114402DF0E8437B9287E
 ```
 
 https://mybot314.ru/tekegram_catalog/

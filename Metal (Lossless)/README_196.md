@@ -1,3 +1,264 @@
+###  Публикация: 963364   (287444) от 08.12.2015
+
+Danzig - Skeletons (2015) Limited Edition [FLAC|image+.cue]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil's Angels (Davie Allan & the Arrows cover) 02:41
+02. Satan (from "Satan's Sadists") 04:14
+03. Let Yourself Go (Elvis Presley cover) 02:57
+04. N.I.B. (Black Sabbath cover) 05:04(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBE67EE8F053B3E9963A017566415B0264AFE7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839134   (287036) от 27.11.2025
+
+Elettra Storm - Evertale (2025) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_287036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endgame
+02. The Secrets Of The Universe
+03. Hero Among Heroes
+04. Blue Phoenix(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536724B5F3208141BA7ED45C69B07365112EC222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963369   (286969) от 08.12.2015
+
+Batushka - Litourgiya (2015) [FLAC|Lossless|WEB-DL]<Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286969.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yekteníya 1 05:45
+2. Yekteníya 2 04:22
+3. Yekteníya 3 04:51
+4. Yekteníya 4 05:19(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F1ABFBCDA6C97FADB3DD20671643DD2E4B0B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263335   (286545) от 20.11.2018
+
+Antiquus Scriptum - Abi In Malam Pestem / In Pulverem Reverteris (2002) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abi In Malam Pestem:
+01. Principium: Cosmogony - The Creation
+02. Eine such nach wissen
+03. Abi in malam pestem(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189EA0E71242193AD4DE766F93079D9BC0027FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263342   (286543) от 20.11.2018
+
+Kong - Push Comes to Shove (1995) [FLAC|Lossless|image + .cue] <Instrumental Progressive Experimental Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Results (4:44)
+02. Arabloop (5:07)
+03. Hoover (7:26)
+04. Ditch (5:27)(   Читать дальше...   )Жанр: Instrumental Progressive Experimental MetalПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E48F306242FE823CBB2B7050DA5315D01C805C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263339   (286540) от 20.11.2018
+
+Gordian Knot - Gordian Knot (1998) Japan [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galois (2:05)
+02. Code / Anticode (6:44)
+03. Reflections (6:49)
+04. Megrez (4:00)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79451F9E1238F1AF93C0FEE8ED08F0879EE751CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263341   (286462) от 20.11.2018
+
+Skyharbor - Sunshine Dust (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signal (1:20)
+02. Dim (4:58 )
+03. Out Of Time (4:57)
+04. Synthetic Hands (5:41)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAF252518F57792A79F0991E4137D308D2039F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263573   (286450) от 20.11.2018
+
+Anubis Gate - Covered In Black (2017) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychotopia (6:41)
+02. The New Delhi Assassination (3:16)
+03. The Combat (5:43)
+04. Too Much Time (7:35)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE5A087DA63E7518A48E6EB75F9BB693A8F2CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263470   (286444) от 20.11.2018
+
+Vanden Plas - The God Thing (1997) Reissue, Special Edition, 2004, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Blossom (2:55)
+02. Rainmaker (6:40)
+03. Garden Of Stones (7:48)
+04. In You: I Believe (4:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C7A0CE810DE59D6A98DD7E7D749D055DF779C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080800   (286439) от 08.12.2016
 
 Deafheaven - New Bermuda (2015) [FLAC|Lossless|image + .cue] <Post-Black Metal>
@@ -487,267 +748,6 @@ Antiquus Scriptum - Immortalis Factus (2008) [FLAC|Lossless|image + .cue] <Symph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42629B589E6A180817A953CA5795BFB361B6D6DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264726   (277766) от 25.11.2018
-
-Accept - Symphonic Terror: Live at Wacken 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01.Die by the Sword (Live in Wacken 2017) 5:32
-02.Final Journey (Live in Wacken 2017) 5:18
-03.Restless and Wild (Live in Wacken 2017) 4:31(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7A25DE8D6FDDCB8732884D85F44ABCB3E8D50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337091   (276212) от 09.11.2019
-
-The Dark Element - Songs the Night Sings (2019) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276212.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Not Your Monster [6:24]
- 2 - Songs the Night Sings [5:10]
- 3 - When It All Comes Down [5:59]
- 4 - Silence Between the Words [4:35](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E57EB69FCF210A5CF7EB30A9F94F1D943E4C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337009   (276174) от 09.11.2019
-
-Jinjer - Macro (2019) [FLAC|Lossless|tracks + .cue] <Metalcore, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Top (5:28)
-02. Pit Of Consciousness (4:12)
-03. Judgement (& Punishment) (4:20)
-04. Retrospection (4:24)(   Читать дальше...   )Производство: Napalm Records - NPR818JCЖанр: Metalcore, Groove MetalПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D50D20840827DF22F7C3C5B2CAB76ABC0AB389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188293   (275076) от 02.12.2017
-
-Blodulv - Wehrkraft (2009) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crusher ov Covens
-02. Grimness
-03. Svart mark
-04. The Harshest Poison(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EAF5CD6071560AE15EB5615DB2A23D624EB99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188284   (275075) от 02.12.2017
-
-Blodulv - Diatribe (2005) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grim Disturbance
-02. Divine Perversion
-03. Famine Pulse
-04. Poison TraitЖанр: Black MetalПродолжительность: 00:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF67CCA33E064A8B9800E5331901EC4ED81C9228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188282   (275074) от 02.12.2017
-
-Blodulv - Blodulv (2003) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regulus - Peaceraper
-02. Legion Murdergoat
-03. Jormungrund
-04. Odium(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA83F232BD0E2D5546B4531999BA0C68A8099AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188287   (275027) от 02.12.2017
-
-Blodulv - III - Burial (2005) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Burial
-03. Imperium Sanctum (Bleeding Mercury)
-04. Tank Warfare(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34FC1C21AFEFCA23A094D1855649F7FC8D7554A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188421   (275025) от 02.12.2017
-
-Thormenthor - Abstract Divinity (1994) [APE|Lossless|image + .cue] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstract divinity
-02. The proportional dream
-03. Encircled by aura sphere
-04. Nothing expanded(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC95211B58C382D9FA7EBED4479CAF97E7573F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188457   (275023) от 02.12.2017
-
-Nepal - Ideologia (1995) [APE|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escenio
-02. Realidades
-03. Ideologia
-04. Guerra sucia(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D98B6B121206D1D787831DF2937E02CAB25C673
 ```
 
 https://mybot314.ru/tekegram_catalog/

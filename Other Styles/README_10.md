@@ -1,3 +1,38 @@
+###  Публикация: 163002   (989361) от 04.01.2010
+
+VA - Tangos de Amor (2002) [FLAC|Lossless]<Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Que me van a hablar de Amor - H.Exposito, H.Stamponi (2:34)
+02. Malena - H.Manzi, L.Demare (3:12)
+03. Esta noche me emborracho - E.Santos Discepolo (2:35)
+04. Ninguna - H.Manzi, R.Fernandez Siro (3:41)
+05. Pequena - H.Exposito, O.Maderna (3:42)
+06. Pasional - J.Caldara, M.Soto (3:32)
+07. La Mariposa - P.Maffia, E.Caledonio Flores (4:01)
+08. El corazon al sur - E.Blazquez (3:24)
+09. Che Bandoneon - H.Manzi, A.Trollo (3:55)
+10. Cafe la Humedad - C.Castana (3:27)(   Читать дальше...   )Жанр: TangoПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611149   (989089) от 30.01.2013
 
 Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
@@ -805,35 +840,6 @@ Cat Power - The Greatest (2006) [FLAC|Lossless]<Country Rock, Indie Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355261   (984976) от 25.01.2020
-
-Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonny Light Horseman (04:30)
-02. Deep In Love (05:09)
-03. The Roving (04:20)
-04. Jane Jane (03:06)(   Читать дальше...   )Жанр: Indie, FolkПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6994E26268B53FFF58E3491A29F2740537C84C56
 ```
 
 https://mybot314.ru/tekegram_catalog/

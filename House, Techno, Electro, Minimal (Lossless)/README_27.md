@@ -1,3 +1,61 @@
+###  Публикация: 1025272   (712049) от 11.06.2016
+
+VA - 538 Dance Smash 2016 vol.2 (2016) [FLAC|Lossless|image + .cue] <House, Club, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fais & Afrojack - Fais
+02. Kungs vs. Cookin' On 3 Burners - This Girl
+03. Galantis - No Money
+04. Tinie Tempah & Zara Larsson - Girls Like(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD287D882B4256D47D6B0A912C6B34B7E4861DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219575   (711917) от 15.04.2018
+
+Prime Minister Of Doom - Mudshadow Propaganda (2018) Planet Uterus [FLAC|Lossless|Vinyl|tracks] <Techno, Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Getting Things Started (06:01)
+ 02. Tribal Days Part II (08:49)
+ 03. Tribal Days Part III (09:06)
+ 04. The Vibe (05:03)(   Читать дальше...   )Жанр: Techno, Dub Techno, AmbientПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6591DB72C32205581CDF9833890B1F73E2640EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219692   (711916) от 15.04.2018
 
 Monolink and Acid Pauli - The End (2015) 3000° Grad Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
@@ -686,64 +744,6 @@ Marcus Meinhardt - 20 Years Best Of Marcus Meinhardt (2018) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2E066A459179CD100BF3B8188174D43CF65CF6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221711   (691532) от 26.04.2018
-
-Giriu Dvasios - Gaja (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klajoja (04:48)
- 02. Perkunas (03:56)
- 03. Gentis (03:56)
- 04. Buk (07:12)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291D5B88B4DE5C7B49CE79C1869FE130E1262FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221596   (691266) от 26.04.2018
-
-Monolink - Amniotic (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amniotic (7:31)
- 02. Black Day (5:37)
- 03. Sirens (5:58)
- 04. Rearrange My Mind (7:18)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CEE791CB2204CAFAFE8FD9CF89763B695606D07
 ```
 
 https://mybot314.ru/tekegram_catalog/

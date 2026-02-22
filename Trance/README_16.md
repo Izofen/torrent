@@ -1,3 +1,32 @@
+###  Публикация: 1286042   (716939) от 28.02.2019
+
+VA - Driftmoon - Remember the Night (Live at Epic Prague, December 2018) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Driftmoon & Geert Huinink – The Creation (Intro Mix)(Live)
+02. Astrosphere – Zephyr (Live)
+03. Astrosphere & Re:Locate – Crown Royal (Live)
+04. Driftmoon – Odyssey (Epic Mix) (Live)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AADBEEC58569BE40EE5532374921AE1A75B4D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219171   (715857) от 13.04.2018
 
 VA - Markus Schulz - Global DJ Broadcast: Top 20 April (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -713,35 +742,6 @@ VA - Abora Recordings: Best Of 2019 (Mixed by Ori Uplift) (2020) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBA37BD89D6D3A8A6B62F3C93F3DF086F5CE1104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403231   (694270) от 18.08.2020
-
-VA - Vocal Trance feat. Jess Morgan (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Morris feat. Jess Morgan - Made Of Light (Radio Edit)
-02. Amir Hussain feat. Jess Morgan - Set Your Heaven Free (Radio Edit)
-03. Allen & Envy feat. Jess Morgan - The Heart That Never Sleeps (Radio Edit)
-04. Dark Matters feat. Jess Morgan - The Perfect Lie (Beat Service Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106612D17A6DD62C4D26480FF64C9E9512C3ABF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1667100   (177625) от 07.10.2023
-
-Jack McDuff - The Concert McDuff (1963 - 1966) 2002, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undecided (alternate take) [8:03]
-02. Love Walked In [7:56]
-03. Midnight Sun [6:26]
-04. Swedenin' [6:40](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D32A324B9CB477A776461923A16517981F73DAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594745   (177442) от 02.12.2022
 
 Mike Wofford - Live At Maybeck Recital Hall, Vol. 18 (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
@@ -745,6 +716,35 @@ VA - Electro Swing Disco of the Alps (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8134AE906353F767676E8D6EA097FEBBE8489E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596082   (173980) от 08.12.2022
+
+VA - Electro Swing Bass Party (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing House>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_173980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SpekrFreks -- Can't Stop (Extended Mix) (4:41)
+02. Speakeasy Streets -- Our Time (Father Funk Remix) (3:42)
+03. C@ in the H@ -- Cat & Mouse (4:08)
+04. Duke Skellington -- Future Swing Time Machine (4:33)(   Читать дальше...   )Жанр: Jazz, Swing HouseПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246C6A7D60780AB1D597C3047BE3769EF598D7B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

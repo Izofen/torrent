@@ -1,3 +1,32 @@
+###  Публикация: 1556942   (556398) от 12.06.2022
+
+Vanessa Mai - No Hard Feelings (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Hard Feelings [00:02:38]
+02. Schwarze Herzen [00:02:24]
+03. Melatonin [00:02:19]
+04. Happy End [00:02:18](   Читать дальше...   )Жанр: PopПродолжительность: 00:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05E5D4E8B68A56E9CD3BA46F901A3963A2CB0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306555   (555576) от 05.06.2019
 
 Charlotte Cornfield - The Shape Of Your Name (2019) [FLAC|Lossless|tracks + .cue] <Pop, Folk, Country>
@@ -713,35 +742,6 @@ The Drums - Brutalism (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F06142DD537233115ACEE8850A4626913160483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047921   (548257) от 31.08.2016
-
-Barry Manilow - Live On Broadway (1990) [FLAC|Lossless|image + .cue] <Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Life / It's A Long Way Up (6:56)
-02. Brooklyn Blues (3:41)
-03. Memory (4:18)
-04. Up Front (5:30)(   Читать дальше...   )Жанр: Ballad, VocalПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B47A9EB00A9B1160E00C46E305ACE6D9790490A
 ```
 
 https://mybot314.ru/tekegram_catalog/

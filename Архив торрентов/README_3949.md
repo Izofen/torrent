@@ -1,145 +1,3 @@
-###  Публикация: 1257441   (345797) от 26.10.2018
-
-Unclutter 2.1.12d [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unclutter - это новое удобное место на рабочем столе для хранения заметок, файлов и клипов.
-Чтобы открыть карман, просто наведите мышь на самую верхнюю часть экрана и прокрутите вниз. Перетащите элементы из других приложений в верхнюю часть экрана, чтобы сохранить их в Unclutter.
-
-Будучи всего лишь одним легким жестом, Unclutter становится удивительно полезным и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2018Разработчик: Eugene Krupnov, UJ.LabsПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654D3A8EC533C7D20205DDD6A3293BD4E02279C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257418   (345793) от 26.10.2018
-
-Network Kit X 7.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345793.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью данного приложения ы можете быстро найти всю информацию о своей сети. Информация, такая как внутренний и внешний IP, имя ISP, сетевое имя, MAC-адрес, адрес шлюза, маска подсети и адреса DNS. Кроме того, одним щелчком Вы можете PING домен, запросить сервер или использовать службу NSLookup/Dig. Вы можете скопировать любую информацию о сети с котрой Вы соединены (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2018Разработчик: Fausto RistagnoПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2266790B5A266E6A4CFFA682FCC823D94CE006EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580436   (345767) от 24.11.2012
-
-XXL/ XXL (1997) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть одного из членов семьи зачастую кардинально меняет жизнь огромного количества людей. Долгие годы не общавшиеся между собой родственники съезжаются на поминки, не предполагая, что этот момент может стать для них переломным. Особенно во Франции, где так горяча кровь неверных жен, так непредсказуемы старики. А если в воздухе пахнет крупным наследством, произойти может все что угодно.Жанр: Мелодрама, КомедияРежиссер: Ариэль ЗейтунАктеры: Мишель Бужена (Michel Boujenah), Жерар Депардье (Gérard Depardieu), Эльза Зильберштейн (Elsa Zylberstein), Катрин Жакоб (Catherine Jacob), Джина Лоллобриджида (Gina Lollobrigida), Гад Эльмалех (Gad Elmaleh), Феликс Фибич (Felix Fiebich), Морис Шевит (Maurice Chevit)Перевод: Профессиональный (многоголосый)Продолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3FEC8743029A3E61B08C8626C97D30762B6BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580156   (345765) от 24.11.2012
-
-[Wallpapers] Обои на рабочий стол - calendar wallpapers
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые обои календарь.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7BA58FD06955B7DF33618B5E3728AA9E174231A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580306   (345762) от 24.11.2012
-
-VA - Magic Island - Music For Balearic People Vol. 4 (Mixed by Roger Shah) (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Norvis & Seepryan - Ibiza Feelings (Original Mix) (5:00)
-02. Garrido & Skehan - Split Second (Original Mix) (6:19)
-03. Rocking J - New Dawn (Original Mix) (6:04)
-04. Jamie Carpenter feat. Ciaran Warren - You're Not Alone (Original Mix) (5:58)
-05. Sunlounger & Zara Taylor - Try To Be Love (Roger Shah Naughty Love Mix Radio Edit) (3:54)
-06. Kim Svard feat. Chase - When The Sun Goes Down (MI4 Mix) (4:39)
-07. Sunlounger & Rocking J - Finca (Roger Shah & Rocking J Original Mix) (6:05)
-08. Julian Wess & Mike Carey - Limitless (Original Mix) (6:40)
-09. Hanski & Jjoo - Utopia (Original Mix) (6:31)
-10. Aly & Fila meet Roger Shah feat. Adrina Thorpe - Perfect Love (Radio Edit) (3:41)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753CFB168EAE6C92CE66E83785A0229AAC924913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579930   (345756) от 24.11.2012
 
 Изображая Бога / Playing God (1997) [1080p] BDRemux
@@ -704,6 +562,139 @@ Hill & Wiltschinsky Guitar Duo - Latin Moods: The Romantic Sound Of Guitars (199
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CA429846609C6385BE6291E96F6DA0283E28498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330116   (345616) от 08.10.2019
+
+Counterstrike - Saw the Future EP (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum'n'bass, Darkstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counterstrike - Saw The Future (04:28)
+02. Counterstrike & Merikan - Merk (04:17)
+03. Counterstrike - Turn Them Into Dust (03:45)
+04. Counterstrike - Complete Darkness (04:07)Жанр: Drum'n'bass, DarkstepПродолжительность: 00:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C128857DF5710B55637542937B2BFD9B582B08C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330145   (345614) от 08.10.2019
+
+Allavsoft Video Downloader Converter 3.17.9.7218 RePack (& Portable) by elchupacabra [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEE85C9191ED995CC290A8A03E6C81555B14E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330132   (345613) от 08.10.2019
+
+MediBang Paint Pro 24.5 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345613.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediBang Paint Pro - удобная программа для редактирования изображений и цифрового рисования. Это почти полный аналог известного редактора FireAlpaca, но обладающий расширенным функционалом и возможностью использования облачного сервиса.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D078BE27B297D08D6974620017A5A9F3A13D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330089   (345610) от 08.10.2019
+
+GoodSync Enterprise 10.10.9.5 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345610.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoodSync - программа из серии высоконадежного, удобного и простого в использовании программного обеспечения от компании Siber Systems - разработчика RoboForm. Программа автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D7ACFF62C714E8369E470403F2E14C888B0060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330161   (345609) от 08.10.2019
+
+QuickSave v2.3.2 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345609.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickSave ­ Instagram Скачать / Сохранить ­ 100% бесплатное приложение, которое поможет вам сохранить / загрузить на Instagram фото или видео.Тип издания: Пиратка (удалена реклама, мусор и аналитика)Релиз состоялся: 06.06.2019Разработчик: DStudioПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мультик
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899BF97C540EE2046E24B0429DD6AB2EAA1F191F
 ```
 
 https://mybot314.ru/tekegram_catalog/

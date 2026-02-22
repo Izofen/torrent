@@ -1,3 +1,32 @@
+###  Публикация: 1641240   (236706) от 21.06.2023
+
+Konstantin Klashtorni - Chillaxonic: 3rd Facet (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Within Attraction (3:46)
+ 02. Serenity (4:17)
+ 03. Living Water (4:04)
+ 04. Creation Sings (3:56)(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFCD8978E2DEC17CB722C0C888809072946EDA2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608847   (236688) от 01.02.2023
 
 Betty Carter - I Can't Help It (1992) Impulse! [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Artie Shaw - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DB4952EBF64C636492D9052A3F1EBB843F14FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640520   (236221) от 18.06.2023
-
-Miles Davis & Gil Evans - Concierto de Aranjuez (1961) 1990, Giants Of Jazz [FLAC|Lossless|image + .cue] <Cool, Third Stream, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concierto de Aranjuez (Part 1 & 2) [16:52]
-02. Teo [9:18]
-03. Walkin' [9:23]
-04. I Thought About You [4:46](   Читать дальше...   )Жанр: Cool, Third Stream, Big BandПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406149FB0E068E66ED7CE0B7F6AFC93743C9EF70
 ```
 
 https://mybot314.ru/tekegram_catalog/

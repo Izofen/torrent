@@ -1,3 +1,119 @@
+###  Публикация: 1378728   (844634) от 26.04.2020
+
+Григорий Лепс - Честь имею! Разведка боем (Высоцкий) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я вам мозги не пудрю
+02. Штрафные батальоны
+03. Жил я с матерью и батей
+04. Их восемь, нас двое(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D905D43090A89D8BD19441B8D2EE956F1A7D6665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112190   (844226) от 07.03.2017
+
+Demis Roussos - Complete 28 Original Albums (2016) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844226.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - On the Greek Side Of Mind (1971)
+CD02 - Forever And Ever (1973)
+CD03 - My Only Fascination (1974)
+CD04 - Auf Wiedersehen (1974)Жанр: PopПродолжительность: 27:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B3383117064A315938E15B1CCA22198568B95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112474   (843306) от 08.03.2017
+
+Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lontano, Lontano
+02. Io Sono Uno
+03. Uno Di Questi Giorni Ti Sposerò
+04. Come Tanti Altri(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0529F16A5BA4064E09D052941BDC7F7E88336C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378965   (843042) от 27.04.2020
+
+a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Wolf (Extended Version) (8:14)
+ 02. We're Looking For The Whales (Live) (3:51)
+ 03. I've Been Losing You (Dub) (4:29)
+ 04. Manhattan Skyline (Extended Remix) (6:50)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, SynthpopПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EE0EC5DA55EB6311D7F0CC72533D6F9AB4FB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378815   (843035) от 27.04.2020
 
 Noémie Wolfs (ex.Hooverphonic) - Lonely Boy’s Paradise (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -632,122 +748,6 @@ VA - Classic 80's Pop (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4396B1B828799663B7900F3B984F3BBA3F5232E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113019   (840123) от 10.03.2017
-
-Lunch Ladies - Down on Sunset Strip (2017) [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine (04:23)
-02. You're Not There (03:19)
-03. Love Is Overrated (03:40)
-04. Sad Jeans (03:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716B333B690A15C5277D15052D6A4697B7E6A021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113066   (840098) от 10.03.2017
-
-Graham Gouldman - Animalympics (1980) LP [MP3|320 Kbps] <Electronic, Pop-Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go For It (3:36)
-02. Underwater Fantasy (3:17)
-03. Away From It All (2:34)
-04. Born To Lose (4:09)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, Synth-pop, DiscoПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7742FCAAF5B425B3264A3FA169CC691C999354A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113007   (840018) от 10.03.2017
-
-Slick - Slick (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Bass (6:58)
-02. Feelin' Good (7:51)
-03. Sexy Cream (8:07)
-04. Put Your Pants On (3:47)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934F6D5DA2AB68009B80DAFDA5681222E546CE9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004298   (840017) от 05.04.2016
-
-Hypnosis - Hypnosis (1991) Reissue, 2001, ZYX Music [MP3|320 кб/с] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Droid    05:47
-02. Inesi    01:14
-03. Windland    04:47
-04. Argonauts    04:44(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C785A0012E933DD04197356B819D0F621BA1577A
 ```
 
 https://mybot314.ru/tekegram_catalog/

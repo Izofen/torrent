@@ -1,3 +1,38 @@
+###  Публикация: 770159   (853503) от 24.03.2014
+
+Christopher Alvarado - Translucence (2014) [FLAC|Lossless|WEB-DL]<Ambient, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen Fields (4:47)
+ 02. Passage (6:40)
+ 03. Fire Above The Desert Mesa (5:01)
+ 04. Marbled Mask (5:15)
+ 05. Ascension Of Silence (6:08)
+ 06. Visions And Arcs (Bonus Track) (10:14)
+ 07. Blades Of The Sun (6:05)
+ 08. Solace (5:04)
+ 09. Arcades Of Light (5:57)
+ 10. Currents Through The Horizon (5:41)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1723A2B5B2F2A70FB610FE0C61C6A2D3EEF670C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 770191   (853500) от 24.03.2014
 
 VA - VANDIT Records Miami (Paul van Dyk Presents) (2014) [MP3|320 кб/с]<Trance>
@@ -693,41 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE5D1BDC3EC98919EBAFCA151C741918F19F1588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648539   (853435) от 25.04.2013
-
-Atrocity - Okkult (2013) [MP3|320 кб/с]<Death / Industrial Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Pandaemonium (6:12)
-02. Death by Metal (3:28)
-03. March of the Undying (3:52)
-04. Haunted by Demons (3:48)
-05. Murder Blood Assassination (5:40)
-06. Necromancy Divine (6:48)
-07. Satans Braut (3:17)
-08. Todesstimmen (1:58)
-09. Masaya (3:01)
-10. When Empires Fall to Dust (4:16)(   Читать дальше...   )Жанр: Death / Industrial MetalПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC265DA07B527A0939D52BFDB583032C2FD9ED9
 ```
 
 https://mybot314.ru/tekegram_catalog/

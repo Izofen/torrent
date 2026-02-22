@@ -1,3 +1,32 @@
+###  Публикация: 1421590   (317560) от 05.11.2020
+
+Игорь Романов И Его группа (Союз) - Учитель успеха (1988) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Учитель успеха
+02. Ливень
+03. Черный ворон
+04. Счастливый билет(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, New WaveПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA0738BCAD31AC9E15AE6EFE50FFCE22FDA05BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959519   (317307) от 24.11.2015
 
 Тараканы! - MaximumHappy Live (2014) [FLAC|image + .cue] <Rock, Punk Rock>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C63FC9D2F1B29E3572014850AC363E2226BB820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261333   (303274) от 11.11.2018
-
-Пикник - Дым (1982) Reissue, 2010, Вектор [FLAC|Lossless|image + .cue] <Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303274.jpg" />
-</div>
-
-
-###  Подробнее
-
-[7:00] 01. Ночь
-[3:04] 02. Хоровод
-[5:15] 03. Вечер
-[4:02] 04. Очень интересно(   Читать дальше...   )Жанр: Art-RockПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31AAF43DD782FDBA84AE374D2B1394A86B34246E
 ```
 
 https://mybot314.ru/tekegram_catalog/

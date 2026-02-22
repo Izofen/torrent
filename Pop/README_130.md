@@ -1,3 +1,119 @@
+###  Публикация: 1538111   (662294) от 21.03.2022
+
+VA - Mastermix Pro Remix 2 (2022) [MP3|320 Kbps] <Soulful House, Indie Dance, Dubstep, Nu Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B. Live Feat. Becky Hill & Jme - Don't Know About You (Original Mix)
+02. Belters Only Feat. Jazzy - Make Me Feel Good (Extended Mix)
+03. Ben Nicky X Distorted Dreams - We Come 1 (Extended Mix)
+04. Chaney - Love Again (Extended Mix)(   Читать дальше...   )Жанр: Soulful House, Indie Dance, Dubstep, Nu DiscoПродолжительность: 01:04:16 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83A9CEA3F0266B98A615CABD134BC95BD90BF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538184   (662196) от 21.03.2022
+
+Charli XCX - Crash (2022) Deluxe Edition [MP3|320 Kbps] <Hyperpop, Dance-pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Crash
+02 – New Shapes (feat. Christine and the Queens and Caroline Polachek)
+03 – Good Ones
+04 – Constant Repeat(   Читать дальше...   )Жанр: Hyperpop, Dance-pop, Synth-popПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE1A8A4E325E7C4DC90660E766850214D3A850B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138977   (661292) от 01.06.2017
+
+Opus - Up And Down (1984) [FLAC|Lossless|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up And Down
+02. Vivian
+03. There Is Need For
+04. She Loves You(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C923BDCD35B1B4039787E2419DBCD94F6FC892BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538792   (661274) от 22.03.2022
+
+VA - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nashville Cast - Ho Hey (2:05)
+02. Nelly Furtado - I'm Like A Bird (Acoustic Version) (3:56)
+03. Amos Lee - Sweet Pea (2:09)
+04. Longpigs - On & On (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB104461A8653ADF03AC2C1BEFBA58AB25935F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139266   (661099) от 01.06.2017
 
 VA - Summer Beach Party 3 (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
@@ -637,122 +753,6 @@ VA - Turbo Disco - Лучшие Хиты Дискотек (2001) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:594C4E23183E8383C140C080F71861D54FA5CAE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226126   (656960) от 19.05.2018
-
-VA - Гирлянды любви (2006) [APE|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - М. Цветкова - Кто-то выдумал любовь
-02 - Студия 54 - Сердечко
-03 - С. Ротару - Жизнь моя, моя любовь
-04 - Revolvers - Неправильная любовь (remix)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6694BA5D85518AA04435C44B7068123696105854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226188   (656748) от 19.05.2018
-
-VA - Eurodance Master (Rare & Unreleased tracks from Axel Breitung) (2008) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Hype - Train Of Love (3:53)
-02. Megamorph - Fade To Grey (3:22)
-03. UC Colors - U Got The Rhythm (3:59)
-04. Indiansphere - Spirit Of The Hawk (3:07)(   Читать дальше...   )Жанр: Eurodance, Euro-House, TechnopopПродолжительность: 02:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B39BC89DD2C7EDE3754663EE119DA0B4BB0238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149705   (656743) от 19.05.2018
-
-Robin Cook - Land Of Sunshine (1997) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01.31)
-02. Cuba (03.04)
-03. I Won't Let The Sun Go Down (03.05)
-04. Kalimba De Luna (04.18)(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BDEB213A78F3B9CC74F0678395B49292E687C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140260   (656673) от 05.06.2017
-
-Егор Крид - Что они знают? (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Что они знают
-03. Не могу
-04. Алло(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E26FADBF555727BD00245FFF4BA5799F90A70BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

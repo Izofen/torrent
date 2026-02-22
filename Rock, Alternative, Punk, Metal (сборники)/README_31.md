@@ -1,3 +1,32 @@
+###  Публикация: 1413904   (406726) от 06.10.2020
+
+VA - Rock And Roll: British Classic Style (2020) [MP3|320 Kbps] <Rock & Roll, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406726.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Josie & The Outlaw - This Town Ain't Big Enough
+002. Little Richard - Great Gosh A'mighty
+003. Freddie & The Dreamers - I'm A Hog For You
+004. Bloodshot Bill - Baby Oh Baby(   Читать дальше...   )Жанр: Rock & Roll, Classic RockПродолжительность: 08:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCAB60D9454755885B83AF467B9E0641DD86DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 712823   (403243) от 19.10.2013
 
 Peter Gabriel - 25 Best Songs (2012) [MP3|220 - 272 кб/с]<Progressive Rock>
@@ -719,38 +748,6 @@ VA - Metal Attack (2012) [MP3|192-320 кб/с]<Alternative, Thrash, Industrial, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F792E7D36FCAED26D09A0C725FC6A314E0F302FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328162   (365372) от 29.09.2019
-
-The Beatles - White Album De-Noised From Demos & Takes 2CD (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-01 - Back In The U.S.S.R. (Esher Demo) (03:00)
-01-02 - Dear Prudence (04:46)
-01-03 - Glass Onion (Esher Demo) (01:56)
-01-04 - Ob-La-Di, Ob-La-Da (Esher Demo) (03:11)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:41:19
-02-01 - Birthday (2018 Stereo Mix) (02:42)
-02-02 - Yer Blues (Esher Demo) (03:30)
-02-03 - Mother Nature's Son (Take 15) (02:29)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6741F49A89C67679022B3444E8B3A450E596722D
 ```
 
 https://mybot314.ru/tekegram_catalog/

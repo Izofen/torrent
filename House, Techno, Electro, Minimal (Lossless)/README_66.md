@@ -1,3 +1,60 @@
+###  Публикация: 1798833   (66554) от 24.05.2025
+
+Jennifer Lopez - J to tha L‐O! The (Remixes) (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jennifer Lopez feat. Fat Joe / Love Don’t Cost a Thing (RJ Schoolyard mix)    [0:04:18.55]
+02. Jennifer Lopez feat. Ja Rule & Caddillac Tah / Ain’t It Funny (Murder remix)    [0:03:49.60]
+03. I’m Gonna Be Alright (Track Masters remix)    [0:03:20.15]
+04. Jennifer Lopez feat. Ja Rule / I’m Real (Murder remix)    [0:04:18.50](   Читать дальше...   )Жанр: Electronic, Hip Hop, House, DowntempoПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0851EEF9DB9E769C19762ED441995FD4267AC42F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798974   (66533) от 25.05.2025
+
+Orbital - Orbital 2 (1993) The Brown Album Expanded, 2025, 5CD, London Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Acid, Breakbeat, Electro, House, Techno, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Semi Detached [00:09:32]
+02. Lush (Spacewalk Mix) [00:07:06]
+03. Lush (1926 Trancendance Mix) [00:05:38]Жанр: Electronic, Acid, Breakbeat, Electro, House, Techno, TranceПродолжительность: 5 CD, 04:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C40071C077151D23D97BF30E7E882D176EA0755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801430   (66205) от 11.06.2025
 
 Jennifer Lopez - The Reel Me (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Latin, Dance, Pop>
@@ -678,64 +735,6 @@ VA - Seychelles Summer Mix 2024 Chillout Island Beach Lounge [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ACF2BADE883E066496564D0E3597EB10486CD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746684   (44932) от 01.09.2024
-
-VA - Oriental Ethnic Deep House Summer Mix (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mo-Omar - Balearic Harem (4:52)
-02. Yusuf Bhatt - Gonna Keep It (4:16)
-03. Azula - Bedouin (4:52)
-04. Reza Farahani - Hit Me! (4:54)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBF6FDB6FB40CD24A213FC1E2D03ADBC00191E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746713   (44920) от 01.09.2024
-
-VA - Best Ethnic Deep House 2024 (Best Oriental Ethnic Deep Chill House Mix) [FLAC|Lossless|WEB-DL|tracks] <Oriental House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rachid Fairuz - Habiby Da (4:30)
-02. Claude Ravin - Boushret Kheir (4:39)
-03. Jadal Halal - Alayna El Hawa (4:38)
-04. Profesor Esteban - Ya Rayah (5:39)(   Читать дальше...   )Жанр: Oriental HouseПродолжительность: 01:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1E2B6E53346BDAF25552091D57EF72332E0F8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

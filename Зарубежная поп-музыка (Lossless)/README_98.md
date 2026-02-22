@@ -1,3 +1,32 @@
+###  Публикация: 1741891   (47433) от 08.08.2024
+
+George Harrison - The Concert for Bangladesh (1991) 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction by George Harrison & Ravi Shankar (Live) (5:18)
+02. Bangla Dhun (Live) (16:40)
+03. Wah-Wah (Live) (3:30)
+04. My Sweet Lord (Live) (4:36)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64B21F7ED0B261F02FC44AFBBF03A740A215D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741911   (47326) от 09.08.2024
 
 Rondo Fantastico - La Serenissima (2006) [WavPack|Lossless|image + .cue] <Pop Instrumental, Easy Listening>
@@ -716,35 +745,6 @@ Paul McCartney - McCartney (1970) SHM-CD, Japanese Edition, Reissue, 2024, MPL �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E16823306DD6909F7E6854A3D215623364C3CF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754367   (40858) от 09.10.2024
-
-Paul McCartney & Wings – Red Rose Speedway (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Barn Bed
-02. My Love
-03. Get on the Right Thing
-04. One More Kiss(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CCF1E7D64FB7E5E7F68FE8740BD0671BD55A515
 ```
 
 https://mybot314.ru/tekegram_catalog/

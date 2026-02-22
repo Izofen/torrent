@@ -1,3 +1,90 @@
+###  Публикация: 1099197   (907340) от 31.01.2017
+
+Tristan Klein - Universal Mojo (2010) [FLAC|Lossless|image + .cue] <Blues Rock, Rock, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Alligator  (05:35) 
+02|  Dark Side  (05:17) 
+03|  M O J O  (07:28) 
+04|  Not Dead Yet  (02:49) (   Читать дальше...   )Жанр: Blues Rock, Rock, InstrumentalПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86B4BA6F4A8A22DD4168055B0FC7828E552E379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099186   (907336) от 31.01.2017
+
+Jimmy Bez - Lies of a Sinner (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Lies of a Sinner  (04:25) 
+02|  Don't Let Me Die in Vain  (06:39) 
+03|  Keep Me Back  (03:21) 
+04|  I Don't Belong  (04:43) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677D5BEDF51EF0F67BB990A3F196523C012A2EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098822   (907335) от 31.01.2017
+
+Chet Baker Sextet - Chet Is Back! (1962) 2003, Bluebird[FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Well, You Needn't [06:23]
+ 02.These Foolish Things [04:56]
+ 03.Barbados [08:27]
+ 04.Star Eyes [06:58](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E33F2C4C3975F41B1A9C9DF0EA559ABACDF5D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098997   (907326) от 31.01.2017
 
 Viktoria Tolstoy - Meet Me At The Movies (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
@@ -696,108 +783,6 @@ Bucky Pizzarelli, Howard Alden, Johnny Frigo, Michael Moore - Hot Club Of 52nd S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3AC07E3784685D50CF5B8088A618791E0DA2091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759811   (905498) от 23.02.2014
-
-Arve Henriksen - Cartography (2008) [FLAC|Lossless]<Avant-Garde, Modern Composition>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Poverty And Its Opposite
- 02. Before And Afterlife
- 03. Migration
- 04. From Birth
- 05. Ouija
- 06. Recording Ange
- 07. Assembly
- 08. Loved One
- 09. The Unremarkable Child
- 10. Famine’s Ghost(   Читать дальше...   )Жанр: Avant-Garde, Modern CompositionПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CB18CF3458000F5A4925277AC8BAD6FBCB18C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760092   (905497) от 23.02.2014
-
-Bettye Swann - The Complete Atlantic Recordings (2014) [FLAC|Lossless]<Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Victum of a Foolish Heart [03:01]
- 02. Cold Day in Hell [03:03]
- 03. I'd Rather Go Blind [02:44]
- 04. Today I Started Loving You Again [02:52]
- 05. Yours Until Tomorrow [03:31]
- 06. I'm Not That Easy to Lose [03:42]
- 07. Till I Get It Right [02:57]
- 08. The Boy Next Door [03:22]
- 09. Kiss My Love Goodbye [03:24]
- 10. Time to Say Goodbye [03:34](   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 01:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9B7AE3D2AB4D1EA6012B4AAB178C2A46F22D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760104   (905485) от 23.02.2014
-
-B.T. Express - Keep it Up (2012) [FLAC|Lossless]<Funk, Disco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. This Must Be The Night For Love
- 02. It's Got To Be You
- 03. Star Child
- 04. Keep It Up
- 05. Just Can't Stop Dancin'
- 06. Dancin' Dream
- 07. Let Yourself GoЖанр: Funk, DiscoПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984552A8DFF0170F0AE89A165A0C6F86906D7798
 ```
 
 https://mybot314.ru/tekegram_catalog/

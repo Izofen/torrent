@@ -1,77 +1,22 @@
-###  Публикация: 867658   (853826) от 08.03.2015
+###  Публикация: 647867   (855436) от 24.04.2013
 
-Артем Каменистый | Самый Странный Нуб (2015) [MP3]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позабыты все былые договоренности о нейтралитете и даже дружбе. Вчерашние союзники смотрят друг на друга волками, и если бы только смотрели: звенят мечи, свистят стрелы, гремят раскаты магического грома. Вчера еще никому не нужный, почти убыточный рудник стал ареной ожесточенных сражений. Его испепеленные руины по несколько раз в день переходят из рук в руки. Все (   Читать дальше...   )Жанр: Фантастический боевикПродолжительность: 12:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050126D0E77EFC6B5B466A515B9CA1C740451871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569552   (853819) от 08.03.2015
-
-XCOM: Enemy Unknown (2012) [En/Ru] (1.0.0.4963/1.0.0.9040/9dlc) Repack R.G. Механики [The Complete Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853819.jpg" />
-</div>
-
-
-###  Подробнее
-
-В XCOM: Enemy Unknown вы встанете во главе секретной правительственной организации, которую называют XCOM. Как командующему XCOM, вам предстоит отразить глобальное нашествие враждебно настроенных инопланетян, для чего потребуется следить за ресурсами, развивать и улучшать технологии и отдавать приказы солдатам в бою.
-Оригинальный XCOM был признан по всему миру как (   Читать дальше...   )Тип издания: RePackРазработчик: Firaxis GamesЖанр: Strategy (Real-time / Turn-based / Tactical) / 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757DBEDF88A32D426E0449F3725E5847FE9C6905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110240   (853818) от 02.03.2017
-
-UninstallPKG 1.0.25 [En]
+Журнал | Elle Decoration №5 (125) [май 2013] [PDF]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853818.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-UninstallPKG - приложение, которое позволяет Вам полностью удалять так называемые "пакеты" (расширения файла .pkg) и все их установленное содержимое с Вашего Mac.
-
-UninstallPKG может использоваться для очистки свободного пространства на диске , например удалить неиспользуемые драйвера принтера или полностью удалить приложения, которые Вы больше не используете. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01 марта 2017Разработчик: CoreCodeПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+ELLE Decoration - самый красивый и полезный журнал о современном интерьере. В журнале представлены: последние тенденции мебельного дизайна и декорирования, эксклюзивные интервью с известными архитекторами, дизайнерами и фотографии лучших домов России и всего мира.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F8CDBA9C3A3F3ABD40376EDE5720981A0A73976
+magnet:?xt=urn:btih:3D8FFBA9A086269364140A40AF73B509EF0A3A2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110233   (853817) от 02.03.2017
+###  Публикация: 1001158   (855424) от 27.03.2016
 
-Gra - Necrology of the Witch (2013) [FLAC|Lossless|image + .cue] <Black Metal>
+Forgotten Tales: Day of the Dead / Забытые истории. День мертвых (2015) [Ru] (1.1.4) Unofficial
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853817.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In Cordibus Vestris
-02. Necrology of the Witch
-03. Οδεύοντας προς την Στύγα
-04. Worms and Crows(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:27:55
+Есть старая легенда, что в Мексике, на "Dia de los Muertos" (День Мертвых), врата рая открываются и души наших близких могут посещать землю живых... Именно тут начинается история Мануэля и Марии. Злая душа похитила Марию. И теперь Мануэль просит вас о помощи. Сможете ли вы отправиться вместе с ним в невероятное приключение через землю мертвых, чтобы отыскать (   Читать дальше...   )Тип издания: UnofficialРазработчик: Green Sauce GamesЖанр: Логические, пасьянсЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F5AA300414D9C7B408CBD81E5A372FEBAAFAE54
+magnet:?xt=urn:btih:C373452B3C8817C6FE521B5EB7EC5340E73D7F58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110227   (853816) от 02.03.2017
+###  Публикация: 1001163   (855423) от 27.03.2016
 
-Behexen - Rituale Satanum (2000) Remastered, 2004 [FLAC|Lossless|image + .cue] <Black Metal>
+Фундаменталист поневоле / The Reluctant Fundamentalist (2012) HDRip
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853816.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855423.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro / The Summoning
-02. Sota valon jumalaa vastaan
-03. Night of the Blasphemy
-04. Christ Forever Die(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:18
+Фильм «Фундаменталист поневоле»– экранизация романа-бестселлера пакистанского автора Мохсина Хамида. В центре сюжетной лини картины – история молодого пакистанца, работающего в престижном офисе на Уолл-стрит. Он получил отличное образование и строил планы на скорое устройство личной жизни. Тут произошла террористическая атака на Всемирный торговый центр. Это событие (   Читать дальше...   )Производство: США, Великобритания, КатарЖанр: Триллер, экранизацияРежиссер: Мира НаирАктеры: Риз Ахмед, Кейт Хадсон, Лив Шрайбер, Кифер Сазерленд, Ом Пури, Шабана Азми, Мартин Донован, Нелсан Эллис, Халук Бильгинер, Миша ШафиПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 02:10:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:515B9BB7B9DB0953B11188748C45DD994B9193EA
+magnet:?xt=urn:btih:78EACCE87E6088B986282A1AF2D63F6226039C9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,114 +76,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110238   (853815) от 02.03.2017
+###  Публикация: 1001224   (855422) от 27.03.2016
 
-VA - Cala Ibizarre Sunset Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  351 Lake Shore Drive - You Don't Know  4:44
-02.  Project Blue Sun - Unimaginable  5:44
-03.  Weathertunes - Venus  4:10
-04.  Marie Therese - Gin & Tonic (Pier-O Bossa Chill Mix)  5:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9056CD41E76802C2EAE41D8EE859F072F0115404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110395   (853814) от 02.03.2017
-
-VA - In Search of Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853814.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Seven24 - Rescue Me - Bryan Milton Remix 5:15
-002. Robien M - Catch a Glimpse 4:14
-003. R.I.B. - Escape to You 4:41
-004. Alexander Volosnikov - Bird of Mind 5:51(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FDBF0E0FCE1D645E9403FF979DFF0BEFA0A6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110234   (853813) от 02.03.2017
-
-VA - Airport Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lamar Ensemble - Das Parfum  6:07
-02.  The Sura Quintet - Observing You  5:56
-03.  Arrojas - Sensual Waves  5:35
-04.  Rey Salinero - Tell Me Why  4:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E52B8E4C275975FA69BE5D888A655836E9AE4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110346   (853812) от 02.03.2017
-
-MediaInfo 0.7.92 [Multi/Ru]
+Advanced Renamer 3.72 Final + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853812.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MediaInfo - программа для получения подробной технической информации об аудио и видео файлах.  Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.
-
-- Читает множество форматов (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 марта 2017Разработчик: MediaArea.netПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский и др.
+Advanced Renamer - довольно популярная программа для массового переименования, а также систематизации файлов в операционной системе Windows. В новых версиях данной утилиты была реализована поддержка новых тегов при работе с разными форматами файлов, например мультимедиа, были переработаны методы отвечающие за образование имен файлов.
+Advanced Renamer хоть и бесплатная (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:237B53A4EC06A587A215F1D4001288F2E3D61623
+magnet:?xt=urn:btih:C8D3174BB36F5D5EA0E7E9AE733F845A51178C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,28 +103,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110483   (853811) от 02.03.2017
+###  Публикация: 1000168   (855421) от 27.03.2016
 
-VA - Clubbers Culture Electronic Disco Lovers (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+Преступление лорда Артура (1991) DVB
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853811.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855421.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Abel Moreno – Dark Muse  05:24
-02. Drizzt – Alien Landscape  05:22
-03. Boy Funktastic – Kanos  05:59
-04. Incuebation – Little Lion  08:26(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:01:06
+У лорда Артура невеста, на которой он должен вот-вот жениться. Но хиромант предсказывает, что в ближайшее время лорд Артур совершит убийство. Лорд не может допустить, чтобы любимая оказалась женой убийцы, и он торопится выяснить, кого же из своих близких и знакомых может убить и почему. Торопится, чтобы вступить в брак освобожденным от мрачного предсказания…
+Телевизионный (   Читать дальше...   )Производство: СССР,  Arkom, СоюзтелефильмЖанр: ДрамаРежиссер: Александр ОрловАктеры: Сергей Виноградов, Александр Филиппенко, Ольга Толстецкая, Алла Будницкая, Евгений Весник, Светлана Немоляева, Алла Казанская, Игорь Ясулович, Алексей Ясулович, Геннадий ДурнайкинПродолжительность: 01:26:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F71C825E51B692E070FDA70C44BD61A91B6B80F9
+magnet:?xt=urn:btih:05EE9E3F1A02967339A9250926D2BD150FE7EF56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,25 +130,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110349   (853810) от 02.03.2017
+###  Публикация: 1000698   (855420) от 27.03.2016
 
-Л. Дюбрейль | Коммуна 1871 года (1908) [PDF]
+Кунг-фу Панда 3 / Kung Fu Panda 3 (2016) WEB-DLRip [H.264] [MP4|480x204]
 
->>Научная и техническая литература
->>Историческая литература
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853810.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Парижская коммуна — революционное правительство Парижа во время событий 1871 года, когда вскоре после заключения перемирия с Пруссией во время Франко-прусской войны в Париже начались волнения, вылившиеся в революцию и установление самоуправления, длившегося 72 дня (с 18 марта по 28 мая). Во главе Парижской коммуны стояли объединённые в коалицию неоякобинцы, социалисты (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+Воссоединившись со своим давно потерянным отцом, По отправляется в тайный рай для панд, где его ожидает встреча с множеством веселых сородичей. Однако вскоре злодей Кай начинает зачистку — он уничтожает кунг-фу мастеров по всему Китаю.
+По предстоит сделать невозможное — обучить боевому искусству деревню, полную его веселых, неуклюжих собратьев, и тем самым превратить (   Читать дальше...   )Производство: США, КитайЖанр: Анимация, Комедия, СемейныйРежиссер: Алессандро Карлони, Дженнифер ЮАктеры: Джек Блэк, Брайан Крэнстон, Дастин Хоффман, Анджелина Джоли, Дж.К. Симмонс, Джеки Чан, Сет Роген, Люси Лью, Дэвид Кросс, Кейт ХадсонПеревод: ДублированныйПродолжительность: 01:35:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:688809B6BAB10A47F18A19FA583ADC03B6FF7C70
+magnet:?xt=urn:btih:BEEBB2CBF328ED1F02DF14BCE49937F8908087CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,54 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110398   (853809) от 02.03.2017
+###  Публикация: 1000912   (855419) от 27.03.2016
 
-VA - Mout: Deep Spirit Vol.8 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853809.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Philip Bader - Rootsa - Lee Jones Remix 7:41
-002. Ltzenkirchen - Out of My Head - Ill-Boy Phil & Sebastian Fleischer Remix 6:12
-003. Steve Rachmad - Secret Life of the Machines - Klartraum Remix 7:49
-004. Dirty Doering - I Would - Marcus Meinhardt Remix 7:43(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EC9B2C08C96D8E737A43F3FA1310A37AB92ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110315   (853808) от 02.03.2017
-
-Газета | Дача и жизнь №3 (35) (март 2017) [PDF]
+Журнал | М-Хобби №3 (177) (март 2016) [PDF]
 
 >>Журналы
->>Домоводство (журналы)
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853808.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Газета «Дача и жизнь» помогает дачнику вырастить обильный урожай, отвечает на вопросы читателей, связанные с благоустройством приусадебного участка и уходом за плодовыми и декоративными растениями. Со страниц издания опытные садоводы и огородники делятся своими полезными наработками в различных сферах дачной жизни.Жанр: Дача, огород, садФормат: PDF
+М-Хобби - один из лучших на сегодняшний день российский журнал для любителей масштабного моделизма и военной истории. Издание постоянно публикует материалы о моделях военной техники, авиации, автомобилях, обзоры новинок модельного рынка. Мастера моделизма делятся секретами своего мастерства.Жанр: Моделизм, военная историяФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5F738DAE608DE6E9147D2BBD579462AD78541B6
+magnet:?xt=urn:btih:B22C554D5C76F461F56EB38CE4E86AB5F7649EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,57 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110288   (853807) от 02.03.2017
+###  Публикация: 1001105   (855418) от 27.03.2016
 
-Guy Verlinde And The Houserockers - How How How (2017) [MP3|320 Kbps] <Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How How How (02:20)
-02. Long Distance Lovin' (02:52)
-03. Let's Get It On (02:19)
-04. Show Some Mercy (03:40)(   Читать дальше...   )Жанр: Rockin' BluesПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64D300FC66DB1EB67650C3B5E8D9E83A45F3307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110478   (853806) от 02.03.2017
-
-DupeZap 4.0.0 [En]
+Мохаве / Mojave  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853806.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DupeZap (бывший DupeZap Plus)  - Утилита, позволяющая искать и удалять дубликаты файлов.
-С ее помощью можно найти одинаковые картинки, аудио записи, видео, приложение и другие файлы.
-
-Особенности(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 марта 2017Разработчик: Hyperbolic Software.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+История о художнике, который, чтобы пережить личный кризис, отправляется в пустыню. Там он встречает своего двойника - жестокого убийцу. С этого момента главный герой с суицидальных мыслей переключается на поиск возможностей выжить.Производство: США, Atlas Independent, Henceforth Pictures, Henceforth, MICA EntertainmentЖанр: триллерРежиссер: Уильям МонахэнАктеры: Оскар Айзек, Марк Уолберг, Гаррет Хедлунд, Уолтон Гоггинс, Даня Рамирес, Мэтт Джонс, Кайли Роджерс, Фрэн Кранц, Мария Олсен, Луиз Бургуан, Кристофер Нейман, Хейли МагнусПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:33:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41ACDD64AD2E981837C92DECF523AAF230D447E7
+magnet:?xt=urn:btih:69A2AF4C48560A14DA884E657939554A19A2FD7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,25 +209,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110255   (853805) от 02.03.2017
+###  Публикация: 1001007   (855417) от 27.03.2016
 
-Вечерний Ургант (2017.03.01) SATRip
+VA - Зажигательный музон в машину (2016) [MP3|318-320 кб/с] <House, Club, Dance>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853805.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855417.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:21
+01. Loquai — Nightcrawler (09:58)
+02. J.Verner — Sentindo (09:36)
+03. Essential DJ Team — Bad boyz (Club mix) (08:49)
+04. STA — Insomnia (08:42)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 18:29:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55B333F5FBC8B9ACB687E9ECC98C60E78567483D
+magnet:?xt=urn:btih:B110554330F1EEBA0B6EB6C04A70F211A5EA0961
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,28 +238,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110243   (853804) от 02.03.2017
+###  Публикация: 1000841   (855416) от 27.03.2016
 
-Immolation - Atonement (2017) [FLAC|lossless|tracks + .cue] <Death Metal>
+Ivan Moravec, Josef Vlach - Mozart: Piano Concertos K. 449, 488, 503 (1998) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 14 in E flat major, K. 449 
+01. Allegro vivace   08:34
+02. II. Andantino   07:52
+03. III. Allegro ma non troppo   05:42Жанр: Classical, ConcertoПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC8F557EEE1E80138A93FE60957EE0C0DAAFA22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001017   (855415) от 27.03.2016
+
+Victor Merzhanov - Scriabin (12 Etudes op. 8), Rachmaninov (Piano concerto No.3) 1997 [FLAC|Lossless|tracks] <Classical, Piano>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alexander Scriabin 12 Etudes op. 8
+01. C sharp major   01:49
+02. F sharp minor   02:15
+03. B minor   01:58(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97577AA26C15DC3FC9A48A727A5CEA061A9A9815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000786   (855414) от 27.03.2016
+
+The Hillbilly Moon Explosion - With Monsters and Gods (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock'n'Roll, Psychobilly, Rockabilly>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853804.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Distorting Light (03:14)
-02. When the Jackals Come (03:54)
-03. Fostering the Divide (03:27)
-04. Rise the Heretics (03:41)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:53
+01. Heartbreak Boogie
+02. You Miss Something
+03. Jackson (feat. Mark Philips)
+04. Depression(   Читать дальше...   )Жанр: Rock'n'Roll, Psychobilly, RockabillyПродолжительность: 00:43:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:385981694B2BC85B983A57FE9778622C6B5F2314
+magnet:?xt=urn:btih:496F37FF172A54037CC74120A41F8797F88D9CE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -475,21 +325,243 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110305   (853803) от 02.03.2017
+###  Публикация: 1001200   (855413) от 27.03.2016
 
-Телескоп XMM-Newton обнаружил самый яркий и самый далекий пульсар среди всех известных на сегодняшний день
+David & Igor Oistrakh - Bach: Violinkonzerte (BWV 1041/42/43), Vivaldi: Concerto Grosso (Op.3 Nr.8) 1962 [FLAC|Lossless|tracks] <Classical, Concerto>
 
->>Поговорим
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto for violin, strings & continuo No. 1 in A minor, BWV 1041
+01. I. Allegro moderato    04:05
+02. II. Andante    07:31
+03. III. Allegro assai    04:05Жанр: Classical, ConcertoПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2D07D3C63B1C2D48BF8C6464740CAC32483622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000881   (855412) от 27.03.2016
+
+Gershwin - I Got Rhythm, Concerto in F, Rhapsody 2, Preludes, Cuban Overture (Haas, De Waart, Inbal) (2006) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 I Got Rhythm, variations for piano and orhestra
+Piano Concerto in F major
+02 (1) Allegro
+03 (2) Adagio(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC7C8BE97AC7233DB27BE04A133D1BF642A468C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001188   (855411) от 27.03.2016
+
+Khun Narin Electric Phin Band - II (2016) [MP3|320 кб/с] <World, Thai Psychedelia>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855411.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Phua Kao
+2. Phom Rak Mueang Thai
+3. Baisi Sukhwan
+4. Sao Kalasin Lam Phloen(   Читать дальше...   )Жанр: World, Thai PsychedeliaПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A418D6903932DD8B3B0ECAFF722BA976D22D3EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001132   (855410) от 27.03.2016
+
+Liszt Ferenc Chamber Orchestra - Vivaldi: Lute Concertos & Trios (1978) LP [FLAC|Lossless|tracks] <Classical, Baroque>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855410.jpg" />
+</div>
+
+
+###  Подробнее
+
+D-dur Concerto Lantra, Vonoszenekarra Es Csembalora. F. XII.No.15
+01. I. Allegro giusto   03:55
+02. II. Largo    05:02
+03. III. Allegro    02:17Жанр: Classical, BaroqueПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A077B6E4E1C45B4B932E949DEAB3D907CC00E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001002   (855409) от 27.03.2016
+
+NVIDIA Inspector 1.9.7.5 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855409.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA Inspector - это небольшая утилита, предназначенная для разгона, мониторинга и получения сведений о характеристиках видеокарт на базе GPU nVidia. Программа позволяет контролировать частоту GPU, памяти, скорости вращения вентиляторов, напряжения, и т.д.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F965CB7EA5D2FF98A4EF0EB7EBF71BBC754F54C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000903   (855408) от 27.03.2016
+
+Кристофер Шабри, Даниэл Саймонс | Невидимая горилла, или История о том, как обманчива наша интуиция (2011) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы не просто видим (или помним, или слышим) то, чего нет на самом деле, - мы абсолютно убеждены, что наше видение истинно. Эти и подобные им явления авторы называют иллюзиями нашей интуиции.
+Эта книга о том, как рождаются иллюзии, к каким анекдотичным или трагичным последствиям они приводят и как их преодолеть.
+Вы станете участниками забавных и серьезных экспериментов, (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F489E9B34D831D2317B58893229CF5D2DC4C2A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000976   (855407) от 27.03.2016
+
+Рецепты от Поварёнок.ру v2.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение обеспечивает доступ к кулинарным рецептам сайта Поварёнок.ру, добавляемым на протяжении многих лет пользователями сайта. Вы видите объективные оценки, комментарии пользователей - и можете выбрать только проверенные рецепты. Одна из крупнейших баз рецептов - более 100 тысяч штук, все рецепты с фото.Тип издания: FreeРелиз состоялся: 04.02.2016Разработчик: MediaFortПоддерживаемая ОС: Android 2.3.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C8A3BA3CA05EF98DB0BBC3A8659E36A4D8B3E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109955   (855406) от 01.03.2017
+
+EZ CD Audio Converter 5.3.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855406.jpg" />
+</div>
+
+
+###  Подробнее
+
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1E8F48FDB4DA7519CBC0584F45D3F2DE465E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000949   (855405) от 27.03.2016
+
+"Невозможный" двигатель EmDrive становится на один шаг ближе к реальности
+
+>>След.
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_853803.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_855405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рентгеновский космический телескоп XMM-Newton Европейского космического агентства недавно обнаружил новый пульсар, который является чрезвычайно плотной нейтронной звездой, вращающейся с большой скоростью, оставшейся после взрыва массивной звезды. Этот пульсар, NGC 5907 X-1, находящийся в недрах спиральной галактики NGC 5907, является самым ярким среди всех известных (   Читать дальше...   )
+На страницах нашего сайта мы уже не один раз рассказывали о "невозможном" двигателе EmDrive, для работы которого не требуется никакого топлива и который напрямую преобразует в кинетическую энергию электрическую энергию, вырабатываемую солнечными батареями, к примеру. Тяга создается этим двигателем при помощи потоков микроволнового излучения, которые направлены (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -501,28 +573,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110389   (853802) от 02.03.2017
+###  Публикация: 1109943   (855404) от 01.03.2017
 
-VA - Tropical Village Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Вечер с Владимиром Соловьевым (2017.02.28) SATRip
 
->>Electronic
->>Easy listening
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853802.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Don Gorda Project - Do That Again  5:53
-02.  Enrico Donner - Catch a Glimpse  5:56
-03.  Zero Feedback - Deep In The Rain Forest  6:35
-04.  Gorda's Groove - Vocofeeling  5:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:47
+"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 02:36:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2715370C8F3EC7F28A23C7A612B57C5EF3BF460F
+magnet:?xt=urn:btih:F3CEF9B5D3FB52E753A3792AD0FD5E3A2C498EBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,57 +599,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110373   (853801) от 02.03.2017
+###  Публикация: 1109988   (855403) от 01.03.2017
 
-VA - Deep Desire (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lamar Ensemble - Inspirational Shortcut  5:48
-02.  Diario - Beijo Grande  5:40
-03.  Jay Jay & The Snakes - Walk Good  5:55
-04.  Hints Of Soul - The Dreaming State  5:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B04EED9440CD5DA4527566B748E31CAAC82055C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110345   (853800) от 02.03.2017
-
-VA - Empire Records - ANDRS Parody 2 (2017) [MP3|320 Kbps] <Club>
+Muddy Waters - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853800.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Criminal Bass - I Dont Play
-02. Ensaime - Dirty (Original Mix)
-03. Ensaime - All Night Long (Original Mix)
-04. DJ Favorite - Scream (DJ Kharitonov Remix)(   Читать дальше...   )Жанр: ClubПродолжительность: 01:56:32
+01. All Night Long
+02. Mannish Boy
+03. Come to Me Baby
+04. Goodbye Newport Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:32:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D390C709B82CBB24375A46FCE507EA8CA7FC652
+magnet:?xt=urn:btih:76760E4B9785AA5C317302C983624491F1570A87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,28 +628,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110177   (853799) от 02.03.2017
+###  Публикация: 1000967   (855402) от 27.03.2016
 
-VA - Beautiful Lounge Collection Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Проекты - VideoHive - Universe Titles [AEP]
 
->>Electronic
->>Easy listening
+>>Проекты
+>>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853799.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Modern Lounge Heroes - A Journey - Original Mix 6:50
-002. Cool Beach - Destination Sunshine - Original Mix 2:29
-003. AMS - More Than Ever People - Original Mix 6:34
-004. Montgomery - Super - Original Mix 2:45(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:45
+Проект Universe Titles идеально подходит для презентаций, заставок, трейлеров и других производств. Очень прост в настройке. Содержит 8 строк текста, 1 слоган/логотип и 1 заполнитель названия сайта.
+Просто замените Ваш логотип и введите свой текст.
+Используется в Adobe After Effects.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1C0BFB1B321DEA430DA44E99ED4040A05E93020
+magnet:?xt=urn:btih:D0AAD6B1D6A91BB8CC26CE98C96D032425AB50E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,28 +656,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001501   (853798) от 28.03.2016
+###  Публикация: 1110172   (855401) от 01.03.2017
 
-Ton Koopman, Musica Antiqua Amsterdam - Haydn: Complete Harpsichord Concertos (1995) 2CD [FLAC|Lossless|tracks] <Classical, Baroque>
+Н. Браумейстер | Банкетные и гастрономические напитки холодные и горячие (1911) [PDF]
 
->>Классика
->>Камерная (Lossless)
+>>Разное (категория книг)
+>>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853798.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Concerto in F - I. Allegro  9:46
-02.  Concerto in F - II. Largo Cantabile  6:03
-03.  Concerto in F - 3: III. Presto  5:04
-04.  Concerto in G - I. Allegro Moderato  7:42(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 02:38:13
+Пунши, крюшоны, шипучки, бишофы, коблеры, коктэли, баваруазы, оршаты, глинтвейны, лимонады и пр. для вечеринок, пирушек, пикников, балов, парадных обедов и роскошных ужинов.
+Более 400 отборных рецептов.Жанр: Кулинария, РаритетФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43AB370F7B676719C03A0ED65CBB97F42186F315
+magnet:?xt=urn:btih:5AFB6FA0F59A9C4FE546E670DB61A57DE0E4EE3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,85 +683,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001434   (853797) от 28.03.2016
+###  Публикация: 1109623   (855400) от 01.03.2017
 
-Владимир Потапов - Двустволка (2016) [MP3|256 кб/с] <Shanson>
+Василий Гроссман | За правое дело (2013) [MP3]
 
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853797.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Давала и даю
-02. Без даты
-03. Буржуйская походочка
-04. Двустволка(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:26:22
+Роман «За правое дело» — выдающееся произведение о войне по силе правды и таланта, по мощи авторской мысли. В. Гроссман описывает великое «чудо» Сталинграда.
+Роман В. Гроссмана - «За правое дело» - первая часть дилогии. Автор постигает закономерности войны и неизбежность победы над фашизмом, истоки и последствия культа личности, глубинные противоречия жизни. Роман (   Читать дальше...   )Жанр: Военно-исторический романПродолжительность: 31:32:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE3DB03514296F53ECC9BDA8CEE69DA1C9306D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001315   (853796) от 28.03.2016
-
-Exif Editor 1.1.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exif Editor - редактор метаданных фотографий
-Exif Editor - это программа, которая позволяет читать и редактировать EXIF теги многих известных фотоаппаратов.
-Простой и мощный пакетный EXIF и IPTC редактор тегов для изменения или удаления информации метаданных из ваших фотографий. Редактирование осуществляется очень просто и Вы можете добавлять, редактировать, удалять (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 октября 2015Разработчик: Martin NovákПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Немецкий и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B5A44D2272C42BA26023D1B18CCBD75D376A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001244   (853795) от 28.03.2016
-
-Zuzana Ruzickova; - Harpsichord music from England, Spain and Portugal (2012) 2CD [FLAC|Lossless|image + .cue] <Classical, Baroque, Keyboard>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Dowland - Mellancoly Galliard, for lute, P 25    [0:03:00.50]
-02. John Dowland - The Shoemaker's Wife, a Toy, for lute, P 58    [0:01:10.28]
-03. John Dowland - Lady Hunsdon's Almain (Lady Hunsdon's Puffe), for lute, P 54    [0:01:00.70]
-04. Ferdinando Richardson - Pavana (Fitzwilliam Virginal Book)    [0:03:15.35](   Читать дальше...   )Жанр: Classical, Baroque, KeyboardПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89033A90870DD6DD08950D46F234421365168DA
+magnet:?xt=urn:btih:842EEE4ED5874FCCD43FB78B268A6474D23C3D4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

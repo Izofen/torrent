@@ -1,3 +1,90 @@
+###  Публикация: 1201990   (791056) от 27.01.2018
+
+Ben Webster - Three Classic Albums Plus (1954, 1957, 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791056.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tangerine [05:24]
+02. La Rosita [05:06]
+03. Cocktails For Two [02:44](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A563A1BB6AD7ECABE65EFEC9BA552AAD72CBEBBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202015   (791021) от 27.01.2018
+
+John Hammond - Southern Fried (1969) Reissue, 2002, Water [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791021.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shake For Me
+2. Cryin' For My Baby
+3. I'm Tore Down
+4. Don't Go No Further(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6999DC28D9330295E801636AB45F5E1237FAF8B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201918   (790983) от 27.01.2018
+
+Trish Kerr - Clover (2018) [MP3|320 Kbps] <Blues Rock, Jazz Rock, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clover
+02. Three
+03. Never Gonna Get It
+04. Insideline(   Читать дальше...   )Жанр: Blues Rock, Jazz Rock, Jazz, Female VocalПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43841F495DE8B5ECAE5909FAE6AB6FDD959AFC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202064   (790981) от 27.01.2018
 
 Katie Melua / Кэти Мелуа - Secret Symphony (2012) Dramatico, DRAMCD0078, UK & Europe [MP3|320 Kbps] <Jazz, Pop>
@@ -657,93 +744,6 @@ Beth Hart / Бет Харт - Leave the Light On (2003) Koch Records, KOC-CD-824
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12CECDB92D05B8F290A20540DB6B4474E627A087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202409   (790462) от 28.01.2018
-
-Carl Verheyen - Essential Blues (2017) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Take What I Want (3:37)
-02. Someday After A While (4:29)
-03. Stealing Gasoline (4:31)
-04. Dodging The Blues (4:20)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00.39.50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:201DF6BD8F0137FF887F373457C3307FCF156423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202233   (790453) от 28.01.2018
-
-Muddy Waters Tribute Band - Live at Rockpalast (Live, 1996 Loreley Festival) (2018) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clouds in My Heart
-02. Walkin’ Thru the Park
-03. You Can’t Loose What You Ain’t Had
-04. You Don’t Have to Go(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C58174B658FA10D354F6BDFA28385376B50328F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202389   (790452) от 28.01.2018
-
-Beth Hart & Joe Bonamassa - Don't Explain (2011) J&R Adventures, PRAR931391, US [MP3|320 Kbps] <Blues Rock, Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinner's Prayer 4:28
-02. Chocolate Jesus 2:40
-03. Your Heart Is As Black As Night 5:01
-04. For My Friends 4:12(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023DF2A4DF776B5CB7847C97C63A54BA8D05134C
 ```
 
 https://mybot314.ru/tekegram_catalog/

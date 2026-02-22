@@ -1,3 +1,119 @@
+###  Публикация: 1002467   (848994) от 31.03.2016
+
+Lexi Strate - Waves (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamond Eyes
+02. Out Of My Head
+03. Tattoo
+04. Miss Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A144A4B30714CFC7063142DE7091C2591DF4A3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002091   (848990) от 31.03.2016
+
+Krystal Meyers - Make Some Noise (2008) [MP3|320 кб/с] <Electro, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Some Noise (03:14)
+02. Love It Away (03:40)
+03. Shine (03:34)
+04. S.O.S. (03:17)(   Читать дальше...   )Жанр: Electro, Pop RockПродолжительность: 00:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F5F9343A9CE202B6A97FE17991862387290A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111468   (848672) от 05.03.2017
+
+L.E.B. Harmony - Disco Boogie (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Boogie (3:55)
+02. Feeling Strong (8:45)
+03. Childhood Forever (5:09)
+04. Kid's Dance (2:55)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73999E6AFC759C6E55C78A427E886A831344C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002254   (848611) от 31.03.2016
+
+Q-Pow! - We're Only Here For The Party! (2000) [FLAC|Lossless|tracks] <Electronic, Pop, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Holiday    03:43
+02. More & More    03:24
+03. I Wanna Know    03:25
+04. Couldn't Get Away    03:44(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED5931FE6B8B01417DA1D1E95B4099E3AC73012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377676   (848343) от 24.04.2020
 
 Vanesa Martin - 9 albums + 12 singles (2006-2020) [MP3|320 Kbps] <Latin Pop, Rock>
@@ -622,122 +738,6 @@ Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D447F9C107A7E4DFCE122E43C86E8BDFA9BD2DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378728   (844634) от 26.04.2020
-
-Григорий Лепс - Честь имею! Разведка боем (Высоцкий) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я вам мозги не пудрю
-02. Штрафные батальоны
-03. Жил я с матерью и батей
-04. Их восемь, нас двое(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D905D43090A89D8BD19441B8D2EE956F1A7D6665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112190   (844226) от 07.03.2017
-
-Demis Roussos - Complete 28 Original Albums (2016) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844226.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - On the Greek Side Of Mind (1971)
-CD02 - Forever And Ever (1973)
-CD03 - My Only Fascination (1974)
-CD04 - Auf Wiedersehen (1974)Жанр: PopПродолжительность: 27:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B3383117064A315938E15B1CCA22198568B95C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112474   (843306) от 08.03.2017
-
-Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lontano, Lontano
-02. Io Sono Uno
-03. Uno Di Questi Giorni Ti Sposerò
-04. Come Tanti Altri(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0529F16A5BA4064E09D052941BDC7F7E88336C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378965   (843042) от 27.04.2020
-
-a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry Wolf (Extended Version) (8:14)
- 02. We're Looking For The Whales (Live) (3:51)
- 03. I've Been Losing You (Dub) (4:29)
- 04. Manhattan Skyline (Extended Remix) (6:50)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, SynthpopПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EE0EC5DA55EB6311D7F0CC72533D6F9AB4FB91
 ```
 
 https://mybot314.ru/tekegram_catalog/

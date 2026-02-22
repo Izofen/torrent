@@ -1,3 +1,35 @@
+###  Публикация: 185656   (882176) от 25.03.2010
+
+Gil Parris - Blue Thumb (2003) [FLAC|Lossless]<Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Blue Thumb (8:48)
+2. Tears of Goodbye (7:27)
+3. New Beginning (7:24)
+4. There Was a Time (6:30)
+5. Ardent Man Parris (7:19)
+6. Soul Fathers (8:58)
+7. Curved Corner (7:21)Жанр: Jazz
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373148   (882172) от 05.04.2020
 
 Газета | Дача №6 (март 2020) [PDF]
@@ -670,32 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495358   (882092) от 11.09.2021
-
-Coolutils Total Outlook Converter Pro 5.1.1.475 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coolutils Total Outlook Converter Pro – конвертирует электронную почту Outlook с вложениями в PDF, PDF / A, DOC, HTML, TIFF, TXT, EML, MBOX. Он идеально подходит для архивирования, резервного копирования или свободы информационных запросов. Юридические пользователи оценят возможность штамповки бейтов. Присоединенные файлы могут быть преобразованы в целевой формат (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE424150CFDE3B3DEA3574041682596D862282E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1762944   (102888) от 28.11.2024
+
+Chuck Prophet feat. ¿Qiensave? - Wake The Dead (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chuck Prophet - Wake The Dead (3:20)
+02. Betty's Song (3:53)
+03. Give the Boy a Kiss (3:26)
+04. First Came the Thunder (3:58)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADCF205F47DC41EB45DF6ABDB9601B6AE7D7D8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762942   (102883) от 28.11.2024
+
+Blind Ego - The Hunting Party (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hunting Party (5:49)
+02. The Stranger (4:53)
+03. Spiders (5:52)
+04. Boiling Point (5:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C186B1064FC22CE2356775D98D0E4F217E034AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762950   (102882) от 28.11.2024
+
+Half Broke Rising - The Recipe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Buzzard (7:42)
+02. The War Inside (4:55)
+03. The Disown (6:11)
+04. The Show (4:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A30637813978F65FF3A05F7D9289288BDEA3B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762954   (102881) от 28.11.2024
+
+Oz Noy Quartet - Fun One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fun One (6:05)
+02. Solar (5:52)
+03. Ruby My Dear (7:08)
+04. Wee (4:59)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77A80B559194CF02B744680624A01C6868E47B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763052   (102869) от 29.11.2024
+
+Bullet For My Valentine - The Poison (20th Anniversary Edition) (2006) Remaster, 2024, Sony Music Entertainment [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Heavy Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (Live at Brixton) [0:15]
+02 - Her Voice Resides (Live at Brixton) [4:21]
+03 - 4 Words (To Choke Upon) (Live at Brixton) [3:42]
+04 - Suffocating Under Words Of Sorrow (What Can I Do) (Live at Brixton) [3:45](   Читать дальше...   )Жанр: Rock, Heavy Metal, MetalcoreПродолжительность: 02:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3941C27BD2F7C36177BAE2E5AAF91E104B64CFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763030   (102865) от 29.11.2024
+
+Konkhra - Sad Plight of Lucifer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sad Plight of Lucifer (4:30)
+02. Revolution (3:41)
+03. Seven Plagues (5:38)
+04. Nothing Can Save You (4:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DC85371E712120A7090E2D3E5737AEB9B38E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763232   (102852) от 30.11.2024
 
 Tass Petridis - The OG Session (Vol 3) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -571,180 +745,6 @@ Instrumental Jazz Music Ambient - Romanticistic Feelings (Charming Jazz Music) (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83577B344D63DA06FF6BFA2F16B93414A10E95D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822635   (101717) от 07.10.2025
-
-Native James - Confessions Of A Sinner (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raise The Alarm [00:01:06]
-02. Fallen [00:02:35]
-03. Fire Pon Dem [00:02:26]
-04. As The Crow Falls [00:00:37](   Читать дальше...   )Жанр: Rapcore, Nu-MetalПродолжительность: 00:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A127B5BEE7D616A3EF2CE0F65E5DD71B7231251B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822666   (101716) от 07.10.2025
-
-Vladar - The Angel of the Abyss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Having to Talk Destroys the Symphony of Silence [00:03:57]
-02. The Angel of the Abyss [00:04:51]
-03. Cathedral of Contradictions [00:05:29]
-04. Whispers of the Machine [00:05:42](   Читать дальше...   )Жанр: Symphonic Metal, Melodic Death MetalПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE98F9FB0B70CF4AC503ADD5AB8DFD695610A2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764555   (101568) от 07.12.2024
-
-Sexual Music Collection - Sedutopia: Love-Making Jazz, Intimate Vibes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Café de Luxe (4:11)
-02. Soft and Slow (3:33)
-03. Midnight Easy Listening (3:35)
-04. I Love Sax (3:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3859CD9219B5ACEB72F3E264469C120D3303341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764466   (101561) от 07.12.2024
-
-The Rolling Stones - Welcome To Shepherds Bush (Live) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101561.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Shattered (Live) (4:19)
-• 02. It's Only Rock 'n' Roll (But I Like It) (Live) (5:39)
-• 03. Respectable (Live) (3:19)
-• 04. All Down The Line (Live) (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 01:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B0F433CA053C20BF3A2EB068B4885D712CACEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764563   (101559) от 07.12.2024
-
-Above & Beyond - Tranquility Base Vol. 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trance, Progressive House, Progressive Trance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - React [3:37]
-02 - Another Breakdown [3:31]
-03 - From Grey To Light [3:34]
-04 - Chasing Highs [3:37](   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C58DB8EA2A0D8086BA3792A9EF8DD260176887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764562   (101557) от 07.12.2024
-
-Sexual Music Collection, Soft Jazz Mood - Endless Amour: Twilight Glow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Treasured Melodies (4:32)
-02. Jazz Serenade (4:32)
-03. Golden Ballads (4:55)
-04. Melodic Memories (4:32)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59AC49FEBD8E19982295EFD9B48261679224BCC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

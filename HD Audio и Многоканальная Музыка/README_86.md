@@ -1,3 +1,177 @@
+###  Публикация: 1692516   (122519) от 16.01.2024
+
+Myrath - Shehili (2019) [FLAC 24/192|Lossless|tracks] <Middle Eastern Folk, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122519.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Asl
+A2. Born To Survive
+A3. You've Lost Yourself
+A4. Dance(   Читать дальше...   )Жанр: Middle Eastern Folk, Progressive MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4B718E820F99A53875D54D416B7ABC7F9D2CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692275   (122507) от 16.01.2024
+
+Anthem - Studio Albums (20 releases) (1985-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anthem — метал-группа из Японии, основанная в 1981 году в Токио.1985 - Anthem
+1986 - Tightrope
+1987 - Bound To Break
+1988 - Gypsy WaysЖанр: Heavy/Power MetalПродолжительность: 16:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6711036FF2939873896775730D1A71597E5C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692491   (122494) от 16.01.2024
+
+Lair - The Hidden Shiv (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, Sludge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Taken Apart (00:04:38)
+02 - A Human Trench, Pt. 1 (00:05:30)
+03 - Saltlicker (00:06:23)
+04 - Something's at the Door (00:04:51)(   Читать дальше...   )Жанр: Doom Metal, SludgeПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28509FAFDCC92B057D5BEF6A94B4BF8F7E6E0188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692286   (122493) от 16.01.2024
+
+Elegy - Graveflowers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graveflowers
+02. Ship Of Hopes
+03. In Exodus
+04. Mirages(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0999F1D938E589B2DC8DC9A2DAED2016336FE81C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692347   (122489) от 16.01.2024
+
+Hannah Wicklund - The Prize (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell in the Hallway (03:33)
+02. Witness (04:16)
+03. Hide and Seek (04:17)
+04. Lost Love (02:47)(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Female VocalПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3AF2DAA8C2BE8D6E64950D3A4973C0D51D1CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692743   (122344) от 17.01.2024
+
+Bagual - Inhumar (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Psych/Stoner/Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhvmar [00:02:59]
+02. Panteones [00:04:03]
+03. Volcanes [00:06:19]
+04. Monolitos [00:04:33](   Читать дальше...   )Жанр: Heavy Psych/Stoner/ProgПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E450DDEE439BCB1EA963D490BE09E7F3FED2C2BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692697   (122343) от 17.01.2024
 
 Greg Puciato - FC5N (2024) [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Mathcore, Grunge, Sludge, Industrial>
@@ -570,179 +744,6 @@ Caitlyn Smith - I Think of You (The Heartache Collection) (2024) [FLAC 24/44.1, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96906B7FCCFFBA2999FA7257EB08183AA67AA9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693713   (121681) от 21.01.2024
-
-Circus Maximus - Studio Albums (5 releases) (2005-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Circus Maximus — норвежская прогрессив-метал-группа. Основана в городе Осло в 2000 году.2005 - The 1st Chapter
-2007 - Isolate
-2012 - Nine
-2016 - HavocЖанр: Progressive MetalПродолжительность: 04:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB2CB25F947163C6755F7403400E03EC34F3E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693703   (121666) от 21.01.2024
-
-Kari Antila - Dahill Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Toninho (5:19)
-02. Dahill Road (6:02)
-03. Moving Clouds (7:01)
-04. Wild Rooster (6:20)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750EB53EC2B4A473BD20809A80E59C84F1A2B9D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823196   (121583) от 10.10.2025
-
-Collapse 7 - Studio Albums (4 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Collapse 7 - метал-группа из Зальцбурга, Австрия, основана в 2003 году.2004 - In Deep Silence
-2007 - Supernova Overdrive
-2011 - Doomsday Odyssey
-2023 - Human Monster MadnessЖанр: Melodic Death MetalПродолжительность: 03:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A748F49EBDCDB4680C01D90DA1CCA630EB37C80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823154   (121581) от 10.10.2025
-
-Immorium - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Immorium - австралийская метал-группа, основанная в 2008 году в Канберре.2015 - Universum
-2020 - This Too Shall Pass
-2024 - Rose Water BlackЖанр: Melodic Death MetalПродолжительность: 02:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F882FE0E09D050209503E618A4A2890A1EB512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823242   (121517) от 10.10.2025
-
-Neil Young - Neil Young Archives Vol. III 1976 - 1987 (2025) Box Set [FLAC 24/192|Lossless|WEB-DL|tracks] <Country Rock, Roots Rock, Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let It Shine (Live) [4:45]
-02 - Mellow My Mind (Live) [3:13]
-03 - Too Far Gone (Live) [3:16]
-04 - Only Love Can Break Your Heart (Live) [3:05](   Читать дальше...   )Жанр: Country Rock, Roots Rock, Folk RockПродолжительность: 14:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2705BDA712B6A1D91E2E280AE30B6B732B97DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693783   (121497) от 22.01.2024
-
-Jeremy Renner - Love and Titanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky Man (2:57)
-02. The River (3:51)
-03. Wait (3:03)
-04. Love And Titanium (3:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF970C02C6CB6FB724DB7F8E79A252B51B89C6C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

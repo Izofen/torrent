@@ -1,3 +1,32 @@
+###  Публикация: 980852   (954559) от 30.01.2016
+
+Stephen Bennett - Beatles Acoustic Guitar Solos (2005) [MP3|264~268 кб/с (V1)] <New Age, Folk>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eight Days A Week 02:14
+02. A Hard Day's Night 02:28
+03. Hello Goodbye 03:04
+04. In My Life 03:02(   Читать дальше...   )Жанр: New Age, FolkПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524D3F72F0A4F4E40F7E9B3F4CCD98707A71E89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 209464   (954261) от 30.01.2016
 
 VA - Sax & Sex (2000) [APE|tracks+.cue]<Instrumental>
@@ -713,35 +742,6 @@ StoneOcean - Home (2016) [MP3|320 кб/с] <New Age, Dance & Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BC9BA8ECA72DDAE54CE202C8FA79419DD75B4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362314   (949692) от 23.02.2020
-
-Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949692.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:32| 01. We Have a Fan Club?
-|04:19| 02. Entering Camp
-|03:03| 03. I Got Top Bunk
-|03:25| 04. Searching for Symbols(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA332C058E3476838F74D99646FC7D6BD52C840F
 ```
 
 https://mybot314.ru/tekegram_catalog/

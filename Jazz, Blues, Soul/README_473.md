@@ -1,3 +1,32 @@
+###  Публикация: 1429147   (177710) от 05.12.2020
+
+Bud Powell - Birdland (1953) 3CD, 2013, ESP Disk' [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177710.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Theme: Lullaby of Birdland/Announcer Introduction [0:50]
+02. Tea for Two [5:38]
+03. It Could Happen to You [3:34](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 02:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C61D9F3A18361D989F2C987660F7916232C6217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667100   (177625) от 07.10.2023
 
 Jack McDuff - The Concert McDuff (1963 - 1966) 2002, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -716,35 +745,6 @@ Sylvain Kassap Sextet - Octobres (2022) [FLAC|Lossless|tracks + .cue] <Avant-Gar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9A8A329604B4370BFDC46A3F63E3E10F9A5DE40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595264   (175597) от 05.12.2022
-
-Andy Lindquist - Let's Burn It Down (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Burn It Down [00:04:28]
-02. That Train Don't Run Here No More [00:03:49]
-03. Blue Tail Stomp [00:03:26]
-04. 14 Stone [00:03:38](   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E20EF6215B98F781D180C1D0ABA9A9C51C2193
 ```
 
 https://mybot314.ru/tekegram_catalog/

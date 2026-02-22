@@ -1,3 +1,32 @@
+###  Публикация: 1021069   (742074) от 28.05.2016
+
+Julio Iglesias - Un Hombre Solo (1987) [WavPack 2.0|192/32|image +.cue|Vinyl-Rip] <Pop, Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742074.jpg" />
+</div>
+
+
+###  Подробнее
+
+sideA
+A1 Lo Mejor De Tu Vida
+A2 Todo El Amor Que Te Hace Falta
+A3 Intentando Otra Vez Enamorarte(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5051C2F1C5982BD435A5ECB57193AA7862E1746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020931   (742073) от 28.05.2016
 
 Crash (УННВ) - Нитки (2016) [MP3|320 кб/с] <Underground hip-hop>
@@ -656,35 +685,6 @@ IObit Uninstaller - поможет вам быстро и без усилий у
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D96D29B15387749D80E866831A44E24EC508C09E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666055   (741830) от 08.06.2013
-
-Cardiant - Verge (2013) Japanese Edition [MP3|320 кб/с]<Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justice Turns Into Revenge
-02. Thought’s Inception
-03. Heaven’s Calling
-04. Ever Since(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F101547770C2E0E7C7EC4815EDAB475287056DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

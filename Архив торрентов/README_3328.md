@@ -1,3 +1,32 @@
+###  Публикация: 938135   (483946) от 17.09.2015
+
+VA - Trance De Luxe (2015) [FLAC|Lossless|WEB-DL]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mykel Mars - Starlight (5:45)
+02. Charles MC Thorn - Oxydizing (anthem radio mix) (3:20)
+03. Lakes - Predator (radio edit) (3:18)
+04. Filtercut - Flash (radio mix) (3:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F960BCF6AE156096F95455BF0633BFF3037AC51D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938185   (483945) от 17.09.2015
 
 Wise Care 365 Pro 3.85.343 Final + Portable [Multi/Ru]
@@ -658,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5041E69CC1DB296FF20395CA9830CF84F2E4E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938136   (483747) от 17.09.2015
-
-SuperDuper! 2.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483747.jpg" />
-</div>
-
-
-###  Подробнее
-
-SuperDuper!  - Утилита для клонирования жесткого диска, а так же для создания/восстановления резервных копий данных. С помощью SuperDuper! можно делать периодические бэкапы важной информации, а функция клонирования позволяет делать точные копии диска, что будет полезным при переносе системы с одного компьютера на другой. Для автоматического выполнения бэкапов можно (   Читать дальше...   )Тип издания: MacOS X SoftwareРелиз состоялся: 16 сентября 2015Разработчик: Shirt-pocketПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748939D3D9F974B6E3021D11C5B4E7952B3EB753
 ```
 
 https://mybot314.ru/tekegram_catalog/

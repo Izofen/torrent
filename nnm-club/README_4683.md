@@ -1,77 +1,23 @@
-###  Публикация: 1497517   (864871) от 22.09.2021
+###  Публикация: 999101   (866377) от 21.03.2016
 
-Журнал | Grazia [Italia] №38 (сентябрь 2021) [PDF] [It]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grazia — итальянское женское издание, выпускаемое еженедельно компанией Arnoldo Mondadori Editor с 1938 года.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53EE792D292640E14A0264FE0758D987D08F088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497450   (864870) от 22.09.2021
-
-Herb Alpert - Catch The Wind (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slick
-02. Catch The Wind
-03. Eleanor Rigby
-04. Dance With Me(   Читать дальше...   )Жанр: Smooth Jazz, Pop JazzПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182F1F26EC58130D01CF8D90E1026F2BD11FDE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497407   (864869) от 22.09.2021
-
-Уильям Арнц и др. | Что мы вообще знаем? (2012) [MP3, Людмила Ларионова]
+Поль Брег и др. | «Энциклопедия народной медицины» (2007) [MP3]
 
 >>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864869.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866377.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Авторы очень доступно и увлекательно показывают, что квантовая физика, наука о мозге, медитация и магия - дисциплины, предназначенные не только для горстки избранных. Вдумчиво прочитав эту книгу, вы сможете изменить свой взгляд на мир, а это, как утверждают и ученые, и духовные учителя, - первый шаг к тому, чтобы стать хозяином своей жизни, творцом своей реальности. (   Читать дальше...   )Жанр: Повседневная реальностьПродолжительность: 12:45:47
+Данная энциклопедия - это полный сборник методов лечения и оздоровления человека, созданный нашими предками. Мультимедийная оболочка позволяет быстро и удобно получить нужную информацию, упорядоченную по заболеваниям, средствам и различным методикам.
+Лечение лекарственными растениями и продуктами пчеловодства, все виды массажей, глино- и грязелечение, лечение мумие, (   Читать дальше...   )Жанр: ЭнциклопедияПродолжительность: 38:29:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E02E5BD54AD9FE01BE492B4DDC11B9E749A6485
+magnet:?xt=urn:btih:8FE75C762B3B81B5C9C2E02639EE65F2B9F953BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,136 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497349   (864868) от 22.09.2021
+###  Публикация: 999008   (866376) от 21.03.2016
 
-Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастеру Ип Ману снова приходится использовать вин-чун по прямому назначению, когда бандитская группировка пытается подмять под себя местную школу.Производство: Китай, Гонконг / Golden Harvest Company, Dreams Salon Entertainment Culture, Henan Film & TV Production Group Henan Film StudioЖанр: Боевик, драма, биография, историяРежиссер: Уилсон ИпАктеры: Донни Йен, Линн Хун, Макс Чжан, Майк Тайсон, Патрик Там, Карена Нг, Луис Чхён, Кент Чэн, Люн Ка-Янь, Дэнни ЧаньПеревод: Дублированный , Многоголосый профессиональныйЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), английскиеПродолжительность: 01:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6C51447CB7CBA05FB9585B367A0309A354AC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497418   (864867) от 22.09.2021
-
-Art Blakey & The Jazz Messengers - Vol. 2: Mission Eternal (1973) 1995, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gertrude's Bounce [4:47]
-02. Siempre Mi Amor [4:55]
-03. Mission Eternal [12:12]
-04. Moanin' [5:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801D9BB5A2D09D7AA188349FCF07C96F2A097105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497482   (864866) от 22.09.2021
-
-Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастеру Ип Ману снова приходится использовать вин-чун по прямому назначению, когда бандитская группировка пытается подмять под себя местную школу.Производство: Китай, Гонконг / Golden Harvest Company, Dreams Salon Entertainment Culture, Henan Film & TV Production Group Henan Film StudioЖанр: Боевик, драма, биография, историяРежиссер: Уилсон ИпАктеры: Донни Йен, Линн Хун, Макс Чжан, Майк Тайсон, Патрик Там, Карена Нг, Луис Чхён, Кент Чэн, Люн Ка-Янь, Дэнни ЧаньПеревод: Дублированный, Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), английскиеПродолжительность: 01:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54CE0CAF98BE60D9D491B01F9CDBFCCAD226E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497396   (864865) от 22.09.2021
-
-Цвик Катерина | Цикл "Цвик Катерина - Корпулентные достоинства, или Знатный переполох" Книга 1-2 (2021) [MP3, Людмила Широкова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864865.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Удар по голове кирпичом лучше любого телепорта! Вот только кто бы мог подумать, что, обретя новую жизнь, я попаду в тело молоденькой княжны необъятных размеров и весомых достоинств? Женихи от сомнительного счастья носы воротят, собственная сестра с ненавистью называет толстухой, а маменька выражает любовь булочками!
-Но когда у меня вдруг просыпается магия, которой (   Читать дальше...   )Жанр: Любовное фэнтези, Попаданцы, Юмористическое фэнтезиПродолжительность: 18:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DC390B94DE3BB5B4A0F29D260BB6928EA911EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497547   (864864) от 22.09.2021
-
-Kygo - Live @ Sunnmore Alps, Norway (2021-03-05) [MP3|320 Kbps] <House>
+Скрывающиеся / Hidden Away (2013) HDTV [H.264/1080i]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864864.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kygo & Valerie Broussard – The Truth (Intro Edit)
-02. Kygo & Donna Summer vs. Billy The Kit – Hot Stuff vs. I’ve Seen It All (Kygo Mashup)
-03. Kygo & Jamie N Commons – Feels Like Forever
-04. Kygo & Sasha Sloan – I’ll Wait(   Читать дальше...   )Жанр: HouseПродолжительность: 01:02:12
+Спасаясь от домашнего тирана, главная героиня вместе с дочерью инсценирует свою смерть. Спустя восемь лет страхи остались в прошлом, жизнь наладилась, вместе с подросшей девушкой они счастливо живут в фешенебельном Палм-Спрингсе. И как это обычно случается в кино, обманутый муж узнает о коварной подставе и жаждет мести.Производство: США, Hybrid, Production Media GroupЖанр: Триллер, Драма, ДетективРежиссер: Питер СалливанАктеры: Эммануэль Вожье, Иван Сергей, Шон Патрик Флэнери, Элли Гонино, Элизабет Рём, Томас Калабро, Кайла Кенеди, Кэлвин Бартлетт, Кайл Джонс, Холли ХершПеревод: Многоголосый закадровый (AMedia)Продолжительность: 01:23:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B56BB91533EB53B465C3B50F55C8C7246FC69BCD
+magnet:?xt=urn:btih:2B13DE94AD50319CEE9E657F10D1AA6D050FC996
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,28 +51,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108188   (864843) от 24.02.2017
+###  Публикация: 999189   (866375) от 21.03.2016
 
-Eddie "Lockjaw" Davis - Quartet (1985) 2000, Storyville Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+Jean Rondeau - Vertigo (2016) [FLAC|Lossless|tracks] <Classical>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Классика
+>>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864843.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Just Friends [06:55]
- 02.Out of Nowhere [08:47]
- 03.Take the 'A' Train [07:30]
- 04.S 'Wonderful [06:12](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:07:46
+01. Premier livre de pieces de Clavecin, (1706), Suite in A Minor, RCT 1: No 1 Prelude
+02. Pieces pour clavecin, Book 1 (1746): No 12 Allemande
+03. Pieces de clavecin (1724), Suite in D Major, RCT 3: No 1 Les Tendres Plaintes - Rondeau
+04. Pieces de clavecin (1724), Suite in D Major, RCT 3: No 2 Les Niais de Sologne - Doubles des Niais - Autre Double(   Читать дальше...   )Жанр: Classical / Клавесин солоПродолжительность: 00:58:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81FFC3BF5B474E6E665A91F64AE0A0538F856606
+magnet:?xt=urn:btih:04D97D6C5312ECC90EC12466F5A8237515D6BD95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,28 +80,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107816   (864842) от 24.02.2017
+###  Публикация: 999011   (866374) от 21.03.2016
 
-Футбол. Лига Чемпионов УЕФА 2016-2017. 1/8 финала. 1-й матч. Порту (Португалия) – Ювентус (Италия) (22.02.2017) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
+Проекты - RocketStock - Astoria [AEP]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Проекты
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864842.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22 февраля 2017, среда. 22:45 МСК
-Лига Чемпионов УЕФА 2016-2017. Плей-офф
-1/8 финала. 1-й матч
-(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:45:00
+Astoria поддерживает 54 пользовательских фото-видео заполнителей, а также 9 пользовательских заполнителей для текста. Этот проект идеально подходит для свадьбы, семейных и туристических слайд-шоу, а также промо продукта.
+Настройте цвет и фон, чтобы соответствовать вашему стилю, и пусть эта захватывающая 3D-анимация воплотит Ваш проект в жизнь!
+Используется в Adobe (   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2311DBF88D36EF5FA3F6D1DF1C59C07C0CD6E2E
+magnet:?xt=urn:btih:AD4A7BCC7CC36EB6F20EC20D71F135A8D2FEBA53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108125   (864841) от 24.02.2017
+###  Публикация: 999005   (866373) от 21.03.2016
 
-John Hicks - Something To Live For: A Billy Strayhorn Songbook (1998) HighNote [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+Проекты - RocketStock - Grove [AEP]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Проекты
+>>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864841.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Something to Live For [05:47]
- 02.Daydream [06:45]
- 03.Medley: Lotus, Blossom [04:12]
- 04.Blood Count [07:05](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:06:43
+Grove-это красочный, оптимистичный проект, включающий в себя три различные версии анимации.
+Можно использовать как логотип, начальную или финальную видео-заствку, или как визитную карточку фотографа, компании и пр.
+Проект прост в настройке. Можно настроить цвета, отрегулировать толщину рамок, изменить интенсивность света.
+Добавьте Ваш логотип, перетащите фото или (   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F84EEB8837B0345E235A6C0F6A6B14FB5074827
+magnet:?xt=urn:btih:7AB1319F77B5F6E7767BA2E5F57618A3AD3AA1FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,28 +137,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108231   (864840) от 24.02.2017
+###  Публикация: 999216   (866372) от 21.03.2016
 
-Michael Dease - All These Hands (2017) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
+Проекты - Fashion Showcase [AEP]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Проекты
+>>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864840.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Creole Country
-02. Delta City Crossroads
-03. Good & Terrible
-04. Territory Blues(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:65:53
+Проект для создания пояснительных ценников на товар.
+Проект предназначен для редактирования в AE.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F165ED67FDAE4E81FF486E9435A0E0C637FD4EFC
+magnet:?xt=urn:btih:5EDF9DFB598571D7CD36311D1AC331192513C429
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,28 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108122   (864839) от 24.02.2017
+###  Публикация: 999087   (866371) от 21.03.2016
 
-John Hicks - Nightwind: An Erroll Garner Songbook (1999) HighNote [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+Джудит Блэклок | Уроки флористики. Букеты и композиции.  Практические советы по аранжировке живых цветов (2003) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Разное (категория книг)
+>>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864839.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Tribute To EG [03:00]
- 02.Misty [06:24]
- 03.Paris Cries [04:25]
- 04.Paris Lover [05:26](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:53:21
+Перед вами книга об аранжировке цветов. В ней вы найдете очень конкретные советы и инструкции о том, как правильно выбрать цветы и декоративную зелень, какие приспособления и аксессуары необходимы для создания композиций, как максимально продлить жизнь вашей аранжировке. Пользуясь советами автора, вы сможете составить прекрасный букет для друзей или создать аранжировку (   Читать дальше...   )Жанр: Флористика, дизайнФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1919B988BB3FD39CB7A47E71DBD0B07B0FD1412
+magnet:?xt=urn:btih:A1F46A610AB0C7FE75A6D91DC963B8704D8D9609
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,27 +190,137 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108252   (864838) от 24.02.2017
+###  Публикация: 1107874   (866370) от 23.02.2017
 
-Tijerina - 2 Album (2009 - 2010) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+Л.Д. Троцкий | Новый курс (1924) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая брошюра выходит со значительным запозданием: нездоровье помешало мне выполнить работу более своевременно. Но, в конце концов, вопросы в протекавшей до сих пор дискуссии только поставлены. Вокруг этих вопросов, внутрипартийного и хозяйственного, подняты в дискуссии тучи пыли, которая во многих случаях образует почти непроницаемую завесу и жестоко ест глаза. (   Читать дальше...   )Жанр: история, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA34D59C4E4DED9CD536528F7383A5DFB3A384A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107888   (866369) от 23.02.2017
+
+Газета | 1000 секретов [Украина] №3 (февраль 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866369.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A620CEFAD81030C0058BD937B0B169D9DF6175C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108012   (866368) от 23.02.2017
+
+VA - The Sweetest Taboo Vol.3: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Montecristo - Hello Samantha
+02. Key Of Dreams Fiftheen - Welcome Go Back
+03. Bortolotto Leonardo - A Kiss to Build a Dream On
+04. Key Of Dreams - Boogie Forever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5CD92B83D8E6F04A40BB9CC2EEBB846EA2F53C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107673   (866367) от 23.02.2017
+
+VA - Танцевальная зима. Выпуск № 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klingande Feat. M-22 - Somewhere New 3:28
+002. The Weeknd - Love To Lay 3:44
+003. Wisin - Vacaciones 3:59
+004. The Chainsmokers Feat. Xylo - Setting Fires 4:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4155DD51E7095037542E41F392BE6DAFB0BC68A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107753   (866366) от 23.02.2017
+
+Patrik Jansson Band - 2 Album (2011, 2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864838.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866366.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Список альбомов:
-2009 - Walk This Road
-2010 - Meant To BeЖанр: Blues-RockПродолжительность: 01:27:35
+2011 - Patrik Jansson Band
+2014 - Here We AreЖанр: Blues, Blues-RockПродолжительность: 01:28:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F406C4AE96A2AEC44E4BC8C060AFE0A3B50F32DF
+magnet:?xt=urn:btih:A73DB0449FBF89FA741DF06B577FFA2C3E7EDFE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,28 +328,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108240   (864837) от 24.02.2017
+###  Публикация: 1107674   (866365) от 23.02.2017
 
-Omer Klein - Sleepwalkers (2017) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Post-Bop>
+VA - Козырная песня (2017) [MP3|256 Kbps] <Шансон>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864837.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wonder and Awe
-02. Sleepwalkers
-03. Blinky Palermo
-04. One Step at a Time(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:59:19
+001. Михаил Борисов - За Друзей 2:54
+002. Александр Келеберда - Кореш Мой Кирюха 4:17
+003. Дмитрий Прянов & Наталья Сколубович - Меня Полюби 2:52
+004. Вячеслав Московкин - Зачем Ходили Хулиганы 2:59(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92702B34338FBF6701319A6C956F4FF6519F6F8D
+magnet:?xt=urn:btih:F5A98A76A40DC58E2BA183E12DE3180785748CA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,28 +357,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108354   (864836) от 24.02.2017
+###  Публикация: 1107903   (866364) от 23.02.2017
 
-VA - Chillout Room (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Газета | 1000 секретов [Украина] №2 (январь 2017) [PDF]
 
->>Electronic
->>Easy listening
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864836.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Robien M - Amour 5:58
-002. Victima - Silent Scream 5:49
-003. Sad radio on Cassini - Northern Wind 5:47
-004. MBogdanov - Atmosphere 5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:47
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53D16B36665B5007610B28CFF7933F4372E56093
+magnet:?xt=urn:btih:64C5D6F4DC298FBAB7DE1E5029FDDCEF1BF9162F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,28 +383,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108108   (864835) от 24.02.2017
+###  Публикация: 1107896   (866363) от 23.02.2017
 
-Nils Petter Molvaer - Baboon Moon (2011) Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+Л.Д. Троцкий | Что же дальше? (Итоги и перспективы) (1917) [DJVU]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864835.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Mercury Heart [05:56]
- 02.A Small Realm [03:22]
- 03.Recoil [05:13]
- 04.Bloodline [04:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:20
+Со дня наступления на внешнем фронте, с 18-го июня, началось отступление революции на фронте внутреннем. Это отступление, руководимое официальной „демократией", приняло после дней 3—5 июля панический характер. Сейчас оно представляет несколько более упорядоченный вид, не останавливаясь, однако, ни на один час. Война на наших глазах пожирает революцию. А так (   Читать дальше...   )Жанр: история, публицистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C04C76F17A032A85EF0100F959BDB10FACEDFA5
+magnet:?xt=urn:btih:A1C9958D2762D2AD16142831D6E04A16D9113FFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,202 +409,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108036   (864834) от 24.02.2017
+###  Публикация: 1086085   (866362) от 23.02.2017
 
-VA - Whenever Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864834.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Don Gorda Project - Count The Clouds 5:39
-002. Cane Garden Quartet - Sea Jam 5:24
-003. Enrico Donner - Catch A Glimpse 5:57
-004. Baghira - Happy Piano 5:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCF4DDD268ECE36678912210F2A15582AB93BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107823   (864833) от 24.02.2017
-
-Футбол. Лига Чемпионов УЕФА 2016-2017. 1/8 финала. Обзор Первых матчей. День 4-й (22.02.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864833.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 февраля 2017, среда
-Обзор Первых матчей 1/8 финала Лиги Чемпионов УЕФА 2016-2017.
-День 4-й:
-(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: Русский (Михаил Моссаковский)Продолжительность: 00:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6F0212FD3BF3E7B9FEE56667A98001AD440ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108119   (864832) от 24.02.2017
-
-Jean Goldkette And His Orchestra - Victor Recordings (1924-1928) 2001, Trans Atlantic Radio [FLAC|Lossless|tracks + .cue] <Early Jazz, Dance Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's The Blues [02:48]
- 02.I Didn't Know [03:10]
- 03.After I Say I'm Sorry [03:18]
- 04.Dinah [03:07](   Читать дальше...   )Жанр: Early Jazz, Dance BandПродолжительность: 01:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C71FFD3D6732C255713A4DFF9DA2E91A64FA0EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108273   (864831) от 24.02.2017
-
-Belmont Blues Kingz - Blues in Sonoma (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rhythm-&-Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Jam (1:52)
-02. Have A Good Time (2:30)
-03. Everybody's Fishin' (3:35)
-04. Drugs Guns And Violence (4:04)(   Читать дальше...   )Жанр: Blues, Rhythm-&-BluesПродолжительность: 00:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795D6791CBF355AA2599B00D542FF9BD5811F073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108110   (864830) от 24.02.2017
-
-VA - Electronic Dance Music Vol.14 (2017) [MP3|320 Kbps] <Trance, Tech Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ALX Project - Searching Sunlight (Original Mix)  8:49
-02.  Renegade System - Cloudwalker (Alan Wyse Remix)  6:39
-03.  DJ Kay - Waterfall (Original Mix)  8:32
-04.  Aaron Watton - Back To Reality (Brannock Remix)  6:52(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 03:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC842AA7BD47353FEB7F12B6853BCB3D5E14D21D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108075   (864829) от 24.02.2017
-
-VA - Creations Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Redlounge Orchestra - String Thing  4:40
-02.  Blue Vibes - In The Cool Drazer  5:15
-03.  Dyodho - The Land Of Sinead  8:33
-04.  Akilam - Beauty Language  6:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E4932841F09F65D10F4701A633D667E001358E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999516   (864828) от 22.03.2016
-
-Calendar 366 Plus 1.3.0 [Multi]
+TextSoap 8.3.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864828.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866362.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Calendar 366 Plus - календарь событий и напоминаний для меню бара
-Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарям, а также сделает более легким управление  событиями и напоминаниями.
-
-Нажмите на иконку и получите (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 марта 2016Разработчик: n.spektorПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и Испанский
+TextSoap  для Mac OS - Поможет подчистить текстовые документы различных форматов. TextSoap удалит из текста ненужные символы, пробелы и отступы. Грамотно отформатирует параграфы и устранит множество других проблем и ошибок в оформлении, позволив придать документу желаемый, опрятный вид. TextSoap автоматически исправляет множество проблем и ошибок в тексте, экономя (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 февраля 2017Разработчик: Unmarked Software, LLCПоддерживаемая ОС: Mac OS X 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2863453FC3C7DD01FBDAE17E7032F04E786598A
+magnet:?xt=urn:btih:80B86C0CE9E91F3B528B135B3419BD8161920C01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +435,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 999360   (864827) от 22.03.2016
+###  Публикация: 1107779   (866361) от 23.02.2017
 
-VA - Sexual Healing Lounge: Best of Erotic Tandra Cafe for Lovers (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+Газета | 1000 рецептов №3 (март 2017) [PDF]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864827.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pattern Mixer – Sex at the Beach – Dowbeat Buddha Chill and Tandra Mix
- 02. Vegan T-Bones – Dirty Mind – Season 6 Mix
- 03. Urban Felix – Watch Me – Intimate Shower Relaxation Mix
- 04. Guilty by Innocence – Thief of Heart – Fading Lights of Sexyness Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:21
+«1000 рецептов» - красочное издание, посвященное кулинарии. О том, что кулинария - настоящее искусство, известно всем. И чтобы соприкоснуться с ним, достаточно открыть журнал, выбирать интересные рецепты, и погрузиться в процесс творчества, с полной уверенностью в том, что результат будет превосходным!Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D459BF1A87AE81AF7DB60FCC031A4B002774A720
+magnet:?xt=urn:btih:9983DE3EBDDA7791DFE5B5B95BCDCF045AA149D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,25 +461,245 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 999551   (864826) от 22.03.2016
+###  Публикация: 1107547   (866360) от 23.02.2017
 
-Александр Коноплин | Шесть зим и одно лето (2001) [FB2]
+Monster Energy NASCAR Cup Series 2017 / The Clash / Daytona / Гонка /  (2017) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864826.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роман «Шесть зим одно лето» – лагерная проза, вобравшая в себя воспоминания А. Коноплина; начат после освобождения, в 1954-м году, закончен сорок два года спустя, в 1996-м году.Жанр: Советская классическая проза, Биографии и МемуарыФормат: FB2
+Внезачетный этап Monster Energy NASCAR Cup Series Advance Auto Parts Clash at Daytona (75 laps, 187.5 miles).Телекомпания: FOXЖанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 1h 26mn
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7D4F73F94C8D5D05273481E26F776C5BD8D3D8A
+magnet:?xt=urn:btih:7D03FB650B540B6242AF741D6B4A08BB10C4C940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107670   (866359) от 23.02.2017
+
+Л.Д. Троцкий | Пять лет Коминтерна (1924) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866359.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине 1924 г. Троцкий опубликовал книгу «Пять лет Коминтерна», в которую включил свои доклады и выступления на первых четырех конгрессах Коминтерна, а также посвящённые Интернационалу статьи и выступления. Предисловие к книге автор посвятил попыткам объяснения причин поражения германского пролетариата в 1923 г., причем продолжал настаивать, что в Германии в (   Читать дальше...   )Жанр: история, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFABF1B1181705AE89541EEEE86C4B32112E3CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107544   (866358) от 23.02.2017
+
+Формула-Е 2016-2017. RD 03. Гонка [2016-2017, Автоспорт] (2017) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап FIA Formula E Championship состоит из двух сессий свободных заездов (45 и 30 минут соответственно), квалификации и гонки.
+
+Квалификация состоит из 4 сегментов по 6 минут, по итогам которых определяется пятерка гонщиков, показавших лучшие результаты. Среди них разыгрываются места с первого по пятое в Суперпоуле (один быстрый круг). В квалификации гонщики могут (   Читать дальше...   )Телекомпания: 5HDЖанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 55mn 5s
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8D4DEAEF5054B0599F1A237192C090AD731CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107875   (866357) от 23.02.2017
+
+Business Template Lab - Templates for Pages 3.1.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Business Templates-  профессиональные и стильные бизнес-шаблоны для Pages.
+Business Templates представляет собой прекрасный комплект из 455 шаблонов для Pages, начиная от визитных карточек и информационных бюллетеней, брошюр, календарей,  товарных чеков и счетов,  заканчивая различными формами для менеджемента и других публикаций.
+
+Используйте шаблоны одной страницы, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 февраля 2017Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B71A5FB1174F0CFCCD453FA6A8BDD4997003DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107504   (866356) от 23.02.2017
+
+VA - Chilltrap Vol.9 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Chilltrap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866356.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Crystal Skies - Long Ago (Ft. Q'aila) 4:02
+002. Danelle - Paradise 3:34
+003. Tritonal & Paris Blohm Feat. Sterling Fox - Colors (Saymyname Remix) 3:54
+004. Unlike Pluto Feat. Michelle Buzz - Found You 3:27(   Читать дальше...   )Жанр: ChilltrapПродолжительность: 01:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC8643B367E562D12E5D4D7636FDF854D473CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107122   (866355) от 23.02.2017
+
+Максим Горький | Как я учился (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866355.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу рассказа положена речь, которую М.Горький произнёс 28 мая 1918 года в Петрограде на митинге в обществе «Культура и свобода». Речь начиналась словами: «Я расскажу вам, граждане, о том, что дали книги моему разуму и чувству. Читать сознательно я научился, когда мне было лет четырнадцать...» Несколько раз произведение переиздавалось под заглавием «Как я учился» (   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D4E0E98F0B8B5D8C25171D5E452788DAE44473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107509   (866354) от 23.02.2017
+
+Владимир Короткевич | Черный замок Ольшанский (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866354.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Черный замок Ольшанский. Месяц ныряет в тучах. Башни во мраке туманные видят сны о былом дремучем...»
+Историк и писатель Антон Космич пытается раскрыть тайну старинного пергамента, рассказывающего о спрятанных в подземелье Ольшанского замка сокровищах. Но эти сокровища ищут и другие.Жанр: Современная прозаПродолжительность: 17:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C31B18FB9343A5DC21B61D0E02BADE65D41212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107916   (866353) от 23.02.2017
+
+Джоанна Рок | Идеальное свидание (2017) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешный тренер Демпси Рейно живет футболом, его цель – привести свою команду к победе в Суперкубке. Накануне открытия сезона его личная ассистентка и подруга детства Аделаида Тибодо заявляет о своем увольнения, так как хочет основать собственную фирму по созданию одежды и аксессуаров для футбольных фанаток. Чтобы удержать ее, Демпси во всеуслышание объявляет об (   Читать дальше...   )Жанр: Зарубежные любовные романы, Современные любовные романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AE04E10997D8D38E09A704546FC7F5988A0C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107934   (866352) от 23.02.2017
+
+Craig Connelly - One Second Closer (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Craig Connelly - Alive  4:41
+02.  Craig Connelly feat. Emma Connelly - We Are  6:52
+03.  Craig Connelly feat. Kat Marsh - Light The Way  4:56
+04.  Craig Connelly feat. Jessica Lawrence - How Can I  6:34(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC4EA9200D0EA7243153CA9175BD6770AF92F1DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

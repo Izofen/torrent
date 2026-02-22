@@ -1,3 +1,32 @@
+###  Публикация: 1246016   (465653) от 09.09.2018
+
+Clutch - Book of Bad Decisions (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465653.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gimme the Keys (3:33)
+ 2. Spirit of '76 (3:39)
+ 3. Book of Bad Decisions (3:23)
+ 4. How to Shake Hands (3:52)(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C379579DB9535DFA5552731A802B8AC227A2F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 387589   (465278) от 14.09.2011
 
 Heavens Edge - Heavens Edge (1990) Remastered /2010, Rock Candy Records/[FLAC|Lossless]<Melodic Hard Rock>
@@ -721,35 +750,6 @@ H.E.A.T - Force Majeure (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AB415B4709E29415734292BDD910BD8B4728B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408965   (451602) от 14.09.2020
-
-Arctic Rain - The One (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Of My Life (04:15)
-02. Lost (04:01)
-03. Friends (04:09)
-04. Night After Night (04:34)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5AC71A7027EDFE4AFEFE0C932E6670D23614A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

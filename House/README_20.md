@@ -1,3 +1,90 @@
+###  Публикация: 1114919   (830070) от 16.03.2017
+
+VA - Never Miss A Beat (25 Crazy Deep-House Tunes) Vol.2 (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  House Vicious - Summer Leaves (Original Mix)  3:19
+02.  Chada - Through The Bar Line (Original Mix)  3:06
+03.  Julian Smith - Lacetti (Original Mix)  11:41
+04.  Tommy Harmond - Stay Together Forever (Extended Mix)  3:32(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375D04956B4F0A6737F6DB54AD0F0B0E1FEDBBBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114910   (830065) от 16.03.2017
+
+VA - Best Of Deep House 2017 Vol.02 (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Justin Oh - Good Morning (Claes Rosen Remix)  6:51
+02.  Dezza - Brit  5:49
+03.  Eskai - Tides  5:16
+04.  Dan Sieg - Everything U Need  5:56(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD91578171B0727CDCFAC0E9CE6DD5B7C086A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114856   (830063) от 16.03.2017
+
+VA - The Fitness Series Vol. 2 (2017) [MP3|320 Kbps] <Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norgzki - Butterfly Effect (Original Mix) 06:54
+02. Oliver Marks - Night Lover (Original Mix) 07:49
+03. Dark By Design - Words Are Not Enough (Original Mix) 06:47
+04. Cut-Up - Time To Rock (Original Mix) 06:17(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C003A5E6739A6ECE659587AD84F059F1DC8147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115317   (828257) от 17.03.2017
 
 VA - Black Hole House Music 03-17 (2017) [MP3|320 Kbps] <House, Progressive House>
@@ -664,93 +751,6 @@ VA - Progressive House Components (2016) [MP3|320 кб/с] <House, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A78ABCD29EBB23F93D86A0A6C78ABDDCEAC223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007754   (819900) от 16.04.2016
-
-VA - Venera Music Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Skvortsov - Into the Unknown 06:45
-02. Alex Greenhouse - Everyday U Need a 5un5hine 09:02
-03. Anton Seim - Pleasure Time (Manchus Remix) 07:00
-04. Argonautica - Counterpoison 05:13(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D43E96ED01C9977155597B16CC34BE9E0459E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007819   (819899) от 16.04.2016
-
-VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mykel Mars - White Beach (DJ Absinth EDM Edit) 03:20
-02. Tony Wong - Born for EDM (Muscle Mix) 03:37
-03. The Betatesters - Drop That (EDM Cardio Mix) 03:24
-04. Robby Schulz - Breathtaking (EDM Workout Anthem) 04:32(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 02:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256FBBBD829D6636AC224537A1BD9401F41E6A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007883   (819898) от 16.04.2016
-
-VA - The Best Progressive Hits Vol.5 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luck Out - Asylum of Love 06:20
-02. Jimmy Roqsta - Eavesdropping of Aliens 05:37
-03. Ivanshee - Clarity 07:21
-04. Haxxy - You Not See, but They Do Exist 10:28(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905F3598057C5474077BFE4DE6BA0B6183896E44
 ```
 
 https://mybot314.ru/tekegram_catalog/

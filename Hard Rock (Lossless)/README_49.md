@@ -1,3 +1,32 @@
+###  Публикация: 1560670   (518794) от 01.07.2022
+
+The Warning - Error (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 404 [00:56]
+02. DISCIPLE [03:40]
+03. CHOKE [03:51]
+04. ANIMOSITY [04:06](   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092261ED317A3E16D5B3B5807A01552C8A5B9B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241799   (518292) от 19.08.2018
 
 Johnny Gioeli - Deen Castronovo - Set The World On Fire (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -722,35 +751,6 @@ Gillan - Toolbox (1991) [FLAC|tracks + .cue]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3589BFA02B26D93326BFB1EE84EFCA7E9708666D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565180   (496702) от 22.07.2022
-
-Dreamtide - Drama Dust Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop Being Deep
-02. Spin
-03. Around
-04. Ni Dos Ni Agua(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E04D27B5B0D61342BC62F895DB8C1F650FC22D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

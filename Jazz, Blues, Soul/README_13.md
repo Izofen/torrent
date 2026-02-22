@@ -1,3 +1,90 @@
+###  Публикация: 1437938   (1041693) от 06.01.2021
+
+Mick Clarke - Relentless Boogie Pt. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Settle on It (4:32)
+02. Break It Down (4:34)
+03. Little by Little (5:25)
+04. Rollin' on (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7098CA41886775B775C4784CCD6CD32AABB2D124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437823   (1041689) от 06.01.2021
+
+Bad Mileage - A Bridge Too Far (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Checking up on my baby (04:44)
+ 02. Got my eyes on you (03:46)
+ 03. Cry for me (04:38)
+ 04. Got home last night (04:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2395BEEFC79CF80F95854168E8B50D2BB8AD7C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611086   (1041680) от 10.02.2023
+
+Art Blakey & The Jazz Messengers - Buhaina's Delight (1961) 2004, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backstage Sally [5:58]
+02. Contemplation [6:16]
+03. Bu's Delight [9:22]
+04. Reincarnation Blues [6:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFF109A7A9232BF91BDD8260A5D78D74160A8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611149   (1041674) от 10.02.2023
 
 The Fusion Syndicate - The Fusion Syndicate (2012) [FLAC|Lossless|tracks + .cue]<Jazz Rock>
@@ -658,93 +745,6 @@ Ledfoot - The Devil's Songbook (2007) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3983C2F4DD4DA4378FB98D4F5C12AEDC8A0089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438394   (1041037) от 08.01.2021
-
-Vargas Blues Band - The Very Best Of (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Spanish Wine (feat. Chicuelo)
-02. Blues Latino (En Directo)
-03. Del Sur (feat. Chicuelo)
-04. Albatross (En Directo)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4592D4AF102E10990899B64001EA62BB81A12F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438420   (1041031) от 08.01.2021
-
-Salvo - Back to My Blues Vol. 1 (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Ur Covid Frustration (03:26)
- 02. It's Raining Again (02:40)
- 03. Who's the Best (02:58)
- 04. Kick (05:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E73BDA0FFE8E7E2372160978BC07D04986C17BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438586   (1040948) от 09.01.2021
-
-Sun Ra - Cosmos (1976) 2008, Inner City Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mystery of Two [5:52]
-02. Interstellar Low-Ways [5:24]
-03. Neo Project #2 [5:04]
-04. Cosmos [2:59](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C8FC2C05283354BEB44770D4296F2F02B0C98C
 ```
 
 https://mybot314.ru/tekegram_catalog/

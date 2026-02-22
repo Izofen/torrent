@@ -1,3 +1,32 @@
+###  Публикация: 325134   (729952) от 18.04.2011
+
+Grad_U - Discography (2006 - 2011) [MP3|320 kbps]<Dub Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_729952.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Grad_U – 	Apsupty Gamtos 	5:16
+2.	Mr. Cloudy – 	Water Redirect_2 	11:00
+3.	Grad_U – 	A.G (Undepressed Dub) 	3:55
+4.	Mr. Cloudy – 	Night For Morning 	6:31(   Читать дальше...   )Жанр: Dub Techno |Продолжительность: 00:37:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284302   (729950) от 20.02.2019
 
 Master PDF Editor 5.3.16 [Multi/Ru]
@@ -663,35 +692,6 @@ Insofta 3D Text Commander - самая удобная программа для 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD4C230A57FF37E870E1D6DC6A13AF4C88E46400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022090   (729759) от 01.06.2016
-
-L 33 - Karate (2016) LP [MP3|320 кб/с] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clublife (Original Mix)
- 02. Electroshock
- 03. Bloodbrain (Original Mix)
- 04. Collide(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDA7C8255233420B220A439216EC36748841208
 ```
 
 https://mybot314.ru/tekegram_catalog/

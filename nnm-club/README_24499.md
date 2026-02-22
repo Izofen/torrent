@@ -1,22 +1,22 @@
-###  Публикация: 1792544   (67617) от 20.04.2025
+###  Публикация: 1793949   (67399) от 27.04.2025
 
-Enen no Shouboutai | Пламенная бригада пожарных (2015) [34 тома, 304 главы + Экстра] [Манга] [Русский] [PNG, JPG] [Complete]
+Хороший человек, хороший день / Kojin kojitsu / A Good Man, A Good Day (1961) WEB-DL [H.264/1080p] [DVO]
 
->>Манга и Арт
->>Манга, Манхва, Маньхуа
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67617.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как вы бы хотели умереть? Состарится или умереть от болезни, укуса, яда или просто задохнутся? Но в этом мире самый ужасный способ умереть это - сгореть заживо. Люди начали воспламенятся то тут, то там, в пламени превращаясь в демонов и забирая жизни всех кто рядом. Так их начали называть огненными людьми. Никто не знает как они появляются, никто не может противостоять (   Читать дальше...   )Жанр: приключения, комедия, мистика, сёнэнФормат: PNG, JPGПродолжительность: 23 сентября 15 - 22 февраля 2022
+Профессора Одзэки все считают чудаком, жена привыкла к его странностям. Они вырастили красавицу-дочку, которую удочерили много лет назад. Теперь ей пора выходить замуж, но знатную семью жениха не устраивает родство с таким сомнительным человеком. Действие происходит в древнем городе Нара.Производство: Япония / Shochiku OfunaЖанр: драмаРежиссер: Минору СибуяАктеры: Тисю Рю, Сима Ивасита, Тикагэ Авасима, Юсукэ Кавадзу, Таниэ Китабаяси, Нобуко Отова, Норихэй МикиПеревод: Двуголосый любительский (Сергей Гост & LaVanda)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:28:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8F05EC0752A1A84449A90EEF949BBF025B13DD8
+magnet:?xt=urn:btih:34C1EC67B726F3C6EDAE84F5CCCD472712A2A962
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792686   (67616) от 20.04.2025
+###  Публикация: 1793979   (67398) от 27.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Black Inky Flowers Seamless Patterns [JPG]
+Хороший человек, хороший день / Kojin kojitsu / A Good Man, A Good Day (1961) WEB-DLRip [H.264] [DVO]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Зарубежное кино
+>>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67616.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшовные цветочные узоры. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+Профессора Одзэки все считают чудаком, жена привыкла к его странностям. Они вырастили красавицу-дочку, которую удочерили много лет назад. Теперь ей пора выходить замуж, но знатную семью жениха не устраивает родство с таким сомнительным человеком. Действие происходит в древнем городе Нара.Производство: Япония / Shochiku OfunaЖанр: драмаРежиссер: Минору СибуяАктеры: Тисю Рю, Сима Ивасита, Тикагэ Авасима, Юсукэ Кавадзу, Таниэ Китабаяси, Нобуко Отова, Норихэй МикиПеревод: Двуголосый любительский (Сергей Гост & LaVand)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:28:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0073EB3494B0B2A4D44CB6E43FC163B96625823F
+magnet:?xt=urn:btih:77CDE0E959C6D55A32CC7204329EC76EF1D1363F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,80 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792753   (67615) от 20.04.2025
+###  Публикация: 1793924   (67397) от 27.04.2025
 
-Photosphere, Unusual Cosmic Process - Mental Detachment (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A storm is coming (3:33)
-02. Mind reconstruction (3:32)
-03. Steps in to the future (3:47)
-04. Tempest of my soul (3:34)(   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD000803331D56291D7F60995DD8773EAF4AA47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792688   (67614) от 20.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Neon Skulls Halloween Pattern [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовные узоры - неоновые черепа.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDCB8774E4C220F9671FB99BD70F50E28F298D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792781   (67613) от 20.04.2025
-
-Паттерны - Creative Fabrica - Autumn Pattern PNG Design Bundle [PNG, EPS]
+Паттерны - Free PSD Templates - Christmas Sweater Patterns [PNG, AI, PSD, EPS, SVG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67613.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние узоры в векторе и растре.Формат: PNG, EPSРазрешение файлов: 4167 x 4167
+Бесплатные Рождественские узоры.Формат: PNG, AI, PSD, EPS, SVGРазрешение файлов: 1043 x 1043
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CA4FDA656CFF4110973E42CBDA8BB704121FB7E
+magnet:?xt=urn:btih:809039E652D7BE727ECCCE17B26E6B40C62C2266
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,54 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792807   (67612) от 20.04.2025
+###  Публикация: 1794180   (67396) от 27.04.2025
 
-Joachim Witt - Ich (2015) Remastered, 2025, Ventil [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uber das Meer (Remastered) [00:04:23]
-02. Was soll ich dir sagen (Remastered) [00:04:23]
-03. Warten auf Wunder (Remastered) [00:04:15]
-04. Bitte geh mir aus dem Weg (Remastered) [00:04:05](   Читать дальше...   )Жанр: Pop Rock, IndustrialПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B314756C624C6E78BDA27C0A938D8AA0E51CCCFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792679   (67611) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Blue Plaid Seamless Patterns [JPG]
+Паттерны -  Free PSD Templates - Wedding Patterns Set [JPG, PNG, AI, PSD, EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67611.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клетчатые узоры.Формат: JPGРазрешение файлов: 3600 x 3600
+Бесплатный набор свадебных узоров.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2084
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:063F74A39107C8145575B591DEB83314AD83B9AF
+magnet:?xt=urn:btih:FA318803E5FA939BE70085539D8E746D095F9CD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792670   (67610) от 20.04.2025
+###  Публикация: 1793992   (67395) от 27.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Retro Fall Leaves Seamless Pattern Pack [JPG]
+Джейсон Дель Рей | Победитель продает всё (2024) [MP3, Илья Дементьев]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67610.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор бесшовных узоров на тему опавших листьев.Формат: JPGРазрешение файлов: 3600 x 3600
+В течение многих лет компании Walmart и Amazon работали в разных сферах: одна была крупнейшим физическим ретейлером, другая – онлайн-гигантом. Но в 2016 году Walmart агрессивно вторглась в мир электронной коммерции, а Amazon сделала ставку на физическую розничную торговлю. Это противостояние вылилось в беспощадную схватку за власть, в которой каждый титан пытается (   Читать дальше...   )Жанр: БизнесИздательство: Азбука-АттикусПродолжительность: 11:04:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:226DAB80C940AF7FCA6CFB45390EE42466CB594F
+magnet:?xt=urn:btih:9B6EEA5D775AAE6E6F873AF04895A27BBCA890FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,299 +128,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792673   (67609) от 20.04.2025
+###  Публикация: 1794165   (67394) от 27.04.2025
 
-Растровый клипарт - Creative Fabrica - Pattern Universe - Pink Blue Cute Flower Digital Papers [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цветочные бесшовные узоры на цифровой бумаге. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF47E05FA7D3BCCB7F3F56F5E4EDF9727A901D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792636   (67608) от 20.04.2025
-
-Fontaines D.C. - Romance (2024) Deluxe Edition, 2025, XL Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance [00:02:33]
-02. Starburster [00:03:41]
-03. Here's The Thing [00:02:43]
-04. Desire [00:03:39](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DB2D597AF6E54FE6207A38872AC17411266833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792375   (67607) от 20.04.2025
-
-Laurenne / Louhimo - Falling Through Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Through Stars [00:05:14]
-02. Damned [00:03:59]
-03. To the Dark [00:03:54]
-04. All for Sale [00:03:31](   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B3EFD5844707F9464E1E391E37DA69259004C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792666   (67606) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Watercolor Summer Palm Beach Patterns [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узоры на тему пляжа с пальмами. Сгенерировано ИИ.Формат: JPEGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFD0CD7896B0897A129F4159D79BA5F438E831E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792712   (67605) от 20.04.2025
-
-Saori Yano - Answer (2012) Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Days of Wine and Roses [3:29]
-02. All of Me [2:47]
-03. Moon River [3:44]
-04. Suna to Skirt [4:03](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501B5B54DC8ABD8896BBDF962D2F937FF5CE7525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792669   (67604) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Ombre Glitter Digital Papers [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с блёстками. Сгенерировано ИИ.Формат: JPEGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15F033BEBBA7F20B4D1CB68E1BE3151732D0C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792690   (67603) от 20.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Teal Plaid Fabric Mug Wrap Sublimation Design [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сублимационный дизайн в виде обёрточной бумаги для кружек с рисунком бирюзовой клетчатой ткани.Формат: PNGРазрешение файлов: 2925 x 1425
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B5CDA6248F425691999DAA1FBD806CA597672A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792660   (67602) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Green Olives & Cherries Digital Papers [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67602.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 бесшовных узоров из зелёных оливок и вишни сгенерированных искусственным интеллектом.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8BE4765F9A356B784D6EDCEFDEB5A55BA9F5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792680   (67601) от 20.04.2025
-
-Растровый клипарт - Designworld - Creative Fabrica - Pastel Mermaid Tail Digital Paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага в пастельных тонах.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB592979286274AEBE3E19B95C4A1228E1F98DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792754   (67600) от 20.04.2025
-
-Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visionatica - симфо-метал-группа из Франконии, Германия. Образована в 2016 году.2016 - Force Of Luna
-2019 - Enigma Fire
-2025 - Harrowing InsightЖанр: Symphonic MetalПродолжительность: 01:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1C729837506B00DA89B1728316D74ED3E3F1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792493   (67599) от 20.04.2025
-
-Quartz - Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
+Epica - Aspiral (2025) [MP3|320 Kbps] <Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67599.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Insomnia [00:04:05]
-02. Come Hell Or High Water [00:03:59]
-03. Give It All You've Got [00:03:54]
-04. Burn In Hell [00:03:51](   Читать дальше...   )Жанр: Hard-Rock, Heavy-MetalПродолжительность: 00:49:03
+01. Cross The Divide (04:18)
+ 02. Arcana (05:02)
+ 03. Darkness Dies In Light - A New Age Dawns Part VII - (07:59)
+ 04. Obsidian Heart (05:05)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:01:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AE7E25BB36F2F6991BDCA0C879DA4A507B4A9B5
+magnet:?xt=urn:btih:34F249DAFB20CF5AA46379EC02389F386D917EE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,25 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792667   (67598) от 20.04.2025
+###  Публикация: 1793901   (67393) от 27.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Rainbow Seamless Pattern [JPEG]
+Паттерны - Free PSD Templates - Animal Skin Patterns Set [PNG, AI, PSD, EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67598.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшовные узоры с радугой. Сгенерировано ИИ.Формат: JPEGРазрешение файлов: 3600 x 3600
+Набор узоров в виде шкур животных.Формат: PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57D21D26E6193C76EECF9A3DB4B6F3487C4E7BA1
+magnet:?xt=urn:btih:3E578E87C4544F5C821D1A8E71A7B2E46D1C622A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,25 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792662   (67597) от 20.04.2025
+###  Публикация: 1793914   (67392) от 27.04.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Cosmic Peacock Feathers Digital Papers [PNG]
+Паттерны - Free PSD Templates - Autumn Patterns Set [PNG, AI, PSD, EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67597.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Павлиньи перья на цифровой бумаге.Формат: PNGРазрешение файлов: 3600 x 3600
+Бесплатные осенние узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F5998AB6E7A978FD298B851E13E4F32908A2BA5
+magnet:?xt=urn:btih:D0446321DADB4BB8CFC12D069227E465B72230CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,28 +209,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792395   (67596) от 20.04.2025
+###  Публикация: 1793954   (67391) от 27.04.2025
 
-Ори!Зона! - 20 лет спустя (2025) [MP3|320 Kbps] <Chanson>
+VA - Earthbound Collection 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo, Progressive House>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67596.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Суета [00:03:00]
-02 - Оглянись [00:03:12]
-03 - Мой друг [00:02:44]
-04 - Я живу, и горю лишь тобой [00:02:57](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:30:59
+01. Peter Pavlov, Tibetania - Velvet Mirage (Original Mix) (5:58)
+02. Tibetania, Jennifer Dons - Eleggua (Original Mix) (5:55)
+03. Tibetania, 4Moon Music - Yio Yio (Original Mix) (6:39)
+04. Tibetania, DJ Samuel Akram - Spirit of Hato (Original Mix) (5:25)(   Читать дальше...   )Жанр: Organic House, Downtempo, Progressive HouseПродолжительность: 01:28:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAB489702C4C195C28558BF1DA2B002E2B44468B
+magnet:?xt=urn:btih:20FD8DB5A325F5EB2DEFA0C0155EBCD5693A4DC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,28 +238,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792711   (67595) от 20.04.2025
+###  Публикация: 1793892   (67390) от 27.04.2025
 
-Saori Yano - Best (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+Паттерны - Free-PSD-Templates - Marine Seamless Pattern Vector Collection [PNG, AI, PSD]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67595.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Donna Lee [1:55]
-02. Suna to Skirt [6:56]
-03. Crazy He Calls Me [7:56]
-04. Rizlla [5:33](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:11:38
+Бесплатные бесшовные узоры на морскую тему.Формат: PNG, AI, PSDРазрешение файлов: 4167 x 4167
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDD0E3ACD4295D43439576FFB701197C01755694
+magnet:?xt=urn:btih:22A85B9D53F3E46BF304F0FDDC0BDF2AF356414C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,25 +264,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792708   (67594) от 20.04.2025
+###  Публикация: 1793909   (67389) от 27.04.2025
 
-Военная тайна с Игорем Прокопенко (19.04.2025) WEBRip [H.264]
+Паттерны - Free PSD Templates - Seamless Vintage Patterns [PNG, AI, PSD]
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67594.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:52
+Бесплатные бесшовные винтажные узоры.Формат: PNG, AI, PSDРазрешение файлов: 2668 x 2669 - 2683 x 2683
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D138249351224FCB08FF5E15D2F732AF704630AB
+magnet:?xt=urn:btih:FB160C68EEFCCDB80705A864AAAE236CE0708270
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +290,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792789   (67593) от 20.04.2025
+###  Публикация: 1793837   (67388) от 27.04.2025
 
-Своя игра (20.04.2025) WEBRip [H.264/1080p]
+Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 из 10 эп.] BDRip 1080p raw+rus
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67593.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Дмитрий Махров, Александр Бадриан, Нина АстафьеваЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:05
+Покинув Канаду, чтобы переехать к Хару, Рэн наконец-то привык к жизни младшего из четырех братьев, и новое кафе Хару начало процветать... когда появилась их мать, Харука, и сказала, что берет Рэна с собой в Швейцарию! Шок от ее внезапного заявления как раз тогда, когда Хару и Рэн начали сближаться, привел к увеличению разногласий между ними. Неужели на горизонте (   Читать дальше...   )Производство: Studio DeenЖанр: комедия, романтика, повседневность, сёнэн-айРежиссер: Исихира СиндзиПеревод: SovetRomanticaОзвучка: OriginalЯзык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 10 эп. по 24 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52D3DCAFD306C70B23B018DCFF5B162F3025A5BB
+magnet:?xt=urn:btih:BDA90F853C3E837FE9565A01D44FE8D2E0E29471
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,28 +316,393 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792136   (67592) от 20.04.2025
+###  Публикация: 1793895   (67387) от 27.04.2025
 
-Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+Паттерны - Free PSD Templates - African Patterns [PNG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные Африканские узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 776 x 776
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9DC507F0D714DA41689CC129AF91A60C042795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793916   (67386) от 27.04.2025
+
+Паттерны - Free PSD Templates - Botanical Pattern Set [JPG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный набор ботанических паттернов в векторе и растре.Формат: JPG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19585A72F32D3A4E19CC68DF40E68EE0D87EBAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794082   (67385) от 27.04.2025
+
+Steve Howell & The Mighty Men - Yeah Man (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Long Lonesome Blues (3:55)
+02.  Yeah Man (4:09)
+03.  20% Alcohol (4:33)
+04.  One Mint Julep (2:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEF6A65D36D2F3AF74B492D33BC01E3C367BA63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794129   (67384) от 27.04.2025
+
+The Damn Truth - The Damn Truth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Be Somebody (3:46)
+02.  I Just Gotta Let You KnowЖанр: Classic Rock, Hard RockПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44EC128ADC52D41093665DA07EADB8B3612A510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794049   (67383) от 27.04.2025
+
+Skyla Owen - In My Dreams (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Endless Skies (3:31)
+02.  Every Touch Sparks A Fire Inside (3:31)
+03.  In My Dreams (2:40)
+04.  Love's Melody (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8A17397185D73F20D2A1724E00E8CDDDC3356B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794005   (67382) от 27.04.2025
+
+Brainstorm - Wall of Skulls (2021) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy, Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67592.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Industrialist
-02. Recharger
-03. New Messiah
-04. God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:48:50
+Walls....
+A1 Chamber Thirteen
+A2 Where Ravens Fly
+A3 Solitude(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E899E575915247F93E38BDBEB725253CF4F971EB
+magnet:?xt=urn:btih:E1AFE8A4F6945AFD155594B02F3F8C310A88B5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793702   (67381) от 27.04.2025
+
+Game Over - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Game Over - итальянская треш-метал-группа, основана в 2008 году.2012 - For Humanity
+2014 - Burst into the Quiet
+2016 - Crimes Against Reality
+2017 - Claiming SupremacyЖанр: Thrash MetalПродолжительность: 03:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A6567E962642C3F866FBED60522F4FEC33894C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794130   (67380) от 27.04.2025
+
+Travellin' Blue - Take The Edge Off (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Better Left Unsaid (3:45)
+02.  No Gooder (4:00)
+03.  The Closer is King (4:42)
+04.  Down The Rabbit Hole (1:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA55A904EBF305F37E0697A54543BD1F97B58FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794036   (67379) от 27.04.2025
+
+AkiaveL - InVictus (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Oozing Concrete
+02 - Membrane
+03 - Daddy Defiled Me
+04 - Captured Alive(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B3DD83975464FB0EAE220FD2559EAADBA9A071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793853   (67378) от 27.04.2025
+
+Через Великий Разлом / Across the Great Divide (1915) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драматическая история Дикого запада. Бандиты задумали ограбить поезд, везущий ценный груз. А для этого вынудить местного телеграфиста спровоцировать железнодорожную катастрофу. А если телеграфист больше не ценит свою жизнь и не боится смерти?...
+на первом скрине какая милашка...Производство: США / Edison CompanyЖанр: короткометражный, вестерн, немое киноРежиссер: Эдвард С. ТейлорАктеры: Джордж А. Райт, Bessie Learn, Фрэнк МакГлинн ст.Перевод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38CC767E028CB50C0BC941E37950C40D43E9AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794007   (67377) от 27.04.2025
+
+Michel Legrand - Happy Radio Days (2004) Erato [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Stage & Screen>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tico Tico [3:42]
+02. Charmaine [2:56]
+03. The Typewriter [1:45]
+04. Where Or When [4:10](   Читать дальше...   )Жанр: Mainstream Jazz, Stage & ScreenПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA73CA8385BBD9443710488420943F6BE82066C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794045   (67376) от 27.04.2025
+
+Sister Suzie - Honestly? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Another Waste of My Time (3:42)
+02.  Whoopsy Daisy (2:52)
+03.  Time (4:57)
+04.  Whiskey (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC1E5C44B43D806C6DB3375F42691DCE964F13F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794037   (67375) от 27.04.2025
+
+НХЛ. Кубок Стэнли 2025 (Плей офф. 1-й раунд, 4-й матч) Вегас Голден Найтс - Миннесота Уайлд (26.04.2025) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67375.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 апреля 2025, суббота. 23:00 МСК. Стадион: Эксел Энерджи-центр (Сент-Пол, США), 19 324 зрителя (94% при вместимости 20 554)
+Главный судья: Тревор Хансон (Ричмонд, Канада); Главный судья: Кайл Реман (Стеттлер, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада); Линейный: Жюльен Фурнье (Гатино, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1694A284402FE11730FB806BAAC1DB309AFA6E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794133   (67374) от 27.04.2025
+
+William Wallace Band - Worn Thin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walter Trout - Blues Is Still Alive (5:29)
+02.  Wild Man (3:40)
+03.  Don't Play With Fire (3:04)
+04.  Gypsy Woman (3:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5246B85CD77E5F15D513F39D0EA473D6162EA81
 ```
 
 https://mybot314.ru/tekegram_catalog/

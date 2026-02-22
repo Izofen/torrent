@@ -1,32 +1,3 @@
-###  Публикация: 1703684   (114827) от 01.03.2024
-
-New Years Day - Half Black Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vampyre [00:02:56]
-02. Half Black Heart [00:03:07]
-03. Hurts Like Hell [00:03:11]
-04. Secrets [00:03:10](   Читать дальше...   )Жанр: Alt. Metal, Female VocalПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A84A6FD487AC0BBD8E446456DC61BFB6DA1F0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704717   (114031) от 06.03.2024
 
 Empty Frame - Underdogs (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
@@ -136,64 +107,6 @@ Autopilot - It Might Be Gone Forever (2024) [FLAC|Lossless|WEB-DL|tracks] <Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1254C3FD589E125D16796BF94D6D88DB75F23CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709610   (112800) от 25.03.2024
-
-Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things I've Been Telling Myself for Years (3:34)
-02. Lovers' Leap (4:35)
-03. (Where Is It?) (0:27)
-04. Balu (3:53)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C814C796BC6229252C1EAE8670721DCD3D03402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712142   (112186) от 02.04.2024
-
-Mannequin Pussy - I Got Heaven (2024) [FLAC|Lossless|tracks + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got Heaven (2:59)
-02. Loud Bark (3:04)
-03. Nothing Like (4:09)
-04. I Don’t Know You (3:44)(   Читать дальше...   )Жанр: PunkПродолжительность: 00:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B1CECCEBCC718E1346B485D532747F5908FAC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -745,6 +658,93 @@ Demersal - Demersal (2024) [FLAC|Lossless|WEB-DL|tracks] <Emotional Hardcore, Sc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B05DF5BC9E42E10AB35C94760A37FA1AD98A250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722742   (109639) от 13.05.2024
+
+Hot Water Music - VOWS (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Punk Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Menace [00:03:25]
+02. Searching For Light [00:02:56]
+03. Burn Forever [00:03:00]
+04. After The Impossible [00:04:10](   Читать дальше...   )Жанр: Alt. Rock, Punk Rock, Pop PunkПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89ECDDDA8D30FE1C0F30B020C1B13BDDFFD0DA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722730   (109638) от 13.05.2024
+
+Fivebyfive - Phuck Around Phind Out (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Alternative Metal, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exordium (feat. Clayton Theodore Rex) [00:00:36]
+02. The Konami Kid [00:03:07]
+03. Kraken Down [00:03:23]
+04. The Salty Spitoon [00:00:25](   Читать дальше...   )Жанр: Rapcore, Alternative Metal, Hip-HopПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60730D357733CB7EB35740E44FBB8DFA2832C276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722711   (109635) от 13.05.2024
+
+Sublime with Rome - Sublime with Rome (2024) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cool & Collected (feat. Slightly Stoopid)
+02. Tangerine Skies
+03. Battle Scar
+04. All I Need(   Читать дальше...   )Жанр: Reggae, Pop RockПродолжительность: 00:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1C4C0108E620B4AE773EACB0FDF29FEBC0DCFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

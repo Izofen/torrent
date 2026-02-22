@@ -1,3 +1,32 @@
+###  Публикация: 187376   (875217) от 29.03.2010
+
+Lynda.com Chris Orwig | Lynda.com - Photoshop CS4 for Photographers: Creative Color [2009] PCRec
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Курс по Photoshop CS4 от Chris Orwig.
+Это продолжение темы креативных фишек в Шопе от великолепного Chris Orwig. На этот раз под его изложение попадает работа с цветом в Photoshop.
+
+Working with color can be an amazing journey, and in Photoshop CS4 for Photographers: Creative Color, Brooks Institute of Photography professor Chris Orwig teaches a different way to create great color in photographs. Chris goes beyond the basics by showing how color can have a profound effect on a photograph's impact. He demonstrates adjusting color and tone to make images more vivid, changing colors, working with color saturation, cross processing, and more. The course culminates with real-world projects that utilize the techniques Chris has shown for creating intriguing and beautiful color photographs. Exercise files accompany the course.Жанр: Видеоуроки
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 187615   (875216) от 29.03.2010
 
 Роман выходного дня (2009) DVDRip
@@ -671,32 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ###  Подробнее
 
 IM+ All-in-One Mobile Messenger Мультипротокольный клиент обмена мгновенными сообщениями. Поддерживает все популярные сервисы обмена мгновенными сообщениями: Facebook, Skype, ICQ, ВКонтакте, Mail.Ru Агент, Одноклассники.Ru, Мамба.Ru, Я.Онлайн (Яндекс.Чат), MSN/Live Messenger, Google Talk, Yahoo!, AIM/iChat, MeinVZ, Gadu-Gadu, RenRen, mig33, SINA Weibo, Fetion и Jabber.Разработчик: SHAPE
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643245   (875144) от 13.04.2013
-
-4Videosoft Video Converter Ultimate 5.1.20 + Rus + Portable by WYLEK [Eng + Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-4Videosoft Video Converter Ultimate — профессиональный и простой в использовании конвертер большинства популярных аудио и видео форматов в другие аудио и видео форматы, поддержка MPG, MPEG, MPEG2, VOB, MP4, M4V, RM, RMVB, WMV, MP3, MP2, AAC, AC3, WAV, MID, MIDI, WMA, M4A, RA, RAM, OGG, APE, AU, FLAC и других форматов. Позволяет конвертировать ваши DVD-фильмы в другие видео и аудио форматы, извлекает аудио из DVD и видео и конвертирует в разнообразные аудио форматы. Обладает функциями редактирования: эффекты, подрезка, обрезка и соединение видео, снимок экрана и многое другое.Язык интерфейса: Eng + Rus
 
 ## Скачать торент
 ```bash

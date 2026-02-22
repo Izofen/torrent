@@ -1,3 +1,32 @@
+###  Публикация: 1150298   (595285) от 14.07.2017
+
+Peter Cornelius - Liederbuch (1998) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Du entschuldige i kenn Di (04:23)
+02. Reif für die Insel (04:41)
+03. Ganz Wien hat den Blues (04:21)
+04. Der Kaffee ist fertig (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163D36185473C2322FFA2B125DC386C97230F76D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039770   (594688) от 02.08.2016
 
 VA - Lazy Sunday (2004) [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Rock, Soft Rock, Vocal>
@@ -717,35 +746,6 @@ Sindy - Selfie (2015) [FLAC|tracks+.cue]<Pop, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D5B9551B9485AB438D88165624828DFC8EDC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302728   (579330) от 17.05.2019
-
-Rhye - Spirit (2019) [FLAC|Lossless|WEB-DL|tracks] <Sophisti-Pop, Indie-Pop, RnB, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dark (01:27)
-2. Needed (05:18)
-3. Malibu Nights (01:55)
-4. Patience (feat. Ólafur Arnalds) (04:14)(   Читать дальше...   )Жанр: Sophisti-Pop, Indie-Pop, RnB, DowntempoПродолжительность: 00:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8CB446A815156884A2DEAB54986BAFF16BAE44
 ```
 
 https://mybot314.ru/tekegram_catalog/

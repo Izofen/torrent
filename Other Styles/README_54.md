@@ -1,3 +1,32 @@
+###  Публикация: 1117538   (815195) от 24.03.2017
+
+Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенков темнее (Original Score) + (Original Deluxe Soundtrack) (2017) [FLAC|Lossless|tracks/tracks + .cue]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZAYN & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) (04:07)
+02. Halsey - Not Afraid Anymore (03:47)
+03. JRY feat. Rooty - Pray (03:22)
+04. Tove Lo - Lies In The Dark (03:42)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:01:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43505F62FFCA6131AFEA8929485DA3614260B866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117860   (814918) от 24.03.2017
 
 John Paesano - Mass Effect: Andromeda (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
@@ -713,35 +742,6 @@ The Soft Music Box - Classic Piano Lullabies - U.S. Edition (2020) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:861C82C5FEF96ED4AD2FA15B1E7FD7FBF7560C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009475   (808110) от 22.04.2016
-
-Trailer Radio - Country Girls Ain't Cheap (2016) [MP3|320 кб/с] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Granny's Got the Baby (Cause Mama's Doin' Time) (03:42)
-02. Country Girls Ain't Cheap (04:09)
-03. Dirt Queen (04:30)
-04. Woe Is Me (04:23)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED64DA8CF560CCFE48C11718DACD410B2CDB1F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

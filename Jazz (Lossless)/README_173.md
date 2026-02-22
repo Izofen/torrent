@@ -1,3 +1,32 @@
+###  Публикация: 1048639   (546582) от 02.09.2016
+
+Halie Loren & Matt Treder - Many times, many ways (2008) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Christmas Song
+02. Winter Wonderland
+03. Blue Holiday
+04. Sugar Cookies(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC3E1B93BAF24B02A022E8E595E4792916FE725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048604   (546538) от 02.09.2016
 
 Rufus Harley - Scotch & Soul (1966) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Jazz-Funk>
@@ -722,35 +751,6 @@ Richard Galliano Septet - Piazzolla forever (2003) [FLAC|Lossless]<Contemporary 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925413   (541492) от 06.08.2015
-
-Keith Jarrett - Backhand (1974) /2013, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inflight [09:08]
-02. Kuum [11:41]
-03. Vapallia [07:50]
-04. Backhand [11:09]Жанр: Jazz, Post-BopПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A645FC059C3F6EFF40B1790CB06C19A1A09EC17F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,37 @@
+###  Публикация: 358311   (582027) от 06.07.2011
+
+Asgard - The Seal Of Madness (2011) [MP3|320 kbps]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582027.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Disciples [3'28"]
+2. I Spit on your Hands [3'14"]
+3. The Seal of Madness [4'20"]
+4. With Your Shield or On It [4'12"]
+5. Army of Darkness [5'35"]
+6. Fury of the Night [2'23"]
+7. The Age of Steel [2'30"]
+8. Hellbreaker [4'48"]
+9. Asgard Invasion [3'56"]Жанр: Power MetalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95C7A396A05F744AA43D2750B4DBB5064B91C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919637   (581940) от 20.07.2015
 
 Paul Wardingham - The Human Affliction (2015) [MP3|320 кб/с]<Progressive Metal / Math Metal / Instrumental>
@@ -749,35 +783,6 @@ Korpiklaani - Manala (2012) Deluxe Edition [MP3|320 кб/с]<Folk Metal >
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8935DF41EC65C5D6AEDB6DDFD70E9D072319AAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151924   (570359) от 20.07.2017
-
-Nine Inch Nails - Add Violence (2017) EP [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Less Than
-02. The Lovers
-03. This Isn't The Place
-04. Not Anymore(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C213AFFF1E75A9CEED82CE58169687936F40606
 ```
 
 https://mybot314.ru/tekegram_catalog/

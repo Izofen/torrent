@@ -1,3 +1,38 @@
+###  Публикация: 564097   (403005) от 23.10.2012
+
+VA - Need for speed Drayvovy mix (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virone - Расстояние (Dj Glazunov remix)
+02. Вика Гранд - Я не боюсь (Emotive Tunes original mix)
+03. Корнелия Манго - Запретная Любовь
+04. T - killah feat. Лена Катина (ex. t.A.T.u) - Shot
+05. Мари Краймбрери - Смогу ли я без тебя
+06. АнгелиЯ - Душа Устала
+07. Movetown feat. Nana - Lonely (Empyre One Remix)
+08. Fly Project - Musica (Radio Edit)
+09. Switch Fusion - Anchor (original mix)
+10. Keane - Sovereign Light Cafe(   Читать дальше...   )Жанр: PopПродолжительность: 07:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84BC1B1CF369FBDD171B8A915F0D8E05BE83CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564093   (403003) от 23.10.2012
 
 VA - Вкусные хиты на Love Radio (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -836,41 +871,6 @@ VA - Дискотека Осенний Хит (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95A178995AE279C9361A454DF5E09F736D3BBC47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566982   (398197) от 28.10.2012
-
-VA - Новое на Europa Plus (2012) [MP3|256 кб/с]<pop, dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ M.E.G. - Stock-Holm
-02. Оксана Почепа - По подоконнику дождь
-03. gor Garnier feat. Minja & Mondo - Ajde Romale
-04. DJ Шанс feat. JayB (D.Lemma) - Ярче
-05. All Давай feat. DJ Ihlas - Москва-Дубай
-06. T-Killah feat. Лоя - Вернись (Fire Flame & Horizont Remix)
-07. Джиган - Нас больше нет (Michael Yousher Remix)
-08. Винтаж feat. Bobina - На-На-На
-09. DJ Simon Weeks feat. Los Tiburones - Rumbero
-10. Rihanna - Where Have You Been(   Читать дальше...   )Жанр: pop, danceПродолжительность: 06:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD2886D4AC0CBE77DD49649388E66903B685511
 ```
 
 https://mybot314.ru/tekegram_catalog/

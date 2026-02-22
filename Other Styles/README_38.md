@@ -1,3 +1,32 @@
+###  Публикация: 1494721   (885936) от 09.09.2021
+
+Atom Music Audio - Crime Life (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crime Life [02:03]
+02. Get It Done [02:28]
+03. Dropping Bombs [02:19]
+04. Riding with the Devil [02:02](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B87B9222695615BBDEE6030C569BA22D3A7202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494719   (885933) от 09.09.2021
 
 Atom Music Audio - Ethereal (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -755,35 +784,6 @@ Ricky King - The Best World Instrumental Hits (2009) [FLAC|Lossless]<Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74EA1E0352973E15D095053D744FBACFA475C5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373149   (882074) от 05.04.2020
-
-Govi - Your Lingering Touch: Govi at His Romantic Best (2001) [FLAC|Lossless|tracks + .cue] <New Age, New Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Of Joy
-02. Magellan's Beat
-03. Sailing Away
-04. Your Lingering Touch(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90315AF8F667E03B797E8D8CC6D21162B51A299E
 ```
 
 https://mybot314.ru/tekegram_catalog/

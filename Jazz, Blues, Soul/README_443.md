@@ -1,3 +1,32 @@
+###  Публикация: 1641977   (231665) от 25.06.2023
+
+Eddie Gomez - Per Sempre (2009) 2012, BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arianna [6:21]
+02. Bologna d'Inverno [9:32]
+03. Why Cry? [10:55]
+04. Forever [6:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50574E3463677E1467811A1E491C50F063B34440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643751   (231654) от 03.07.2023
 
 Al Staehely - Somewhere in West Texas (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -729,35 +758,6 @@ Claude Williamson - 'Round Midnight (1956) 2000, Bethlehem [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:557590197B6F676A675A632F17C94F4034CE929D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512756   (229366) от 26.11.2021
-
-Elek Bacsik - The Electric Guitar Of The Eclectic Elek Bacsik (1962) 1989, Fontana [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Rondo a la Turk [6:17]
-02. Angel Eyes [3:30]
-03. Godchild [3:54]
-04. Take Five [3:15](   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF3809F10E09E128AB679D754F9B3BC909C8800
 ```
 
 https://mybot314.ru/tekegram_catalog/

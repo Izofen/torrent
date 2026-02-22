@@ -1,3 +1,31 @@
+###  Публикация: 431962   (991653) от 05.01.2012
+
+Авто плюс - Наши тесты / Subaru XV (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем.
+Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля.
+Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: АвтопередачаПродолжительность: 00:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1960655149A8DC8640A80ED32962FF027646F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 431873   (991652) от 05.01.2012
 
 The Human League - Crash (1986) [APE|Lossless]<Electro, Synth-pop>
@@ -688,41 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E62D24B9E5795D578213EE2A01A6B46E77B94C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430513   (991582) от 05.01.2012
-
-VA - 100 Hits RTL (5 CD) (1960-2000) (2000) [MP3|320 kbps]<Pop, Chanson, Sclager>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-2000Жанр: Pop, Chanson, SclagerПродолжительность: 01:05:54
-1 Renaud & Axelle Red – Manhattan-Kaboul
-2 Mika – Relax (Take It Easy)
-3 Christophe Willem – Double Jeu
-4 Yannick Noa – Donne-Moi Une Vie
-5 Calogero – Si Seulement Je Pouvais Lui Manquer
-6 Marc Lavoine & Cristina Marocco – J’ai Tout Oublie
-7 Seal – Love’s Divine
-8 Gerald De Palmas – J’en Reve Encore
-9 Jean-Jacques Goldman – Tournent Les Violons(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E1E8EEB90FC714F501BA5E43A06A5142F5E65B
 ```
 
 https://mybot314.ru/tekegram_catalog/

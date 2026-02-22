@@ -1,3 +1,38 @@
+###  Публикация: 298492   (882784) от 20.02.2011
+
+La Roux - La Roux (Gold Edition) (2011) [MP3|256 kbps]<Electropop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. In For The Kill (feat. Kanye West)
+02. Finally My Savior
+03. Under My Thumb
+04. I'm Not Your Toy (Jack Beats Remix)
+05. In For The Kill (Skream's Let's Get Ravey Remix)
+06. Quicksand (Boy 8 Bit Remix)
+07. Bulletproof (Zinc Remix)
+08. Tigerlily (Demo)
+09. Bulletproof (Intimate Session At Abbey Road)
+10. In for the Kill (Vevo Lounge Version)Жанр: ElectropopПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65A2EB977AE41D6E5992BCDC22C6D6C354A83CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103722   (882774) от 13.02.2017
 
 Стражи Галактики 2 / Guardians of the Galaxy Vol. 2 (2017) WEBRip [H.264/1080p] [Трейлер]
@@ -660,32 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3348DFD643B63E195C5A96012ADE6D979E565952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103954   (882669) от 13.02.2017
-
-Мумия / The Mummy (2017) WEBRip [H.264/1080p] [Трейлер]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посреди безжалостной пустыни в величественном саркофаге погребена дочь египетского фараона, но настанет день и она явится в наш мир вернуть себе то, что принадлежит ей по праву.Производство: СШАЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Алекс КуртцманАктеры: Том Круз, Рассел Кроу, София Баутелла, Аннабелль Уоллис, Джейк Джонсон, Кортни Б. Вэнс, Хавьер БотетПеревод: ДублированныйПродолжительность: 00:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC5D82B89FF5A0B155A056026A3D2859BDBEE16
 ```
 
 https://mybot314.ru/tekegram_catalog/

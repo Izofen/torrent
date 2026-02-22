@@ -1,3 +1,32 @@
+###  Публикация: 1813391   (6918) от 19.08.2025
+
+VA - LOVE - Love Songs - Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Turner - The Best (4:10)
+02. A-Ha - Take On Me (3:48)
+03. Roxette - Run to You (3:39)
+04. Frida Gold - Liebe ist meine rebellion (Radio Version) (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2A73C2018B9887F603AF2E85D7DAA7FEE70D23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814511   (6012) от 25.08.2025
 
 VA - The Best of Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>

@@ -1,3 +1,32 @@
+###  Публикация: 1469250   (1016602) от 11.05.2021
+
+Simon Says - Spin This (1991) Reissue, Remastered, 2020, Escape Music [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Love Thing
+03. Let Me Know
+04. When I See You Standing There(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC8AC9CFA863865545A8ECDE7DE369439AF9B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469529   (1016318) от 13.05.2021
 
 Minefield - Minefield (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -716,35 +745,6 @@ Fear Not - Fear Not (1993) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D953E80825351F5C8F8CCB5692C4C3621DA11F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475331   (1012423) от 06.06.2021
-
-Love Life - Goodbye Lady Jane (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Love
-02. Do You Love Me
-03. Hearts On Fire
-04. When Loneliness Comes Knockin'(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C7158A49524233BB5C131ED49F64CF0E8796E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1612579   (1040091) от 16.02.2023
+
+VA - Romantic Collection. Country (2000) [OGG Vorbis|480 Kbps] <Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean-Luc Ponty - New Country
+02. John Fogerty - Big Train
+03. Reba McFutire - Cumb That Mountain High
+04. S.Buono - Ode To 33(   Читать дальше...   )Жанр: CountryПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E456539FF880938B616BD058999FE62D83A9EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439351   (1040079) от 12.01.2021
+
+Ric Perilano's Disco Sound Band - Sound Of The 80s (Instrumental) (2010) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dallas (4:25)
+02. Imagination (3:38)
+03. I'm Alive (3:06)
+04. L'lama L'amor (3:55)(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, InstrumentalПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF78A8A7060A3B606A1BADA62A4D6FC2374E039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612805   (1039807) от 17.02.2023
+
+VA - Romantic Collection. Diva Mystic (2000) [OGG Vorbis|480 Kbps] <Electronic, Pop, 	New Age>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cecilia-Daughter Of The Midnight Sun
+02. Sally Oldfield-Flaming Star
+03. Marie Frediriksson-Det Regnar Igen
+04. Ofra Haza-Give Me A Sign(   Читать дальше...   )Жанр: Electronic, Pop, 	New AgeПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C614E185028DE11A6546A540A5F7141BF450EE49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439732   (1039530) от 14.01.2021
+
+Barry Gibb and Friends - Greenfields: The Gibb Brothers' Songbook (Vol. 1) (2021) [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barry Gibb feat. Keith Urban - I’ve Gotta Get a Message to You (3:14)
+02. Barry Gibb feat. Jason Isbell - Words of a Fool (3:47)
+03. Barry Gibb feat. Brandi Carlile - Run to Me (3:22)
+04. Barry Gibb feat. Alison Krauss - Too Much Heaven (3:39)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291AA5AB817A6A9756AD310ED9C4ACE6E6360421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613111   (1039365) от 19.02.2023
 
 Поёт Алёна Долбик / Оркестр Сергея Мазаева - Ты рядом (2021) [FLAC|Lossless|image + .cue] <Pop>
@@ -626,122 +742,6 @@ Adam Lambert - High Drama (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC6EB9698B2326DE5A727D114645F9BCF92CC762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441453   (1037803) от 21.01.2021
-
-Eva Kaufmann - Was ich fuehl (2016) [FLAC|Lossless|image + .cue] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037803.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Was ich fühl
-2. Ohne Dich
-3. War das Alles
-4. Wo stehn wir(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8333A122288C149B09CA457BEA3B55C31F645CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441333   (1037797) от 21.01.2021
-
-Mighty Pope - Sway (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sway (5:03)
-02. In-A-Gadda-Da-Vida (7:26)
-03. New Orleans (5:51)
-04. Becauce The Night (5:29)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0249590B92940B2FEC317F887D6479A0A9356526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441506   (1037791) от 21.01.2021
-
-Rhye - Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, RnB, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:30)
-02. Come In Closer (03:36)
-03. Beautiful (04:21)
-04. Safeword (02:54)(   Читать дальше...   )Жанр: Indie-Pop, RnB, DowntempoПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1896B0E3A93CB12F8706641456A82A806F1EC30E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441524   (1037788) от 21.01.2021
-
-Rory Block - You're The One (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're The One (5:30)
-02. Askin' For More (3:18)
-03. Someone Like You (3:53)
-04. I Can't Believe In You No More (2:54)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38A7F26FB156FF824B6DB3ADBF5BDE87EDF6F4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

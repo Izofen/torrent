@@ -1,3 +1,32 @@
+###  Публикация: 1304604   (561714) от 27.05.2019
+
+Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godzilla (feat. Serj Tankian) (03:10)
+02. Godzilla Main Title (02:35)
+03. Memories of San Francisco (02:11)
+04. The Larva (04:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C1A4BF0786161C111D3173B2AA96D130020939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044814   (561671) от 22.08.2016
 
 Ancient Legacy - New Age Armenia II (2003) [FLAC|Lossless|image + .cue] <New Age, International>
@@ -709,35 +738,6 @@ Nick Murray - To the Stars (2016) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AC3E779AD1C4ADC7640CCCEE40CD9ABF218FA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045742   (556845) от 25.08.2016
-
-Blue Stone - Pandora's Box (2011) [FLAC|Lossless|tracks + .cue] <New Age, Ethnic Fusion, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innocence  04:57
-02. Mischief  05:44
-03. Seduction  05:42
-04. Epimetheus  05:47(   Читать дальше...   )Жанр: New Age, Ethnic Fusion, DowntempoПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A9679A16069B8DAC1450BAAA4795CAC3AD6F6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

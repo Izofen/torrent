@@ -1,3 +1,90 @@
+###  Публикация: 1273892   (798779) от 04.01.2019
+
+Johnny Frigo - Summer Me!: Live at Battle Ground (1986 - 1997) 2008, Log Cabin Records [FLAC|Lossless|image + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quando, Quando, Quando [4:26]
+02. The Song Is You [5:15]
+03. Polka Dots and Moonbeams [4:25]
+04. Czardas [4:19](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72681D539205A13B685345986C8EDAFCA4DA5FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507205   (798749) от 03.11.2021
+
+Howlin' Wolf - The London Howlin' Wolf Sessions (1989) [FLAC|Lossless|tracks + .cue]<Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Daddy
+02. I Ain't Superstitious
+03. Sittin' On Top Of The World
+04. Worried About My Baby(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC204EA3DF759918F4D5917357E637C32BE0C6CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507374   (798472) от 04.11.2021
+
+Ella Fitzgerald - Milestones Of A Jazz Legend: Sings The Songbooks (1956 - 1959) 10CD, 2021, The Intense Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798472.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 -  Sings The Cole Porter Song Book, Vol.1:
+01. All Through The Night [3:19]
+02. Anything Goes [3:24]
+03. Miss Otis Regrets [3:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 09:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5456D5E29604C83A0EA157FDBEB6057F2370E231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507648   (798301) от 05.11.2021
 
 Joe Henderson - Mode For Joe (1966) 1988, Blue Note Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -658,93 +745,6 @@ Cymande - Second Time Round (2014) [FLAC|Lossless|tracks + .cue] <Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1893F80C28C85D11E76F99604DDB636F9E29E5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011255   (797054) от 27.04.2016
-
-Alexey Lapin & Yury Yaremchuk (Алексей Лапин и Юрий Яремчук) - Anatomy of Sound (2010) Solyd Records[APE|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Birth [06:51]
- 02.Transformations [07:25]
- 03.Transmutations [06:03]
- 04.Transconfigurations [10:57](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC865A85A091D2A5CD5AA5BD7E5F679722E83D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011242   (797044) от 27.04.2016
-
-Dave Weckl Band - Perpetual Motion (2002) [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Up
-02. Child's Play
-03. Mesmer-Eyes
-04. Skipper(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C8F9C7DDA1A4F88596E6BDC38ACB0ECC4F2A252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011420   (797039) от 27.04.2016
-
-The Blues Experience - Coming Your Way (2005) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can't Loose What You Never Had (06:20)
-02. My Credit Didn't Go Through (04:53)
-03. Stand Back (04:01)
-04. The Way It Goes (03:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C78FE8628545EE9751234093BF305F3528E249
 ```
 
 https://mybot314.ru/tekegram_catalog/

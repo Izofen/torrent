@@ -1,3 +1,38 @@
+###  Публикация: 598541   (999337) от 06.01.2013
+
+VA - Futuristic Metal Compilation: Cyber Metal (2011) [MP3|256-320 kbps] <Cyber Metal , Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Herrschaft - I Am The One (05:22)
+02. Sybreed - Neurodrive (04:09)
+03. Helltrash - Cyber Messiah (03:30)
+04. Neurotech - Nonexistent (04:11)
+05. Cruentus - Terminal Code (03:25)
+06. 2 Times Terror - Lust (04:03)
+07. ...And Oceans - Silhouette: In White Rooms: Vacant Bodies (03:47)
+08. Synthetic Breed - Cybernetics (03:47)
+09. Vortech - Humanity: Static (00:00)
+10. The Kovenant - Mirrors Paradise (04:59)(   Читать дальше...   )Жанр: Cyber Metal , Industrial MetalПродолжительность: 01:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CD524113DBE6B80F2B2EBF78FC005DE0C91AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599453   (998979) от 08.01.2013
 
 Your Tomorrow Alone - Ordinary Lives (2012) [MP3|320 кб/с]<Doom / Gothic Metal>
@@ -821,41 +856,6 @@ Circle II Circle - Seasons Will Fall (2013) [MP3|320 кб/с]<Progressive Power 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:799C7570BD155BB84F792FC518EAA3F4AA2D04CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607774   (994142) от 24.01.2013
-
-Jorn - Symphonic (2013) [MP3|320 кб/с]<Symphonic, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Came to Rock
- 02. Rock and Roll Children
- 03. The World I See
- 04. Burn Your Flame
- 05. Man of the Dark
- 06. My Road
- 07. Time to Be King
- 08. Black Morning
- 09. Like Stone in Water
- 10. Vision Eyes(   Читать дальше...   )Жанр: Symphonic, Heavy MetalПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA7321220742F5E39F7002B5E83044E89D6A945
 ```
 
 https://mybot314.ru/tekegram_catalog/

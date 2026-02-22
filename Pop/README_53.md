@@ -1,3 +1,122 @@
+###  Публикация: 1494022   (892566) от 05.09.2021
+
+Chantal Curtis - Get Another Love (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Another Love (8:52)
+02. Hey Taxi Driver (4:19)
+03. I'm Burnin' (7:00)
+04. Hit Man (8:07)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEF089087C52423306F09D45149AB89B97ADFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 638603   (892476) от 04.04.2013
+
+Stars On 45 - 25 Disco MegaMixes (2006) [MP3|192 кб/с]<Pop, Disco>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DiscoПродолжительность: 04:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32986695DA82FF8E81931797137A4EB240C5850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493948   (892323) от 05.09.2021
+
+Engelbert Humperdinck - Forgotten Promises [1967 – 1975] (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Song (La Paloma)
+02. Born To Be Wanted
+03. That Promise
+04. Pretty Ribbon(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C3305A14E3729668FCA8F93820343A85E4DAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 638627   (892218) от 04.04.2013
+
+VA - Disco шоу 80-х (2007) [MP3|320 кб/с]<Disco, Eurodisco>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Ottawan - Youre OK
+02-Joy - Touch By Touch
+03-Fancy - Slice Me Nice
+04-The Flirts - Temptation
+05-Mike Mareen - Lady Ecstacy
+06-Supermax - Number One In My Heart
+07-Boytronic - Late Night Satellite
+08-Silicon Dream - Andromeda
+09-Five Letters - Im In Love
+10-Vulcano - Break Out(   Читать дальше...   )Жанр: Disco, EurodiscoПродолжительность: 03:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249C92841665DA779AF382CB79BB2E6BE8553994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994257   (891595) от 07.03.2016
 
 Anya Marina - Paper Plane (2016) [MP3|320 кб/с] <Alternative Pop, Indie Pop, Indie Rock>
@@ -627,122 +746,6 @@ VA - Die Hit-Giganten - Sommerhits (2007) 2CD, Compilation [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F6F0C185F9CF6AFAE3C46EC426C4DAB72EB566D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994555   (889631) от 08.03.2016
-
-Wax - Magnetic Heaven (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Between The Eyes
-02. Hear No Evil
-03. Shadows Of Love
-04. Marie Claire(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:918AC800E3B72FA53F27D652573DA4650C01597E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494482   (889329) от 07.09.2021
-
-Walter Martino - Nervi A Pezzi (1980) LP [MP3|320 Kbps] <Electronic, Disco, Prog Rock, Stage & Screen>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Of Libra (5:43)
-02. I'm Missing You (2:58)
-03. What Love Can  Do (7:30)
-04. Delirious Fever (3:46)(   Читать дальше...   )Жанр: Electronic, Disco, Prog Rock, Stage & ScreenПродолжительность: 00:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CCA55C5A12C8979241FC90EE6603CE80DF200F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494461   (888980) от 07.09.2021
-
-Halsey - If I Can’t Have Love, I Want Power (Target Exclusive) (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tradition (3:46)
-02. Bells in Santa Fe (3:38)
-03. Easier than Lying (3:26)
-04. Lilith (2:47)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2134632F541CA88BF590CDFAA3B462DC3839E22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494363   (888828) от 07.09.2021
-
-VA - Italian Best Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zucchero - Senza Una Donna (Original Italian Version) (04:27)
-02. Gianluca Grignani - La Mia Storia Tra Le Dita (05:09)
-03. Vasco Rossi - E... (Remastered 2017) (03:29)
-04. Franco Battiato - Centro Di Gravità Permanente (Remastered) (03:59)(   Читать дальше...   )Жанр: PopПродолжительность: 03:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A734CF6B099792E042AB71804C1D770380C70751
 ```
 
 https://mybot314.ru/tekegram_catalog/

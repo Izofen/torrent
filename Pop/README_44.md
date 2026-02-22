@@ -1,3 +1,118 @@
+###  Публикация: 1364500   (936301) от 03.03.2020
+
+Владимир Маркин - Мои лучшие сбережения. Выпуски 3 и 4 (2008-2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тополя
+02. Авиатор
+03. Колыбельная
+04. От зари до зари(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CBDDB9A4B779A2433C34AFC5F915B23B2C513E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 88540   (935639) от 03.03.2020
+
+F.R. David - 5 Альбомов (1982-2007) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Ф. Р. Дэвид (фр. F. R. David, по-французски произносится «Эф Эр Дави́д»; настоящее имя — Эли́ Робе́р Фитусси́ (фр. Elli Robert Fitoussi), род. 1 января 1947 года в Тунисе) — французский певец тунисского происхождения, исполняющий песни на английском языке.
+Музыкальную карьеру в конце 1960-х он начинал как аккомпаниатор (бас) различных (   Читать дальше...   )Жанр: Pop, Pop rock, Euro disco, SynthpopПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD88E16CC0125EB8DA6B63D8BBDBBAA2140F63AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985494   (935548) от 11.02.2016
+
+Monica Naranjo - 4.0 (2014) [MP3|~245 кб/с (V0)] <Latin, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935548.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Desatame / Intro 6:29
+2.Solo Se Vive Una Vez 4:14
+3. Todo Mentira 4:01
+4. Entender El Amor 6:16(   Читать дальше...   )Жанр: Latin, Rock, PopПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5244A812FB686EFDF0F4A1BF267EA57C8A34524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985502   (935543) от 11.02.2016
+
+Ronan Keating - Time of My Life (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Love You
+ 02. As Long As We're In Love
+ 03. Breathe
+ 04. She Knows Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE562544056DC69DAAD585BE3AC358F057FE55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985257   (935528) от 11.02.2016
 
 VA - Kuschelrock 17 (2003) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
@@ -627,119 +742,6 @@ VA - The Disco Sessions (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD95F75A2DE4F71C38F1899CC5E4E520E76A6F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093880   (932272) от 16.01.2017
-
-Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932272.jpg" />
-</div>
-
-
-###  Подробнее
-
-На мой взгляд (и не только) шедевр 80-ых во многом опередивший своё время и, возможно поэтому, недостаточно оцененный современниками.01. For America
-02. Heart Of The Sun
-03. Billy's Line
-04. Bantu(   Читать дальше...   )Жанр: Alternative Pop, New Wave, Choral, Orchestral, Art Rock, World MusicПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365190   (932238) от 06.03.2020
-
-Наталья Подольская - Плачь (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Феникс
-2. Сильная слабая
-3. Плачь
-4. Ни много, ни мало(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F7A000073D6A3C1ACC5C4DC71EB7D7D42821D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365189   (932115) от 06.03.2020
-
-Филипп Киркоров - Романы, Часть 1 (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932115.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Романы
-2. Это была любовь
-3. Любимые люди
-4. Улети(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D609EB6848F9619BB688D0FDD9719E1F7032108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629864   (931274) от 13.03.2013
-
-Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+cue)|Lossless]<Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, R&BПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

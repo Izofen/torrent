@@ -1,3 +1,32 @@
+###  Публикация: 925949   (537281) от 08.08.2015
+
+Plas Johnson - Positively (1976) /Concord Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Positively [03:34]
+02. Lover Man (Oh, Where Can You Be) [04:45]
+03. Let's Get It All Together [07:10]
+04. Easy For You To Say [04:39](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48A7B01FF2A616D114E4B05980862E81CD9B50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925854   (537275) от 08.08.2015
 
 Bob Baldwin - MelloWonder, Songs In The Key Of Stevie (2015) [FLAC|image+.cue]<Smooth Jazz>
@@ -716,35 +745,6 @@ Naniwa Express - No Fuse (1982) Sony[APE|Lossless|image + .cue] <Jazz Fusion, Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5944C2CB34204B9522A5586296F3C850BB3C3A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051014   (535131) от 10.09.2016
-
-Ella Fitzgerald - Ella A Nice (1971) 1983, Pablo[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Night And Day [06:58]
- 02.The Many Faces Of Cole Porter [05:32]
- 03.The Ballad Medley [04:51]
- 04.The Bossa Scene [05:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B375037F77A424199360496D6634C244429B3596
 ```
 
 https://mybot314.ru/tekegram_catalog/

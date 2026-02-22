@@ -1,3 +1,32 @@
+###  Публикация: 811661   (225052) от 18.11.2020
+
+Collapse Under The Empire - 7 Albums, 4 EP, 3 Singles (2009-2020) [MP3|320 кб/с] <Post-Rock, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Albums:
+2009 - Systembreakdown
+2010 - Find A Place To Be Safe
+2011 - Shoulders & Giants(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 07:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9D80954B96F92ADD34DCB6E4A45432478453EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513199   (224968) от 28.11.2021
 
 Blizzard Composer - Starcraft / Starcraft II OST (2007-2015) 5 CD [FLAC|Lossless|tracks + .cue] <Electronic, Stage & Screen>
@@ -739,35 +768,6 @@ Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F7FD3F822B02828D0E31F46541CC6E88AD08A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651372   (220165) от 08.08.2023
-
-Rezodrone - Gods Of Metal Ragnarock (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, Epic Metal>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods Of Metal: Ragnarock Overture (feat. Jamison Boaz) [00:03:58]
-02. In The Beginning [00:02:56]
-03. The Proving Fields (feat. George Lynch) [00:03:05]
-04. Titans Walk Amongst Us (feat. Ernie C) [00:04:02](   Читать дальше...   )Жанр: OST, Epic MetalПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC87D80FCAB00DBED11F519006CA6C790BA6D075
 ```
 
 https://mybot314.ru/tekegram_catalog/

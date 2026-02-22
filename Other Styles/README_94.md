@@ -1,3 +1,32 @@
+###  Публикация: 1033884   (634311) от 13.07.2016
+
+The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock, Power Pop>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's All In The Head
+02. Just Another Party
+03. Never Take You For Granted
+04. Waiting On The Other Side(   Читать дальше...   )Жанр: Rock, Garage Rock, Power PopПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C989504E5E651A18AABC4B06B130D17AC15DCDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034422   (634309) от 13.07.2016
 
 VA - Legends (2016) [MP3|320 Kbps] <New Age>
@@ -743,35 +772,6 @@ Elise Lebec - Heart Song (2014) [MP3|320 Kbps] <New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B491C9588D7248210D23B3AD2C0C17A62319CA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035239   (628613) от 16.07.2016
-
-John Debney - Ice Age: Collision Course  / Ледниковый период Столкновение неизбежно (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice Age Collision Course Main Title (00:15)
-02. Cosmic Scrat-tastrophe (02:42)
-03. Earthbound Acorn (00:41)
-04. Family Bonding (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB39DF0787B2AF995AF0684A7301D3FB35A01C6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1766754   (101215) от 20.12.2024
+
+Jelly-Roll Morton - 1928 - 1929 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Hot Pepper [3:12]
+02. Deep Creek [3:32]
+03. Pep [2:57]
+04. Seattle Hunch [3:10](   Читать дальше...   )Жанр: New Orleans JazzПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F9465466474681C686AECDAB5A63B3C2DC153D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767088   (101213) от 21.12.2024
 
 VA - My PlayList (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, R&B>
@@ -716,35 +745,6 @@ Shayne J Davis - Wardrop Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5E466D418CEBC39C861E868A25B51B6392A6076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768160   (101129) от 24.12.2024
-
-Flickering Alley - Lanterns in the Fog (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streets of Saffron Glow (3:54)
-02. Footsteps Beneath Amber (2:33)
-03. The Lightkeeper's Trail (2:41)
-04. Fragments Beneath the Glow (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C8EB14AD719FAE793032E56FD0287828C0F52C
 ```
 
 https://mybot314.ru/tekegram_catalog/

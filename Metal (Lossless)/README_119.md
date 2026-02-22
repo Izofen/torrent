@@ -1,3 +1,273 @@
+###  Публикация: 1035630   (626706) от 17.07.2016
+
+Tanzwut - Schreib Es Mit Blut (2016) [FLAC|Lossless|image + .cue] <Folk Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schreib Es Mit Blut
+02. Steig Ein
+03. Bruder Leichtsinn
+04. Chaos(   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 0:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9BF8D1F69073AF83EC67E2180151186F2A6619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035575   (626391) от 17.07.2016
+
+Chastain - We Bleed Metal (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Bleed Metal
+02. All Hail the King
+03. Against All the Gods
+04. Search Time for You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 0:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702F58EF2086274E087983FE2D2E0E0603152D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543913   (626093) от 13.04.2022
+
+James Norbert Ivanyi - Sigil (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Spectre Departed (00:10:48)
+02 - The Clairvoyant Coil (00:10:02)
+03 - Our Revenant Sigil (00:11:04)Жанр: Progressive MetalПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EB80099B23DAFF7C41F1AAEF8CC50593D71A37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543662   (625957) от 13.04.2022
+
+Stargazery - Eye On The Sky (2011) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dying
+02. Everytime I Dream Of You
+03. Eye On The Sky
+04. How Many Miles(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316B099CECFB9A951A1679D41246E3F67EC54422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144624   (625939) от 23.06.2017
+
+Infected Virulence - Music Of Melkor (1994) 2016, Raw Skull Recordz [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Music Of Melkor
+02.The Darkening
+03.Doom Of The Atani
+04.Nirneath Arnodiad(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBE3FE563AAD6499FFA56A500A46988704623A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144593   (625768) от 23.06.2017
+
+Manilla Road - To Kill A King (2017) [FLAC|Lossless|tracks + .cue] <Epic Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Kill A King 10:03
+02. Conqueror 03:38
+03. Never Again 06:21
+04. The Arena 06:30(   Читать дальше...   )Жанр: Epic Heavy, Power MetalПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4F6853A7064447E59AEF5D450E25FDE35F534E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144584   (625753) от 23.06.2017
+
+Suffocation - ...Of The Dark Light (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clarity Through Deprivation (4:04)
+02. The Warmth Within the Dark (3:40)
+03. Your Last Breaths (4:36)
+04. Return to the Abyss (3:56)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D1D32EEB58FA9EED8A7A6E8CCE8C8FD32CF4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521535   (625237) от 12.07.2012
+
+Vintersorg - Orkan (2012) [FLAC|Lossless]<Progressive Metal/Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Istid (5:52)
+02. Ur Stjarnstoft Ar Vi Komna (7:08)
+03. Polarnatten (7:25)
+04. Myren (5:04)
+05. Orkan (5:14)
+06. Havets Nad (6:39)
+07. Norrskenssyner (6:08)
+08. Urvadersfangen (7:03)Жанр: Progressive Metal/Viking MetalПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521575   (625153) от 12.07.2012
+
+Pellek - Bag Of Tricks (2012) [FLAC|Lossless]<Power Metal/Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entrance (1:55)
+02. Fugue State (3:55)
+03. Reason And Psychosis (3:24)
+04. Send My Message Home (4:50)
+05. Thundernight (3:34)
+06. Win (4:06)
+07. Don't Belong (4:01)
+08. Stare Into My Eyes (3:48)
+09. Born In Babylon (4:40)
+10. Bag Of Tricks (3:59)(   Читать дальше...   )Жанр: Power Metal/Progressive MetalПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035591   (624731) от 18.07.2016
 
 Baroness - Purple (2015) [FLAC|Lossless|image + .cue] <Sludge Metal, Progressive Rock>
@@ -498,284 +768,6 @@ Katana - Storms Of War (2012) [FLAC|Lossless]<Heavy Metal>
 08. The Gambit (4:02)
 09. Modesty Blaise (3:34)
 10. The Wisdom Of Edmond's Field (6:12)Жанр: Heavy MetalПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522442   (623009) от 13.07.2012
-
-Holy Knights - Between Daylight and Pain (2012) [FLAC|Lossless]<Power Metal/Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mistery  (5:10)
-02. Frozen Paradise  (5:39)
-03. Beyond the Mist  (5:40)
-04. 11 September  (5:02)
-05. Glass Room (5:19)
-06. Wasted Time  (4:50)
-07. Awake  (4:16)
-08. The Turning to the Madness  (6:01)
-09. Resolution (Bonus Track)  (4:58)Жанр: Power Metal/Symphonic MetalПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035981   (622665) от 19.07.2016
-
-Be'lakor - Vessels (2016) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622665.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Luma
-2. An Ember's Arc
-3. Withering Strands
-4. Roots To Sever(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 0:88:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353AA2CE79A64DDB886E55485D03235DE7531446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229756   (622621) от 08.06.2018
-
-Lordi - Sexorcism (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexorcism
-02. Your Tongue's Got the Cat
-03. Romeo Ate Juliet
-04. Naked in My Cellar(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB94B2A2371B41222467F96612BD395AC4B0A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295023   (622378) от 11.04.2019
-
-Eluveitie - Ategnatos (2019) Limited Bonus Edition [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ategnatos (4:53)
-02. Ancus (0:11)
-03. Deathwalker (4:53)
-04. Black Water Dawn (4:18)(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CEF41903C0F72B1F69C72FDC7A2F5B59E96DCF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544166   (622215) от 15.04.2022
-
-Saints 'n' Sinners - Rise Of the Alchemist (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Above So Below
-02. Sign Of Things To Come
-03. Sacred Ground
-04. Saviour Of The Damned(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39DB78D5F8E4E4CB2399BD6DD3890736FBFA528B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910421   (621778) от 20.06.2015
-
-Luca Turilli's Rhapsody - Prometheus, Symphonia Ignis Divinus (2015) Limited Edition [FLAC|image+.cue]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нас ждет 70 минут эпической музыки, полной кинематографии, пафоса и драмы. Новый шедевр Luca Turilli's Rhapsody приведет слушателей к эмоциональному путешествию сквозь квантовые врата, параллельные измерения и легенды, скрывающие космические истины, родовые тайны и духовные откровения.01. Nova Genesis (Ad Splendorem Angeli Triumphantis)
-02. Il Cigno Nero
-03. Rosenkreuz (The Rose And The Cross)
-04. Anahata(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE863003ED75D8D79EB1306598498DE716AE888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910364   (621355) от 20.06.2015
-
-Lindemann - Skills in Pills (2015) [FLAC|tracks +.cue]<Industrial Metal>
-
->>След.
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skills In Pills
- 02. Ladyboy
- 03. Fat
- 04. Fish On(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2CDBF7CA6C971AC61C716BA55EF8E3F3D4524C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521959   (621150) от 14.07.2012
-
-Reverence - When Darkness Calls (2012) [WavPack|Lossless]<Heavy Metal/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Darkness Calls (5:01)
-02. Bleed For Me (4:11)
-03. Phantom Road (3:47)
-04. Devil In Disguise (4:31)
-05. Too Late (5:17)
-06. Gatekeeper (3:55)
-07. The Price You Pay (4:19)
-08. Monster (4:54)
-09. Revolution Rising (5:33)
-10. After The Leaves Have Fallen (3:36)(   Читать дальше...   )Жанр: Heavy Metal/Power MetalПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522132   (621141) от 14.07.2012
-
-Black Breath - Sentenced To Life (2012) [FLAC|Lossless]<Death 'n' Roll/Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feast of the Damned (2:52)
-02. Sentenced To Life (2:24)
-03. Forced Into Possession (1:57)
-04. Home of the Grave (3:30)
-05. Endless Corpse (4:31)
-06. Mother Abyss (2:33)
-07. Of Flesh (3:32)
-08. Doomed (2:00)
-09. The Flame (4:09)
-10. Obey (5:12)Жанр: Death 'n' Roll/Thrash MetalПродолжительность: 00:32:41
 
 ## Скачать торент
 ```bash

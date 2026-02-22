@@ -1,3 +1,32 @@
+###  Публикация: 1461869   (1021588) от 11.04.2021
+
+VA - National Pop Dance Music (Vol. 15) (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты в поиске заводной весенней музыки, веселого ритма и душевных мелодий, то сборник «National Pop Dance Music» уже 15-го релиза - это то, что ты искал. Добро пожаловать на самую крупную дискотеку всех стран европы! На лонгплее для вас играют лучшие музыканты, самые востребованные и признанные артисты многонационального содружества.001. Dotan - There Will Be A Way
+002. Holy Molly - Alcohol
+003. Keiju - Let Me Know
+004. Smith & Thell - Yatzy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC9B371FBA24EACA0C26B9EED2A7FFD15106C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462228   (1021320) от 13.04.2021
 
 VA - Funk N' Groove Disco Mix (2021) [MP3|320 Kbps] <Disco, Nu Disco, Funk>
@@ -713,35 +742,6 @@ VA - Simply 90s: Greatest Hits of the 90ies (2021) [MP3|320 Kbps] <Electronic, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D78C4ECEB007281FED9AD4CB35D14D876CD9D9C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472828   (1014011) от 27.05.2021
-
-VA - The Evening Of Retro Mania (2021) [MP3|320 Kbps] <Pop, Rock, Disco, Retro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014011.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Silicon - True Faith
-002. Continent Number - Afromerica
-003. DJ Scana - Dream On Me
-004. The B-52's - Channel Z(   Читать дальше...   )Жанр: Pop, Rock, Disco, RetroПродолжительность: 13:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7E37A4C323322003E36352219FB1DA396B68D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

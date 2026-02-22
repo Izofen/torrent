@@ -1,3 +1,32 @@
+###  Публикация: 1279839   (764602) от 31.01.2019
+
+Richard Cole - The Forgotten (2001) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Any Skynyrd [9:05]
+02. The Best Thing for You [5:53]
+03. Angel Eyes [6:47]
+04. Without a Song [7:01](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16695E435F8F1F5590E506BDACB97F1C26564F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279791   (764601) от 31.01.2019
 
 Mel Torme & Rob McConnell - And The Boss Brass (1986) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ VA - Saxy By Nature (Sensual Smooth Jazz Sax Rendezvouz) (2019) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7502E88FE5F06DAFC70D6D58F59983A53D92D976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280287   (762129) от 02.02.2019
-
-VA - Saxappeal (Lounge Saxophone Smooth Jazz Del Mar) (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jizz Jazz - Lost In Your Eyes (Cool Chillax Saxy Extended Mix)
-02.Dave Nimerfro - Get You Into My Life (Saxuality Chill Lounge Mix)
-03.Jazz L'amour - Summer Dreams (See The Light Mix)
-04.Perelandra - Sax On The Beach (Jazz 'n' Chill Mix)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE4DD5B75BEDD15DD9919817B99D53E3181C1D8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

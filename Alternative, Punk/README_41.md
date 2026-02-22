@@ -1,61 +1,3 @@
-###  Публикация: 1672169   (170008) от 27.10.2023
-
-Nirvana - In Utero (1993) 30th Anniversary Super Deluxe, 2023, Geffen [MP3|320 Kbps] <Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-01 - In Utero (30th Anniversary Super Deluxe)
-02 - In Utero (30th Anniversary Super Deluxe)
-03 - In Utero (30th Anniversary Super Deluxe)Жанр: GrungeПродолжительность: 3 CD, 04:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFCE6E139D8EE949905ABA452AC6C0F7C033125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596701   (169295) от 11.12.2022
-
-Vella - 3 Albums (2020-2022) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2020 - Coma
-2022 - Entity (Vol. 1)
-2022 - Entity (Vol. 2)Жанр: MetalcoreПродолжительность: 3 CD, 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FB06D096C446726F9084C7488FC4459A406BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546213   (169053) от 07.12.2021
 
 Famous Last Words - 3 альбома + 3 EP (2012-2021) [MP3|320 кб/с]<Post-Hardcore, Metalcore, Electronic>
@@ -752,6 +694,70 @@ Thief (Dylan Neal) - 4 Albums (2016-2021) [MP3|320 Kbps] <Alternative, Dark Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:344F7C43BC366579233C91C0DB983A917AEB9855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589964   (145819) от 16.12.2012
+
+Capture The Crown - 'Til Death (2012) [MP3|320 кб/с]<Post-Hardcore | Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145819.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Arrival
+2. #OIMATEWTF (featuring Denis Shaforostov)
+3. Fork Tongued
+4. Ladies & Gentlemen...I Give You Hell!
+5. LAX
+6. You Call That A Knife? This Is A Knife!
+7. Storm In A Teacup
+8. Help Me To Help You
+9. Deja Vu
+10. Insomniac(   Читать дальше...   )Жанр: Post-Hardcore | ElectronicПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150FEDCBD20F96F33D27B2EB4A396501C6A32A09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969958   (145425) от 28.12.2015
+
+VA - Kerrang! Ultimate Rock Heroes! (2015) [MP3|320 кб/с] <Alternative Rock, Pop Punk, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Enter Shikari - Know Your Enemy (Rage Against the Machine) :: 04:37
+02.  Neck Deep - Don't Tell Me It's Over (Blink-182) :: 02:29
+03.  Palm Reader - My Plague (Slipknot) :: 03:49
+04.  Feed The Rhino - I'm Broken (Pantera) :: 04:19(   Читать дальше...   )Жанр: Alternative Rock, Pop Punk, HardcoreПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D55EE4251CC35E1E72F5CF8B0511D4A9ABFE10D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1182736   (313973) от 11.11.2017
+
+Юлия Чичерина - Избранное 1997-2017 (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Off-On
+02. Радиоволна
+03. Жара
+04. 40000 км(   Читать дальше...   )Жанр: RockПродолжительность: 02:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C317B1DABA970325F09C8F35653CB20DD8E4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260001   (311389) от 07.11.2018
 
 VA - Hits of My Soul Vol. 42 (2018) [MP3|320 кб/с]<Rock, Metal, Alternative>
@@ -725,35 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00AAB2D9FF224E4A38D40F67CE51A9BF37C6ED67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263402   (288010) от 19.11.2018
-
-VA - Back In Your Life (2018) [MP3|320 Kbps] <Alternative, Punk, Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288010.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. They Might Be Giants - Theme From Flood
-002. A Vulture Wake - Collateral Damage
-003. Camiches - Espero Nadie Ocupe Mi Lugar
-004. Wax Chattels - It (Live At Part Time Punks)(   Читать дальше...   )Жанр: Alternative, Punk, Punk RockПродолжительность: 09:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F669CCBA7271B858670550BD2DD2E1FA1A09A22C
 ```
 
 https://mybot314.ru/tekegram_catalog/

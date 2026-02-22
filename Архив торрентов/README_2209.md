@@ -1,3 +1,32 @@
+###  Публикация: 1022090   (729759) от 01.06.2016
+
+L 33 - Karate (2016) LP [MP3|320 кб/с] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clublife (Original Mix)
+ 02. Electroshock
+ 03. Bloodbrain (Original Mix)
+ 04. Collide(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDA7C8255233420B220A439216EC36748841208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022358   (729755) от 01.06.2016
 
 Holy Fuck - Congrats (2016) [FLAC|Lossless|tracks] <Electronic, Experimental>
@@ -660,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39EAB3C7DB172CED7F18439414BD3800972450E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283923   (729572) от 20.02.2019
-
-SamDrivers 19.2 - Сборник драйверов для Windows [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник драйверов от www.SamLab.ws для всех 32-х и 64-битных операционных систем Windows, начиная от Windows 2000 и до Windows 10 RS5 включая серверные платформы.В качестве оболочек-установщиков, для автоопределения вашего оборудования и автоматической установки необходимых драйверов, использованы специализированные утилиты: DriverPack Solution 16.18 Plus / Drivers (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3E31E649961A41D4E3201962E38E68F9FF1B59
 ```
 
 https://mybot314.ru/tekegram_catalog/

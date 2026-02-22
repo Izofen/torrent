@@ -1,3 +1,81 @@
+###  Публикация: 389457   (453574) от 19.09.2011
+
+Звёзды шансона в Лужниках (2011.09.18) (2011) IPTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт с участием звезд русского шансона в Лужниках, посвящённый Дню города.Жанр: КонцертПродолжительность: ~ 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C200170A415161FD95C5BD3F8CD0028B423843C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551393   (453457) от 24.09.2012
+
+Galena ft Costi - Chik Chik (Mnogo mi otivash) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D736EF05D0FA48817BF1443B358D8F602FF5644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551385   (453324) от 24.09.2012
+
+Diplo & Datsik feat. Kay - Pick Your Poison (2011) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DubStepПродолжительность: 00:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB504065C09E284A569DEB9588DC5E1893F3536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551388   (453319) от 24.09.2012
 
 Chelsea Bishop - Bad Things (2012) [H.264/1080p] WEBRip
@@ -610,87 +688,6 @@ KooFee feat. Manu Blanco - El Culito (2012) [H.264/720p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F031211E2AB7E8D94BEAE1982DB6A21B7FDF1456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248092   (446177) от 18.09.2018
-
-Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000 / 2013) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт воссоединившейся группы Scorpions, исполнившей свои хиты 22 июня 2000 года в своём родном городе Ганновере с Берлинским филармоническим оркестром.01. Hurricane 2000
-02. Moment Of Glory
-03. You And I
-04. We Don't Own The World(   Читать дальше...   )Производство: США \ Eagle Rock EntertainmentЖанр: Heavy Metal, Hard Rock, Symphonic RockРежиссер: Пит ВайрихСубтитры: ОтсутствуютПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E5F511E9F011E837CD3D4FD2C3F392CEF24B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553019   (446087) от 27.09.2012
-
-Sandra Afrika - Neko ce mi nocas napraviti sina (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4FA48620A6AC17FBBB2049B8BD9D893094716E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552689   (445770) от 27.09.2012
-
-Lindsey Stirling - Elements  (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F40B0B5C6BE4DA9C8C6DA52BFB1225C4087A56
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 560182   (407351) от 14.10.2012
+
+Aaron Watson - Real Good Time (2012) [MP3|320 кб/с]<Country>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407351.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2:23) 01. Real Good Time
+(3:44) 02. Summertime Girl
+(3:48) 03. Lips
+(3:35) 04. Turn Around
+(4:22) 05. July In Cheyenne (Song for Lane's Momma)
+(3:06) 06. Cadillac Cowboy (with Justin McBride)
+(2:23) 07. Fish
+(3:54) 08. Leather and Lace (with Elizabeth Cook)
+(3:32) 09. Raise Your Bottle
+(3:44) 10. Texas Boys (with Pat Green & Josh Abbott)Жанр: CountryПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2E97B71C054A498283A452C90111B832B9007E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 560421   (407348) от 14.10.2012
 
 Чистосердечное признание . Самые богатые (2012.10.14) SATRip
@@ -654,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F0E4CC8A90E92CEDD67D067C2D5865FFB5E3222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560332   (407253) от 14.10.2012
-
-[Рисованая графика] Artworks by Tiago Hoisel
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Tiago Hoisel.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248615D3A4A8A15C56B23E1627E607F36D651628
 ```
 
 https://mybot314.ru/tekegram_catalog/

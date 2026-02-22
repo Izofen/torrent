@@ -1,3 +1,32 @@
+###  Публикация: 983901   (938232) от 09.02.2016
+
+M83 - Suburra (2015) Original Motion Picture Soundtrack [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight City (4:04)
+02. By The Kiss (4:03)
+03. On A White Lake, Near A Green Mountain (4:43)
+04. We Own The Sky (5:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59906ECD663AEAE63A82DD23D9057BEDF583B3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753365   (937978) от 04.02.2014
 
 Faun - Von Den Elben (2013) /Deluxe Edition/ [FLAC|Lossless]<Medieval, Folk>
@@ -765,35 +794,6 @@ Kristopher Carter, Michael McCuistion, Lolita Ritmanis and Shirley Walker - Су
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED81E3D0FC3F0D130FB498BF67C75602C6ADC0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364291   (936399) от 03.03.2020
-
-Felix Slovacek - Con amore (1998) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run To You
-02. Con amore
-03. Tell Him
-04. My Heart Will Go On(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A02CC919E7CD474F332A53F534F4727F505C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

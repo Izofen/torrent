@@ -1,3 +1,32 @@
+###  Публикация: 1449924   (1029574) от 23.02.2021
+
+Talisha Karrer - Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (04:05)
+02. My Favourite Game (03:35)
+03. Apologize (02:48)
+04. You Have Been Loved (04:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E5D81B5234960CF500F9AE7E1C5781ECA547C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450128   (1029189) от 25.02.2021
 
 Bonnie Tyler - The Best Is yet to Come (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -713,35 +742,6 @@ Chris Rea - Platinum (1997) Compilation Unofficial Release Russia [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E77A572F71D5F0F67BD9B1B02BAA1BCBD9A36EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083304   (1024725) от 24.03.2021
-
-Sweetback - Sweetback (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Electronic, Jazz, Trip-Hop, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaze (5:27)
- 02. Softly Softly (4:29)
- 03. Sensations (4:30)
- 04. Au Natural (4:15)(   Читать дальше...   )Жанр: Electronic, Jazz, Trip-Hop, DowntempoПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29D5CB264E3B19DC6680CF648697378622E2574
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1793877   (67416) от 27.04.2025
+
+VA - Techno Club Vol. 74 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Torsten Stenzel & Mahe' - Never Give Up (York Extended Mix) [6:09]
+02. XiJaro & Pitch x JKult - United In Dreams (Extended Mix) [7:06]
+03. Talla 2XLC - Touch The Light (Extended Mix) [6:30]
+04. Woody Van Eyden - Sky (Extended Mix) [5:20](   Читать дальше...   )Жанр: TranceПродолжительность: 03:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE759AB2F46C17ECD5124BFA11C494BF163C2233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794882   (67207) от 01.05.2025
 
 VA - Redux Selection, Vol. 5 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -714,35 +743,6 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 2 (2025) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95754CF9C83162D0F18F3A89EC21DAC392938CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808393   (64981) от 24.07.2025
-
-VA - Redux Selection, Vol. 8 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comacode - Straight Ahead (Extended Mix) [7:01]
-02. Raul Alex I. - Red Castle (Extended Mix) [8:03]
-03. Sander Bastiaans & SkyDrifter - Tenderness (Extended Mix) [7:12]
-04. Betibwe - Reality Universe (Extended Mix) [6:30](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D122CCF2E3F062D05CC9B64F54A8EA5E6C9E9F88
 ```
 
 https://mybot314.ru/tekegram_catalog/

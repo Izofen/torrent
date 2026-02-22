@@ -1,3 +1,32 @@
+###  Публикация: 1476847   (238993) от 13.06.2021
+
+АутистЪ - 3 Albums (2019-2021) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зарница горит (Дисциплина) [00:01:51]
+02. Нет дискотеки [00:02:11]
+03. Двуногий смеётся [00:03:11]
+04. Лето обещает быть холодным (2021) [00:02:06](   Читать дальше...   )Жанр: Hardcore PunkПродолжительность: 3 CD, 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB93ECC186E669B20AFF755D1C05169F792E73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622846   (238973) от 30.03.2023
 
 Лес Гинкго - Нечего терять (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
@@ -713,35 +742,6 @@ Egor Lappo - Trancevoicer (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:820AB441420FC2B4016A359C8EB81C353A9548C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505057   (236647) от 26.10.2021
-
-Shabnak - Fusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Tribal Metal, Industrual Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Fusion (Intro) [00:00:09]
-02. Spit [00:03:13]
-03. Slave Zero [00:05:04]
-04. I'm Not OK [00:03:26](   Читать дальше...   )Жанр: Tribal Metal, Industrual Metal, Nu MetalПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A78763FFEB866E810FB8598A2960F9EA3C0473
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,293 @@
+###  Публикация: 1058024   (471153) от 30.09.2016
+
+VA - Dance Club Tracks Carnaval (2016) [MP3|222-320 Kbps] <Club, Progressive, Funky, Dance, Euro, Hands Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flip Capella - Tricker (Martin Van Lectro Deep Mix) 05:09
+02. Discorocks - One Day In July (Adrian Oblanca Remix) 06:36
+03. M35 - Wipeout (Original Mix) 03:54
+04. James Best - Chain Smoke (Original Mix) 06:35(   Читать дальше...   )Жанр: Club, Progressive, Funky, Dance, Euro, Hands UpПродолжительность: 07:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3FE23FF2F78B6CD6074F7F34579C6302D4C358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058032   (471152) от 30.09.2016
+
+VA - Vocal House Experience Voyage (2016) [MP3|237-320 Kbps] <House, Funky, Soulful, Tech House, Club, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John De Sohn Ft. Noely Gray - Creedence 03:17
+02. Heavygrinder - Save You (Original Mix) 04:14
+03. Effex & Loco Feat. Amperage & Dela K - Hartertrackmitgutenvocals (Marc Reason Edit) 03:41
+04. Felix Jaehn - Shine (Extended Mix) 04:55(   Читать дальше...   )Жанр: House, Funky, Soulful, Tech House, Club, Nu DiscoПродолжительность: 09:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F169C6BA1891F3975FDE2B2C6B01A05DE144D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057808   (471151) от 30.09.2016
+
+VA - Хит Атака 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471151.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mseven - Необыкновенная
+002. Honne - Woman
+003. Трио S Klass - Леди Вамп
+004. Travis Garland - Bodies(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBDD5943ED7881D1AA3000502BB6EFC9695443F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406752   (471000) от 05.09.2020
+
+VA - Alternative World: Indie Pop-Rock Music (2020) [MP3|320 Kbps] <Indie, Alternative, Pop-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471000.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nolan Potter's - Nightmare Forever
+002. Guise - Brother In Arms
+003. Pleil - Offener Kanal
+004. Honey Cutt - Vacation(   Читать дальше...   )Жанр: Indie, Alternative, Pop-RockПродолжительность: 08:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D191ECCBAFC134196875AF2C1908E7E0D41F9A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406809   (470998) от 05.09.2020
+
+VA - German Top 100 Single Charts 04.09.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KitschKrieg & Jamule - Unterwegs
+02. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)
+03. Capital Bra - Frühstück in Paris (feat. Cro)
+04. 24kgoldn - Mood (feat. Iann Dior)(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4FD5131C66EF73C6A016548332F1748C9BFDCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939987   (470977) от 23.09.2015
+
+VA - Осенний Хит на радио Хит FM (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Татьяна Овсиенко - В Сердце
+02. Zlata (Злата) Feat. Dj Рубль - Курс Рубля
+03. Зарина Тилидзе - Нежность
+04. Mozgi (Потап) - Хлам(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF296284587193B5AB8B2C0D247351ADD9096015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058026   (470962) от 30.09.2016
+
+VA - Top 50 Workout Hits Rhythm (2016) [MP3|175-320 Kbps] <Trance, Euro House, Techno, Dubstep, Bassline, Psy, UK Garage>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Dance Alliance (D.D. Alliance) - Diving (Radio Edit) 03:17
+02. Klaudia Gawlas - In Unison 07:36
+03. Pier Boston Featuring Danny G - Turning Around (Radio Edit) 03:41
+04. Alex Preda - Expansion Of Particles (Original Mix) 07:15(   Читать дальше...   )Жанр: Trance, Euro House, Techno, Dubstep, Bassline, Psy, UK GarageПродолжительность: 04:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD19270CC18A33CDBDE8F17EED12D1D516CC3F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406761   (470853) от 05.09.2020
+
+VA - Summer Vacation: National Pop Music (2020) [MP3|320 Kbps] <Pop, Folk, Ethnik>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470853.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nameless In August - Been There Before
+002. Georgia Ruth - In Bloom
+003. Calimeros - Playa Blue
+004. Issam Hajali - Ana Damir El Motakallim(   Читать дальше...   )Жанр: Pop, Folk, EthnikПродолжительность: 10:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD3AEE069E1B59EF053822F8D03D75BE7635C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406596   (470839) от 05.09.2020
+
+VA - Music for You vol.12 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pomegranate Tiger - Gift of Tongues (01:26)
+ 02. The Omnific - Pharaoh (04:45)
+ 03. Imperial Triumphant - Transmission to Mercury (06:41)
+ 04. Circles - Blueprints for a Great Escape (04:48)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 04:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8D72554128649F1B1AEF1ACB0FCF47981F9457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058174   (470821) от 30.09.2016
+
+VA - Soft Jazz Best Background Music: Exam Study Music to Help Increase Concentration (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz for Study Music Academy - Soft Jazz: Best Background Music
+02. Easy Study Music Academy - Concentration and Brain Power
+03. Exam Study Piano Music Guys - Improve Human Memory
+04. Jazz Relax Academy - Positive Motivating Energy(   Читать дальше...   )Жанр: JazzПродолжительность: 01:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05E3FC2B5EC03361334DB82757EE5BB4243C85E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406758   (470695) от 05.09.2020
 
 VA - Beatport Tech House: Electro Sound Pack #170 (2020) [MP3|320 Kbps] <Tech House, Electro>
@@ -485,284 +775,6 @@ Vlad Cheis - Special Pre-Party a mix for Little Sweet Jamaica 28.01.12 (St. Pete
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC06584D7D1F70EC0BE3A665BB9E80D668730CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548400   (469857) от 17.09.2012
-
-VA - Record Superchart #258 (15.09.2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 03:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1711E0006B57C9C9A4A4DEA150292F52190E1DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245655   (469780) от 07.09.2018
-
-VA - Smooth Jazz: Lyric Theatre (2018) [MP3|320 Kbps] <Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469780.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Tuvman - Fall Is in the Air
-002. Good Morning Jazz Academy - Jazzy Romance
-003. Jazz Piano Bar Academy - Smooth Lovers Song
-004. Jazz Guitar Club - Jazzy Instrumentals(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 06:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E51E4CE0A4DADDF56F446CB8471EA6F2E870AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548308   (469545) от 17.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 73 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B54A90DA4461A94ECFBF0F397F22D13F145A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547641   (469544) от 17.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 72 [MP3|320 кб/с] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210D05178F3A6674800CED49AD351058D43C6D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547626   (469444) от 17.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 71 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8517CFCDA26AA8D540F3E3AAA9FD221A80AE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940479   (469346) от 24.09.2015
-
-VA - Summer Sunset Grooves (2015) [MP3|320 кб/с]<House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Love (feat. Adi Cudz) - Monsieur De Shada
-02. Ibiza 2015 - Jian Amari
-03. Ritmo de la Noche - G. No, Kaysha
-04. Justify Why - Davagani(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3433F8C1AE507FB3A8764E5B60A7EEEB72C68123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940172   (469318) от 24.09.2015
-
-VA - I Love Drum & Bass (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denary - I Got The Stuff 05:12
- 02. Gysnoize - Kiss Of Fire (Original Mix) 03:56
- 03. Artjumper - Submerciful (Original Mix) 04:43
- 04. Flanger Drummer & Dmitry Redko - Let's Move (Original Mix) 03:18(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21EF84D1B038C94E807314B9F6FC6D355D6496B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320665   (469289) от 19.08.2019
-
-VA - Singles Chat Pop August 2019 Vol.3 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cascada - Like the Way I Do [02:57]
-2. Charli XCX - Cross You Out (feat. Sky Ferreira) [03:28]
-3. Isac Elliot - Waiting Game [03:33]
-4. Miley Cyrus - Slide Away [03:54](   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C36E1DBD7F3A563A839EE452D44C0CFE3EAD6C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940401   (469178) от 24.09.2015
-
-VA - Extra Trance (episode 7) (2015) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lange & Kirkwood - Weaponized (Original Mix) (06:36)
-02. Naden - Surface (Original Mix) (04:58)
-03. Protoculture - Southbound (Original Mix) (05:17)
-04. Rick Bergmann - Sensations (Original Mix) (07:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA95E02E8561A2429C148CA05DBA4408E9092CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058570   (469068) от 01.10.2016
-
-VA - Осенняя Позитивная Сотка 2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469068.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Malika - Буду Рядом
-002. Feder Feat. Emmi - Blind
-003. Потап & Настя Feat. Бьянка - Стиль Собачки
-004. Eric Prydz Feat. Rob Swire - Breathe(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EAD078D9205FEC4041300CBCAE3C3910419C2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

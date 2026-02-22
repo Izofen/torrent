@@ -1,3 +1,32 @@
+###  Публикация: 1244217   (484209) от 31.08.2018
+
+Urbie Green - East Coast Jazz, Vol.6 (1955) 2001, Bethlehem [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mutation [3:12]
+02. On Green Dolphin Street [3:34]
+03. Just One of Those Things [4:21]
+04. How About You? [2:49](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1138BA5FBEDDFE417C5FFEB502A8B649019EEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159427   (484164) от 20.08.2017
 
 The Gil Evans Orchestra & Sting - In Perugia (1987) 2CD, 2006, Jazz Door [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
@@ -733,35 +762,6 @@ Noemi Nuti - Nice to Meet You (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71780854F2484390B8DF4A6D35AA3DB397604943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938515   (479995) от 19.09.2015
-
-Charles Lloyd - Nirvana (1968) /2014, Sony Music/ [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Island Blues [03:28]
-02.Carcara [01:47]
-03.Long Time, Baby [02:14]
-04.East Of The Sun (And West Of The Moon) [05:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15519395BD5967870E0B5643278D6D981AFFE72A
 ```
 
 https://mybot314.ru/tekegram_catalog/

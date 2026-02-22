@@ -1,3 +1,32 @@
+###  Публикация: 1244617   (479923) от 02.09.2018
+
+Stephen Rhodes - Pure Angel Healing (2018) [MP3|320 Kbps] <New Agе, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmony in Motion (07:20)
+02. Tearful Moments (08:51)
+03. Stationary Spirits (09:57)
+04. The Pathway of Life (06:39)(   Читать дальше...   )Жанр: New Agе, Relax, MeditativeПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8830FC9B6D55638A1F08FB8FBEF32198F854740F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938760   (479798) от 19.09.2015
 
 Cosmic Baby - Heaven (1998) [FLAC|Lossless]<Ambient, New-age, Electronic>
@@ -724,35 +753,6 @@ Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12B785EC0BA5D2F1562051DE74912CA3073BB14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797289   (473540) от 05.09.2018
-
-Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (2014) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:43)
-02. The Rains of Castamere* (02:42)
-03. Breaker of Chains (04:05)
-04. Watchers On the Wall (02:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 1:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
 ```
 
 https://mybot314.ru/tekegram_catalog/

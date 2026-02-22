@@ -1,3 +1,90 @@
+###  Публикация: 1191301   (264475) от 13.12.2017
+
+VA - Italo Disco - The Lost Legends Vol. 7 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fockewulf 190 - Gitano (6:04)
+02. Middle Ages - Stop Your Lies (6:12)
+03. Nord Est - Overnight (6:08)
+04. Bandeaux - Black And White (6:44)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82020FE3A1047608E7D1628703BD43C7408C2824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191165   (264473) от 13.12.2017
+
+St. Vincent - Masseduction (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Pop, Art Pop, Baroque Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hang on Me (02:48)
+02. Pills (04:40)
+03. Masseduction (03:17)
+04. Sugarboy (04:01)(   Читать дальше...   )Жанр: Alternative Pop, Art Pop, Baroque Pop, Electropop, New Wave, Ambient RockПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8920CC4363A7AB1F408F68E4C954FB61439B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191256   (264472) от 13.12.2017
+
+VA - BBC Radio 2: The Piano Room (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Piano>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264472.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Ed Sheeran  -  This Year's Love (Recorded for BBC Radio 2)  2:36
+02.  Sam Smith  -  Stay With Me (Recorded for BBC Radio 2)  3:26
+03.  George Michael  -  Let Her Down Easy (Live From Prague Opera House, 2011)  3:41(   Читать дальше...   )Жанр: Pop, Easy Listening, PianoПродолжительность: 02:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D755AC0E12041C376EA38E90112BD80127E83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191033   (264464) от 13.12.2017
 
 Бамбинтон - Альбом года (2017) [MP3|320 Kbps] <Рор>
@@ -658,93 +745,6 @@ Inna - Nirvana (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dancepop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F661C4C2B7BBB6E638BD2EFCB46099928CD5F82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340667   (263613) от 24.11.2019
-
-Francesca Michielin - di20are (2016) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nessun grado di separazione (3:40)
- 02. L'amore esiste (3:33)
- 03. Lontano (3:06)
- 04. Amazing (3:27)(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C03658C1A045A3BAD092B763F2DBAF740C2AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340710   (263591) от 24.11.2019
-
-Thegiornalisti - LOVE (2018) Carosello Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (1:25)
- 02. Zero stare sereno (3:15)
- 03. New York (3:40)
- 04. Una casa al mare (2:55)(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735736A7631C66366F6917842D2A1733A1C62241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340541   (263577) от 24.11.2019
-
-VA - 100 Greatest Acoustic & Chill Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Chill>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263577.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dua Lipa - Be the One (Acoustic)
-002. Maisie Peters - Feels Like This
-003. Birdy - Wings (Acoustic)
-004. Coldplay - The Scientist(   Читать дальше...   )Жанр: Pop, R&B, ChillПродолжительность: 06:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B250BF200D7F5A6A71077D2DB33C090270A80AEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

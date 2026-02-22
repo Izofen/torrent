@@ -1,3 +1,32 @@
+###  Публикация: 1033504   (638246) от 11.07.2016
+
+VA - Dub Hits Vol.2 (2016) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer Ft. Robin Vane -  Someday (Temple One Dub Mix) 5:51
+02. Feel & Alexandra Badoi -  Did We Feel (Reorder Dub Mix) 5:27
+03. Nomosk & Roman Messer Ft. Christina Novelli -  Lost Soul (Cold Rush Dub Mix) 7:32
+04. Universal Sense & Aelyn -  Be Where You Are (Instrumental Mix) 6:40(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2904AE7216D0081FB5BB1299362A2CCE9FF2012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033557   (638239) от 11.07.2016
 
 Cookie 5.0.9 [Multi]
@@ -658,33 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FA5DD65165D223FC09A96F918B7C3B640361A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033397   (637935) от 11.07.2016
-
-Label Pack - Sir Adrian Music - 16 Releases (2015-2016) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Time (Original Mix) (05:49)
-02. More Time (Dub) (05:49)Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 03:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A733FA6447E9ED30E1800BFAA12822226EF673F
 ```
 
 https://mybot314.ru/tekegram_catalog/

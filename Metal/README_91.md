@@ -1,3 +1,32 @@
+###  Публикация: 1420078   (333986) от 31.10.2020
+
+Seraphic - Chrysalis (2020) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind the Veil (02:32)
+ 02. Garden of Unearthly Delights (06:54)
+ 03. Shapeshifter (06:26)
+ 04. The Monster Within (06:09)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB5297F3185BBF918A3BAB431048397D474BA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420097   (333952) от 31.10.2020
 
 Jester's Tears - Perception (2020) [MP3|320 Kbps] <Progressive Power Metal>
@@ -715,35 +744,6 @@ Megadeth - Fatal Illusion (2015) Single [MP3|320 кб/с]<Heavy Metal, Thrash Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73FE7FD15F1E20E6174FC986636B7294143CEB46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581759   (326407) от 06.10.2022
-
-Borealis - Illusions (2022) [MP3|320 Kbps] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Illusions [00:01:22]
-02 - Ashes Turn to Rain [00:04:54]
-03 - My Fortress [00:07:12]
-04 - Pray for Water [00:05:26](   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9607A115F2122610D42B48993F6E4CA5605DA218
 ```
 
 https://mybot314.ru/tekegram_catalog/

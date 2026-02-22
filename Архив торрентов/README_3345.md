@@ -1,3 +1,30 @@
+###  Публикация: 1244540   (480166) от 02.09.2018
+
+Direct Mail 5.3.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Direct Mail - Лучшее приложение для управления и отправки писем для Mac OS.
+Direct Mail обладает интуитивно понятным интерфейсом и мощным почтовым движком, который позволит с легкостью поддерживать связь со своими контактами не заморачиваясь сложными настройками.Тип издания: macOS SoftwareРелиз состоялся: 05.08.2018Разработчик: e3 SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C737ABB3DA3BDDF308122090DABF4B6D1CDF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244695   (480164) от 02.09.2018
 
 Sage Francis - Human The Death Dance (2007) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious>
@@ -674,35 +701,6 @@ VA - Best Of Trance 2017 Vol.05 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:141B1C6764B4CEDCBFABB0CBA72190518FC25F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159438   (479934) от 22.08.2017
-
-PARiSONE - No Escape (2017) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:51)
-02. No Escape (04:02)
-03. Ocean Town (03:37)
-04. Trip Trap (03:25)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A171B180E717B2E9DE8FE875949F1A6205EB8D61
 ```
 
 https://mybot314.ru/tekegram_catalog/

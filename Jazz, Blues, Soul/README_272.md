@@ -1,3 +1,96 @@
+###  Публикация: 922556   (570046) от 28.07.2015
+
+Shorty Rogers - The Fourth Dimension In Sound (1961) /2014, Warner/[FLAC|tracks+.cue]<Jazz, West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One O'Clock Jump [03:42]
+02. Speak Low [03:35]
+03. Tonight [02:56]
+04. Lover [04:50](   Читать дальше...   )Жанр: Jazz, West Coast Jazz, CoolПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388BF592CC91CD6FCBF9D9AB52879E75342AC377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527741   (569567) от 30.07.2012
+
+Brad Leali - Claus Raible Quartet - D.A.'s Time (2007) [FLAC|Lossless]<Post-Bop, Bebop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Currawong
+02. Puddin' Time
+03. I guess I hang my tears out to dry
+04. Catina
+05. Manteca
+06. Little Freddie steps
+07. D.A.'s Time
+08. I'll keep loving you
+09. Not yet
+10. Blues for LizzieЖанр: Post-Bop, BebopПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303878   (569496) от 23.05.2019
+
+Jelly-Roll Morton - 1939 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Stride>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crave [3:05]
+02. The Naked Dance [2:51]
+03. Mister Joe [2:49]
+04. King Porter Stomp [2:50](   Читать дальше...   )Жанр: New Orleans Jazz, StrideПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBE475AD2286568BEDF8CF7F46A0DAA79E4820B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527714   (569493) от 30.07.2012
 
 Boris Frumkin & Sergei Zhilin - Solo In Four Hands (2003) [FLAC|Lossless]<Smooth Jazz>
@@ -693,93 +786,6 @@ VA - Bossa Morning 2. A Soft Music Selection to Start the Day (2017) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92337F6950BC561BA68CFC5C4BDD9A80B2E66D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810689   (568541) от 18.08.2016
-
-The Hoax - 6 альбомов (1994 - 2014) [FLAC|Lossless]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568541.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале девяностых годов из крошечной деревни Уилтшир, Великобритания, пришла группа с огнем в груди и любовью к блюзу в сердце, она назвалась The Hoax. В 1991 году бывшие школьные друзья Хью Колтман (Hugh Coltman), Джесси Дэви (Jesse Davey), Дэви Робин (Robin Davey), Джон Амор (Jon Amor) обнаружили общую любовь к великим американским мастерам блюза Albert King, (   Читать дальше...   )Список альбомов:
-1994 - Sound Like This
-1996 - Unpossible
-1998 - Humdinger(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88270268DCE7E097F0BE7D4F9BEE9543E5146014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922781   (568354) от 29.07.2015
-
-Jimmy Smith - Stay Loose (1968) /2000, Verve/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Move to the Outskirts of Town [04:45]
-02. Stay Loose [03:56]
-03. If You Ain't Got It [03:08]
-04. One for Members [06:48](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E201C2EED5EA537CD63B544047EACEA775EBD0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922575   (568231) от 29.07.2015
-
-Marvin Gaye - Les Genies du Rock - Live (1993) [MP3|320 кб/с]<Soul,Funk,R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I heard it through the grapevine (4:57)
-02.  Come get to this (3:00)
-03.  Let's get it on (5:20)
-04.  God is love (2:32)(   Читать дальше...   )Жанр: Soul,Funk,R&BПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94988D0AE896166157C2EFEBA0E803C1CAB9212A
 ```
 
 https://mybot314.ru/tekegram_catalog/

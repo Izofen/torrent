@@ -1,3 +1,177 @@
+###  Публикация: 1699722   (117627) от 14.02.2024
+
+Positive Music Universe, Most Relaxing Music Academy - Relaxing Sunday Brunch: Smooth Jazz Tunes for a Tranquil Morning (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Or Less (3:26)
+02. Taste of Jazz (3:26)
+03. Light Evening (3:26)
+04. Relaxing Bossa Nova (3:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57782AB40A782D5F2C98C52476F920A171A0772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699728   (117622) от 14.02.2024
+
+Smooth Jazz Music Ensemble, Background Instrumental Music Collective - A Cup of Jazz: Collection of Smooth Jazz, Reading Music, Relaxating Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Cafe (3:02)
+02. Background Instrumental Music Collective - Chill Jazz Sessions (3:39)
+03. Afternoon Tea (4:37)
+04. Background Instrumental Music Collective - Jazz in the Night (3:55)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8D05FBFB66C04C9AB72FDB60261E307176A21E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699730   (117606) от 14.02.2024
+
+Cafe Chill Jazz Background, Jazz Music Lovers Club, Jazz Erotic Lounge Collective - A Crime of Passion: Sophisticated Blues Ballads (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoky Sexy Groove (4:13)
+02. Jazz Erotic Lounge Collective - Fated Mates (3:54)
+03. Jazz Music Lovers Club - The Morning After Breakfast (4:22)
+04. Sassy Blues (4:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF93AB33F9876255449244121D6BADF4946A119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699715   (117600) от 14.02.2024
+
+Italian Romantic Piano Jazz Academy, Sexy Lovers Music Collection, Romantic Evening Jazz Club - Love's Reflections: Reliving the Fire of Romance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Language of Love (3:46)
+02. Sentimental Memories (5:10)
+03. Still Want to Hold You in My Arms (3:56)
+04. Reflections (5:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0606F7DD8C44920EE81AA928AED78B0F984CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527908   (117589) от 10.10.2025
+
+Testament - Studio Albums (14 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Testament — американская трэш-метал группа из города Беркли (Калифорния).1987 - The Legacy
+1988 - The New Order
+1989 - Practice What You Preach
+1990 - Souls Of BlackЖанр: Thrash MetalПродолжительность: 11:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A56923C7EC4DF7BA716A261B68C47EB1275392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699731   (117578) от 14.02.2024
+
+Witherfall - What Have You Done? (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Have You Done? (10:19)
+02. Ceremony of Fire (7:32)
+03. Where Do I Begin? (6:30)
+04. Insidious (6:47)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89D009536D0F7028E0EA1520AC757E7D8C559C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699897   (117438) от 15.02.2024
 
 Chris Shooter - Big Fat Bloke With A Hat (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -568,180 +742,6 @@ Art Of Anarchy - Let There Be Anarchy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77ACADE0A42362DBA4AB3C2A281FB8E5173000AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700271   (117162) от 16.02.2024
-
-Manga Saint Hilare & MoreNight - Everything Is Under Control (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Electronic, Electro House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Can't Keep Getting Away With It [2:33]
-02 - Like I Said [2:47]
-03 - Exercise [3:00]
-04 - They [2:26](   Читать дальше...   )Жанр: Hip-Hop, Rap, Electronic, Electro HouseПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D178B08EBD186A0D595DA057D04D4C4480DFDC59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700419   (117149) от 16.02.2024
-
-David Aubaile - Trafiquants (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alcántara (6:10)
-02. Trafiquants (6:48)
-03. Camel caldo (6:36)
-04. Tilho (4:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B480528668746F519FE6D8B0362634A97DDA7421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700102   (117142) от 16.02.2024
-
-Lost World Order - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lost World Order - метал-группа из Билефельда, Северный Рейн-Вестфалия, Германия.2008 - This Apparatus Must Be Earthed!
-2009 - Marauders
-2011 - Parasites
-2016 - TyrantsЖанр: Thrash/Death MetalПродолжительность: 03:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99183AA6CB3511A05835BBD7020EBAF0419F116A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700305   (117137) от 16.02.2024
-
-Idles - Tangk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IDEA 01 (3:38)
-02. Gift Horse (4:10)
-03. POP POP POP (4:17)
-04. Roy (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:790DFFA04D29CA2ADACCFC36335CE05CC76C939D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700591   (117062) от 17.02.2024
-
-Jazz Sax Lounge Collection, Sexual Music Collection, Smooth Jazz Music Academy - Sensual Frequencies: Sexiest Saxx Lounge Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, Contempora ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Favourite Things (3:35)
-02. Smooth Jazz Music Academy - Pleasure - Erotic Lounge Mix (3:20)
-03. Sexual Music Collection - Intimate Rendez Vous (3:39)
-04. Sexy Touch (3:46)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, LoungeПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8B5785F5E99DCBDB4F46200CF0164AB41347F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700459   (117038) от 17.02.2024
-
-Romantic Jazz Music Club, Erotic Moods Music Club - Sensual Date Night: Set the Scene with Instrumental Jazz Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contempor ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Innocentle (4:21)
-02. Beautiful Smooth Flity (3:29)
-03. I Want to Know (3:31)
-04. Bouquet of Autumn (3:48)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary Jazz, LoungeПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E90DF1FDEE6872BFF73AEE1C26B8FC848A5EFA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

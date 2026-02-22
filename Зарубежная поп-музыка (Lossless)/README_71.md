@@ -1,3 +1,32 @@
+###  Публикация: 1188469   (273669) от 03.12.2017
+
+Lucio Dalla - Storie di casa mia (1971) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Itaca
+02 - Un uomo come me
+03 - Il bambino di fumo
+04 - Il colonnello(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796AE908BFAC29431FE04E82229336B344280244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188472   (273588) от 03.12.2017
 
 Lucio Dalla - Dalla (1980) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -718,35 +747,6 @@ Raf - Le Ragioni Del Cuore (2012) Columbia Records [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6523D786DAF3A8089E39417FED96618446CAFD43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191165   (264473) от 13.12.2017
-
-St. Vincent - Masseduction (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Pop, Art Pop, Baroque Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hang on Me (02:48)
-02. Pills (04:40)
-03. Masseduction (03:17)
-04. Sugarboy (04:01)(   Читать дальше...   )Жанр: Alternative Pop, Art Pop, Baroque Pop, Electropop, New Wave, Ambient RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8920CC4363A7AB1F408F68E4C954FB61439B17
 ```
 
 https://mybot314.ru/tekegram_catalog/

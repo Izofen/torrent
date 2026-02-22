@@ -1,3 +1,293 @@
+###  Публикация: 1194491   (155665) от 25.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 12) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Владимир Трошин  -  Тёмная ночь  3:50
+02.  Лев Барашков  -  Милая моя  3:07
+03.  Эдуард Хиль  -  Песня о добром человеке  2:56
+04.  Муслим Магомаев  -  Сердце на снегу  3:29(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52285EC9C0363881B35AFA069524E7B8893C15EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194499   (155559) от 25.12.2017
+
+Юля Шатунова - Первый снег (2015) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Еду на свет 4:02
+02. Королева льда 6:05
+03. А дождь стучится 5:26
+04. Белый снег 3:56(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62522BA68851323EA88E87073D908A883594AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270589   (155547) от 20.12.2018
+
+VA - Sweet Dreams: Hard Dance Essentials Hits (2018) [MP3|320 Kbps] <Techno Hardcore, Hard Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. System Overload - Hustlers
+002. Warface & D-Sturb - Open Your Eyes
+003. Bloodfire - Bassface
+004. Killshot - Like An Ak (Radio Edit)(   Читать дальше...   )Жанр: Techno Hardcore, Hard DanceПродолжительность: 09:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC62139981A5CAF6B29D3FA4E6F8CBEFC0AADE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194501   (155509) от 25.12.2017
+
+VA - Christmassy Car Songs (2017) [MP3|192-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Rasmus - In the Shadows
+002. Scotty - Endless Sky (Aaron Ambrose Edit)
+003. On TV - La Ola (Beach Lounge Remix 2k17)
+004. Chris.I.Am - Never Too Late (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB1BA3E1CC6186DB11EFD60C644D22E46AA7154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676624   (155506) от 14.11.2023
+
+VA - Music News vol.314 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155506.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chokirya - По Гороскопу (02:39)
+ 002. 2lup - Холод (03:09)
+ 003. Alan Walker - Welcome To Walkerworld (02:47)
+ 004. Alex Menco feat. Кэмбл - На Берегу Невы (03:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9114DBCF9884F252C85E83083CD58368587FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600806   (155274) от 28.12.2022
+
+VA - Music News vol.234 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleigher - South of Lapland (Santa s Gory Yuletide)(Bonus) (06:44)
+ 02. Agoney - Quiero Arder (03:00)
+ 03. Alex Alta - Jingle Bells (02:17)
+ 04. Alex Andreev - Нереалка (02:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0540233024428FEAAC19942B4DCF1A40EE472251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518189   (155242) от 19.12.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 17.12.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Bad Habits (3:52)
+02. Adele - Easy On Me (3:44)
+03. Elton John & Dua Lipa - Cold Heart (PNAU Remix) (3:22)
+04. Shouse - Love Tonight (4:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F2DD8E0CEB7442B60BDEB333A495A1B48DA68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518313   (155150) от 19.12.2021
+
+VA - Зайцев.нет Лучшие новинки Декабря (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andery Toronto, Диман Брюханов - Караван (2:24)
+02. Ann Ci - Нет таланта (2:21)
+03. IMSTORIE - Damn Love (2:29)
+04. Incode - Say My Name (2:54)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FE6E99C5D4FD2B14B79D569CE7BBC5FCB6D24D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346826   (155088) от 21.12.2019
+
+VA - не Громкие новинки недели 48 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alexandra - Новогодняя (3:39)
+2.Andro - Моя Душа (2:35)
+3.ARi & Sam Vii - Больше Не Жду Тебя (3:27)
+4.Ars-N - Принцесса (3:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD593640F56FB92D761CB014AE1CD5F46E28520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194506   (155086) от 25.12.2017
+
+VA - Deep House Collection vol.150 (2017) [MP3|192-320 Kbps] <Deep House, Club House, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.7even (GR) - Make It Hot (Original Mix)
+02.A-Mase & Sharliz - Зима В Сердце (Deep Radio Mix)
+03.A-Mase feat. Sharliz - Tremble (Original Dub Mix)
+04.Aerodisco - Something (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, MinimalПродолжительность: 14:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DFC8323BD34F4CA0BE5DCAA1844A5AF087809B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346868   (155044) от 21.12.2019
 
 VA - Hits of My Soul Vol. 52 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -458,296 +748,6 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CA98F31CE54113672F957094F2D5DCEBF397A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433963   (154244) от 22.12.2020
-
-VA - Heavy Metal Collections Vol. 17 (5CD) (2020) [MP3|320 Kbps] <Symphonic, Power, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154244.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Grailknights - Pumping Iron Power (2018) (3:54)
-02. Chaos Magic - One Drop Of Blood (2015) (4:27)
-03. Silverheart - Shadows Maiden (2015) (4:51)(   Читать дальше...   )Жанр: Symphonic, Power, Heavy MetalПродолжительность: 05:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66C85E8DFCBFA8F84FB2DD8F85DBAB9EFB380F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270903   (154239) от 21.12.2018
-
-VA - Best Car Xmas Edition 2019 (2018) Compiled by mCITY [MP3|320 Kbps] <Dance, Spacesynth>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker & Tomine Harket - Darkside (Original Mix)
-02. Anna Naklab feat. Alle Farben & Younotus - Supergirl
-03. Armin Van Buuren & Trevor Guthrie - This Is What It Feels Like
-04. ATB feat. Sean Ryan - Never Without You(   Читать дальше...   )Жанр: Dance, SpacesynthПродолжительность: 02:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063346D34271EE39A5E6F68D4A7325018B0E140E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194734   (154219) от 26.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 19) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Марк Бернес  -  Журавли  4:14
-02.  Иосиф Кобзон  -  Тёмная ночь  3:27
-03.  Муслим Магомаев  -  Верни мне музыку  3:55
-04.  Георг Отс  -  Гаснут зори  3:47(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33818CB5C21C551332B481890E402846B45B4CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194740   (154201) от 26.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 20) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Вахтанг Кикабидзе  -  Пожелание  3:13
-02.  Эдуард Хиль  -  Так уж бывает  2:24
-03.  Марк Бернес  -  Любимый город  2:30
-04.  Олег Даль  -  Есть только миг  3:18(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE9F1A3EBF419A2F0361BEC084C1B43F742367F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194789   (154190) от 26.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 21) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Георг Отс  -  Мы с тобой не дружили  2:50
-02.  Татьяна Дасковская  -  Прекрасное далёко  4:08
-03.  Олег Даль  -  И солнце всходило  3:20
-04.  Вахтанг Кикабидзе  -  Проводы любви  3:25(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C2AB983E0F19262CDB1BD4CD847693B9B8471D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086145   (154189) от 23.12.2016
-
-VA - Лучшие хитовые треки в стиле Industral Rock & Nu Metal от LORDEGRAF (2016) [MP3|96-320 Kbps] <Industral Rock & Nu Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Alter Bridge - Blackbird [07:58]
-02.	Black Light Burns - Lie [04:19]
-03.	Blindside - Swallow [02:25]
-04.	Breaking Benjamin - Breath [03:39](   Читать дальше...   )Жанр: Industral Rock & Nu MetalПродолжительность: 06:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02430F9D63C7B8F5F33986E718E82C2BE9988DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347000   (154152) от 22.12.2019
-
-VA - The Official UK Top 40 Singles Chart 20.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LadBaby - I Love Sausage Rolls New Entry
-02. Stormzy - Own It (feat. Ed Sheeran Burna Boy)
-03. Lewis Capaldi - Before You Go
-04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1040607993AEC9AF89EA326206B768710A3A4E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433785   (154063) от 22.12.2020
-
-VA - New Disco 80s Remix (2020) [MP3|320 Kbps] <Disco, New Generation, Remix>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремиксы популярных и горячо обожаемых нами песен прошедшего века 80х годов в релизе "New Disco 80s Remix". Это ностальгия о молодости, о веселых дискотеках и о то что нам дорого, так как признание disco музыки была настолько сильной, что вряд ли хотя бы у одного человека, жившего в 80-е и даже 90-е годы прошедшего века, не сталось хоть каких-нибудь личных (   Читать дальше...   )001. C Da Afro - Coconuts
-002. Mangaboo Feat Rayna - Martina
-003. Phil Disco - Plasma
-004. Bottin - Close Your Eyes(   Читать дальше...   )Жанр: Disco, New Generation, RemixПродолжительность: 09:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC41ED0D6FADAECBEF89736D97FC036F42DEC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347051   (154029) от 22.12.2019
-
-VA - Record Super Chart 618 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154029.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.SAINt JHN - Roses (Imanbek Remix) (3:58)
-2.Tones and I - Dance Monkey (DJ Noiz Remix) (4:00)
-3.Meduza feat. Becky Hill & GOODBOYS - Lose Control (2:48)
-4.Carla Morrison - Disfruto (3:57)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8493E28516ABFABD5210D3303ADB996EA60847C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518501   (153983) от 20.12.2021
-
-VA - The Official UK Top 100 Singles Chart 17.12.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153983.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran, Elton John - Merry Christmas
-002. Adele - Easy On Me
-003. Wham! - Last Christmas
-004. Mariah Carey - All I Want for Christmas Is You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5853511D48D16CD15D7A0F73C6F90555D0A99DFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

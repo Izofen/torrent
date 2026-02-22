@@ -1,3 +1,32 @@
+###  Публикация: 994469   (889641) от 08.03.2016
+
+VA - Die Hit-Giganten - Sommerhits (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haiducii - Dragostea Din Tei (3:33)
+02. Bellini - Samba de Janeiro (2:48)
+03. Loona - Bailando (3:34)
+04. Mr. President - Coco Jamboo (3:38)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6F0C185F9CF6AFAE3C46EC426C4DAB72EB566D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994555   (889631) от 08.03.2016
 
 Wax - Magnetic Heaven (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth Pop>
@@ -741,35 +770,6 @@ Purity Ring - WOMB (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Indie Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57FD25F7D554BCB3DDB52B07E22209EDEA4FBEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103958   (883514) от 13.02.2017
-
-Hermes House Band - No.1 Gold Selection (Greatest Hits) (2006) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go West
-02. Come On Eileen
-03. I Will Survive 2006
-04. (Is This The Way To) Amarillo(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20BBF4B2DF2988DE7B6599671A05C54D1D1DAA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1598254   (163427) от 18.12.2022
-
-Django Reinhardt - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome (2e partie) [2:21]
-02. I Can't Give You Anything But Love [2:23]
-03. Artillerie lourde [4:18]
-04. How High the Moon [2:21](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769411F72C5AF0CDD620754E01FA59B164B1D03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598251   (163348) от 18.12.2022
 
 Paul Desmond & Jim Hall Quartet - Complete Recordings (1959 - 1965) 4CD, 2022, Essential Jazz Albums [FLAC|Lossless|tracks + .cue] <Cool>
@@ -746,6 +717,35 @@ The Ruby Braff Trio - Bravura Eloquence (1990) Concord Jazz [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6D1C4B72BF2B713CAEC934787ECCC539205CEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674623   (160868) от 06.11.2023
+
+Toshiyuki Miyama & The New Herd - The New Herd At Monterey (1974) 2CD, 1999, Absord Music [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Fiesta [10:19]
+02. Tin Tin Deo [7:28]
+03. Manteca~Encore [18:16]
+Продолжительность: 00:36:03Жанр: Big Band, Post-BopПродолжительность: 01:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E811AF1B6F780E0717D294F44F5441700315B38
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 853742   (157098) от 27.12.2014
+
+Astral Odyssey - Into The Eternal Realm Of Night (2014) Demo [MP3|320 кб/с]<Atmospheric Black Metal, Space Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Celestial Lights
+02. Into The Eternal Realm Of Night
+03. The Forgotten RealmЖанр: Atmospheric Black Metal, Space InstrumentalПродолжительность: 00:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA65515E5DA63DF5828BBE40D48CA0B0B9397D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433882   (155129) от 22.12.2020
 
 Soul Secret - Blue Light Cage (2020) [MP3|320 Kbps] <Progressive Metal>
@@ -743,35 +771,6 @@ Darkness Ablaze - It All Shall Burn (2023) [MP3|320 Kbps] <Melodic Death, Black 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44FC637F3C6357E8E6295EFE0086A41F66FDDC56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969307   (149351) от 26.12.2015
-
-Bucovina - Nestramutat (2015) [MP3|320 кб/с] <Folk Metal, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Încape-ntr-o Vorbă (Intro) (01:20)
-02. Dă-mi Mâna, Toamnă (04:52)
-03. Cărări În Suflet (04:29)
-04. Ultima Iarnă (04:39)(   Читать дальше...   )Жанр: Folk Metal, Pagan MetalПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD01CE28F7DAF61FA507D81BF49B026BC179427
 ```
 
 https://mybot314.ru/tekegram_catalog/

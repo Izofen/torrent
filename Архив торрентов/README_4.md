@@ -1,3 +1,29 @@
+###  Публикация: 1604536   (1045306) от 14.01.2023
+
+Allavsoft Video Downloader Converter 3.25.3.8409 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 13.01.2023Разработчик: © 2023 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB59141D007B191F72A175BC75AFB6ED5275247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604668   (1045304) от 14.01.2023
 
 Depeche Mode - Construction Time Again (1983) Reissue, Remastered, 2007, Mute [OGG Vorbis|450 Kbps] <Electronic, Synth-pop>
@@ -649,32 +675,6 @@ Native SQLite Manager — это удобный менеджер баз данн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5BAB6880CBAF0F51A01B96AD6AF757827346A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605148   (1045112) от 16.01.2023
-
-Performance Index 64 Pro 4.2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Performance Index 64 предназначено для сравнения вашего Mac с другими устройствами macOS и оценки производительности и эффективности различных конфигураций.Тип издания: macOS SoftwareРелиз состоялся: 11.01.2023Разработчик: © 2021 EcoComputers, JSCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053B649631A0CFDC2FBEF03CF445B941F753E421
 ```
 
 https://mybot314.ru/tekegram_catalog/

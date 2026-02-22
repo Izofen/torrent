@@ -1,3 +1,38 @@
+###  Публикация: 286586   (929374) от 25.01.2011
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #37 (2011) [MP3|320 kbps]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Klauss Goulart feat. Matt Johnso - Fallen (Everson K Remix)
+002. Faithless feat. Dido - Feelin Good (Ferry Corsten Mix)
+003. 4 Strings feat. Ellie Lawson - Safe From Harm
+004. Adam Tas feat. Sopheary - Say (Trance Arts Remix)
+005. Aeron Aether & Mango feat. Civil Servants - Searching for A Memory (Original Mix)
+006. Ali Wilson feat. Chris Jones - Become One
+007. Bobina feat. Sabrina Atlan - Angel Of The North (Bobina's Megadrive Mix)
+008. Damien S feat. Marcie - Before You Leave Me (Original Mix)
+009. DJ Observer & Daniel Heatcliff feat. Hannah Ray - With Me (Intro Edit)
+010. Fabio XB feat. Yves De Lacroix - Close To The Stars (Extended Mix)(   Читать дальше...)Жанр: Vocal TranceПродолжительность: 03:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719EBA753342A300BBDFA543DB4F8B26BB4D1493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 286612   (929370) от 25.01.2011
 
 Карлсон, Гиффин | Домашний ветеринарный справочник для владельцев собак [1996] [PDF]
@@ -697,41 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ###  Подробнее
 
 Одним прекрасным осенним утром на лесной тропинке девочка заметила лисичку. Она не испугалась зверька и подошла к нему. Так начинается самая удивительная история их дружбы. Благодаря своему новому другу, девочка открывает для себя таинственный мир дикой природы. Ребенка ждут невероятные приключения, которые изменят ее жизнь.Жанр: Приключения, Драма, ФэнтезиРежиссер: Люк Жаке /Luc Jacquet/Актеры: Бертилль Ноэль-Брюно /Bertille Noel-Bruneau/, Изабелль Карре /Isabelle Carre/, Томас Лалиберте /Thomas Laliberte/, Амбра Ангиолини /Ambra Angiolini/, Кейт Уинслет /Kate Winslet/Перевод: Двухголосый закадровыйПродолжительность: 01:32:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177611   (929308) от 22.02.2010
-
-ProgDVB х86/х64 6.32.6 Standard [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-ProgDVB – одна из лучших программ для просмотра цифрового ТВ и прослушивания цифрового радио. Поддерживается DVB-S (спутниковое ТВ), DVB-S2, DVB-C (кабельное), DVB-T, IPTV или просто проигрывание из файла.
-Основные возможности:
-Поддержка большинства DVB, ISDB-T и ATSC устройств включая DiSEqC и CAM функции
-Поддерживает функцию отложенного просмотра (Timeshift)
-Эквалайзер
-Запись в файл
-Программа передач (EPG, XmlTV,JTV)
-Телетекст
-Субтитры
-Трансляция каналов по сети(   Читать дальше...)
 
 ## Скачать торент
 ```bash

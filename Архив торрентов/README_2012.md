@@ -1,3 +1,32 @@
+###  Публикация: 1014192   (776852) от 06.05.2016
+
+Dhamika - Endless Horizons (2016) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Progressive Trance, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Horizons (08:11)
+02. Nuwara (07:17)
+03. Savita (07:41)
+04. Sadhana (09:36)(   Читать дальше...   )Жанр: Psybient, Downtempo, Progressive Trance, AmbientПродолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EA299E161B19B92255F54941B8991E9DF89148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013950   (776851) от 06.05.2016
 
 Восставший / Risen (2016) BDRip [H.264/1080p] [EN / EN Sub]
@@ -653,33 +682,6 @@ Dicter 3.81 Portable by yn_nemiroff [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5AA5CBA405092DB98CFB9847C0FBD22A89F87C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211908   (776703) от 09.03.2018
-
-Bartender 3 v.3.0.45 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все "лишние" иконки. В настройках приложения можно указать, какие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CD4071F796BC861857E679BCA7253F46634075
 ```
 
 https://mybot314.ru/tekegram_catalog/

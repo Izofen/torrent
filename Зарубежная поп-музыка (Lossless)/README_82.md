@@ -1,3 +1,32 @@
+###  Публикация: 1427316   (183223) от 28.11.2020
+
+Thomas Anders - Christmas For You (Remastered 2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Must Have Been the Mistletoe - Remastered 2020 (3:04)
+02. Christmas is Just Around the Corner - Remastered 2020 (2:43)
+03. Sleigh Ride - Remastered 2020 (2:41)
+04. The Christmas Song - Remastered 2020 (3:13)(   Читать дальше...   )Жанр: Pop, Christmas MusicПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63F39BD5C941A27AD85E03208B02AEBFCFBE0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427605   (183102) от 28.11.2020
 
 Sade - Diamond Life (1984) Epic CD 26044 [FLAC|Lossless|image + .cue]< Sophisti-Pop, Adult Contemporary R&B>
@@ -716,35 +745,6 @@ VA - Power Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6492C5CDFD0123B13D50C4C4A9FFD442589E787C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344345   (170527) от 10.12.2019
-
-Culture Club - Colour By Numbers (1983) 1984,  Virgin [FLAC|Lossless|tracks + .cue] <New Wave, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karma Chameleon
-02. It's A Miracle
-03. Black Money
-04. Changing Every Day(   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E046FC2BD1F04945C4BFFC843FE9093A02AF7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

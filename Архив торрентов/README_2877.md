@@ -1,3 +1,29 @@
+###  Публикация: 919750   (581938) от 20.07.2015
+
+Syhunt Sandcat Browser 5.1.0.4 CE Pen-Tester [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandcat Browser - это миниатюрный браузер, создаваемый на базе кода Chromium, предназначенный в основном для тестеров безопасности вебсайтов, а также для разработчиков, которым нужен более низкоуровневый контроль над приложением, чем тот, который предлагается разработчиками браузеров и специализированных плагинов. Запуск Sandcat более чем прост - нужно распаковать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2F8A3A3CE56270C000F73F46B0BA81696FD30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302144   (581937) от 14.05.2019
 
 Мисс Пуля / Miss Bala (2019) BDRip
@@ -678,35 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0B12FF4864A37C3638D3D5D5C12C03F069AD279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919552   (581850) от 20.07.2015
-
-Onyx - Against All Authorities (2015) EP, Scene [FLAC|tracks]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strike Bac (feat. SickFlo)
-02. Against All Authorities
-03. Look Like a Criminal (feat. Merkules)
-04. Black Fatigue (feat. SickFlo)(   Читать дальше...   )Жанр: RapПродолжительность: 00:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5219B777E2ACD8BACAE39460E4765AC34556E93
 ```
 
 https://mybot314.ru/tekegram_catalog/

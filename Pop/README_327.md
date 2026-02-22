@@ -1,3 +1,90 @@
+###  Публикация: 1726238   (108825) от 27.05.2024
+
+VA - Fulltime, Vol. 5 (Reworked by DJs) (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kano - It's a War (Purple Disco Machine & Lorenz Rhode Remix) (6:42)
+02. Maxero - Silenced By You (Mind Enterprises Remix) (5:15)
+03. Alex Party - Don't Give Me Your Life (Classic Alex Party Mix) (5:33)
+04. Kano - Unconditional Lover (Dr. Packer Remix) (6:12)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A2938954EAC442ECA49D29EA49957AD56ACA43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726107   (108824) от 27.05.2024
+
+БИО - 1987 556 25 7 (2024) [FLAC|Lossless|tracks + .cue] <Synth-Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Рельсы, шпалы
+02.Тоннели метро
+03.Наша славная страна
+04.Электроток(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E118EA3B356062CBFE7D826E4692AE3F410CEC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726232   (108823) от 27.05.2024
+
+VA - Fulltime, Vol. 1 (Reworked by DJs) (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ago - You Make Me Do It (Dr. Packer & Mark Lower Remix) (6:24)
+02. Kano - It's A War (Re-Tide Remix) (6:56)
+03. B.B. and Band - All Night Long (Massimo Berardi Remix) (6:20)
+04. Rainbow Team - Let' Em Be (Villanis Dub Edit) (6:08)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4177C7143CA2F2D61167B2AB0874E7ABA01391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726782   (108647) от 30.05.2024
 
 Cicero - For Broken Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -658,91 +745,6 @@ VA - Nothing But... Pure Dance, Vol. 22 (2024) [MP3|320 Kbps] <Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95D327CDF68408E5E2C8AEC596A809AF03D8B1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728857   (108213) от 09.06.2024
-
-Mephisto - Forever Mine (2021) [FLAC|Lossless|tracks] <Nu-Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mephisto - Forever Mine (2:56)
-02. Mephisto - Forever Mine (Extended Mix) (4:47)Жанр: Nu-Disco, HouseПродолжительность: 00:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63CB5739A7F7EDDF2C037768C9F2C276812E6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729106   (108146) от 10.06.2024
-
-VA - DJ Hits 37 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N-Trance & Richardo Da Force - Stayin' Alive
-02. Masterboy - Feel The Fire
-03. DJ Bobo - Everything Has Changed
-04. The Outhere Brothers - La La La Hey Hey(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95594B6A2E55A1A4AF2E2B43F1279102024B2414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729070   (108138) от 10.06.2024
-
-D*Wise Ft Sarah Ann - Crying At The Discotheque [2021 Spacer remix EP] (2021) [FLAC|Lossless|tracks] <Hi-NRG, Nu-Disco, Lounge, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crying At The Discothèque (R.F.N. 80s Spacer mix) (4:00)
-02. Crying At The Discothèque (très chic playlist 2021 remix) (4:01)
-03. Crying At The Discothèque (acoustic unplugged remix) (4:34)
-04. Crying At The Discothèque (R.F.N. 80s Spacer maxi mix) (5:30)(   Читать дальше...   )Жанр: Hi-NRG, Nu-Disco, Lounge, HouseПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478DFF6421E10CB1BFDDE50B005A23E2A020694D
 ```
 
 https://mybot314.ru/tekegram_catalog/

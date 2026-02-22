@@ -1,3 +1,32 @@
+###  Публикация: 1415084   (379250) от 11.10.2020
+
+Hexer - Realm of the Feathered Serpent (2020) [MP3|320 Kbps] <Doom Metal, Sludge Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethereal Blitz [00:07:30]
+02. Jaguar Knight [00:07:20]
+03. River of Blood [00:07:41]
+04. Miasmic [00:00:46](   Читать дальше...   )Жанр: Doom Metal, Sludge Metal, Black MetalПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D708B789CE54D59746C75D4D4A907F770596688C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415275   (379105) от 11.10.2020
 
 Empress - Premonition (2020) [MP3|320 Kbps] <Doom Metal, Sludge Metal, Post Metal>
@@ -723,35 +752,6 @@ Steel Panther - 5 Studio Albums, 2 Live Albums, Other Tracks (2009-2019) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E46E0F8FCCF14CD979918E18B2C18F4DC25C88CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069933   (371409) от 05.11.2016
-
-Motley Crue - Carnival Of Sins (2006) 2CD, Live [MP3|320 кб/с]<Glam Metal, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371409.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:46] 01. Shout At The Devil
-[04:01] 02. Too Fast For Love
-[05:35] 03. Ten Seconds To Love
-[03:28] 04. Red Hot(   Читать дальше...   )Жанр: Glam Metal, Hard Rock, Heavy MetalПродолжительность: 01:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD31B1B6028B9E91168792CA3F7F60D7FCC5F9E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

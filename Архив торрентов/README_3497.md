@@ -1,3 +1,38 @@
+###  Публикация: 552473   (446404) от 27.09.2012
+
+Карамель - Карамель (1999) [MP3|320 кб/с]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пум-пам [3:23]
+02. Нам тарарам [3:36]
+03. Где ты раньше был [3:42]
+04. Испугай беду [4:34]
+05. Ветер перемен [4:18]
+06. Две фазы луны [3:32]
+07. Три белых коня [3:38]
+08. Все будет хорошо [3:42]
+09. Шуба-дуба [3:21]
+10. Пум-пам (ремикс) [3:29]Жанр: Pop, DanceПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D18C8D76CD5BDCD38DDF52840769D6A4371B895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552057   (446403) от 27.09.2012
 
 [Рисованая графика]Artworks by Annie Stegg
@@ -667,35 +702,6 @@ Transmit представляет собой отличный FTP (File Transfer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FAA57768BDAAC666F7C0E5F1C9988130268D7C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163993   (446204) от 07.09.2017
-
-VA - The Best Of Sarah Russell (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kaimo K, Cold Rush & Sarah Russell - Angel Fly (Radio Edit)  3:34
-02.  Sarah Russell - If I Could (DoubleV Radio Edit)  3:41
-03.  Sarah Russell - Loss & Innocence (Radio Edit)  3:29
-04.  Beat Service & Sarah Russell - Would You (Radio Edit)  4:04(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3FFEE4FBE86585A80BD0AB729E5235A957FFE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

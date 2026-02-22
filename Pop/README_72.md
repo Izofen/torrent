@@ -1,3 +1,119 @@
+###  Публикация: 1117249   (818930) от 22.03.2017
+
+VA - Acoustic: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alanis Morissette - Ironic (Acoustic Version) (3:56)
+02. Coldplay - The Scientist (5:10)
+03. Bruno Mars - Grenade (Acoustic) (4:07)
+04. James Blunt - 1973 (Acoustic) (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91BA5E68B9D9B9EF0703A4F8C1CAFA5D82ABAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196963   (818873) от 05.01.2018
+
+Maroon 5 - Red Pill Blues (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best 4 You
+02. What Lovers Do (Feat. SZA)
+03. Wait
+04. Lips On You(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29881F19FC1D4F153AA678EAB4274FB134410927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117433   (818783) от 22.03.2017
+
+Fancy - Bolero The Hit Collection & More (2012) [FLAC|Lossless|tracks + .cue] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames Of Love (5:20)
+02. Colder Than Ice (5:06)
+03. Bolero (Hold Me In Your Arms Again) (5:40)
+04. After Midnight (4:42)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC57D33478DC3AC383F02F908913F491120E1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197024   (818778) от 05.01.2018
+
+Joy - Best (1986) Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch By Touch (3:50)
+02. Kisses Are The Doctor's Order (3:29)
+03. Chinese Girls (3:40)
+04. Valerie (4:12)(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E479A8167AB748C5BD7A78FDEDB57D4BDE7132E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196872   (818771) от 05.01.2018
 
 Георг Отс - Золотые россыпи романса (2000) [APE|Lossless|tracks] <Ретро, Романс>
@@ -630,122 +746,6 @@ VA - Venti Compilation 4 (2016) 2CD, Compilation [FLAC|Lossless|image + .cue] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86F8716C7A9D19A4DE46CCEB687A6B779FB63224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197393   (815669) от 07.01.2018
-
-VA - ZYX Italo Disco Instrumental Hits (2017) 2CD, Compilation [MP3|~245 Kbps (V0)] <Instrumental, Italo Disco, Eurodisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radiorama - Aliens (Instrumental) (3:54)
-02. P. Lion - Happy Children (12" Instrumental) (6:32)
-03. Valerie Dore - The Night (12" Instrumental Version) (5:32)
-04. Mike Mareen - Love-Spy (Instrumental) (4:07)(   Читать дальше...   )Жанр: Instrumental, Italo Disco, EurodiscoПродолжительность: 02:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C945F722EF9DD07B44CF60B9659FF9C79E94A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382993   (815586) от 13.05.2020
-
-Camp Galore - Deco Disco (1976) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes, Sir That's My Baby (3:49)
-02. Ballin The Jack (4:19)
-03. Golden Slippers (4:31)
-04. I'm Looking Over A Four Leaf Clover (4:11)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B346EFF349B0E2DFF331696C361048314BB8939E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118058   (815475) от 24.03.2017
-
-VA - MUM: The Collection (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Sledge - We Are Family (3:37)
-02. Chaka Khan - I'm Every Woman (4:07)
-03. Duran Duran - Girls On Film (Night Version) (5:43)
-04. Plan B - Love Goes Down (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC64C1B82A3F53DF5F337D5ABC8EA63652DBC28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197384   (815424) от 07.01.2018
-
-VA - 90's Spirit (2014) 4CD [MP3|320 Kbps] <Eurodance, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815424.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1-Hits 90's:
-01.  Gala  -  Freed From Desire  3:42
-02.  Haddaway  -  What Is Love  4:41
-03.  Dr. Alban  -  Sing Hallelujah !  3:38(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 05:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861AA9CE33F162B9AC1397ECB0D31DF92833ABF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

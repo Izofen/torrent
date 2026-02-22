@@ -1,32 +1,3 @@
-###  Публикация: 1586682   (215655) от 27.10.2022
-
-Club des Belugas - Best of 2002-2022 (2022) 3CD Box Set [FLAC|Lossless|image + .cue] <Nu Jazz, Downtempo, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Club des Belugas - немецкая Nujazz и Lounge группа. Ядро Club des Belugas составляют Maxim Illion и Kitty the Bill; их поддерживают различные известные и приглашенные музыканты. Club des Belugas - одна из ведущих групп Nujazz в Европе, а возможно, и в мире. В своей музыке музыканты сочетают современные европейские стили электро, лаунж и нюджаз с бразильскими битами, (   Читать дальше...   )CD - 1:
-01. Early Daiquiris (5:23)
-02. Kissez in Gallop (4:59)
-03. Sisi Tartar (4:54)(   Читать дальше...   )Жанр: Nu Jazz, Downtempo, ElectronicПродолжительность: 03:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7E2C2591B209928C698B4CE7CAA39D0DC79261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653033   (215579) от 14.08.2023
 
 J.J. Johnson & Kai Winding - Jay & Kai (1947 - 1954) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
@@ -762,6 +733,35 @@ T.K. Blue (Talib Qadir Kibwe) - Eyes of the Elders (2000) [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9F47783C50CFC3F5C637AAA94CECFA28C3A365A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344150   (213803) от 09.12.2019
+
+The Buck Clayton Legacy Band - Claytonia (2011) [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трэклист:
+1. Outer Drive - 5.29
+2. I'll Make Believe - 6.21
+3. Party Time - 6.10(   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00: 54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4552CE7D0CDD29D05BFCCE3E575A7A26FC0931C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

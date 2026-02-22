@@ -1,3 +1,32 @@
+###  Публикация: 1720860   (110089) от 06.05.2024
+
+Val Starr & the Blues Rocket - To the Blues and Back Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Been To The Blues And Back Again (3:31)
+02. Bitter Pill (5:18)
+03. Take A Stand (4:36)
+04. If You Don't Blues It, You'll Lose It (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C9166B2F0552FA40368DDB72ED0E9B6C702390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720843   (110087) от 06.05.2024
 
 Big Wolf Band - Rebel's Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -716,35 +745,6 @@ Gene Harris - Live At Otter Crest (1981) 2001, Concord Jazz [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E12830A84A2DC7D370BB9F02D23AC005AE0B865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721457   (109959) от 08.05.2024
-
-Bud Freeman - Newport News (1955) 2013, Solid Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Newport News [2:40]
-02. At Sundown [4:00]
-03. Exactly Like You [4:05]
-04. Let's Do It [3:03](   Читать дальше...   )Жанр: SwingПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F504039353104C24AFE1F8BF95B8E1DBA8D72C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

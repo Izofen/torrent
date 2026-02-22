@@ -1,3 +1,32 @@
+###  Публикация: 1017861   (759077) от 18.05.2016
+
+Gregory Porter - Take Me To The Alley (Deluxe Edition) (2016) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding On
+02. Don't Lose Your Steam
+03. Take Me To The Alley
+04. Daydream(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451966EF6BB50D75B5DEC43298AE4B48428350FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394999   (758916) от 08.07.2020
 
 Bill Evans - Symbiosis 1974 (1994) MPS Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Third Stream>
@@ -720,35 +749,6 @@ Eve St. Jones - French Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Easy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9849B7378DD0F16C59CF6CE46F9931A6678A0AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522881   (755065) от 09.01.2022
-
-VA - Classic Savoy Be-Bop Sessions (1945 - 1949) 10CD, 2016, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755065.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Dexter Gordon - Blow Mr. Dexter (alternate take) [2:40]
-02. Dexter Gordon - Blow Mr. Dexter [2:58]
-03. Dexter Gordon - Dexter's Deck [2:56](   Читать дальше...   )Жанр: BopПродолжительность: 10:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD85A8DADBEA2B464FDB54D2E67730D96548A087
 ```
 
 https://mybot314.ru/tekegram_catalog/

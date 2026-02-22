@@ -1,3 +1,32 @@
+###  Публикация: 1641073   (235811) от 20.06.2023
+
+Granvil Poynter - Cigarettes and Gin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Rod Baby (2:15)
+02. Cigarettes and Gin (6:02)
+03. Texas Girl (2:39)
+04. The Hurt (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B19B8E3EC9B1986954FA26DF797DECE884A7B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635992   (235807) от 28.05.2023
 
 Lennie Tristano - The Duo Sessions (1967 - 1976) 2020, Dot Time Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
@@ -716,35 +745,6 @@ Von Freeman - The Great Divide (2004) Premonition Records [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:329F4619A977361DB5211C0AF13A9FC7CBBA5ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641374   (235439) от 22.06.2023
-
-Jessica Williams - Live At Maybeck Recital Hall, Vol. 21 (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introductory Announcement [0:18]
-02. Why Do I Love You? [6:40]
-03. The Nearness of You [7:49]
-04. Kristen [8:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CEC38D17D1ADE3815BC7412F8553331A78CFF4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

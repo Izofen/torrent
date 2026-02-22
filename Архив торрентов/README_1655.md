@@ -1,3 +1,38 @@
+###  Публикация: 770545   (850962) от 25.03.2014
+
+VA - Moonbeam presents Space Odyssey: Mars (2014) [FLAC|Lossless]<Progressive Trance , Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. 2Fashion - Such a Shame (Moonbeam Remix)
+ 02. Indifferent Guy featuring Eva Pavlova - Danger (Original Mix)
+ 03. Joshi - Raging Blue (Original Mix)
+ 04. Myon & Shane 54 with Natalie Peris - Outshine (Nigel Good Remix)
+ 05. Da Fresh featuring Blackfeel Wite - Angel (Moonbeam Remix)
+ 06. Orbik - If It's Love (Original Mix)
+ 07. Julie Thompson with Super8 & Tab - Your Secret’s Safe (Jaytech Remix)
+ 08. Mier - Twisted Mind (Original Mix)
+ 09. Matt Fax - Morevenin (Remode Mix)
+ 10. qoob - Apollo-17(   Читать дальше...   )Жанр: Progressive Trance , Progressive HouseПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CE4069288CCA90CD5903E0553B3B25D9289FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 770506   (850961) от 25.03.2014
 
 YapeWin (64-bit) [Английский] (2012) [Commodore Plus/4]
@@ -665,32 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001936   (850572) от 30.03.2016
-
-Футбол. Товарищеский матч. Россия - Франция (2016.03.29) HDTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850572.jpg" />
-</div>
-
-
-###  Подробнее
-
-рамках финальной стадии подготовки к чемпионату Европы 2016 футбольная сборная России проводит товарищеский матч против сборной Франции.Телекомпания: Первый канал HDЖанр: Спорт, футболСубтитры: ОтсутствуютПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5765F93DA2ABC77CCEE17654ABBAE8882DB554D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

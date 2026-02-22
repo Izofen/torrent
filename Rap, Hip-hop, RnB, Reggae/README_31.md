@@ -1,3 +1,61 @@
+###  Публикация: 1344388   (170261) от 10.12.2019
+
+Каста - Об изъяне понятно (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прошел через (4:21)
+ 02. Привет, придурок (3:50)
+ 03. Молодой с молодой (3:46)
+ 04. Колокола над кальянной (3:41)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2539087E1880EBF5B14EB4AE1B1DCA874B819BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344664   (169593) от 11.12.2019
+
+Заточка - Как в американском фильме (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белый (4:10)
+ 02. Автозак (3:16)
+ 03. Сам девчонка (3:15)
+ 04. Петь блюз (3:16)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47F02A9AC32982B1A16BAA9C1BBBF8B9AB5F961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430687   (169544) от 11.12.2020
 
 Каста - Чернила осьминога (2020) [MP3|320 Kbps] <Rap>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D387ED7626DCE2B2B96716000BE649C235854CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270605   (157548) от 19.12.2018
-
-Swizz Beatz - Poison (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Conscious, Trap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poison Intro (feat. Áine Zion) (1:43)
-02. Pistol On My Side (P.O.M.S.) (feat. Lil Wayne) (2:34)
-03. Come Again (feat. Giggs) (2:59)
-04. Something Dirty / Pic Got Us (feat. Jadakiss, Kendrick Lamar & Styles P) (2:46)(   Читать дальше...   )Производство: Epic ,Swizz Beatz Productions - 886447147726Жанр: Hip-Hop, Conscious, TrapПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DA575CA4CEF5484422DD726B0A5ED3BD54FAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270542   (156980) от 19.12.2018
-
-Lindemann - Mathematik (2018) Single [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156980.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mathematik (A19) (feat. Haftbefehl)
-2. Mathematik Sture Mix
-3. Mathematik (Remix A4) (feat. Haftbefehl)
-4. Mathematik (Benson Remix) (feat. Haftbefehl)Жанр: Rap, Hip-HopПродолжительность: 00:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44DF811C6F332887F7D24AD681A62E39237148E
 ```
 
 https://mybot314.ru/tekegram_catalog/

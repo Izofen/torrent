@@ -1,3 +1,29 @@
+###  Публикация: 548936   (461307) от 21.09.2012
+
+Nature Wallpapers (19.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357A86911DE1A7F9E7F81870B237BC15854B2033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549717   (461305) от 21.09.2012
 
 Nature Wallpapers (21.09.12) [Wallpapers]
@@ -664,36 +690,6 @@ Adobe® Flash® Player - плагин для браузеров Internet Explore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E5006E9250796A6D0B0108A38C7AF6BDBD5881E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550281   (461164) от 21.09.2012
-
-[Wallpapers] HQ Wallpapers №23
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461164.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HQ Wallpapers №23
-Название: HQ Wallpapers №23
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgРелиз от:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D9231B4451386F2C5A77C21D7DDC21F5368800
 ```
 
 https://mybot314.ru/tekegram_catalog/

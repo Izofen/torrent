@@ -1,3 +1,30 @@
+###  Публикация: 997653   (873563) от 17.03.2016
+
+Capture One Pro 9.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 марта 2016Разработчик: Phase OneПоддерживаемая ОС: OS X 10.10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса программы зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:408F9D357F7F9A33E112ABC06D11E1EA570BF7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997552   (873553) от 17.03.2016
 
 WinContig 2.0.0.1 Portable [Multi/Ru]
@@ -715,41 +742,6 @@ VA - Controlled Perception (2012) [MP3|~245 кб/с (V0)]<  Psy-Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DB22A48C9FA538BC29E088317FE8F40DA36C4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765519   (873500) от 13.03.2014
-
-Monstercat - 016 Expedition (2014) [MP3|~260 кб/с (V0)]<Drum n Bass, Electro, Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.Tristam - Once Again 03:39
-2.PIXL - Rat Twist 04:00
-3.Nitro Fun - New Game 04:19
-4.Astronaut - Apollo (Electro Mix) 04:22
-5.7 Minutes Dead - Peacock (Haywyre Remix) 04:25
-6.Droptek - What's Going On (feat. Isabel Higuero) 03:25
-7.Pegboard Nerds - Bassline Kickin (Dzeko & Torres Remix) 03:22
-8.Case & Point - Savage 04:02
-9.Atmozfears - State of Mind (feat. In-Phase) 05:10
-10.Lets Be Friends - FTW 04:17(   Читать дальше...   )Жанр: Drum n Bass, Electro, DubstepПродолжительность: 04:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F103055C0468AB9237E5C803233982148A6F96D
 ```
 
 https://mybot314.ru/tekegram_catalog/

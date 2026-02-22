@@ -1,3 +1,90 @@
+###  Публикация: 1233739   (578169) от 01.07.2018
+
+V.A. - The Smooth Jazz Cruise: The Greatest Party At Sea (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter White - Smile
+02. Rick Braun - Kisses in the Rain
+03. Richard Elliot - License To Chill
+04. Marcus Miller - Blast!(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99151A370F1E0E9B37B03135959AF7A817D3838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150908   (578148) от 16.07.2017
+
+Nat Adderley Sextet - Work Song: Live at Sweet Basil (1990) 1993, Sweet Basil Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Work Song [10:43]
+02. High Fly [13:06]
+03. In a Sentimental Mood [10:52]
+04. Jive Samba [11:00]Жанр: Hard BopПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4935EAA28AEB01777E35D72625BD5EE11C5F1550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150946   (578143) от 16.07.2017
+
+Bireli Lagrene - Foreign Affairs (1988) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz,Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timothee - 4:38
+02. Josef - 05:23
+03. Rue de Pierre (Part IV) - 02:09
+04. Jack Rabbit - 04:19(   Читать дальше...   )Жанр: Contemporary Jazz,FusionПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4AF1A42956E76A03C8B5AA8A1E70B8BD9AF4FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150898   (578138) от 16.07.2017
 
 John Lamb - Conversations: North of the Border (2010) [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Traditional Jazz Combo>
@@ -672,99 +759,6 @@ We3 - Amazing (2011) [FLAC|Lossless]<Contemporary Jazz>
 08. Swallowish (Dave Liebman) (06:14)
 09. Free Beguine #1 (Liebman-Nussbaum-Swallow) (03:01)
 10. Sure Would Baby (Adam Nussbaum) (05:10)(   Читать дальше...)Жанр: Contemporary JazzПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554418   (577377) от 30.05.2022
-
-Maciej Krec (Kręc) - Brothers & Friends (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Love (5:02)
-02. Color of His Skin (5:21)
-03. Cheerful (2:35)
-04. Barn Dance (3:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6983E070265FAC0D4C1A6BB50B993A636E2141A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554422   (577368) от 30.05.2022
-
-Mike Morgan & The Crawl - The Lights Went out in Dallas (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ding Dong Daddy (5:02)
-02. Please Accept My Love (2:57)
-03. A Woman (4:47)
-04. Funkafacation (4:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71637E3A276D3D94D9E9FA171CFDFC0AD4C4DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360976   (577278) от 10.07.2011
-
-Romane - Swing for ninine (2011) [FLAC|Lossless]<Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swing for Ninine (Romane)
-02. Antilia (Romane)
-03. Charles Eston (Romane)
-04. Liane (M. Cazes)
-05. Folle Ronde (Romane)
-06. Erevan Valse (J. M. Ekherian)
-07. En Souriant (Romane)
-08. Dans le Regard de Laura (Romane)
-09. Niglo Swing (L. Bajata)
-10. Bibiguine (Romane)(   Читать дальше...)Жанр: Swing, Guitar JazzПродолжительность: 00:38:50
 
 ## Скачать торент
 ```bash

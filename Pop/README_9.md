@@ -1,3 +1,119 @@
+###  Публикация: 1441453   (1037803) от 21.01.2021
+
+Eva Kaufmann - Was ich fuehl (2016) [FLAC|Lossless|image + .cue] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037803.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Was ich fühl
+2. Ohne Dich
+3. War das Alles
+4. Wo stehn wir(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8333A122288C149B09CA457BEA3B55C31F645CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441333   (1037797) от 21.01.2021
+
+Mighty Pope - Sway (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sway (5:03)
+02. In-A-Gadda-Da-Vida (7:26)
+03. New Orleans (5:51)
+04. Becauce The Night (5:29)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0249590B92940B2FEC317F887D6479A0A9356526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441506   (1037791) от 21.01.2021
+
+Rhye - Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, RnB, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:30)
+02. Come In Closer (03:36)
+03. Beautiful (04:21)
+04. Safeword (02:54)(   Читать дальше...   )Жанр: Indie-Pop, RnB, DowntempoПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1896B0E3A93CB12F8706641456A82A806F1EC30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441524   (1037788) от 21.01.2021
+
+Rory Block - You're The One (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're The One (5:30)
+02. Askin' For More (3:18)
+03. Someone Like You (3:53)
+04. I Can't Believe In You No More (2:54)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38A7F26FB156FF824B6DB3ADBF5BDE87EDF6F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615392   (1037773) от 25.02.2023
 
 VA - Romantic Collection: Лирика (1999) [OGG Vorbis|480 Kbps] <Pop, Folk, World, & Country>
@@ -629,122 +745,6 @@ VA - 90s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E13C9D5F3FAE16255470C14435961D4758C7023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442463   (1036552) от 25.01.2021
-
-VA - 80s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Police - Every Breath You Take (Remastered 2003) (04:13)
-02. Bryan Adams - Heaven (04:04)
-03. Chris De Burgh - The Lady In Red (04:16)
-04. Richard Marx - Right Here Waiting (04:23)(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75926DCD3D97DF812B4C6B2435B6FC182B763747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616425   (1036390) от 02.03.2023
-
-Ottawan - Hunds UP (1989) Compilation, Karussell [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hands Up
-02. Shalala Song
-03. Siesta For Two
-04. Shubidube Love(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923D986822D731C339A10E777DDFCBF720EED715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442831   (1036347) от 26.01.2021
-
-VA - sad shower (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved (03:02)
-02. Calum Scott - You Are The Reason (03:24)
-03. Dean Lewis - Be Alright (03:16)
-04. Alessia Cara - Scars To Your Beautiful (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E62CA0F5F58F11C515F1C8F91B3FE94A6569561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442696   (1036324) от 26.01.2021
-
-VA - Italo Disco New Revival Volume 5 (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - Rain Of Love (Extended Version) (7:14)
-02. The Crosslines - I Can Feel Your Body (In The Night) (Maxi Version) (6:39)
-03. Birizdo I Am - Love Is Love (Maxi Version) (4:56)
-04. D. White - Follow Me (Extended Version) (7:13)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CB5832B3D180C637C8E2883ADD903EA0FDFEE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

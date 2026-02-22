@@ -1,3 +1,32 @@
+###  Публикация: 987307   (927969) от 16.02.2016
+
+Post-Mortem - God With Horns (2016) [MP3|320 кб/с] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Beyond the Void)
+02. Spine Trophy
+03. Rules of Death
+04. Eat the Cadaver(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DC2E08B53B20DE86E06B9DEA3DE352AECF4B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986983   (927884) от 16.02.2016
 
 Obscura - Akroasis (Akróasis) (2016) [MP3|320 кб/с] <Technical Death Metal, Progressive Death Metal>
@@ -738,35 +767,6 @@ Kreator - Live Antichrist (2017) Live [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBCB52C85106D657DA49E4CAD5BDA79F4A445269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490176   (920859) от 19.08.2021
-
-Brainstorm - Wall of Skulls (2021) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chamber Thirteen
-02. Where Ravens Fly
-03. Solitude
-04. Escape The Silence(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2F80305ECCA3B1E396662DBF073DEB4A2FF222
 ```
 
 https://mybot314.ru/tekegram_catalog/

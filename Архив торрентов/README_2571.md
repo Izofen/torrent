@@ -1,3 +1,32 @@
+###  Публикация: 1032085   (646044) от 07.07.2016
+
+VA - Psychedelic Gatherin (2016) [MP3|320 Kbps] <Trance, Psychedelic, Psy Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yner -  Contradictory Nightmare (Original Mix) 7:26
+02. Sensitive Seeds -  Inside A Simulation (Original Mix) 6:33
+03. Principles of Flight -  Peintre Sonore (Original Mix) 8:32
+04. Abstract Layers -  Permafrost (Original Mix) 9:09(   Читать дальше...   )Жанр: Trance, Psychedelic, Psy TranceПродолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2903DA3E690AA24E10DB1DB378C38C77D37EBB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 679367   (645973) от 15.07.2013
 
 СашаТаня (2013) WEBRip (cезон 1, серия 24)
@@ -679,32 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517696   (645719) от 02.07.2012
-
-[Wallpapers] Nature Wallpapers (02.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE517E9EB3868C9C6F613C1FD444493E81975B19
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 611259   (988080) от 31.01.2013
+
+"АСТ" | Книжная серия "Пять звезд" (47 книг) [2006-2008] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять звезд - серия книг, которым по пятибальной системе выставляют 5 звезд ведущие женские журналы: Космополитен и др.
+Ну что ж, сравните книгу, которую никто вообще не рекомендует и книгу, которую рекомендует хоть кто-нибудь. Рекомендация, она и в России рекомендация.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD492D6F337688039C27C93CECFB6E4A1C95F480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611439   (988077) от 31.01.2013
 
 Дикость / Wilderness (2006) DVD9
@@ -695,41 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:073983436AA9B68C14065F8E78A82C9B383FDAC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611136   (988032) от 31.01.2013
-
-VA - Metallica - A Tribute To Kill 'Em All (2013) [MP3|320 кб/с]<Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Tide - Hit The Lights (3:43)
-02. Burden Of Grief - The Four Horsemen (5:26)
-03. Rage - Motorbreath (live) (3:04)
-04. Dust Bolt - Jump In The Fire (4:02)
-05. Eisregen & The Vision Bleak - (Anesthesia) Pulling Teeth (3:32)
-06. Motorhead - Whiplash (3:51)
-07. Anthrax - Phantom Lord (4:31)
-08. Cannibal Corpse - No Remorse (6:16)
-09. Primal Fear - Seek & Destroy (7:13)
-10. Dew-Scented - Metal Militia (4:37)Жанр: Thrash MetalПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4277BCB426F6DF841ABCAAFD3DC59AA8B647CEA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

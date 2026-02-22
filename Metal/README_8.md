@@ -1,3 +1,32 @@
+###  Публикация: 813343   (1005023) от 28.07.2021
+
+Slipknot - Официальная Дискография (1996-2019) [MP3|320 кб/с] <Alternative Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005023.jpg" />
+</div>
+
+
+###  Подробнее
+
+1996 - Mate.Feed.Kill.Repeat. (Demo-Album)
+1999 - Slipknot (US Original Edition)
+1999 - Slipknot (Japanese Edition)
+2000 - Wait And Bleed (CDS)(   Читать дальше...   )Жанр: Alternative Metal, Nu-MetalПродолжительность: 25:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4952EA50EB492676A4F307E2E638019CCDB67CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486363   (1004875) от 30.07.2021
 
 Geezer Butler - Manipulations of the Mind: The Complete Collection (2021) [MP3|320 Kbps] <Heavy Metal>
@@ -791,41 +820,6 @@ Gehenna - 10 альбомов (1994 - 2012) Дискография [MP3|CBR:320,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38C9DB7C8C7499CE4D5FCF45FF7482350489573C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598541   (999337) от 06.01.2013
-
-VA - Futuristic Metal Compilation: Cyber Metal (2011) [MP3|256-320 kbps] <Cyber Metal , Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Herrschaft - I Am The One (05:22)
-02. Sybreed - Neurodrive (04:09)
-03. Helltrash - Cyber Messiah (03:30)
-04. Neurotech - Nonexistent (04:11)
-05. Cruentus - Terminal Code (03:25)
-06. 2 Times Terror - Lust (04:03)
-07. ...And Oceans - Silhouette: In White Rooms: Vacant Bodies (03:47)
-08. Synthetic Breed - Cybernetics (03:47)
-09. Vortech - Humanity: Static (00:00)
-10. The Kovenant - Mirrors Paradise (04:59)(   Читать дальше...   )Жанр: Cyber Metal , Industrial MetalПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CD524113DBE6B80F2B2EBF78FC005DE0C91AE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

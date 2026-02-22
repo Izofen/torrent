@@ -1,3 +1,61 @@
+###  Публикация: 990619   (910113) от 26.02.2016
+
+VA - Suntribe Vol.8 (2004) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Righi & Dan - Havana Loca (4:59)
+02. Unisono fx - Rain (latin club) (5:20)
+03. Asia Teck - Medioriente (6:39)
+04. Friday Tribe - King Chop (5:16)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8073D8036C1B92E828AFCFEF0CAF536CA39A7F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990814   (910064) от 26.02.2016
+
+Millimetric - Reconfiguration (2011) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, EBM>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoking Kills (The Hacker Remix) (06:57)
+02. Dans Mes Yeux (Lyynk Remix) (05:11)
+03. Manic Depression (David Carretta Remix) (07:27)
+04. Colargol (Adriano Canzian Remix) (06:53)(   Читать дальше...   )Жанр: Techno, Electro, EBMПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3C094639010A57B8DDA74600DFF3FA62CD7490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990684   (910025) от 26.02.2016
 
 VA - Salvacion Ibiza (2003) [FLAC|Lossless|tracks + .cue] <House>
@@ -681,64 +739,6 @@ Headkube - Live in Turin (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:584C9F8F7EB7C58FA4FEEA99A905FF9DFDDDF7DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101526   (894430) от 07.02.2017
-
-VA - Urban Dance Vol.19 (2017) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Will Sparks, Tyron Hapi & Luciana - Gorilla
-02 W&W - Caribbean Rave
-03 Tujamo - BOOM!
-04 MAKJ & Timmy Trumpet Feat. Andrew W.K. - Party Till(   Читать дальше...   )Жанр: HouseПродолжительность: 03:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57FE358654B2543CF54A2DE3588D41D8467C300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493713   (894209) от 04.09.2021
-
-Crooked Colours - Langata (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Downbeat, Electroacoustic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be There (4:39)
- 02. Do It Like You (3:11)
- 03. Heart String (3:46)
- 04. Just Breathe (3:37)(   Читать дальше...   )Жанр: Deep House, Organic House, Downbeat, ElectroacousticПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF4F0D500027EA82535CCF35CFA1E20CA90624C
 ```
 
 https://mybot314.ru/tekegram_catalog/

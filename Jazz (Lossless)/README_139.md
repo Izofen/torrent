@@ -1,3 +1,32 @@
+###  Публикация: 1140673   (654989) от 07.06.2017
+
+Trio Hein Van Der Gaag - To The Point (1986) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ecaroh [04:35]
+02. The More I See You [09:24]
+03. Lament For Edda [05:26]
+04. Blues For Carla [05:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E27CD182D79231AE76AB509C11DC4D0A1897FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140675   (654987) от 07.06.2017
 
 Alexander Fisher (Александр Фишер) - Three Question Marks (2005) Austro Mechana [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
@@ -745,35 +774,6 @@ Milton Nascimento - Anima (1982) /1988, Philips/ [FLAC|tracks+.cue]<World Fusion
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE44CB98447BE28D850226F184FB0D0322454FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904775   (653380) от 04.06.2015
-
-Cherry Poppin' Daddies - Please Return The Evening (2014) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Is Yet To Come (2:49)
-02. Come Fly With Me (3:09)
-03. The Lady Is A Tramp (3:27)
-04. Ain't That A Kick In The Head (2:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC908887F5FE6028E6CC97F931120FCB0274B98
 ```
 
 https://mybot314.ru/tekegram_catalog/

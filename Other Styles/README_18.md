@@ -1,3 +1,32 @@
+###  Публикация: 978531   (963578) от 23.01.2016
+
+Gary Girouard - The Naked Piano: Transitions (2016) [MP3|320 кб/с] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solitude
+02. Redemption
+03. Invictus
+04. Cross the Chasm(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23270490FB963037BF46B430AA99AE411E953354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978526   (963577) от 23.01.2016
 
 Stephen Rhodes - New Images (2016) [MP3|320 кб/с] <New Age>
@@ -713,35 +742,6 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81EAB3CEFF9D4A7D6553295F154AA6AFA8263C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360243   (961792) от 14.02.2020
-
-Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Motion Picture) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961792.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:32| 01. Meet Sonic (Before We Start I Gotta Tell You This)
-|02:02| 02. Welcome to Green Hills
-|02:51| 03. A Very Lonely Life
-|02:56| 04. Dr. Robotnik(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF43BEB85A731389019CAFA4C80888125CBE0A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1424265   (229596) от 16.11.2020
-
-Helmut Zacharias und sein Orchester (1948 - 1959) 2011, 2CD, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Violin Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229596.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Schoner Gigolo:
-01. Swing 48 [2:48]
-02. Helmy's Be Bop # 1 [1:48]
-03. St. Louis Blues [2:51](   Читать дальше...   )Жанр: Mainstream Jazz, Violin Jazz, InstrumentalПродолжительность: 02:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D5759004BEE246A7A2F20347F49E30596C8522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 851304   (229537) от 18.12.2014
 
 Louis Armstrong - 16 Most Requested Songs (1994) [FLAC|Lossless]<Jazz>
@@ -766,6 +737,35 @@ Mildred Bailey - Band Vocalist, Vol. 2 1931 - 1934 (1994) The Old Masters [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99E86A4243BC7E526705327D2BB1E40C1AB5DBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341907   (227675) от 30.11.2019
+
+Mildred Bailey - A Forgotten Lady 1935 - 1942 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Day Is Done [3:29]
+02. Willow Tree [3:20]
+03. Honeysuckle Rose [2:57]
+04. Squeeze Me [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B76C36F0F71BBA4D44D607CB4D9A595E19E5AA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

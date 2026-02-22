@@ -1,3 +1,38 @@
+###  Публикация: 497991   (253681) от 17.05.2012
+
+Charles Brown - Charles Brown (1946) (1997) [FLAC|Lossless]<Vocal Jazz, Piano Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. You Are My First Love (3:08)
+02. Race-Track Blues (3:02)
+03. Till The Real Thing Comes Along (3:07)
+04. Rocks In My Bed (2:41)
+05. Travelin' Blues (2:53)
+06. I'll Get Along Somehow (3:13)
+07. What Do You Know About Love? (3:13)
+08. It's The Talk Of The Town (3:16)
+09. Nutmeg (2:55)
+10. Warsaw Concerto (Parts 1 & 2) (5:04)(   Читать дальше...   )Жанр: Vocal Jazz, Piano BluesПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497390   (253476) от 16.05.2012
 
 Chris Botti - Impressions (2012) [FLAC (tracks+cue)|Lossless]<Smooth Jazz, Trumpet>
@@ -821,41 +856,6 @@ VA - Various - Blue Note Plays Billie Holiday (2006) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495650   (251395) от 12.05.2012
-
-VA - The Real Blues Brothers Vol. 2 (1998) [MP3|320 кб/с]<Blues, Electric Chicago Blues, Harmonica Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Brownie McGhee - Ease My Worried Mind (2:49)
-02. Hubert Sumlin - Late In The Evening (2:21)
-03. Roscoe Gordon - What You Got On Your Mind (1:54)
-04. Charlie Brantley - Boogie Me Baby (2:16)
-05. Sam Lightnin' Hopkins - See That My Grave Is Kept Clean (2:59)
-06. Champion Jack Dupree - Somebody Done Changed The Lock On My Door (2:51)
-07. Connie McBooker - Rich Women Blues (2:35)
-08. L.C. Williams - Lazy J. (2:54)
-09. Sonny "Hootin" Terry & the Night Owls - Crying Blues (3:03)
-10. Perry Cain - (   Читать дальше...   )Жанр: Blues, Electric Chicago Blues, Harmonica BluesПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98E216CF0E5C0CFF742FFD990E14B7746A8DC16
 ```
 
 https://mybot314.ru/tekegram_catalog/

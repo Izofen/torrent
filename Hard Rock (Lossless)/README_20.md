@@ -1,3 +1,32 @@
+###  Публикация: 1101371   (894771) от 07.02.2017
+
+Apollo - Waterdevils (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolution For The Brave [3:51]
+ 02. Liberate Yourself [3:36]
+ 03. Buried In A Flame [3:51]
+ 04. Safe And Sound [3:47](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171CD83542A428762D80EEBDDDB9D422BAD544ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761987   (894503) от 01.03.2014
 
 Babylon A.D. - Babylon A.D. (1989) [APE|Lossless]<Hard Rock>
@@ -788,35 +817,6 @@ Hugo - 3 альбома (1997-2004) [FLAC|Lossless|image + .cue] <Melodic Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4A30677690344E8376FDEEFB12DC35E68C2AB39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103173   (887903) от 11.02.2017
-
-Jim Crean - Insatiable (2016) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Jamieson Intro (00:19)
-02. Insatiable (04:00)
-03. Caught In The Middle (04:01)
-04. Touch  (03:59)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFE657D1D994492958E1E13687A73D0A3EA1C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

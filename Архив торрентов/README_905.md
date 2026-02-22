@@ -1,3 +1,38 @@
+###  Публикация: 176360   (934898) от 18.02.2010
+
+Bill Evans - Portrait in Jazz (DCC GZS-1059) (1959) [FLAC|Lossless]<Jazz/ Modal Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934898.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Come Rain or Come Shine
+2 Autumn Leaves
+3 Witchcraft
+4 When I Fall in Love
+5 Peri's Scope
+6 What Is This Thing Called Love?
+7 Spring Is Here
+8 Someday My Prince Will Come
+9 Blue in Green
+10 Autumn LeavesЖанр: Jazz/ Modal Jazz
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 629097   (934897) от 11.03.2013
 
 Сплетня / Gossip (2000) DVDRip
@@ -670,32 +705,6 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ECEC79ACBD7E1C6EAF238721DBF48FB60C3CA22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093435   (934847) от 14.01.2017
-
-Adobe Components: Flash Player 24.0.0.194 + AIR 24.0.0.180 + Shockwave Player 12.2.5.195 RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Flash Player — плагин, предназначенный для всех популярных браузеров - Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, с помощью которого можно проигрывать Flash-ролики (файлы SWF), смотреть онлайн-видео и слушать онлайн-аудиофайлы. Только с этой надстройкой браузер способен корректно отображать веб-страницы и интерактивные веб-элементы, разработанные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CBF0F843B9DA402DEF92FEB189DD7F8EEE07CBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

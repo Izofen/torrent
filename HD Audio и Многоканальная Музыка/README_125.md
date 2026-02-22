@@ -1,3 +1,177 @@
+###  Публикация: 1724256   (109281) от 19.05.2024
+
+Relaxing Instrumental Music - French Breakfast Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parisian Bistro Piano (3:15)
+02. French Morning (2:58)
+03. Dinner French Style (3:35)
+04. Jazz Manouche (3:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E755EB7BB557D94EEEEA405CB952BAAA23D6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724176   (109280) от 19.05.2024
+
+Galantis - Rx (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dust (00:02:49)
+02 - One, Two, & 3 (00:03:26)
+03 - Bang Bang! (My Neurodivergent Anthem) (00:02:47)
+04 - Dreamteam (00:03:01)(   Читать дальше...   )Жанр: House, Dance-PopПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2458631C704163AE6070D49AAD2C9A245553F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724260   (109274) от 19.05.2024
+
+Romantic Time, Jazz Guitar Club, Love Music Zone - Romantic Latin Guitar Ballads: Sensual Melodies with Spanish Accent (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Coffee (3:41)
+02. Romantic Weekend (3:33)
+03. Sexy Summer (3:02)
+04. Play Your Game (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89698A873B701E3827E39C18C4B8631D33F99469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724245   (109266) от 19.05.2024
+
+Lainz - Indigo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Lainz (6:03)
+02. Blue Lainz (6:17)
+03. Sfrombolus (6:20)
+04. P-Lainz (6:23)(   Читать дальше...   )Жанр: Jazz, DanceПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4269FFD8A2FBC5C0D28AB519188A867C7AF6BA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724343   (109264) от 19.05.2024
+
+Disaster Pony - Disaster Pony (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Got Tentacles (3:57)
+02. Robot Pain (3:52)
+03. Hot Like Bugs (3:52)
+04. Dead Neon & The Noon Sun (4:40)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6B40645A0AE8A427A74EA1BBC1745E7554739D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724341   (109263) от 19.05.2024
+
+Delta OG - Aged Friends & Old Whiskey (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil Never Change (3:02)
+02. I'm Comin' Home Today (3:25)
+03. Montgomery Station (3:48)
+04. Boogie Stillin' (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A442997AA0DD1236F378CFE565EC3B6882749DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724238   (109262) от 19.05.2024
 
 Alan Broadbent - Jazz Funk (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Funk>
@@ -571,180 +745,6 @@ Erik Nieder - Miracle Maker (2024) Devotional Edition [FLAC 24/48|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D908BB707D4231AEC0288BDFD02CC05D2FE55449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724765   (109116) от 22.05.2024
-
-Deep Forest, Olivier Delevingne - Crystal Clear (2024) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <electronic world music>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Danube Passa (00:02:53)
-02 - Walking On a Doom (00:02:27)
-03 - Crystal Clear (00:03:29)
-04 - Must Be an Angel (00:02:40)(   Читать дальше...   )Жанр: electronic world musicПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FB7C6BCB0B57499AEF42C350DE1E0F18396C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724734   (109109) от 22.05.2024
-
-Engineered Society Project - Deception (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deception (3:24)
-02. Who Am I (4:10)
-03. Fade Away V.2 (4:19)
-04. Undertaker (5:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C40074A304A90D6857915DACF7678C8D38A95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724753   (109108) от 22.05.2024
-
-Alana Yorke - Destroyer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Dream Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tidal Wave (00:03:28)
-02 - All The Flowers (00:03:39)
-03 - Into The Night (00:04:36)
-04 - Marion (00:05:03)(   Читать дальше...   )Жанр: Alternative, Dream PopПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DD21337987B59E67602240194F4EDDE5DEFA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724731   (109107) от 22.05.2024
-
-Corey Taylor - CMF2B... or Not 2B (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HSOAT (1:21)
-02. Tank (4:04)
-03. Not in the Mood to Live (3:24)
-04. Killing Machine (2:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D36A0EEB4AD8C0525C618EF92B9EB9616AA9AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724622   (109105) от 22.05.2024
-
-Smooth Jazz Music Academy, Background Instrumental Music Collective - The Softness of Jazz: Instrumental Mellow Jazz, Slow Relaxing Jazzy Ballads (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Your Dreams (3:28)
-02. Background Instrumental Music Collective - Everything’s Possible (3:05)
-03. Dreams Come True (3:15)
-04. Background Instrumental Music Collective - Life Is Like a Road (3:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56DCE26DB79D5A1F15FB59F9D967D1C7DDC21928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724621   (109102) от 22.05.2024
-
-Skov-Roar-Rifbjerg Trio - Busy Spectacle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Busy Spectacle (4:51)
-02. Theme From Rosemary's Baby (5:15)
-03. Blue Pepper (3:34)
-04. Danube Incident (4:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2C4180F4CDA1328933554FDCF3EBCCD51C8C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1551264   (590246) от 15.05.2022
+
+Fausto Ferraiuolo Trio - Il Dono (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Island [4:52]
+02. Three [4:19]
+03. Rue de la Vega [5:26]
+04. O Impro Mio [4:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD29476D132214685030599BA0E30FB9CC7FD01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551267   (590245) от 15.05.2022
 
 Luigi Martinale French Trio - Mercj (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
@@ -719,35 +748,6 @@ Rebecca Kilgore - Make Someone Happy (2005) Audiophile Records [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D003F3AC7741B944CF595E189959784EDA6192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552520   (586750) от 21.05.2022
-
-Ahmad Jamal - The Complete Ahmad Jamal Trio Argo Sessions (1956 - 1962) 9CD, 2010, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586750.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Volga Boatman [3:50]
-02. On Green Dolphin Street [3:18]
-03. How About You [5:27](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 09:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252657B68847070B27B78F3CF7646A972939618B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,96 @@
+###  Публикация: 1000980   (855596) от 27.03.2016
+
+VA - New Jazz Divas (2016) [MP3|320 кб/с] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diana Krall - This Can’t Be Love (04:32)
+02. Youn Sun Nah - Jockey Full of Bourbon (03:41)
+03. Terez Montcalm - Docteur (04:09)
+04. Fay Claassen - Conception / Deception (04:15)(   Читать дальше...   )Производство: Wagram MusicЖанр: JazzПродолжительность: 02:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5E61E396645C85EB9631CA85163E32142B765E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109946   (855563) от 01.03.2017
+
+Southern Avenue - Southern Avenue (2017) [MP3|320 Kbps] <Memphis Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Give Up (04:43)
+02. What Did I Do (03:54)
+03. It's Gonna Be Alright (03:16)
+04. Slipped Tripped and Fell In Love (03:26)(   Читать дальше...   )Жанр: Memphis BluesПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB8134DB72A1D9E817C7DD32381044D862B8F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305229   (855292) от 08.03.2011
+
+Joe Beck - Brazilian Dreamin' (2006) [FLAC|Lossless]<Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Vivo Sonhando (5:18)
+02. Manha De Carnaval (4:53)
+03. Aquarius (6:51)
+04. O Grande Amor (4:53)
+05. Felicidade (5:31)
+06. And Here's To You (5:54)
+07. Brazil (5:52)
+08. Ela E Carioca (4:55)
+09. Falando De Amor (6:26)
+10. Zanzibar (5:19)(   Читать дальше...)Жанр: Fusion, Post-BopПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 769487   (855270) от 23.03.2014
 
 Kirk Knuffke - Amnesia Brown (2010) [FLAC|Lossless]<Post-Bop, Free Jazz / Modern Creative>
@@ -733,96 +826,6 @@ Dinah Shore - Dinah Sings Some Blues With Red & Dinah, Down Home! (1998) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66310F3E0E7A7C09BD81A782BEB3BE65A47DC5AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876087   (854342) от 08.03.2015
-
-Aurora Nealand and The Royal Roses - The Lookback Transmission (2014) [FLAC|Lossless|WEB-DL]<Dixieland, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Man
-02. Le Richelieu
-03. Don't Let Your Love Go Wrong
-04. T'aint Nobody's Business
-05. Hongo Fongo(   Читать дальше...   )Жанр: Dixieland, Vocal JazzПродолжительность: 01:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B928D40DCCA223291E910A095C5DFB9BE8DF409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876021   (854340) от 08.03.2015
-
-Lucky 3 Blues Band - Howl! (2014) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Maxwell Street Blues (02:51)
-02. Junkyard (04:32)
-03. Boogaloo Test (02:26)
-04. Too Much Funky Business (03:44)
-05. So Alone (04:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8885275C076CDE64B2389AF23D9417F3230B51B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875988   (854236) от 08.03.2015
-
-Lyambiko - Muse (2015) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Muse
- 02. I Went To Heaven
- 03. Landslide
- 04. Willow Weep For Me
- 05. Do You Remember Me(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB307A1AD38888EB765E8E9D85A5E9B26553BB1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

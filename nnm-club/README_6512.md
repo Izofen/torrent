@@ -1,48 +1,22 @@
-###  Публикация: 1123436   (786233) от 08.04.2017
+###  Публикация: 1095317   (786909) от 19.01.2019
 
-Сплит / Split (2016) HDRip [H.264]
+Бен-Гур / Ben-Hur (2016) BDRip [H.264/1080p-LQ]
 
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кевин — человек, в котором живет не менее двадцати трех личностей, вынужден похитить трех девушек подросткового возраста. Тем временем, пока они находятся в заточении, самая главная личность Кевина — Чудовище — материализуется.Производство: США, Blinding Edge Pictures, Blumhouse ProductionsЖанр: Ужасы, ТриллерРежиссер: М. Найт ШьямаланАктеры: Джеймс МакЭвой, Бетти Бакли, Иззи Коффи, Накия Диллард, Дэнн Финк, Кэш Гойнс, Розмари Ховард, Нил ХаффПеревод: Многоголосый закадровый, любительский ( Студия "Paradox" & Omskbird records )Субтитры: АнглийскиеПродолжительность: 01:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287512C435D24D82FF9F90B92A6FD8ACD2A4E03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122764   (786232) от 08.04.2017
-
-На пятьдесят оттенков темнее / Fifty Shades Darker (2017) WEB-DL [H.264/1080p-LQ]
-
->>След.
+>>Зарубежное кино
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786232.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пока Кристиан Грей борется со своими внутренними демонами, Анастейша Стил вынуждена противостоять гневу и зависти тех женщин, что были с Кристианом до нее.Производство: США, Universal PicturesЖанр: Драма, МелодрамаРежиссер: Джеймс ФоулиАктеры: Дакота Джонсон, Джейми Дорнан, Эрик Джонсон, Брюс Олтмен, Элоиза Мамфорд, Белла Хиткот, Рита Ора, Виктор Расук, Люк Граймс, Макс МартиниПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:57:48
+История Бен-Гура, потомка знатного иудейского рода, который был предан своим лучшим другом-римлянином. Проведя много лет в рабстве на римских галерах, Бен-Гур в итоге получает возможность вернуться на родину и отомстить обидчику.Производство: США / LightWorkers Media, Metro-Goldwyn-Mayer (MGM), Paramount PicturesЖанр: боевик, драма, приключенияРежиссер: Тимур БекмамбетовАктеры: Джек Хьюстон, Тоби Кеббелл, Родриго Санторо, Назанин Бониади, Айелет Зурер, Йохан Филип Асбек, София Блэк-Д`Элиа, Морган Фримен, Марван Кензари, Мойзес АриасПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 02:03:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7E6E0593768DC301A6A71852C88C19CEF4DC262
+magnet:?xt=urn:btih:3229FF02EC371CFC48010936577A593E16C48797
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +24,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123449   (786231) от 08.04.2017
+###  Публикация: 1277158   (786908) от 19.01.2019
 
-Киллер поневоле / Un petit boulot (Odd Job) (2016) WEB-DLRip [H.264/720p-LQ] [AVO]
+Artstudio Pro 2.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2019Разработчик: Lucky ClanПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B023D9A50D70A3151759805609A8A190DB6F932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277113   (786907) от 19.01.2019
+
+Chaos Control: GTD organizer | To-Do List 1.4.8 [En/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_786907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хаос-контроль: органайзер целей и задач на базе GTD
+Хаос-контроль - это мощный органайзер, позволяющий фиксировать долгосрочные и среднесрочные цели, а также составлять списки дел на день.
+
+Ещё ни в одной биографии выдающегося бизнесмена, политика или артиста не было написано, что он достиг успеха благодаря использованию ежедневника, календаря, методик тайм-менеджмента (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2019Разработчик: Tarasov MobileПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277212   (786906) от 19.01.2019
+
+Света - Хватит довольно (2018) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786906.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Света - Хватит Довольно Remix(Chad Radio Edit)Жанр: Club, DanceПродолжительность: 00:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CD45CDC8B031BDB5717FC111FFE9541FA3CA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696113   (786905) от 19.01.2019
+
+Паркер / Parker (2013) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — профессиональный вор, руководствующийся собственным моральным кодексом, но способный запросто отправить на тот свет любого, кто перейдет ему дорогу.Производство: США / Current Entertainment, Anvil Films,  Incentive Filmed EntertainmentЖанр: Боевик, Триллер, КриминалРежиссер: Тейлор ХэкфордАктеры: Джейсон Стэйтем, Дженнифер Лопез, Майкл Чиклис, Бобби Каннавале, Ник Нолти, Уенделл Пирс, Клифтон Коллинз мл., Мика А. Хауптман, Карлос Карраско, Пэтти ЛюПонПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (forced, Е. Воронин), английский (full)Продолжительность: 01:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7235BECB9E94A11CF21B7A5A9DC9DF9CE7D6952A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277169   (786904) от 19.01.2019
+
+Constructor Paravis Flash ver:Beta 01.2019 [UEFI | x86/x64 | RU/EN]
 
 >>3
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786231.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жак готов на всё, чтобы заработать денег. Даже на предложение местного авторитета убить его неверную жену. Но есть две проблемы: Жак едва ли умеет управляться с оружием, а его новая девушка работает в полиции, где вовсю ищут неумелого киллера.Производство: Франция, Бельгия / Gaumont, Scope Pictures, Paddock FilmsЖанр: Комедия, КриминалРежиссер: Паскаль ШомельАктеры: Ромен Дюрис, Мишель Блан, Алис Белаиди, Гюстав Керверн, Алекс Лутс, Шарли Дюпон, Филипп Гран’Анри, Томас Мастин, Кароль ТревоПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Субтитры: Французские (форсированные)Продолжительность: 01:39:53
+Сборка содержит следующие компоненты:
+1. Загрузка Windows 8 Native, 8, 10 Sergei Strelec v23.12.2018 x86/x64
+2. Загрузка Windows 7 PE BootPass 4.2.8
+3. Установка Windows 7, 10, 10 LTSC x86/x64 (оригинальные образы, обновления по 12.2018)(   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84DD6C54AA00C947BFB9F708365EF4F60EA16ED2
+magnet:?xt=urn:btih:B091D18C3921A55D9A810D7BB97870B37AF64C5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +160,131 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083656   (786230) от 08.04.2017
+###  Публикация: 1277083   (786903) от 19.01.2019
 
-Землетрясение (2016) WEB-DL [H.264/1080p-LQ]
+Братья Систерс / The Sisters Brothers (2018) BDRip [H.264/1080p] [PR]
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья-беспредельщики по фамилии Систерс по заданию таинственного Командора должны прикончить некоего Уорма, золотоискателя-авантюриста. Фартовые по жизни охотники за головами гонятся за новой жертвой, не подозревая, что их разведчик не так-то прост… Начинается игра на выживание: острый ум против безбашенной силы.Производство: Франция, Испания, Румыния, США, Бельгия / Why Not Productions, Annapurna Pictures, Page 114 ProductionsЖанр: Драма, Комедия, Криминал, Вестерн, ПриключенияРежиссер: Жак ОдиарАктеры: Джон Си Райли, Хоакин Феникс, Джейк Джилленхол, Риз Ахмед, Ребекка Рут, Эллисон Толман, Рутгер Хауэр, Кэрол Кейн, Патрис Коссоно, Зак Эбботт и др.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), английские (Full, SDH)Продолжительность: 02:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41DAB9245EAC57391A31D35F05DFD0A5178C21CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277176   (786902) от 19.01.2019
+
+Microsoft Windows 10.0.17134.523 Version 1803 (January 2019 Update) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1803 Build 17134.523 (Updated January 2019).
+Оригинальные образы business_edition и consumer_edition.
+RTM Build 17134.1.rs4_release.180410-1804 + Cumulative Update KB4480966 = OS Build 17134.523.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35060B3FB7EC03485DA73858FED76DF511FFE81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276764   (786901) от 19.01.2019
+
+Мир принадлежит тебе / Le monde est a toi (2018) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальный талант он унаследовал от гламурной матери, изящно опустошающей лучшие бутики Франции, страстно увлекающейся азартными играми и искусно манипулирующей всеми вокруг, и отца, который не так давно наводил шороху на весь Париж. Но молодой человек мечтает о легальном бизнесе и спокойной жизни на берегу океана с любимой девушкой. Правда, чтобы провернуть последнюю (   Читать дальше...   )Производство: Франция, Iconoclast, Chi-Fou-Mi Productions, StudioCanalЖанр: Комедия, криминалРежиссер: Ромен ГаврасАктеры: Карим Леклу, Изабель Аджани, Венсан Кассель, Улайя Амамра, Франсуа Дамиенс, Филипп Катрин, Сэм Спруэлл, Гэбби Роуз, Софиан Каммес, Мунир Амамра и др.Перевод: Дублированный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D80741AF88E68F4344B6BC05C89F6CA40CEBCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065875   (786900) от 19.01.2019
+
+UVlayout Professional 2.09.04 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786900.jpg" />
+</div>
+
+
+###  Подробнее
+
+UVLayout - это самостоятельное приложение для создания и редактирования UV-координат треxмерных объектов. Приложение используется многими профессионалами (например Gnomon) в индустрии игр и визуальных эффектов. Уникальный подход и инструменты UVLayout - позволяют создавать высококачественные развертки с минимальными искажениями в значительно меньшие сроки, чем при (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4D043BBA04A43E8865253D1B902D55C8E82B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276649   (786899) от 19.01.2019
+
+Gigabyte AORUS AD27QD — первый тактический игровой монитор в мире
 
 >>3
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786230.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_786899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-7 декабря 1988 года в Армении произошло землетрясение, охватившее почти половину территории республики. Были разрушены города Спитак, Ленинакан, Кировакан, Степанаван и ещё более 300 населённых пунктов. 25 тысяч человек погибли, 19 тысяч стали инвалидами, больше полумиллиона остались без крыши над головой.На фоне природной катастрофы разворачивается история двух (   Читать дальше...   )Производство: Россия, Армения, Марс Медиа ЭнтертейнментЖанр: ДрамаРежиссер: Сарик АндреасянАктеры: Константин Лавроненко, Мария Миронова мл., Виктор Степанян, Татев Овакимян, Михаил Погосян, Грант Тохатян, Даниил Изотов, Микаэль Джанибекян, Сос Джанибекян, Арсен ГригорянПеревод: Не требуется (Русский, iTunes)Субтитры: ОтсутствуютПродолжительность: 01:40:03
+Компания Gigabyte представила первый в мире тактический игровой монитор AORUS AD27QD. По словам производителя, функции вроде эквалайзера чёрного, стабилизатора прицела, игрового ассистента, виджета OSD и активного шумоподавления помогут геймерам получить тактическое преимущество над своими оппонентами.AORUS AD27QD оснащён 27-дюймовым экраном с IPS-матрицей, обеспечивающей (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1844D122C57D508358B9EE3483B274BF463A7C8
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +292,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122772   (786229) от 08.04.2017
+###  Публикация: 1256933   (786898) от 19.01.2019
 
-SuperАлиби / Alibi.com (2017) WEB-DL [H.264/1080p-LQ]
+SOULCALIBUR VI / SOULCALIBUR 6 (2018) [Ru/En] (01.10.01/dlc) Repack xatab [Deluxe Edition]
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игра в серии SOULCALIBUR! В бою пригодятся не только кулаки! Благодаря новым боевым механикам и персонажам SOULCALIBUR VI выводит знаменитую серию игр на новый уровень. Творите историю!Тип издания: RepackРазработчик: BANDAI NAMCO StudiosЖанр: Arcade (Fighting), ActionЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39918FFB857EEACD74AD3F29F5A7D38F32E47E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277012   (786897) от 19.01.2019
+
+Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 01.2019 1DVD v2
 
 >>3
->>4
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786229.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нужно алиби, чтобы втайне от супруги спокойно отдохнуть с друзьями на футболе? Вам поможет агентство по созданию алиби. Нужна отмазка в школе? Обращайтесь! Решили отдохнуть от семьи в выходные? Мы на связи! Этот стартап Грега и его команды уже получил оглушительный успех… Но когда он встречает Фло, девушку своей мечты, которая презирает всех лгунов и изменщиков, (   Читать дальше...   )Производство: Франция / Canal+, Cine, CN5 ProductionsЖанр: КомедияРежиссер: Филипп ЛашоАктеры: Филипп Лашо, Элоди Фонтан, Жюльен Аррути, Тарек Будали, Дидье Бурдон, Натали Бай, Науэлл Мадани, Меди Садун, Венсан Дезанья, Элис ДюфурПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:25:41
+32-х и 64-х битные ОС Windows® 7™ максимальная с интегрированными обновлениями и дополнительными программами, оформлением в светло-голубом стиле и стандартной ручной установкой на 1 DVD. Дополнительно в сборку интегрирована профессиональная 64-х битная редакция для установки системы на GPT диски. После установки в системе будут присутствовать практически все возможные (   Читать дальше...   )Язык интерфейса: Русский (Russian)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEBC2983AF011D2A9A39AA36ECDF568EE4B25567
+magnet:?xt=urn:btih:9DD42DF0F9649470BC625AAE2B69D158F662E301
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,170 +344,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115138   (786228) от 08.04.2017
+###  Публикация: 1388247   (786896) от 05.06.2020
 
-Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [16.03.2017] [RU]
-
->>3
->>23
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборки основаны на официальных образах Microsoft:
-ru_windows_10_enterprise_2016_ltsb_x86_dvd_9058173
-ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886
-Установлены все важные и рекомендуемые обновления на момент создания сборки:(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA25A7831503AEEEF94E04A156AD2FB208C24D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868076   (786227) от 08.04.2017
-
-Дем Михайлов | Цикл «Мир Вальдиры» [12 книг] (2012-2017) [FB2]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир Вальдиры. Огромный мир, наполненный приключениями и древними тайнами, чудовищами, жаждущими твоей смерти. И ты в нем. Мир, в котором каждый может добиться исполнения своих самых заветных желаний и стать кем угодно — удачливым в делах торговцем, мудрым отшельником, отважным воином или же боевым магом, которому подвластны разрушительные стихии. Но не следует ожидать, (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81902B7EFBD6BD64338FF73E8AFCA50EE57BFAEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123727   (786226) от 09.04.2017
-
-Futility - Futility (2009) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...Failed (07:23)
-02. Saline Oasis (07:48)
-03. My Sickness (07:24)
-04. Fallen (08:13)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A33C6D09FCD6672FDE0AC0ED027D1EC23C3DBEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123729   (786225) от 09.04.2017
-
-Herodias - Antevorta (2012) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La sangre de Salome (05:43)
-02. Antevorta (10:04)
-03. An Exit (07:26)
-04. Mala gente (10:24)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DF420CE15C9D72CF99BAA3F197460D789E4952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123730   (786224) от 09.04.2017
-
-Lachrimatory - Anamnesic Voices Phenomena (2006) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regression (12:14)
-02. Beyond the Immensity (09:38)
-03. Impure Heart (10:39)
-04. Carnal Abyss (09:13)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8BF0D5DED21D3D10B7A49868DEE528EDDF5C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123875   (786223) от 09.04.2017
-
-Anita O'Day - Anita O'Day's Finest Hour (1954 - 1962) 2000, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Dizzy Gillespie - A Night in Tunisia 1989 (1991) First Choice [FLAC|Lossless|tracks + .cue] <Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786223.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Honeysuckle Rose [03:16]
- 02.Little Girl Blue [03:04]
- 03.Let Me Off Uptown [03:23]
- 04.An Occasional Man [02:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:03
+01. Manteca [6:33]
+02. Con Alma [5:42]
+03. Lorraine [6:53]
+04. Brother 'K' [7:11](   Читать дальше...   )Жанр: BopПродолжительность: 00:49:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE269B03FBD47DAD2EF0CC3863C950EBCDE6D78E
+magnet:?xt=urn:btih:2B43B486FE034A51AA2DC7255DD0C28F7562FFC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,28 +373,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123749   (786222) от 09.04.2017
+###  Публикация: 1388301   (786895) от 05.06.2020
 
-Negative Voice - Infinite Dissonance (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal, Doom Metal>
+Currents - The Way It Ends (2020) [MP3|320 Kbps] <Metalcore>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786222.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Dissonance (07:17)
-2. Grey Pools Heaven (05:21)
-3. Idealistic (06:28)
-4. Insane Blossoming (05:42)(   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:53:28
+01 Never There (01:49)
+ 02 A Flag to Wave (03:35)
+ 03 Poverty of Self (03:26)
+ 04 Monsters (03:32)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:38:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B19DBC5D1E5D61C8260EBB12AC63FEB9A1488AB
+magnet:?xt=urn:btih:4F9A70BAF6B27FC6C83237AA3CFBFE8C64114569
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,28 +402,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123873   (786221) от 09.04.2017
+###  Публикация: 1388290   (786894) от 05.06.2020
 
-Valery Ponomarev - Profile (1991) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+Таня Винк | Нет ничего сильнее любви (2019) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Галя и Юра планировали свадьбу. Вот только не сложилось. Семьи влюбленных стали врагами, и жизнь разделила их, разбросав по разным городам. Проходят годы, но Галка все еще не может забыть свою любовь. Она отчаянно хочет заполнить душевную пустоту. Встреча с невестой брата, Катей, одинокой мамой двух малышей, наполняет ее жизнь новым смыслом. И снова все рушится – (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC960E562F8F46202801404E4AE8EAA5E60550D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388249   (786893) от 05.06.2020
+
+Dizzy Gillespie - Dee Gee Days: The Savoy Sessions 1951 - 1952 (1985) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786221.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.I Was Afraid You'd Never Call Me [06:56]
- 02.I Concentrate On You [14:07]
- 03.Time [09:48]
- 04.High Voltage At Rudy's [09:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:19
+01. Tin Tin Deo [2:41]
+02. Birk's Works [3:07]
+03. We Love to Boogie [2:54]
+04. Lady Be Good [2:43](   Читать дальше...   )Жанр: BopПродолжительность: 01:13:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0DCC720FF029BD171648B507E808B8FF93300CC
+magnet:?xt=urn:btih:438C22A3E1BC0AB427CCE7FEBF2B7BD28F08BD4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,28 +457,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123468   (786220) от 09.04.2017
+###  Публикация: 1388127   (786892) от 05.06.2020
 
-VA - Infrasonic Spring Selection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
+Hinds - The Prettiest Curse (2020) [MP3|320 Kbps] <Indie Rock, Pop - Rock>
 
->>Electronic
->>Trance
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786220.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_786892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Max Denoise - Principessa (Ronski Speed Remix)  6:33
-02.  Empirian - Waves (Original Mix)  5:49
-03.  Artra & Holland - Freyja (Extended Mix)  6:38
-04.  Sam Laxton - Bliss (Extended Mix)  6:09(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 01:19:47
+01. Good Bad Times (03:19)
+ 02. Just Like Kids (Miau) (02:09)
+ 03. Riding Solo (03:37)
+ 04. Boy (03:17)(   Читать дальше...   )Жанр: Indie Rock, Pop - RockПродолжительность: 00:32:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BB8CD703158A7A26AFFC4D921EF89B920DA7712
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,115 +486,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124069   (786219) от 09.04.2017
+###  Публикация: 1388028   (786891) от 05.06.2020
 
-VA - Nothing But... Trance Anthems Vol.8 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mike Sanders & Beatsole - Trigger (Extended Mix)  7:26
-02.  First Sight & Fright Nite - Warp Velocity (Extended Mix)  6:47
-03.  Stoneface & Terminal - Tale In Verse (Extended Mix)  7:28
-04.  Nakhiya - Sunset Over Giza (Original Mix)  7:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8931D215EBD2693ACEC51A14938EB05BCE631AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123545   (786218) от 09.04.2017
-
-VA - Любимые хиты весны. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Фаган Сафаров - Сарай-Караван 3:00
-002. Лена Максимова - Слышишь Отошел 3:39
-003. Russell Ray Feat. Sergey Kutsuev - Хамелеоны 3:41
-004. Юлианна Караулова - Больше Никогда 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348F129E9D045255ED2FCCCCCB45F0DE54F9A968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123936   (786217) от 09.04.2017
-
-Iris Dee Jay - Love Shines Through (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Shines Through (Radio Edit) 03:37
-02. Love Shines Through (Full Vocal Mix) 06:55
-03. Love Shines Through (Beatless Reprise) 03:16
-04. Love Shines Through (Emran Badalov's Tech Remix) 04:38(   Читать дальше...   )Жанр: TranceПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAE1CB4FE4FAC1FF8885C5057BDAF804A9756DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123735   (786216) от 09.04.2017
-
-Dаmnаtiоns Dау - А Wоrld Аwаkеns (2017) [FLAC|Lossless|image + .cue] <Thrash Metal, Power Metal>
+Brian Eno - Here Come The Warm Jets (1973) Remastered 2004 [FLAC|Lossless|tracks + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786216.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Witness  (04:45) 
-02. Dissecting the Soul  (04:46) 
-03. Colours of Darkness  (04:58) 
-04. I Pray  (05:42) (   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:45:06
+01. Needle in the Camel's Eye (3:11)
+02. The Paw Paw Negro Blowtorch (3:05)
+03. Baby's On Fire (5:19)
+04. Cindy Tells Me (3:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2273EE5641B3FCC230B64A5A45D23815DDC7D54C
+magnet:?xt=urn:btih:F5DF40B0957DDFC66803C6DEBBCA837B525BBC03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,28 +515,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123573   (786215) от 09.04.2017
+###  Публикация: 1388031   (786890) от 05.06.2020
 
-VA - Отдыхаем с лучшими хитами. Звездная тусовочка. Часть № 5 (2017) [MP3|256 Kbps] <Pop>
+The Boo Radleys - Giant Steps (1993) [FLAC|Lossless|tracks + .cue] <Rock>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786215.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Sasha Dith & Russian Mc - Тобой Простужен 2:59
-002. Charli Xcx & Kyary Pamyu Pamyu - Crazy Crazy 3:46
-003. Тимур Спб - Лучшая Подруга 3:27
-004. Катя Гордон - Нет Стыда 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+01. I Hang Suspended (3:57)
+02. Upon 9th And Fairchild (4:51)
+03. Wish I Was Skinny (3:38)
+04. Leaves And Sand (4:26)(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14C780F6646A4E7AE7F839A758DA721698AFC22A
+magnet:?xt=urn:btih:F312F1CD2CE115559FF187040FBA0EE2A4D14B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,28 +544,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123544   (786214) от 09.04.2017
+###  Публикация: 1388251   (786889) от 05.06.2020
 
-VA - Драйвовый весенний музон (2017) [MP3|256 Kbps] <Pop>
+Dizzy Gillespie - Greatest Hits (1996) RCA Victor [FLAC|Lossless|tracks + .cue] <Bop>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786214.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_786889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Юлианна Караулова - Ты Мой 3:05
-002. Зара - Без Многоточий 3:36
-003. Пицца - Лети 3:39
-004. Ira Smith - Буду Выше 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+01. Night in Tunisia [3:10]
+02. 52nd Street Theme [3:16]
+03. Good Bait [2:50]
+04. Anthropology [2:40](   Читать дальше...   )Жанр: BopПродолжительность: 00:51:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEE4123F256C881E4113A18CA8C5E844EEDE8EB4
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,57 +573,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123552   (786213) от 09.04.2017
+###  Публикация: 1388238   (786888) от 05.06.2020
 
-VA - Положительный заряд Hit FM. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786213.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Оля Полякова - Цветочек Аленький 3:23
-002. Константин Легостаев - Не Матерись 3:04
-003. Миля - Выбирай Любовь 3:55
-004. Егор Диких - Маэстро 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FD8831B12A7E6608663337A78D900B16FFF7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123722   (786212) от 09.04.2017
-
-Devon Allman's Honeytribe - Space Age Blues (2010) [FLAC|Lossless|image + .cue] <Blues Rock, Modern Electric Blues>
+Wynton Kelly - Kelly At Midnite (1960) [FLAC|Lossless|tracks + .cue] <Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786212.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Could Get Dangerous  (04:14) 
-02. Space Age Blues  (05:16) 
-03. Salvation  (04:41) 
-04. Sir Duke  (03:47) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 00:45:37
+Kelly At Midnite - альбом джазового пианиста Уинтона Келли записанный в 1960 году и выпущенный под лейблом Vee Jay Records.01. Temperance (7:32)
+02. Weird Lullaby (7:14)
+03. On Stage (5:16)
+04. Skatin' (5:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31A90D9A04195C8503B8C7578B32F6C8565C0A1F
+magnet:?xt=urn:btih:34182399106EE5423FE4576505DEBAC7C052B0D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,28 +602,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123731   (786211) от 09.04.2017
+###  Публикация: 1388020   (786887) от 05.06.2020
 
-Lachrimatory - Transient (2011) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+Todd Rundgren - Something / Anything? (1972) [FLAC|Lossless|tracks + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786211.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786887.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Seclusion (12:14)
-02. Lachrimatory (11:29)
-03. Twilight (08:11)
-04. Clarity (08:26)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 01:03:10
+Рундгрен выступил продюсером «Something/Anything?», играл на всех инструментах, исполнил все вокальные партии в 19 треках из 25 и написал все песни за исключением двух в попурри и «Dust In The Wind». В результате вышел альбом, поднявший Рундгрена на вершину, как в коммерческом, так и творческом плане. «Hello It's Me» - одна из серии великолепных баллад, украсивших (   Читать дальше...   )Part 3 - The Kid Gets Heavy:
+
+01. Black Maria (5:20)
+02. One More Day (No Word) (3:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0BEF065BF1869FE01DF6BC86849ED64FF084DBC
+magnet:?xt=urn:btih:3F59419B98857540F3F6FB66AA8329C196A0D287
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,28 +631,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123754   (786210) от 09.04.2017
+###  Публикация: 1388291   (786886) от 05.06.2020
 
-Negative Voice - Cold Redrafted (2016) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal, Doom Metal>
+Redo - RANKED (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786210.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Limitation (05:23)
-2. City of Decaying Gaze (05:41)
-3. Nightmare Everlasting (05:44)
-4. Instant (06:09)(   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:46:22
+01. CELTICS [02:02]
+02. RACKS [02:02]
+03. UNFRIEND [02:52]
+04. CARTER [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:18:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3087FCB39770CDC5597912AE9A14525BDD892FF8
+magnet:?xt=urn:btih:72428D6497A78AB3FEAC7557F3D0D5E62D2C53FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,28 +660,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123993   (786209) от 09.04.2017
+###  Публикация: 1388293   (786885) от 05.06.2020
 
-Devon Allman - Turquoise (2013) [FLAC|Lossless|image + .cue] <Blues Rock>
+Дженн Беннет | Вероятно, Алекс (2020) [EPUB]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786209.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786885.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When I Left Home  (04:05) 
-02. Don't Set Me Free  (03:40) 
-03. Time Machine  (03:39) 
-04. Stop Draggin My Heart Around  (04:46) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:54
+Бейли месяцами переписывалась онлайн с Алексом. Боясь разрушить созданный в голове образ, она не сообщает ему, что переезжает в его город. Не говорит, что устроилась на работу в музей и что ее ежедневно достает красавчик Портер, который работает в этом музее охранником. Пытаясь выбрать между онлайн-мечтой и сложным, но реальным Портером, она не задумывается над тем, (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: Виктор ЛипкаФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDAEBF3B87F48F5C428A4D0007144D232AB6445F
+magnet:?xt=urn:btih:5C0B4B05CA558A349F3C51DB8AABF5EF48DB95DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -705,28 +686,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123948   (786208) от 09.04.2017
+###  Публикация: 1388298   (786884) от 05.06.2020
 
-VA - Ori Uplift - Uplifting Only 217 (2017) [MP3|320 Kbps] <Uplifting Trance>
+Эшли Элстон | 10 свиданий вслепую (2020) [EPUB]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786208.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Avenger - Orca (New World Intro Mix Remaster)
-2. Syntouch & Blue Moon - Fields of Florette (Phil Dinner Remix)
-3. PRE-RELEASE PICK: Night Sky & Rebecca Louise Burch - Till I Break Free (Madwave Remix)
-4. The Enturance & Exouler - Inspiration(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:31
+Софи с нетерпением ждет каникул, чтобы провести их со своим парнем, но тот неожиданно бросает ее. Сердце девушки разбито, и она совсем не в восторге от того, что теперь ей придется остаться в доме своих бабушки и дедушки с многочисленной родней. К ужасу Софи, ее бабушка придумывает способ отвлечь внучку от переживаний – устроить ей десять свиданий вслепую. Все члены (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: Татьяна ХазанзунФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A86CBC122C313D3F56967C5ACB20B66492E09874
+magnet:?xt=urn:btih:9DD2899DBCCB651B96389B878F15334F9A485B3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1411709   (422610) от 27.09.2020
+
+H.E.A.T - We Will Never Die (2020) Compilation, 2CD [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous Ground
+02. We Will Never Die
+03. Come Clean
+04. Stay(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC78789345CBD49B6819CD8B17986E4CC832CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411965   (422423) от 27.09.2020
 
 VA - 101 Rock Blues Foundation (2020) [MP3|320 Kbps] <Blues, Rock Blues>
@@ -716,35 +745,6 @@ VA - September Hardcore Review (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC07ED411AFC28BDB98042EEFF0D8D8098F738E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413904   (406726) от 06.10.2020
-
-VA - Rock And Roll: British Classic Style (2020) [MP3|320 Kbps] <Rock & Roll, Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406726.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Josie & The Outlaw - This Town Ain't Big Enough
-002. Little Richard - Great Gosh A'mighty
-003. Freddie & The Dreamers - I'm A Hog For You
-004. Bloodshot Bill - Baby Oh Baby(   Читать дальше...   )Жанр: Rock & Roll, Classic RockПродолжительность: 08:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCAB60D9454755885B83AF467B9E0641DD86DB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

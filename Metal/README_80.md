@@ -1,3 +1,32 @@
+###  Публикация: 943631   (447215) от 04.10.2015
+
+Heart Of A Coward - Deliverance (2015) [MP3|320 кб/с]<Progressive Metalcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollow (4:17)
+02. Miscreation (4:36)
+03. Turmoil I: Wolves (4:16)
+04. Turmoil II: The Weak Inherit The Earth (5:49)(   Читать дальше...   )Жанр: Progressive Metalcore, HardcoreПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF54C03AB682BE53359C1725BED20CADC579DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061916   (446613) от 11.10.2016
 
 Toxic Ruin - Subterranean Terror (2016) [MP3|320 Kbps] <Thrash Metal>
@@ -725,35 +754,6 @@ Huntress - Static (2015) [MP3|320 кб/с]<Thrash metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B92E508444871724756F5809553A95A028001A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165898   (430307) от 14.09.2017
-
-Ensiferum - Two Paths (2017) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ajattomasta Unesta
-02. For Those About to Fight for Metal
-03. Way of the Warrior
-04. Two Paths(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19AF2B6ECE720230EE51202BF063370CD20288EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

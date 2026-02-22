@@ -1,3 +1,38 @@
+###  Публикация: 854565   (143379) от 29.12.2014
+
+Duke Ellington - Piano In The Foreground (1999) [FLAC|Lossless]<Jazz, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Get Started [04:23]
+02. Cong-Go [04:15]
+03. Body And Soul [04:47]
+04. Blues For Jerry [04:39]
+05. Fontainebleau Forest [02:49]
+06. Summertime [03:50]
+07. It's Bad To Be Forgotten [03:17]
+08. A Hundred Dreams Ago [02:25]
+09. So [04:32]
+10. Peadin' For Love [01:48](   Читать дальше...   )Жанр: Jazz, Swing, Piano JazzПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAA417F91D747986299202C9D03FAE6211E1209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969932   (143341) от 29.12.2015
 
 Keb' Mo' - Keb' Mo' (1994) SACD, 2011 Mobile Fidelity Sound Lab [FLAC|tracks +cue] <Modern Electric Blues>
@@ -773,39 +808,6 @@ Jon Balke and Batagraf - Say and Play (2011) [FLAC|Lossless]<Contemporary Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0430B2329E50276596535FD10D240A9B807F30BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740183   (142096) от 30.12.2013
-
-Savoy Brown - Hellbound Train (2011) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't No Need To Worry
-02. Going Down To Mobile
-03. Spoonful
-04. Headline News
-05. Hellbound Train
-06. Listen To Your Heart
-07. Street Corner Talking
-08. When You Got A Good FriendЖанр: Blues-RockПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26962F5439AA25A4513E60D79224E86EC3EC5061
 ```
 
 https://mybot314.ru/tekegram_catalog/

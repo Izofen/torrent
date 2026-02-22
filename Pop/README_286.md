@@ -1,3 +1,90 @@
+###  Публикация: 1588217   (191816) от 03.11.2022
+
+Blue System - Here I Am (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Drive Me Crazy
+02. Anything
+03. I Miss You
+04. I Love The Way You Are(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC240FA638920FF4361604266B41CEF3DA9C84AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588268   (191809) от 03.11.2022
+
+Blue System - Body To Body (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body To Body (Radio Version)
+02. Only With You (Radio Version)
+03. For The Children
+04. It's For You(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5E3EB3180E1E2E63708624D9D789F985801400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588173   (191795) от 03.11.2022
+
+Маленький Принц - Мы Встретимся Снова (1994) Reissue, 2022, Maschina Records [OGG Vorbis|480 Kbps] <Disco, Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я не знаю, зачем мне ты
+02. Голос в ночи
+03. Прощай
+04. Не знаю я тебя(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA26DE828DD95EB03482E2415B54A2F26922EF6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588411   (191644) от 04.11.2022
 
 Blue System - X - Ten (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -660,93 +747,6 @@ Dschinghis Khan (с нем.«Чингисхан») — западногерма�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EECFDD5F4F096F55E4B93B66CC7DE3E93708789C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589371   (190258) от 09.11.2022
-
-Donna Summer - Donna Summer (1982) 40th Anniversary Edition 2022, Driven By The Music [FLAC 2.0|44/24|WEB-DL|tracks] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love is in Control (Finger on the Trigger) (4:21)
-02. Mystery of Love (4:27)
-03. The Woman in Me (3:56)
-04. State of Independence (5:51)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F58D498A0D716AFF5826B94B8AE52590E60E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659145   (190070) от 11.09.2023
-
-VA - Grand Prix 80's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Race - Yello
-02. Theme From S-Express - S-Express
-03. Dance With Me - Alphaville
-04. Love In The Shadows - E.G.Daily(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF18B17C4BABA02A153D55778D6342B835C6B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659466   (189757) от 12.09.2023
-
-Romy - Mid Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Indie-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romy - Loveher (03:49)
-02. Romy - Weightless (04:29)
-03. Romy - The Sea (03:11)
-04. Romy - One Last Try (02:42)(   Читать дальше...   )Жанр: Dance-Pop, Indie-PopПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1BEC6B79B9A170F81154A73B73730A576BD75D
 ```
 
 https://mybot314.ru/tekegram_catalog/

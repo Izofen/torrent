@@ -1,3 +1,32 @@
+###  Публикация: 1135994   (677293) от 21.05.2017
+
+Duke Ellington - The Popular Duke Ellington (1966) 2017, Sony Music [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [04:41]
+02. I Got It Bad (And That Ain't Good) [02:37]
+03. Perdido  [03:15]
+04. Mood Indigo  [05:11](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1537C8DF0871CF091ACF230FAADD6343A8D66AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135907   (677288) от 21.05.2017
 
 Duke Ellington - The Best of Duke Ellington (1941 - 1945) 2003, TIM [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -734,35 +763,6 @@ Chick Corea - Expressions (1994) JRP Records [FLAC|Lossless|image + .cue] <Post-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79BBC95D7B5CBE9500FE0457C8F8A1D9BEA379C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223628   (673416) от 05.05.2018
-
-Sylvia Bennett - I Wish You Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Adult Contemporary, Easy Listening, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bésame Mucho 3:14
-02. It's Impossible (feat. Nathan East) 3:05
-03. C'est Magnifique 2:52
-04. I Wish You Love 3:44(   Читать дальше...   )Жанр: Adult Contemporary, Easy Listening, Smooth JazzПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA53D2B4713DA259C88A5734E84667609E9C501
 ```
 
 https://mybot314.ru/tekegram_catalog/

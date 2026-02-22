@@ -1,3 +1,29 @@
+###  Публикация: 431877   (991776) от 05.01.2012
+
+Мечта по-итальянски / Il grande sogno (2008) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+На фоне зарождения протестного студенческого движения в Италии в связи с такими мировыми потрясениями как война во Вьетнаме, убийство Кеннеди, Мартина Лютера Кинга, смерть Че Гевары, разворачивается любовная история. Ее главные герои — двое молодых людей — харизматичный идейный вдохновитель протестного движения в римском университете, симпатичный полицейский, мечтающий стать актером, и студентка из хорошей благополучной семьи.Жанр: ДрамаРежиссер: Микеле ПлачидоАктеры: Риккардо Скамарчио, Жасмин Тринка, Люка Арджентеро, Массимо Пополицио, Алессандра Аччиаи, Лаура Моранте, Сильвио Орландо, Федерика ВинчентиПеревод: Многоголосый закадровыйЯзык субтитров: русскиеПродолжительность: 01:41:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 432159   (991775) от 05.01.2012
 
 Sandy Barber - The Best Is Yet To Come [Deluxe Edition] (2012) [MP3|~260 kbps]<Soul, Jazz>
@@ -717,41 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FBBD6A97A0726E9734BDB38460602B8C17A78F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431987   (991718) от 05.01.2012
-
-VA - Bass & Freaky Beats - Dubstep Collection (2011) [MP3|320 kbps]<Dubstep, Grime>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Animal Mother - My Last 2 Bucks (original)
-02. Mr Bong - Bong Addict (feat Bakaman - Liver remix)
-03. Funkefeller - Dub Flavour (original)
-04. David Inexacte - Una Mala Noche (Kino Internacional remix)
-05. Haunted Code - Cyberian Girl (original mix)
-06. Skillexx - Cat On The Freeway (original)
-07. Nasher - Season 8 (original mix)
-08. Dyna - Willy Wanka (Ill K remix)
-09. Brothers Grinn - Future Of Woo (original)
-10. Urenga - Naked Island (Oicho remix)2011Жанр: Dubstep, GrimeПродолжительность: 01:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621377E53CE3679E01C6C195B7826DDCB77B2263
 ```
 
 https://mybot314.ru/tekegram_catalog/

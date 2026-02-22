@@ -1,3 +1,32 @@
+###  Публикация: 656570   (273449) от 11.11.2019
+
+Cris Velasco, Sascha Dikiciyan, Jesper Kyd, Raison Varner - Borderlands 2 Original Soundtrack (2012)[FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascent (4:17)
+02. Ash (1:48)
+03.  Caverns (2:21)
+04. Glacial (2:17)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D356C1E094685314CD9E5CAACCC41A0276009C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188811   (273345) от 03.12.2017
 
 VA - Forever Instrumental:  Accordion  (2005) [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
@@ -711,35 +740,6 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:835FE0E6F469072FA8ACA70F6290415F66AF8B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338384   (269852) от 15.11.2019
-
-VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Перезагрузка (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jay - Reboot (06:45)
-02. Q Lazzarus - Goodbye Horses (03:08)
-03. Jay - Out Of Order (07:54)
-04. Squirtgun - Social (03:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F7B220FAA51B573FD4D6CECB7AB59035C087A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1369207   (903813) от 23.03.2020
+
+Bill Evans - Escape (1996) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билл Эванс (англ. Bill Evans, 9 февраля 1958, Кларендон Хиллс, Иллинойс, США) — американский саксофонист. Основные направления — джаз-рок, современный джаз, экспериментировал с рэгги, фанком, блюграссом и хип-хопом. Первоначальную известность получил как участник ансамбля Майлза Дэвиса и группы Mahavishnu Orchestra. Был неоднократно номинирован на премию «Грэмми». (   Читать дальше...   )01. Swing Hop
+02. Escape
+03. Reality
+04. The Sunday After(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CF12D8B98D1D800AC2AB11B859EB2CED4095A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099792   (903712) от 02.02.2017
+
+Lawrence Brown - Slide Trombone (1955) 1999, Verve[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rose Of The Rio Grande [03:57]
+ 02.Caravan [06:01]
+ 03.Down The Street, 'Round The Corner Blues [04:22]
+ 04.Where Or When [03:22](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFA93185E79D134F3E318883C8731089FDCDE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099902   (903707) от 02.02.2017
+
+Harry Verbeke & Rob Agerbeek Quartet - Seven Steps (1982) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Seven Steps [05:53]
+ 02.Ghana [07:19]
+ 03.Without A Song [07:10]
+ 04.Ladies Birthday [05:18](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5CAFC5C0DD9BEAA5C6E527DEE2AE748C02B7AC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099784   (903699) от 02.02.2017
 
 Renee Rosnes - Written In The Rocks (2016) Smoke Sessions Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -658,93 +745,6 @@ Scott Bradlee's Postmodern Jukebox - Squad Goals (2016) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5955034A1974473B7DBD2CE2E376CF298E875386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992472   (901127) от 02.03.2016
-
-"Big" John Patton - Blue John (1963) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hot Sauce [08:00]
- 02.Bermuda Clay House [06:00]
- 03.Dem Dirty Dues [06:18]
- 04.Country Girl [06:54](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D46D0017F9431AD3625C83307D3985AE5A71E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992475   (901106) от 02.03.2016
-
-Dr. Lonnie Smith - Rise Up! (2008) Palmetto Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Matterapat [06:47]
- 02.Come Together [05:08]
- 03.Pilgrimage [06:50]
- 04.Daper Dan [07:22](   Читать дальше...   )Жанр: Jazz Fusion, Hammond OrganПродолжительность: 01:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7996EB9FDD934BB4FB97E23A5EACF8981C874B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992684   (901074) от 02.03.2016
-
-Lucky 3 Blues Band - Blues Time (2015) [FLAC|Lossless|image + .cue] <Blues Rock, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Time (2:48)
-02. Blues On the Run (4:45)
-03. Blues Don't Live Here Anymore (2:16)
-04. Blues Will Never Leave You (4:50)(   Читать дальше...   )Жанр: Blues Rock, Chicago BluesПродолжительность: 00:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2173311EE69729D8FADF074CADDDB436AAD8BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

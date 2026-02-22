@@ -1,3 +1,174 @@
+###  Публикация: 1761445   (36723) от 20.11.2024
+
+VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Ballad, Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Soft Rock, Ballad, Hard Rock, Blues RockПродолжительность: 01:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1610288ECB9F0CB78BCAFDC715F00A68E87B0581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761603   (36573) от 21.11.2024
+
+As the Sun Falls - Studio Albums (4 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36573.jpg" />
+</div>
+
+
+###  Подробнее
+
+As the Sun Falls - мелодик-дэт-метал группа, основанная в 2020 году.2020 - Memoriam (EP)
+2021 - Last Days of Light
+2022 - Far Beyond (EP)
+2024 - Kaamos(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 02:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9CAB9777C8B626EF70F75B8CD3000A359DE0CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761865   (36463) от 22.11.2024
+
+Ancient - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ancient — норвежская блэк-метал-группа из Бергена, образованная в 1992 году.1994 - Svartalvheim
+1995 - Trolltaar (EP)
+1996 - The Cainian Chronicle
+1997 - Mad Grandiose Bloodfiends(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 07:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EFEA486C8A12D06E97629472130E5B6657367E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762218   (36294) от 24.11.2024
+
+VA - Golden Ballads. Лучшие Баллады Последних Десятилетий (2002) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Scorpions - Wind Of Change
+02. Eagles - Hotel California
+03. Iggy Pop - In The Death Car(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD77480CC8B9599FF7572FBE9010EF646776E743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762424   (36184) от 25.11.2024
+
+VA - Romantic Collection. Metal Ballads (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36184.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Scorpions - When You Came Into My Life
+02. Marillion - One Fine Day
+03. Nazareth - God Save The South(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30621F116366F2119F1F6E82211614F817B3C27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677836   (36135) от 25.11.2024
+
+Suicidal Angels - Studio Albums (9 releases) (2007-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Suicidal Angels - трэш-метал группа из Афин, Греция, образованная в начале 2001 года Ником Мелиссургосом в возрасте 16 лет под влиянием трэш-метала старой школы.2007 - Eternal Domination
+2009 - Sanctify The Darkness
+2010 - Dead Again
+2012 - BloodbathЖанр: Thrash MetalПродолжительность: 06:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283F20255D32605832DBE453E4F8E81F712E18DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762879   (35841) от 28.11.2024
 
 Keep of Kalessin - Studio Albums (9 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Death Metal>
@@ -569,176 +740,6 @@ Sevendust - американская рок-группа из Атланты, Д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E0BC8293CADA9E7A6C024203F19C040FD5798FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772504   (31269) от 11.01.2025
-
-VA - Legend Rock Ballads vol.1 - vol.3 (1996) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 02:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54501A797742A1E8A27B91017DF64843A38CD094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593932   (31199) от 12.01.2025
-
-Tremonti (Creed, Alter Bridge) - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] <Hard Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mark Tremonti — американский гитарист и вокалист. Со времен участия в Creed, Тремонти стал широко известен своими способностями в написании песен и техническим мастерством и был награждён несколькими наградами, в число которых входит Грэмми. В течение трех лет подряд журнал Guitar World выбирал его в качестве гитариста года. В 2011 году Total Guitar включил его в (   Читать дальше...   )2012 - All I Was
-2015 - Cauterize
-2016 - Dust
-2018 - A Dying MachineЖанр: Hard Rock, Post-grungeПродолжительность: 05:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF115C64D6E8BE7803DF7B4F9AE91766861C727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315031   (31112) от 13.01.2025
-
-Mark Duffy - Tribute To Glen Campbell (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country, Pop Rock, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31112.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 By The Time I Get To Phoenix
-A2 Gentle On My Mind
-A3 Try A Little Kindness
-A4 Mary In The Morning(   Читать дальше...   )Жанр: Country, Pop Rock, Easy ListeningПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D4B38EF5C7D7EF32B226734F85391AEC28A60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306733   (31101) от 13.01.2025
-
-Paper Lace - First Edition (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31101.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 In The Morning
-A2 Stoney End
-A3 Lady
-A4 I've Got You, That's Enough For Me(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D08FB8E2A8620390BEB7EEFFBBF9EAADC9A8F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773028   (31078) от 13.01.2025
-
-Vivaldi Metal Project - Studio Albums (3 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vivaldi Metal Project - симфоник-метал-проект, переосмысливающий музыку Антонио Вивальди.2016 - The Four Seasons
-2018 - The Extended Sessions
-2022 - EpiClassicaЖанр: Symphonic MetalПродолжительность: 03:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1519AECA61FA985A8D8BD1E64613BB16B452716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773193   (30992) от 14.01.2025
-
-VA - Romantic Collection. Italia '2000 (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30992.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Toto Cutugno - l'Italiano
-02. Collage - Donna Musica'99
-03. Adriano Celentano - Il Tempo Se Ne Va(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE78891696DFF776329E58CD0CFF2D54C16D6DCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

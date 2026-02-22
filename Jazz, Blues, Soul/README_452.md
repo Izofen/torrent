@@ -1,3 +1,38 @@
+###  Публикация: 852797   (218275) от 24.12.2014
+
+VA - The Greatest Voices & Unforgettable Evergreens CD1 (2000) [APE|Lossless]<Jazz, Folk, Pop, Traditional>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Memories Are Made of This (1955) - Dean Martin
+02. We'll Meet Again (1962) - Vera Lynn
+03. Sentimental Journey(1959) - Dinah Shore
+04. Unforgettable (1963) - Peggy Lee
+05. P.S. I Love You (1961) - Kay Starr
+07. Portrait of My Love (1960) - Matt Monro
+08. They Can't Take That Away From Me (1958) - June Christy
+09. Change Partners (1961) - Vic Damone
+10. A Nightingale Sang in Berkeley Square (1962) - Bobby Darin
+11. Baby, It's Cold Outside (1959) - Dean MartinЖанр: Jazz, Folk, Pop, TraditionalПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4B5AA87DF7CC8CD254BC123A5953ED93E11B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853118   (218249) от 24.12.2014
 
 VA - Autour De Minuit №3 (2013) [MP3|320 кб/с]<Jazz, Vocal Jazz>
@@ -722,35 +757,6 @@ Russell Ballantine - Harpo's Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F1B19EEE196CF96ADCDD2A22ACF0E43C6795A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586332   (217137) от 26.10.2022
-
-TT Slim - Guess Who Dropped in? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Gone (4:43)
-02. Cry to Me (4:02)
-03. I Got a Feelin' (4:52)
-04. Come as You Are (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D28FF165567D46ECC5585E2F9596D8B877D1A2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

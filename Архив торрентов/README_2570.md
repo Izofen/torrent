@@ -1,3 +1,29 @@
+###  Публикация: 1141903   (646309) от 12.06.2017
+
+Reg Organizer 7.81 Portable by Kopejkin [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многофункциональная программа для редактирования, чистки и обслуживания реестра, исправления ошибок в системе и повышения ее производительности. Функция глубокого поиска по реестру позволит отыскать все ключи реестра, относящиеся к интересующему приложению. Программа позволяет редактировать файлы реестра (.reg) и просматривать их содержимое прямо из Проводника Windows. (   Читать дальше...   )Язык интерфейса: Английский, Украинский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29EEF49F72B7C5D63940BD3AC332AAD0F1757A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227002   (646282) от 26.05.2018
 
 VMware Workstation Pro 14.1.2 8497320 [Ru/En]
@@ -670,35 +696,6 @@ TC - Unleash The Wolves (2016) LP [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59D16263CE7F70E562DC24B58FA88FDB190A3A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032085   (646044) от 07.07.2016
-
-VA - Psychedelic Gatherin (2016) [MP3|320 Kbps] <Trance, Psychedelic, Psy Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yner -  Contradictory Nightmare (Original Mix) 7:26
-02. Sensitive Seeds -  Inside A Simulation (Original Mix) 6:33
-03. Principles of Flight -  Peintre Sonore (Original Mix) 8:32
-04. Abstract Layers -  Permafrost (Original Mix) 9:09(   Читать дальше...   )Жанр: Trance, Psychedelic, Psy TranceПродолжительность: 01:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2903DA3E690AA24E10DB1DB378C38C77D37EBB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

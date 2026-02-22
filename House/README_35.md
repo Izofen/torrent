@@ -1,3 +1,90 @@
+###  Публикация: 1399983   (719134) от 05.08.2020
+
+VA - This Is Deep House, Vol. 6 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sublime Sound - Hands Of Time [06:12]
+02. Uriel Lange - Low Move [07:03]
+03. Sublime Sound - Symphonous (Nouveau Mix) [06:15]
+04. Vicvicvic - Vouge [07:24](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE97D8EF443555EADE3CC9D4D8236910D693189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285854   (719065) от 27.02.2019
+
+VA - Digi Beat Ltd - Love Electronic Music (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Amnesia - Maasi 03:18
+02. Dj President - Henderson 02:06
+03. Dj Amnesia - Mina 03:10
+04. Dj Amnesia - Mukuru 03:02(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CCEBBD86CEC003339FB136AF5B6F9A9FA85354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285626   (719060) от 27.02.2019
+
+VA - LNG Music: Nick Skitz - Skitzmix 55 (2019) [MP3|320 Kbps] <House, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Skitz - Skitzmix 55 (Continuous Mix 1)
+02. Nick Skitz - Skitzmix 55 (Continuous Mix 2)
+03. Nick Skitz - SM55 Megamix
+04. Rocco - Everybody (Rob & Chris Edit)(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 05:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DE0DC230334BA52C3EC4C6F370BF2165509D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399978   (719036) от 05.08.2020
 
 VA - Ibiza Lounge (2020) [MP3|320 Kbps] <Deep House>
@@ -656,93 +743,6 @@ VA - Essential House Spring 2018 [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1905EDCF5AE35FECE4ADA04D4AD28E443CA0343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026139   (706155) от 14.06.2016
-
-VA - Melodies For Ravers (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prash - Bring That Bass (Extended Mix) (4:48)
-02. Chives & Splash - Love & Rage (Extended Mix) (4:50)
-03. United States of Dance - We Are the Night (Extended Mix) (4:57)
-04. Rock Massive - You Know Why (Ph Electro Radio Mix) (3:36)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED72647A38A4ED81B66FF83BD0F901964F3643E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286798   (705523) от 06.03.2019
-
-VA - Running House (Compilation 2019) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky Lyke feat. Nathan Brumley - Perfect Moments (Original Mix) 04:58
-02. Lucky Lyke feat. Jessia - Dancing In The Moonlight (Original Mix) 04:18
-03. James KJ - Universe (Original Mix) 05:56
-04. House Legion - Baby (Original Mix) 04:44(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AF0EEA8588BCA0D12055BB396E5E99820154AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220538   (704507) от 19.04.2018
-
-VA - Summer Tech House 50 Fantastic Summer Groove Songs (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pen T. - Feel Me
-02. Page Two - Deeper
-03. Qamil Stello - Ring My Bell
-04. Phatt - Donter(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0342340E582C6B9CA4DD6E55714786A2CB0069
 ```
 
 https://mybot314.ru/tekegram_catalog/

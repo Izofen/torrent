@@ -1,3 +1,90 @@
+###  Публикация: 1533066   (708997) от 22.02.2022
+
+Maxine Sullivan With The Scott Hamilton Quintet - Uptown (1985) Concord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Were Meant for Me [3:35]
+02. I Thought About You [5:10]
+03. Goody Goody [3:50]
+04. Something to Remember You By [5:22](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25D88E26CC13241F2A2AE0DC782A1E60B99ABDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131186   (708915) от 05.05.2017
+
+VA - Easy Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grover Washington, Jr. - More Than Meets the Eye (04:31)
+02. Rick Braun - Nightfall (04:21)
+03. Entrance - Cream (02:28)
+04. Larry Carlton - Closer to Home (03:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8C7A8F66623135DF628B2DFBC3804029313350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131371   (708790) от 05.05.2017
+
+Caught A Ghost - Human Nature (2014) [FLAC|Lossless|tracks + .cue] <Soul, Alternative, College Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для тех, кто скучает по шикарному нео-соулу для коктейльных вечеринок вроде трехлетней давности записей Fitz & The Tantrums, стоит предложить еще один американский и столь же обаятельный проект Caught A Ghost. Вокалист этой команды Джесси Нолан, судя по помятой физиономии, измучен нарзаном не меньше, чем Майкл «Фитц» Фитцпатрик, и столь же много внимания уделяет (   Читать дальше...   )01. No Sugar In My Coffee
+02. Sleeping At Night
+03. Human Nature
+04. Time Go(   Читать дальше...   )Жанр: Soul, Alternative, College RockПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D65F250A59D07D0A71AB9C90CD0F7CA7284F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131217   (708787) от 05.05.2017
 
 VA - Sunny Day Simply Jazz (2017) [MP3|320 Kbps] <Jazz>
@@ -658,93 +745,6 @@ Carlo Actis Dato - The Moonwalker (2001) Leo Records [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05EC6C30A7B426DBC578785ACA5768A218901F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131604   (707292) от 06.05.2017
-
-Monica Chapman - Small World (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Shine On Your Shoes (Feat. Kevin Turcotte, Reg Schwager & Mike Murely) (3:07)
-02. Goldfinger (Feat. Mike Murley, Kevin Turcotte & Reg Schwager) (3:14)
-03. Piel Canela (Feat. Mike Murley, Kevin Turcotte & Reg Schwager) (3:23)
-04. Small World (5:31)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8872E258DE13326C4D6ED136C893AE13ECE0DD08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533254   (707174) от 23.02.2022
-
-Fernando Rusconi Hammond Organ Trio - Lost in Time (2010) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bajo Una Supersticion (05:03)
- 02. Joven Y Verde (05:18)
- 03. Lost in Time (05:48)
- 04. Ba-Lue Bolivar Ba-Lues Are (03:27)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F928FCBACC6D7160D565FB41DED5001ADC236CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131716   (707156) от 06.05.2017
-
-Chris Camozzi - Windows Of My Soul (1996) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Wes Young Man 4:04
-02. With Every Beat Of My Heart 4:53
-03. Sunday In Marin 4:37
-04. The Dreamers 4:27(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A312ABA2E2D5CAE995873B84FF8156FAABBE80
 ```
 
 https://mybot314.ru/tekegram_catalog/

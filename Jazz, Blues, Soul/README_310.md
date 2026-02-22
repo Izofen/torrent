@@ -1,3 +1,90 @@
+###  Публикация: 1159287   (484218) от 20.08.2017
+
+Milt Buckner - Green Onions (1975, 1977) 2000, Black And Blue [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Onions [07:26]
+02. Pour toutes mes soeurs [06:00]
+03. Since I feel for you [07:05]
+04. Sleep [06:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4623704CFCC4E7D35ED4030D54F673CDE5DF06E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244217   (484209) от 31.08.2018
+
+Urbie Green - East Coast Jazz, Vol.6 (1955) 2001, Bethlehem [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mutation [3:12]
+02. On Green Dolphin Street [3:34]
+03. Just One of Those Things [4:21]
+04. How About You? [2:49](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1138BA5FBEDDFE417C5FFEB502A8B649019EEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159427   (484164) от 20.08.2017
+
+The Gil Evans Orchestra & Sting - In Perugia (1987) 2CD, 2006, Jazz Door [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484164.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Up From The Skies [09:57]
+02. Strange Fruit [07:19]
+03. Shadows In The Rain [06:10](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0FC5ECA86FAD5E6634198136DB18872FEA2A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244307   (484083) от 31.08.2018
 
 Blues Jumpers - Wheels Start Turning (1997) [MP3|320 Kbps] <Neo-Swing>
@@ -694,93 +781,6 @@ Natalie Cole - As Time Goes By (Single, 1993) /Elektra/[FLAC|tracks+.cue]<Vocal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7BAD88BD516E46895C8EE59D0B85F24FC2CF764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938210   (482092) от 18.09.2015
-
-Mike Goudreau - Je Reste Accroche (2015) [MP3|320 кб/с]<Chicago & Texas Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Envoie ma belle (04:29)
-02. Je reste accroche (03:30)
-03. Arrete de boire (03:54)
-04. Melon d'eau Boogaloo (03:27)(   Читать дальше...   )Жанр: Chicago & Texas BluesПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E84FC99E78F23FE94D1A67518DE531F56CB17A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244441   (482085) от 01.09.2018
-
-Andrea Motis - Emotional Dance (2017) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Funny That Way [4:50]
-02. I Didn't Tell Them Why [2:30]
-03. Matilda [6:52]
-04. Chega de Saudade [5:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BBB9FCC7CF1EE1448827C44F635A2FB4E2F4E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056302   (482000) от 25.09.2016
-
-Paul Camilleri - One Step Closer (2011) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Step Closer   (04:44)
-02. Dance With Me   (04:24)
-03. Fire In My Heart   (04:17)
-04. On My Own   (07:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1F7DF905808899C9C0128825E7D3B22B7CD39C
 ```
 
 https://mybot314.ru/tekegram_catalog/

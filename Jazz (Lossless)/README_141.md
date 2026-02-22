@@ -1,3 +1,32 @@
+###  Публикация: 1141443   (650559) от 10.06.2017
+
+Paquito D'Rivera - La Habana-Rio Conexion (1992) 2005, Messidor [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Comparsa [03:33]
+02. Cancao De Noite [04:35]
+03. Danzas cubanas: A los tres golpes [01:22]
+04. Danzas cubanas: Invitacion [00:49](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB34369DDE87DB0D50110ABE136148B70EE2629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141448   (650558) от 10.06.2017
 
 Toufic Farroukh - Cinema Beyrouth (2012) Enja [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
@@ -716,35 +745,6 @@ Jaga Jazzist - Starfire (2015) [FLAC|tracks + .cue] <Electronic, Jazz, Rock, Fut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09781602C9126C0DC40BF9E0432A3A1DEEBD8E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227344   (646936) от 26.05.2018
-
-James P. Johnson - 1921 - 1928 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ragtime, Stride, Early Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Harlem Strut [2:35]
-02. Keep Of The Grass [3:15]
-03. Carolina Shout [2:47]
-04. Carolina Shout [3:00](   Читать дальше...   )Жанр: Ragtime, Stride, Early JazzПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAB8AFAF2C6A0E38E7946EFA87A998FFE4DB318
 ```
 
 https://mybot314.ru/tekegram_catalog/

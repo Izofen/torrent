@@ -1,3 +1,29 @@
+###  Публикация: 305564   (857209) от 07.03.2011
+
+Armin van Buuren - A State of Sundays 026 (06.03.2011) [MP3|192 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Blake Jarrell  – Maldives (Original Mix)Жанр: TranceПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B845EC97413413F50DFEAC30500808090062D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 768993   (857208) от 22.03.2014
 
 Coffinworm - IV.I.VIII (2014) [MP3|320 кб/с]<Blackened Sludge/Doom Metal>
@@ -702,39 +728,6 @@ VA - 50 Trance Tunes Vol. 33 (2013)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A01CA1613BF842488654D54B5424DC293F671A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647684   (857127) от 23.04.2013
-
-John O'Callaghan - Collected (2013) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-John O'Callaghan - Collected (2013)
-
-Год: 2013
-Жанр: Trance 
-Продолжительность:  01:42:30Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. John O'Callaghan - Big Sky (feat Audrey Gallagher - radio edit) (2:52)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B22E5918DB78E9B0E687F2E756DB818B3B418FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

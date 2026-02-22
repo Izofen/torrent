@@ -1,3 +1,90 @@
+###  Публикация: 1136392   (673335) от 23.05.2017
+
+Duke Ellington - Splendeurs du grand orchestre (1959, 1961, 1966) 3CD, 2009, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673335.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Blues in Orbit:
+01. Three J's Blues [02:55]
+02. Smada [02:39]
+03. Pie Eye's Blues [03:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5463CDE0AE49ED2BDF09778EA21859DE31E9C59F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136643   (673333) от 23.05.2017
+
+Alice Babs & Duke Ellington - Serenade To Sweden (1963) 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenade to Sweden [03:23]
+02. The Boy in My Dreams [02:39]
+03. Stoona [03:02]
+04. La De Doody Doo [02:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC9D80DFE5B621D48E7793B0BF8FA4969A73134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136385   (673331) от 23.05.2017
+
+Duke Ellington - Blue Note Jazz Inspiration (1953 - 1969) 2012, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satin Doll [03:00]
+02. Flamingo [03:42]
+03. Prelude to a Kiss [03:04]
+04. Just A Sittin' and A Rockin' [03:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A7110FF702FBB11310FFE5145FE01E348D9FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136394   (673329) от 23.05.2017
 
 Simon Rattle & City of Birmingham Symphony Orchestra - Ellington: Mainly Black (1986, 1999) 2010, EMI Classics [FLAC|Lossless|tracks + .cue] <Swing, Modern Creative, Third Stream>
@@ -658,90 +745,6 @@ Stan Kenton Orchestra - The Stuttgart Experience (1972) 2016, Jazz Haus[FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94DCD5E33993263FF76CC03D9C606CC890DD9229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030616   (672406) от 01.07.2016
-
-The Cheaters - Train to Wilderness (2008) [FLAC|Lossless|image + .cue] <British Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Hip GirlЖанр: British Blues-RockПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB56D61031C945045F0D042F5CB8DCD0328A4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030775   (672405) от 01.07.2016
-
-Tim Bowman - Paradise (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Of Love [04:55]
-02. Paradise [04:49]
-03. The Only One [04:41]
-04. I'll Never Forget [04:51](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F42A6B964C9393607D64C9D5779E73CFD1CC362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291103   (672323) от 23.03.2019
-
-Robin Trower - Coming Closer To The Day (2019) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diving Bell
-02. Truth Or Lies
-03. Coming Closer To The Day
-04. Ghosts(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6909963E86A06F16DEB4ED3CFE3179B41DAF90
 ```
 
 https://mybot314.ru/tekegram_catalog/

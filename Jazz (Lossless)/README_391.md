@@ -1,61 +1,3 @@
-###  Публикация: 1762606   (36045) от 26.11.2024
-
-V.A. - Bossa Nova International Pop Hits (Bossanova Jazz Covers of Popular Songs) (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik - Missing
-02. Neja - All That She Wants
-03. Ely Bruna - Take On Me
-04. Banda Brasileira - As It Was (Bossa Version)(   Читать дальше...   )Жанр: Pop Jazz, Bossa NovaПродолжительность: 01:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402A9669A61453DA592A924B05652F27B127B1ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763715   (35441) от 02.12.2024
-
-Sensual Chill Saxaphone Band - Sensual Embrace: Lush Sounds for Late Nights (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion and Attraction (4:06)
-02. Burning Desires (4:39)
-03. Kissing in the Rain (4:39)
-04. Let Me Love You (4:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF958E65394AAAE70835918FE55195E7E5CBCAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763706   (35438) от 02.12.2024
 
 V.A. - LoFi Jazz (Holiday Chill Vibes) (2024) [FLAC|Lossless|WEB-DL|tracks] <LoFi, Nu Jazz, Pop Jazz>
@@ -745,6 +687,64 @@ Brian Tarquin - High Life (2001) [WavPack|Lossless] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05EFFF23D7469F87399C32EF644CEDAD44F1BBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775931   (29381) от 29.01.2025
+
+Sonny Stitt - The Champ (1973) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Champ [5:21]
+02. Sweet and Lovely [7:11]
+03. The Midgets [5:36]
+04. The Eternal Triangle [5:23](   Читать дальше...   )Жанр: Bop, Hard Bop, Mainstream JazzПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DBF0485CDDFC327D6825BE5A7C810D70D713C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775933   (29380) от 29.01.2025
+
+Joe Pass & John Pisano - Duets (1991) 1996, Pablo [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone Together [6:04]
+02. Baileywick [2:47]
+03. S'il vous plait [2:40]
+04. Lonely Woman [3:40](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E947264D8276698BA617346EF866EF88452ED5
 ```
 
 https://mybot314.ru/tekegram_catalog/

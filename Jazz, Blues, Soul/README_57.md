@@ -1,3 +1,102 @@
+###  Публикация: 1356997   (975456) от 02.02.2020
+
+VA - Cost to Coast: Sweet Relaxing Jazz (2020) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975456.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.EJazz Artistry - I Can't Stop Loving You (4:21)
+2.Kool&Klean - I Can Only Imagine (4:56)
+3.Chillaxing Jazz Kollektion - Mornin' (4:29)
+4.Konstantin Klashtorni - In the Night (4:06)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157604D2E5F33393F72F1E56C6A80A9710283145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616540   (975148) от 10.02.2013
+
+VA - Jazz Ballads With A Blue Feeling (2003) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ernie Andrews - Everybody's somebody's fool [05:11]
+02. Etta Jones - God bless the child [07:16]
+03..Sheila Jordan - Good morning heartache [06:06]
+04. Dakota Staton - Trav'lin' light [05:20]
+05. Mark Murphy - I'm Thru With Love [04:46]
+06. Wesla Whitfield - Ill wind [04:18]
+07. Della Griffin - This bitter earth [05:19]
+08. Etta Jones - I'm afraid the masquerade is over [08:58]
+09. Everett Green - When Did You Leave Heaven [06:39]
+10. Dinah Washington - It's too soon to know [02:21](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616523   (975018) от 10.02.2013
+
+Bill Wyman's Rhythm Kings - Platinum (World Bestsellers) (2000) [FLAC|Lossless]<Rhythm & Blues, Blues, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyway The Wind Blows
+02. Spooky
+03. Walking One & Only
+04. Mojo Boogie
+05. Too Late
+06. Every Sixty Seconds
+07. Ring My Bell
+08. Days Like This
+09. He's A Real Gone Guy
+10. True Romance(   Читать дальше...   )Жанр: Rhythm & Blues, Blues, JazzПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743046   (974707) от 09.01.2014
 
 T & Masson - Smoke My Blues (2005) [FLAC|Lossless]<Blues>
@@ -752,98 +851,6 @@ Muddy Waters - Bottled Up (2016) [MP3|320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F211FEAB50CF64DA63900CB308066A9513C1A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743609   (974428) от 09.01.2014
-
-Andy Williams - Greatest Hits (2005) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Moon River (2:46)
-02. Days Of Wine And Roses (2:47)
-03. The More I See You (2:24)
-04. The Hawaiian Wedding Song (2:28)
-05. Solitaire (4:24)
-06. The Look Of Love (2:53)
-07. Music To Watch Girls By (2:38)
-08. Can't Take My Eyes Off You (3:15)
-09. It's A Most Unusual Day (2:03)
-10. Happy Heart (3:15)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36903D8AE5E936013225B3E830BB58182049BFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975047   (974403) от 13.01.2016
-
-Johnny Griffin & Dexter Gordon - Jazz Undulation (1968) Remaster, 2014,Studio Songs[FLAC|tracks+.cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Body & Soul [07:10]
- 02.All The Things You Are [13:55]
- 03.Blues Up And Down [20:46]Жанр: Hard BopПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C6D55FDCB02DE3ED14C573BA0413FE31D75906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357407   (974392) от 03.02.2020
-
-Manny Albam - Four Classic Albums 1955 - 1957 (2015) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974392.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Anything Goes [3:47]
-02. Headstrong [2:24]
-03. Black Bottom [3:42](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 02:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A141B61D2443A8C871058FFA737443DBB3F419
 ```
 
 https://mybot314.ru/tekegram_catalog/

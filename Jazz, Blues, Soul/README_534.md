@@ -1,3 +1,32 @@
+###  Публикация: 1706601   (113575) от 13.03.2024
+
+Jack Fossett - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minty (4:52)
+02. Barely Hanging On (3:06)
+03. The Snow Storm Strut (6:10)
+04. Taking the Blue Line (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBE934C6517C4E78C5D933365B3DB17063DEEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706486   (113556) от 13.03.2024
 
 Stephane Grappelli - Stephane Grappelli with Strings (1961,1970) 2CD. 2020, Label Ouest [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
@@ -716,35 +745,6 @@ Ranee Lee & Oliver Jones - Just You, Just Me (2005) Justin Time [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E9A8E9291EC52A479E5C21A06D1BB5450BE99D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707343   (113370) от 16.03.2024
-
-Papik & Laura Lanzillo - 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abitudini
-02. Che Ore So'
-03. Nu' Pensiero Felice
-04. Se Mi Vuoi (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Pop Jazz, Nu Jazz, FunkПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB7CCB820FA7767FA4FCA1E796E8B5E9F1E576A
 ```
 
 https://mybot314.ru/tekegram_catalog/

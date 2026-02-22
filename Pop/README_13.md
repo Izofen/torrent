@@ -1,3 +1,119 @@
+###  Публикация: 1447172   (1032081) от 12.02.2021
+
+The Goombay Dance Band - Mega-Hit-Mix (1998) [FLAC|Lossless|image + .cue] <Europop, Euro-Disco, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley 1 (23:31)
+1.	Sun Of Jamaica
+2.	Island Of Dreams
+3.	My Bonnie(   Читать дальше...   )Жанр: Europop, Euro-Disco, MedleyПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2343479E4F4F32E13E64BF73C8A45383FEE5C191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447199   (1032072) от 12.02.2021
+
+Dalida - Saint Valentin (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032072.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pour te dire je t'aimefer (04:20)
+2. Le temps d'aimer (04:14)
+3. Ti Amo (03:30)
+4. Parle-Moi D'Amour Mon Amour (03:14)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 00:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB38F08C64608DDC3105EC02683F016D00702845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447196   (1032047) от 12.02.2021
+
+Sia - Music (Songs From And Inspired By The Motion Picture) (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032047.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Together
+2. Hey Boy
+3. Saved My Life
+4. Floating Through Space(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67ABB8F03657664C740035798FE4BDBDD4C95FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447206   (1032027) от 12.02.2021
+
+Boney M. - Rasputin - Big And Strong: The Greatest Hits of Boney M. (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rasputin
+02. Daddy Cool
+03. Sunny
+04. Ma Baker(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A9FE11F5BFD769B12B864FB65D7B44AD99DAD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447335   (1031881) от 13.02.2021
 
 VA - Народный артист-Необыкновенный (2005) [FLAC|Lossless|tracks + .cue] <Рор>
@@ -629,122 +745,6 @@ VA - Mystera VI (2000) [OGG Vorbis|480 Kbps] <Electronic, Classical, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A76310787E0051E155EF1537D674F96B5A01C599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448586   (1030694) от 18.02.2021
-
-Стас Костюшкин - Лакшери (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030694.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лакшери
-2. Гитара
-3. Ха-ха
-4. Васёк(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A190D4A4421495534BFD6B54C5B8FAAAF8BDEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448868   (1030476) от 19.02.2021
-
-NK (Настя Каменских) - Eclectica (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Elefante
-02 - A Huevo
-03 - Yea Or Nay
-04 - Película(   Читать дальше...   )Жанр: Pop, Latin Pop, DanceПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17BC318B39FD1BCF0F8BD7ACA314C95FA5B8850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448787   (1030454) от 19.02.2021
-
-Soprano Турецкого - 10 (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Турецкое рондо
-2. Habanera
-3. Ау
-4. Бублики(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524E25943D48F03FD0DA2F5CA79E01A82CFC912A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621943   (1030274) от 28.03.2023
-
-Lemar - Page In My Heart (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop, R&B, Soul>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Page In My Heart
-02. Glorious!
-03. Future Love
-04. Dust(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A29DDC2B33B5FA44057CE8A2CEBC181909D543B
 ```
 
 https://mybot314.ru/tekegram_catalog/

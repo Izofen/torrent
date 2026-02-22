@@ -1,3 +1,32 @@
+###  Публикация: 1776703   (735483) от 02.02.2025
+
+The Art Farmer Quartet - Warm Valley (1983) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moose the Mooche [4:37]
+02. And Now There's You [5:14]
+03. Three Little Words [4:55]
+04. Eclypso [5:32](   Читать дальше...   )Жанр: Bop, Hard Bop, CoolПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31197970887DD9F6F9EB0E7D9B69914267BF8239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776701   (735459) от 02.02.2025
 
 Don Patterson - The Genius Of The B-3 (1972) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -716,35 +745,6 @@ Kenny Barron Quartet - Invitation (1991) [WavPack|Lossless|image + .cue] <Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C38530F949E4806D092C1C6258DEFBD8847D058C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127772   (731157) от 22.04.2017
-
-Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Universe [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modus Operandi [09:38]
-02. Come Sunday [05:28]
-03. Gap Sealer [05:48]
-04. Jeep's Blues [06:29](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828223038A621EBB4D12FEEF17DF68733A5B2FED
 ```
 
 https://mybot314.ru/tekegram_catalog/

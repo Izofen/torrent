@@ -1,3 +1,32 @@
+###  Публикация: 1547975   (234080) от 02.05.2022
+
+Greenbeard - 7 Albums (2014-2022) [MP3|320 Kbps, V0] <Stoner Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creatures of the Night [00:03:23]
+02. Burns Like Basketweave [00:04:24]
+03. Get in the Car. No Time to Explain. [00:05:09]
+04. Diamond in the Devil's Grinder [00:05:20](   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 03:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18591403272BEEE52F1B495E9DC60479A2344657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547686   (234009) от 02.05.2022
 
 Gladenfold - Nemesis (2022) [MP3|320 Kbps] <Melodic Death Metal, Symphonic Power Metal>
@@ -716,35 +745,6 @@ Stray Gods - Olympus (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4219B11511DA8A7AE16D360D50B9E568681A8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645507   (232837) от 09.07.2023
-
-Collapsed Minds - Dead End Theory (2017) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Revolution
-02. King
-03. Frontiers in the Sky
-04. Behind an Open Window(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4202AD9E46B27033D7B1750BE9FE551F2531F2FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

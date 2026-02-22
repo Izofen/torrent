@@ -1,3 +1,119 @@
+###  Публикация: 1419359   (342054) от 27.10.2020
+
+Wonder - Up & Down (1980) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up And Down  (8:38)
+02. I Have Pushed  (7:21)
+03. My Trip  (7:27)
+04. O.K.  (4:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E686D6F46D4283F4BA9EE712D1BD433BFE0F3C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419178   (342052) от 27.10.2020
+
+VA - Fly To Moscow (2018) Unofficial [MP3|320 Kbps] <Italo-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Trouble - Fly To Moscow (12'' Version) (5:45)
+02. Carl Max (12 - Bolschevita (12'' Version) (5:30)
+03. Laser Cowboys - Radioactivity (From The Ucraine) (12'' Version) (6:44)
+04. Hectic Electric - Glasnost (The Ultimate Monster Mix) (6:28)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C07D805820F8663475E75AE2A7942975AE12E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419175   (342051) от 27.10.2020
+
+Piano Fantasia & Beautiful Ballet - Song For Denise / Energy (2020) Unofficial [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piano Fantasia - Song For Denise (Audiophile Dance-Mix) (6:53)
+02. Piano Fantasia - Walkman (12'' Version) (7:23)
+03. Piano Fantasia - Playing (12'' Version) (5:12)
+04. Piano Fantasia - Sidewalk (12'' Version) (4:59)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58F0FD7266A070F596BACB4DA71ED0B84DCAA88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419058   (342048) от 27.10.2020
+
+VA - Dance Club 2020.03 (2020) [MP3|320 Kbps] <Dance, Pop, Deep House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn feat. Nea & Bryn Christopher - No Therapy [2:52]
+02. twocolors - Lovefool [3:10]
+03. VIZE & Tom Gregory - Never Let Me Down [2:33]
+04. Tujamo x VIZE & MAJAN - Lonely [2:49](   Читать дальше...   )Жанр: Dance, Pop, Deep HouseПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F006FAB4F05B66D2384B3393B7553A42986BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419182   (342047) от 27.10.2020
 
 Mirko Hirsch - Missing Pieces - Return to Neon (2020) Special Edition [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synthpop>
@@ -629,122 +745,6 @@ Bjork - Vulnicura Strings (2015) [FLAC|tracks+.cue]<Pop, Experimental, Acoustic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:773F67186A9FAA6BC8B39C391EAFBC7050B232DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954738   (339711) от 08.11.2015
-
-Sabrina - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys (Summertime Love) (03:53)
-02. Hot Girl (03:38)
-03. Get Ready (Holiday Rock) (03:20)
-04. Kiss (03:37)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4A6C9DA0E76B1BB3FE1084D550B5C7699AE268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419441   (339708) от 28.10.2020
-
-Earth, Wind & Fire - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339708.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. Earth Wind And Fire and The Emotions - Boogie Wonderland (4:50)
-02. Let's Groove (5:33)
-03. Shining Star (2:50)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 03:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0442B744D41625B9481C4B0FE9AD1A19FC70DD83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419427   (339695) от 28.10.2020
-
-VA - 90s Megamix Vol.1: Die Grossten Hits Der 90er (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - 90s Megamix Vol. 1, Pt.1 [1:18:26]
-02. VA - 90s Megamix Vol. 1, Pt.2 [1:19:46]
-03. Robin S. - Luv 4 Luv (Stone's Radio Edit) [4:13]
-04. East Side Beat - Ride Like The Wind (Radio Editing) [3:49](   Читать дальше...   )Жанр: Eurodance, Euro-House, Electronic, DanceПродолжительность: 08:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E790B79C17EA9CC625081AEF2BF52B033DC3886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839403   (339683) от 10.11.2014
-
-VA - 1981 The Collection (Time Life) (1993) 2CD [FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следующий диск из серии Time Life Music. Решил поделиться. Может кто молодость вспомнит.01. REO Speedwagon - Keep On Loving You  (3:21)
-02. Foreigner - Waiting For A Girl Like You  (4:36)
-03. Robert Palmer - Looking For Clues  (4:19)
-04. Steve Winwood - While You See A Chance  (5:12)(   Читать дальше...   )Жанр: Pop, Rock, Jazz, Electronic
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF88C19502EE8BB082037544D27AF1D476590CA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

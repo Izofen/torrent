@@ -1,3 +1,119 @@
+###  Публикация: 1552160   (585835) от 22.05.2022
+
+VA - The Original Masters, Vol. 6 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muscle Shoals Horns - Break Down (3:41)
+02. Brooklyn Express - Hollywood Party (6:13)
+03. Cissy Houston - Think It Over (7:59)
+04. Glitter Band - Makes You Blind (5:04)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A35959F7AFFF15F87EAADA9713DC744AAB5FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917891   (585796) от 16.07.2015
+
+Фристайл - Юбилейный №10 (2014) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Московская любовь
+02. Давайте выпьем за мужчин
+03. Листок календаря
+04. Капелька(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A30CE135C32933671143CD719C4B8EE1C38658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552856   (585792) от 22.05.2022
+
+VA - DMC Halloween In The Mix (Classic Mixes) (Volume 1) (2019) [MP3|320 Kbps] <Electronic, Synth-pop, Dance-pop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Jackson - Thriller (Dmc 2019 Remix) (Remixed By Keith Mann)
+02. Various - Halloween Party Hits (2019) (Mixed By Dj Ivan Santana)
+03. Christina Aguilera Fe. Nile Rodgers Vs Ray Parker Jr. - Telepathy Vs Ghostbusters (Dj Ivan Santana)
+04. Various - Halloween (Michael Myers Theme Song) (Halloween 2018 40th Anniversary Mix) (Mixed By Kevin Sweeney)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Dance-pop, PopПродолжительность: 01:18:14 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0CC2B72321811D498529A9BFA28CC38330E91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552168   (585786) от 22.05.2022
+
+VA - The Original Masters, Vol. 12 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brock Landers - Angels Live in My Town (7:50)
+02. Afro Cuban Band - Something's Gotta Give (5:28)
+03. Disco Spectacular - Aquarius, Let the Sunshine In (9:11)
+04. Billy Frazier and Friends - Billy Who (6:42)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B69D50D44E5B4AAF1DFCFBAD541DAA8573A1845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552171   (585785) от 22.05.2022
 
 VA - The Original Masters, Vol. 14 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
@@ -660,128 +776,6 @@ ORS (Orlando Riva Sound) - Who Built The Pyramids (1981) 12'' [MP3|320 Kbps] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7A9B58360440BFFC3AA20E7BBFC729462E6609C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919632   (581862) от 20.07.2015
-
-VA - Top 40 (Movies) (2014) 2CD[FLAC|tracks + .cue]<Pop, Soul, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bay City Rollers - Bye Bye Baby [2:51]
-02.Dolly Parton - 9 To 5 [2:47]
-03.Edison Lighthouse - Love Grows (Where My Rosemary Goes) [2:51]
-04.Leo Sayer - You Make Me Feel Like Dancing [3:39](   Читать дальше...   )Жанр: Pop, Soul, RockПродолжительность: 02:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914E506DC87F1A2FB8FBE2D378C03FA9BDF06FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919667   (581859) от 20.07.2015
-
-Duran Duran - Thank You (1995) [FLAC|image + .cue]<New Wave, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Lines [05:31]
-02. I Wanna Take You Higher (Version 1) [05:05]
-03. Perfect Day [03:50]
-04. Watching The Detectives [04:47](   Читать дальше...   )Жанр: New Wave, Pop-RockПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CADFDB977B89E1DA44B98FA0F34184A79CFD6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919918   (581765) от 20.07.2015
-
-Bad Boys Blue - You're A Woman 2015 (2015) [FLAC|tracks + .cue]<Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Woman (High Tide Remix Radio Edit) [3:16]
-02. You're A Woman (Reloaded Album Version) [3:07]
-03. You're A Woman (High TIde Remix Extended Edit) [7:19]
-04. You're A Woman (Reloaded Extended Mix) [4:51](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1E2FB1B90D8F9276769185D6917B6425D29C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810974   (581548) от 07.08.2014
-
-Saphir - Perfect Combination (2006) Limited Edition [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Good (I Feel Fine) 4:51
-02. The Witch-Queen Of New-Orleans 3:31
-03. Little Rock 4:06
-04. Frough Your Eyes 4:07
-05. Shot In The Night 4:21
-06. Perfect Combination 3:12
-07. Never Give Up 4:00
-08. Storms Of Love 3:56
-09. Stand Up 3:47
-10. I Am Alive 4:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10645E60EB64E108BF19DAE0E9E6B4E735A5615
 ```
 
 https://mybot314.ru/tekegram_catalog/

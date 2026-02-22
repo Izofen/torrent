@@ -1,3 +1,32 @@
+###  Публикация: 1665714   (181517) от 01.10.2023
+
+Nikki Stringfield - Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Surrender [00:04:43]
+02. The Spell [00:04:38]
+03. Where the Demons Lie [00:04:41]
+04. The Outsider [00:05:17](   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Female VocalПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7151503C5544665E64C5C291AC1DF4347D071160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665637   (181514) от 01.10.2023
 
 Eclipse - Megalomanium (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -716,35 +745,6 @@ Nikolo Kotzev - 11 Albums, 12CD (1992-2023) [FLAC|Lossless|image + .cue] <Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6611F8EA9195E887E3162D8DAE8805B9D0B034A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593766   (179585) от 28.11.2022
-
-Deep Purple - Greatest Hits (2022) 3 x CD, Compilation, Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179585.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Highway Star (Live at Schleyer-Halle)
-02. The Cut Runs Deep
-03. Vavoom: Ted The Mechanic(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F86787D064BB3F2590310A848B65F7C8E8BDB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

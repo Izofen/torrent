@@ -1,3 +1,90 @@
+###  Публикация: 917390   (589604) от 11.07.2015
+
+The Other Mules - Here With The Blues (2015) [MP3|320 кб/с]<Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knocking At Your Door (03:01)
+02. Satisfied (04:52)
+03. Ain't Going Down (05:06)
+04. I Want To Be Loved (02:59)(   Читать дальше...   )Жанр: Rockin' BluesПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1192F8BB2AA52CC8649AC86342D7E2A613FDBB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917357   (589585) от 11.07.2015
+
+John Lee Hooker - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dimples (2:14)
+02.  Mambo chillun (2:47)
+03.  I'm so excited (2:52)
+04.  Time is marchin' (3:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E617BAADA76EE893BBF3C8478BE3D51F2FDCBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917461   (589573) от 11.07.2015
+
+VA - Burlesque (48 Best Of Tease & Drama) (2015) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Freitas - Marlowe's Blues (02:58)
+02. Tim Brown - Retro Funk Groove (02:50)
+03. Max DiCarlo - Pink Panther Meets Jessica Rabbit (01:45)
+04. Richard Freitas - Piano Man's Heat (02:21)(   Читать дальше...   )Производство: Whisky LullabyЖанр: JazzПродолжительность: 02:21:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A258DBCD869E8759CBF698CA0BC8D6049A9370C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917296   (589568) от 11.07.2015
 
 Charenee Wade - Offering: The Music of Gil Scott-Heron & Brian Jackson (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
@@ -661,93 +748,6 @@ Bobby Hutcherson - The View From The Inside (1976) /2013, Blue Note/[FLAC|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:361E9E87E6429F5B75431A294DEC9E0623E1789A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918248   (587996) от 14.07.2015
-
-Maysa - Back 2 Love (2015) [FLAC|tracks|WEB-DL]<Smooth Jazz, R&B, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back 2 Love (4:28)
-02. Keep It Movin' (4:18)
-03. Heavenly Voices (4:41)
-04. Miracle (4:15)(   Читать дальше...   )Жанр: Smooth Jazz, R&B, SoulПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1511700D2EED54529FC25A5CCC197A45B5A16FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918139   (587875) от 14.07.2015
-
-B.B.King - The Blues King's Best (2013) 2CD [FLAC|Lossless]<Blues, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Thrill Is Gone
-02. Every Day I Have The Blues
-03. Guess Who
-04. Now Blue Can You Get?(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 01:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BEC18937A85267AD5074903CA35728E1F4A4B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040241   (587524) от 04.08.2016
-
-Scott Henderson · Gary Willis & Tribal Tech - Primal Tracks (1994) 2008 Compilation [WavPack|Lossless|image + .cue] <Jazz-rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvis At The Hop (4:35)
-02. Got Tuh B 3 (6:45)
-03. Sub Aqua (5:33)
-04. Nomad (7:20)(   Читать дальше...   )Жанр: Jazz-rock, FusionПродолжительность: 01:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98DCFA75E88037FACAE7345E959065104C45E55
 ```
 
 https://mybot314.ru/tekegram_catalog/

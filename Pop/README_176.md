@@ -1,3 +1,119 @@
+###  Публикация: 1154305   (542778) от 29.07.2017
+
+Den Harrow - ForeveR (The Album) By Eurokrimen (2017) [MP3|256 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Taste Of Love (Krimen Project Scratch)
+02. Memories Of Mad Desire (Krimen Project Version)
+03. Day By Day (The Other Day Re-Mix)
+04. Bad Boy (The Ultimatum Re-miX)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA301B203A0BA2CF5088033768527E05084C6FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557272   (542687) от 14.06.2022
+
+Elton John - Madman Across The Water (2022) 3xCD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542687.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01 - Tiny Dancer (Remastered 2016)
+02 - Levon (Remastered 2016)
+03 - Razor Face (Remastered 2016)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213F001A1D10CCAD98E5D05BE01A7E916D836CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239100   (542433) от 03.08.2018
+
+Time - Prime Time (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Stop (5:39)
+02. Selling Song (4:45)
+03. Prime Time (6:18)
+04. Shaker Shake (3:26)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7719C8F32311B5711BD1B9D03CFE0039B33BB29D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239071   (542432) от 03.08.2018
+
+Tove Styrke - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Electronic, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sway
+02. Say My Name
+03. On the Low
+04. Mistakes(   Читать дальше...   )Жанр: Indie Pop, Electronic, Female VocalПродолжительность: 00:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6BC7E15844A3BF0946CC5E309CC10E71F98515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239061   (542423) от 03.08.2018
 
 Kylie Minogue - Fever (2001) [FLAC|Lossless|tracks + .cue] <House, Synth-pop, Disco>
@@ -635,128 +751,6 @@ Bee Gees - Best Of Bee Gees Vol.1 (1969) Reissue, 1987, Polydor [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DACCDD100260A423E1BFB8060686D775C6237BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531884   (539946) от 06.08.2012
-
-VA - The Best Of Italo Disco - Живая классика (2012) [MP3|320 кб/с]<Pop, Disco>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Betty Miranda - Dance
- 02.Max Him - Lady Fantasy(Remix)
- 03.Koto - Visitors
- 04.Camaro's Gang - Fuerza Major
- 05.Jonathan Gable - Central Park(Dub Mix)
- 06.Katy Gray - Hold Me Tight
- 07.Flexi Cowboys - Domination(Extended)
- 08.Amanda Lear - No Credit Card
- 09.Hugh Bullen - Alisand
- 10.Cruisin' Gang Feat. Laura Fadinger - On The Beach Tonight(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 05:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57971D06587C76A6DBAE2C9A29EA01EFE642854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925844   (539104) от 07.08.2015
-
-Ivy Levan - No Good (2015) [MP3|320 кб/с]<Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dame Says
- 02. Biscuit
- 03. No Good
- 04. Champagne Taste(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C55D4EF213C643A88D85716D5510D79EB1717D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925791   (539100) от 07.08.2015
-
-VA - From Russia With Italo Disco (2012) [FLAC|mage+.cue]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Touch Your Body Now (Extended Version) (Magic System D.J.) [06:44]
-02. Flute Cries (Maxi Version) (Siberian Heat) [08:11]
-03. Harsh Wind (Duro Mix) (Dyva) [07:01]
-04. When I Close My Eyes (Squash Gang) [06:16](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6639E56136E67D098D396D1010296809D2CEC45A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154822   (539074) от 31.07.2017
-
-Blackwell - Boogie Down (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie Down And Mess Around (5:14)
-02. Put The Funk Back (4:09)
-03. That's What It's All About (4:30)
-04. Move Your Ass Gringo (3:58)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF0DA67D0021F17D5344C674E35109C850C8D5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 189855   (861150) от 06.04.2010
+
+Microsoft Desktop Optimization Pack 2010 Refresh Rus
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Desktop Optimization Pack 2010 для Software Assurance - динамическое решение для увеличения надежности, упрощения развертывания настольных операционных систем и управляемости корпоративных ПК. Пакет Microsoft Desktop Optimization Pack 2010 сокращает расходы на развертывание приложений, открывает доступ к приложениям в виде служб и позволяет более эффективно управлять и контролировать корпоративные компьютерные сети. В целом указанные технологии представляют собой наиболее рентабельное и гибкое решение для управления настольными ПК с ОС Windows.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 189835   (861148) от 06.04.2010
 
 BullrushSoft SWF to EXE Converter 1.8 Eng/Rus
@@ -665,35 +691,6 @@ Quazax - Terrestrial Planet (2017) [MP3|320 Kbps] <Trance,Psy-Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FADDEA79E5AA12CF068C3FDF1D5DD7171EC23D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108645   (861079) от 26.02.2017
-
-VA - Night Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Sannny - Ghost Ship (Original Mix)  6:24
-02.  Diam - Auto Breaks (Original Mix)  4:07
-03.  DJ Yuri Button - Ghost In The Town (Original Mix)  6:02
-04.  DJ Max Brendy - Snowy (Original Mix)  4:46(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D68E919BB733317D5F6088CFF68B7AF2BE64323
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 339261   (666546) от 21.05.2011
+
+Subnet - East (14 May, 2011) [MP3|320 kbps]<Drum And Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666546.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. East - (04:34)
+2. Jungle Run - (05:35)Жанр: Drum And BassПродолжительность: 00:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890AAC22F0043DC179F7FD900167DF9783E1D324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 900876   (666528) от 23.05.2015
 
 EximiousSoft Logo Designer 3.7.6 RePack (& portable) by 78Sergey & Dinis124 [Ru]
@@ -671,41 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4672C8578678C310B13D8251417754ED503835AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339375   (666370) от 21.05.2011
-
-VA - Ninja Tune XX - Rarities [MP3|320 kbps]<Trip Hop | Dubstep | Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Zomby - Orchid
-02 - Hexstatic - Ninja Tune (Akira Kiteshi Remix)
-03 - Pop Levi - Blue Honey (A Monstrous Psychedelic Bubble Edit by Amorphus Androgynous)
-04 - Max & Harvey - If I Don't Make It Home
-05 - Coldcut - More Beats & Pieces (United States Of Audio Remix)
-06 - Fink - This Is The Thing (EL B Remix)
-07 - Dam Mantle - 3 Colours
-08 - Stateless - Ariel (Rustie s Pentagram Remix)
-09 - zero dB - Bongos, Bleeps & Basslines (Untold Remix)
-10 - Coldcut - Man In A Garage (King Jammy Dub)(   Читать дальше...)Жанр: Trip Hop | Dubstep | ExperimentalПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2651B3F5B7E4C207887F629A407BFC072F5948BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

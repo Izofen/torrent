@@ -1,3 +1,32 @@
+###  Публикация: 1125154   (768807) от 14.04.2017
+
+Sambodhi Prem - Circle of Light (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetness 07:27
+02. Into the empty sky 05:21
+03. Arohanui - Call me with the Light of Love 05:45
+04. Offering to the Waves 07:12(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7938F3F90826419A0DB66B0546AC04965E4E3783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124894   (768748) от 14.04.2017
 
 bethel music - starlight (live) (2017) [MP3|320 Kbps] <Christians, worship>
@@ -716,35 +745,6 @@ The Essence - Enigma Lounge (2003) [FLAC|Lossless|tracks + .cue] <Enigmatic, New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1C57950BAC6E7E800C0950B1FA8B126BA41D81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126599   (764330) от 19.04.2017
-
-Blonker - Fantasia (1980) Remastered, 1994 [FLAC|Lossless|image + .cue] <New Age, Ambient, Rock>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aranjuez (4:48)
- 02. Sidewalk Cafe (3:16)
- 03. Pavane (4:05)
- 04. Anak (4:36)(   Читать дальше...   )Жанр: New Age, Ambient, RockПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE5916A2D96AEDF1BC7CB426B352FBF0088ECA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

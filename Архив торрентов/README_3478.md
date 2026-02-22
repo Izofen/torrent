@@ -1,3 +1,29 @@
+###  Публикация: 551992   (450428) от 25.09.2012
+
+Universal Extractor by gora 1.6.1.64 [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_450428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа извлекает файлы практически из любых типов архивов. Все что можно распаковать - она распакует! Если вам не нужно создавать архивы и вы лишь распаковываете скачанные из интернет сжатые файлы, значит Вам подойдёт сверхбыстрый и черезвычайно удобный распаковщик Universal Extractor. В ее обязанности входит быстрая распаковка архивов форматов: rar, 7z, exe, ace, arc, arj, exe, bin, cue, bz2, tbz2, tar, bz2, cpio, deb, gz, tgz, tar, gz, img, cab и др.Название программы: Universal ExtractorЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551882   (450422) от 25.09.2012
 
 VA - Nude Dimensions, Naked Music (1999) Vol. 1 (The Petalpusher Session mixed by Miguel Migs) [FLAC|Lossless]<Downtempo, Future Jazz, Deep House>
@@ -681,35 +707,6 @@ Stand Up (2016.10.09) SATRip (сезон 5, выпуск 4)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E78CA1738AECB8E6F43DB21E79D61DDA1BB2EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060897   (450251) от 09.10.2016
-
-The Future Sound of London (FSOL) - Environment 6.5 (2016) fsoldigital [MP3|320 Kbps] <Downtempo, IDM, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Axis of Rotation
-02 – Solid Earth
-03 – Anacro Rhythm
-04 – Some Degree of Sanctuary(   Читать дальше...   )Жанр: Downtempo, IDM, AmbientПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B769CEFDA904FA58B9DC2B85A66FAAA18F5A7791
 ```
 
 https://mybot314.ru/tekegram_catalog/

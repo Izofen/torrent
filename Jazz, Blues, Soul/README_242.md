@@ -1,3 +1,90 @@
+###  Публикация: 909762   (626406) от 18.06.2015
+
+Omar Coleman - Born & Raised (2015) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tryin' To Do Right (3:56)
+02. Man Like Me (3:47)
+03. Sit Down Baby (3:14)
+04. I Was A Fool (5:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B0DD277B325DB49C0EDF89041CC39ABFE28FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294810   (626269) от 09.04.2019
+
+Jan Johansson - Musik genom fyra sekler med Jan Johansson (1995) 2CD, Heptagon Records [FLAC|Lossless|tracks + .cue] <Swedish Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626269.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Vem kan segla forutan vind [3:20]
+02. Herr Peder och Malfred [2:06]
+03. Vi skall stalla till med en roliger dans [3:13](   Читать дальше...   )Жанр: Swedish Jazz, Post-Bop, Piano JazzПродолжительность: 01:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255CB74E7879E4BB0A4B168217F80CAB74B93B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294711   (626266) от 09.04.2019
+
+Natalie Cressman & Ian Faquini - Setting Rays Of Summer (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terê (4:30)
+02. L’Aube (2:05)
+03. Lenga Lenga (3:06)
+04. Debandada (4:35)(   Читать дальше...   )Жанр: Jazz, Brazilian JazzПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599F2B854EF5ABA86598E48038031FEAE8ED66B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909737   (626134) от 18.06.2015
 
 Mungo Jerry - Kicking Back (2015) [MP3|320 кб/с]<Blues Rock, Modern Electric Blues>
@@ -705,105 +792,6 @@ Chris Watson Band - Pleasure and Pain (2012) [APE|Lossless]<Blues, Blues-Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522131   (625044) от 12.07.2012
-
-Blake Aaron - Desire (2007) [FLAC|Lossless]<Smooth, Pop-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bumpin' On The Wes Side
-02. Come On Over
-03. Will I Go 'Round In Circles
-04. Shine
-05. If You Were Mine
-06. In Her Sweet Way
-07. Desire
-08. Forever
-09. There Will Come A Day
-10. Baby Likes The Blues(   Читать дальше...   )Жанр: Smooth, Pop-JazzПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522173   (625031) от 12.07.2012
-
-Blue Knights - Night Talk (2000) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturday Morning
-02. Blue Train
-03. Vegaz Dance
-04. Night Talk
-05. Funky Bill
-06. Miami Groove
-07. Smooth Night
-08. Paris Texas
-09. First Date
-10. Dubai Dance(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035767   (624773) от 18.07.2016
-
-Mount Everest Trio - Waves from Albert Ayler (1977) Unheard Music[APE|Lossless|image + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Spirits [04:27]
- 02.Ramblin' [05:54]
- 03.Orinoco [07:06]
- 04.Bananas Oas [04:14](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD8674E3870E9043F5A9AFF18DF248F73B5F809
 ```
 
 https://mybot314.ru/tekegram_catalog/

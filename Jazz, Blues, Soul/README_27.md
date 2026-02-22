@@ -1,3 +1,90 @@
+###  Публикация: 1449617   (1029782) от 22.02.2021
+
+Elmo Hope - The Final Sessions (1966) 2CD, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029782.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I Love You [10:51]
+02. A Night in Tunisia [10:16]
+03. Stellations [4:22](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 02:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC7E9418E51449487272414C54A7F53CBD532F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449640   (1029712) от 22.02.2021
+
+Krokfoss Band - Are You Ready (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues ;Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Ready (3:25)
+02. Temptation for Love (4:33)
+03. Don´t Give up on Me (4:10)
+04. Talk to Me (6:17)(   Читать дальше...   )Жанр: Blues ;Blues RockПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08389E39B131F88774D95E4CED68872E8F61A383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449639   (1029708) от 22.02.2021
+
+John Henry and the Rainmakers - John Henry and the Rainmakers  (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues; Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 O'clock (11:00)
+02. I Ain't Lyin (4:32)
+03. I Know What (3:49)
+04. Million Dollar Swing (5:53)(   Читать дальше...   )Жанр: Blues; Blues RockПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA4071517BCF663AE37FD5947FF39A94AF88AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449642   (1029706) от 22.02.2021
 
 Nathan B. Spooner - Grampa's Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ The Peanuts - There Will Be Blues - There Will Be Blues (2021) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FE47BE24DB23591C292B2B682E5ECCD80F03E73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451264   (1028482) от 01.03.2021
-
-Uncle Albert - Slip in Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No More Roses (3:04)
-02. In the Middle of the Night (3:34)
-03. Who's Cryin' Now (3:11)
-04. Telephone (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66680EC23F8BE9A8D57BD7FCD57645FC2373AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451259   (1028481) от 01.03.2021
-
-The Nova Hawks - Redemption - Redemption (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo (4:03)
-02. Redemption (4:53)
-03. Dusty Heart (3:55)
-04. Witxh (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E938D8628455DC558922E5F1DBEEB24AD895224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451258   (1028474) от 01.03.2021
-
-The Blues Side - The Blues Side (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake My Head (3:13)
-02. Got a Beautiful House (2:31)
-03. Put the Phone Down (3:05)
-04. You Don't Know What You've Got (3:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF11FADFF26F6E8DF6C715422CCD17992F2CA69
 ```
 
 https://mybot314.ru/tekegram_catalog/

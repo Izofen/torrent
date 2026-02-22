@@ -1,3 +1,265 @@
+###  Публикация: 1491510   (910573) от 25.08.2021
+
+Crashtime - Valley Of The Kings (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valley of the Kings
+02. Mirror Maze
+03. CT Metal
+04. Together Alone(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D82C480939BBD3784C1DD1A6D489CAFF7B2AAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288587   (910138) от 05.02.2011
+
+Sirenia - Дискография (2002-2011) [FLAC|Lossless]<Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sirenian Shores (6:02)
+02. Save Me From Myself (Remix) (5:05)
+03. Meridian (Acoustic) (4:05)
+04. First We Take Manhattan (3:56)
+05. Obire Mortem (2:23)Жанр: Gothic MetalПродолжительность: 00:21:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 291375   (910059) от 05.02.2011
+
+Helloween - Keeper Of The Seven Keys (Parts I & II)(US 1-st press) (1987, 1988) [FLAC|Lossless]<Heavy/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation (1:07)
+02. Eagle Fly Free (5:08)
+03. You Always Walk Alone (5:09)
+04. Rise and Fall (4:23)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368567   (909262) от 20.03.2020
+
+Killswitch Engage - Killswitch Engage (2009) Special Edition [FLAC|Lossless|tracks + .cue] <Heavy Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Again (3:09)
+02. Starting Over (3:51)
+03. The Forgotten (3:18)
+04. Reckoning (2:41)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A0B4191F033B1C3027DB3F22C78CD847415A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368557   (909257) от 20.03.2020
+
+Killswitch Engage - Disarm The Descent (2013) Special Edition [FLAC|Lossless|tracks + .cue] <Heavy Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hell In me (2:57)
+02. Beyond the Flames (2:54)
+03. The New Awakening (3:30)
+04. In Due Time (3:18)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C978C927BB446FB57A39E439B031ED07161C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368664   (909250) от 20.03.2020
+
+Killswitch Engage - The End Of Heartache (2004) Reissue, 2005, Roadrunner Records [FLAC|Lossless|tracks + .cue] <Heavy Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Bid Farewell (3:56)
+02. Take This Oath (3:47)
+03. When Darkness Falls (3:53)
+04. Rose of Sharyn (3:36)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05BBB4EE2ED31BA8B82A5CFB44A2FEE8324D9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252177   (909069) от 20.03.2020
+
+Killswitch Engage - Incarnate (2016) Special Edition [FLAC|Lossless|tracks + .cue] <Heavy Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone I Stand (4:30)
+02. Hate By Design (3:47)
+03. Cut Me Loose (3:02)
+04. Strength Of The Mind (3:46)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A398F460AD33248179CA98D560D58BF0C6C07A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098376   (908950) от 30.01.2017
+
+Never-Trust - Bras De Fer (2014) [FLAC|Lossless|image + .cue] <Thrash Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Counter-Strike  (04:11) 
+02|  Bras De Fer  (04:07) 
+03|  Tough Ain't Enough  (03:54) 
+04|  Seeking Redemption  (03:50) (   Читать дальше...   )Жанр: Thrash Metal, HardcoreПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C7E1D192CA35521E993E2F8D0DE1C8130E45CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491579   (908916) от 26.08.2021
+
+Feinstein - Hail And Farewell (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Prophet Is Born
+02. March Of The Elves
+03. Give It To Them Hard
+04. Chasing Rainbows(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFECFF648102813B7FD3D4B94038A616454D6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491674   (908756) от 26.08.2021
 
 Pestilence - Exitivm (2021) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -484,279 +746,6 @@ Sepultura - Machine Messiah (2017) Japanese Edition [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9723C85990DB08E34CC07A5CF008B7162EAB1E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866916   (906320) от 06.02.2015
-
-U.D.O. - Decadent [Japanese Edition] (2015) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speeder
-02. Decadent
-03. House Of Fake
-04. Mystery(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE51DB7C426EA725DF79EA549887C7EBD5EE86F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991275   (906185) от 28.02.2016
-
-Redemption - The Art Of Loss (2016) Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906185.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-
-1. The Art of Loss (featuring Simone Mularoni and Chris Poland)
-2. Slouching Towards Bethlehem (featuring Simone Mularoni and Chris Poland)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E27F30A29DEAF9138B3F5E20C83BFEE3491682C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369156   (905636) от 22.03.2020
-
-Burning Witches - Dance with the Devil (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Incantation (0:57)
-02. Lucid Nightmare (4:50)
-03. Dance with the Devil (4:26)
-04. Wings of Steel (4:29)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34ECA20158132F23474B55A7C4B992DDC825A899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492148   (905470) от 28.08.2021
-
-Timo Tolkki’s Avalon - The Enigma Birth (2021) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тимо Толкки - мятежный гений, финский мультиинструменталист, композитор и продюсер, бывший участник финской пауэр-метал-группы Stratovarius, после ухода из которой он сформировал проекты Revolution Renaissance и Symfonia.
-В феврале 2013 года Толкки объявил о создании своего нового проекта — метал-оперы Timo Tolkki’s Avalon! Идея заключалась в том, чтобы написать (   Читать дальше...   )01. Enigma Birth (feat. Pellek)
-02. I Just Collapse (feat. Caterina Nix)
-03. Memories (feat. Caterina Nix, Brittney Slayes)
-04. Master Of Hell (feat. Raphael Mendes)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3695B25DCE0DD4F73C285FD85ED95B3B92B0AFAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099182   (905443) от 01.02.2017
-
-Ramchat - Atrana (2016) [FLAC|Lossless|image + .cue] <Black, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905443.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tŕne hrobov - 04:29
-2. Dobyvateľ, nerozdeľuj - 05:04
-3. Perún hromom žehná nás - 04:13
-4. Tam, kde horeli stromy - 04:14(   Читать дальше...   )Жанр: Black, Pagan MetalПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EBC1A1FD4D471868BF2579796E827656661A881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760055   (905434) от 23.02.2014
-
-Cynic - Kindly Bent to Free Us (2014) [FLAC|Lossless]<Progressive Death / Fusion Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. True Hallucination Speak (06:03)
-02. The Lion's Roar (04:34)
-03. Kindly Bent To Free Us (06:27)
-04. Infinite Shapes (04:57)
-05. Moon Heart Sun Head (05:21)
-06. Gitanjali (03:58)
-07. Holy Fallout (06:35)
-08. Endlessly Bountiful (03:52)Жанр: Progressive Death / Fusion MetalПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F329F1DA64A10D5287AFBE715B01BF76FE98A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760054   (905411) от 23.02.2014
-
-Winterstorm - Cathyron (2014) [FLAC|Lossless]<Power Metal/Folk/Epic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. A Hero Rises 01:56
-02. Cathyron 05:35
-03. Far Away 04:20
-04. Burning Gates 05:06
-05. Windkeepers 05:16
-06. Down In The Seas 06:12
-07. The Maze 04:55
-08. Elders Of Wisdom 06:31
-09. Metalavial 05:04
-10. The Evocation 01:32(   Читать дальше...   )Жанр: Power Metal/Folk/EpicПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C4FBEF36F71BE19285D6D12EBA06215D79E52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099209   (905017) от 01.02.2017
-
-Doro - True At Heart (1991) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Love (3:46)
-02. You Gonna Break My Heart (3:43)
-03. Even Angels Cry (4:48)
-04. The Fortuneteller (5:15)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Soft RockПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82745A24751032815FDB5E267D10A3C9CC88110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866749   (904932) от 07.02.2015
-
-King of Asgard - 4 альбома (2010-2014) [FLAC|Lossless]<Melodic Death / Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-О группе: King Of Asgard («Царь Асгарда») образовалась в 2008 году, когда её основатель Карл Бекман вновь объединил свои творческие усилия со своим давним коллегой по хорошо известному проекту так называемой «викинг-орды» Mithotyn, Карстеном Ларссоном. Скандинавская культура и мифология используется ими в качестве основной тематики как в музыкальном плане, так и для написания лирики.Альбомы:
-2010 - Fi'mbulvintr
-2012 - ...to North
-2012 - ...to North (Limited Edition)
-2014 - KargЖанр: Melodic Death / Viking MetalПродолжительность: 03:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026977DE94DD210C0AA4F6BEF0CD1B0331FB8153
 ```
 
 https://mybot314.ru/tekegram_catalog/

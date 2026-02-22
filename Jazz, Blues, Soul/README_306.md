@@ -1,3 +1,89 @@
+###  Публикация: 1243317   (493972) от 26.08.2018
+
+Cafe R&B - 4 Albums (1998 - 2012) [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Blues-Rock, Rhythm & Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cafe R&B родом из Южной Калифорнии. Вокалистка "Roach" известна в начале 80ых по коллективу "Roach and the White Boys". Критики отмечают ее потрясающий хардроковый вокал и сравнивают с такими звездами, как Etta James, Tina Turner и Aretha Franklin. Продюсер, гитарист и муж Roach пишет оригинальный материал для группы. Вдохновленные Howlin (   Читать дальше...   )1998 - Black & White
+2002 - Blues and all the Rest
+2005 - Very LiveЖанр: Modern Electric, Blues-Rock, Rhythm & BluesПродолжительность: 04:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F87CD726022B96A9AC4451EA17CE599FF1CDFF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158308   (493836) от 15.08.2017
+
+Edna McGriff - Start Movin' In My Direction (1954 - 1959) 2012, Bear Family Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Movin' (In My Direction) [02:36]
+02. Confidental [02:43]
+03. The Fool [02:47]
+04. Freight Train [02:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B9512995B8C507F373FCCC9F2C42C75E598F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158344   (493823) от 15.08.2017
+
+Harrison Kennedy - This Is From Here (2015) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walkin' Or Ridin'   (03:29) 
+02.  Shake The Hand   (04:18) 
+03.  Falling Down   (03:28) 
+04.  Jimmy Lee   (03:42) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14313543235CEDEC1E793E8DCDEFA461F02A6264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543478   (493738) от 06.09.2012
 
 VA - The Best of Big Band (2008) [FLAC|Lossless]<Jazz, Big Band>
@@ -676,99 +762,6 @@ Stefon Harris & Blackout - Sonic Creed (2018) Motema [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6D722B3E73D6B9353563453C9CFB6A22E50B7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544292   (491142) от 07.09.2012
-
-VA - Jazz and Beatles Part Two (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01..  Various Artists -  Intro  (0:15)
-02..  Astrid Bergman -  Sgt.Pepper's Lonely Hearts Club Band   (2:03)
-03..  Deborah Dixon & Les Crossaders -  She Loves You  (2:14)
-04..  Stella Starlight Trio feat. Lizette -  Can't Buy Me Love  (2:44)
-05..  The Bryan J. White Quartet -  Penny Lane  (3:37)
-06..  Celso Mendes feat. Lua -  Revolution  (4:31)
-07..  48th St. Collective -  I Feel Fine  (2:37)
-08..  Mandy Jones -  Paperback Writer  (2:03)
-09..  Scubba feat. Sarah Menescal -  Ticket To Ride  (4:16)
-10..  Jazzystics feat. Deborah Dixon -  Get Back  (2:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318897   (490987) от 08.08.2019
-
-Chuck Hedges & The Johnny Varro Trio - Skylark (1983) 1995, Delmark Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You're Smiling [4:37]
-02. Here's That Rainy Day [4:04]
-03. Autumn Leaves [4:20]
-04. 'Round Midnight [3:38](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67CA3E84B65FD8B9DAC90A24C37971EA8C79B5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565770   (490445) от 25.07.2022
-
-The Uptown String Quartet - Max Roach Presents The Uptown String Quartet (1989) Philips [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Extensions [3:36]
-02. Let Us Break Bread Together [3:08]
-03. Jelly Roll Rag [3:17]
-04. Tricotism [3:34](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03B942084BB16CA195A1327E6C1F2601E088F0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

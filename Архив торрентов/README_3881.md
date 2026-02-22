@@ -1,3 +1,29 @@
+###  Публикация: 1177904   (360366) от 26.10.2017
+
+CrystalDiskMark 5.5.0 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360366.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrystalDiskMark - утилита для сравнительного анализа (тестирования) быстродействия жестких дисков и других накопителей, позволяет измерить скорость различных операций, а именно копирования и записи блоков, заданных пользователем, на определенных разделах физических накопителей. После непродолжительного тестирования будет выдана средняя скорость чтения и записи на (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1BE35FDABA69B39547B7F0138FB955F8B1ED1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576990   (360361) от 18.11.2012
 
 Журнал | Maxim №12 (Украина) [декабрь 2012] [PDF]
@@ -646,41 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66E21C702FEA7C396499E4041107F2EE8D87321B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576804   (360197) от 18.11.2012
-
-HIM - XX - Two Decades of Love Metal (2012) [FLAC|Lossless]<Love Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange World (4:10)
-02. Join Me (In Death) (3:38)
-03. Heartkiller (3:30)
-04. Wings Of A Butterfly (3:30)
-05. The Kiss Of Dawn (4:00)
-06. The Funeral Of Hearts (3:39)
-07. Right Here In My Arms (3:25)
-08. Pretending (3:42)
-09. Buried Alive By Love (4:01)
-10. Gone With The Sin (4:23)(   Читать дальше...   )Жанр: Love MetalПродолжительность: 01:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0B12ABE83A391048459905B0F1C12A5B487671
 ```
 
 https://mybot314.ru/tekegram_catalog/

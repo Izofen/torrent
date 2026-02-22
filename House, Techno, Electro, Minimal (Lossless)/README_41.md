@@ -1,3 +1,61 @@
+###  Публикация: 1058529   (468828) от 01.10.2016
+
+VA - Ibiza 2016 Closing Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Knight - Yebisah (original mix) [08:23]
+02. Ian Pooley - Cold Wait (Bicep dub) [06:22]
+03. Eats Everything - Monegros (original mix) [07:17]
+04. Dubspeeka - K377 Unfriended (original mix) [08:22](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 08:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF5DB1C056EE66D39BCE9DF79C70696A09DCCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407119   (468602) от 06.09.2020
+
+VA - Robot Says Y (2020) What Robot Says [FLAC|Lossless|tracks|Vinyl] <Tech House, Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tm Shuffle & Kalle-M - Androidien Maailma (07:22)
+ 02. Genning - Life Of Faraway Birds (07:07)
+ 03. Dan Goul - Automation (07:30)
+ 04. Supply-Demand - What Came Before (07:56)Жанр: Tech House, Techno, ElectroПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF33E280B53D236F283E5BA04380A5FC74887973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237783   (468271) от 06.09.2020
 
 VA - Hello Strange Story Series #1-#8 (2016-2020) hello▼strange [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno, Minimal>
@@ -693,70 +751,6 @@ Polynation - Discography 11 Releases (2015-2020) Atomnation [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB509A26E75D03EFDDF3D8CCF1DFD80A31B1DCE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827037   (451173) от 01.10.2014
-
-Scooter - The Fifth Chapter (Limited Edition) (2014) 2CD [FLAC|Lossless]<Big Room, Dubstep, Electro House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451173.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 00:58:06
-Bonus CD - 00:40:50
-
-01. T5c(   Читать дальше...   )Жанр: Big Room, Dubstep, Electro House, Trance |Продолжительность: 01:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859019086900DE7E4BBE4001F6AFBF5494223CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551884   (451106) от 25.09.2012
-
-Vista Le Vie - A Futuristic Family Film (2005) [FLAC|Lossless]<Downtempo, Future Jazz, Abstract>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_451106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский дуэт VISTA LE VIE не изобрел в музыке ничего нового. Его участники попали в причудливый мир парижского техно, но одновременно были очарованы джазом. Из сочетания мягкого и безупречного чувства ритма перкуссиониста и мелодической фантазии пианиста родился этот проект. По последней французской моде они складывают в одну корзину все, что любят, все, чем заинтересовались, все, что способно пробудить чувства или напомнить о них. Микс клавишных Rhodes, гитарных риффов, джаза, трип-хопа, цитат из футуристических ретро-фильмов, скетчей, построковых ритмов, резких звуковых эффектов. Сквозь неторопливый тягучий бит сочатся звуки трубы, гитар и голоса приглашенных гостей, среди которых Barbara Silverstone и GENERAL ELECTRICS. В итоге слушатель отправляется в кинематографическое путешествие, которое не поддается никакой жанровой классификации. AIR встречают Бертрана Бургала - почему бы и нет?01. That Strange Rhythm (feat. Barbara Silverstone) :: 04:22
-02. Beauty for Ashes :: 02:39
-03. First Class - (Black Joy version) (feat. General Electrics) :: 05:17
-04. Refuse, Resist :: 05:08
-05. Seven Thousand and Three Hundred Days (feat. Grand National) :: 04:22
-06. A Curse She Cannot Win (feat. Barbara Silverstone) :: 07:03
-07. Kids With Gloves :: 03:45
-08. For You and You (feat. Ishmael Reed) :: 06:31
-09. Tanzanite :: 05:08
-10. Crime in Stereo (feat. Black Sifichi) :: 03:53(   Читать дальше...   )Жанр: Downtempo, Future Jazz, AbstractФормат: CD, Album, DigipakПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

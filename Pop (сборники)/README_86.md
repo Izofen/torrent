@@ -1,3 +1,32 @@
+###  Публикация: 949171   (408257) от 22.10.2015
+
+VA - Фея Дождя. Песни на стихи Франчески Тотти (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MILEN - Фея дождя (02:37)
+02. Сергей Ищенко - Дождь сентября (04:03)
+03. Андрей Бирюков - В городе дождь (03:55)
+04. Arkadias feat Francheska Totti - Дышать (03:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6D69BC77F76C083B15C2738347237305BAE8CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559498   (407395) от 14.10.2012
 
 VA - Радио Шторм - NeРусский Шторм - 74 (2012) [MP3|320 кб/с]<Pop, Dance>
@@ -824,41 +853,6 @@ VA - Дискотека Non-Stop 7 от Русского радио (2012) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D4F89EA2E12B444F84164939C5A3CFC95D3FF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564097   (403005) от 23.10.2012
-
-VA - Need for speed Drayvovy mix (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virone - Расстояние (Dj Glazunov remix)
-02. Вика Гранд - Я не боюсь (Emotive Tunes original mix)
-03. Корнелия Манго - Запретная Любовь
-04. T - killah feat. Лена Катина (ex. t.A.T.u) - Shot
-05. Мари Краймбрери - Смогу ли я без тебя
-06. АнгелиЯ - Душа Устала
-07. Movetown feat. Nana - Lonely (Empyre One Remix)
-08. Fly Project - Musica (Radio Edit)
-09. Switch Fusion - Anchor (original mix)
-10. Keane - Sovereign Light Cafe(   Читать дальше...   )Жанр: PopПродолжительность: 07:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84BC1B1CF369FBDD171B8A915F0D8E05BE83CA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

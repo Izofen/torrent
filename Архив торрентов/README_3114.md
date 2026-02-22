@@ -1,3 +1,32 @@
+###  Публикация: 1156194   (527643) от 07.08.2017
+
+VA - Ibiza Calling 2017 [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony S - Broken (Angelo Ferreri remix) 06:03
+02. Staniz - Waves (remix) 06:20
+03. Shashaf & Dreve - Revenge (Rethoric Radio remix) 05:57
+04. GRiSHA - The Difficult Conditions (original mix) 06:15(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 04:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681DC0F94F3E425EED07B80ED310EFB6425E111F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559090   (527623) от 23.06.2022
 
 Anhdv Boot 2022 Premium v22.1 x86-x64 (08.06.2022) [En]
@@ -669,32 +698,6 @@ Vellum 3.3 U2B [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0237874BDF6BFAA4C65832A4B2C5786326460293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559180   (527226) от 24.06.2022
-
-Boxy SVG 3  v3.86.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 23.06.2022Разработчик: © 2012-2022 Jaroslaw FoksaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD0130F57F86101BDF1F4A8EE7A34585030F2FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

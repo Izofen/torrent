@@ -1,3 +1,116 @@
+###  Публикация: 1398075   (736567) от 24.07.2020
+
+Григорий Лепс - Честь имею! Кони привередливые (Высоцкий) (2020) [MP3|320 Kbps] <Pop, Авторская песня>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Песня про стукача
+2. В младенчестве
+3. Ах, родная сторона
+4. Жил я славно в 1-й трети(   Читать дальше...   )Жанр: Pop, Авторская песняПродолжительность: 01:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A23C83C252E5898CBA894668730A800FDC33BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398173   (736539) от 24.07.2020
+
+Taylor Swift - Folklore (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop, Country>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 1
+02. Cardigan
+03. The Last Great American Dynasty
+04. Exile (featuring Bon Iver)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EAD50E8FE1B7B6118AD059C5962C579D9CC883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527784   (736402) от 29.01.2022
+
+Vincent International - Retro 2 (The 2nd Album) (2022) [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel My Fire /feat.Stylove/ (Extended Mix) 06:44
+02. Heart & Soul /duet with Rachel Santos/ (Extended Mix) 06:13
+03. Tick Tock Baby (Extended Mix) 06:32
+04. Kiss Me (Extended Mix) 05:38(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DB3138379D8F5CE6CDE40825290FFBA250FEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527670   (736386) от 29.01.2022
+
+Secret Service - Jane (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JaneЖанр: PopПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FF3E3C0578ED321C7466BDAC9ACC66CBB1CCAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398237   (736185) от 25.07.2020
 
 Acuario - Acuario (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -629,122 +742,6 @@ VA - Дискотека Адмирал - Disco 80/90 по-новому! (2010) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5542D76649285D6CF83D36B83B411DD78339F84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789135   (732755) от 25.05.2014
-
-VA - Pure... 50s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Vocal, Jazz, Stage & Screen, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот необыкновенный набор с четырьмя дисками собрал почти 70 оригинальных записей хитов 50-х, включая песни Frank Sinatra, Elvis Presley и Johnny Cash. Как сказано в анонсе этого издания, оно для тех, кто хочет поглубже узнать хиты 50-х, но не имеет возможности блуждать по разбросанным островкам мелодий. Что тут можно добавить?01. Elvis Presley - All Shook Up  (2:00)
-02. Johnny Cash - I Walk The Line  (2:44)
-03. Tony Bennett - Rags To Riches  (2:50)
-04. Doris Day - Que Sera, Sera  (Whatever Will Be)  (2:05)(   Читать дальше...   )Жанр: Pop, Vocal, Jazz, Stage & Screen, CountryПродолжительность: 03:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD50C8ED22977F82B54B1CDD72D67932B644319C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529288   (732645) от 06.02.2022
-
-VA - 100 Greatest 80s Pop Songs (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. George Michael - Careless Whisper (6:32)
-002. Richard Marx - Right Here Waiting (4:24)
-003. Irene Cara - Flashdance...What A Feeling (From Flashdance ) (3:44)
-004. Billy Joel - Tell Her About It (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 07:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997AAD150406F459C578B5D4E484C2759D4E8D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021548   (732545) от 29.05.2016
-
-Thomas Anders - History (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Europop, Dancepop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart You're My Soul (New Hit Version) - 3:28
-02. You Can Win If You Want (New Hit Version) - 3:41
-03. Cheri, Cheri Lady (New Hit Version) - 3:32
-04. Brother Louie (New Hit Version) - 3:43(   Читать дальше...   )Жанр: Pop, Electronic, Europop, DancepopПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A511D109D952548ABA50EDC1297C23EA1425D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021422   (732514) от 29.05.2016
-
-VA - High Energy Today (2016) [MP3|320 кб/с] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klubkidz - When We Were Young (Dance Mix) (feat. Sam Solace) 05:15
-02. Teresa Marie - Loved Me Back to Life (Sammy Love Remix) 04:33
-03. Rachel Wood - Hung Up 05:15
-04. Evelyn Thomas - High Energy (Reload Radio Mix) 03:49(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22BE3E7F9231B4815DC573C384919057A977484
 ```
 
 https://mybot314.ru/tekegram_catalog/

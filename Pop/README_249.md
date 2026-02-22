@@ -1,3 +1,90 @@
+###  Публикация: 1187014   (282165) от 27.11.2017
+
+VA - Босса-нова - Самая красивая музыка в СССР (2005) [APE|Lossless|image + .cue] <Retro, Pop, Easy Listening>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Трио Александра Тартаковского - Garota De Ipanema
+02. Эдита Пьеха - Manha De Carnaval
+03. Квартет Р.Бабаева - Manha De Karnaval
+04. Ансамбль миниатюр п/у В.Чижика - Samba De Uma Nota So(   Читать дальше...   )Жанр: Retro, Pop, Easy ListeningПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C682551097415D3F765ACBCCCB24325B2CE8D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964443   (282098) от 11.12.2015
+
+Britney Spears - Greatest Hits: My Prerogative (2004) [FLAC|tracks+.cue]<RnB, Swing, House, Vocal, Ballad, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Prerogative (3:33)
+02. Toxic (3:19)
+03. I'm a Slave 4 U (3:25)
+04. Oops!...I Did It Again (3:33)(   Читать дальше...   )Жанр: RnB, Swing, House, Vocal, Ballad, Synth-popПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC7838FF11D2FD306ED40BC21A866458454B9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964169   (282091) от 11.12.2015
+
+Patricia Kaas - Scene De Vie (1990) [FLAC|tracks+.cue]<Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Générique (0:52)
+02. Les Mannequins D'Osier (3:52)
+03. L'Heure Du Jazz (3:56)
+04. Coeurs Brisés (3:21)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E35AAF52270AA484C5291E554AE71694B5DFF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187109   (282040) от 27.11.2017
 
 VA - Босса-нова - По-прежнему Самая красивая музыка в СССР (2006) [APE|Lossless|image + .cue] <Retro, Pop, Easy Listening>
@@ -656,93 +743,6 @@ Supermax - Terminal 2002 (2001) [FLAC|Lossless|image + .cue] <Pop, Funk, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98FD599AC47CAB58AF5E109ADBA28C3FFBD81FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850152   (278865) от 14.12.2014
-
-Вадим Казаченко и группа Фристайл - 36 альбомов (1988-2013) [MP3|320 кб/с]<Pop, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278865.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Фристайл" - советская музыкальная группа, созданная в ноябре 1988 года в г. Полтава. Руководитель, композитор и продюсер группы - Анатолий Розанов. Образовавшись, группа «Фристайл» уже через несколько месяцев, вместе с «Миражом» и «Ласковым маем», заняла верхние строчки табеля популярности. Вскоре Вадим Казаченко ушёл из группы, начав сольную карьеру.Список альбомов:
-1988 - Получите!
-1988 - Получите! (Переиздание 2003)
-1989 - Жёлтые розы(   Читать дальше...   )Жанр: Pop, РетроПродолжительность: 35:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16063B7A1566D96D0827311F113D2529C3322A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187308   (278861) от 29.11.2017
-
-Miss Li - Best of 061122‒071122 (2007) 2CD [MP3|320 Kbps] <Indie Pop, Jazz, Fusion>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278861.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Oh Boy (03:19)
-02. Let Her Go (02:20)
-03. I'm Sorry, He's Mine (02:56)(   Читать дальше...   )Жанр: Pop, Jazz, FusionПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514A86BF81751B7967CEF1AB0C600752DFB41644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187710   (278853) от 29.11.2017
-
-Toni Van Duyne - Cosmic Dancer (1978) LP [MP3|320 Kbps] <Electronic, Space disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Overture (0:30)
-02. Venus And Mars (2:48)
-03. Space Music (5:13)
-04. Cosmic Blues (5:21)(   Читать дальше...   )Жанр: Electronic, Space discoПродолжительность: 00:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF6C1F0708368AABD72E3E628C5E565B9789753
 ```
 
 https://mybot314.ru/tekegram_catalog/

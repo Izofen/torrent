@@ -1,3 +1,32 @@
+###  Публикация: 1437026   (1042562) от 03.01.2021
+
+Tar Hag - Bestial (2021) [MP3|320 Kbps] <Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Frozen Prayer [00:06:36]
+02 - Cu Sith [00:06:17]
+03 - Fathoms [00:08:19]
+04 - The Mare [00:08:22](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E8FE059ACA3B831691C698AB0BC7C750EAC707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610380   (1042446) от 07.02.2023
 
 Soulmass - 4 Albums (2014-2023) [MP3|320 Kbps] <Death Metal, Doom Metal, Blackened>
@@ -715,35 +744,6 @@ Pigs Pigs Pigs Pigs Pigs Pigs Pigs - Land Of Sleeper (2023) [MP3|320 Kbps] <Doom
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:755627ECDD704C5C79BF17C89BAA792C7B820079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612714   (1040175) от 16.02.2023
-
-Graphic Nature - A Mind Waiting To Die (2023) [MP3|320 Kbps] <Nu-Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 404 (0:42)
-02. Sour (2:31)
-03. Into The Dark (2:47)
-04. Killing Floor (2:53)(   Читать дальше...   )Жанр: Nu-Metal, MetalcoreПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAD149EDC3C5AEDF5298C1D9DD15E69531E2E2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

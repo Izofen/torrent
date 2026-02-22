@@ -1,3 +1,32 @@
+###  Публикация: 1586766   (215638) от 27.10.2022
+
+Bjork - Fossora (2022) [FLAC|Lossless|image + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atopos
+02. Ovule
+03. Mycelia
+04. Sorrowful Soil(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B890FBE5C050C6EF70D5251E0E2369FE89C74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343892   (214975) от 08.12.2019
 
 Марта - 3 Альбома (2003 - 2008) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -716,35 +745,6 @@ VA - Hottest Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02F18FB5173D27559CA9400F7B897DADB2B2A814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653452   (206094) от 16.08.2023
-
-VA - Vintage Café - The Remixes Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Lounge>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anakelly - Speed of Sound (Ronan Remix) (3:25)
-02. Asonne - Flowers (Javier Penna Remix) (2:18)
-03. Nikko Mad - Die for You (3:13)
-04. No.On - What a Wonderful World (Krister Remix) (1:35)(   Читать дальше...   )Жанр: Pop, Easy Listening, LoungeПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B364E341A02468A565BA41A302E515CF0F2B47D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

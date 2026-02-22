@@ -1,3 +1,300 @@
+###  Публикация: 502869   (260388) от 02.06.2012
+
+Forest Stream - 2 albums (2003-2009) [APE/FLAC|Lossless] <Death / Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Feral Magic ) (02:19)
+02. The Crown Of Winter (11:44)
+03. Mired (09:27)
+04. Bless You To Die (07:38)
+05. Autumn Dancers (08:40)
+06. The Seventh Symphony Of... (09:05)
+07. The Beautiful Nature (09:24)
+08. Outro (My Awakening Dreamland) (01:38)Жанр: Death / Doom MetalПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503884   (260011) от 31.05.2012
+
+Katatonia - 16 albums (1993-2010) [FLAC|Lossless] <Doom / Progressive / Gothic Metal, Depressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Longest Year (04:43)
+02. Sold Heart (04:33)
+03. Day And Then The Shade (Frank Default remix) (05:37)
+04. Idle Blood (Linje 14) (03:23)1993-2010Жанр: Doom / Progressive / Gothic Metal, Depressive RockПродолжительность: 00:18:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503396   (259574) от 30.05.2012
+
+Virgin Black - 5 albums (1998-2008) [FLAC|Lossless] <Gothic / Doom / Symphonic / Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fragile Breath (05:49)
+02. In Winters Ash (07:23)
+03. Silent (06:42)
+04. God In Dust (08:38)
+05. Lacrimosa (Gather Me) (02:21)
+06. Darkness (11:45)
+07. Forever (01:13)1998-2008Жанр: Gothic / Doom / Symphonic / Death MetalПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502775   (259375) от 29.05.2012
+
+Be'lakor - Of Breath And Bone (2012) [FLAC|Lossless]<Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1 - Abeyance
+2 - Remnants
+3 - Fraught
+4 - Absit Omen
+5 - To Stir The Sea
+6 - In Parting
+7 - The Dream And The Waking
+8 - By Moon And StarЖанр: Modern Melodic Death MetalПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503101   (259337) от 29.05.2012
+
+October Tide - 2 albums (1997-1999) [APE|Lossless] <Melodic Death / Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grey Dawn (04:28)
+02. October Insight (05:03)
+03. Sweetness Dies (05:45)
+04. Heart Of The Dead (04:16)
+05. Floating (06:14)
+06. Lost In The Dark - And Then Gone (05:25)
+07. Into Deep Sleep (05:13)
+08. Dear Sun (03:32)1997-1999Жанр: Melodic Death / Doom MetalПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502767   (259331) от 29.05.2012
+
+Silent Descent - Mind Games (2012) [FLAC|Lossless]<Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Overture
+02 - Psychotic Euphoric
+03 - Mind Games
+04 - Bricks
+05 - Coke Stars
+06 - Bring-In-Sanity
+07 - Lasting Impression
+08 - Devoid
+09 - On That Trip
+10 - Sober Thoughts(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502776   (259303) от 29.05.2012
+
+Tristitia - 4 albums (1995-2002) [FLAC|Lossless] <Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Entrance (02:08)
+02. Path I. Beholders tears (06:20)
+03. Path II. Black Godz Serenade - Part 1 (01:34)
+04. Path III. As Death Says Mine (13:13)
+05. Path IV. When Tears Cry (11:58)
+06. Path V. Beyond The 7 th Valley (01:43)
+07. Path VI. There Will Never Be Another Dawn (10:20)
+08. Path VII.Black Godz Serenade - Part 2 (01:57)
+09. Path VIII. Tears Of The Moon (09:07)Жанр: Doom Metal, Gothic MetalПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502968   (259284) от 29.05.2012
+
+Synkletos - Spiritual Alchemy (2011) [FLAC|Lossless] <Melodic Doom / Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Windy Days (01:34)
+02. Golden Fields Of Creation (07:45)
+03. The Elementals (05:29)
+04. Turn Of The Year (02:55)
+05. Rain Of Eternal Distress (09:10)
+06. The Ascent (03:54)
+07. Spiritual Alchemy (08:35)
+08. Contemplation (03:01)Жанр: Melodic Doom / Death MetalПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502957   (259269) от 29.05.2012
+
+Dimness Through Infinity - Nymph (2003) [FLAC|Lossless] <Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celestial Divinity (02:53)
+02. And Begins The Tragedy... (09:54)
+03. Lurid (1st Patch) (01:53)
+04. Dying Embrace (09:32)
+05. Mourning part 1 (01:53)
+06. The Solitude Echoes (02:25)
+07. Mourning part 2 (04:37)
+08. Woe to Nymph (05:40)
+09. Unknown Foliages, Faraway (03:49)
+10. Lurid (2nd Path) (02:20)(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 01:09:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502577   (259213) от 28.05.2012
 
 Sabaton - Carolus Rex (Mailorder Edition 2CD) (2012) [FLAC|Lossless]<Heavy / Power Metal>
@@ -552,290 +849,6 @@ Elithium - Strangers Parade (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37A347974F2EF91A3571E23F75F020F00BC597F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837426   (257512) от 17.11.2025
-
-Spiritbox - Сollection (2021 - 2025) 3 CD [FLAC|Lossless|tracks + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spiritbox — канадская метал-группа из Виктории, Британская Колумбия.
-Дуэт мужа и жены, гитариста Майка Стрингера и вокалистки Кортни ЛаПланте.Список альбомов:
-2021 - Eternal Blue
-2023 - The Fear of Fear
-2025 - Tsunami SeaЖанр: MetalcoreПродолжительность: 01:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4240C9DEF0FCBA6522E8A80A0363BF0139AE3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500459   (257110) от 23.05.2012
-
-Skumring - De Glemte Tider (2005) [APE|Lossless] <Doom Metal, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Søvn (12:35)
-02. De Glemte Tider (18:53)
-03. Forførelse I Natten (12:56)Жанр: Doom Metal, FolkФормат: CD, AlbumПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613467   (256844) от 15.11.2025
-
-The Devil Wears Prada - Сollection (2006 - 2025) 12 CD [FLAC|Lossless|tracks + .cue] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256844.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Devil Wears Prada - (сокращенно TDWP) группа, играющая в стиле metalcore из Дэйтона, штат Огайо. Одни из наиболее жарких и многообещающих команд современной сцены. Тяжелые рифы, запоминающиеся мелодии, душещипательная лирика о борьбе и сопротивлении, смесь душераздирающих криков и приятного вокала.Список альбомов:
-2006 - Dear Love - A Beautiful Discord
-2007 - Plagues
-2009 - With Roots Above and Branches Below(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 07:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48EC789DD8CCCC95C8F85C3E1E26E147F2528D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837387   (256749) от 16.11.2025
-
-Feanor - Hellhammer (2025) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sirens Of Death
-02. Bad Decisions
-03. Hellhammer
-04. Remember The Fallen(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62865CCA91B33718C03741E2226732078167477E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499034   (256116) от 20.05.2012
-
-Huntress - Spell Eater (2012) /2012, Napalm Records/ [WavPack|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Spell Eater (3:59)
-02. Senicide (4:00)
-03. Sleep And Death (4:29)
-04. Snow Witch (5:04)
-05. Eight Of Swords (5:39)
-06. Aradia (4:09)
-07. Night Rape (3:19)
-08. Children (3:11)
-09. Terror (4:46)
-10. The Tower (4:33)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498945   (256081) от 20.05.2012
-
-Cradle Of Filth - Midnight In The Labyrinth (2012) [FLAC|Lossless]<Symphonic Black Metal / Extreme Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256081.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-01. A Gothic Romance (Red Roses for the Devils Whore) (8:39)
-02. The Forest Whispers My Name (5:42)
-03. The Twisted Nails of Faith (7:05)
-04. The Rape and Ruin of Angels (Hosannas in Extremis) (8:19)
-05. Funeral in Carpathia (8:51)
-06. Summer Dying Fast (5:21)
-07. Thirteen Autumns and a Widow (7:14)
-08. Dusk and Her Embrace (6:31)(   Читать дальше...   )Жанр: Symphonic Black Metal / Extreme Gothic MetalПродолжительность: 02:23:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497611   (256024) от 20.05.2012
-
-Status Minor - Ouroboros (2012) [FLAC|Lossless]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. The Wind (04:15)
- 2. Hollow (04:57)
- 3. Glass Wall (04:35)
- 4. Like a Dream (05:46)
- 5. Confidence and Trust (02:31)
- 6. Stain (06:32)
- 7. Smile (05:34)
- 8. Flowers Die (05:24)
- 9. Sail Away (10:44)Жанр: Progressive MetalПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498072   (255749) от 19.05.2012
-
-Sonata Arctica - Stones Grow Her Name (Deluxe Edition) (2012) [FLAC|Lossless]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only the Broken Hearts (Make You Beautiful) (3:24)
-02. Shitload Of Money (4:52)
-03. Losing My Insanity (4:03)
-04. Somewhere Close To You (4:14)
-05. I Have a Right (4:48)
-06. Alone In Heaven (4:32)
-07. The Day (4:15)
-08. Cinderblox (4:04)
-09. Don't Be Mean (3:18)
-10. Wildfire, Part: II - One With The Mountain (7:54)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836814   (255665) от 12.11.2025
-
-Michael Schenker Group - Don't Sell Your Soul (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Sell Your Soul(5:04)
-02. Danger Zone(3:38)
-03. Eye Of The Strom(3:57)
-04. Janey The Fox(3:12)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50893FD1F414FA328CDA2086DF129E96AA012E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1150524   (593868) от 15.07.2017
+
+VA - Latin Fitness Workout 2017 (Ideal For Cardio, Gym, Running & Aerobics) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-David Pole – Join The Party (Extended Mix)
+02-Sapienza – Asere K Bola (Extended Mix)
+03-Mike De La Cruz – Pa’elante (Stephan F Remix)
+04-Ticli & Gas – Universo (Proyecto FM Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41A9A983DF177269A66D7B3DE0717E85E317079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233497   (593019) от 30.06.2018
+
+VA - FG Top 10 June 2018 [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Kolev - Oblivion (Extended Mix) 07:21
+02. Max Freegrant - Drama King 06:49
+03. Orphyd - Replicant (Original Mix) 05:43
+04. AxelPolo - Mirage 06:36(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9235DE3AC25E2A7CCD246910FE19D970967A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549795   (592894) от 08.05.2022
+
+VA - Progressive House 100 - The Ultimate Selection (2022) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592894.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. SØNIN & Grigoré - Serpento (Original Mix) (8:50)
+002. Quivver - Brothers & Sisters (Cid Inc. Remix) (9:06)
+003. RUE - The Cult (Enamour’s Free Love Extended Mix) (7:01)
+004. All Living Things - Rave Culture (Jerome Isma-Ae Extended Remix) (7:38)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0831EEA4EF8AA3DABB1CC8D7D7D89A1D856472FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300663   (592811) от 07.05.2019
 
 VA - Nothing But... Dance Vol.14 (2019) [MP3|320 Kbps] <House>
@@ -661,98 +748,6 @@ VA - Bye Bye Summer! Best of Deep Summer 2016 Vol.1 (2016) [MP3|320 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB7ACDB665FDDC774C25A636DA4426D0BDA78F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042845   (575963) от 14.08.2016
-
-VA - Sport Music Fitness Personal Trainer - 200 Songs (2016) [MP3|320 Kbps] <House, Electro House, Progressive, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575963.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Kold  -  Sidechain  4:49
-002. California Sun  -  Touch the Sky (Extended Mix)  5:18
-003. Alain Chavez  -  Private Area  5:42
-004. Calabria  -  Evolver (Club Mix)  6:19(   Читать дальше...   )Жанр: House, Electro House, Progressive, Dance, ClubПродолжительность: 19:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01102AC3CF5B373E4A399769552D55324C4794CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526457   (575061) от 27.07.2012
-
-Groove Armada - Goodbye Country (Hello Nightclub) (2CD) (2001) [MP3|320 кб/с]<Electronic,  House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575061.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Superstylin' (Q.A. Discotek Mix) (5:47)
- 2. Moira's Theme (3:53)
- 3. Mali (6:27)
- 4. Lazy Moon (Live Version) (6:45)
- 5. Rap (Q.A. Alternative Mix) (4:09)
- 6. Your Song (Tim "Love" Lee's Semi-Bearded Remix) (7:36)
- 7. A Private Interlude (Kinobe Remix) (5:38)
- 8. Old Father Rhyme (4:20)
- 9. My Friend (Dorfmeister Vs. Madrid De Los Austrias Dub) (6:23)Жанр: Electronic,  HouseПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7ECE04FD6B855468A7CCF3660C8DA4DDB19965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234175   (574701) от 03.07.2018
-
-VA - Future Workout Summer '18 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Punks - Doing Faster
-02. Tim Space - Dirty Disco
-03. Jack Souza - Give Me Love Again
-04. Chris Taker - Believe in Me(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0E9FE3D75197B31939EA3C2D9717F86407E8E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

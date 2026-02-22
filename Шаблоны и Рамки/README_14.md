@@ -1,3 +1,30 @@
+###  Публикация: 1284579   (727532) от 22.02.2019
+
+Шаблоны - Календари и рамки для 23 февраля [PSD, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727532.jpg" />
+</div>
+
+
+###  Подробнее
+
+подборка многослойных PSD шаблонов-рамок для фото
+от авторов KoaressФормат: PSD, PNGРазрешение файлов: 3508x4961-4961x3508
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599DC0907D25A16928859DE854CB36AEFE439B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022654   (727107) от 03.06.2016
 
 Шаблоны - CreativeMarket - The Mask Effect - Artistic FX [PSD]
@@ -645,32 +672,6 @@ Animated Ink Portrait - шаблон для Вашего творчества.Ф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE82C19D08FC4B26FE683A0474138C696FD0722A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029820   (678011) от 28.06.2016
-
-Шаблоны - GraphicRiver - Photo Templates [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Templates - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2000×3000 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476D4AAA4ADF2CD1C190D3F94AA346C27EEB6DC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

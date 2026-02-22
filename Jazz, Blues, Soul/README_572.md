@@ -1,3 +1,32 @@
+###  Публикация: 1764068   (102760) от 05.12.2024
+
+Peter MacInnis - Late Night Blues Vibe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Remember How to Dance? (3:31)
+02. Something to Sell (3:31)
+03. HollyHood Tay - Focusing on Me (2:32)
+04. Gotta Slow It Down (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A770F92C69FAE46257A38C3F685960F95E3CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764064   (102759) от 05.12.2024
 
 Mikey Junior - Traveling North (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -742,41 +771,6 @@ https://mybot314.ru/tekegram_catalog/
 08. Dinah (Akst - Lewis - Young) (Benny Goodman Quartet, 1936) (2:42)
 09. Exactly Like You (McHugh - Fields) (Benny Goodman Quartet, 1936) (3:19)
 10. Sweet Sue-Just You (Young - Harris) (Benny Goodman Quartet, 1936) (3:20)(   Читать дальше...   )Жанр: Swing, Big bandПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491035   (102582) от 02.05.2012
-
-Oli Brown - Here I Am (2012) [WavPack|Lossless]<Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Here I Am (4:08)
-02. Thinking About Her  (3:48)
-03. Manic Bloom (4:02)
-04. All We Had To Give (3:41)
-05. You Can Only Blame Yourself  (4:33)
-06. Start It Again  (3:44)
-07. Devil In Me  (4:30)
-08. I Love You More You'll Ever Know  (7:06)
-09. Remedy (4:21)
-10. Mr. Wilson (4:04)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:51:30
 
 ## Скачать торент
 ```bash

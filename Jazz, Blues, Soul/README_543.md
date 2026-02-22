@@ -1,3 +1,32 @@
+###  Публикация: 1718742   (110692) от 27.04.2024
+
+Judy Wexler - Easy on the Heart (2005) Jazzopolis [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment to Moment [5:41]
+02. I'm in Love [4:41]
+03. Humdrum Blues [3:22]
+04. Easy on the Heart [5:00](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A462C7B4654987EEBE340A16033D7FB3EAD790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719142   (110631) от 28.04.2024
 
 Judy Wexler - Under A Painted Sky (2011) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ The Milk Men - Holy Cow! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2D82824A3198B51C2B140B4728EC38BCD41E3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720860   (110089) от 06.05.2024
-
-Val Starr & the Blues Rocket - To the Blues and Back Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Been To The Blues And Back Again (3:31)
-02. Bitter Pill (5:18)
-03. Take A Stand (4:36)
-04. If You Don't Blues It, You'll Lose It (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C9166B2F0552FA40368DDB72ED0E9B6C702390
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,275 @@
+###  Публикация: 1376393   (860699) от 17.04.2020
+
+Ocean Chief - Den Tredje Dagen (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Sludge, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den Tredje Dagen [09:55]
+02. Hyllningen [11:59]
+03. Domd [15:39]
+04. Den Sista Resan [07:00](   Читать дальше...   )Жанр: Doom Metal, Sludge, Space Rock, StonerПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1184E8EB822142C0C1DADD281D1103E26AAD18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376385   (860697) от 17.04.2020
+
+Divitius - Primordial (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X X X I I I [05:07]
+02. Shapeshifter [04:22]
+03. Memento Mori [05:06]
+04. Colors [04:28](   Читать дальше...   )Жанр: Metalcore, Progressive MetalПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607022F06B77653D7EE7556C64B25A7C55ABD758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376429   (860695) от 17.04.2020
+
+Cadaver - D.G.A.F. (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.G.A.F. (feat. Jeff Walker) [04:16]
+02. Deformed Insanity [03:18]
+03. Disgrace [03:04]Жанр: Death Metal, Thrash MetalПродолжительность: 00:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBE6C9B94A4DFFC4DEDAB395D6880CB54B5A1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376380   (860694) от 17.04.2020
+
+Aborted - La Grande Mascarade (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gloom and the Art of Tribulation [04:38]
+02. Serpent of Depravity [03:22]
+03. Funereal Malediction [03:50]Жанр: Brutal Death MetalПродолжительность: 00:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A487D32895876105AAB64768C2ACA95DAF2A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376295   (860493) от 17.04.2020
+
+Ignea (ex-Parallax) - The Realms of Fire and Death (2020) [FLAC|Lossless|tracks] <Oriental Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Dies [00:03:58]
+02. Чорне Полум'я [00:05:24]
+03. Out of My Head [00:03:53]
+04. Í Tokuni [00:03:49](   Читать дальше...   )Жанр: Oriental Progressive MetalПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074B3CD5BDB2AABF76F422718527D12991C860B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768385   (860437) от 20.03.2014
+
+Dorn - 4 альбома (2000 - 2007) [APE & FLAC|Lossless]<Black Metal / Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Eisglanz  (04:57)
+02. Gottkind  (05:07)
+03. Konigin des Feuers  (04:32)
+04. Windträanen  (04:22)
+05. Nachtblut  (05:10)
+06. Winterwacht  (04:03)
+07. Spiegel der Unendlichkeit  (04:37)
+08. Flammender Zorn  (03:48)
+09. Kaltes Herz  (03:40)
+10. Kriecher  (03:03)Жанр: Black Metal / Doom MetalПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE664AD782654E1561427FFFA13A44A9D01C9322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646138   (860134) от 21.04.2013
+
+Heaven Shall Burn - Veto (2013) Limited Deluxe Edition 3CD Box Set [FLAC|Lossless]<Melodic Death Metal / Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Heaven Shall Burn (имя взято у одноимённого альбома Marduk) — металкор / мелодик дэт-метал группа из Саальфельда, Германия. Они сочетают агрессивную метал-музыку с лирикой, в которой поддерживают антифашизм и антиглобалистские идеи. Четыре из пяти музыкантов — веганы.
+Heaven Shall Burn была основана осенью 1996-го под именем Consense, первая демозапись была записана примерно через шесть месяцев. После нескольких незначительных смен участников, Эрик (бас) и Маркус (вокал) присоединились к группе весной 1997-го — и вторая демозапись вышла через небольшой промежуток времени. Когда комплектование состава было закончено, группа начала играть на концертах, включая несколько больших фестивалей в их родной Германии.01. Godiva (4:23)
+02. Land Of The Upright Ones (4:07)
+03. Die Stuerme Rufen Dich (4:18)
+04. Fallen (4:35)
+05. Hunters Will Be Hunted (5:58)
+06. You Will Be Godless (3:09)
+07. Valhalla (5:30)
+08. Antagonized (3:33)
+09. Like Gods Among Mortals (3:32)
+10. 53 Nations (4:17)(   Читать дальше...   )Жанр: Melodic Death Metal / MetalcoreПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498081   (859897) от 25.09.2021
+
+White Stones - Kuarahy (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kuarahy
+02. Rusty Shell
+03. Worms
+04. Drowned in Time(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6444B63353AAA19670A3B69490D44BB55699795B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497944   (859895) от 25.09.2021
+
+Stagewar - Danger To Ourselves (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danger To Ourselves
+02. Box Of Dirt
+03. Follow Me
+04. R.U.N.(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFB679C3D6DC6E701219EDC7F045FABF89F7EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497961   (859894) от 25.09.2021
 
 Rivers Of Nihil - The Work (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
@@ -493,278 +765,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:170BDD11E0181540C7941BA47C4A3A2C79CD4C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000808   (857644) от 26.03.2016
-
-Gloria Morti - Kuebiko (2016) [FLAC|Lossless|image + .cue] <Melodic Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syntymä 03:10
-02. The Foul Stench Of Vomiting Blood 03:39
-03. Josef Fritzl 03:16
-04. Chimeral Form 04:32(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0323877735C86778DBCB630E548670D2606D5607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000811   (857640) от 26.03.2016
-
-Draugnim - Vulturine (2016) [FLAC|Lossless|image + .cue] <Epic Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Name Is Hate 07:43
-02. As In Hunger, So In Demise 07:47
-03. A Passage In Fire 06:31
-04. Grief Unsung 08:04(   Читать дальше...   )Жанр: Epic Pagan Black MetalПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56DDC04EA5DA90C66C6BE834C30764518FC14A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000814   (857572) от 26.03.2016
-
-Cirith Gorgor - Visions of Exalted Lucifer (2016) 2CD Limited Edition [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857572.jpg" />
-</div>
-
-
-###  Подробнее
-
-I - Visions of Exalted Lucifer
-01. Salvator 07:56
-02. A Vision Of Exalted Lucifer 04:48
-03. Of Black Dimensions... 03:21(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC429D66E811F3AA2223DCD6F536529C77CA2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000818   (857256) от 26.03.2016
-
-Amon Amarth - Jomsviking (2016) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.First Kill
-02.Wanderer
-03.On a Sea of Blood
-04.One Against All(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A40BC48807177B85FA325A1B56460296649C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376761   (857024) от 19.04.2020
-
-Occultus - Cosmos (2002) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyager [01:17]
-02. Luto perpetuo [02:31]
-03. Gloria al Occultismo [06:15]
-04. Chant of the Souls [03:20](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD4F4700131889A4C9A692E2094DA2A3DB7618E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376953   (857022) от 19.04.2020
-
-Talamyus - As Long As It Flows... (2005) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Talamyus (01:03)
-02. Hunger (06:38)
-03. Dark Land (04:22)
-04. In The Name Of Blood (05:21)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BF01C83CA6BB1794E4FFF90386602F6BDCC01E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647580   (856710) от 23.04.2013
-
-36 Crazyfists - 5 Альбомов (2002-2010) Дискография [FLAC|Lossless]<Metalcore | Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-<<<
-----------------------------------------------------------------------------
-01. In The Midnights
-02. Whitewater
-03. Mercy And Grace
-04. Death Renames The Light
-05. Anchors
-06. Long Roads To Late Nights
-07. Trenches
-08. Reviver(   Читать дальше...   )Тип издания: ДискографияЖанр: Metalcore | Nu-MetalПродолжительность: 00:44:55 >>>
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305792   (856537) от 07.03.2011
-
-Children of Bodom - Relentless Reckless Forever (2011) [FLAC|Lossless]<Melodic Death Metal/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Not My Funeral (4:55)
-02. Shovel Knockout (4:03)
-03. Roundtrip to Hell and Back (3:48)
-04. Pussyfoot Miss Suicide (4:10)
-05. Relentless Reckless Forever (4:42)
-06. Ugly (4:13)
-07. Cry of the Nihilist (3:31)
-08. Was It Worth It? (4:06)
-09. Northpole Throwdown (2:55)Жанр: Melodic Death Metal/Power MetalПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498515   (856268) от 27.09.2021
-
-Lethargus - Eclectia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destino Cruel (07:00)
-02. A Vida o Muerte (05:14)
-03. Quiero Odiarte (07:35)
-04. Estrella Fugaz (07:59)(   Читать дальше...   )Жанр: Heavy Metal, Power Progressive MetalПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E466CFE40D004565553AAF6AA90DEA9C339EDEE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

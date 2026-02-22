@@ -1,3 +1,29 @@
+###  Публикация: 600525   (998977) от 08.01.2013
+
+Журнал | Всему свету по совету №24 [декабрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный женский журнал с советами на все случаи жизни. Близится новый год, поэтому выпуск посвящен организации этого чудесного праздника. А так же постоянные рубрики, домашние советы.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C319F2AA40A1E91FA4D5777C2673CE84DC487C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599854   (998976) от 08.01.2013
 
 Castles - You, The Organ Grinder (2012) [MP3|~245 кб/с (V0)]<Mathcore/Stoner/Noise Rock>
@@ -749,41 +775,6 @@ Zuul Fx - Unleashed (2012) [MP3|320 kbps] <Industrial Thrash, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC39852DC1AE195D1F3EF5B889B78623030C8B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599458   (998936) от 08.01.2013
-
-Ruins Alone - Ruins Alone (2011) [MP3|320 кб/с]<Jazzgrind Avant-garde, Mathcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998936.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jemvlesqapp 01:51
-2. Laipthcig 01:48
-3. Ixzelgriver 02:06
-4. Stonehenge 03:45
-5. Baxcemgilasz 02:10
-6. Hyderomastgroningem 01:15
-7. Equesspaldho 02:55
-8. Sanctuary 02:01
-9. Glaschenk 03:49
-10. Pallaschtom 01:59(   Читать дальше...   )Жанр: Jazzgrind Avant-garde, MathcoreПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B46B0C0FF3E0873BE377827A736EBEC4920E823
 ```
 
 https://mybot314.ru/tekegram_catalog/

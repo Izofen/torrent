@@ -1,3 +1,32 @@
+###  Публикация: 1738763   (106065) от 28.07.2024
+
+VA - National Pop Dance Music Vol.79 (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106065.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beyonce - Texas Hold 'em
+002. Flo Milli Feat. Sza - Never Lose Me
+003. Annalisa - Sinceramente
+004. Ariana Grande - We Can't Be Friends(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11CEA6FF7301FF73997D3BDE84B0E1DF962FA91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739401   (106059) от 28.07.2024
 
 VA - New Music Releases Week 29 (2024) [MP3|320 Kbps] <Pop, Dance, Rock, Hip-Hop, RnB>
@@ -842,41 +871,6 @@ VA - Весенний Кураж Европы Плюс (2012) [MP3|256 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31C294B1EC11B59BEFE9556AA9E42A30F8E9E080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477646   (98480) от 03.04.2012
-
-VA - Граммофон Рекордс (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98480.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ВИА Гра - Диско
-002 Dj Vengerov Feat. Слава - Одиночество-Сука (Extended Mix)
-003 Dj Masterhouse Feat. Dj Lady Nalan - Танцуй !
-004 Аня Шаркунова - Я Знаю Ее В Лицо
-005 Никита - Прости
-006 Иракли & Даша Суворова - Нелюбовь
-007 Яжевика - Город Тает
-008 Lilu - Слёзы Или Дождь
-009 Vanyashiz Feat. Diezz - Поверь Мне
-010 Sound Hackers Ft. Masta – Я Так Хочу (Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213711A2CF5C6FF3F5B4470AA3906D88B48D3170
 ```
 
 https://mybot314.ru/tekegram_catalog/

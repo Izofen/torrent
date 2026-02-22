@@ -1,3 +1,332 @@
+###  Публикация: 552482   (448410) от 26.09.2012
+
+VA - Сладкая парочка.Только лучшие треки (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иракли и Даша Суворова - Нелюбовь
+02. Игорь Николаев и Юлия Проскурякова - Что-то в этом есть
+03. Владимир Пресняков и Наталья Подольская - Дождь
+04. Татьяна Овсиенко и Лолита - Танго двух подруг
+05. Лолита и Александр Маршал - Две любви
+06. Фристайл и Белорусские Песняры - Это все тебе кажется
+07. Вика Дайнеко и T - Killah - Мира мало
+08. Виктор Рыбин и Наталья Сенчукова - Дело к ночи
+09. Кай Метов и Натали Катэрлин - Солнышко мое
+10. Катя Нова - Что Такое Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1604160272D965429E374507FEBB75D4DE32FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248050   (448313) от 17.09.2018
+
+VA - Зайцев.нет: Лучшие новинки Сентября 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Van Dyk - Music Rescues Me 4:03
+02. Альбина - Не я 3:21
+03. Post Malone x Justin Bieber & Kanye West - No Reason 3:03
+04. Баста feat. Алсу - Мы с тобой 5:46(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33AF64A39CB3B64B82CCA34DD6EC97CA76859309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163758   (448284) от 06.09.2017
+
+VA - US Dance Airplay Hot 50 September 2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Walker – Tired Ftg Gavin James 03:12
+02. Phantoms Ftg Verite – Just a Feeling 04:44
+03. Afrojack & David Guetta Ftg Ester Dean – Another Life 03:28
+04. Axwell  Ingrosso – More Than You Know 03:22(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7314596A564BA1F1075406FC5CD6214B068553BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550034   (448168) от 26.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 81 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.Marradi - Rain And Tears
+02. T.Timmermans - Andrea With The Flowered Bag
+03. H.Marvin & The Shadows - Riders In The Sky
+04. Mario Battaini - Malaguena
+05. С.Панкратов & Б.Леготин - На тот большак
+06. The Ventures - Tequila
+07. R.Clauderman - I'm Not In Love
+08. Karunesh - Expansion
+09. Русские ДиДжеи - Чародеи
+10. Antonio De Lucena - Luceros(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39A5C5C849843A7BEC4F4CC87813E457CE47150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551532   (448165) от 26.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 83 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.Last - Morning
+02. Armik - Midnight Bolero
+03. Mario Battaini - El Relicario
+04. В.Резников - Ночь, прочь
+05. G.Zamfir - Limelight
+06. Ricky King - Lotos Blume
+07. Karunesh - Love Song
+08. In Common - Close Your Eyes
+09. Е.Дога - Кокетка
+10. Boris Zepyr - El Condor Pasa(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7C510A4D9E6BDB5A16BF03701E895DAD921EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552462   (448164) от 26.09.2012
+
+VA-New Age Style - Enigmatic 7 (2012) [MP3|~245 кб/с (V0)]<New Age, Enigmatic, Ambient>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: New Age, Enigmatic, AmbientПродолжительность: 02:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0461848925BE89B09D2B939F44F6F59BF8F416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550038   (448161) от 26.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 82 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Chen - Remember
+02. Omega - Finale
+03. Mario Battaini - Ol Vita
+04. Armik - Lover's Moon
+05. Д.Гаспарян - Fuad
+06. Klaas Jan Mulder - Symphonica
+07. Clous Van Mechelen - You Need Me
+08. Thors - Chinese Garden
+09. Г.Свиридов - Увертюра
+10. Candy Dulfer - Lilly Was Here(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6048BE865EDB9798BA28F1E83D6F4A94BA846348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549603   (448039) от 26.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 79 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravelli - Это было давно
+02. Chris Spheeris - Carino
+03. J.Emblow - Sophie's Choice
+04. А.Данилко - Собирая желтые листья
+05. Golden Sax - You Are Not Alone
+06. J.Last Orchestra - Condors Fly
+07. VA - Instrumental Theme
+08. Karunesh - Keeper Of Mystery
+09. А.Зацепин - Темы из кинофильмов VI
+10. Mario Battaini - Symphonie(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5231E0E973DF08BD6761E1533144CD17D14C68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549606   (448018) от 26.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 80 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.Last - Air On A G String
+02. М.Таривердиев - Мгновения
+03. Francesco Rossi - Tango Verano
+04. Jonny More - Sehnsucht Nach Dir
+05. Sirak - Yes Lsetsi Mi Anush Dzayn
+06. А.Артемьев - Шляпа
+07. F.Goya - Tornera
+08. Herz Aus Glas - Please, Rolease Me
+09. Ricky King - Brazilia
+10. Tilo Matelli - I Will Return(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D8986BA2436FF766E3E10932515A2BC9854268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551534   (447927) от 26.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 84 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.Last - Стенька Разин
+02. Pavlo - Fantasia (edit)
+03. Ян Табачник - Цыганские напевы
+04. David Arkenstone - The Blue Waves
+05. Karunesh - The Circle
+06. Armik - Piano Nights
+07. The Romantic Sax - The Greatest Love Of All
+08. А.Артемьев - Прощание
+09. Mario Battaini - Botta E Risposta
+10. The Phonic Orchestra - Strangers In The Night(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870660A70908D996739756C3247334EDDB63F194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163659   (447685) от 06.09.2017
 
 VA - Новинки С Разных Популярных MP3 Сайтов Vol.64 (2017) [MP3|320 Kbps] <Pop, House, Dance>
@@ -461,308 +790,6 @@ VA - Осенний Muz драйв (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECC32A92BBA4B9AB536ABFCBE336FC37BA9D1578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061749   (446426) от 11.10.2016
-
-VA - Осенняя бомба года от Европы Плюс. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446426.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Skott - Amelia
-002. Inna & 3 Sud Est - Mai Stai
-003. Dinah Nah - If I Were Sorry
-004. Drake & Partynextdoor - Wednesday Night Interlude(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BEE6BB4901905CA53FCFF6720D7B40E42A4E0B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943561   (446260) от 04.10.2015
-
-VA - Top 100 Club Tracks (September 2015) (2015) [MP3|320 кб/с]<Dance, Club, Club House, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AC-DC & MorganJ, Thomas Newson & MAKJ - Black In Black (Pyrology Mashup)
-02. Adam Lambert - Ghost Town (Viduta Remix)
-03. Adri Block - Have a Good Time (Club Mix)
-04. Alisa, Dev, NERVO, Kreayshawn, Kika - Hey Ricky feat. Kreayshawn feat. Dev feat. ALISA (Kika Remix)(   Читать дальше...   )Жанр: Dance, Club, Club House, ElectroПродолжительность: 08:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35095CB2AD40AFA8717786B7A8A970674599D9D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061698   (446244) от 11.10.2016
-
-VA - New Italo Disco Music (2016) [MP3|320 Kbps] <Pop, Italo Disco, Hi-NRG, Synthpop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446244.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fancy - A Voice In The Dark (Bringing The Light Mix)  6:49
-002. Albiero - Electronic Scout  6:23
-003. Birizdo I Am - Mademoiselle (Extended Version)  5:19
-004. Digital Dreams - Power Sound (Extended Version)  5:20(   Читать дальше...   )Жанр: Pop, Italo Disco, Hi-NRG, Synthpop, DanceПродолжительность: 11:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4DE33F3D910E01A57D224FB64B5B07D739FEBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552905   (446225) от 27.09.2012
-
-VA - Рашн Дэнс на DFm (2012) [MP3|256 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J'Well & Dmitry Eremyan - Маруся (Radio Edit)
-02. Max Vishnevsky - Кадриль (2012 mix)
-03. Ruslan Nigmatullin - La Cucaracha (Radio Mix)
-04. Братья Грим - Парашюты (DJ Aleksey Rubcoff Remix)
-05. Юлия Савичева - Сердцебиение (DJ Tarantino Remix)
-06. DJ Niki feat. Soda - Красивые слова (Radio Edit)
-07. DJ Vengerov feat. Сати Казанова - Буэнос-Айрес (Remix)
-08. Roma Kenga - Ты Будешь Счастливои? (Anton Orf & Dj Gladiator Radio Edit)
-09. DJ Smash - Young Hearts (Original Mix)
-10. Саша Зверева - Схожу С Ума (DJ Kostas & DJ Yonce Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B184D336B10752947E8F46AE4BDCD2A6B6CFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552781   (446088) от 27.09.2012
-
-VA - Шансон 2012 года 3 Части (2012) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446088.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Михаил Круг - Все сбудется (2:43)
- 2. Иван Кучин - Человек в телогрейке (5:20)
- 3. Сергей Наговицын - Дори-дори (3:35)
- 4. Катя Огонек - Станция Хакинск (5:05)
- 5. Геннадий Жаров - Не жалею... (3:41)
- 6. Сергей Трофимов - Снегири (2:59)
- 7. Семен Канада - Дом у дороги (3:54)
- 8. Виктор Королев - Милая (3:47)
- 9. Петлюра - В тихом ресторане (4:44)
- 10. Ефрем Амирамов - Аленка (3:53)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A281038C3A40A58C83C9E15A1E05B205453F3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163608   (446048) от 07.09.2017
-
-VA - Nature Sound For Meditation And Yoga (2017) [MP3|320 Kbps] <Relax, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446048.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Healing Yoga Meditation Music Consort - Good Night Yoga
-002. Mindfulness Meditation Music Spa Maestro - Mindful Road
-003. Meditation Music Zone - Sun Breeze Yoga
-004. Relaxation Meditation Songs Divine - Loving Kindness Meditation(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 07:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE595EF0EA31BE46F60ACF7A2ECD4E56CEAD937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164026   (445960) от 07.09.2017
-
-VA - Maschinen Metall Music (2017) [MP3|320 Kbps] <Metall, Heavy Metall, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445960.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aporya - Blood Rain
-002. A Day To Remember - Exposed
-003. Disharmonic Orchestra - Flushing the Primary
-004. A Day To Remember - Reassemble(   Читать дальше...   )Жанр: Metall, Heavy Metall, Hard RockПродолжительность: 11:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC74B58F966547523E5C94AAFC925385E6B7C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248085   (445937) от 18.09.2018
-
-VA - Deep House Collection Vol.185 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445937.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deep Forest - Sweet Lullaby (Eric Faria Remix)
-002. MBNN feat. Moonessa - They Say (Extended Mix)
-003. A-Mase & Sharliz - Sky  (Nu Gianni Remix)
-004. Sharam Jey & Jean Bacarreza   - Chasing (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech House, Vocal HouseПродолжительность: 14:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5537A8AE6CA8EFED4B44217C56BEF6A8AA57AEA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163792   (445935) от 07.09.2017
-
-VA - Relax Autumn Songs Of Rain (2017) [MP3|320 Kbps] <New Age, Deep Ambient, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445935.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Seven24 & Soty - Miss You (Original Mix)
-002. K.Markov - Space Age
-003. Ingo Herrmann - Sweet Bossa (Original Mix)
-004. Banco de Gaia - Burn the Witch(   Читать дальше...   )Жанр: New Age, Deep Ambient, RelaxПродолжительность: 08:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76741AF01276EFC8D7F9BD3AFFBCC4020FD53F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163882   (445817) от 07.09.2017
-
-Кино - Greatest Hits (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Троллейбус  2:57
-02.  Последний герой  3:07
-03.  Хочу перемен  4:55
-04.  Закрой за мной дверь  4:17(   Читать дальше...   )Жанр: RockПродолжительность: 02:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A641DEB768B9B02917FD9C6F3DEE9FD59B830C
 ```
 
 https://mybot314.ru/tekegram_catalog/

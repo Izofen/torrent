@@ -1,3 +1,32 @@
+###  Публикация: 1503362   (821344) от 18.10.2021
+
+VA - Hit Connection 2011.3 (2011) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elisa Tovati & Tom Dice - Il Nous Faut (3:08)
+02. MIKA - Elle Me Dit (3:41)
+03. Maroon 5 & Christina Aguilera - Moves Like Jagger (3:24)
+04. Rihanna - Man Down (4:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7FC47DFEB532C3FC296181331B483EF6D24A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503297   (821241) от 18.10.2021
 
 VA - Calming Acoustic Covers: 14 Chilled and Relaxing Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -717,35 +746,6 @@ Hazel English - Wake UP! (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82640E2E8B396F581EDBE3BBE902AFDEF3275047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504473   (810074) от 24.10.2021
-
-Lana Del Rey - Blue Banisters (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indie-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Text Book [00:05:03]
-02. Blue Banisters [00:04:52]
-03. Arcadia [00:04:23]
-04. Interlude - The Trio [00:01:14](   Читать дальше...   )Жанр: Indie Pop, Pop, Female VocalПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7655AFF505FCF473DEE80672E9278B4256FF160
 ```
 
 https://mybot314.ru/tekegram_catalog/

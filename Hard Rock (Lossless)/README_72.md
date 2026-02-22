@@ -1,3 +1,32 @@
+###  Публикация: 1627276   (237422) от 18.04.2023
+
+hManx - No Nails for Jesus (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gott Vergibt (00:03:37)
+02 - Ritalin (00:04:24)
+03 - Rette Dich (00:04:16)
+04 - Mutter (00:03:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44168BDA868F57CA54EE91E19C40EC198D0BACCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627344   (237417) от 18.04.2023
 
 Space Paranoids - Badlands Ride (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Psych>
@@ -717,35 +746,6 @@ Czakan - State Of Confusion (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEEE63EDF4B9DB7CE8BBA2E8ABEB83D25E141172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631739   (236111) от 07.05.2023
-
-The Answer - Sundowners (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236111.jpg" />
-</div>
-
-
-###  Подробнее
-
-После семилетнего перерыва The Answer вернулись. Их долгожданное и долгожданное возвращение сопровождается новым альбомом, отражающим душу группы, стремящейся не только возродить свою фирменную искру рок-н-ролла, но и загореться ярче, чем когда-либо прежде. Эти четверо ирландских рокеров перегруппировались и с головой окунулись в создание альбома, вобравшего в себя (   Читать дальше...   )01. Sundowners
-02. Blood Brothers
-03. California Rust
-04. Want You To Love Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA688A13B6BBE5A9E9F49473453585158A744F76
 ```
 
 https://mybot314.ru/tekegram_catalog/

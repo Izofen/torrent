@@ -1,3 +1,31 @@
+###  Публикация: 1379718   (837567) от 30.04.2020
+
+iExplorer 4.3.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
+
+iExplorer - утилита для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.04.2020Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226AB923C943BE498645A4BA1CE688D203C482EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379813   (837564) от 30.04.2020
 
 Viber 12.8.1.20 [Multi/Ru]
@@ -674,41 +702,6 @@ VA - House Vip (18.04.10) [MP3|192-320 kbps]<Electro House>
 08. Julien Creance - Take A Look (Morgan Delcourt Remix) (5:10)
 09. Krist Van D - Summer (Memories) (MK Schulz club mix) (5:31)
 10. La Roux - Bulletproof (Cherry Coke Remix) (5:04)(   Читать дальше...)Жанр: Electro House
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194319   (837034) от 21.04.2010
-
-VA - House Vip (19.04.10) [MP3|320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alchemist Project - Love Is Gone (Mike McPower Remix) (5:56)
-02. Andrea Kerubini - Yo DJ Pump This Party (Stefano Valli Big Pumping Mix) (6:12)
-03. Aria, Mark M., DJ Ortzy - Party In Miami (Jewelz Remix) (5:45)
-04. Bastian van Shield - Rock & Roll (Original Mix) (5:17)
-05. Caudill & Turnipseed - InsideOut (Radio Edit) (3:56)
-06. Cheese People - I Just Can Shoot (Relanium Mix) (6:42)
-07. Dirty Midget - In My Style ( Original Mix ) (5:16)
-08. DJ Jam - Like Goes (Main Mix) (7:04)
-09. DJ Jurij - I'll House You (Original mix) (7:15)
-10. Filgei - Forever (Upbeat Mix) (5:28)(   Читать дальше...)Жанр: Electro House
 
 ## Скачать торент
 ```bash

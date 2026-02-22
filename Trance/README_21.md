@@ -1,3 +1,32 @@
+###  Публикация: 1296964   (608531) от 19.04.2019
+
+VA - True Hits Vol.3 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O.B.M Notion - Despite Everything (Extended Mix)
+02. Photographer - Infinity (Steve Allen Extended Remix)
+03. HyperPhysics - Nightwalker (Extended Mix)
+04. Michael Milov feat. Claire Willis - Anywhere With You (Tom Exo Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E1B34BAAE1E791E67F0615FFED577613C2FFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231418   (607126) от 17.06.2018
 
 VA - Clubbers Culture (Classified Trance Tracks) (2018) [MP3|320 Kbps] <Trance>
@@ -713,35 +742,6 @@ VA - Ablazing Vol. 1 (Mixed by Rene Ablaze) (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:993BBDA344797F6330251CA8D10B042077E5B1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300738   (592799) от 07.05.2019
-
-Venetica - The Things We Left Behind (Extended Edition) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venetica - The Things We Left Behind (Original Mix)
-02. Venetica - Dying Of The Light (Original Mix)
-03. Venetica - Wide Open (Original Mix)
-04. Venetica - New Lease (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C921F732ADE9BBA9BBFAEB0D189D973D17A4A2E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

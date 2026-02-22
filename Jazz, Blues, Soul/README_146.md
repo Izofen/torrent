@@ -1,3 +1,90 @@
+###  Публикация: 1009115   (812182) от 20.04.2016
+
+Big Harp George - Wash My Horse In Champagne (2016) [MP3|320 кб/с] <West Coast Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home Stretch (04:14)
+02. Road Kill (02:44)
+03. Wash My Horse In Champagne (05:21)
+04. Cool Mistake (03:57)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D966C229CEA6615DE1D3B203104A0BB4D183E48E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008988   (812181) от 20.04.2016
+
+Curtis Salgado - More Than You Can Chew (1995) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Hell Withit (pt 1) (00:44)
+02. Little Charmer (04:46)
+03. I Don?t Care (05:13)
+04. Salt In My Wounds (05:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32667AF0A67D1722C32218C664A7242A959C7315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197662   (812140) от 09.01.2018
+
+Yusef Lateef - The Sounds of Yusef (1957) 1996, Original Jazz Classics [WavPack|Lossless|image + .cue] <Hard Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [11:15]
+02. Playful Flute [04:19]
+03. Love and Humor [06:13]
+04. Buckingham [05:11](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732FF8ED8E6350D4EFFA390958C079D382957D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197659   (812139) от 09.01.2018
 
 Rodney Green Quartet - Live At Smalls (2013) SmallsLive [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
@@ -659,93 +746,6 @@ Miles Davis - Miles In The Sky (1968) Remaster, 1991, Sony Records[FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:019860EBE863CCA01151267CC7BC916C4281EBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009524   (810164) от 21.04.2016
-
-Lonnie Johnson - Stompin' At The Penny (1994) [FLAC|Lossless|tracks + .cue] <Blues, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. China Boy
-02. Mr. Blues Walks
-03. Dippermouth Blues
-04. Trouble In Mind(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473FF43C25090DE40E74BFAE77202AE4BBF88DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009541   (810161) от 21.04.2016
-
-Bobby Womack - Resurrection (Japanese Edition) (1995) [FLAC|Lossless|image + .cue] <Soul, Smooth Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Ole Days 04:09
-02. You Made Me Love Again 04:12
-03. So High On Your Love 04:55
-04. Don't Break Your Promise (Too Soon) 04:59(   Читать дальше...   )Жанр: Soul, Smooth SoulПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2938175A84873E4B8CB4C76A7B06FCD43C17EDEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008990   (810160) от 21.04.2016
-
-Return To Forever - Romantic Warrior (1976) Remastered 1990 [APE|Lossless|image + .cue] <Jazz-Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medieval Overture
-02. Sorceress
-03. The Romantic Warrior
-04. Majestic Dance(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87CDAC2DEB494C063694FE2F33BD8CC995FDF44
 ```
 
 https://mybot314.ru/tekegram_catalog/

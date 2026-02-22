@@ -1,3 +1,96 @@
+###  Публикация: 1314342   (520403) от 13.07.2019
+
+Harlan Leonard - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' With The Rockets [3:12]
+02. Hairy Joe Jump (Southern Fried) [3:15]
+03. Contact [3:08]
+04. Snaky Feeling [3:31](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024B2D750FDF5560738D902AB51BE81179ECE536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534379   (520026) от 13.08.2012
+
+VA - Stax Records 50th Anniversary (2008) 3CD BoxSet [FLAC|Lossless]<Blues, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Otis Redding - Try A Little Tenderness [04:02]
+02. Veda Brown - Short Stopping [02:24]
+03. Johnnie Taylor - Cheaper to Keep Her [03:30]
+04. David Porter- I'm Afraid The Masquerade Is Over [04:46]
+05. Ollie & the Nightingales - I'll Be Your Anything [02:56]
+06. Mable John - Your Good Thing (Is About to End) [02:58]
+07. The Mad Lads - By The Time I Get to Phoenix [02:49]
+08. Rance Allen - I Got To Be Myself [02:53]
+09. Steve Cropper - In The Midnight Hour [03:39]
+10. Eddie Floyd - Yum Yum Yum (I Want Some) [02:51](   Читать дальше...   )Жанр: Blues, Soul, FunkФормат: 3CD BoxSet Collector's EditionПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560558   (519781) от 30.06.2022
+
+V.A. - Jazz Ambient Del Mar (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandro Comini & The Sagittarius Trio – Chet And Chet
+02. Rossella Graziani 4Tet – Love For Sale
+03. Velho 4 – De Novo
+04. Guido Guidoboni Quintet – Freddy Go(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DE54FC42BF78D5B941B837A5286E0ED3DAE0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 373266   (519652) от 08.08.2011
 
 Chris Botti - 14 albums (1995-2009) [FLAC|Lossless] <Smooth Jazz, Contemporary Jazz, Trumpet>
@@ -679,96 +772,6 @@ Cathy Jean - In the Remains (2011) [MP3|320 кб/с]<Blues, Modern Electric Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91FDDB6C0D7C1D9AE7AA638C65F050DF0A2AE47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314629   (517272) от 16.07.2019
-
-Marlene Rosenberg - MLK Convergence (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Violet [5:13]
-02. Togetherness [4:30]
-03. Not the Song I Wanna Sing [7:34]
-04. The Line Between [5:40](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42779119882CD5250DB53BA7DAE6EA1337E70600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241984   (517190) от 20.08.2018
-
-Lucky Millinder - 1951 - 1960 (2008) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chew Tobacco Rag [2:38]
-02. Georgia Rose [3:05]
-03. I'm Waiting Just For You [2:39]
-04. Bongo Boogie [2:40](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72B9F2A27A60E4BC472F3408214A5848F1C0D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534944   (516975) от 16.08.2012
-
-Abe Rabade - A Modo (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9 Contra 4 [11:06]
-02. Transito no. 3: Jamal's Mood [09:44]
-03. Arabesco Da Iria [05:57]
-04. A Modo [10:13]
-05. Perdas [06:52]
-06. Comico, Tonico, Sonico [06:42]
-07. Carmencita [12:26]Жанр: JazzПродолжительность: 01:03:13
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

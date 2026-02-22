@@ -1,3 +1,90 @@
+###  Публикация: 1093255   (935428) от 14.01.2017
+
+The Lew Tabackin Quartet - What A Little Moonlight Can Do (1994) Concord Jazz[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.What A Little Moonlight Can Do [05:15]
+ 02.Easy Living [07:23]
+ 03.I Wished On The Moon [06:52]
+ 04.Love Letters [05:03](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECE603317AE9280C356CDC0EDA4A995FF58FD91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093119   (935420) от 14.01.2017
+
+Glenn Kaiser Band - Octane (2008) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Glenn Kaiser Band / Broken Love  (03:35) 
+02|  Streetcorner Blues  (03:51) 
+03|  Roller Coaster  (03:00) 
+04|  Depends On Where You Stand  (03:39) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E820F1718C0D129370D650228F1CC64A5007A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093248   (935358) от 14.01.2017
+
+Dave Brubeck - Time Out / Gone With The Wind (1959) 2CD, 2010, Not Now Music[FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935358.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Time Out:
+01.Blue Rondo A La Turk [06:49]
+02.Strange Meadow Lark [07:26]
+03.Take Five [05:29](   Читать дальше...   )Жанр: CoolПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AE9BCD7C842C5343602C8FAA3D8B580093E5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753833   (935332) от 06.02.2014
 
 Andy Ausland - Lifescapes: Unwind: Piano Jazz (2012) [FLAC|Lossless]<Jazz>
@@ -727,93 +814,6 @@ Christian McBride Trio - Live At The Village Vanguard (2015) Mack Avenue Records
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED86EA5C2F26F1AC4E8C37D9530F7C6001474AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985784   (934117) от 12.02.2016
-
-Erik Truffaz Quartet - Doni Doni (2016) Foufino Productions[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Comptine (feat. Rokia Traore) [01:25]
- 02.Kudu [05:18]
- 03.Djiki'n (feat. Rokia Traore) [04:22]
- 04.Pacheco [06:09](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35F9B4A25B23C576A093B859FADB83FA368836F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985804   (934096) от 12.02.2016
-
-Dion - New York Is My Home (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aces Up Your Sleeve (3:04)
-02.  Can't Go Back To Memphis (4:21)
-03.  New York Is My Home (Feat. Paul Simon) (4:27)
-04.  The Apollo King (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A0C6B29328815C5903425CCC413DE856FE3B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093557   (934023) от 15.01.2017
-
-Natalie Cole - Sophisticated Lady (1996) MCPS[APE|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.This will Be [02:52]
- 02.Good Morning Heartache [04:21]
- 03.Touch Me [04:15]
- 04.Unpredictable You [03:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593771DDBA5A0ECD77F5ADB4F6FCB8328C53AF2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

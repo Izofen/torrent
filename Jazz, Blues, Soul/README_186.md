@@ -1,3 +1,87 @@
+###  Публикация: 1282684   (743839) от 13.02.2019
+
+Greta Matassa - I Wanna Be Loved (2009) Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broadway [5:03]
+02. Chan's Song [5:40]
+03. Alone in the World [4:56]
+04. I Wanna Be Loved [6:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580EEF15056EA188F2482D6AE8241B8A7C343FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783691   (743817) от 05.05.2014
+
+VA - Pure... Blues (2010) Box Set, 4 CD [FLAC|Lossless]<Blues, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта коллекция из 68 треков на 4 дисках проведет вас по маршруту всех стилей блюза от старинного кантри-блюза (Robert Johnson "Cross Road Blues", Son House "Death Letter Blues"), через городской, в том числе чикагский блюз (Nina Simone "Blues for My Mama", Billie Holiday "Billie’s Blues"), британский блюз (Jeff Beck "JB’s (   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 03:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DFC3157D22F43579990B6C0165963D99B5BC4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524482   (743768) от 16.01.2022
+
+Anita O'Day - The Complete Anita O'Day Verve / Clef Sessions (1952 - 1962) 9CD, 1999, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743768.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lover Come Back to Me [2:27]
+02. Lullaby of the Leaves [3:10]
+03. Rock and Roll Blues [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 09:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D427510AE274F6E6A66C319E3472A8FA3860A428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524438   (743545) от 16.01.2022
 
 Mick Grabham - Original Paint (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -658,93 +742,6 @@ Ziggy Marley - Ziggy Marley (2016) [FLAC|Lossless|image + .cue] <Blues, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E926C0FC68B9451B6279320DE8628EAF7AA53734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217079   (742263) от 05.04.2018
-
-Sam Green and the Midnight Heist - Onsette Return (2018) EP [MP3|320 Kbps] <Blues Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where You're From
-02. Leave It There
-03. Free
-04. Everybody Moving(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 00:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3793D483C5D16E063DEAD408536D38786F074C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020372   (742182) от 28.05.2016
-
-Tommy Smith Sextet - Evolution (2003) [APE|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Woodstock
-02.	Easter Island
-03.	Lisbon Earthquake
-04.	Siege Of Leningrad(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFAE94AB0414A3CA78B22786FB7F180B24CC148F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524695   (742142) от 17.01.2022
-
-VA - The D-Vine Spirituals Records Story, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Gospel, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gospel Wymics - It's a Shame How This World Has Changed [02:06]
-02. The Spiritual Wonders - Something That You Can Do [03:20]
-03. The M&N Singers - Stand by Me [02:35]
-04. The Shaw Singers - My Time Ain't Long [03:29](   Читать дальше...   )Жанр: Blues, Gospel, SoulПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665629173282A885C4228747CAD215B919186E20
 ```
 
 https://mybot314.ru/tekegram_catalog/

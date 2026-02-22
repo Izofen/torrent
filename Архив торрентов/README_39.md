@@ -1,3 +1,32 @@
+###  Публикация: 1612671   (1040100) от 16.02.2023
+
+VA - Trance 2023 | Trance Music | Trance Top 100 [MP3|320 Kbps] <Trance, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040100.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren & Cosmic Gate - REFLEXION (ASOT 2023 Anthem) (Extended Mix) (5:33)
+002. Gaia - Tuvan (AVIRA Extended Remix) (7:18)
+003. Ben Nicky x Distorted Dreams - Adagio For Strings (Extended Mix) (4:13)
+004. Luminn vs. Yoshi & Razner - Out Of The Cage (Extended Mix) (7:23)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13BB5AEB4107627DFA00A1081BAF8C09ACA35CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612635   (1040097) от 16.02.2023
 
 WinMerge 2.16.28 + Portable [Multi/Ru]
@@ -646,33 +675,6 @@ Keep It 1.9.6 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B2BF2BC2391FD38F808386BA4FCFBECD75B17B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439480   (1039956) от 13.01.2021
-
-HDR Pro 3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039956.jpg" />
-</div>
-
-
-###  Подробнее
-
-HDR Pro подчеркнет красоту ваших изображений с помощью одного слайдера. Инструмент работает на основе искусственного интеллекта и значительно улучшит любую из ваших фотографий.
-HDR Pro - это инструмент для создания HDR-изображения с расширенным диапазоном динамического освещения и деталей. Наш продвинутый алгоритм HDR берет на вход одно изображение и обеспечивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2021Разработчик: CluBees TechПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557EBE1E62A33914C782BB08A1B745DD63173A55
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1220248   (706197) от 18.04.2018
+
+Mose Allison - V-8 Ford Blues (1959 - 1961) 2016, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V-8 Ford Blues [02:17]
+02. Please Don't Talk About Me When I'm Gone [01:32]
+03. Baby, Please Don't Go [02:38]
+04. Hey, Good Lookin' [01:46](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A26BD3CC7D942841806A2008E36E1138D415120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220254   (706196) от 18.04.2018
 
 Prato Bell Luckin Trio - Through The Tunnel (2017) Self-Released [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -716,35 +745,6 @@ Gary Peacock Trio - Eastward (1970) Remaster, 2015, Sony Music[FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9763B6BF7889A9954F1A4F888468FDD2A589C9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026402   (704165) от 15.06.2016
-
-Seby Burgio - Bounce (2015) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Me [06:08]
- 02. Coffee Time [06:10]
- 03. Etnia [05:29]
- 04. Polkadots and Moonbeams [06:42](   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D43EB4D793EC49BDE2AA5482C7440AB67E9F69
 ```
 
 https://mybot314.ru/tekegram_catalog/

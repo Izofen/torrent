@@ -1,3 +1,102 @@
+###  Публикация: 1763413   (102809) от 01.12.2024
+
+Geoff Moore - A Beautiful Sound (2002) [FLAC|Lossless|tracks + .cue] <Acoustic, Pop Rock, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Beautiful Sound (4:12)
+02. God Believes in You (3:26)
+03. Surrounded (4:18)
+04. Impossible (4:56)(   Читать дальше...   )Жанр: Acoustic, Pop Rock, RockПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AABA998D3D553DC92789F49F9AAA92774B59984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489727   (102492) от 01.05.2012
+
+Филипп Киркоров - ДруGOY (Limited Edition 3 CD) (2011) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_102492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зу-Зу (3:58)
+02. Таньки грязи не боятся (3:11)
+03. В этот час (3:26)
+04. Даже если ты уйдешь (4:55)
+05. Птица в груди (3:22)
+06. Мир без твоей любви (3:35)
+07. Мы так нелепо разошлись (4:26)
+08. Алла (3:23)
+09. Кристина (5:47)
+10. На миллион одна (4:14)(   Читать дальше...   )2011Жанр: PopПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489224   (101841) от 28.04.2012
+
+Barbra Streisand - A Woman in Love - The Greatest Hits (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Guilty
+ 02 Tell Him
+ 03 People (Single Version)
+ 04 Papa, Can You Hear Me_
+ 05 I’ve Dreamed of You (Single Versi
+ 06 The Way We Were
+ 07 No More Tears (Enough Is Enough)
+ 08 Smile
+ 09 Stranger In a Strange Land
+ 10 In the Wee Small Hours of the Mor(   Читать дальше...   )2012Жанр: PopПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9504363E507DCD57B18A5FD5EA2564ABD18ED8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489070   (101824) от 28.04.2012
 
 Анне Вески - Звездная коллекция (2000) [MP3|320 kbps]<Pop>
@@ -694,96 +793,6 @@ VA - ZYX Italo Disco New Generation Vol. 27 (2025) 2CD, Compilation [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:911D7322F2F4A711817AFE09C04C39C13D32B2FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458042   (94629) от 26.02.2012
-
-Анжелика Агурбаш - Grand collection (2010) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821879   (91219) от 04.10.2025
-
-Mireille Mathieu - Mon credo (Best Of) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mon crédo (2:51)
-02. Une histoire d'amour (Love Story) (3:00)
-03. Pardonne-moi ce caprice d'enfant (3:22)
-04. Pourquoi le monde est sans amour (2:53)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 03:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C532A8DF5505679ED3E74C05FED6E3C4FE05191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487805   (90663) от 25.04.2012
-
-East 17 - Dark Light (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Get You Off My Mind (Crazy)
-02. Crazy Fool
-03. Nightlife
-04. Counting Clouds
-05. Break Ur Heart
-06. Friday Night
-07. Kiss Of Winter
-08. Broken Valentine
-09. Where Does Love Go
-10. You Must Be An Angel2012Жанр: Pop, DanceПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C90C77BD9B6781A9E05C43F45896A3F2BC821D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

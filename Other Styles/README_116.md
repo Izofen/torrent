@@ -1,3 +1,38 @@
+###  Публикация: 537626   (511469) от 21.08.2012
+
+Various artists - The Muppets Original Motion Picture Soundtrack (2011) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Muppets & Joanna Newsom - The Muppet Show Theme
+02. Walter - Muppet Studios, I Can't Believe It
+03. Mickey Rooney, Feist, Amy Adam - Life's A Happy Song
+04. Jason Segel & Kermit - I Haven't Seen The Old Gang
+05. Gonzo, Fozzie, Swedish Chef, K - Pictures In My Head
+06. Walter & Kermit - We Drive
+07. Paul Simon - Me And Julio Down By The Schoolyard
+08. Amy Adams & 80's Robot - That Spells Reno
+09. The Moopets - Rainbow Connection
+10. Fozzie, Walter, Kermit & Dr. T - Welcome back(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071C38B229115B52A41F1474D51622B157E293DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315791   (510698) от 22.07.2019
 
 Donald Quan - Zen Garden: Music For Relaxation (2013) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -748,41 +783,6 @@ Red Indian Chill - Shaman (2007) [MP3|~245 кб/с (V0)]<Native American, Ethno,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF78188E3092BF3BC1A6537B68EB49CE7B57820F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538006   (504839) от 28.08.2012
-
-Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In Pacific Ocean (Ethereal)
-02.Breath underwater (Ethereal)
-03.Flying in the deep blue (Ethereal)
-04.Across the Lagoon Nebula
-05.Son of the Sun
-06.Sailing the river Styx
-07.From the Beginning Till the End
-08.Touch of Blue light
-09.Ganymede
-10.K'ank'in(   Читать дальше...   )Жанр: New Age, Enigmatic, AmbientПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2622E9CA068BE2A2BAE908E3567827A0D89437C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

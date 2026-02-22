@@ -1,3 +1,32 @@
+###  Публикация: 1087266   (145107) от 28.12.2016
+
+VA - Стопудовые зимние хиты от Европы Плюс (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Akon - Hey Mama 3:50
+002.Emin - Ты Же Не Знаешь 3:42
+003.Great Good Fine Ok - Get Away 3:27
+004.Женя Вилль - Ветренная Любовь 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70EE612616B1F4516ABA027C45A5E306778DE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087301   (144958) от 28.12.2016
 
 VA - Полный отрыв. Зимние хиты (2016) [MP3|256 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Unknown 80's (part I) (2016) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58E0F6F232DB6497DBC2C3C5DD5E0499F4395533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087999   (142120) от 29.12.2016
-
-VA - George Michael - Best275z (1984 - 2014) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Careless Whisper 05:02
-02 Fastlove 05:27
-03 Freedom! '90 06:28
-04 Killer/Papa Was A Rollin' Stone 04:15(   Читать дальше...   )Жанр: PopПродолжительность: 03:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC2F54D78BBE8488ED5A392023312BFECD16781
 ```
 
 https://mybot314.ru/tekegram_catalog/

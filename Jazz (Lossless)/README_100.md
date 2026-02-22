@@ -1,3 +1,31 @@
+###  Публикация: 1208011   (780126) от 21.02.2018
+
+Pharoah Sanders - Izipho Zam: My Gifts (1969) 2006, Bomba Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prince of Peace [08:52]
+02. Balance [12:40]
+03. Izipho Zam [28:47]Жанр: Avant-Garde JazzПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7619A2C45ABA5A4D448271086710FE96F4E7B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208180   (780125) от 21.02.2018
 
 Earl Hines - Spontaneous Explorations (1964) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
@@ -716,35 +744,6 @@ Billy Eckstine - Mr. B. and the Band: The Savoy Sessions (1945 - 1947) 1995, Sav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B116111826B8DBA8DE6889F959BB3F55D21C383E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210957   (778273) от 05.03.2018
-
-Terry Gibbs - A Jazz Band Ball, Second Set (1957) 1998, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dipsy Doodle [03:34]
-02. Where Or When [03:45]
-03. I'm Getting Sentimental Over You [04:02]
-04. Hollywood Blues [04:59](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F39B8D78837C089C3A8AF37084AC27D4796F2D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

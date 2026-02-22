@@ -1,3 +1,31 @@
+###  Публикация: 1198365   (808403) от 11.01.2018
+
+iTubeDownloader 6.3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808403.jpg" />
+</div>
+
+
+###  Подробнее
+
+iTubeDownloader - загрузчик для Youtube, который делает загрузку видео с YouTube еще более приятной с помощью простых в использовании функций, таких как очереди загрузки, каналов и списка воспроизведения загрузки, просмотр и многое другое.
+
+Вы можете использовать iTubeDownloader для просмотра веб-страницы YouTube и быстро просматривать видео: когда вы то, что хотите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2017Разработчик: AlphaSoftПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33F01DEEE9DB926F95351C24A9982F20DCFB32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198354   (808397) от 11.01.2018
 
 Парни побоку / Boys On The Side (1995) DVDRip
@@ -685,35 +713,6 @@ Dropzone: Автоматизация рутинных действий
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DE4392225F4A4E457340ABA66B29C86FF2DE0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009661   (808230) от 22.04.2016
-
-VA - Solarstone pres... Pure Trance 4: Expanded (Mixed by Solarstone + Gai Barone) (2016) [MP3|320 кб/с] <Trance, Progressive House, Chillout, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wellenrausch - Die Maschine In Mir (Original Mix) (5:33)
- 02. Slam Duck - Leaving Places (Extended Mix) (6:27)
- 03. Tom Bro - Waves (Extended Mix) (8:55)
- 04. Forerunners - Lost In Translation (Extended Mix) (8:33)(   Читать дальше...   )Жанр: Trance, Progressive House, Chillout, AmbientПродолжительность: 08:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614665124BB769256C06C57D4421DF8D127A952E
 ```
 
 https://mybot314.ru/tekegram_catalog/

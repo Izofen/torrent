@@ -1,3 +1,32 @@
+###  Публикация: 1378078   (848031) от 24.04.2020
+
+Paul McCartney - 100% Paul McCartney (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe I’m Amazed (Remastered 2011)
+02. Uncle Albert / Admiral Halsey (Medley / Remastered 2012)
+03. My Love
+04. Band On The Run (Remastered 2010)(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19B95D04681FFC65A3D41A1FC47ACE03E0CCE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378083   (847954) от 24.04.2020
 
 Ronnie James Dio - 100% Dio (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
@@ -713,35 +742,6 @@ VA - Classic Pop & Rock Songs Hits Of The 80's (2020) [MP3|320 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C2DDFC0584E076A9ECB76FCFAEFB7C407E3AF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004970   (834158) от 08.04.2016
-
-VA - Love Lyric Compilation Rock Blues (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mungo Jerry - In the Summertime
-002. Monte Montgomery - Little Wing
-003. Mighty Mo Rodgers - Black Paris Blues
-004. Mike & The Mechanics - Mea Culpa(   Читать дальше...   )Жанр: Blues RockПродолжительность: 12:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD977424A9F05CDC6455BCA8EA33107B63DB5ACD
 ```
 
 https://mybot314.ru/tekegram_catalog/

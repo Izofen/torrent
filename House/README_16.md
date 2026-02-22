@@ -1,3 +1,108 @@
+###  Публикация: 767980   (863977) от 18.03.2014
+
+VA - Pure Ecstasy Vol 1 (Dreamy Deep House & Chillout Tunes) (2014) [MP3|320 кб/с]<Electronic, Deep House, Chill Out>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Erdal Kemahli - Prog Frog
+002. Image Sounds - Hands Up
+003. Michael Dodds - Hi Life
+004. Steve Cornish - Handy Escape Route
+005. Deep - Asleep On the Moon
+006. Pulsar - You Are My Universe
+007. Giorgos Zaras - Galactic Rain
+008. Summer Witch Music - Ambient Dreams
+009. A-P-M Productions - Ambient Forensics
+010. Michael Wheeler - Lunar Eclipse(   Читать дальше...   )Жанр: Electronic, Deep House, Chill OutПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A308D540B78B70C7941CCA630CE5B0C0A2410FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 302893   (863485) от 03.03.2011
+
+Zoo Brazil - Please Don't Panic (2011) [MP3|320 kbps]<Progressive House, Techno, Electro, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Zoo Brazil feat. Rasmus Kellerman - There Is Hope (
+02. Zoo Brazil - Empire
+03. Zoo Brazil feat. Shoddy Lynn - Manic
+04. Zoo Brazil feat. Leah - You Can Have It All
+05. Zoo Brazil feat. Rasmus Kellerman - Locus
+06. Zoo Brazil - Rampage
+07. Zoo Brazil feat. Gina Turrner - Bang It
+08. Zoo Brazil - Fix
+09. Zoo Brazil - Next
+10. Zoo Brazil feat. Rasmus Kellerman - Copycat(   Читать дальше...)Жанр: Progressive House, Techno, Electro, Tech HouseПродолжительность: 01:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB332F11B9D1C38059B9952E7295322F0B78C625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646293   (862545) от 20.04.2013
+
+Tinlicker - Remember The Future (2013) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Bombardier (feat. Thomas Oliver)
+02. There Is No Such Place
+03. Milkshakes & Cupcakes
+04. Applejuice
+05. Empty Skies (feat. Tessa Rose Jackson)
+06. Remember The Future
+07. I Will Surround You
+08. Turn Everything Around (feat. Allie Alvarado)
+09. Trektor (with Zonderling)
+10. The Last Night We Thought Was Real(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF796B5F2D9466808D32234CC2B364A29A38DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 303869   (861889) от 04.03.2011
 
 VA - Hed Kandi - World Series: America - Miami (2011) [MP3|320 kbps]<House, Dance, Dance POP>
@@ -713,93 +818,6 @@ VA - Clinique Mixed XI (2017)(by zweitausendeins Traum) [MP3|320 Kbps] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88C769B3CE1CDDDEDBEF8E0C6724EEE155CD7AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109552   (857486) от 28.02.2017
-
-VA - All Good In The Hood Vol.2: 20 Groove Monsters (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857486.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Frank Richmond - Mirror Of Truth 3:09
-002. Gee Lovers - Cops And Robbers 3:24
-003. Jonathan Goldman - Outside The Lines 3:13
-004. 6th Floor Groove Ensemble - Party Girls 2:55(   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C9C8CC27E49B8CEB8E4F36FFC33F067DA0C7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109597   (857460) от 28.02.2017
-
-VA - Re Confirmed: Deep House Selection Vol.2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bunched - Ame?lie's Symphony - Fabian Schumann Remix 6:32
-002. Joe Pycasso - Feel Love - Original Mix 8:21
-003. James Rod - Lipstick 78 - Schwarz 100 Remix 5:40
-004. Q Narongwate - Local Talk - Original Mix 5:42(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB91B2645C9C1677390A2A9F4F27077F6ABF0C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109702   (857456) от 28.02.2017
-
-VA - Only Tech House Tracks Vol.6 (Weekend Weapons) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Sabatini - Keep The Beat (Tony Puccio Remix)  5:38
-02.  Jens Mueller - Freshness (Original Mix)  7:18
-03.  Joseph Matera - Boca (Giulio Lnt Remix)  6:39
-04.  Alex Raimondi - White Lake (Max Sabatini & Alex B Remix)  6:07(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794E668A980684AE45FAA72B522B957065E88B4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

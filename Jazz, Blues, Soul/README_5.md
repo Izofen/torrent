@@ -1,3 +1,90 @@
+###  Публикация: 1601461   (1046445) от 01.01.2023
+
+Sancho - A Good Time Roll (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boring Autumn Rain (4:49)
+02. Lucky Man (3:49)
+03. I Love You (4:07)
+04. You Can Stop (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7DDFADFDE7420AAD2AA2115BE7FD4C6397AB1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601447   (1046442) от 01.01.2023
+
+Randall Breneman & Lincoln Grounds - Gun (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul & Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edge Of Destruction (2:58)
+02. Trouble (3:34)
+03. Wake Up (2:48)
+04. Gun (3:06)(   Читать дальше...   )Жанр: Blues, Soul & FunkПродолжительность: 00:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2390AFE7F975C3D8B8999E7C19977F7ACF959237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601465   (1046441) от 01.01.2023
+
+Stan Mosley - No Soul, No Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Back To Collect (4:12)
+02. Blues Man (No Soul, No Blues) (3:40)
+03. I Can't Get Next To You (4:10)
+04. This Train (1:26)(   Читать дальше...   )Жанр: R&B, Soul, BluesПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8A0EE4580B6BB597554575A75A1DECB5C25EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601441   (1046437) от 01.01.2023
 
 Jeanette Berger - Live in Studio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ Karin Krog & Georgie Fame - On A Misty Night (2018) Odin [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29E6C8F4238D357A00E3797DB3155E470F45444D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602335   (1046154) от 05.01.2023
-
-Shorty Rogers & Andre Previn Orchestra - Collaboration (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Delovely [2:28]
-02. Porterhouse [2:47]
-03. Heat Wave [2:38]
-04. 40 Degrees Below [2:43](   Читать дальше...   )Жанр: West Coast JazzПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A550390B0D5F0DC1C3868CA0FF28DA6857DAEAFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602331   (1046153) от 05.01.2023
-
-Lee Wiley - Music Of Manhattan (1951) 1998, Uptown Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street of Dreams [3:36]
-02. Oh, Look at Me Now [3:11]
-03. Hallelujah [1:49]
-04. Manhattan [4:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBC383FA146432BBAE15200D7F5D34A20121345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602293   (1046151) от 05.01.2023
-
-Justin Lavash Trio - E Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brick by Brick (2:52)
-02. Easy Train (3:52)
-03. Fox & Hounds (4:24)
-04. Avalanche (5:17)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E837AC9CA59BEE7C6BB48D2E90FDB421DFEA8D47
 ```
 
 https://mybot314.ru/tekegram_catalog/

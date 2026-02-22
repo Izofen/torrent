@@ -1,3 +1,32 @@
+###  Публикация: 996688   (879516) от 14.03.2016
+
+Mobile Deathcamp - Summon the Destroyer (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deferred Pilgrimage
+02. Perennial Extraction
+03. Execute the Mandate
+04. Tabarnak(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC719246C000C7E349A596A61736A61AB586A937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871651   (879472) от 22.02.2015
 
 Feed Her To The Sharks - Fortitude (2015) [MP3|320 кб/с]<Metalcore>
@@ -745,34 +774,6 @@ Killitorous - 1 Album/2 Singles (2014-2020) [MP3|320 Kbps] <Technical Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AABB9358AF56C6B8C87F900244E465EC6750D35E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374242   (875098) от 09.04.2020
-
-Litterbox Massacre - 2 Album/2 Singles (2019-2020) [MP3|320 Kbps] <Slamming Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875098.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2019) Welcome to the Scratching Post (EP)
-(2020) The Rise of Lucifur (UK)
-(2019) SinglesЖанр: Slamming DeathcoreПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77C388BCA8B6C7E5E2A507385F08B1999CC62CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

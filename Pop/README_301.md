@@ -1,3 +1,87 @@
+###  Публикация: 1598811   (161799) от 20.12.2022
+
+Abba - Voyage (2021) [OGG Vorbis|600 Kbps] <Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith In You
+02. When You Danced With Me
+03. Little Things
+04. Don't Shut Me Down(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FEA4AF60D838C3D36136B3BD525A212611C9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 668154   (161791) от 04.11.2023
+
+ВИА «ИВЕРИЯ» - Серия «Best Мелодия» (2008) [FLAC|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "ЛейтмотивЖанр: Retro|PopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D897900DC50B610CE40870FE3A59FAFD8D96CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659752   (161786) от 04.11.2023
+
+VA - 20 Золотых мелодий (2000) [FLAC|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Живой огонь - Пора в путь-дорогу [03:23]
+02. Живой огонь - Ой, цветет калина [03:27]
+03. Живой огонь - Живет моя отрада [03:19]
+04. Живой огонь - Вдоль по улице метелица метет... [03:27](   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D1B178F264CDBA84A124735437E8E1FF9A301D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 696778   (161780) от 04.11.2023
 
 ВИА "Сябры" - Grand Collection (2009) [FLAC|Lossless]<Pop, Retro>
@@ -668,93 +752,6 @@ Luis Rodriguez and Nathalie Aarts - Rhythm of My Heart (extended mix) (2023) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55783121402E1B395F1448A1A3C0E83D071A190A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432984   (161201) от 20.12.2020
-
-VA - Zumba Beats Strong 2021 (2020) [MP3|320 Kbps] <Electro Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samuel Kimkò, El 3mendo - Mi Novia - Radio Edit (3:15)
-02. Joe Berte - Choka Choka (feat. El 3mendo) - Club Radio Edit (3:04)
-03. Diego A., Oscar Yestera - Retumba Moombah - Original mix (3:29)
-04. Luka J Master, Carlo M. - Baila! (feat. Karlon Urbano) - Radio Mix (2:43)(   Читать дальше...   )Жанр: Electro Pop, DanceПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11152B7E3FDC8C0CA4E46C989CA816C21E22A04F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674240   (161099) от 05.11.2023
-
-VA - Car Music Dance Hits 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Jim - Beat It (2:30)
-02. Baris Turna - Right Now (Na Na Na) (2:24)
-03. Nickobella - Let Me Know (2:40)
-04. Old Jim - Balenciaga (2:24)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A89F15D063F5BD4B7E6F11D5AC9A1019A1BA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433305   (161077) от 20.12.2020
-
-Sade - Bring Me Home: Live 2011 (2012) RCA 88691977359 [FLAC|Lossless|image + .cue]< Sophisti-Pop, Adult Contemporary R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soldier of Love (6:17)
- 02. Skin (3:57)
- 03. Kiss of Life (5:04)
- 04. Love Is Found (4:05)(   Читать дальше...   )Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6605FAC84AC63740100D8ADEA0FEB8523D73CF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

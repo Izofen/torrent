@@ -1,3 +1,32 @@
+###  Публикация: 1580948   (329049) от 03.10.2022
+
+Monster Truck - Warriors (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warriors (03:34)
+02. Fuzz Mountain (03:42)
+03. Golden Woman (03:09)
+04. Live Free (02:59)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F7F917CE362B3C91CC7A0CA4538D35376670D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580892   (328987) от 03.10.2022
 
 Free Spirit - Pale Sister Of Light (2008) Japanese Edition, Reissue, 2009, Avalon Marquee Inc. [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -725,35 +754,6 @@ Britton - Until The Day We Die (1994) [FLAC|Lossless|image + .cue] <Melodic Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:386063815EED73C2A9CE536C1D96EE0E61EC0AF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422051   (313144) от 07.11.2020
-
-Tony Carey's Planet P Project - G.O.D.B.O.X. 4CD (2014) [FLAC|Lossless|tracks + .cue]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1931 ( Belive It )
-02. My Radio Talks To Me
-03. A Sanitation Problem
-04. The Others Side Of The Mountain(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 04:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487F9EDEFA0AA07C500D5FCC89C03E96914F057B
 ```
 
 https://mybot314.ru/tekegram_catalog/

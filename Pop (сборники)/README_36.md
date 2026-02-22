@@ -1,3 +1,32 @@
+###  Публикация: 1019564   (747865) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 1 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - The Loco-Motion ( 1988 )
+02. Modern Talking - You're My Heart, You're My Soul ( 1984 )
+03. Bad Boys Blue - Pretty Young Girl ( 1985 )
+04. Silent Circle - Sib Dub Dua ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF11C526BBEE87A06A512455B6198E26CB2C260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396498   (746839) от 15.07.2020
 
 VA - Modern Disco Fever (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
@@ -716,35 +745,6 @@ VA - De Top 100 Aller Tijden 1986 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0DD72BA9E99D4A3F9FCD9F4A263050CE19A3CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397024   (741367) от 19.07.2020
-
-VA - German Top 100 Single Charts 17.07.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apache 207 - Bläulich
-02. Kontra K - Tiefschwarz (feat. Samra)
-03. Jawsh 685, Jason Derulo - Savage Love (Laxed - Siren Beat)
-04. KC Rebell, Summer Cem, Loredana - GEH DEIN WEG (feat. Loredana)(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568FB144F98B49B3CDB987FB4BA532D2DC5CE155
 ```
 
 https://mybot314.ru/tekegram_catalog/

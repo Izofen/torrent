@@ -1,3 +1,177 @@
+###  Публикация: 1815862   (4788) от 01.09.2025
+
+Huntress - Studio Albums (4 releases) (2010-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Huntress - американская хэви-метал группа из Хайленд-Парка, Калифорния, создана в 2009 году.2010 - Off With Her Head (EP)
+2012 - Spell Eater
+2013 - Starbound Beast
+2015 - StaticЖанр: Heavy MetalПродолжительность: 02:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6504B50137E67CCD3A7C1A2688B8532F592CB7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815936   (4787) от 01.09.2025
+
+Slant KX - Endless Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Endless Love (2:55)
+02.  Jangle My Frame (3:33)
+03.  Back in Your Youth (2:16)
+04.  Wasting Hours (4:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C4805DEF4C0E06EF928D5814418D33F94B796E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815938   (4785) от 01.09.2025
+
+Steve Fair - Play Fair (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Play Fair (3:33)
+02.  Blown Away (3:25)
+03.  Bench Seat (4:58)
+04.  Who's Truck We Takin' (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7F137FDBE9DBF74C0566F6FE97C4E6009ED18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815925   (4781) от 01.09.2025
+
+Maria Oswen - Nu Woman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Be the Woman You Deserve to Be (3:05)
+02.  Did I Just Seduce You (4:00)
+03.  Give Me Your Energy (3:12)
+04.  Tantra (3:12)(   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF4D38999E02385AA33DBF456649BA2B448CB51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815933   (4777) от 01.09.2025
+
+No Bull - Rock N Roll Remains Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Overdrive (3:25)
+02.  Straight up Rough (3:17)
+03.  Rock Away Your Ills (4:20)
+04.  Blown a Fuze (5:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4ECE4C34D914EEF7E66E3B477E8553DFCE425A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815854   (4771) от 01.09.2025
+
+Evocatus - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Evocatus - метал-группа из Австралии, основана в 2012 году.2014 - Evocatus (EP)
+2017 - Mortem in Deos
+2020 - Path to Tartarus
+2025 - Inevitable Death(   Читать дальше...   )Жанр: Heavy/Thrash Metal, Melodic Death MetalПродолжительность: 03:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B59F17ED7164D2B3C0603BAA29A619103314621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815922   (4770) от 01.09.2025
 
 Makiisma - The Heart Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -571,180 +745,6 @@ Baba Blues - Glimmer of Gold II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EB3634D276153C638ADF36FCD710FDDD7CCC06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816024   (4393) от 04.09.2025
-
-Ami Taf Ra - The Prophet and The Madman (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Gospel>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak to Us (Intro) [00:01:09]
-02. How I Became a Madman [00:06:53]
-03. The Prophet [00:08:45]
-04. God [00:04:08](   Читать дальше...   )Жанр: Jazz, GospelПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830783ED7B8D48E425DA0894711F0C61FFDF0A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816292   (4391) от 04.09.2025
-
-Yates McKendree - Need To Know (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  BURNIN’ TEARS (2:57)
-02.  NEED TO KNOW YOU BETTER (3:08)
-03.  RUN IT IN THE GROUND (2:53)
-04.  I DON’T CARE (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299E8389D7EA416E17831FB9410EE223FC3B40BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816339   (4390) от 04.09.2025
-
-Pearly Drops - The Voices Are Coming Back (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delusional On Sunset Blvd [00:03:34]
-02. Ratgirl [00:03:28]
-03. Mermaid [00:04:09]
-04. Shallow [00:03:36](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0176E943882261C4DBE390B56A0746474DDAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816271   (4389) от 04.09.2025
-
-Bushfire - Snakes Bite Tales (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cult of Conformity (4:18)
-02.  Force of 1000 Suns (4:36)
-03.  Dead Man's Hand (4:21)
-04.  Self-Inflicted Bite (4:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F938233ED285DE466292075894214E95B77B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816277   (4388) от 04.09.2025
-
-James Big Jim Johnson - Highway Howlin (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gasoline in My Veins (3:12)
-02.  Sidebar Queen (2:48)
-03.  Red Lights & Leather Boots (3:18)
-04.  Devil’s in the Backseat (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100F71B16B2A22D0048A38A2CD5FF729F4E1C8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816291   (4387) от 04.09.2025
-
-Unen - Forever Winter (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Prelude For The Wicked (2:01)
-02.  My Love's Broken (4:59)
-03.  In My Bones (4:23)
-04.  Black Heart (5:45)(   Читать дальше...   )Жанр: Hard Rock, Symphonic MetalПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64AC65B85CC6DC304C52266680A50AD47609A33
 ```
 
 https://mybot314.ru/tekegram_catalog/

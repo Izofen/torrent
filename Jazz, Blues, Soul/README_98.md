@@ -1,3 +1,90 @@
+###  Публикация: 1493888   (892414) от 05.09.2021
+
+Ray Mahumane - 20_20 Vision (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left Turn (5:14)
+02. The Funk Starts Here (feat. Jan Beiling) (4:39)
+03. Happy Feelings (feat. Kevin Iszard) (4:38)
+04. Home Grooves (feat. Kirt Dallaway) (4:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C02808C1F3CBC71FA71CC6E0881D794CCEC076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371214   (892127) от 30.03.2020
+
+The Oscar Peterson Trio - Canadiana Suite 1964 (2008) Limelight [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballad To The East [4:08]
+02. Laurentide Waltz [5:21]
+03. Place St. Henri [3:58]
+04. Hogtown Blues [3:41](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760AFD4FF25ACBF99437FCDAB9496E1B9C1697F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370941   (891886) от 30.03.2020
+
+Roomful Of Blues - In A Roomful Of Blues (2020) [FLAC|Lossless|tracks+ .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Can I Do? (03:04)
+02. You Move Me (03:22)
+03. In a Roomful of Blues (03:31)
+04. Phone Zombies (03:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA27DE8FAFC44BA82360E7316B71223FB5B2FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371350   (891878) от 30.03.2020
 
 Budda Power Blues - Live 2019 (2020) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -684,93 +771,6 @@ VA - Best Audiophile Voices Selection (2006) [FLAC|Lossless]<Jazz, Vocal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494233   (890820) от 06.09.2021
-
-Jack Jezzro - Best Of Green Hill Music The 50s Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only You
-02. My Special Angel
-03. Theme From A Summer Place
-04. Put Your Head On My Shoulder(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55001477C3A4CBEF4352F1AF7FAC59DF8881755B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510769   (890757) от 07.03.2016
-
-VA - Too Late, Too Late Blues (1993-1999) 13 CD /Document Records/ [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Document Records - лэйбл, специализирующийся на переиздании записей блюза, кантри, госпела и джаза. Был основан в 1986 году австрийским коллекционером Джонни Партом, который решил выпустить полное собрание довоенных блюзовых пластинок.Список альбомов:
-Newly Discovered Titles And Alternate Takes – Volume 1 (1926-1944)
-More Newly Discovered Titles & Alternate Takes, Volume 2 (1897-1935)
-More Newly Discovered Titles And Alternate Takes, Volume 3 (1927-1960)(   Читать дальше...   )Жанр: Blues, Folk, World, & Country, JazzФормат: CD, Compilation, RemasteredПродолжительность: 16:03:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494122   (890539) от 06.09.2021
-
-Johnnie Red & The Roosters - In the Red Zone (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Internal Revenue Blues (3:24)
-02. Be Gone (6:32)
-03. Way Past Low Down (2:50)
-04. Temptation Blues (4:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B6190C1E90D62728A0FBB9A4EB80718E42BD1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

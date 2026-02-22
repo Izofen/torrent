@@ -1,3 +1,178 @@
+###  Публикация: 1397762   (737596) от 22.07.2020
+
+The Sugarcubes - Life's Too Good (1991) Recorded April 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737596.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Traitor
+A2 Motorcrash
+A3 Birthday
+A4 Delicious Demon(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927F0DB50C4417601C4F1B32DAE43A095DCF26B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397774   (737585) от 22.07.2020
+
+Родриго Фоминс и Группа «Ремикс» - Поет Иго (1989) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737585.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Крылья
+(А. Херманис – Р. Фоминс)
+A2 Грибной Дождь
+(Д. Тухманов – С. Кирсанов)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDED09D127024EC26AA4B769EBD6CDDEA3583CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527110   (737329) от 27.01.2022
+
+The Police - Дискография (1978 - 1983, 1993) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <New Wave, Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737329.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Police — британская рок-группа, сформированная в Лондоне в 1977 году. Трио состояло из британцев Гордона Самнера (Стинг) (вокал, бас-гитара) и Энди Саммерса (гитара, вокал) и американца Стюарта Коупленда (ударные, перкуссия, вокал).1978 - Outlandos d'Amour
+1979 - Reggatta de Blanc
+1980 - Zenyatta Mondatta
+1981 - Ghost In The MachineЖанр: New Wave, Pop Rock, Classic RockПродолжительность: 08:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B693B7D9C33DD0FC7BAB201C09B0CF8FCDF97E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527127   (737294) от 27.01.2022
+
+Kiss - Destroyer (45th Anniversary Super Deluxe) (1976) remix 2021 [DTS-ES Discrete 6.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенды хард рока - группа KISS - в 2021 году отметили  45-летие выхода альбома "Destroyer" выпуском обновленной версии, получившей название "KISS – Destroyer 45th", в виде супер-пупер-мульти-делюкс-бокс-сета)) из 4 компакт-дисков, Blu-ray Audio и кучи бумаги - вплоть до подтвержденного членства в Армии Кисс :mrgreen: .
+Для наполнения контента (   Читать дальше...   )01. Detroit Rock City (5:15)
+02. King Of The Night Time World (3:20)
+03. God Of Thunder (4:16)
+04. Great Expectations (4:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331280F3E3E6C692114FA5562272C3F804E5E5BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527262   (736922) от 28.01.2022
+
+Stone - Studio Albums (1988 - 1991) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Speed/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stone - финская трэш-метал-группа, образованная в Кераве в 1985 году.1988 - Stone
+1989 - No Anaesthesia!
+1990 - Colours
+1991 - Emotional PlaygroundЖанр: Speed/Thrash MetalПродолжительность: 03:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6EECB4FD1BFAAE3121B78F44340EB12F02333B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527273   (736879) от 28.01.2022
+
+Armin van Buuren - Imagine (2008) 2LP Reissue 2021 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] ] <Trance, Progressive Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736879.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Armin van Buuren - Imagine
+ A2. Armin van Buuren - Going wrong (with Dj Shah feat. Chris Jones)
+ B1. Armin van Buuren - Unforgivable (feat. Jaren)
+ B2. Armin van Buuren - Face to face(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9931F04827987327DCDE77C50042EC63C316FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527582   (736425) от 29.01.2022
 
 Mike Morton Non Stop Party Show Vol. 1 (1973) 30 Great Sounds [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop, Sound-alike>
@@ -566,181 +741,6 @@ VA - Антология советского киношлягера - Любим
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A80D841D90B62676494D323C24E9D01F0E180ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866856   (726101) от 13.02.2022
-
-Various Artists - Любимые песни из фильмов  /Movie Songs (1998) [FLAC 2.0 (image+.cue)|16/44,1 (MC-Rip)]<Soundtrack/Sound-Alike>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Will Go On - "Титаник"
-02. Tomorrow Never Dies - "Завтра не умрёт никогда"
-03. Girl, You,ll Be A Woman Soon - "Криминальное чтиво"
-04. Streets Of Philadelphia - "Филадельфия"(   Читать дальше...   )Жанр: Soundtrack/Sound-AlikeПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECD299A21D9D284D6A4D25CAE019DE1A40EE08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284878   (724474) от 24.02.2019
-
-Майя Кристалинская - В Подмосковье Ловятся Лещи (1975) [FLAC 1.0|96/24|tracks+.cue|Vinyl-Rip] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В Подмосковье ловятся лещи
-02. Добрый мой друг
-03. Довоенное танго
-04. Я Ваша ВеснаЖанр: Pop, RetroПродолжительность: 00:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90AEA6DA2EC770ACC48605C2C5F5FC73E157DA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 891917   (721449) от 25.04.2015
-
-Queen - The Game (1980) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Play The Game  3:25
-2. Dragon Attack  4:20
-3. Another One Bites The Dust  3:34
-4. Need Your Loving Tonight  2:49(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E839A3808BD048268DDE74DFE13BF83483E7895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400234   (721186) от 04.08.2020
-
-Peter Frampton - Frampton Comes Alive! (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Roll, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721186.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Something's Happening
-A2 Doobie Wah
-A3 Show Me The Way
-A4 It's A Plain Shame(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A392C26F32F76170AE5A2889CED2F8F19E0F3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218827   (719116) от 11.04.2018
-
-Deep Purple - In Rock (1970) Repress, 1973, Warner Bros. Records [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719116.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Speed King (4:23)
-A2. Bloodsucker (4:15)
-A3. Child In Time (10:17)
-B1. Flight Of The Rat (7:57)(   Читать дальше...   )Производство: Warner Bros. Records - WS 1877Жанр: Hard RockПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A5FCFA08692C7D54609C9328EB3046AABD2400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400460   (719014) от 05.08.2020
-
-Matia Bazar - Tournee' (1982) Recorded 1979 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719014.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Tram = Трамвай
-A2 Non E 'Poi Tanto Male = Не Е Лошо Така
-A3 Ragazzo In Blue Jeans = Момчето В Сини Джинси
-A4 Per Amare Cosa Vuoi? = За Да Ме Обичаш, Какво Искаш?(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2D2AA65E2A06C6A9ABBEBD33EA5841AB65538A
 ```
 
 https://mybot314.ru/tekegram_catalog/

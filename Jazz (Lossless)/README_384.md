@@ -1,61 +1,3 @@
-###  Публикация: 1804184   (65701) от 28.06.2025
-
-Georgia Mancio & Alan Broadbent - Songbook (2017) Roomspin Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey Home [4:34]
-02. The Last Goodbye [5:23]
-03. Someone's Sun [3:20]
-04. Cherry Tree [5:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E6708CA09C1688008D18A74FC98A8F7FD75A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804264   (65692) от 28.06.2025
-
-Paul Brown - So Much To Say (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  So Much To Say (3:57)
-02.  Summertime (4:17)
-03.  Vice Versa (4:13)
-04.  My Sweet Baby (3:47)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446BF38C14540AF3B829C49F46877FCF7F317739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804356   (65619) от 29.06.2025
 
 Bennie Green - with Art Farmer (1956) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool>
@@ -745,6 +687,64 @@ Horace Silver - Kind Of Silver (1952 - 1965) 10CD, 2010, House Of Jazz [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33BF4026F253D6067FDF2A803FB06F92EE43B5C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807432   (65160) от 19.07.2025
+
+VA - Cooking Dinner Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Esperanza Spalding - I Know You Know (3:45)
+02.  Vanisha Gould - I Can Say To You (4:13)
+03.  Hiromi - Another autumn (From "BLUE GIANT" Soundtrack) (2:32)
+04.  Richie - Set It Free (4:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A6ACB720D2CC7748929E6A1401E53B09BCCEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807436   (65158) от 19.07.2025
+
+VA - Jazz Verano (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Louis Armstrong - Summertime (4:56)
+02.  John Legend - Summertime Blue (3:30)
+03.  Samara Joy - Flor de Lis (Upside Down) (5:37)
+04.  Jeff Goldblum & The Mildred Snitzer Orchestra - In The Wee Small Hours Of The Morning (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CCDBE9BB7EFD08EFC47A91E3513B7CDCDF676F
 ```
 
 https://mybot314.ru/tekegram_catalog/

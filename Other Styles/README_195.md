@@ -1,3 +1,32 @@
+###  Публикация: 1759383   (37919) от 08.11.2024
+
+Комбинация - Комбинация (2024) [FLAC|Lossless|WEB-DL|tracks] <OST, Pop>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Russian Girls (Radio Edit)
+2. Хэй, мама
+3. Echoes across the sea (Кирилл Бородулев)
+4. Пойдем со мной(   Читать дальше...   )Жанр: OST, PopПродолжительность: 01:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A383786756C1C4F41C53B556F47B561669E94EC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759382   (37884) от 08.11.2024
 
 Комбинация - Комбинация (2024) [MP3|320 Kbps] <OST, Pop>
@@ -718,35 +747,6 @@ David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C92909C9343F094E2816B92F859210B62CA1C571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764212   (34410) от 12.12.2024
-
-Andrés Segovia - The Segovia Collection (Vol. 9): The Romantic Guitar (1991) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Classical guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chant du Paysan, Op. 62, No. 2 (2:34)
-02. Waltz, Op. 12, No. 2 (2:06)
-03. Song Without Words, Op. 30, No. 3 (2:21)
-04. Canzonetta (4:32)(   Читать дальше...   )Жанр: Classical guitarПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83814E612EE5159ED003BEBDA5FB696BD5C85236
 ```
 
 https://mybot314.ru/tekegram_catalog/

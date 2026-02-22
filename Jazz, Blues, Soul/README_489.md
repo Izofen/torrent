@@ -1,3 +1,31 @@
+###  Публикация: 1194269   (157963) от 24.12.2017
+
+Billy Harper - The Believer (1980) 2009, BMG [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is It Not True, Simply Because You Cannot Believe It? [19:56]
+02. I Do Believe [04:37]
+03. Believe, For It Is True! [12:12]Жанр: Post-BopПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F80D46CBD80E393016846BE6976087AA4335B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194276   (157960) от 24.12.2017
 
 Clayton-Hamilton Jazz Orchestra - Absolutely! (1994) MLake Street Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -733,35 +761,6 @@ Dexter Gordon - Ca'Purange (1972) 1999, Original Jazz Classics[FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDE3056DC6928593236F44DD9D174A73E0ADF181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085612   (156394) от 22.12.2016
-
-VA - Sexy Beach Jazz: The Very Best of Cafe Chill and Summer Relaxing Smooth Jazz Lounge (2016) [MP3|320 Kbps] <Smooth Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soleil Fisher - After the Echoes - Instrumental Bar Mix
-02. Burning Lipps - Near or Far - Erotic Beach Love Mix
-03. Eliane Davis - In the Sun - Chillout Mix
-04. Dial J for Jazz - The Smooth Soul of Life - Guitar Del Mar Mix(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 01:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4589970D6FC53A9A9AC29BDE3B32963522706369
 ```
 
 https://mybot314.ru/tekegram_catalog/

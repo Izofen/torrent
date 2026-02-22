@@ -1,3 +1,38 @@
+###  Публикация: 164307   (985434) от 08.01.2010
+
+Thunderdome - Alles Naar De Klote (2009) [MP3|192-320 kbps]<Hardcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Waldhaus & Stormtrooper - Agony
+02. Broken Rules - Dirtbox
+03. Armageddon Project - Beat Conductor
+04. Stormtrooper - Neet My Clones
+05. Tymonnonlinear - Dynamics
+06. Broken Rules - Minimize It
+07. Tymon & Negative A - Metaphusical
+08. Ophidian & Tapage - Troubled Assets
+09. Life:::Runs:::Red Meets Tymon - Distorture
+10. Tymon Feat Betty Haze - Weapons Of War(   Читать дальше...   )Жанр: HardcoreПродолжительность: 03:37:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 164459   (985432) от 08.01.2010
 
 Caricature Auto Vector 1.0.3655.33297 [Eng]
@@ -693,32 +728,6 @@ Status Quo: Pictures - Live At Montreux (2009) [720р] BDRip
 ###  Подробнее
 
 Жанр: RockАктеры: Francis Rossi (guitars, vocal), Rick Parfitt (guitars, vocal), Andrew Bown (keyboards, vocal, guitars), John Rhino Edwards (bass, vocal), Matthew Letley (drums, percussion)Перевод: ОригинальныйСубтитры: NoneЯзык субтитров: нетФормат: MKVПродолжительность: 01:40:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164340   (985371) от 08.01.2010
-
-Salfeld Child Control 10.203.0.0_RU 10.203.0.0 RU [только русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Salfeld Child Control ограничивает временя, проводимое вашими детьми за компьютером - как только выделенное им время закончится, компьютер автоматически выключится и повторный вход будет возможен только после ввода пароля. Ограничение можно ввести как по общему времени (например, не более 1 часа в день), так и по периоду времени, когда можно работать (например, с 22:00 до 8:00 доступ запрещен). Кроме этого, Salfeld Child Control позволяет запретить посещение нежелательных сайтов, а также заблокировать доступ к определенным дискам и папкам. Наконец, можно установить блокировку запуска тех или иных программ и внесение изменений в системный реестр. Программа ведет лог-файл всех событий.
 
 ## Скачать торент
 ```bash

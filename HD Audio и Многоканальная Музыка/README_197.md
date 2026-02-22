@@ -1,3 +1,176 @@
+###  Публикация: 1792193   (67589) от 20.04.2025
+
+Soulfly - Soulfly (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67589.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Eye For An Eye
+A2. No Hope = No Fear
+A3. Bleed
+A4. Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A853388902A5C0C43F250DEBC588A3E5FB7CE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792767   (67588) от 20.04.2025
+
+Tunde Adebimpe - Thee Black Boltz (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thee Black Boltz [00:00:36]
+02. Magnetic [00:02:30]
+03. Ate The Moon [00:04:01]
+04. Pinstack [00:03:07](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743EE92A21E50DC7E6053EFB0DCD8BD8D2795A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792745   (67586) от 20.04.2025
+
+Melvins - Thunderball (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Grunge, Rock, Sludge Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King of Rome (3:09)
+02. Vomit of Clarity (2:04)
+03. Short Hair With A Wig (11:05)
+04. Victory of the Pyramids (9:36)(   Читать дальше...   )Жанр: Grunge, Rock, Sludge MetalПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E130273F7ED25A552B43B68596F7E5764A5AD53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792143   (67585) от 20.04.2025
+
+Dies Irae (Mexico) - Studio Albums (3 releases) (1998-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Gothic Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dies Irae - группа, играющая атмосферный метал/пост-рок из Леона, Гуанахуато, Мексика. Основанная в 1994 году, изначально исполняла мрачный, мелодичный дэт-метал. Распалась в 2002 году, воссоединилась в 2009 году.1998 - Ethereal
+2001 - Naive
+2011 - Secret Veils of PassionЖанр: Melodic Death/Gothic Metal, Progressive RockПродолжительность: 03:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6914DC144D1DBC0D4C40FEA2FB8C1CF3D0DB173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792601   (67584) от 20.04.2025
+
+Dark Flood - Studio Albums (4 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Flood - метал-группа из Оулу, Финляндия, основанная как Flood в 1996 году, и сменившая название на Dark Flood в 1998 году.2004 - Still Liberty
+2006 - The Dead Lines
+2014 - Inverno
+2023 - Illusion of LightЖанр: Progressive Melodic Death MetalПродолжительность: 03:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5A7D27403ED9FF7C71CB5DF320904DD8C74C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792614   (67583) от 20.04.2025
+
+Davido - 5ive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five By Alhanislam [00:01:11]
+02. Anything [00:03:02]
+03. Be There Still [00:03:15]
+04. CFMF [00:03:09](   Читать дальше...   )Жанр: R&BПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353A6F42205C9858F7072790361FFC7014D7E823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792290   (67581) от 20.04.2025
 
 Johnny Raducanu - Confessions (1979) Seria Jazz – Nr. 16 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Contemporary Jazz, Smooth Jazz, Fusion>
@@ -571,177 +744,6 @@ Cosmic Cathedral - Deep Water (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93CF93FDD660B5D740CA33B697E47C69CDC48A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792871   (67506) от 24.04.2025
-
-Fear Factory - Genexus (2015) [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67506.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Autonomous Combat System
-A2 Anodized
-A3 Dielectric
-B1 Soul Hacker(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD3AF15189B6011AC2F226597EA9F9FCF051BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793219   (67505) от 24.04.2025
-
-Marc Bolan / T. Rex - Archived records 1967, 1972 (1991) Compilation, Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classic Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67505.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Debora
-A2 Mystic Lady
-A3 Rock On
-A4 Spaceball Ricochet(   Читать дальше...   )Жанр: Classic Rock, GlamПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87504053DF098095672B8E3DCE58F715D5140216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793490   (67502) от 24.04.2025
-
-Primal Fear - Far Away (2025) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away (4:18)Жанр: Heavy MetalПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F39DDD0ABFCF2839E7585E32C918D1790A0F15C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793510   (67500) от 24.04.2025
-
-Ancient Bards - Artifex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luminance and Abyss (3:08)
-02. My Prima Nox (5:40)
-03. The Vessel (5:58)
-04. The Empire of Black Death (5:10)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330396B94D573BA6C73445625CFEC30ED53CBC6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792958   (67499) от 24.04.2025
-
-Soulfly - Primitive (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67499.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Back To The Primitive
-A2. Pain
-A3. Bring It
-A4. Jumpdafuckup(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 00:52{33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA8B0D0700FFB19EC69B448304603F53A3E0990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792937   (67498) от 24.04.2025
-
-Samael - Blood Ritual (1992) Reissue, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67498.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Epilogue
-A2 Beyond The Nothingness
-A3 Poison Infiltration
-A4 After The Sepulture(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCF188262971A46E1F542335356873E7D982DE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

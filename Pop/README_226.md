@@ -1,3 +1,129 @@
+###  Публикация: 1329966   (348002) от 07.10.2019
+
+Sphinx - Judas (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор, продюсер: Alec R. Costandinos01. Judas Iscariot (19:33)
+02. Simon Peter (17:23)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0175D7098B79490A21B61846189959994BA850F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329962   (348001) от 07.10.2019
+
+Automat - Automat (1978) Les Disques Mube Inc., 2014, Remastered [FLAC|Lossless|WEB-DL|tracks] <Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348001.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Automat 15:58
+➥ 1.a (The) Rise 6:08
+➥ 1.b (The) Advance 4:05
+➥ 1.c (The) Genus 6:35(   Читать дальше...   )Жанр: Disco, ElectroПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FF9A9860156531985E59EE0988DAA9B865D218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578375   (347983) от 23.11.2012
+
+Loreen - Heal (2012) [AAC|256 кб/с]<Pop, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347983.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. "In My Head"
+ 2. "My Heart Is Refusing Me"
+ 3. "Everytime"
+ 4. "Euphoria"
+ 5. "Crying Out Your Name"
+ 6. "Do We Even Matter"
+ 7. "Sidewalk"
+ 8. "Sober"
+ 9. "If She’s the One"
+ 10. "Breaking Robot"(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85C689225F9EBEA0039976B0CBC3399257883DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579772   (347977) от 23.11.2012
+
+Наталья Гулькина - Сама по себе (2012) [MP3|320 кб/с]<Pop\Disco>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Слезы-дождь
+02. Delete
+03. Я сама по себе
+04. Непростые отношения
+05. Я хочу с тобой уснуть
+06. Белые птицы
+07. Я с тобой
+08. Прощай
+09. Подари мне остров
+10. Новый год(   Читать дальше...   )Жанр: Pop\DiscoПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7ECCB82CB94992353D4BCA506C81581492C0B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329928   (347863) от 07.10.2019
 
 Laser Cowboys - Radioactivity (2018) Limited Edition, Remastered [FLAC|Lossless|tracks + .cue] <Italo-Disco, Hi-NRG>
@@ -624,122 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257395   (345200) от 26.10.2018
-
-Леонид Агутин - 50 (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345200.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я тебя не вижу
-2. Самба
-3. Две минуты жизни
-4. Она не вернётся(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D28C85C06F50A152716A890D3F5C504C5920B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725129   (344973) от 22.11.2013
-
-Тату - 200 По Встречной (2001) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Зачем Я   (4:09)
-02.  Я Сошла С Ума   (3:33)
-03.  Нас Не Догонят   (4:38)
-04.  Досчитай До Ста   (4:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC20C56E17028C0E091AC6F72CD9FBC8FACF6976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 155084   (344859) от 01.12.2009
-
-Леонид Агутин - Босоногий мальчик (1994) [APE|lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_344859.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Босоногий мальчик
-2. За счастьем
-3. Разговор о дожде
-4. Девочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073473   (344796) от 16.11.2016
-
-Fleurie - Love and War (2016) [FLAC|Lossless|tracks] <Alternative Pop, Ethereal, Singer-Songwriter>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love and War
-02. Soldier
-03. Can You Hear Me?
-04. Breathe(   Читать дальше...   )Жанр: Alternative Pop, Ethereal, Singer-SongwriterПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB2A6FD5AD4FF8A87506E5F92CACDB2F8D75A9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

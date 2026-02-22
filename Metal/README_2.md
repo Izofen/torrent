@@ -1,3 +1,32 @@
+###  Публикация: 1612714   (1040175) от 16.02.2023
+
+Graphic Nature - A Mind Waiting To Die (2023) [MP3|320 Kbps] <Nu-Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 404 (0:42)
+02. Sour (2:31)
+03. Into The Dark (2:47)
+04. Killing Floor (2:53)(   Читать дальше...   )Жанр: Nu-Metal, MetalcoreПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BAD149EDC3C5AEDF5298C1D9DD15E69531E2E2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612686   (1040095) от 16.02.2023
 
 Avatar - Dance Devil Dance (2023) [MP3|320 Kbps] <Heavy Metal, Modern Metal>
@@ -716,34 +745,6 @@ Ronin - Ronin (2021) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73989275E7C3FAD51F865ADD7F55A814670E01B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442078   (1036931) от 24.01.2021
-
-Ātesh (Atesh) - مهرت از دل کی برون کنم (2021) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - آسمان ستاره های سیاه [00:09:12]
-02 - اشک های یخ زده عشق [00:09:30]
-03 - او هرگز نخواهد مرد (   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D73E3C97F4B6E7B6AB2CF3A62090167D50A8D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

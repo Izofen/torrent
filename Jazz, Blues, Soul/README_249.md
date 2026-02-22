@@ -1,3 +1,90 @@
+###  Публикация: 912300   (612895) от 25.06.2015
+
+Pee Wee Russell Sextet - Complete Live At Bovi's Town Tavern (1964) /2011, Gambit Records/[FLAC|tracks+.cue]<Jazz, New Orleans Jazz, Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Announcement [00:26]
+02. Oh Baby [04:18]
+03. Keepin' Out Of Mischief Now [04:02]
+04. Sugar [03:54](   Читать дальше...   )Жанр: Jazz, New Orleans Jazz, Dixieland, SwingПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E6522F17C522BBA71B4C07A8469933708FEC8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912305   (612893) от 25.06.2015
+
+Lonnie Smith - Drives (1970) /2009, EMI Music/[FLAC|tracks+.cue]<Jazz, Jazz Fusion, Post-Bop, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twenty Five Miles [05:42]
+02. Spinning Wheel [07:36]
+03. Seven Steps To Heaven [05:50]
+04. Psychedelic Pi [06:32](   Читать дальше...   )Жанр: Jazz, Jazz Fusion, Post-Bop, Hammond OrganПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D815056C295C002F2F0E8DA948FDE17FDC93FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912338   (612812) от 25.06.2015
+
+Illinois Jacquet - The King! (1968) /2000, Prestige/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Haunting Melody [05:21]
+02. I Wish I Knew How It Would Feel To Be Free [06:41]
+03. How High the Moon [05:35]
+04. The King [03:29](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE85354555968941DB3492217CCC502C5EF6F420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230773   (612343) от 14.06.2018
 
 Jimmie Lunceford - 1934 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -676,93 +763,6 @@ Shorty Rogers And His Giants - The Swinging Mr. Rogers (1955) /2012, Atlantic/[F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DCF4F8DF709DAE78583FE278D86A2016F01D01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912583   (610977) от 26.06.2015
-
-Marcel Khalife - Caress (2008) [FLAC|tracks+.cue]<Jazz, Ethnic Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caress [07:54]
-02. Al Hambra [03:00]
-03. Granada [06:37]
-04. Tents [03:51](   Читать дальше...   )Жанр: Jazz, Ethnic Jazz, World FusionПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FDBA0AF598BDD7319F5BE425FD40D0DEBEB69E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912597   (610890) от 26.06.2015
-
-Clarence Brown - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pressure Cooker (4:18)
-02.  Frosty (6:08)
-03.  Gate's Tune (6:20)
-04.  When My Blue Moon Turns To Gold Again (2:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE7F90B00D0883FB98C88B0D326E729380EB200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912601   (610885) от 26.06.2015
-
-Clifton Chenier - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tu Es Si Jolie (3:04)
-02.  No Salt In Your Snapbeans (4:35)
-03.  You're Just Fussing Too Much (4:48)
-04.  Pinetops Boogie Woogie (4:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC4134BF96EAA3D45FEEF3D1BA3F8F477E388F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

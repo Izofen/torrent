@@ -1,3 +1,90 @@
+###  Публикация: 1528059   (735347) от 31.01.2022
+
+Stormcellar - Stormcellar Blues Collection, Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Mama (3:19)
+02. On the Low Low (4:10)
+03. Don't Get Around Much (3:44)
+04. That Smile Is Not for Me (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CFA27D4DB2AA653BF242576FE088A3ED64D1E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528055   (735346) от 31.01.2022
+
+Frank Di Angelis - Frankly (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cliché (5:49)
+02. Bad News (5:47)
+03. Call Your Mother (4:01)
+04. California (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2AFE2BB659E2B03B7669D8302F1E21CFEF092F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528052   (735345) от 31.01.2022
+
+Bart Bryant - Magic Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Mind (4:47)
+02. Shake You're Money Maker (2:28)
+03. I'm Ready (4:00)
+04. Past the Pain (3:52)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E71CB1673620700625C248D1C0E292DDDF63B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528060   (735343) от 31.01.2022
 
 The Blue Henry's - Hired & Fired Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ Charles Mingus - Complete 1945-1949 West Coast Recordings (2001) Jazz Factory [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97B763BDFA42EB3FA0A6CE5FDB307B3B341B38B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127490   (732219) от 21.04.2017
-
-Miles Davis - Collectors' Items (1953, 1956) 2004, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Serpent's Tooth (take 1) [07:04]
-02. The Serpent's Tooth (take 2) [06:20]
-03. Round Midnight [07:07]
-04. Compulsion [05:48](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1B0F0D5925EC5FBE1C2C2F472D5B7F7F152D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127387   (732216) от 21.04.2017
-
-Sky High - Stone & Gravel (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Young Women (& Dirty Old Men. Feat. Jon Paris)  (04:05) 
-02. One Step Back  (04:05) 
-03. A New Old Style ( Old Farts Boogie )  (03:15) 
-04. Holy Grounds (Feat. Per Wiberg)  (06:04) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F567C9336C4627E028AE5535B4DF669544ECE6EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127536   (732175) от 21.04.2017
-
-John Primer & Bob Corritore - Ain't Nothing You Can Do! (2017) [MP3|320 Kbps] <West Coast Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poor Man Blues (04:08)
-02. Elevate Me Mama (05:30)
-03. Hold Me In Your Arms (04:39)
-04. Big Leg Woman (04:21)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF503BFFC9C00E69CC421DDD1E2942D9C7F9A8A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

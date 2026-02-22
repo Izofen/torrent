@@ -1,3 +1,31 @@
+###  Публикация: 1400809   (715290) от 07.08.2020
+
+GrandTotal 6 v6.1.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715290.jpg" />
+</div>
+
+
+###  Подробнее
+
+GrandTotal представляет собой приложение для создания счетов-фактур и оценки, основанные на ваших собственных шаблонах.
+Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
+GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 06.08.2020Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B174774BD88A202E3965880F15233D77625012E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400808   (715287) от 07.08.2020
 
 Downcast 2.9.53 [En]
@@ -671,35 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03B2E0C84FFE0F53FDD8AF6417F596AC5412AF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286191   (715074) от 01.03.2019
-
-Insane Clown Posse - Fearless Fred Fury (2019) [FLAC|Lossless|tracks + .cue] <Juggalo, Horrorcore Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:54)
-02. Red Fred (02:32)
-03. Fury! (04:24)
-04. West Vernor Ave (03:40)(   Читать дальше...   )Жанр: Juggalo, Horrorcore RapПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7619F55B84B9D76A9F6DD7D8DDB49CBA957F5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

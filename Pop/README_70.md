@@ -1,3 +1,119 @@
+###  Публикация: 1006804   (825176) от 13.04.2016
+
+Alexandra Stan - Cliche (Hush Hush) (2013) Japanese Limited Edition [FLAC|Lossless|image + .cue] <Pop, Dancepop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Saxobeat (03:15)
+02. Ting Ting (03:56)
+03. Show Me The Way (03:44)
+04. Lollipop (Param Pam Pam) (03:55)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, Electropop, Euro House, Europop, R&B, BalladПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65877C0CE5388CD9135F31F966FB678F2F08E0E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502938   (824959) от 16.10.2021
+
+VA - GANGSTER MUSIC, Vol. 3 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824959.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rasster - Alligator
+2. JOOLIA - Maserati
+3. DJ Chris Parker/Frost - Radioactive
+4. Rompasso/Rich The Kid - Angetenar(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2389E24E8013DFD15BD7751689C229A2C379C17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502939   (824944) от 16.10.2021
+
+VA - GANGSTER MUSIC, Vol. 4 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824944.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. TRITICUM - Gangster
+2. Slider & Magnit - Down Low
+3. Motivee - Murcielago (Radio Mix)
+4. Mari Ferrari/Fugo - Slow(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D1BE8129BEF2F340CD879AB882999E0EF274B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502940   (824857) от 16.10.2021
+
+Инна Маликова & Новые Самоцветы - Просто не верится (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824857.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Просто не верится
+2. Лунная ночь
+3. Там
+4. Незнакомка(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317BC3A7D124A9420B2A740EA8A65B9B454115E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381651   (824809) от 08.05.2020
 
 I Break Horses - Warnings (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -626,122 +742,6 @@ VA - Hit Connection 2011.3 (2011) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D7FC47DFEB532C3FC296181331B483EF6D24A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503297   (821241) от 18.10.2021
-
-VA - Calming Acoustic Covers: 14 Chilled and Relaxing Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shannon & Keast - Fireflies (Acoustic) (03:42)
-02. John Burnsby - What a Wonderful World (Acoustic) (02:20)
-03. Karizma Duo - Islands in the Stream (03:30)
-04. Django Wallace - My Future (Acoustic) (03:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144843692198F49B0A93F871D03C4AC0F3FE115C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117041   (821062) от 21.03.2017
-
-VA - Miami Disco 2017  [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821062.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Discotron - Clap Your Hands (original mix) (06:40)
-2. Audio Jacker - Rotate (original mix) (05:38)
-3. Disko Junkie - Go Back To Disko (original mix) (05:15)
-4. Jack Le Funk - Funk's Lazy Afternoon (original mix) (06:14)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40DAAD6F9F626C3B7AF8B0F87426A427DC8BD53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116810   (821052) от 21.03.2017
-
-Coeur de Pirate - Roses (2015) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carry On [03:35]
-02. Crier Tout Bas [04:20]
-03. I Don't Want To Break Your Heart [04:05]
-04. Drapeau Blanc [03:24](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39237056906CBCE009BC955CFDA39965C5D8CD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117099   (820929) от 21.03.2017
-
-НеИгрушки - На Луну (2000) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ерунда
-02. На Луну
-03. Мальчишка
-04. Весна (полная версия)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF0CBD671D5808A202FCDB97BFEBBEA42BA7FBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

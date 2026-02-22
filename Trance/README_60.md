@@ -1,3 +1,32 @@
+###  Публикация: 1750727   (104169) от 21.09.2024
+
+VA - Trance Clubbers, Vol. 1 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaron Inc. & Wavetraxx - Cloudsurfer (Radio-Edit) (03:26)
+02. Marc Dawn - Random Walk (Factor B's Back to the Future Remix Edit) (04:17)
+03. Stefano Negrini, Anthya & Alaera - Love Has Gone (Radio-Edit) (03:11)
+04. Solid Sleep - Tears (Edit) (03:19)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E38C70A8C75F721C7B5FECD321818A49ED717A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750918   (104133) от 22.09.2024
 
 VA - Trance Fusion Vol. 06 (2024) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Black Hole Trance Music 12-24 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEA9B00F4B8A25A6E69ECC4FBE271A1D7618B3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766005   (101299) от 15.12.2024
-
-VA - Redux Presents: The Finest Selection (Mixed by DJ Jayel) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petereese - Redrasoew (Extended Mix) (06:32)
-02. Cj Mover - 1st In Space (Extended Mix) (07:05)
-03. Lele Palmieri - Supernatural (Extended Mix) (07:01)
-04. Stnx - Remedy (Extended Mix) (06:32)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C3486B6BFA3C268CE46BF4CD106151A093AB09
 ```
 
 https://mybot314.ru/tekegram_catalog/

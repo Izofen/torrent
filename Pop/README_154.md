@@ -1,3 +1,119 @@
+###  Публикация: 1298056   (602149) от 26.04.2019
+
+Pink (P!nk) - Hurts 2B Human (2019) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hustle
+02. (Hey Why) Miss You Sometime
+03. Walk Me Home
+04. My Attic(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DBFE9EE6CA2E4942C2D9F9EC2FB9BF09E35100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298497   (601915) от 27.04.2019
+
+Rúzsa Magdolna (Ruzsa Magdolna) - Lélekcirkusz (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A bohóc (2:41)
+02. Lélekcirkusz (1:24)
+03. Széldal (3:39)
+04. Nekem nem szabad (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEFA911B93050D3F113DB0D2E8C9E2170A5AA81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298261   (601904) от 27.04.2019
+
+Chrysta Bell & David Lynch - Somewhere In The Nowhere (2016) [MP3|320 Kbps] <Nuar, Trip-Hop, Blue>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere-In-The-Nowhere
+02. Night-Ride
+03. All-The-Things
+04. Back-Seat(   Читать дальше...   )Жанр: Nuar, Trip-Hop, BlueПродолжительность: 00:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B175323AAA1C9463AA3F5482F7AD800EFF86AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298930   (601586) от 29.04.2019
+
+P!nk (Pink) - Hurts 2B Human (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hustle (2:56)
+02. (Hey Why) Miss You Sometime (3:23)
+03. Walk Me Home (2:59)
+04. My Attic (3:02)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3259404185668B16B6942DAE48335BD5228BF0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149336   (601163) от 10.07.2017
 
 Atmosfear - En Trance (1981) Reissue CD, Discotheque, 2005 [MP3|320 Kbps] <Electronic, Future Jazz, Disco>
@@ -641,140 +757,6 @@ Modern Talking - Music & Video Stars (2013) [MP3|320 кб/с]<Pop, Eurodisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D5207E9845BD4AAF4CC7718B9B55CA4FCE104EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526005   (598803) от 23.07.2012
-
-Непара - The Best (2012) [MP3|320 кб/с]<Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бай-бай
-02. Бог тебя выдумал
-03. Вздох-взгляд
-04. Где ты была
-05. Её звали Америка
-06. Письмо
-07. Плакала
-08. Плач и смотри
-09. Подарю тебе пол мира
-10. Сезонная(   Читать дальше...   )Жанр: РорПродолжительность: 02:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA18F4875BA5E68132569F2258ED01FFE23CF0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 805912   (598760) от 19.07.2014
-
-Silent Circle - Best Of Silent Circle (1991) [FLAC|Lossless]<Euro-Disco, Synht-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch In The Night (5:16)
-02. Stop The Rain (5:35)
-03. Hide Away - Man Is Comin'! (5:05)
-04. I Am Your Believer (5:42)
-05. Oh, Don't Lose Your Heart Tonight (5:46)
-06. Danger Danger (5:49)
-07. Lose Is Just A Word (5:45)
-08. Time For Love (5:07)
-09. Sib Dub Dua (3:05)
-10. Dreams (3:56)(   Читать дальше...   )Жанр: Euro-Disco,Synht-PopПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C02E586984DF9EE4F2A4C4D8AB4DCFF92998EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806178   (598757) от 19.07.2014
-
-Modern Talking - Milestones (2013) Compilation [MP3|320 кб/с]<Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (3:22)
-02. Cheri Cheri Lady (3:50)
-03. You Can Win If You Want (3:47)
-04. Brother Louie (3:43)
-05. Geronimo's Cadillac (3:19)
-06. Atlantis Is Calling (S.O.S. For Love) (3:48)
-07. In 100 Years (3:59)
-08. Jet Airliner (4:22)
-09. Sexy Sexy Lover (3:35)
-10. You Are Not Alone (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A199147641AB2C0CABF9F41803CB727B3FFF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149832   (598634) от 12.07.2017
-
-USS (Ubiquitous Synergy Seeker) - Advanced Basics (2014) EP [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hydrogenuine
-02. This Is The Best
-03. Nepal
-04. Freakquency(   Читать дальше...   )Жанр: Alternative Pop, Electronic Rock, Drum'n'Bass, Electropop, Hip-HopПродолжительность: 00:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7C950879A64963FF6D4F4126E0E5A11F69BFFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

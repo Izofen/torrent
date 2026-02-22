@@ -1,3 +1,32 @@
+###  Публикация: 1344076   (1020254) от 19.04.2021
+
+VA - AnalogueTrash Records presents: Beat Cancer Series + Label Samplers - Collection 13 Releases (2013-2020) [MP3|320 Kbps] <EBM, Industrial, Noise, Dark Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020254.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 - Beat Cancer (2CD)
+2014 - Beat Cancer 2 (3CD)
+2016 - Beat Cancer 3 (3CD)
+2017 - Beat Cancer Festival v1(   Читать дальше...   )Жанр: EBM, Industrial, Noise, Dark Electro, Synth-Pop, Electro-Punk, AggrotechПродолжительность: 18:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23572A77514FBD21E3B58E79ABCF4AE8BDA4F107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463665   (1020253) от 19.04.2021
 
 Notepad3 5.21.227.1 + Portable [Multi/Ru]
@@ -654,33 +683,6 @@ Slimjet 30.0.1.0 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9566E07F8308081AE2D986AA6B5C32F4308F5C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463925   (1020151) от 20.04.2021
-
-DxO PhotoLab 4 ELITE Edition 4.2.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.04.2021Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28913EA851EF560DA0A439D46C731BD6643BB830
 ```
 
 https://mybot314.ru/tekegram_catalog/

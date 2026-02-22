@@ -1,3 +1,90 @@
+###  Публикация: 1005596   (832561) от 09.04.2016
+
+Jane Monheit - The Songbook Sessions Ella Fitzgerald (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Too Soon
+02. Somebody Loves Me
+03. Chelsea Mood
+04. Something's Gotta Give(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D02614027612DFE82DFE4B987B4F0E52733E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005549   (832546) от 09.04.2016
+
+Rodney Jones & Tommy Flanagan Quartet - My Funny Valentine (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Giant Steps [04:31]
+ 02.Oleo [03:36]
+ 03.I'll Remember April [07:20]
+ 04.Yesterday [01:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57B2273358E81DAA10EFF4E3C099C4478D290E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114571   (832149) от 15.03.2017
+
+Big Black Bible Blues Band - Holy Roller Woman (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом христианских блюз-рокеров из Луизианы. Если абстрагироваться от содержания, то в общем совсем не плохо. Или не совсем уж и плохо. ИМХО. Решайте сами)))01. Holy Roller Woman (3:29)
+02. Sho Shuda Stay'd (Rollin' Like A Train) (3:48)
+03. Forever You Remain (3:23)
+04. Capsized (4:03)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8EE1540DEBEEB3CC3780C6B1C6B69E4CC66E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114644   (831685) от 15.03.2017
 
 Nick Earle & Joe Coffin - Wood Wire Blood & Bone (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
@@ -657,93 +744,6 @@ David Liebman Quintet - If They Only Knew (1980) Remaster, 2015, Solid Records[F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3292755F3263B6FDE6E22EBF97AF4E19A7C29297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006437   (829205) от 11.04.2016
-
-Terry Evans - Live Like a Hurricane (2003) [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Fancy You
-02. Rooftop Tomcat
-03. Honey Boy
-04. At The Dark End Of The Street(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85939E29C2B8A38C12D7FE7215A466C880580C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006449   (829201) от 11.04.2016
-
-Gabriela Anders - Last Tango in Rio (2004) [FLAC|Lossless|image + .cue] <Jazz, Latin Jazz, Nu-Tango>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Go To My Head
-02. Abracadabra
-03. Love Is Here To Stay
-04. God Bless The Child(   Читать дальше...   )Жанр: Jazz, Latin Jazz, Nu-TangoПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93961512F1D033A26DE669D4A9727C0131BC44C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006365   (829200) от 11.04.2016
-
-Toku - Dear Mr. Sinatra (2015) Sony Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Best Is Yet To Come [03:49]
- 02.I've Got You Under My Skin [03:55]
- 03.The Lady Is A Tramp [04:13]
- 04.Fly Me To The Moon [03:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C122000E7F0212F6958377B692B5BC37284CC2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

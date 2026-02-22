@@ -1,3 +1,61 @@
+###  Публикация: 1447801   (1031687) от 14.02.2021
+
+clipping. - Visions Of Bodies Being Burned (2020) [FLAC|Lossless|tracks + .cue] <Experimental Hip-Hop, Horrorcore Hip-Hop, Industrial Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:20)
+02. Say The Name (5:00)
+03. Wytchboard (Interlude) (0:30)
+04. '96 Neve Campbell (feat. Cam & China) (3:21)(   Читать дальше...   )Производство: Sub Pop – SP1331Жанр: Experimental Hip-Hop, Horrorcore Hip-Hop, Industrial Hip-HopПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76504C4E6BB18077912BC80E9D783CDD292F72AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448391   (1030977) от 17.02.2021
+
+Psalm Trees & Guillaume Muschalle - We Must Believe in Spring (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psalm Trees, Guillaume Muschalle - She Won’t Say (02:24)
+02. Psalm Trees - Some Are Of Love (03:07)
+03. Psalm Trees, Guillaume Muschalle - bringmesun Pt.2 (02:20)
+04. Psalm Trees - Joey’s Gone (02:20)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6507D71AEBCF53D4586540669D0317AC20E1F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448341   (1030924) от 17.02.2021
 
 ndls404 - Kung-Fu (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
@@ -681,64 +739,6 @@ XIII - SEKTA (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BD35DFC7A15F0FAE4C528F14B406DA2B742C322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459755   (1022806) от 04.04.2021
-
-Face - Варвар (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Факт [03:22]
-02. Ван Дейк [03:08]
-03. Бизнес [03:24]
-04. Солдат [02:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960762B6C80EA37D1C4B283ADAAD28AE9F26CAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459753   (1022799) от 04.04.2021
-
-StaFFорд63 - Десять историй (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не мороси [02:45]
-02. Вы простите меня [03:19]
-03. Да пошла ты [02:53]
-04. 4 x 4 [02:28](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB08133A433D5CAB720576677628BF6471432AB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

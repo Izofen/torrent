@@ -1,3 +1,90 @@
+###  Публикация: 1282766   (743843) от 13.02.2019
+
+Hi_Tack - Say Say Say (Waiting 4 U) (2006) Enhanced [MP3|~245 Kbps (V0)] <House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say Say Say (Wayting 4 U) (2:50)
+02. Oh la la (feat. Morandi) (6:12)
+03. Love Sensation (feat. Loleatta Holloway) (3:01)
+04. Somebodys Watching Me (feat. Beatfreakz) (2:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ACB76FA9465303266D36E4DC07E8BA3CFB74201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397311   (741362) от 19.07.2020
+
+VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Hush - Good Vibrations (3:25)
+02. Orlando - Singing In The Rain (4:06)
+03. Heartclub - Super Trouper (3:53)
+04. DJ Kee - Mamma Mia (3:53)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69750BC0797E214135DE1A7F7D7DED212F7C3251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283139   (741232) от 15.02.2019
+
+BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BK & Christopher Lawrence - Warp (7:23)
+02. BK & EJ Doubell - Butterflies (7:46)
+03. BK & Tom Harding - Raucous (2:56)
+04. BK & Dave Randall - Tiptronic (5:25)(   Читать дальше...   )Жанр: House, Hard HouseПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680F533C78B26AAB6770A5DC385318B16707A37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126698   (741182) от 20.04.2017
 
 VA - Beach Party Sunset (2017) [MP3|320 Kbps] <Electro House>
@@ -656,93 +743,6 @@ VA - I Love Jango (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30A1D574FCF9E9709C3BC794683DA85774D9FC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022679   (727854) от 03.06.2016
-
-VA - The Annual Festival Sessions (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phorsicht - Phreude (3:36)
-02. Prash - Bring That Bass (Extended Mix) (4:48)
-03. Sebastien Nox - O_B_O (4:46)
-04. Jamie My Angel - Runaway with Me (Radio Version) (3:35)(   Читать дальше...   )Жанр: Club House, Electro House, ProgressiveПродолжительность: 04:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3084B39C0F7F8EC73B2A265D19D503186698E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284527   (727847) от 22.02.2019
-
-VA - Melodic House Sessions, Vol.12 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregor - The Winter Carnival (Original Mix) 8:24
-02. Koffee & AmFlow - Raw Uncut (UnCut HardCore Instrumental) 5:15
-03. Alex Lem - Siren (Original Mix) 3:48
-04. Polyakk - Boom (Original Mix) 2:24(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DA5D0FCA00EBA46C8D59F50DE971C2A68F40ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284673   (727844) от 22.02.2019
-
-VA - Ibiza Overload '19 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Drake - Treasure (Original Mix)
-02. Nadia A Lee - Feeling Fine (Original Mix)
-03. Gustavo Mendez - Acid Jack (Original Mix)
-04. Frank Delgado - Ibiza Vibe (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F055AFFB0410623F05434E6ECE592AE5FC379B03
 ```
 
 https://mybot314.ru/tekegram_catalog/

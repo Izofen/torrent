@@ -1,3 +1,96 @@
+###  Публикация: 1069175   (375953) от 03.11.2016
+
+Simone Kopmajer - Moonlight Serenade (2004) Venus Records[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tea For Two [05:56]
+ 02.Fragile [04:56]
+ 03.L-O-V-E [03:44]
+ 04.For No One [03:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666F365EECF7B496B17331D827C9DBCEF4D4D11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574301   (375443) от 12.11.2012
+
+Amy Winehouse - At The BBC (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_375443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Know You Now (Live At Leicester Summer Sundae 2004)
+02. Fuck Me Pumps (Live At T In The Park 2004)
+03. In My Bed (Live At T In The Park 2004)
+04. October Song (Live At T In The Park 2004)
+05. Rehab (Live At Pete Mitchell 2006)
+06. You Know I'm No Good (Live At Jo Whiley Live Lounge 2007)
+07. Just Friends (Live At Big Band Special 2009)
+08. Love Is A Losing Game (Live At Jools Holland 2009)
+09. Tears Dry On Their Own (Live At Jo Whiley Live Lounge 2007)
+10. Best Friends, Right? (Live At Leicester Summer Sundae 2004)(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575576   (375407) от 10.09.2022
+
+Zachary Breaux - Uptown Groove (1997) Zebra Records [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakfast at the Epiphany [0:16]
+02. Cafe Reggio [6:06]
+03. I Told You [4:30]
+04. Never Can Say Goodbye [5:06](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE1C65F12C24033E95D61034F699318654297D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575439   (375403) от 10.09.2022
 
 Catherine Russell - Send For Me (2022) Dot Time Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -659,93 +752,6 @@ Dave Brubeck - Truth Is Fallen (1971) 1998, Atlantic[FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:705A09FED63242B66EA66DEBDE21F8FCD6EE81D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069469   (373862) от 04.11.2016
-
-Rebekka Bakken - Most Personal (2016) 2CD, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373862.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.A Whole Lot Of Angels [03:34]
-02.No Easy Way [04:46]
-03.Cover Me With Snow [03:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A505E8972704B58525F49D0776C7C9A0973B42D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069322   (373775) от 04.11.2016
-
-Optimystica Orchestra - Солёный Как Солнце (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Easy Listening, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пустяк (1:15)
-02. Долго До Праздника (4:33)
-03. Мафия (5:33)
-04. Дело В Этих Звёздах (5:21)(   Читать дальше...   )Производство: Zapal RecordsЖанр: Jazz, Easy Listening, Smooth Jazz, Brass BandПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C254CA6B7E0DE8D4C8304BC43A169D5275441CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575749   (373368) от 11.09.2022
-
-Ray Bryant - Sound Ray (1969) 1999, Cadet [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for My Father [5:27]
-02. Con Alma [4:13]
-03. Scarborough Fair [3:41]
-04. Stick with It [5:12](   Читать дальше...   )Жанр: Hard Bop, Piano Jazz, Soul-JazzПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859CC45041ACD3E00B33A54DC8306C4C5F510820
 ```
 
 https://mybot314.ru/tekegram_catalog/

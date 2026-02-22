@@ -1,3 +1,61 @@
+###  Публикация: 1304883   (559952) от 28.05.2019
+
+HVL - Rhythmic Sonatas (2019) Bassiani [FLAC|Lossless|Vinyl|tracks] <Acid, Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes In The Sky (06:07)
+ 02. F12  (Korg Patch Mix) (06:30)
+ 03. Alien Discotheque (05:44)
+ 04. Badskit (03:00)(   Читать дальше...   )Жанр: Acid, Techno, ElectroПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A312CBFA21BCB531BF79F6228462D80FD2FA43FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556715   (558390) от 10.06.2022
+
+VA - When We Dip Presents: Ete II (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emotional Tourist – Alchimie De L’Univers (feat. Ondin) (Mixed) (08:00)
+02. Powel – Peacocks & Sheep (Mixed) (06:24)
+03. LEGATO – I’m Waiting for You (Mixed) (08:00)
+04. Koelle & Into The Ether – Fall in Time (DSF Remix)Жанр: Deep House, Organic House, Melodic House & TechnoПродолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14360FDB4ECD125C779AC177C9F72E2641BF7FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305094   (558385) от 29.05.2019
 
 PVNV - SAVE.RESET EP (2017) Taapion Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
@@ -686,64 +744,6 @@ LFO - Discography 17 Releases (1990-2013) Warp Records [FLAC|Lossless|tracks+.cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7A6AE6AE434A401CDFFAB233A33EB1A90B7615B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310866   (545289) от 26.06.2019
-
-VA - WAYU Various Artists, Vol. 1 (2019) WAYU Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metatext & Karhua - Turners Tales Of Gravity (7:35)
-02. Bassara - Quasselstrip (7:04)
-03. Mujia & Tajo - Ovid (6:50)
-04. Juanma Salinas - Bacan (7:53)(   Читать дальше...   )Жанр: Deep House, Tech House, DownbeatПродолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE05E342C52515EB08CA4D63D83A09607FA36344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310768   (545253) от 26.06.2019
-
-VA - We Love Ibiza (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RMV – Red Hood (7:12)
-02. Vitalii Sky – From Which Undermines The Roof (5:44)
-03. Stilo Mancia – Feel It (4:18)
-04. Andrea Ghirotti – Mistake (5:58)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 04:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1EC7C1758EF420342E694C92F19EF12D653F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

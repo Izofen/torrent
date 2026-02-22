@@ -1,32 +1,3 @@
-###  Публикация: 1672926   (167205) от 30.10.2023
-
-VA - Cool Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dave Brubeck Trio - Avalon (Album Version) (2:06)
-02. Modern Jazz Quartet - Rose Of The Rio Grande (2:13)
-03. The Dave Brubeck Trio - Perfidia (Album Version) (2:17)
-04. The Dave Brubeck Quartet - Lulu's Back In Town (2:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F4CC772297F3B63A71D2B9C4DCB456F930EF24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673033   (167193) от 30.10.2023
 
 Kammerflimmer Kollektief - Schemen (2023) [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Jazz Noir>
@@ -742,6 +713,35 @@ Acker Bilk - Stranger On The Shore (The Best Of) (2001) Sanctuary Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE79D60D07AF7E8C22596EE7C3EAB29388A371D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516656   (165480) от 12.12.2021
+
+Stephane Grappelli - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djangology [3:25]
+02. I'm Coming Virginia [3:03]
+03. Misty [3:46]
+04. Shine [3:37](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Violin JazzПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303FC41317923FE7B1338BB98DB29FA75A25DF9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

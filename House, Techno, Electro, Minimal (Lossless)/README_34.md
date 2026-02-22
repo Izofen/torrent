@@ -1,3 +1,61 @@
+###  Публикация: 1512865   (603808) от 26.04.2022
+
+Boris Brejcha - Never Stop Dancing (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spicy (feat Ginger) (8:52)
+ 02. House Music (feat Arctic Lake) (6:34)
+ 03. Take A Ride (feat Ginger) (8:12)
+ 04. Twisted Reality (7:54)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:444AFC2CF2ED90BAAA18A2EFB3A106AC0E721E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297521   (603632) от 23.04.2019
+
+Sacred Grove - Untitled (2019) City-2 St. Giga [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (02:47)
+ 02. Untitled (04:58)
+ 03. Untitled (05:44)
+ 04. Untitled (05:03)Жанр: Leftfield, Techno, ElectroПродолжительность: 00:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DF7EE452181858DC3A2C01415ED4E9A085DA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297376   (603602) от 23.04.2019
 
 Yotto - Turn It Around (Remixes) (2019) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
@@ -682,64 +740,6 @@ Trudge - 100 (2019) 1Ø Pills Mate [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D6A3EFA37BDCFC9108520C730D310371449D1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300770   (592762) от 07.05.2019
-
-VA - Purple Disco Machine - Glitterbox - Discotheque (2019) [FLAC|Lossless|WEB-DL|image, tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Disco Machine - Glitterbox (Discotheque/Purple Disco Day (Continuous Mix) (1:10:26)
-02. Purple Disco Machine - Glitterbox (Discotheque/Purple Disco Day (Continuous Mix) (1:11:45)
-03. Forrrce with No Commercial Interruptions - Keep On Dubbin' (5:04)
-04. Catz 'n Dogz feat. Egla Sirvydyta - Good Touch (Maurice Fulton Remix) (6:13)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 06:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A72C2A2A3AE394F2B62C8F7ADF42B5B2E27818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915974   (591908) от 06.07.2015
-
-Satoshi Tomiie - New Day (2015) [FLAC|tracks + .cue]<House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Night (In This Dream I Watched A Film Of A Dream Within This Dream) [03:28]
-02. Landscape [07:06]
-03. Odyssey [06:52]
-04. New Day (feat. John Schmersal) [06:11](   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E048FEAD290CF170C86D9F7CF08A07FDD7031FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

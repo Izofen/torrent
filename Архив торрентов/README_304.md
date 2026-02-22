@@ -1,3 +1,32 @@
+###  Публикация: 505358   (997408) от 13.01.2013
+
+Маша и Медведи - 3 альбома & 1 EP + Bonus (1998-2012) [MP3|128-320 kbps] <Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock |Продолжительность: 00:47:05
+
+01 | Гарик Сукачев & Маша Макарова & Гера Моралес feat. Браво - Верю в тебя | 03:40
+02 | Маша и Мегаполис - Где цветы | 03:27(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:360F56567734EA3587B25D5E4EFE09AD665EA33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602202   (997407) от 13.01.2013
 
 Святые из бундока 2: День всех святых / The Boondock Saints II: All Saints Day (2009) [1080p] Blu-ray
@@ -672,40 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85EA1B18F3BCC67745B90B30877626BD5FFF3C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603107   (997308) от 14.01.2013
-
-ZAMAY - ZAMAY [EP] (2013) [MP3|320 кб/с]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Кант (Ioann Bogoslov prod)
-02 - Рэпатриант (Ioann Bogoslov prod)
-03 - Киндзмараули (slimFast prod)
-04 - Копилочка (double style prod)
-05 - Порох (zakur0 prod)
-06 - Мымимо (double style prod)
-07 - Зарядье (zakur0 prod)
-
-Soundcloud (Слушай)Жанр: RapПродолжительность: 00:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF81B4FF9CBBE94EB465DC7F530BC95BC1CE16A
 ```
 
 https://mybot314.ru/tekegram_catalog/

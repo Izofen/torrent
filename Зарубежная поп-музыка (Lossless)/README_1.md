@@ -1,3 +1,32 @@
+###  Публикация: 1608194   (1043719) от 29.01.2023
+
+Ricchi E Poveri - Mamma Maria (1986) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ciao Italy, Ciao Amore
+02. Sara' Perche' Ti Amo
+03. Made In Italy
+04. Ninni Nanna(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8746EC21512E8FB8C531B821AE84B317E1CBE342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608740   (1043514) от 31.01.2023
 
 Pupo - Porno Contro Amore (2016) [FLAC|Lossless|image + .cue] <Pop>
@@ -719,35 +748,6 @@ V.A. - Pop Queens (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C0F016BF7D0093EE36419FC69A690518A4EA7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614342   (1038831) от 21.02.2023
-
-VA - Trending Top Hits Now! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Uzi Vert - Just Wanna Rock (2:03)
-02. Lizzo - Special (feat. SZA) (2:54)
-03. Ed Sheeran - Celestial (3:29)
-04. Bruno Mars - After Last Night (feat. Thundercat & Bootsy Collins) (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE6422C6E6ACC4219A33BB74166AA2CE491C68A
 ```
 
 https://mybot314.ru/tekegram_catalog/

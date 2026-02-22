@@ -1,3 +1,29 @@
+###  Публикация: 983646   (941700) от 07.02.2016
+
+ESET AV Remover 1.1.4.0 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент для удаления антивирусов и программ безопасности с компьютера. Утилита не только удаляет антивирусные продукты ESET NOD32, но также позволяет удалить практически любую антивирусную программу, ранее установленную в системе.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0CC6B13B1A032C41B36EBEA6F2A71B1E724560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983850   (941691) от 07.02.2016
 
 Сергей Кашин | Садовая мебель своими руками. Дешево, практично, стильно (2015) [FB2]
@@ -745,38 +771,6 @@ VA - Compilado Blackened Crust (2010) [MP3|320 кб/с]<Black Metal, Blackened C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAF577FC72B8A815CDE1BAE55A19B1166ECF605B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860215   (941608) от 16.01.2015
-
-Kata Sarka - 4 Albums, 2 Splits (2010-2012) [MP3|320 кб/с]<Neocrust, Black Metal, Blackened Crust>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Albums, EPs:
-2010 - Riding a Wind of Knives
-2011 - Nak'ay - Kata Sarka (Split)
-2011 - The Great Dereliction
-2012 - Crucible Of Misanthropy
-2012 - Existential Oblivion
-2012 - Kata Sarka & Boddicker (Split)Жанр: Neocrust, Black Metal, Blackened CrustПродолжительность: 01:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC51413D742F6477F71B40B825F612FDD132849B
 ```
 
 https://mybot314.ru/tekegram_catalog/

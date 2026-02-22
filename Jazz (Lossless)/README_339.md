@@ -1,32 +1,3 @@
-###  Публикация: 1706764   (113517) от 14.03.2024
-
-Sexy Lovers Music Collection, Smooth Jazz Sax Instrumentals - Saxophone Intimate Moments: Sexy Jazz for Erotic Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saxual Healing (Sex Saxophone & Piano) (3:49)
-02. Saxual Jazz Lounge (Sexy Sax & Piano) (3:36)
-03. Now Again (Sensual Instrumental Background) (2:37)
-04. Feel Like Making Love (3:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4460256A49F7C3AFB6AA660160795FB9F0AB825A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706773   (113469) от 14.03.2024
 
 Gene Krupa - Drum Crazy (1936 - 1950) 2001, ASV [FLAC|Lossless|image + .cue] <Swing, Big Band>
@@ -745,6 +716,35 @@ Reza Khan - Mystical (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4793475311D0B22123D7B6AE7118DE8A2152FF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707801   (113229) от 18.03.2024
+
+Guadalquivir & Friends - Ole Corea! (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn of the Seventh Galaxy (4:59)
+02. Captain Senor Mouse (6:58)
+03. 500 Miles High (6:42)
+04. Nite Sprite (6:39)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD6C3DB943A48CE715E277C2161D76BD5D623B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

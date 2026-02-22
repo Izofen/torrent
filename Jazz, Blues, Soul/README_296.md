@@ -1,3 +1,93 @@
+###  Публикация: 1314629   (517272) от 16.07.2019
+
+Marlene Rosenberg - MLK Convergence (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Violet [5:13]
+02. Togetherness [4:30]
+03. Not the Song I Wanna Sing [7:34]
+04. The Line Between [5:40](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42779119882CD5250DB53BA7DAE6EA1337E70600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241984   (517190) от 20.08.2018
+
+Lucky Millinder - 1951 - 1960 (2008) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chew Tobacco Rag [2:38]
+02. Georgia Rose [3:05]
+03. I'm Waiting Just For You [2:39]
+04. Bongo Boogie [2:40](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72B9F2A27A60E4BC472F3408214A5848F1C0D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534944   (516975) от 16.08.2012
+
+Abe Rabade - A Modo (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9 Contra 4 [11:06]
+02. Transito no. 3: Jamal's Mood [09:44]
+03. Arabesco Da Iria [05:57]
+04. A Modo [10:13]
+05. Perdas [06:52]
+06. Comico, Tonico, Sonico [06:42]
+07. Carmencita [12:26]Жанр: JazzПродолжительность: 01:03:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534967   (516968) от 16.08.2012
 
 VA - Mega Soul (2004) 4CD BoxSet [APE|Lossless]<Soul>
@@ -676,93 +766,6 @@ Wayne Madder - Unconditional (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B696A7B17C63DA1557F31CA33407F463E9A82C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561458   (514674) от 05.07.2022
-
-Xander and the Peace Pirates - Order out of Chaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Cry (4:52)
-02. Leave The Light On (4:04)
-03. Soul Sailing (3:17)
-04. I'm No Good At Being Bad (5:10)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8EE9DE6ACFB01B90814F4F5DC2221B61F6B1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561546   (514673) от 05.07.2022
-
-Steve Tibbetts - Hellbound Train: An Anthology (2022) Remastered[FLAC|Lossless|WEB-DL|tracks] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Full Moon Dogs (00:09:19)
-02 - Chandoha (00:05:57)
-03 - Lochana (00:03:41)
-04 - Black Temple (00:09:57)(   Читать дальше...   )Жанр: FusionПродолжительность: 02:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDB9DD9C58946EA2F4A0CD6546DC1E014ABBED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561445   (514672) от 05.07.2022
-
-Brad Wilson - Brad "Guitar" Wilson (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballad of John Lee (4:00)
-02. Walkin' Thru the Park (3:41)
-03. Rock Me Baby (4:04)
-04. House Is Rockin' (2:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19137A97D8F150F1D6722D0519D3AD37C1E56703
 ```
 
 https://mybot314.ru/tekegram_catalog/

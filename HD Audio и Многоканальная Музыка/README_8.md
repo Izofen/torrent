@@ -1,3 +1,171 @@
+###  Публикация: 983264   (939717) от 08.02.2016
+
+Boney M - Ma Baker, Sunny, Daddy Cool (1977) Japan [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ma Baker
+02 Love For Sale
+03 Belfast
+04 Gloria, Can You Waddle(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECA1DC88959E5B08A4C21111C5F6133239EBEB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983234   (939704) от 08.02.2016
+
+Michael Jackson - Thriller (1982) Japan [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin'
+02. Baby Be Mine
+03. The Girl Is Mine
+04. Thriller(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5DDCE3A0B0C1C5A7A6E931DF6B17FD86F1A2C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625617   (938360) от 09.03.2013
+
+И. Кальман - Оперетта Принцесса цирка (1973) /2 Lp/ [FLAC 2.0 24/96 |Vinyl-Rip]<Classic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7F4EC240E47DAE7840D372745C0DE32FF37E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 205976   (937547) от 02.03.2020
+
+Europe - The Final Countdown (Upmix) (1986) [DTS]<ROCK>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Final Countdown (5:13)
+02. Rock The Night. (4:06)
+03. Carrie (4:33)
+04. Danger On The Track (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE10AAF1A8C964EA09FE536820BFC5823C6269C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861288   (935842) от 19.01.2015
+
+Supertramp - Breakfast In America (1979)  Japan Press [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935842.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Gone Hollywood (5:19)
+A2. The Logical Song (4:11)
+A3. Goodbye Stranger (5:51)
+A4. Breakfast In America (2:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADE775C4C119D980E8AC7E45A697BC49B26E0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 174968   (935713) от 17.02.2010
+
+[OF] VA - Harman Kardon DTS Demo Disc (2006) [DTS-CD 1411kb/s]<Various>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: VariousПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364812   (934344) от 04.03.2020
 
 Pink Floyd - Wish you were here (2011) 1975 [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Psychedelic Rock, Prog Rock>
@@ -571,180 +739,6 @@ Black Sabbath - The End (2016) EP [FLAC 2.0|44.1/24|tracks|DC-CD] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D0BBCB9B9DB801246F8D8EDC51250207E660174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989015   (918389) от 21.02.2016
-
-Круиз - 4 альбома (1987-2013) Мелодия, WEA, Мирумир [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Thrash, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Radiation Victims
-02 - Killer Logic
-03 - Get Serious!
-04 - Child Of Pride(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 02:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CEA259AE67F4D733C6ED3B63CAAF489AD2EBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490507   (915262) от 22.08.2021
-
-Czeslaw Niemen - 8 Albums (1971-1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip, MC-Rip] <Rock, Rhythm & Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Niemen Enigmati – Niemen Enigmatic (1971)
-2 x Vinyl, LP, Album, Mono, Red Labels, Polskie Nagrania Muza – XL 0710/XL 0711, Poland
-Folk Rock, Fusion, Prog Rock
-(   Читать дальше...   )Жанр: Rock, Rhythm & BluesПродолжительность: 06:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C7520B7CCACE8E20A0157F0CF3050D05366FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097439   (913780) от 27.01.2017
-
-The Alan Parsons Project - Eye In The Sky (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sirius (1:55)
-02. Eye In The Sky (4:37)
-03. Children Of The Moon (4:52)
-04. Gemini (2:11)(   Читать дальше...   )Производство: Arista - 25RS-162Жанр: Progressive RockПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916F84058C7A637A95ECA528965370E84EF7C6C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097539   (913661) от 27.01.2017
-
-AC/DC - Rarities (2009) [FLAC 2.0|96/24|tracks+.cue|Vinyl-Rip] (compilation, unofficial release) <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-A1 - Stick Around
-A2 - Love Song
-A3 - Fling Thing(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6B5D32A088427B4E8E7DE4AD3774E5F4851F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490646   (913441) от 23.08.2021
-
-Владимир Высоцкий и Марина Влади - Студийные записи с анс. Мелодия п-у Г.Гараняна (Магнитоальбомы 1,2) (1974) De-Noised, 2021, SMRP [FLAC|Lossless|tracks] <Песни с оркестром>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Две песни об одном воздушном бое.2.Песня самолета-истребителя (03:16)
-02-Затяжной прыжок (Воздушные потоки) (04:10)
-03-Москва - Одесса (02:57)
-04-Скалолазка (02:39)(   Читать дальше...   )Жанр: Песни с оркестромПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BA2751C3DCCFEB232FC11058A5EB99CA6BFCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990226   (911720) от 25.02.2016
-
-Elvis Presley - Rock-And-Roll (1989) [FLAC 2.0 192/24|tracks|Vinyl-Rip]<Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Teddy Bear  1:50
-2. Jailhouse Rock  2:28
-3. A Fool Such As I  2:32(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19955D6BE5EDCAFBC584BF7D01C778DC67ED7F22
 ```
 
 https://mybot314.ru/tekegram_catalog/

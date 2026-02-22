@@ -1,3 +1,274 @@
+###  Публикация: 588057   (880222) от 06.04.2020
+
+Arcturus - Sideshow Symphonies (2005) [FLAC|Lossless]<Avantgarde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Avantgarde Black MetalПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F45D813DAF264098E44520CC8FE80541BF2366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169233   (880215) от 06.04.2020
+
+Nightingale - 7 Albums, 1 Compilation, 1 Live (1995-2017) [FLAC|Lossless|image + .cue] <Gothic Metal, Heavy Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightingale (Швеция) - музыкальный коллектив композитора, певца и мультиинструменталиста Дэна Свано (или Дана Сванё, как правильнее по-шведски), одного из самых значительных музыкантов в экстремальном металле 90-х годов.Список альбомов:
+1995 - The Breathing Shadow
+1996 - Closing Chronicles
+2000 - I(   Читать дальше...   )Жанр: Gothic Metal, Heavy Metal, Progressive MetalПродолжительность: 06:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25D1115D35D8CE27BCE5FD8D80A3A774F296C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 764603   (880174) от 09.03.2014
+
+Metal Inquisitor - Ultima Ratio Regis (2014) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.Confession Saves Blood
+02.Burn Them All
+03.Call the Banners
+04.Black Desert Demon
+05.Bounded Surface
+06.Death on Demand
+07.Self-Denial
+08.Servant of State
+09.The Pale Messengers
+10.Second Peace of ThornЖанр: Heavy MetalПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBB82184AA60678182C7304301118DAAB036C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104427   (880162) от 15.02.2017
+
+Them - Sweet Hollow (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebirth 01:19
+02. Forever Burns 05:08
+03. Down The Road To Misery 04:35
+04. Ghost In The Graveyard 05:14(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7266AD173482E35950730DE52FDFF6D8CD4E44C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 638133   (880137) от 06.04.2020
+
+Angtoria - God Has A Plan For Us All (12-track version) (2006) [FLAC|Lossless]<Heavy Sympho Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy Sympho MetalПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E504765BB10FD774D97C4B3FA09F64D153DA26E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104534   (880108) от 15.02.2017
+
+Overkill - The Grinding Wheel (2017) Limited Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean, Green, Killing Machine 07:29
+02. Goddamn Trouble 06:21
+03. Our Finest Hour 05:49
+04. Shine On 06:03(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B6D087A56E883BC938FEE9952BAF55DDF4687A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 764464   (879990) от 09.03.2014
+
+Axxis - Kingdom of the Night II (2014) 2 CD [FLAC|Lossless]<Heavy Metal/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Axxis — метал-группа из Германии, исполняющая музыку в стиле Пауэр-хэви-метал, образованная в 1988 году. Первый дебютный альбом Kingdom of the Night был выпущен в феврале 1989 года...01. Hall Of Fame (3:39)
+02. Heaven In Paradise (3:56)
+03. Living In A Dream (4:22)
+04. 21 Crosses (5:09)
+05. My Eyes (3:43)
+06. Dance Into Life (4:17)
+07. Mary Married A Monster (Her Version) (4:07)
+08. We Are The World (3:20)
+09. Take Me Far Away (3:18)
+10. Gone With The Wind (3:22)(   Читать дальше...   )Жанр: Heavy Metal/Power MetalПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9201B7017F999A5A82D433F49D1F92EE33B858D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104542   (879988) от 15.02.2017
+
+Battle Beast - Bringer of Pain (2017) Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight To The Heart 03:31
+02. Bringer Of Pain 03:04
+03. King For A Day 04:35
+04. Beyond The Burning Skies 04:39(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42472ADE15F64849960D729AE9CC3EFA5951C7F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 764812   (879821) от 09.03.2014
+
+Locrian - Return To Annihilation (2013) [FLAC|Lossless|WEB-DL]<Black Metal, Avantgarde, Drone, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Part I
+ 01. Eternal Return (2:51)
+ 02. A Visitation From The Wrath Of Heaven (8:25)
+ 03. Two Moons (4:26)
+ 04. Return To Annihilation (6:45)
+4a Into One Light
+ 4b Anathemata
+ 4c All Mineral In UpheavalЖанр: Black Metal, Avantgarde, Drone, ExperimentalПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8AB40A00540E72CF33778092DFECE4FD9493348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 299159   (879543) от 22.02.2011
 
 All Ends - Дискография (2008-2010) [FLAC|Lossless]<Modern Gothic Metal>
@@ -532,272 +803,6 @@ Ancient Empire - Priest Of Stygia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8D75DC070ACD880207EDA8E15B00FA770D0429D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495803   (877429) от 14.09.2021
-
-Dirkschneider & The Old Gang - Arising (2021) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face Of A Stranger
-02. Every Heart Is Burning
-03. Where The Angels FlyЖанр: Heavy MetalПродолжительность: 00:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C6521A7C2DA137F666A206DCD75B67DFCF3B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105290   (876738) от 17.02.2017
-
-In Aeternum - The Blasphemy Returns (2016) [FLAC|Lossless|image + .cue] <Back, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfpack 04:41
-02. Stench Of Victory 05:03
-03. Majesty Of Fire (2016 Version) 05:31
-04. I Am Elite (War Cover) 02:31Жанр: Back, Death MetalПродолжительность: 00:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45122E3E251B341AA8C4433987C7ED45F59ACF14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105265   (876735) от 17.02.2017
-
-Stonelight - Into the Unknown (2016) [FLAC|Lossless|image + .cue] <Symphonic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude 01:14
-02. Sound of the Unknown 04:45
-03. Insanity 04:19
-04. Echo 06:20(   Читать дальше...   )Жанр: Symphonic Heavy MetalПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438612D224265A72DA5D19356765A76D96E24C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105293   (876646) от 17.02.2017
-
-Hevidence - Nobody's Fault (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dig In The Night 04:41
-02. Nobody's Fault 04:45
-03. Miracle 05:49
-04. So Unkind 04:00(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9148AED73B13104A2D23A55967B7DD2EA30032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105279   (876642) от 17.02.2017
-
-Planet Alliance - Planet Alliance (2006) Japanese Edition, 2007 [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Real You 06:06
-02. Remember Me 04:03
-03. Ain't No Pleasin' You 03:52
-04. Calling My Name 05:01(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42964A0775DE62556687A823B1714E62087747FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105261   (876461) от 17.02.2017
-
-Witchery - In His Infernal Majesty's Service (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Blackened Thrash/Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lavey-Athan 03:20
-02. Zoroast 02:34
-03. Netherworld Emperor 03:03
-04. Nosferatu 03:41(   Читать дальше...   )Жанр: Blackened Thrash, Speed MetalПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48B718513607770C63947766CCACBB1A2B6C074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764839   (876447) от 11.03.2014
-
-Annodomini - Sixtrinity Secret (2008) [FLAC|Lossless]<Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Death, My Bride
-2. Catherina
-3. You're So Beautiful
-4. Undressed for Sunset
-5. Drunk on Despair
-6. Gone
-7. C(u)ntinue My Prayer in the Dark
-8. Oceans of Wine
-9. Dark Heart
-10. StigmataЖанр: Gothic MetalПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C6B624433334CB9623B4765AE6800B739420DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495960   (876078) от 15.09.2021
-
-Cronopolis - Cronopolis (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vision
-02. Fallen Kingdom
-03. Shadows Of The Dark Past
-04. Survive(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0625AF3267BD8B6EE9D48101C4169326F0D96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495955   (876071) от 15.09.2021
-
-Bon Scropion - Winds Of The Unseen Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finnegans Wake (Intro)
-02. Scorpion Charmers (In The Village Of...)
-03. Battle Of The Thaumaturge And The Fire Priests
-04. Sagittarius A*(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C1986A4C47AAF4A4079FCCDBEF7034DBF41123
 ```
 
 https://mybot314.ru/tekegram_catalog/

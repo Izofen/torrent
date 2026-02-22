@@ -1,3 +1,90 @@
+###  Публикация: 1247938   (448808) от 17.09.2018
+
+Don Elliott - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448808.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Angela [2:44]
+02. Five O Clock Whistle [4:27]
+03. Everything I Love [3:12](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 03:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F1F88E8D416C2D9CF17C6F46F7C16E106807AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 38638   (448738) от 15.09.2020
+
+Felix Slovacek - A Jeho Beatles (1996) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Феликс Словачек - это целая планета на мировом джазовом небосклоне. Без участия этого блистательного саксофониста и кларнетиста из Праги, без его знаменитого биг-бэнда не обходится почти ни один фестиваль мирового уровня. Феликс Словачек - мультиинструменталист. Он играет на кларнете, фортепиано, контрабасе, ударных, дирижирует и сочиняет музыку, прекрасно знает (   Читать дальше...   )01. Free As A Bird  (4:06)
+02. And I Love Her  (3:18)
+03. Something  (2:48)
+04. Eleanor Rigby  (2:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E87BD2CA94321DF0B86E4A731EEBA23794BF16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163637   (448583) от 06.09.2017
+
+Randy Brecker & Eliane Elias - Amanda (1985) Passport Records [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Splash [05:24]
+02. Para Nada (For Nothing) [07:10]
+03. Pandamandium [06:23]
+04. Samba De Bamba [08:17](   Читать дальше...   )Жанр: World Fusion, Latin JazzПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DC9E2FB41BCBEA4C406953CE250FDED4CA2428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163640   (448571) от 06.09.2017
 
 Artie Shaw - The Essential Artie Shaw (1938 - 1953) 2CD, 2005, RVG [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -688,99 +775,6 @@ New York Trio - The Things We Did Last Summer (2002) [MP3|320 кб/с]<Post-Bop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11DFE0D4BCA9D2D523BBC7E0313FDE3CF66EF1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163888   (446355) от 07.09.2017
-
-Joachim Kuhn - Springfever (1976) 2008, Wounded Bird [APE|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Amber [10:11]
-02. Sunshine [03:46]
-03. Two Whips [04:42]
-04. Spring Fever [03:51](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E4FF55467B5F28AEE76B612AFB9C0681DCE70F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552399   (446234) от 27.09.2012
-
-Mel Torme - The Mel Torme Collection 1944-1985 (1996) BoxSet 4CD[FLAC|Lossless]<Jazz, Bop, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comin’ Home Baby [02:44]
-02. Right Now [02:14]
-03. Cast Your Fate To The Winds [02:20]
-04. Hey, Look Me Over [03:08]
-05. Forty Second Street [02:23]
-06. Sunday In New York [02:32]
-07. You’d Better Love Me [02:23]
-08. I’ve Got You Under My Skin [02:48]
-09. The Folks That Live On The Hill [03:38]
-10. Haven’t We Met [02:27](   Читать дальше...   )Жанр: Jazz, Bop, VocalПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163861   (446213) от 07.09.2017
-
-Charlie Parker - Chasin' The Bird (1940-e - 1950-e) 4CD, 2005, Proper Records [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446213.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Bird Takes Off:
-01. Cherokee [02:51]
-02. I'm Forever Blowing Bubbles [04:00]
-03. Sweet Georgia Brown [07:44](   Читать дальше...   )Жанр: BopПродолжительность: 05:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31373C4E2BD441D2D304873892F20363647B27D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

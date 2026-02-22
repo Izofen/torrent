@@ -1,3 +1,32 @@
+###  Публикация: 1841647   (1048215) от 12.12.2025
+
+Курара - Эстеты (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Слишком [00:04:29]
+02. Будда (album mix) [00:04:55]
+03. Эстеты [00:07:01]
+04. Мразь [00:06:44](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6BA1942B2C7552DC8C3EC5C8EA712E8992FF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841151   (1047788) от 09.12.2025
 
 Воскресение - Концерт В Театре На Таганке (2022) 2 x CD, Album, Limited Edition, 2025 [FLAC|Lossless|image + .cue] <Rock>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AB1F7C58CE0D1BD67E96D94CC4F9AF84E3F7675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437374   (1042301) от 04.01.2021
-
-Skogmark - Aera Av Ensomhet (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morbid Delusion
-02. Buried In Snow
-03. In November Forest
-04. Along The Dark Sodden Trails(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E724183BA649C77A4F9DD342395D0076CEA1A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

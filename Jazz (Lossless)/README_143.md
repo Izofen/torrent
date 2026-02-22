@@ -1,3 +1,38 @@
+###  Публикация: 516563   (643736) от 03.07.2012
+
+Laurindo Almeida & Baden Powell - Brasil Guitar Magic! (1999) [FLAC|Lossless]<Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_643736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Laurindo Almeida
+01. Samba Medley [05:20]
+02. O Barquinho [04:09]
+03. The Busy Bee [01:20]
+04. Canto Do Ossanha [05:31]
+05. Samba Triste [03:19]
+06. Escadoo [03:06]
+07. Air On A G-String [04:52]
+08. Dorival [05:05]
+(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906720   (643703) от 09.06.2015
 
 Sofia Finnila - Everything I Love (2008) [FLAC|Lossless]<Jazz, Vocal Jazz>
@@ -726,35 +761,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78601ECAB8C1EBEACA185123876E0EB1260AD8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033218   (640286) от 10.07.2016
-
-Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) Remaster, 2011, Pacific[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After You've Gone [04:52]
-02. When Johnny Comes Marching Home [05:15]
-03. Deep River [05:42]
-04. Till We Meet Again [04:18](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206F5D701EAD1EA56B9F74BDD6B3BCB37BA60B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

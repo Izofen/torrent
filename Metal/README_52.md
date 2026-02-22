@@ -1,3 +1,32 @@
+###  Публикация: 1025602   (710179) от 12.06.2016
+
+Leecher - Slightless (2016) [MP3|320 кб/с] <Gothic Metal, Symphonic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue
+02. Damnation
+03. Eclipse
+04. Fading(   Читать дальше...   )Жанр: Gothic Metal, SymphonicПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2D3D4A2611C0A2CD5751B2BBB8FF6A4FA2669C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025988   (708214) от 13.06.2016
 
 Raw Ensemble - Suffer Well (2016) [MP3|320 кб/с] <Thrash Metal>
@@ -713,35 +742,6 @@ Children of Bodom - Hexed (2019) Deluxe Edition [MP3|320 Kbps] <Melodic Death Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AFD7CB1E857B4259545D4A3FACDB41D0055E518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132430   (700617) от 09.05.2017
-
-Nokturnal Mortum - Істина (2017) [MP3|320 Kbps] <Folk Metal, Pagan Metal, Sympho Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700617.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Зустріну Тебе В Імлі Старій
-2. Мольфа
-3. З Чортом За Пазухою
-4. Смерековий Дід(   Читать дальше...   )Жанр: Folk Metal, Pagan Metal, Sympho Black MetalПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B7AFB786C1796FCE68BF65ABA6D9186ECE6576
 ```
 
 https://mybot314.ru/tekegram_catalog/

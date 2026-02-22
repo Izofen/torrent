@@ -1,3 +1,32 @@
+###  Публикация: 1151924   (570359) от 20.07.2017
+
+Nine Inch Nails - Add Violence (2017) EP [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Less Than
+02. The Lovers
+03. This Isn't The Place
+04. Not Anymore(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C213AFFF1E75A9CEED82CE58169687936F40606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043890   (570208) от 17.08.2016
 
 Sabaton - The Last Stand (2016) Limited Edition [MP3|320 Kbps] <Power Metal, Heavy Metal>
@@ -711,35 +740,6 @@ Cattle Decapitation - The Anthropocene Extinction (2015) [MP3|~281 кб/с]<Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:093AF90B00864F2F10F65B0714FDA68B5EFB7E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556502   (557187) от 11.06.2022
-
-Seventh Wonder - The Testament (2022) [Mp3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Warriors [00:04:42]
-02 - The Light [00:06:19]
-03 - I Carry the Blame [00:06:06]
-04 - Reflections [00:05:35](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDADFAF57B39DC18D3E44245D19F4A2B3C8C1D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

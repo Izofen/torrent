@@ -1,3 +1,32 @@
+###  Публикация: 1185436   (293744) от 21.11.2017
+
+VA - The Best Of Deepsink Digital Trance Vol 2 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4Joann - Connected For Eternity (Original Mix)
+02. Dan Delaforce - Falling Rocks (Theølogy) & Jon Fast Remix
+03. DJ Da Dominator - Enlightenment (DJ Da Dominator Remix)
+04. DjjhonnyVergel - One Way (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFE26EB7DD917105877953C744C6CA96B0D0E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185381   (293743) от 21.11.2017
 
 VA - Best of Trance 2017, Vol. 06 (2017) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ Darren Porter - 2 Compilations, 48 Singles, 58 Remixes, 3 Tracks (2009 - 2019) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C64414F66A9631FB163CB9EF31697239409541C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263652   (286465) от 20.11.2018
-
-VA - Trance The Annual 2019 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rank 1 - L e d There Be Light (Cosmic Gate Remix)
-02. Marcel Woods - Beautiful Mind (Dennis Sheperd Remix)
-03. Joop - The Future (Alex Ender 2018 Festival Mainstage Mix)
-04. Jochen Miller - Revenge (Jochen Miller's Festival Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B1967022698D48B96C202427FF4E21E05A4816
 ```
 
 https://mybot314.ru/tekegram_catalog/

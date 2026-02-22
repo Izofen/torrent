@@ -1,3 +1,29 @@
+###  Публикация: 240268   (275931) от 26.11.2018
+
+Sid Meier's Civilization III (2001) [Ru] (1.22) Repack
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sid Meier's Civilization III: Complete — это самое последнее предложение в серии Sid Meier's Civilization III, предоставляющее фанатам возможность играть в игру Sid Meier's Civilization III, затягивающее исследовательское путешествие в сочетании с обновленным и улучшенным многопользовательским дополнением Sid Meier's Civilization III: Play the WorldТип издания: RepackРазработчик: Firaxis GamesЖанр: Strategy (Turn-based, Grand strategy), IsometricЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5880B217918FEBABA532D57E52973A9B2CE0DA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082862   (275416) от 14.12.2016
 
 War For The Overworld (2015) [Ru/Multi] (1.5.0f3/dlc) License CODEX
@@ -642,32 +668,6 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.4.0.4c/dlc) License GOG [Premium
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A45AC9E8824F65CFF343453E86F0EEF1E032AD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836365   (252567) от 10.11.2025
-
-Warcraft III (2002) [Ru] (1.29.2/dlc) Repack Necros
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная стратегия в реальном времени с изометрическим видом камеры в фэнтезийном сеттинге. События игры разворачиваются спустя пятнадцать лет после окончания великой войны между орками и людьми. В Азерот постепенно начала возвращаться обычная жизнь и процветание...Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Стратегия в реальном времениЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DB5CEA5236B946E46DCBE69E74B10FB4BD27A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1846185   (1051244) от 06.01.2026
+
+VA - AM Gold 1969 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Supremes And The Temptations - I'm Gonna Make You Love Me
+02. B.J. Thomas - Raindrops Keep Fallin' On My Head
+03. The Cowsills - Hair
+04. Jackie DeShannon - Put A Little Love In Your Heart(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soul, FunkПродолжительность: 01:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A1999ADEB93183F61181948DCD1E33FF13577A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846042   (1051197) от 05.01.2026
+
+VA - AM Gold 1966 (1990) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Soft Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mamas & The Papas - California Dreamin'
+02. The Beach Boys - Good Vibrations
+03. Bobby Hebb - Sunny
+04. The Lovin' Spoonful - Daydream(   Читать дальше...   )Жанр: Rock, Funk / Soul, Soft Rock, Pop RockПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77531F603ACECBC59460D627F8AB0C8FFBF110DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845808   (1051092) от 04.01.2026
+
+VA - AM Gold 1964 (1991) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Supremes - Baby Love
+02. The Four Seasons - Rag Doll
+03. The Zombies - She's Not There
+04. Gene Pitney - I'm Gonna Be Strong(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474F7889AEC31A0F6D2F4B880E40396BA1787753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845936   (1051089) от 04.01.2026
+
+Божья Коровка - Новогодние-застольные (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гранитный камушек (винил версия)
+02. Апельсины новогодние (винил версия)
+03. А у нас, в Америке (винил версия)
+04. Хрусталь бокала (винил версия)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAF1C9D917DB3011A09DB3BD5821084588561F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845951   (1051085) от 04.01.2026
 
 VA - AM Gold 1965 (1990) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
@@ -629,122 +745,6 @@ VA - 10s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FC3052CB41C475C36C38A0487C18B4E56CACB0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839710   (1046838) от 30.11.2025
-
-VA - 00s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorillaz - Feel Good Inc (3:42)
-02. Red Hot Chili Peppers - Snow (Hey Oh) (5:34)
-03. Kylie Minogue - Can’t Get You out of My Head (3:51)
-04. Coldplay - Yellow (4:26)(   Читать дальше...   )Жанр: PopПродолжительность: 05:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2549AF7AE834132595EE5751414823C00CDB6A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839404   (1046633) от 29.11.2025
-
-Ed Sheeran - Play (2025) Deluxe, 2025, Atlantic Records UK [FLAC 24/44.1, FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening [00:04:00]
-02. Sapphire [00:02:59]
-03. Azizam [00:02:42]
-04. Old Phone [00:03:41](   Читать дальше...   )Жанр: PopПродолжительность: 01:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD306F6A429944F3D81BFB6BFCBA7B116F16B58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839497   (1046632) от 29.11.2025
-
-Madonna - Bedtime Stories – The Untold Chapter (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Survival (Quiet Storm Demo Remix)
-02 - Secret (Allstar New Single Mix)
-03 - Right On Time (Original Demo Edit)
-04 - Don't Stop (Original Demo Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093FB05551CF8E5066A01C74D6BFDABE55DAF903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839545   (1046624) от 01.12.2025
-
-Baccara - Evolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vamos al Cielo (3:15)
-02. Don’t Let This Feeling Go Away (2:54)
-03. Baila Baila (2:33)
-04. My Love in China (3:39)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9CF96BF26BBD46ED7B902AB23B1CA16C42CEC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1691837   (123057) от 13.01.2024
-
-Alan Zimmerman - Standards - Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Fall In Love Too Easily
-02 - Black Nile (Take 1)
-03 - All Of You
-04 - Blame It On My Youth(   Читать дальше...   )Жанр: JazzПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD0B23862FD99BF9CBDC6E53277150E218F160D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691664   (123049) от 13.01.2024
 
 Henry "Red" Allen - 1933 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz, Swing>
@@ -745,6 +716,35 @@ Beegie Adair & Monica Ramey - Some Enchanted Evening (2016) Green Hill [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DDE96E4C052D98CA31F4B0260D095E6CF562B16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693987   (121266) от 23.01.2024
+
+Beegie Adair & Friends - Jazz Romance: 15 Sentimental Love Songs (2016) Green Hill [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Last [3:58]
+02. Moonglow (feat. Jeff Steinberg Orchestra) [3:48]
+03. Strangers in the Night (feat. Denis Solee) [3:27]
+04. As Time Goes By [4:34](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEE0A852B8E6334B79DF60B7BF3C05856588573
 ```
 
 https://mybot314.ru/tekegram_catalog/

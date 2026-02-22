@@ -1,51 +1,22 @@
-###  Публикация: 1596267   (170525) от 09.12.2022
+###  Публикация: 1672007   (171096) от 26.10.2023
 
-IT'sALIE - Emosphere (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breath Of Fire
-02. Unbroken
-03. Beyond Revenge
-04. Moonchild(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C802A1A5C34D146B4404EEAC5AC81AA9A84008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344326   (170524) от 10.12.2019
-
-Adguard 2.4.0.693 nightly (CL - 1.5.141) [Multi/Ru]
+Integrity Pro 12.8.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170524.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+Приложение Integrity Pro  основано на Integrity Plus. У него есть новый механизм сканирования v9, оно проверяет ссылки и создает карту сайта со всеми функциями поиска, фильтрации и экспорта версии Plus. Добавляет детали SEO и проверку орфографии. Не предназначено для замены Scrutiny и имеет промежуточное положение между Integrity Plus и Scrutiny, более доступными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66F601B8155EEE26BB9501ED6D753A8E0F68BC3E
+magnet:?xt=urn:btih:AB55801418FBCDC36ABF1C57842E202297CB5C5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,57 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596359   (170523) от 09.12.2022
+###  Публикация: 1671854   (171095) от 26.10.2023
 
-Неисследованный квадрат - 5 Albums (2019-2022) [MP3|320 Kbps] <Alternativo, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2019 - Иллюзии гиперсна
-2019 - Утренняя звезда
-2021 - Миссия Андромеда(   Читать дальше...   )Жанр: Alternativo, RockПродолжительность: 5 CD, 02:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A3C351C5C0D8B3B1FFD74EBC5ADEB2224315A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672024   (170522) от 27.10.2023
-
-Manbryne - O Udrece Ciala I Tulaczce Duszy (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+Saviour Machine - Saviour Machine I (1993) [FLAC|Lossless|image + .cue] <Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170522.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Pustka, Ktora Znam (00:08:46)
-02 - W Pogoni Za Wiara (00:08:13)
-03 - Ostatni Splot (00:07:00)
-04 - Majestat Upadku (00:09:22)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:24
+01. Carnival Of Souls
+02. Force Of The Entity
+03. Legion
+04. Ludicrous Smiles(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:09:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0ACD846E787DD3F3F30B5AD3932F57D83CB55032
+magnet:?xt=urn:btih:E40299A58B5B3F971A1BF33D85C132D9BBF113CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,244 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430392   (170521) от 10.12.2020
+###  Публикация: 1671837   (171094) от 26.10.2023
 
-Шах королеве бриллиантов (1973) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170521.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноимённой повести Миермилиса Стейги и Лазаря Вольфа (в русском переводе она выходила под названием «Дело Зенты Саукум»). В одной из рижских квартир найден труп хозяйки - пожилой женщины Алиды Грубе, обезображенный серной кислотой. Все улики указывают на бывшую квартирантку убитой, молодую девушку Зенту. Алиби у нее нет, зато в сумке имеются драгоценности (   Читать дальше...   )Производство: СССР | Рижская киностудияЖанр: детектив, криминалРежиссер: Алоиз БренчАктеры: Лидия Пупуре, Гунарс Цилинский (Цилинскис), Улдис Думпис, Лилита Озолиня, Паул Буткевич, Лидия Фреймане, Интс Буранс, Майрита Круминя, Ирина Томсоне, Артурс Калейс, Юрис Плявиньш, Янис МелдерисПеревод: Дублированный (киностудия им. М. Горького)Субтитры: отсутствуютПродолжительность: 01:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529774C7EB585B5C02612A37AB13CAA049F54720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515355   (170520) от 06.12.2021
-
-Script Debugger 8 v8.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Script Debugger предлагает пользователям всё, что необходимо для быстрого создания авторских скриптов AppleScript. Ни одна из утилит не сравнится с Script Debugger в быстроте и простоте создания, редактирования и отладки скриптов AppleScript. Встроенный браузер Dictionary предлагает пользователю больше информации, чем любая другая утилита.
-Редактор полностью поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.12.2021Разработчик: Late Night Software Ltd.Поддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529F88E4CD22512CA3EDD5E80F09498606998CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672288   (170519) от 27.10.2023
-
-Soulver 3 v.3.9.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего Excel много, а калькулятора мало или неудобно. Понимает цифры вперемешку со словами, не нужно жать «равно», может отнять 100 евро от тысячи долларов и поделить на троих.
-Имея простой и понятный интерфейс, рабочее окно приложения состоит всего из двух частей. В левой части записываются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2023Разработчик: © 2023 Acqualia Software OÜПоддерживаемая ОС: macOS X 11.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861B3C341647FF3DDB11A2BE4B173ADE5B226067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344356   (170518) от 10.12.2019
-
-SlimBrowser 11.0.8.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170518.jpg" />
-</div>
-
-
-###  Подробнее
-
-SlimBrowser – браузер, построенный на базе Mozilla Firefox. Поставляется со всеми функциями браузера Mozilla, но также включает большое количество собственных улучшений, которые делают серфинг в интернете гораздо удобнее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5FAD43ACCEC965BE37C8283D492F05A535FA35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430634   (170517) от 10.12.2020
-
-Сплин - Вира и майна (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Призрак [00:04:13]
-02. За семью печатями [00:03:21]
-03. Беги, моя жизнь [00:04:29]
-04. Джин [00:04:01](   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E40EBA01DE672160A4ABA077C771DB2D915B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596312   (170516) от 09.12.2022
-
-Лена Обухова, Наталья Тимошенко | Нормальное аномальное (Книга 7). Город мертвых отражений (2018) [MP3, Алла Човжик]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некоторые места становятся плохими после того, как в них случается несчастье. В других несчастья случаются потому, что эти места плохи сами по себе. Жить в них остаются самые стойкие либо те, кому некуда идти. А иногда целые города превращаются в призраков. И они ближе, чем нам порой кажется. Когда Войтех вез друзей в одно из таких мест, он не предполагал, каким (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 08:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1FDBA76EEDB56F95DAC2D990B2DF399820C3668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515156   (170515) от 06.12.2021
-
-VA - Calm Winter Sea: Chillout Your Mind (2021) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Can Summer Last Forever (Original Mix) (5:05)
-02. Michael e - It's Like Floating (Original Mix) (4:45)
-03. Beamy - Daybreak (4:00)
-04. Martin Hiska, Michael Moses - Sandy (4:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60E7128EA379CEEBEFC51939C9E368C0CB26559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430493   (170514) от 10.12.2020
-
-Чёрный дрозд / Blackbird (2019) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они решили отметить Рождество… летом. Мать семейства, умирающая от неизлечимой болезни, в последний раз собирает дома всю семью. Но уйти из жизни она хочет на своих условиях. И все идет по плану, пока наружу не выходят давние противоречия, неразрешенные конфликты и семейные тайны.Производство: США, Великобритания / Busted Shark Productions, Eclectic Pictures, Millennium FilmsЖанр: ДрамаРежиссер: Роджер МишеллАктеры: Сьюзен Сарандон, Сэм Нил, Энсон Бун, Кейт Уинслет, Рэйн Уилсон, Линдси Дункан, Бекс Тейлор-Клаус, Миа ВасиковскаПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03AC6FBDD8734187E93B409990ACA8889BE6ED36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515078   (170513) от 06.12.2021
-
-Lich King - Born of the Bomb (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Theatres Des Vamires - Anima Noir (2009) [FLAC|Lossless|image + .cue] <Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170513.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. All Hail (instrumental) 02:08
-02. We Came to Conquer 05:43
-03. Wage Slave 03:51
-04. In the End, Devastation 04:36(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:10
+01. Kain
+02. Unspoken Words
+03. Rain
+04. Dust(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A427F3B700F90D9997F37BDDB2DDC3D2291E012
+magnet:?xt=urn:btih:6E2FCCDED24FA9EEDFCF87A5C1DDD7C783C573D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -356,78 +82,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596247   (170512) от 09.12.2022
+###  Публикация: 1672000   (171093) от 26.10.2023
 
-Ника Веймар | Фесские истории (Книга 1). Наука зелий, магия любви (2021) [MP3, Александра Долганова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заиметь врага среди старшекурсников факультета боевой магии – не самое удачное начало семестра для адептки-зельевара. Ещё хуже, если ты внезапно оказываешься в долгу у своего недоброжелателя и вынуждена выполнить его заказ, а иначе с мечтой о дипломе и лицензии можно распрощаться. Выбор из двух зол очевиден. Придется сварить демоново зелье и забыть об этом шантажисте… (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 07:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158C1B38D244EF13C3A015A07337996E0F60DFA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344447   (170511) от 10.12.2019
-
-Opera 65.0.3467.69 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882A99E46AFE85DA481AF6CF40AE1A6A4D109720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672287   (170510) от 27.10.2023
-
-GrabIt 4.931 [Multi]
+Author 9.0 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170510.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Всякий раз, когда вы хотите избавиться от чего-либо на экране, вы, вероятно, использовали Cmd + Shift + 4 или другие приложения. Но, как вы знаете, «Cmd + Shift + 4», приложение «снимок экрана», включенное в Mac OS X, просто сохраняет захваченное изображение на рабочем столе, а не показывает его вам мгновенно.
-Это приложение захватывает любую часть экрана в виде (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2023Разработчик: MajimakHARUПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский и др.
+Приложение Author это - полный контроль над процессом авторства с помощью расширенной копии цитирования, расширенного глоссария, расширенных представлений, вырезок и многого другого.
+Когда вы будете готовы поделиться своей работой в формате PDF, вы получите автоматически созданный справочный раздел. Вы также можете публиковать сообщения в WordPress.Тип издания: macOS SoftwareРелиз состоялся: 26.10.2023Разработчик: © 2007-2021 The Augmented Text Company LTD, UKПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38BB93004988D30C9E238022FD1B75659C07D7E0
+magnet:?xt=urn:btih:CA285B71E6A1168015A69621ECD3F62224CFE684
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,28 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515074   (170509) от 06.12.2021
+###  Публикация: 1671861   (171092) от 26.10.2023
 
-Lich King - Necromantic Maelstrom (2007) [WavPack|Lossless|image + .cue] <Thrash Metal>
+Saviour Machine - Legend Part II (1998) [FLAC|Lossless|image + .cue] <Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170509.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Lich King
-02 - Caveman Aggression
-03 - Mascot War
-04 - Reavers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:00
+01. The Covenant
+02. The Whore Of Babylon
+03. Legend II:I
+04. The False Prophet(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:19:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68FD3A15CB96887AB3F16FE933515B53F6BE81B3
+magnet:?xt=urn:btih:CEA58C47686D8F6620C50F380A16DC37283E85CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,28 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672190   (170508) от 27.10.2023
+###  Публикация: 1671874   (171091) от 26.10.2023
 
-Angelus Apatrida - Aftermath (2023) [FLAC|Lossless|image + .cue] <Thrash Metal>
+The Vision Bleak - The Deathship Has A New Captain (2004) 10th Anniversary Edition 2CD [FLAC|Lossless|image + .cue] <Horror Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170508.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scavenger 03:47
-02. Cold 05:53
-03. Snob (feat. Jamey Jasta) 04:33
-04. Fire Eyes (feat. Pablo Garcia) 05:27(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:59:44
+Информация: The Vision Bleak — немецкий готик-метал- дуэт, в состав которого входят Ульф Теодор Швадорф (известный своей работой с Empyrium и Noekk ) и Аллен Б. Констанц. Тексты группы известны своей темой ужасов и в значительной степени отсылают к произведениям классических писателей и режиссеров этого жанра, таких как Лавкрафт , Эдгар Аллан По , Джордж А. Ромеро (   Читать дальше...   )01. A Shadow Arose
+02. The Night Of The Living Dead
+03. Wolfmoon
+04. Metropolis(   Читать дальше...   )Жанр: Horror Gothic MetalПродолжительность: 01:54:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:168E39FD6AA9D0A117352B2474EB406FC25A7087
+magnet:?xt=urn:btih:25E58D64CA182ABFCE1F8E81B831F53180A4D0AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,27 +167,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596336   (170507) от 09.12.2022
+###  Публикация: 1671858   (171090) от 26.10.2023
 
-Наталья Александрова | Реставратор Дмитрий Старыгин (Книга 7). Зелье сатаны (2022) [MP3, Вячеслав Задворных]
+Saviour Machine - Legend Part I (1997) [FLAC|Lossless|image + .cue] <Gothic Metal>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170507.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уроборос мистагиус – может быть, самый древний и могущественный на земле артефакт. Говорят, что первый уроборос изготовил сам сатана, вложив в него древнюю магию и черную злобу своего сердца. Потом его ученики и слуги создали еще несколько таких артефактов, и каждый из них обладает удивительной властью – возвращает молодость своему владельцу.
-
-Что это – мистика? (   Читать дальше...   )Жанр: ДетективПродолжительность: 11:16:09
+01. Overture
+02. A Prophecy
+03. I Am
+04. Legend I:I(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:17:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AABF372DBD52E97CB55802C57D8273E73F18F7D
+magnet:?xt=urn:btih:778D17C3D18ABC9A8C0389ABE59D19D4D7DA1560
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,25 +196,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344450   (170506) от 10.12.2019
+###  Публикация: 1671715   (171089) от 26.10.2023
 
-Журнал | Комсомольская правда. Литературная №17. "Дисней. Вампирина. Магическая история" (2019) [PDF]
+Assumption - Absconditus (2018) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170506.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал по новому популярному мультсериалу «Дисней» про девочку-вампира. Читайте веселые истории про жизнь необычной семьи в обычном городе. Сюжетная линия о девочке вампире, живущей в обычном городе, не имеет аналогов среди других мультсериалов. Мультипликационные герои, как и всегда у «Дисней», выглядят реалистичными и трогательными.Жанр: детский журналФормат: PDF
+01. Liberation
+02. Resurgence
+03. Beholder Of The Asteroid Oceans Part I & IIЖанр: Doom, Death MetalПродолжительность: 00:36:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0929CCCAF7911A4703827EB3595989BECC4F9294
+magnet:?xt=urn:btih:2DDFE482750CB20F859ACFBC8B67471F5D41AED5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,26 +224,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515408   (170505) от 06.12.2021
+###  Публикация: 1671876   (171088) от 26.10.2023
 
-VideoDuke 2.2 [En]
+The Vision Bleak - Timeline - An Introduction To The Vision Bleak (2016) [FLAC|Lossless|image + .cue] <Horror Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Unknown
+02. The Kindred Of The Sunset
+03. From Wolf To Peacock
+04. The Wood Hag(   Читать дальше...   )Жанр: Horror Gothic MetalПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18A4ECD51B70CDC779B9854C27AE472B77B8D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671762   (171087) от 26.10.2023
+
+Airtool 2 v.2.5.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170505.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
-Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши. Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2021Разработчик: © 2021 Eltima SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+Захват трафика Wi-Fi - важная задача анализа протокола. Если вы пытаетесь решить проблемы с подключением к Wi-Fi, роумингом или конфигурацией, анализируете производительность своей сети или просто изучаете Wi-Fi, вам, безусловно, потребуется выполнить захват трафика. Airtool дает возможность сделать это самым простым способом.Тип издания: macOS SoftwareРелиз состоялся: 29.09.2023Разработчик: © 2022 Intuitibits LLC.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6C3B9DCC67927C1ED642C62BBD46DDA5C4EBD86
+magnet:?xt=urn:btih:B0B5C217EA050942F12AAD512DEA8A09309ADA3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -574,112 +279,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596258   (170504) от 09.12.2022
+###  Публикация: 1671820   (171086) от 26.10.2023
 
-Диана Хант | Вивьен (Книга 1). Тень дракона (2022) [MP3, Татьяна Ферцева]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпускницу магического Пансиона любая гимназия ждёт с распростёртыми объятиями. Ведь маленьким магам так нужен рядом маг-нейтрализатор! Но если у начальства на тебя другие планы, приходится собирать вещи и плыть на остров Драконье Логово. Тут тебя тоже ждёт ученик. Самый странный и пугающий за всю твою недолгую карьеру. Начать с того, что ему сорок, он дракон и он… (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 07:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D227A11C4D271BC05A219A9CB748ECBE217FFCCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672036   (170503) от 27.10.2023
-
-Endseeker - Global Worming (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Global Worming (4:10)
-02. Hell Is Here (5:36)
-03. Violence Is Gold (4:13)
-04. Wheel of Torture (5:41)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E74884A72DBF89438CB01C1A029D06A87A9ED9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596319   (170502) от 09.12.2022
-
-Дездемон Сидоров - Апокалипсис сегодня (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170502.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Апокалипсис сегодня
-2. Одноглазая кошка
-3. А я этому рад!
-4. Провинция(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF04F658388A5B495E8215F8B031610EB83AEC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596263   (170501) от 09.12.2022
-
-Steve Gadd Band - At Blue Note Tokyo (2021) BFM Jazz [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
+Toshiyuki Miyama & The New Herd - Gallery (1979) Three Blind Mice [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170501.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Where's Earth? [7:07]
-02. Doesn't She Know by Now [6:26]
-03. Timpanogos [5:46]
-04. Hidden Drive [7:18](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 01:00:14
+01. Flower Arrangement [5:28]
+02. Art Gallery [5:30]
+03. A Falling Star [5:39]
+04. Blue Sail [5:34](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:45:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0301C16B3D241E7615BA2239552FAF5F2A75D874
+magnet:?xt=urn:btih:7905C1AA491F047260854D93F9668AF31A3334CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,28 +308,419 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596313   (170500) от 09.12.2022
+###  Публикация: 1671729   (171085) от 26.10.2023
 
-Sabu - Banshee (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Manbryne - Interregnum: O probie wiary i jarzmie zwatpienia (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170500.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blinded Me
-02. Banshee
-03. Kandi
-04. Love Don’t Shatter(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:16
+01 - Piach i niepamiec (00:07:17)
+02 - Suma wszystkich strat (00:08:08)
+03 - Po trupach ku niebu (00:06:31)
+04 - Grzechy ojcow (00:07:54)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE10BDD647814DE0B27C59856785FEEF58B2CB44
+magnet:?xt=urn:btih:C8FD321451B58B767690EB8B5319FF962D5EB83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671817   (171083) от 26.10.2023
+
+Robert Conti - You Are The Sunshine Of My Life (1985) Trend [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Softly as I Leave You [3:40]
+02. You Are the Sunshine of My Life [3:48]
+03. People [3:36]
+04. My Favorite Things [2:12](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C526940BA8C759EA56D837C0CF693ED19D1D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671913   (171082) от 26.10.2023
+
+MetaRename for Mac 1.0.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171082.jpg" />
+</div>
+
+
+###  Подробнее
+
+MetaRename — это удобный инструмент для фотографов и видеооператоров, которым необходимо регулярно управлять обширными коллекциями файлов. Используя MetaRename, вы можете легко переименовывать и упорядочивать свои фотографии и видео на основе метаданных, таких как модель камеры, дата съемки и местоположение, что упрощает поиск нужных файлов, когда они вам нужны.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2023Разработчик: © 2012-2023 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC73A78EF9597795F4058A6C86A4F7793158F44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671831   (171081) от 26.10.2023
+
+Theatres Des Vamires - Vampyrisme... (2002) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vampyrisme...
+02. Twilight
+03. Beyond The Forest
+04. In The Wood(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE94BF4D803DAD164FE6B2B96CD136FD0DA7772B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671857   (171080) от 26.10.2023
+
+Saviour Machine - Saviour Machine II (1994) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saviour Machine I
+02. The Gates
+03. Enter The Idol
+04. The Hunger Circle(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B9302037619834EEBE09F42135B0D7A105126B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672003   (171079) от 26.10.2023
+
+CheckBook Pro 2.7.26 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171079.jpg" />
+</div>
+
+
+###  Подробнее
+
+CheckBook Pro - это не просто базовый инструмент регистрации чеков и создания отчетов, в нем есть все! Это ваш очень простой менеджер по личным финансам и многое другое. Получите отчет для всех ваших учетных записей одновременно. Поиск транзакций по любой комбинации критериев. Сгруппируйте свои транзакции в папки. Изменить детали группы транзакций в один штрих. CheckBook (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2023Разработчик: © 2002-2022 Splasm Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B79A4F85D02E9271B8298E8C1F24F5DCCB74759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671692   (171078) от 26.10.2023
+
+Lord Vampyr - The Vampire's Legacy (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal, Industrial, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Towards Darkness (00:00:50)
+02 - The Vampire's Legacy (00:04:18)
+03 - The Evil's Origin (Strigoi Pt. II) (00:04:12)
+04 - Mircalla (00:03:37)(   Читать дальше...   )Жанр: Symphonic Black Metal, Industrial, Gothic MetalПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7427F64E02649ACCB8874D5F6A310A190A88862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671790   (171077) от 26.10.2023
+
+myTracks 4.3.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171077.jpg" />
+</div>
+
+
+###  Подробнее
+
+myTracks — удобный геотаггинг фото.
+myTracks — замечательное приложение, которое будет полезно многим фотографам и путешественникам. С ее помощью можно легко загрузить ваши маршруты с большинства известных GPS-девайсов или просто из GPX-файла, и добавить геотаги к отснятым во время путешествия фотографиям.
+Кроме этого myTracks показывает проделанные маршруты на картах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2023Разработчик: © 2021 Dirk StichlingПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66878D39433A8EBAFAF794B40884FE6354A41362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671632   (171075) от 26.10.2023
+
+Gabriel Agudo - New Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free as a Bird [00:07:18]
+02. Karmatic [00:07:19]
+03. Angel’s Call [00:08:15]
+04. New Life [00:09:09](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7B114F246CE37324C559FE1966ED6609389CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671812   (171073) от 26.10.2023
+
+Howard Alden, Jimmy Bruno, Herb Ellis, Joe Pass - Full Circle & Jazz-Concord (1973, 1995) 2CD, 1998, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look for the Silver Lining [4:46]
+02. The Shadow of Your Smile [2:32]
+03. Good News Blues [3:22]
+04. Honeysuckle Rose [3:08](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 01:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29A5CFE45D723E41874588F46457D6301500AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672019   (171072) от 26.10.2023
+
+Pattern-Seeking Animals - Spooky Action at a Distance (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man Made of Stone (7:02)
+02. Window to the World (3:58)
+03. What Awaits Me (5:22)
+04. He Once Was (12:17)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1B09FCD22C47429973896FD1614067FFF1DAAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671982   (171071) от 26.10.2023
+
+Благовест | У Бога все живы. Православный обряд погребения. Утешение скорбящему. Молитвы за усопших (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый вниманию читателей сборник «У Бога все живы» рассказывает о православном обряде погребения, о том, как должно совершаться поминовение усопших по Уставу и традиции Православной Церкви; приводятся молитвы за усопших, а также старческие утешения скорбящим в потере близких людей.
+
+Издание адресовано широкому кругу православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82439B01918171BA5FC26C8DD6E0E69F5ED6B2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671678   (171070) от 26.10.2023
+
+Наша банда. Проблемы с шиной / Our Gang. Tire Trouble (1924) WEBRip [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живет пожилой состоятельный джентельмен. И вроде все у него в достатке - и деньги есть, и дом полная чаша, а счастья нет. Потому что со здоровьем проблемы. Во всяком случае, все окружающие его в этом убеждают. И уже практически убедили. И жизнь его уныла и безрадостна. Врачи, таблетки, микстуры... Но судьба свела его с "бандой". Уж они-то научат его понятию (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Эрнест Моррисон, Джордж Б. Френч, Harry L. Rattenberry, Лайл Тайо, Ной ЯнгПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA1B2096E35ACB40F22DA4C604F85F6AE3D4D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671781   (171069) от 26.10.2023
+
+Retrobatch Pro 1.5 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гибкая, супер заряженная, пакетная обработка изображений для вашего Mac.
+Процессор пакетных изображений на основе узлов означает, что вы можете смешивать, сочетать и комбинировать различные операции вместе, чтобы сделать идеальный рабочий процесс
+Конвертируйте PSD-файлы в HEIC, JPEG, PDF, PNG или TIFF.Тип издания: macOS SoftwareРелиз состоялся: 04.11.2022Разработчик: © 2018 Flying Meat Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0822198AA0F54254B11302ECA2FD37DE10C8DE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671764   (171068) от 26.10.2023
+
+Lasso 1.5.8 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lasso — оконный менеджер для macOS. Перемещайте и изменяйте размер окон с помощью мыши. Нажмите и перетащите — это все, что вам нужно для перемещения и изменения размера окон. Быстро упорядочивайте окна и изменяйте их размер с помощью настраиваемых макетов.Тип издания: macOS SoftwareРелиз состоялся: 24.09.2023Разработчик: © 2023 LassoПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F5E7EBF483BBA9D19EF48E638842130238B7BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1135212   (683136) от 18.05.2017
+
+Duke Ellington - A Portrait of Duke Ellington (1999) Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C Jam Blues [04:05]
+02. Satin Doll [02:44]
+03. Main Stem [03:18]
+04. Prelude to a Kiss [04:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0770AE4FE2D1A9F4440784F1157337E83B8344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222671   (683135) от 30.04.2018
+
+Jack Teagarden - 1939 - 1940 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Takin' My Time With You [03:01]
+02. I Wanna Hat With Cherries [02:55]
+03. Two Blind Loves [02:44]
+04. Hawaii Sang Me To Sleep [02:57](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DB4BFCADEDE262638CB822D7744E6681D5C4ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135210   (683061) от 18.05.2017
+
+Duke Ellington - Jazz Masters 1953-1955 (1997) EMI Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satin Doll [02:58]
+02. Flamingo [03:43]
+03. Liza [03:15]
+04. In the Mood [06:00](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91EC9091DF0D27BF7D99D6727471952F914F2D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135236   (683060) от 18.05.2017
 
 Duke Ellington - Compact Jazz: Duke Ellington & Friends (1987) Verve [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -655,93 +742,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCF951CCD6E25E67A98C9C43742836D62145C267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289677   (682088) от 18.03.2019
-
-Bona Fide - The Soul Movers (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snippet 1
-02. If I Could Ever
-03. What Good Is Your Love
-04. Snippet 2(   Читать дальше...   )Жанр: SoulПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0778CE02BA1611F0F5F55E563CCF1410505F9BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289760   (682084) от 18.03.2019
-
-Curtis Salgado & Alan Hager - Rough Cut (2018) [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Not Surrender  4:58
-02. So Near To Nowhere  3:57
-03. One Night Only  2:50
-04. I Want My Dog To Live Longer  2:47(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEFD0364DC11914C821D6CBD0D3EFF37ED0B2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289764   (681985) от 18.03.2019
-
-Curtis Mayfield - Keep On Keeping On: Curtis Mayfield Studio Albums 1970-1974 (2019) 4 CD, Remastered Box Set [FLAC|Lossless|tracks + .cue] <Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681985.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1. (Don't Worry) If There's Hell Below We're All Going to Go (07:51)
-2. The Other Side of Town (04:02)
-3. The Makings of You (03:43)Жанр: Soul, Funk |Продолжительность: 02:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FCC498A6C3E9D54696A2FF8C266CDCA71A9318
 ```
 
 https://mybot314.ru/tekegram_catalog/

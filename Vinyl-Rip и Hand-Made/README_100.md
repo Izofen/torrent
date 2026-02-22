@@ -1,3 +1,178 @@
+###  Публикация: 1551410   (12565) от 04.07.2025
+
+Pop Evil - Studio Albums (8 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative metal, post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pop Evil — американская рок-группа, основанная в 2001 году в Северном Маскегоне, штат Мичиган.2009 - Lipstick On The Mirror
+2011 - War Of Angels
+2013 - Onyx
+2015 - UpЖанр: Alternative metal, post-grungeПродолжительность: 06:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF4F3DB26B4C3F7460DBC43AABCE3E7E42683BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641923   (12546) от 04.07.2025
+
+Coheed And Cambria - Studio Albums (11 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coheed And Cambria — американская прогрессив рок (нью-прог) команда со всех уголков штата Нью-Йорк, США. Группа образовалась в 1995 году, под именем Beautiful Loser, с 1996 года стали называться Shabutie, с 2001 года называются Coheed And Cambria. Пишут композиции по мотивам историй, написанных фронтменом группы Клаудио Санчесом, и с 2006 года издающихся в виде комиксов.2002 - The Second Stage Turbine Blade
+2003 - In Keeping Secrets Of Silent Earth: 3
+2005 - Good Apollo, I'm Burning Star IV, Volume One: From Fear Through the Eyes of Madness
+2007 - Good Apollo, I'm Burning Star IV, Volume Two: No World for TomorrowЖанр: Progressive RockПродолжительность: 11:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D85613A83D7B137D82F85CDED1252C4737C551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695379   (12519) от 04.07.2025
+
+Warkings - Studio Albums (5 releases) (2018-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warkings - австрийская пауэр-метал/хэви-метал группа. Основана в 2018 году.2018 - Reborn
+2020 - Revenge
+2021 - Revolution
+2022 - MorganaЖанр: Power MetalПродолжительность: 03:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC843D52C0EFCBF0CFBE4110AC37BE23A0C64BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805150   (12438) от 05.07.2025
+
+Night Tempo - Showa Idol's Groove. Rare Groove From 80's (2019) (Night Tempo Self-released) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Vaporwave, Nu-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Intro
+02. Iyo
+03. Akemi(   Читать дальше...   )Жанр: Electronic, Vaporwave, Nu-DiscoПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455290FFBE9DA7993E990CDA59335B32BD3D213E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804961   (12418) от 05.07.2025
+
+Studio Ghibli - Studio Ghibli Songs (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. My Neighbor Totoro (Captured Near Me 1988 Kazuto)
+02. Carrying You: A Fatty Call (Azure Sky Castle - 1986)
+03. Valley of the Wind Oinoya (Iriinoya - 1984)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F131B968D96B719760A18DCDED3DE1FC0687B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723409   (12236) от 07.07.2025
+
+Big Wreck (& Thornley) - Studio Albums (11 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Wreck — канадско-американская рок-группа, созданная Яном Торнли в Бостоне, штат Массачусетс, в 1994 году. Группа распалась в 2002 году, и Ян Торнли продолжил сольную карьеру в своей собственной группе Thornley. В 2010 году Ян Торнли и Брайан Доэрти воссоединились для тура по Канаде, исполнив песни Big Wreck и Thornley.
+Big Wreck снова начали выпускать новую музыку (   Читать дальше...   )1997 - In Loving Memory Of...
+2001 - The Pleasure and the Greed
+2012 - Albatross
+2014 - GhostsЖанр: Progressive RockПродолжительность: 11:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1DB891FAFCBDBF5BB5438068941DB9FC9B593D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805762   (12066) от 09.07.2025
 
 VA - Rock Ballads Volume 1&2 (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock>
@@ -568,181 +743,6 @@ Pink Floyd — одна из самых великих групп в истор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D6315DB1502077BAA5A1EC716C15CE0D8591D6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810345   (9258) от 05.08.2025
-
-Frank Sinatra - The Collection 1953-1962, Original Master Recording, MFSL Box (1983) [DSD 128|tracks|Vinyl-Rip] <Jazz, Vocal, Ballad, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Синатра (Frank Sinatra) - легендарный американский певец, актёр и одна из наиболее выдающихся фигур в музыкальной индустрии 20 века. Родился 12 декабря 1915 года в Хобокене, Нью-Джерси, и ушёл из жизни 14 мая 1998 года в Лос-Анджелесе, Калифорния. Синатра стал известным благодаря своему потрясающему голосу, уникальному стилю исполнения и широкому музыкальному (   Читать дальше...   )LP1, Swing Easy/ Songs for Young Lovers, MFSL 1-130, (mono)
-LP2, In The Wee Small Hours, MFSL 1-131, (mono)
-LP3, Songs For Swingin' Lovers, MFSL 1-146, (mono)
-LP4, Close To You, MFSL 1-132, (mono)Жанр: Vocal, Ballad, SwingПродолжительность: 00:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0EFF431D62180F064DFD29AFE03DE9621067AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741971   (8892) от 08.08.2025
-
-Chaos Magic (Caterina Nix & Timo Tolkki project) - Studio Albums (4 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chaos Magic - хэви-метал проект, созданный Катериной Никс и Тимо Толкки.2015 - Chaos Magic
-2019 - Furyborn
-2020 - Desert Rose (EP)
-2022 - EmergeЖанр: Symphonic MetalПродолжительность: 03:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30181E5CEE86954F23E78EEFACCC9106E424D2D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515607   (8865) от 09.08.2025
-
-Evanescence - Дискография (11 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Nu Metal, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evanescence («исчезание», «мимолётность») — американская рок-группа, основанная в г. Литл-Рок, штат Арканзас, в 1995 году.1998/1999 - Evanescence/Sound Asleep (EP)
-2000 - Origin
-2003 - Fallen
-2006 - The Open DoorЖанр: Gothic Rock, Nu Metal, Symphonic MetalПродолжительность: 11:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F98183A290A7421AFFC6F6F64DC463CAE7B4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643464   (8784) от 09.08.2025
-
-Presto Ballet - Studio Albums (7 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover Progressive>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Presto Ballet — прогрессив-рок-группа, основанная гитаристом Metal Church Курдтом Вандерхофом.2005 - Peace Among The Ruins
-2008 - The Lost Art of Time Travel
-2011 - Invisible Places
-2012 - Relic of the Modern World(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 06:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA23955C9229958F8F94D6C8E3BB1722BC335FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518693   (8707) от 10.08.2025
-
-Motograter - Studio Albums (4 releases) (2000-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motograter — американская метал-группа, образована в 1995 году Брюсом Батлером (известным как Grater), в Санта Барбаре, Калифорния.
-Основное отличие Motograter от других групп в том, что они используют так называемый «мотогрэйтер» — инструмент собственного производства, составленный из промышленного кабеля и частей электрогитары, выдающий очень глубокие басовые звуки. (   Читать дальше...   )2000 - Indy
-2003 - Motograter
-2009 - Pre-Release (EP)
-2017 - DesolationЖанр: Nu Metal, Industrial MetalПродолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8FAE7F357EBC168F1DF10B2D5702C6196A815F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626818   (8517) от 30.09.2025
-
-Livin' Blues - Blue Breeze (1976) 1978 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8517.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Shylina
-A2 Back Stage
-A3 Midnight Blues
-A4 Pisces(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C00C372180E6E3E917A5629FBEF4DFACD0D3B79
 ```
 
 https://mybot314.ru/tekegram_catalog/

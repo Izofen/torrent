@@ -1,3 +1,32 @@
+###  Публикация: 1240474   (528747) от 11.08.2018
+
+Giusy Ferreri - Girotondo (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fa talmente male (2:59)
+02. L'amore tante volte (3:02)
+03. Partiti adesso (3:15)
+04. L'amore mi perseguita (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF8C4747DA1BC68783917476B6930B90501B52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927536   (528703) от 13.08.2015
 
 Hanne Sorvaag - All Is Forgiven (2012) [FLAC|image + .cue]<Pop / Soft Rock / Country>
@@ -721,35 +750,6 @@ Cretu And Thiers - Belle Epoque (1988) [FLAC|Lossless]<Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928971   (520311) от 18.08.2015
-
-VA - 100 Hits - 2000s Anthems (2014) 5CD Box Set [FLAC|track+.cue]<Pop, R&B and Soul, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список журнала Rolling Stone 100 лучших песен десятилетия - который первоначально был опубликован в 2009 году и был составлен группой из более чем 100 музыкантов, музыкальных критиков и лидеров музыкальной отрасли - включает в себя сотню треков различных жанров. Под общим названием "100 хитов: гимны (песни) 2000-х" фирма Сони попыталась в одном боксете (   Читать дальше...   )CD1:
-01. The Zutons - You Will You Won't  (2:56)
-02. Editors - Smokers Outside the Hospital Doors  (4:02)
-03. Reef - Set the Record Straight  (3:58)(   Читать дальше...   )Жанр: Pop, R&B and Soul, RockФормат: 5CD, box setПродолжительность: 06:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C97105667F7DF4D6F61316E54DEF3B515B42447
 ```
 
 https://mybot314.ru/tekegram_catalog/

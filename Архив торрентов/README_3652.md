@@ -1,3 +1,29 @@
+###  Публикация: 948636   (410801) от 20.10.2015
+
+REVision FX Plug-ins Pack for AE СС 2015 RePack by PooShock update 4 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник плагинов для Adobe After Effects CC 2015 и Adobe Premier Pro CC 2015 от компании RE:VisionЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0C23A26BC281F46EDDE4C273B8EDAA84A13DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252281   (410724) от 04.10.2018
 
 Infix PDF Editor Pro 7.3.1 RePack (& Portable) by TryRooM [Ru/En]
@@ -660,32 +686,6 @@ Mp3tag - мощный и простой в использовании инстр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:390BF91FD545FD99F54E007FD9FF3E4F8B7B4923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573608   (410546) от 01.09.2022
-
-Aspect Ratio X 2.1.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aspect Ratio X - калькулятор для расчёта соотношения сторон, разрешения экрана, прост в использовании с дружественным интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2016–2022 IXEAUПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7718010456822882E0FAC17625EFE840E0925EFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

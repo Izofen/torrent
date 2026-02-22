@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1854618   (1057533) от 19.02.2026
+
+VA - Cafe del Mar Ibiza 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kvant - Waiting For (5:26)
+02. Abee Sash - Memories (3:36)
+03. Faraón - Love of My Life (4:20)
+04. Fly - Reality (5:17)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3E7A48551E27A4A9CC7612624ED0BB1435A330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854079   (1057150) от 16.02.2026
+
+VA - Ultimate Dance 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kevin Havis - Feel to Be lose (2:25)
+02. Jayanth Ak - Stranger (2:28)
+03. Harmonize - Show Me Love (5:10)
+04. Abee Sash - Memories (3:36)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCE53B681734D0F8505A7180777DFC317992CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853756   (1056573) от 14.02.2026
 
 VA - Dance EDM Workout 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -686,64 +744,6 @@ VA - Best of CHROM 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4777322F041037CF78D8BD2297890C5293B658D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603616   (1045507) от 12.01.2023
-
-Korablove - Basshole (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Splish (4:55)
-02. Wherever (4:15)
-03. Zurkaf (6:31)
-04. Come with Me (4:06)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3101C225B68FD1E1D56D96983A1A188FCFE5FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604373   (1045405) от 13.01.2023
-
-Denis Kenzo & Whiteout - Intelligency (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vetra (4:55)
- 02. Indivisibility (4:17)
- 03. Fire & Wide (5:27)
- 04. Ametist (4:06)(   Читать дальше...   )Жанр: Progressive House, Trance, Tech HouseПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84C2AAB40DD0E2CAB9A793E0F14EEC5A0114270
 ```
 
 https://mybot314.ru/tekegram_catalog/

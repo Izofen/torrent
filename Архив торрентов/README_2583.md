@@ -1,3 +1,32 @@
+###  Публикация: 906551   (643409) от 09.06.2015
+
+StereOMantra - Synesthesia (2015) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Psyprog>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perceptions (08:39)
+ 02. We Are Awareness (07:34)
+ 03. Hearing Visions (06:58)
+ 04. Purple Rain (07:10)(   Читать дальше...   )Жанр: Psybient, Downtempo, PsyprogПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A9D38DC1057655944EB2A49CE7460485AB3251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906627   (643407) от 09.06.2015
 
 MyLanViewer 4.19.0 + Portable [Ru/En]
@@ -660,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:603C4E70001BAFFD73BD5886FB7F3774988E3C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906643   (643229) от 09.06.2015
-
-Adobe Flash Player 18.0.0.160 Final [3 в 1] RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Flash Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51157C4367B4E1B16BD4A0DD8DE6973FAF21F79A
 ```
 
 https://mybot314.ru/tekegram_catalog/

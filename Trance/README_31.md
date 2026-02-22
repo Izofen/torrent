@@ -1,3 +1,32 @@
+###  Публикация: 1174712   (381260) от 17.10.2017
+
+VA - Suanda Classics, Vol. 2 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christina Novelli & Roman Messer – Frozen (Alex M.O.R.P.H. Remix) (06:57)
+02. Aurosonic & Nicol Cache – Tell Me Why (Mhammed El Alami Radio Edit) (06:05)
+03. Tiff Lacey & Nomosk – The Promise (06:45)
+04. Luke Terry – Magellan (06:46)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9514A9E79564F7C836632C5F5BBD6727D72DEE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174124   (381174) от 17.10.2017
 
 VA - Markus Schulz Global DJ Broadcast: Top 20 October (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -716,35 +745,6 @@ VA - Trance Rave Vol. 4 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7BEEA7AAF80FEE1384121077CF9CD2E0F46877F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328120   (368171) от 28.09.2019
-
-VA - FSOE Festival Hits (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila - It's All About The Melody (Original Mix)
-02. Dan Stone - Vargo (Original Mix)
-03. Ferry Tayle - Thoughts (Original Mix)
-04. Liam Wilson - 20 Stories (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21707C5CF9093D56917F57E29BAF56F1DB4554D
 ```
 
 https://mybot314.ru/tekegram_catalog/

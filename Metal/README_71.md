@@ -1,3 +1,32 @@
+###  Публикация: 695243   (545665) от 30.08.2013
+
+Ministry - From Beer To Eternity (2013) Special Fanbox Edition [MP3|320 кб/с]<Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hail To His Majesty (Peasants)
+02. Punch In The Face
+03. PermaWar
+04. Perfect Storm(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F268B5461723698098328EB7B4DAD1ED1B08A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 694776   (544729) от 31.08.2013
 
 Kreator - Dying Alive (2013) 2CD, Live [MP3|320 кб/с]<Thrash Metal>
@@ -722,35 +751,6 @@ Turilli & Lione Rhapsody - Zero Gravity (Rebirth and Evolution) (2019) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D08C26C297C314F4B068DB930DA2DBF67A37E640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959471   (532125) от 11.09.2016
-
-Delain - 6 альбомов, 4 сингла (2006-2016) [MP3|320 кб/с]<Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532125.jpg" />
-</div>
-
-
-###  Подробнее
-
-2006 - Lucidity
-2007 - Frozen (Single)
-2007 - See Me In Shadow (Single)
-2009 - April Rain (Single)(   Читать дальше...   )Жанр: Symphonic Gothic Metal llПродолжительность: 06:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2E1FF5118187DE1DF5B2C623334DC714405B27
 ```
 
 https://mybot314.ru/tekegram_catalog/

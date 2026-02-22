@@ -1,38 +1,3 @@
-###  Публикация: 457017   (94353) от 25.02.2012
-
-3 Cohens - Family (2011) [FLAC|Lossless]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Shufla de Shufla (6:39)
-02. Blues For Dandi's Orange Bull Chasing An Orange Sack (7:41)
-03. With The Soul Of The Greatest Of Them All (9:40)
-04. The Mooch (7:15)
-05. Do You Know What It Means To Miss New Orleans (7:24)
-06. Rhapsody In Blake (4:24)
-07. On The Sunny Side Of The Street (5:12)
-08. Tiger Rag (4:06)
-09. Family (5:32)
-10. Roll ‘Em Pete (5:02)2011Жанр: Mainstream JazzПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 458105   (94340) от 25.02.2012
 
 Adrian Del Vecchio - Anxiety (2009) [FLAC|Lossless]<Fusion, Contemporary Jazz>
@@ -879,6 +844,39 @@ Don Friedman - Hot Knepper And Pepper (1990) [FLAC|Lossless]<Post-Bop>
 06. I'm Getting Sentimental Over You (Alt. Take 1) (7:09)
 07. Beautiful Love (Alt. Take 1) (10:05)
 08. Audobon (Alt. Take 3) (7:49)1990Жанр: Post-BopПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447497   (92605) от 07.02.2012
+
+John Clark - Il Suono (1992) [FLAC|Lossless]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Mustang Sally 8:56
+02. Buster's Move 8:58
+03. Groove From the Louvre 6:56
+04. Hot Fried Fish 3:11
+05. Dolphin Dance 6:18
+06. Miradita 6:46
+07. Il Suono Delle Ragazze Che Ridono 2:54
+08. Pretty Loose 2:54Жанр: Post-BopПродолжительность: 00:53:19
 
 ## Скачать торент
 ```bash

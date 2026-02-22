@@ -1,3 +1,264 @@
+###  Публикация: 1449395   (1030056) от 21.02.2021
+
+Corrosion Of Conformity - Nо Сrоss Nо Сrоwn (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Southern Metal, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Novus Deus
+02. The Luddite
+03. Cast The First Stone
+04. No Cross(   Читать дальше...   )Жанр: Heavy Metal, Southern Metal, Stoner RockПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C778900607F93E7595F1F2F685C75CAEE8B63D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622584   (1030050) от 29.03.2023
+
+Marianas Rest - Auer (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030050.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Auer
+2. Diseased
+3. Light Reveals Our Wounds
+4. White Cradle(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE90E827B43CF8D3FB0ED0D119EB604299DDD3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622736   (1030048) от 29.03.2023
+
+Many Moons, John West, Dennis Chitwood - Many Moons (2021) Reissue, Remastered, 2021, 20th Century Music [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Breeze (4:25)
+02. Open Your Eyes (4:28)
+03. Seven Valleys (4:40)
+04. Winter Wind (3:51)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A790685674DA2679CF18EACCE4D0F3AFBB0688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449340   (1029970) от 21.02.2021
+
+Creeping Death - Wretched Illusions (2019) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ripping Through Flesh
+02. Captivity
+03. Bloodlust Contamination
+04. Sinner's Torch(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8588BBDEB15219AE58B652367E42D61A0CD8C3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622926   (1029803) от 30.03.2023
+
+Visions Of Atlantis - Pirates over Wacken (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master the Hurricane (Live) (7:26)
+02. A Life of Our Own (Live) (4:32)
+03. Clocks (Live) (4:42)
+04. The Silent Mutiny (Live) (4:08)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6629F083C502624D018F83475C1BB20B5FB89363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449678   (1029784) от 22.02.2021
+
+Tyga Myra - Deliverance (1986) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deliverance (Last Rites)
+02. Lightning Never Strikes Twice
+03. Right Through The Night
+04. Ain't Got Long To Go(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBED71F3A82808FCF3E2F674F566A5C4EA6F1ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449615   (1029780) от 22.02.2021
+
+The Ruins Of Beverast - The Thule Grimoires (2021) [FLAC|Lossless|image + .cue] <Atmospheric, Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ropes Into Eden (13:27)
+02. The Tundra Shines (10:33)
+03. Kromlec'h Knell (8:33)
+04. Mammothpolis (6:22)(   Читать дальше...   )Жанр: Atmospheric, Black Metal, Doom MetalПродолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1A52BC97949CAF43A87990DE98219C0A8A995D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449662   (1029775) от 22.02.2021
+
+Vision Divine - When All The Heroes Are Dead (2019) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insurgent (1:57)
+02. The 26th Machine (4:38)
+03. 3 Men Walk On The Moon (5:10)
+04. Fall From Grace (4:57)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB79BE595A8529B4FB70D831A8FA652BFF0E6C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449695   (1029586) от 23.02.2021
+
+Harakiri For The Sky - Mære (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I, Pallbearer [00:07:02]
+02. Sing for the Damage We've Done [00:08:05]
+03. Us Against December Skies [00:08:21]
+04. I'm All About the Dusk [00:11:09](   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 01:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4E3ECAC638E5BFBA0BA6E0685DCA7596AC5A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449699   (1029585) от 23.02.2021
 
 Volter - High Gain Overkill (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -484,267 +745,6 @@ Alpha Tiger - Alpha Tiger (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4E43618F12E8B9A5DAD7C0D78EE7A29D6CB568A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451402   (1028381) от 02.03.2021
-
-Jon Oliva's Pain - Festival (2010) Limited Edition Digipak [FLAC|Lossless|image + .cue] <Progressive Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lies (06:19)
-02. Death Rides a Black Horse (06:15)
-03. Festival (05:00)
-04. Afterglow (06:50)(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0851F024C5475861DB532689EF7C2236A8E1329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451221   (1028378) от 02.03.2021
-
-Saints & Sinners - Saints & Sinners (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake
-02. Rip It Up
-03. Walk That Walk
-04. Takin' My Chances(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CB233B8691DBDC0BECBFD4A7EF7133B203EBA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451473   (1028373) от 02.03.2021
-
-Alpha Tiger - 4 Studio Albums (2011-2017) 4xCD [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alpha Tiger - немецкая Heavy Metal группа, музыка которой отсылает слушателя к металлу 80-х, но тем не менее обладает своим индивидуальным почерком. Движимая гармоничным сочетанием двух гитар и характерного вокала, группа представляет мощный высокоскоростной металл, который обрел свою мощь, будучи записанным в студии ветерана металла Карла Уотербаха. Лирическая концепция (   Читать дальше...   )2011 - Man Or Machine
-2013 - Beneath The Surface
-2015 - iDentity
-2017 - Alpha TigerЖанр: Power MetalПродолжительность: 03:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A46645F575DD8E08D50F3CED2D9541E0682752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451721   (1028256) от 03.03.2021
-
-Null'O'Zero - Instructions To Dominate (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instructions To Dominate
-02. The Last One
-03. My Last Disguise
-04. Imprisoned In The Dark(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F46F43C117E264E9B3A656B5E9930AEF51CBE5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451716   (1028245) от 03.03.2021
-
-Tragedian - Seven Dimensions (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rising Rage
-02. Aloneness
-03. Out of the Dark
-04. Darkest of My Days(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C5A846479B4200ACAE137F12856A88DE3161B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451715   (1028240) от 03.03.2021
-
-Slayer - Divine Intervention (1994) Reissue, 2013,  American Recordings [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Fields
-02. Sex. Murder. Art.
-03. Fictional Reality
-04. Dittohead(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7684E205F533983A8BBF8CDBF30B906D39A642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451718   (1028237) от 03.03.2021
-
-Slayer - Christ Illusion (2006) Reissue, 2007,  American Recordings [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flesh Storm
-02. Catalyst
-03. Skeleton Christ
-04. Eyes of the Insane(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEEF557DF926A621BCF362270676C35B2815E3BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451795   (1028102) от 04.03.2021
-
-Invernoir - The Void And The Unbearable Loss (2020) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Void And The Unbearable Loss (7:03)
-02. The Path (7:02)
-03. House Of Debris (5:57)
-04. Suspended Alive (5:37)(   Читать дальше...   )Жанр: Death Metal, Doom Metal, Gothic MetalПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7705CA1865B4CC5586F674ABC3F7DA0D961DC56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451803   (1028075) от 04.03.2021
-
-Eclipse Of The Sun - Brave Never World (2020) [FLAC|Lossless|image + .cue] <Gothic Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pillars Of Creation (5:22)
-02. Things Called Life (4:46)
-03. Brave Never World (5:35)
-04. Not A Symbol (6:01)(   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94853DDEF154CBD9F563945B4A33EE9ACBA60E29
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1090076   (947494) от 06.01.2017
+
+VA - Billboard Hot 100 Singles Chart 14.01.(2017) [MP3|32-320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947494.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
+002. Bruno Mars - 24k Magic 3:47
+003. The Weeknd feat. Daft Punk - Starboy 3:51
+004. The Chainsmokers feat. Halsey - Closer 4:06(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6ACD949B36F7CDB165EC2890776674265C0D544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090158   (947426) от 06.01.2017
 
 VA - Снегопад новинок от Хит fm Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
@@ -722,35 +751,6 @@ VA - Дискотека зимних дорог. Русские хиты (2017) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2AFDB3DD2381AD2D830055EE8E7A8B7D8A99D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091975   (940347) от 11.01.2017
-
-VA - Звездная вечеринка. Зарядись хитами Выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940347.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Диана Громова - Разбиваемся 3:08
-002. Topic - Home 3:17
-003. Непара - Любимые Люди 3:44
-004. Jaguar Skills & Chords Feat. Matti Roots - Lust 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C28D492F18C28B9E1D33071CEAEBCFDCA6BAA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

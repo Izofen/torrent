@@ -1,3 +1,90 @@
+###  Публикация: 926862   (531729) от 11.08.2015
+
+Barney Wilen - Barney (1959) /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Besame Mucho [12:50]
+02. Stablemates [05:38]
+03. Jordu [09:06]
+04. Lady Bird [11:30](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 01:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C79085A820EAB111D6A850BA6BCE7F0047727F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926795   (531726) от 11.08.2015
+
+Fattburger - One Of A Kind (1986) /Golden Boy Jazz/[FLAC|tracks+.cue]<Jazz, Smooth, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 59th St. [07:26]
+02. Park Lane [04:09]
+03. Yum Yum [05:17]
+04. Auto Bahn [04:56](   Читать дальше...   )Жанр: Jazz, Smooth, Jazz-PopПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EDFB18379C7CA75F6462C8A2FA7020513DBFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926832   (531717) от 11.08.2015
+
+Dee Dee Bridgewater - Dee Dee's Feathers (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Fine Thing
+02. What a Wonderful World
+03. Big Chief
+04. Saint James Infirmary(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C40B127CE777D2BD7A521828B4D3586FBA29B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155693   (531691) от 04.08.2017
 
 Jack Teagarden & Jonah Jones - Old Timey Jazz (1979) 2014, Music Trax [FLAC|Lossless|tracks + .cue] <Swing>
@@ -658,93 +745,6 @@ The Exception - The Exceptional Exception (1969) Remastered /2006, Air Mail Arch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:071A2DE5836FD5547A43DD27E5A7F8C49A2B3899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155956   (529675) от 05.08.2017
-
-VA - Nu Jazz Meets Lounge: Selected Cocktail Bar Beats (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Froggies - Dub Jazz 03:49
-02. Andrea Simiele - Lunar 03:45
-03. Brass - Black Star 04:13
-04. Vibraphile - Breakfast Club London (feat. Linnea) 04:51(   Читать дальше...   )Жанр: JazzПродолжительность: 01:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A462066609FFD1154A55E7153DDF26DC6438C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052230   (529275) от 13.09.2016
-
-Jeff Menteer - The Nature of My Dreams (2011) [MP3|256 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Great Mystery That Surrounds Us     (04:55)
-02. There's Gotta Be Something     (07:26)
-03. With You     (03:56)
-04. I Hope I'm Wrong     (06:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D1B386F1C2F239AE0BF73E9EDB281F980C5ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052158   (529261) от 13.09.2016
-
-John Coltrane - Blue Train (1957) 2CD, 2010, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529261.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Blue Train:
-01.Blue Train [10:43]
-02.Moment's Notice [09:10]
-03.Locomotion [07:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58849BCD4865F2A350A57BD66F2B50DB7A9AE428
 ```
 
 https://mybot314.ru/tekegram_catalog/

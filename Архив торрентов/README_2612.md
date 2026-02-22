@@ -1,3 +1,30 @@
+###  Публикация: 826744   (637305) от 12.06.2015
+
+Boinx FotoMagico 4.6.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637305.jpg" />
+</div>
+
+
+###  Подробнее
+
+FotoMagico – популярный пакет для создания слайд-шоу от компании Boinx Software.
+В состав  программы входит отдельный плеер, который позволяет просматривать слайд-шоу с высоким разрешением на компьютерах, на которых не установлен пакет FotoMagico (ранее это было возможно лишь при экспорте слайд-шоу в видеоролик, при этом приходилось искать компромисс между большим (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 08 июня 2015Разработчик: Boinx Software Ltd.Поддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Английский, Французский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7012253E5974E3BDD0A0787B326AEE44818B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907700   (637303) от 12.06.2015
 
 Wondershare MobileGo 7.6.1.25 [Multi/Ru]
@@ -666,36 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFEC81CCA0FFE323C222425CA223758442AB357D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 348074   (637183) от 09.06.2011
-
-OST - Игра престолов / Game of Thrones (бутлег) (2011) [MP3 |192 kbps] <Soundtrack>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Game Of Thrones - Main Theme - Soundtrack (1:41)
-02. Game Of Thrones - End Title - Soundtrack (1:01)
-03. Game Of Thrones - Main Theme (Piano version) (2:08)
-04. Game of Thrones - Main Theme (Guitar version) (1:32)
-05. WhiteNoise Lab - Game of Thrones Theme (1:40)Жанр: SoundtrackПродолжительность: 00:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5C8C04C8BC83A749B7FB8553288398E1562B2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

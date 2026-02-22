@@ -1,3 +1,105 @@
+###  Публикация: 615330   (977598) от 08.02.2013
+
+VA - The Golden Age Of Swing "Big Band Legends" (1995-1997) 3CD[FLAC|Lossless]<Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Russell - Doctor Blues [03:16]
+02. Fletcher Henderson - New King Porter Stomp [03:12]
+03. Horace Henderson - I'm Rhythm Crazy Now [03:20]
+04. Chick Webb - That Naughty Waltz [02:59]
+05. Count Basie - Miss Thing [05:43]
+06. Earl Hines - G.T. Stomp [02:47]
+07. Andy Kirk - Big Jim Blues [03:00]
+08. Harlan Leonard - Hairy Joe Jump [03:14]
+09. Duke Ellington - Jack The Bear [03:22]
+10. Louis Armstrong - Harlem Stomp [03:05](   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:05:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742853   (977054) от 07.01.2014
+
+Benedikt Jahnel Trio - Equilibrium (2012) [FLAC|Lossless]<Jazz, ECM>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Gently Understood (5:02)
+02. Sacred Silence (7:12)
+03. Moorland & Hill Land (13:52)
+04. Wrangel (9:01)
+05. Augmented (4:41)
+06. Hidden Beauty (4:19)
+07. Equilibrium (9:39)Жанр: Jazz, ECMПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758B38997280BA2BA35911D35A2179EAEDC20B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742856   (977050) от 07.01.2014
+
+Jose Luis Monton - Solo Guitarra (2012) [FLAC|Lossless]<Jazz, ECM>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Rota (5:52)
+02. Española (5:08)
+03. Son & Kete (3:54)
+04. Air (3:30)
+05. Altolaguirre (2:51)
+06. Con permiso (4:52)
+07. Al oido (4:39)
+08. Conclusión (5:49)
+09. Detallitos (4:59)
+10. Hontanar (5:22)(   Читать дальше...   )Жанр: Jazz, ECMПродолжительность: 00:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE3AB0B2C151E2985B95B013ECC80E166886CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742946   (977040) от 07.01.2014
 
 Allison Thrash - Do You Come With the Drink (2013) [FLAC|Lossless]<Blues-Rock>
@@ -719,105 +821,6 @@ Gregory Fine (Григорий Файн) Trio - The Road To Mississauga (1997) �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D61F9D98906146F75A04E5C31B185A152374CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356997   (975456) от 02.02.2020
-
-VA - Cost to Coast: Sweet Relaxing Jazz (2020) [MP3|320 Kbps] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975456.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.EJazz Artistry - I Can't Stop Loving You (4:21)
-2.Kool&Klean - I Can Only Imagine (4:56)
-3.Chillaxing Jazz Kollektion - Mornin' (4:29)
-4.Konstantin Klashtorni - In the Night (4:06)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157604D2E5F33393F72F1E56C6A80A9710283145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616540   (975148) от 10.02.2013
-
-VA - Jazz Ballads With A Blue Feeling (2003) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ernie Andrews - Everybody's somebody's fool [05:11]
-02. Etta Jones - God bless the child [07:16]
-03..Sheila Jordan - Good morning heartache [06:06]
-04. Dakota Staton - Trav'lin' light [05:20]
-05. Mark Murphy - I'm Thru With Love [04:46]
-06. Wesla Whitfield - Ill wind [04:18]
-07. Della Griffin - This bitter earth [05:19]
-08. Etta Jones - I'm afraid the masquerade is over [08:58]
-09. Everett Green - When Did You Leave Heaven [06:39]
-10. Dinah Washington - It's too soon to know [02:21](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616523   (975018) от 10.02.2013
-
-Bill Wyman's Rhythm Kings - Platinum (World Bestsellers) (2000) [FLAC|Lossless]<Rhythm & Blues, Blues, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyway The Wind Blows
-02. Spooky
-03. Walking One & Only
-04. Mojo Boogie
-05. Too Late
-06. Every Sixty Seconds
-07. Ring My Bell
-08. Days Like This
-09. He's A Real Gone Guy
-10. True Romance(   Читать дальше...   )Жанр: Rhythm & Blues, Blues, JazzПродолжительность: 01:19:24
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1634869   (240191) от 23.05.2023
+
+Loveless Blue Jazz Quintet - Loveless Blue Jazz Quintet (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Bless the Child (7:10)
+02. I Wish I Knew How It Would Feel to Be Free (6:02)
+03. Our Love Is Here to Stay (4:23)
+04. Georgia on My Mind (5:40)(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1903CF34788D524A98AD89BD38E289B79912F31A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634866   (240180) от 23.05.2023
 
 E&B Haircut - Blues Camp (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ VA - African Jazz For The Soul (2022-2023) Vol. 1 - 5  [MP3|320 Kbps] <Jazz, Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D40E9C369312CDE30EDCF9D50D6A7290BD60C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637612   (239797) от 05.06.2023
-
-Bruce Torff - Look Again (2013) Summit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look Again [4:49]
-02. One and Only [4:41]
-03. In the Flow [4:19]
-04. When I Said Goodbye [2:50](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455952A4E983CC67FEF56F649415E2D5411BBA8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

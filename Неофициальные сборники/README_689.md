@@ -1,3 +1,293 @@
+###  Публикация: 1818173   (2616) от 15.09.2025
+
+VA - Compilation Part 194 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Jambeats - Autumn Love
+02 - Rodle - No More Words
+03 - A-Sultan - No Reply
+04 - Dova Music - Broken Promises(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5811CFEBD549BAB8A72E06D554A78BCF1C0554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818152   (2613) от 15.09.2025
+
+VA - Compilation Part 192 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Riltim - Milky Way
+02 - Dieez - One Time
+03 - Dova Music - Sweet Love
+04 - Plvtina - Aurora(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FDA48B46E28FD83904E2B9ADE88D2F219209FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817866   (2612) от 15.09.2025
+
+Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Numero Uno
+ 02 - Pasta Con Te (Dream Version)
+ 03 - Non Mi Amava Più (Club Version)
+ 04 - Bella Bavaria(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0697099B1E10B7126623E25EA8FABA2B1ACB505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818387   (2485) от 16.09.2025
+
+VA - National Pop Dance Music Vol.120 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2485.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gino J, Efosa - Less Is More (02:38)
+ 002. Kan Sano - Sorekara (02:44)
+ 003. Nick Wilson - Supposed To Say (02:46)
+ 004. Rodle - Midnight Again (03:55)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 11:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4352377A7BE547161206A7C0E340CB54DB5B5FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818584   (2338) от 17.09.2025
+
+VA - Anything and everything assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening,  Vocal, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dj Moralez - Don't Let it Fade
+02 - Yenra - Tea Party
+03 - Hamidshax - Dreams
+04 - Yenra - Blanket of Dreams(   Читать дальше...   )Жанр: Electronic, Easy listening,  Vocal, OtherПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0CD2D9E004D890601375DDD9E2AA1253152A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818631   (2160) от 18.09.2025
+
+Keb' Mo' - Compilation (1980-2025) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Junkyard Dog (& Taj Mahal) {Room On The Porch}2025
+02. More Than One Way Home {Just Like You}1996
+03. Put A Woman In Charge (& Rosanna Cash) {Oklahoma}2019
+04. Rainmaker {Rainmaker}1980(   Читать дальше...   )Жанр: BluesПродолжительность: 04:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE03F185D55680E426FC9DDB26B270571EB9C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818953   (2008) от 19.09.2025
+
+Xezzo - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Chicago
+ 02 - Sometimes
+ 03 - Passion
+ 04 - Favorite(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899C118CA0E92EEAA7B21F9886256AC6E8B144E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818850   (2000) от 19.09.2025
+
+Romantic Dreams - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - It's Your Fault
+ 02 - More Than Words
+ 03 - Good Night My Darling
+ 04 - Endless Love(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F8CDE6E794897F0DC720E0DB097C7FA3342509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818876   (1974) от 19.09.2025
+
+Yenra - Compilation (2025) [MP3|320 Kbps] <Electronic, Vocal, Disco, Euro-Disco, Vocal, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Neon Neural City
+ 02 - Library of Starlight
+ 03 - Neural Highways
+ 04 - Stellar Synapse(   Читать дальше...   )Жанр: Electronic, Vocal, Disco, Euro-Disco, Vocal, OtherПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6FFAEABD6E64CD0B74A10CA721F45A1FACC263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818888   (1973) от 19.09.2025
+
+Reyvi - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Run
+ 02 - You Again
+ 03 - Love is Stronger
+ 04 - In the Rain(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F114EC9EB480812B3064191C71BC54FC3302A23B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819054   (1806) от 20.09.2025
 
 Let Babylon Burn - Compilation Part 1 (2025) [MP3|320 Kbps] <Soul, Reggae>
@@ -456,296 +746,6 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [c002] (2012-2025) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C720C94C1DDB734D5B19C18A475804D3D53828A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819422   (1443) от 22.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [c003, Bonus] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1443.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cocino - Where Do We Go.mp3
-002. Coco, Joezi, Pape Diouf - 7 Seconds.mp3
-003. Code Beat feat. Snoop Dogg, T.I. & Beat Frequency - I Like It (David May & Ebbyman Mix).mp3
-004. Code Breakerz - POISON.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 08:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11128B1277B8C182C47F3E0AC5EF0E9DFD1385F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818864   (1301) от 23.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [a001] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1301.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A R I Z O N A - Summer Days.mp3
-002. A&G, Northmark feat. Gabri - Run With Me (Radio Edit).mp3
-003. A. Lee - Gotta Let Go (Dub Mix).mp3
-004. A. Rassevich - Come One Way (Original Mix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD6A633F06A0E897C78D63F47E21387D6AAB539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819564   (1270) от 23.09.2025
-
-Sammy Hagar - Voice Of Rock - Compilation (1973-2025) [MP3|320 Kbps] <Hard rock, Glam metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mas Tequila (& The Waboritas) {Red Voodoo}1999
-02. Something Going Wrong (& Chickenfoot) {Chickenfoot III}2011
-03. Halfway To Memphis (& The Waboritas) {Not 4 Sale}2002
-04. Heroes (& David Bowie & The Circle) {Lockdown 2020}2021(   Читать дальше...   )Жанр: Hard rock, Glam metalПродолжительность: 08:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756CCAFD9317E53AE7AF3A372FD0E0612EE8A111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819646   (1190) от 24.09.2025
-
-Пикник - Premium Playlist (2004-2024) [MP3|320 Kbps] <Psychedelic Rock, Post-Punk, Gothic Rock, Folk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aianostre (Королевство кривых, 2004).mp3
-02. А зовут его. Оторви и Брось (Один на один, 2024).mp3
-03. А может быть и не было меня (Чужой, 2004).mp3
-04. Азбука Морзе (Чужестранец, 2014) (2).mp3(   Читать дальше...   )Жанр: Psychedelic Rock, Post-Punk, Gothic Rock, Folk RockПродолжительность: 06:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED775E2EC36B60ABB3DC2B1FD0A29359E13B0107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819574   (1184) от 24.09.2025
-
-Amanda Lear - Premium Playlist (1976-2011) [MP3|320 Kbps] <Pop, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alligator {I'am A Photograph, 1977-2}.mp3
-02. Alphabet (Prelude In C By J.S. Bach) {The Collection, 1998}.mp3
-03. Alter Ego (Part 2) {Greatest Hits, 2003}.mp3
-04. Always On My Mind (Psychology Mix) {Brief Encounters Reloaded, 2010}.mp3(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 06:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B2F5EB0D574B6D750C3C1E39C1B9312BE7F14F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818887   (1182) от 24.09.2025
-
-VA - National Pop Dance Music - Premium Playlist [!!, nr, a] (2020-2025) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1182.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #Mallorcadassindwir - Mallorca Das Sind Wir.mp3
-002. (Dis)Amore - Conta Su Di Me.mp3
-003. (G)I-Dle - Oh My God.mp3
-004. 1Tak - I Don't.mp3(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 25:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D603D4AC97B14318A5E4C3D6A3724C6EDC08FFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819647   (1174) от 24.09.2025
-
-Тимур Шаов - Premium Playlist (1997-2019) [MP3|320 Kbps] <Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. «Товарищи ученые» 30 лет спустя (Минск, 2005).mp3
-02. Sex в носках (При чём тут Фрейд, 2017).mp3
-03. Аполитичная песня (Любовное чтиво, 1997).mp3
-04. Аутотренинг (О чём молчал Герасим, 2010).mp3(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 07:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B4B5FDB30C6DAEAA18B1CA4127C41A78DF9D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819584   (1170) от 24.09.2025
-
-Giorgio Moroder - Premium Playlist (1968-2018) [MP3|320 Kbps] <Euro Disco, Electronic Dance Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1170.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 74 is the New 24 {Deja Vu (Jap Ed), 2015}.mp3
-002. A Whiter shade of pale - Munich Machine {Giorgio Moroder & Co - Greatest Hits, 1996}.mp3
-003. Another Way (Instrumental) {Another Way, 1988}.mp3
-004. Another Way {Another Way, 1988}.mp3(   Читать дальше...   )Жанр: Euro Disco, Electronic Dance MusicПродолжительность: 10:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92D6ED05DAEFCB59C75DB1A33E7AE6B3E234721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819676   (1163) от 24.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [a002] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1163.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aelyn - Believe In Us (Radio mix).mp3
-002. Aelyn - Hypnosis.mp3
-003. Aerobatics & Cotry - Intuition (Feat. Cotry) (Original Mix).mp3
-004. Aeron Aether & Bobalino - Titans  feat. Jay Furze (Album Mix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D34D6CCBACC5131F4A8C9ACC52A91CAF2E4EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819642   (1157) от 24.09.2025
-
-Зоя Ященко и Белая Гвардия - Premium Playlist (1993-2020) [MP3|320 Kbps] <Sentimental Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1157.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. А в лесу сосновом... (Когда ты вернёшься, 2002).mp3
-002. Абсолютная ночь (Другие острова, 2001).mp3
-003. Айседора Дункан (Так восходит луна, 2013).mp3
-004. Алый парус (Кукла в кармане, 2005).mp3(   Читать дальше...   )Жанр: Sentimental RockПродолжительность: 08:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0EE3E96B703B2C04FC7D1176EEF13506E7E26D
 ```
 
 https://mybot314.ru/tekegram_catalog/

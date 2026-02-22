@@ -1,3 +1,29 @@
+###  Публикация: 1293099   (638711) от 02.04.2019
+
+BELOFF 2019.4 Lite [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой на Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также установку Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751AB20C8272705D0173700E4554C858B5AEDC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142741   (638704) от 16.06.2017
 
 MetaProducts Offline Explorer Enterprise 7.4.4594 SR3  RePack (& Portable) by TryRooM  [Multi/Ru]
@@ -677,35 +703,6 @@ VA - Club Nights Trance Vol. 6 (2016) [MP3|320 Kbps] <Trance, Progressive Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89EE2420A509F6913B76F58F3F17CD272F89E877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033504   (638246) от 11.07.2016
-
-VA - Dub Hits Vol.2 (2016) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer Ft. Robin Vane -  Someday (Temple One Dub Mix) 5:51
-02. Feel & Alexandra Badoi -  Did We Feel (Reorder Dub Mix) 5:27
-03. Nomosk & Roman Messer Ft. Christina Novelli -  Lost Soul (Cold Rush Dub Mix) 7:32
-04. Universal Sense & Aelyn -  Be Where You Are (Instrumental Mix) 6:40(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2904AE7216D0081FB5BB1299362A2CCE9FF2012
 ```
 
 https://mybot314.ru/tekegram_catalog/

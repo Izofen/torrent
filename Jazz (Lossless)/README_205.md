@@ -1,3 +1,32 @@
+###  Публикация: 1063386   (434664) от 16.10.2016
+
+Katie Melua - In Winter (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Folk, World>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Little Swallow
+02. River
+03. Perfect World
+04. Cradle Song(   Читать дальше...   )Жанр: Vocal Jazz, Folk, WorldПродолжительность: 00:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E71C3DDD342814CAC6F506222676162FB2EDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 245017   (434446) от 13.10.2010
 
 Matt Bianco - Rico (2000) [FLAC|Lossless]<Jazz, Smooth Jazz, Bossanova>
@@ -716,35 +745,6 @@ Joe Gordon - Social Call (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB0781CA81005D528207E7BB7CC26480D9886F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410835   (431982) от 23.09.2020
-
-Slide Hampton - Drum Suite (1962) 2006, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fump [5:21]
-02. Lover [5:10]
-03. Like Someone in Love [8:27]
-04. Gallery Groove [4:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DB3AE148C39FCBF3C4C8AF0020B7A6E46F4BEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

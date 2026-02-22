@@ -1,3 +1,32 @@
+###  Публикация: 1267181   (244908) от 05.12.2018
+
+Count Basie - Swinging The Blues (1937 - 1949) 2000, Disques Dreyfus [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumpin' At The Woodside [3:03]
+02. Louisiana [2:27]
+03. Katy [2:57]
+04. Broadway [2:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60BCF1DAFCB13E3DE6BA407877F5DB6A19A7CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266984   (244899) от 05.12.2018
 
 Art Pepper - Neon Art: Volume Three (1981) 2015, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -715,35 +744,6 @@ The John Colianni Trio - Blues-O-Matic (1989) Concord Jazz[APE|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:147BDEF2F49CC46CA9F43C6A4F776796AEEDC0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625432   (244476) от 10.04.2023
-
-Sunken Lands - Sunken Lands (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We take it for granted (4:29)
-02. Not a cloud in the sky (2:56)
-03. The damage is done (2:41)
-04. Andrew (3:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731A3480FE6D010581E016F31A3DC305DFB96EDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

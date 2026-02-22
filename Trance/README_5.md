@@ -1,3 +1,32 @@
+###  Публикация: 1090407   (947531) от 06.01.2017
+
+VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz feat. CeCe Peniston - Make You Fall 04:31
+02. Dash Berlin feat. Kate Walsh - When You Were Around 02:59
+03. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (Den Rize Remix) 03:45
+04. MaRLo feat. Sarah Swagger - Always Be Around 03:57(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0615B328DC0FE778B4171032DF61CB43B583CEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 172835   (947454) от 09.02.2010
 
 DJ Eco - Подборка синглов (2007 - 2010) [MP3|320 kbps] <Uplifting Trance, Progressive>
@@ -737,35 +766,6 @@ VA - Uplifting Only - Orchestral Trance Year Mix 2015 (Mixed by Ori Uplift) (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04199D11A3B388191728E9CC17129939F80BB65F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490404   (915509) от 22.08.2021
-
-VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Activa - Polestar (Extended Mix) [6:53]
-02. Andy Moor & Somna with Linney - More Than Love (Craig Connelly Extended Remix) [6:50]
-03. Richard Durand - White Dolphins (Extended Mix) [5:17]
-04. Dennis Sheperd & EKe & Alex Di Stefano - Playing With Fire (Alex Di Stefano Extended Remix) [7:01](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F76DD3DF86696FD9537E7C3E405DA026D56CB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

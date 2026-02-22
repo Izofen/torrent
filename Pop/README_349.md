@@ -1,3 +1,90 @@
+###  Публикация: 1711109   (61408) от 29.03.2024
+
+Леонид Агутин - Всё не зря (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61408.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Скажи хоть что-нибудь
+2. Всё не зря
+3. Небо падает в руки
+4. Бог об этом не просил(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311DFB8FECB83FBC9D9341668DDA9B3CC138CB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711055   (61379) от 29.03.2024
+
+Gigi D'Agostino - Sound of Love (2024) [FLAC|Lossless|WEB-DL|tracks] <EuroDance, Italo Dance, House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sound of Love (GIGI DAG & LUC ON Radio Mix) [3:43]
+02 - Can You Feel It (GIGI DAG & LUC ON Radio Mix) [3:04]
+03 - Goodbye Bonsoir (Tanzen Dub GIGI DAG & LUC ON Mix) [4:33]
+04 - Love Message (GIGI DAG & LUC ON Love Mix) [3:25](   Читать дальше...   )Жанр: EuroDance, Italo Dance, HouseПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8451ED4B4F27B6CF4E22A8C794CE7F257B8A525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711056   (61375) от 29.03.2024
+
+VA - Best Songs: The 70s (2023) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rod Stewart - Da Ya Think I’m Sexy - 05:31min
+ 02. Blue Swede - Hooked on a Feeling - 02:53min
+ 03. Kate Bush - Wuthering Heights - 03:26min
+ 04. Fleetwood Mac - Dreams (2018 Remaster) - 04:18min(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 03:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAF1A38C16E951FBDF973DFFC79EB1730810F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711208   (61291) от 30.03.2024
 
 VA - Голос мой услышь (2024) [FLAC|Lossless|WEB-DL|tracks] <pop>
@@ -655,93 +742,6 @@ Little Big - Lobster Popstar (2024) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:658FF12392EF07F4E68E242982190521E2BDBA95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719810   (58025) от 30.04.2024
-
-VA - Italo Disco Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joey Mauro & Fred Ventura - You And I (Vocal Version) 05:11
-02. Fabian Nesti - Dreamer (115 H.Q. Version) 05:00
-03. Italowarriors feat. Raffale Fiume & Fabian Nesti - The Warrior (Italo Version) 05:28
-04. Joey Mauro & Clock On 5 - Love Kills (The Mayerling Part 2) 05:44(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFAF1A63BE7143979495B816ABB8EBBD7E1B9268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720298   (57743) от 03.05.2024
-
-Dua Lipa - Radical Optimism (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of An Era
-02. Houdini
-03. Training Season
-04. These Walls(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E01EE3DEED478132B29628516CBF07A95F1BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720302   (57742) от 03.05.2024
-
-Sia - Reasonable Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Wing
-02. Immortal Queen (feat. Chaka Khan)
-03. Dance Alone (feat. Kylie Minogue)
-04. I Had a Heart(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4C36686BE932661C0C7E98C03820B3CD1370B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

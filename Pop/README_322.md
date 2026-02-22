@@ -1,3 +1,86 @@
+###  Публикация: 1699969   (117190) от 16.02.2024
+
+Кватро - Слишком Честно (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117190.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Слишком ЧестноЖанр: PopПродолжительность: 00:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE4C1CBCDF7F21D622DCDF355D9F51CAEFC71DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699960   (117186) от 16.02.2024
+
+Женя Любич - Лето (2021) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117186.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Будь что будет
+2.Белая ночь
+3.ЛетоЖанр: PopПродолжительность: 00:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26964816D31893B5A0BD8BF8B7F58741E7DFA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699976   (117161) от 16.02.2024
+
+Моя Дорогая - Влюблённые (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117161.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Влюблённые
+2. Милая
+3. Не знаешь
+4. Время героев(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B50ADA7ED9196E9BE901B0D670D4EEE12FDA41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699958   (117152) от 16.02.2024
 
 Амели На Мели - Наизусть (2017) [FLAC|Lossless|WEB-DL|tracks] <Инди-Поп>
@@ -658,94 +741,6 @@ Al Corley - The Big Picture (1988) Expanded Edition, 2023, Mercury [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45BD06A037BD60C6108F8D9DD36E2124066530F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702227   (115030) от 29.02.2024
-
-Ornella Vanoni - Collection (1961-1973) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sto male (4:03)
-02. Mi Fa Morire Cantando (4:44)
-03. Minuto Per Minuto (4:17)
-04. Ragazzo Mio (3:25)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC22A597C73B7FA84F409CF978DF7AF55394FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703505   (115018) от 29.02.2024
-
-Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|image + .cue] <Pop, Rock, Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of Broadway (5:03)
-02. Oh Marie (2:33)
-03. Sentimental Journey (2:55)
-04. Pennies from Heaven (2:59)(   Читать дальше...   )Жанр: Pop, Rock, SwingПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC15E7A4873447FA9958CA42F695CB720E4D81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 108504   (114958) от 01.03.2024
-
-Нэнси - Дым сигарет с ментолом-15 лет [2008] [MP3|320 kbps]<Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114958.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Стиль Рекордс Украина» представляет юбилейный альбом группы «НЕНСИ»-«Дым сигарет с ментолом 15 лет».В альбом вошли 3 новые песни и 12 лучших хитов!
-Мега-Хит «Дым сигарет с ментолом» от НЭНСИ появился на свет в 1993 году благодаря усилиям Анатолия и Елены Бондаренко, уже через два года стал любимой и популярной песней среди широкой аудитории на всем пост Советском (   Читать дальше...   )01. Дым Сигарет С Ментолом
-02. Чистый Лист
-03. Ночной Вокзал
-04. Светлана(   Читать дальше...   )Жанр: РорПродолжительность: 01:11:30 min.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F2E319CD1D98CFB99B77C840F79EBBFC142BE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

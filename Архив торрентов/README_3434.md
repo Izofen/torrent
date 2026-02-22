@@ -1,3 +1,29 @@
+###  Публикация: 941760   (460293) от 28.09.2015
+
+90 минут плюс. Эфир 27.09.2015 (2015) IPTV [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460293.jpg" />
+</div>
+
+
+###  Подробнее
+
+90 минут - ток-шоу Георгия Черданцева. Лучшая аналитическая программа о российском футболе. В течение полутора-двух-трёх часов рассказывается о самых интересных и актуальных вопросах нашего футбола. Каждую неделю Георгий Черданцев приглашает к себе в студию гостей, где обсуждает с ними самые заметные явления в футболе, произошедшие за неделю.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 01-57-58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED92F2563B6D98BE7EEAB3C5CA5C2ABE2869775F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941724   (460292) от 28.09.2015
 
 VA - Underground Anthems 5 (Mixed by Matt Bowdidge) (2012) [MP3|320 кб/с]<Trance>
@@ -685,35 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F46CB1B4B006931FD1343A55072E2B9DF70AEAB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941665   (460049) от 28.09.2015
-
-Children Of Bodom & Amorphis - Tales From Lake Bodom (2015) Split [FLAC|image+.cue]<Melodic Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Children Of Bodom:
-01. Suicide Bomber
-02. Halo Of Blood (Live at Summer Breeze 2014)
-03. Black Winter Day (Amorphis Cover)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D6FB5CC4FC135FD99C20B6A7C6A8E553234F28
 ```
 
 https://mybot314.ru/tekegram_catalog/

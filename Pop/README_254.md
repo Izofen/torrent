@@ -1,3 +1,90 @@
+###  Публикация: 1189314   (269468) от 07.12.2017
+
+Juanes - Mis planes son amarte (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perro viejo (3:16)
+02. Ángel (3:52)
+03. Fuego (2:46)
+04. Alguna vez (feat. Fonseca) (2:59)(   Читать дальше...   )Жанр: Pop, Pop Rock, LatinПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8431CEB624E74767B276F16B270E0669BE46CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189819   (269433) от 07.12.2017
+
+VA - Эстрадная орбита (1974) LP [MP3|320 Kbps] <Rock, Funk-Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неоднократно переизданный и почитаемый в СССР сборник "зарубежной эстрады"01. Шейла - Волшебники (3:24)
+02. Элвис Пресли - Беззаботный (3:17)
+03. Мак Кэйти Киссун - Я Нашла Его (2:31)
+04. Ринго Вилли Кэт - Ты Слишком Красива (2:55)(   Читать дальше...   )Жанр: Rock, Funk-Soul, PopПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C99BE79745FDF2660C01ED49C30B214F4B798D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189963   (269418) от 07.12.2017
+
+Александра Пахмутова - Зарево любви (1996) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Русский вальс (Юлиан)  4:24
+02. Не всё потеряно (Тамара Гвердцители)  3:16
+03. Звёздная река (Юлиан)  4:14
+04. Вера (Ирина Шведова)  3:34(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E424D81AF27AB89BD7C076E4911BA4EF925751E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189654   (269337) от 07.12.2017
 
 Дима Билан - 12 альбомов, 4 сингла (2003 - 2017) [MP3|320 Kbps] <Pop>
@@ -658,93 +745,6 @@ VA - I love Italo Dance (Best Hits 90's Remixes) (2017) [MP3|320 Kbps] <Eurodanc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21FF3C073613E8C8D84A516626702B20BAF8FF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190505   (267764) от 09.12.2017
-
-Inna - Nirvana (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruleta (feat. Erick)
-02. Gimme Gimme
-03. My Dreams
-04. Tropical(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFDC2F4798B799116DF2E9E2DAAE86187ACFA0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190495   (267756) от 09.12.2017
-
-VA - Первый танцевальный, Vol. 14 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ева Польна - Глубокое синее море
-02. Градусы - Выходи за меня
-03. Нюша - Не боюсь
-04. MONATIK - То, от чего без ума(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB38BFEF491FDC9644216B66BEEEB2A7EAE56631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190485   (267678) от 09.12.2017
-
-Plazma - Indian Summer (2017) [MP3|320 Kbps] <Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tame Your Ghosts
-02. Angel Of Snow
-03. Brilliant Water
-04. Mystery (The Power Within)(   Читать дальше...   )Жанр: РорПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C6C078919C9BE9ACCFFC3C67526FE735D00D3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

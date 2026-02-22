@@ -1,3 +1,32 @@
+###  Публикация: 1561493   (514515) от 05.07.2022
+
+Ethel Waters - Am I Blue?: Ethel Waters Sings 'Em (1923 - 1940) 2CD, 2019, Retrospective Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514515.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- 1923-1931:
+01. Am I Blue? [3:25]
+02. Ethel Sings 'Em [3:19]
+03. Sweet Georgia Brown [3:13](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F47EF9DADD6B47AE945A8098253048F79912015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930873   (514125) от 24.08.2015
 
 Blue Mitchell - Heads Up! (1967) /2014, Universal/[FLAC|tracks+.cue]<Hard Bop>
@@ -720,35 +749,6 @@ Bill Evans - Alone (1975) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36CA8B5A140BC5838A631BF5276BFC169DD54DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 21674   (510606) от 27.08.2015
-
-Miles Davis (1953 - 2006) 32 альбома [FLAC, APE, WV|tracks+.cue, image+.cue]<Jazz>
-
->>След.
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_510606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Miles Davis девять раз становился победителем премии Грэмми. Он целых три поколения  был главной силой в мире джаза, и как трубач и как руководитель джаз-оркестра. Miles Davis считается одним из лучших музыкантов своего времени. На протяжении всей своей жизни, он был у руля меняющейся концепции джаза. Более того, он собственно и менял стили джаза, а многие потом следовали (   Читать дальше...   )Перечень альбомов:
-1953 - At Last!
-1954 - Walkin'
-1955 - Quintet and Sextet(   Читать дальше...   )Жанр: JazzПродолжительность: 37:24:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

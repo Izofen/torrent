@@ -1,601 +1,3 @@
-###  Публикация: 444982   (91943) от 01.02.2012
-
-Benny Carter - A Gentleman And His Music (1992) [FLAC|Lossless]<Swing, Jump Blues>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes I'm Happy (7:44)
-02. A Kiss From You (6:22)
-03. Blues For George (8:15)
-04. Things Ain't What They Used To Be (9:57)
-05. Lover Man (7:34)
-06. Idaho (8:04)1992Жанр: Swing, Jump BluesПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444943   (91942) от 01.02.2012
-
-String Connection - New Romantic Expectation (1983) [FLAC|Lossless]<Fusion>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. New Romantic Expectation
-02. Moment Na Sopran I Syntezatory
-03. Berolina Foxtrott
-04. Progresje Jesieni
-05. Piosenka o WFG
-06. Singoholic
-07. Niezdara1983Жанр: FusionПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445032   (91941) от 01.02.2012
-
-[Wallpapers] Kids Full HD Wallpapers
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Kids Full HD Wallpapers  
-Название:  Kids Full HD Wallpapers  
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 3520х2200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25787681210CFFBEF8496A3804BE1EA9D8B64A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444324   (91939) от 01.02.2012
-
-VA - Музыкальная Премия Года 50/50 (2012) [MP3|256 kbps]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Los Canos - Dalinda (Radio mix)
-02. Даша Суворова - Я пою тебе
-03. DJ Tiesto & Allure feat. Jes - Show me the way
-04. Алисия - Улетаю
-05. Chris Parker - Space
-06. Джиган и Жанна Фриске - Ты рядом
-07. Klaas & Bodybangers - I like (Bodybangers mix)
-08. T-Killah & Лоя - Вернись
-09. Scotty - Sundown (Incomplete)
-10. Ева Польна - Я тебя тоже нет (Je T'aime)(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C09D6D1D3AED746A288E0B3F67FF05D6B6DC813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444705   (91938) от 01.02.2012
-
-VA - Special Anniversary [mixed by monotype] (2011) [MP3|320 kbps]<Hard Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Cover - The Light (The Paragod rmx) 06:37
-02. Tom Wax joins JamX & De Leon - Laut & Leise (original mix) 04:48
-03. Lisaya vs. Thomas Petersen - Ebony Angel (Dj Lee rmx) 04:20
-04. Lady Tom - House Of House (De Donatis rmx) 06:08
-05. Gary D. - Bass Kick down (Hard Bass mix) 05:18
-06. Noemi - Y.O.U (original mix) 06:17
-07. Dave Joy - Fourth Joyride (Buckle Up) 07:00
-08. C.M.R. - Lost Vision (Dj Choose rmx) 06:16
-09. Dj Josh'er - Nuclear Sun (original mix) 07:26
-10. Dave 202 pres. Powerface - Abyss (original mix) 06:34(   Читать дальше...   )2011Жанр: Hard Trance, TranceПродолжительность: 01:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1719A8C05BEF449671F2E2BC946797257B6DEA7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444846   (91936) от 01.02.2012
-
-Ernestine Anderson - Never Make Your Move Too Soon (1980) [FLAC|Lossless]<Vocal Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Never Make Your Move Too Soon (3:31)
-02. What A Difference A Day Made (4:47)
-03. As Long As I Live (4:40)
-04. Old Folks (7:18)
-05. Just One More Chance (5:30)
-06. My Shining Hour (3:34)
-07. Why Did I Choose You? (4:22)
-08. Poor Butterfly (5:35)1980Жанр: Vocal JazzПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444863   (91935) от 01.02.2012
-
-Full Faith & Credit Big Band - JazzFaire (1992) [FLAC|Lossless]<Big Band>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Hop, Skip & A Jump (6:36)
-02. Like Someone In Love (2:32)
-03. I Remember Clifford (5:34)
-04. Barbara (6:38)
-05. Everything Happens To Me (7:28)
-06. I Believe In Love (3:05)
-07. A Time For Love (4:44)
-08. Can't Handle It (3:25)1992Жанр: Big BandПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444815   (91934) от 01.02.2012
-
-VA - Mysterious Mind [mixed by monotype] (2011) [MP3|320 kbps]<Hard Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Scoozy - Uberschall (short club mix) 04:57
-02. Waterloop - Chips & Trips (original mix) 05:01
-03. Astroline - Take Good Care (original mix) 04:32
-04. Lava - Autumn (The Fall mix) 06:18
-05. Dj Dean & Danny K - In My Heart (club mix) 05:01
-06. Impegement Syndrom - Feel the Fire (original mix) 05:18
-07. RE-Animator - Rewire Your Brain (D-Gor mix) 05:42
-08. Andy Jay Powell - Rainbow Sailor (Love mix) 05:42
-09. Plastic Angel - Mysterious Mind (original mix) 05:29
-10. Dj Snowman - Skydiver (Pulsedriver rmx) 05:42(   Читать дальше...   )2011Жанр: Hard Trance, TranceПродолжительность: 01:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3B509BCC1CDCE5963EF06DEC87591C608AA768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445244   (91933) от 01.02.2012
-
-[Wallpapers] Best HD Wallpapers Pack (02.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D99BEFF7CA44633F5517E6245555769AD204E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443229   (91932) от 01.02.2012
-
-Stanley Turrentine - Ballads (1960-1969) /1993, CDP 0777 7 95581 2 4/ [APE|Lossless]<Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Willow Weep For Me :: 09:58
-02. Since I Fell For You :: 08:48
-03. Then I'll Be Tired Of You :: 06:10
-04. Someone To Watch Over Me :: 07:44
-05. They All Say I'm The Biggest Fool :: 07:44
-06. More Than You Know :: 06:07
-07. God Bless The Child :: 03:59
-08. Watch What Happens :: 05:31
-09. A Child Is Born :: 08:061993Жанр: JazzПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445235   (91931) от 01.02.2012
-
-[Wallpapers] Nature HD Wallpapers (02.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A9DE0B0C4E1A262DA1F08246CD1D0804415581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445208   (91930) от 01.02.2012
-
-Stephane Grappelli - Plays Jerome Kern (1987) [APE|Lossless]<Swing, Mainstream Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke Gets In your Eyes
-02. The Way You Look Tonight
-03. Can't Help Lovin' Dat Man
-04. A Fine Romance
-05. Yesterdays
-06. Ol' Man River
-07. All The Things You Are
-08. Pick Yourself Up
-09. Why Do I Love You
-10. I Won't Dance(   Читать дальше...   )1987Жанр: Swing, Mainstream JazzПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445232   (91929) от 01.02.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (02.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34777C3F33F49D970D64A791267D15B2322FC9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444625   (91927) от 31.01.2012
-
-Полевая гвардия Мозжухина (1985) SATRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Федор Мозжухин, проработав несколько лет на разных стройках страны, вернулся в родное село и организовал в колхозе звено механизаторов, работающее по подряду. Сразу же нашлись критики новой организации труда, выявились лодыри и завистники…Жанр: ДрамаРежиссер: Валерий ЛонскойАктеры: Василий Бочкарев, Андрей Ташков, Эдуард Бочаров, Татьяна Аксюта, Янина Лисовская, Борис Щербаков, Василий Маслаков, Владимир Кашпур, Владимир Земляникин, Валентина ПанинаПродолжительность: 01:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFEEE9E01EFF648BD089E5208846AA6FF61EE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444441   (91925) от 31.01.2012
-
-Плохие девчонки / Bad Girls (1994) BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Коди, как и три ее подружки, - обычная проститутка при салуне. Унижений они терпят гораздо больше, чем зарабатывают. И однажды, не выдержав очередной «грубости» от клиента, Коди убивает его. По законам штата ее ожидает виселица.
-
-Страх перед смертью и ненависть к своей жизни заставляют Коди и ее подружек бежать, Для того чтобы выжить, они должны из девчонок легкого поведения превратиться в женщин, которые смогут постоять за себя...Жанр: Вестерн, Боевик, ПриключенияРежиссер: Джонатан КапланАктеры: Мэдлин Стоу, Мэри Стюарт Мастерсон, Энди МакДауэлл, Дрю Бэрримор, Джеймс Руссо, Джеймс ЛеГро, Роберт Лоджа, Дермот Малруни, Джим Бивер, Ник ЧинландПеревод: Многоголосый закадровый, Авторский одноголосыйЯзык субтитров: ОтсутствуютПродолжительность: 01:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277BCCB8C57D835EA47699C9DE60DEDCB49A71E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445011   (91924) от 31.01.2012
-
-VA - Armada Presents Trance Essentials 2012 Vol 1 (2011) [MP3|320 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-VA - Armada Presents Trance Essentials 2012 Vol 1 (2011)
-Год: 2011
-Жанр: Trance
-Продолжительность: 02:35:29Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТреклист:
-CD1:
-Продолжительность: 01:18:01(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43BFF79D8577C05C782C7470F1B344F1EC73654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444606   (91922) от 31.01.2012
-
-[Wallpapers] Sexy Girl Full HD Wallpapers Pack 4 (1680-1050)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girl Full HD Wallpapers Pack 4 (1680-1050) 
-Название:  Sexy Girl Full HD Wallpapers Pack 4 (1680-1050) 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8B4EAD5DE05C5052012483A07FDB7626FED1A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444696   (91921) от 31.01.2012
-
-VA - Drum & Bass 2012 Unmixed Tracks (2012) [MP3|320 kbps]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Skream — Anticipate (ft.Sam Frank) (Netsky Remix)
-02. TC — Tap Ho
-03. S.P.Y — Seconds To Midnight
-04. Emeli Sande — Heaven (Nu:Tone Remix)
-05. Jazzsteppas — Raising The Bar (ft.Foreign Beggars) (Stray Remix)
-06. Camo & Krooked — Cryptkeeper
-07. London Elektricity — U Gotta B Crazy (Enei Remix)
-08. Ms Dynamite — Neva Soft (Nu:Tone Remix)
-09. S.I.N. — Oldy
-10. Frederic Robinson — Laughing At Clouds2012Жанр: Drum & BassПродолжительность: 03:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE9C69FA1F4DD923295D4CA9B6C0C778E9D70D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444595   (91918) от 31.01.2012
-
-Lulu Gainsbourg - From Gainsbourg to Lulu (2011) [MP3|320 kbps]<Chanson, Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. L'Eau A la Bouche (3:04)
-02. Intoxicated Man (4:34)
-03. Je Suis Venu Te Dire Que Je M'en Vais (4:04)
-04. Bonnie & Clyde (4:32)
-05. Manon (2:52)
-06. Requiem Pour un Con (2:58)
-07. Ballade de Melody Nelson (2:07)
-08. Black Trombone (4:44)
-09. Sous le Soleil Exactement (2:55)
-10. Le Poinconneur Des Lilas (3:33)(   Читать дальше...   )2011Жанр: Chanson, PopПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09A37D60DDD281F2DC8D95B8C4B1BA421E7B144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 444801   (91917) от 31.01.2012
 
 Журнал | Приватный дом №2 [ 2012] [PDF]
@@ -788,6 +190,553 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E7262AB00CD0C3FC3A8914308FBED8505BAFCE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444608   (91904) от 31.01.2012
+
+[Wallpapers] Sexy Girl Full HD Wallpapers Pack 5 (1680-1050)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Full HD Wallpapers Pack 5 (1680-1050) 
+Название:  Sexy Girl Full HD Wallpapers Pack 5 (1680-1050) 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B979AAD393175FD3A31B4D06C3B541F4D3B30010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 445013   (91903) от 31.01.2012
+
+[Wallpapers] Fantasy Full HD Wallpapers Pack 3 (31.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Fantasy Full HD Wallpapers Pack 3 (31.01.12) 
+Название:  Fantasy Full HD Wallpapers Pack 3 (31.01.12) 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4B38A28319DBC2508D8893AB64FD9457E76C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444567   (91899) от 31.01.2012
+
+[Wallpapers] Sexy Girls Pack №190 [jpg]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сексуальные обои на рабочем столеФормат: jpg
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8E8C22EC850400B9784A9221A32996555DD6CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444715   (91898) от 31.01.2012
+
+[Wallpapers] Girls Wallpapers Mix (31.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9C642C7B9DD297630F74FF6D260E55606A54F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444596   (91897) от 31.01.2012
+
+Alain Barriere - Les Grandes Chansons (1999) [MP3|320 kbps]<Chanson>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Elle etait si jolie
+02 - Que se passe-t'il dans ma tete
+03 - Plus je t'entends
+04 - A regarder la mer
+05 - Ma vie
+06 - Aimer
+07 - C'etait aux premiers jours d'avril
+08 - Elle
+09 - Si tu te souviens
+10 - La mer est la(   Читать дальше...   )1999Жанр: ChansonПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B71A2E620277C06A692A77A5EE2638164C6C0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443618   (91896) от 31.01.2012
+
+Tom Waits - Cold Beer On A Hot Night   (live) (1979) [MP3|128 kbps]<Blues>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1.	    Annies Back in Town	3:02
+2.	    Borma Shave	3:57
+3.	    Do The Hokey Cokey	5:23
+4.	    I Wish I Was in New Orleans	5:42
+5.	    Jitter Boy (Better Off)	7:00
+6.	    Pasties & a G-String	12:33
+7.	    Red Shoes	4:21
+8.	    Romeo Is Bleeding	6:38
+9.	    Silent Night	6:11
+10.	    Since I Fell For You	2:33(   Читать дальше...   )1979Жанр: BluesПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE83A6036920A46D78DF7807F2F934B024F07D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 445019   (91895) от 31.01.2012
+
+[Wallpapers] Fantasy Full HD Wallpapers Pack 4 (31.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Fantasy Full HD Wallpapers Pack 4 (31.01.12) 
+Название:  Fantasy Full HD Wallpapers Pack 4 (31.01.12) 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1995A402425E9C9854F75E6F12BA6D78FDF00639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444486   (91893) от 31.01.2012
+
+Medina  feat. KIDD - Synd for dig (2012) HDRip [1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Новый видеоклип от датской певицы  Medina на песню -Synd for dig 2012.Жанр: ВИДЕОКЛИППродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162FE0119D130AEFC8A4BEDC71097AEDA184F3A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444496   (91892) от 31.01.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (30.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0632A779BB5D8EB62C66BCC170F633E729434FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444934   (91891) от 31.01.2012
+
+[Wallpapers] HD Разное ч.3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Подборка обоев различной тематики (природа, фентези, девушки, машины д.р.)Разрешение файлов: 1680X1050 - 2560X1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC5F930FA94E1C52E6EBE82AF0FAF0D69E01F92E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444048   (91890) от 31.01.2012
+
+Bleeding Through - The Great Fire (2012) [MP3|314-320 kbps]<Metalcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. March
+02. Faith In Fire
+03. Goodbye To Death
+04. Final Hours
+05. Starving Vultures
+06. Everything You Love Is Gone
+07. Walking Dead
+08. Devil And Self Doubt
+09. Step Back In Line
+10. Trail Of Seclusion(   Читать дальше...   )2012Жанр: MetalcoreПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD8DA2460504713EA8ACE9176AEF278E4B9D9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444558   (91889) от 31.01.2012
+
+[Wallpapers] Sexy Girls Pack №186 [jpg]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сексуальные обои на рабочем столеФормат: jpg
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16488EF018C6CDB719427B6A064F49936477031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444718   (91888) от 31.01.2012
+
+[Wallpapers] Wallpapers Sexy Girls (31.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0716AD484C5921B75EEB31A5DFC80D56150276C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444565   (91887) от 31.01.2012
+
+[Wallpapers] Sexy Girls Pack №189 [jpg]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сексуальные обои на рабочем столеФормат: jpg
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2174D87A3C6FA7F5675D92B82DD7097A82F1C35D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444711   (91886) от 31.01.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (31.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B6EE45B25C0B9BB807BBEA36DBB2D22DD2F8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444836   (91882) от 31.01.2012
+
+[Wallpapers] Fantasy Full HD Wallpapers Pack (1920-1200)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Fantasy Full HD Wallpapers Pack (1920-1200) 
+Название:  Fantasy Full HD Wallpapers Pack (1920-1200) 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5E837ECC721DEF5CAF2643C4C5AE78C28A94CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444195   (91881) от 31.01.2012
+
+Tulku - Way of the Mystic (2009) [MP3|320 kbps]<Downtempo, Tribal, Ethnic Fusion>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Narayana (6:05)
+02. Way of the Mystic (4:05)
+03. Night in Copenhagen (5:49)
+04. Bhajan (6:02)
+05. Shamanic Invocation (4:52)
+06. Hand of the Soul (3:42)
+07. Meditation (5:32)
+08. Ama (4:31)
+09. Transambience (6:50)
+10. From High Above (3:35)2009Жанр: Downtempo, Tribal, Ethnic FusionПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B701686582BA9524B7B9E5B465717519CF334DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444813   (91880) от 31.01.2012
+
+Г. Брейден | 2012. Время великих перемен [2009] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Конца света не будет! Автор этой книги убежден в том, что 2012 год - это не дата конца света, а рубеж двух эпох в развитии нашей планеты. Ученые установили, что время развивается циклически.
+Эта книга расскажет вам, как можно использовать временные циклы в вашей жизни, а также как подготовиться к смене эпох, которая, по мнению многих исследователей, уже начинается!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E572640ACBF9F8672C44547D579F821AF4C876BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444865   (91878) от 31.01.2012
+
+Журнал | Magic CG №19 [2012 январь] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Magic CG - это журнал для художников, концепт-артистов, моделлеров, текстурщиков, дизайнеров, аниматоров, супервайзеров, арт-менеджеров - словом для всех тех, для кого компьютерная графика не пустой звук. Magic CG - журнал о магии цифрового искусства. В журнале много иллюстраций, уроки по трёхмерной графике, по иллюстрациям и много интересного, а главное русскоязычного текста!2012 январьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B37C2BB5EB40D22D51962A18CE6B574B9D2798
 ```
 
 https://mybot314.ru/tekegram_catalog/

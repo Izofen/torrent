@@ -1,3 +1,32 @@
+###  Публикация: 1329604   (352374) от 05.10.2019
+
+Thomas Barquee - The Sound of Om (2003) [FLAC|Lossless|tracks + .cue] <Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Maha Devaya Namaha (10:30)
+02. Om Namo Bhagavate Vasudevaya (8:47)
+03. Om Namah Shivaya (10:33)
+04. Hare Krishna Hare Rama (7:43)(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31F3B8A2857CECC52BA5F28299EA781285EDCC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 578731   (352360) от 21.11.2012
 
 В. Рейтхофер - Кама-Сутра. Эзотерическая Музыка (2001) [MP3|320 кб/с]<Meditative, Relax, New Age>
@@ -722,35 +751,6 @@ Paul Mauriat - Sayonara Concert (2003) [OGG Vorbis|484 Kbps] <Pop, Classical, St
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:536BBE896BE4ECB9FF36D4F6FB7E849079077ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073046   (347512) от 15.11.2016
-
-Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Soundtrack from the Netflix Original Series) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crown Main Title (01:24)
-02. Duck Shoot (04:07)
-03. Sagana (04:32)
-04. Government (04:07)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC24B81246D73579E0BCCBF1841AA59B55DC3041
 ```
 
 https://mybot314.ru/tekegram_catalog/

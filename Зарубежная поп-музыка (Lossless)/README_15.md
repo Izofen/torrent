@@ -1,3 +1,32 @@
+###  Публикация: 1366738   (922359) от 12.03.2020
+
+Yumi Zouma - Truth or Consequences (2020) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely After (03:40)
+02. Right Track / Wrong Man (02:56)
+03. Southwark (03:22)
+04. Sage (03:01)(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA0C0A8C4F6943C76AF89FA2936ED791AB8CE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366507   (922240) от 12.03.2020
 
 Mandy Moore - Silver Landings (2020) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -720,35 +749,6 @@ VA - NOW That's What I Call Music! 61 (US series) (2017) [FLAC|Lossless|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99F0B9DA1AADED0356F208D529F6137B140A10C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990843   (909992) от 26.02.2016
-
-VA - World Dance Music (2004) [FLAC|Lossless|tracks + .cue] <Trance, World & Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rahmaj - Fly to India (1:59)
-02. Gitan Suite - Spanish Dream (1:54)
-03. Lya Cannes - Vuela Vuela (3:00)
-04. Kariber - Mueve (3:29)(   Читать дальше...   )Жанр: Trance, Folk, World, & Country, PopПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4105AE9EFD27D4F3362A1B4929BC9A23598CB5B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1717862   (111033) от 22.04.2024
+
+De Novo Blvd - Bourbon Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down by the Stream (4:14)
+02. Whiskey Down (3:48)
+03. Break Something (3:04)
+04. Carry On (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DCA1FCC00C706AE848120ED338639D81DAF93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717879   (111031) от 22.04.2024
 
 Lightnin' Charlie - Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -715,35 +744,6 @@ Judy Wexler - Dreams & Shadows (2008) Jazzed Media [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA3B7B10C348EEE90FF59A5554ADF7FE025FDD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718742   (110692) от 27.04.2024
-
-Judy Wexler - Easy on the Heart (2005) Jazzopolis [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moment to Moment [5:41]
-02. I'm in Love [4:41]
-03. Humdrum Blues [3:22]
-04. Easy on the Heart [5:00](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A462C7B4654987EEBE340A16033D7FB3EAD790
 ```
 
 https://mybot314.ru/tekegram_catalog/

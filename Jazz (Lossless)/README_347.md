@@ -1,32 +1,3 @@
-###  Публикация: 1722594   (109661) от 12.05.2024
-
-Kenny Barron - Wanton Spirit (1994) Verve [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the Coltrane [6:10]
-02. Sail Away [6:27]
-03. Be Bop [8:35]
-04. Passion Flower [7:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A645D626E0F83520ED51BF984FDEE3E9C435846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722848   (109648) от 13.05.2024
 
 VA - Soul, Jazz & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -745,6 +716,35 @@ Alex Sipiagin - Live At Smalls (2013) Smalls Live [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:802FE22BA9D33B5BE2D3F36D97739A56DAB64362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724250   (109238) от 19.05.2024
+
+Virginia Mayhew Quartet - Mary Lou Williams: The Next 100 Years (2010) 2012, Renma Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.B.'s Waltz [5:29]
+02. Medi II [5:27]
+03. Medi I [7:57]
+04. O.W. [6:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2188130320CC26208491597169394AA711F73D
 ```
 
 https://mybot314.ru/tekegram_catalog/

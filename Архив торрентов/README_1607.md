@@ -1,3 +1,29 @@
+###  Публикация: 304057   (855037) от 08.03.2011
+
+V.A. - Label Pack Deep Medi Music (2006-2009) [MP3|320 kbps]<DubStep/D'n'B>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DubStep/D'n'BПродолжительность: 05:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908096A75D87070937FEFAC27DDA96E181E92A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 306293   (855036) от 08.03.2011
 
 Мисс Россия - 2011 (08.03.2011) SATRip
@@ -672,41 +698,6 @@ Corinne Bailey Rae - Corinne Bailey Rae (2006) [FLAC|192-320 kbps]<Neo-soul, voc
    8. (00:04:15) Corinne Bailey Rae - Breathless
    9. (00:04:09) Corinne Bailey Rae - I'd Like To
  10. (00:03:53) Corinne Bailey Rae - Butterfly(   Читать дальше...)Жанр: Neo-soul, vocal jazz
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189595   (854948) от 10.04.2010
-
-Bobby Timmons - The Prestige Trio Sessions (1964) [FLAC|Lossless]<Hard Bop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. A Little Barefoot Soul 5’03
-2. Walkin'-Wadin'-Sittin'-Ridin' 7’45
-3. Little One 3’52
-4. Cut Me Loose, Charlie 4’45
-5. Ain't Thinkin' 'Bout It 8’49
-6. Nobody Knows The Trouble I've Seen 2’20
-7. Chun-King 6’30
-8. Walking Death 6’05
-9. O Grande Amor 6’52
-10. Gettin' It Togetha' 6’45(   Читать дальше...)Жанр: Hard Bop
 
 ## Скачать торент
 ```bash

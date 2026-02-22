@@ -1,3 +1,176 @@
+###  Публикация: 1708171   (113154) от 19.03.2024
+
+Дельта-Оператор - Дельта-1 (1989) [FLAC 24/192|Lossless|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01. Нам не вернуться назад. (А.Кришта)
+02. Одиночный боец. (Б.Аксенов)
+03. Раб. (А.Арканов)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD602B5F184342A6225B180F9A1D1D34D8AE5EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707988   (113151) от 19.03.2024
+
+Forsaken - Isolated from the Birthland (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In the Night [5:23]
+02 - For All Sacred Tears [9:06]
+03 - Isolated from the Birthland [7:52]Жанр: Atmospheric Black Metal, MetalПродолжительность: 00:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7009FDEF7C096CDFD46894932055EF775C138D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707638   (113147) от 19.03.2024
+
+Elektric Music - Esperanto (1993) [FLAC 24/96|Lossless|tracks] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113147.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 TV
+A2 Show Business
+A3 Kissing The Machine
+Lead Vocals – Andy McCluskey(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AABAFE58EC8827D6C617A7E76DF01D18450D4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708238   (113143) от 19.03.2024
+
+Manntra - Live in Leipzig (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Invocation (LIVE IN LEIPZIG) [1:29]
+02 - Heathens (LIVE IN LEIPZIG) [3:52]
+03 - Morana (LIVE IN LEIPZIG) [3:01]
+04 - Tanz (LIVE IN LEIPZIG) [3:16](   Читать дальше...   )Жанр: Metal, Alternative MetalПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E854EF4B870409038FF7D8045981394023CF884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708009   (113139) от 19.03.2024
+
+Cornelia Nilsson - Where Do You Go (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John's Abbey (4:45)
+02. Ninni / Motions (5:06)
+03. The Sphinx (4:28)
+04. Where Do You Go? (6:58)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE696FD2A52A11186C617D3026432376B98A215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708010   (113133) от 19.03.2024
+
+Harlem Jazz Guitar Quartet - Rock Jazz Fusion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Won't Hide (3:55)
+02. Just Love Me (3:27)
+03. Part of this Game (3:37)
+04. Late Night Jazz (4:09)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6142661168A7AE09CCF312343CB49AEC2CE45122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708222   (113131) от 19.03.2024
 
 Lipz - Changing The Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam rock>
@@ -571,180 +744,6 @@ Leaves' Eyes - Myths of Fate (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F2174683070E078BC0B63F2DAC34555BC99884A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708542   (113041) от 21.03.2024
-
-Евгений Мартынов - Евгений Мартынов поет свои песни (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - У Есенина день рождения. (А.Дементьев)
-02 - Свадебный вальс. (Р.Рождественский)
-03 - Трава лебеда. (Н.Добронравов)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69486AF18C6B151EA75ABFED52C83CF7D2FCE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708548   (113037) от 21.03.2024
-
-Здравствуй, песня - Марафон (1982) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Марафон (А. Хаславский)
-2. Просили вы (О. Фельцман — В. Харитонов)
-3. Лепестки в снегу (А. Хаславский — Б. Дубровин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3820322A8D347D377B3D897E77FD31F8C105AF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708656   (113029) от 21.03.2024
-
-Hammer King - König und Kaiser (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hailed By The Hammer (4:58)
-02. The Devil Will I Do (4:15)
-03. König und Kaiser (feat. The Tribune) (4:02)
-04. Future King (4:41)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B24800DD94E4E5E10066A00F0E1C02360A16DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708682   (113027) от 21.03.2024
-
-Gary Clark Jr. - JPEG Raw (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Soul, R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maktub (4:13)
-02. JPEG RAW (4:26)
-03. Don't Start (feat. Valerie June) (3:04)
-04. This Is Who We Are (feat. Naala) (5:32)(   Читать дальше...   )Жанр: Blues, Soul, R&BПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F125B89A3DCA89CFFFF3EFDBCE2B9F501B16039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708727   (113026) от 21.03.2024
-
-T Bear - The Way Of The World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way Of The World (4:17)
-02. Sign On The Dotted Line (3:36)
-03. Before The Fall (5:02)
-04. Jewel (4:46)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E0B631D25234DFB924CEBCBDEFA67A31284830D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708710   (113025) от 21.03.2024
-
-Neon Rider - Destination Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destination unknown (0:51)
-02. Neon rider (5:04)
-03. Feel the magic (5:22)
-04. Unleash your fire (4:32)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B005292263ADDF6489D47FB132BFEEC322B7CCDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

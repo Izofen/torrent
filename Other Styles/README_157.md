@@ -1,3 +1,32 @@
+###  Публикация: 1338384   (269852) от 15.11.2019
+
+VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Перезагрузка (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jay - Reboot (06:45)
+02. Q Lazzarus - Goodbye Horses (03:08)
+03. Jay - Out Of Order (07:54)
+04. Squirtgun - Social (03:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F7B220FAA51B573FD4D6CECB7AB59035C087A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338385   (269824) от 15.11.2019
 
 VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Перезагрузка (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -716,35 +745,6 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF243289236070B24CFB99A7F2A3DF20FABC8F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266560   (266727) от 06.12.2018
-
-Simonetti, Morante, Pignatelli - Tenebre (1982) The Complete Original Motion Picture Sound Track, 1997, CD [MP3|320 Kbps] <Electronic, Disco, Stage & Screen>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenebre (4:34)
-02. Gemini (3:12)
-03. Slow Circus (2:31)
-04. Lesbo (5:18)(   Читать дальше...   )Жанр: Electronic, Disco, Stage & ScreenПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B62ECBEE7005E5E7F716AC9DEFA5D879294F9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

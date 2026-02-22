@@ -1,3 +1,29 @@
+###  Публикация: 922605   (569736) от 28.07.2015
+
+Google Chrome 44.0.2403.125 Stable (x86/x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – веб-браузер от Google с открытым исходным кодом, который сочетает поддержку новейших веб-приложений, удобный поиск с высокой скоростью и стабильностью. Из особенностей браузера разработчики особенно выделяют изолированные вкладки, предотвращающие сбой и ошибки работы программы, что обеспечивает более надежную защиту от опасных сайтов.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C7604F30EA53364FBBAC5C863E91A038E1363C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922572   (569733) от 28.07.2015
 
 Debian GNU/Linux 9.0 Stretch (Testing, 27.07.2015) [amd64] 3xDVD
@@ -676,35 +702,6 @@ WonderPen - простой в использовании текстовый ре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:680E717712C5B120C65F56354105F19177CA4B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303916   (569459) от 23.05.2019
-
-The National - I Am Easy to Find (2019) Japanese Edition / Scene / 2CD [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Had Your Soul with You (03:26)
-02. Quiet Light (04:15)
-03. Roman Holiday (03:34)
-04. Oblivions (04:13)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB3DFAAD458B03EE0C36E1C2643769477ABBCEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

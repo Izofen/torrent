@@ -1,3 +1,90 @@
+###  Публикация: 918248   (587996) от 14.07.2015
+
+Maysa - Back 2 Love (2015) [FLAC|tracks|WEB-DL]<Smooth Jazz, R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back 2 Love (4:28)
+02. Keep It Movin' (4:18)
+03. Heavenly Voices (4:41)
+04. Miracle (4:15)(   Читать дальше...   )Жанр: Smooth Jazz, R&B, SoulПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1511700D2EED54529FC25A5CCC197A45B5A16FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918139   (587875) от 14.07.2015
+
+B.B.King - The Blues King's Best (2013) 2CD [FLAC|Lossless]<Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Thrill Is Gone
+02. Every Day I Have The Blues
+03. Guess Who
+04. Now Blue Can You Get?(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 01:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BEC18937A85267AD5074903CA35728E1F4A4B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040241   (587524) от 04.08.2016
+
+Scott Henderson · Gary Willis & Tribal Tech - Primal Tracks (1994) 2008 Compilation [WavPack|Lossless|image + .cue] <Jazz-rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvis At The Hop (4:35)
+02. Got Tuh B 3 (6:45)
+03. Sub Aqua (5:33)
+04. Nomad (7:20)(   Читать дальше...   )Жанр: Jazz-rock, FusionПродолжительность: 01:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C98DCFA75E88037FACAE7345E959065104C45E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040165   (587467) от 04.08.2016
 
 Chris Standring - Soul Express (2006) [FLAC|Lossless|image + .cue] <Crossover Jazz, ChillOut>
@@ -662,93 +749,6 @@ Masabumi Kikuchi - East Wind (1974) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC4EA6AAB8C57A809F41A492F48FE13DD6AC37EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918838   (586010) от 16.07.2015
-
-Elmore James - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dust My Broom (2:55)
-02.  It Hurts Me Too (3:05)
-03.  Coming Home (2:26)
-04.  Knocking At Your Door (2:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F02C11FFC6624B6E4109E57740ED3A29CE417E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918851   (586006) от 16.07.2015
-
-Ida Sand - Young At Heart (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinnamon Girl
-02. Hey Hey, My My
-03. Don't Let It Bring You Down
-04. Harvest Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2AB8B31729D28662B640CB4B822D2210F09F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918758   (586005) от 16.07.2015
-
-Zoot Sims - And The Gershwin Brothers (1975) /2001, Planet/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man I Love [06:24]
-02. How Long Has This Been Going On [02:14]
-03. Lady Be Good [04:35]
-04. I've Got A Crush On You [02:57](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EB976FFB4CDA6CC09EDCFB997C4B7134079DC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

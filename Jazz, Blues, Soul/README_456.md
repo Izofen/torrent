@@ -1,3 +1,32 @@
+###  Публикация: 1515052   (213706) от 05.12.2021
+
+Sons of Mars - Hell & Heartbreak (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Lost the Blues (7:35)
+02. Cracked Paint (3:03)
+03. Pissing Off the Preacher (3:53)
+04. Wicked Woman (3:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6C5750F8D5D9085CD116DF9B8ECA9986598DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653866   (213701) от 18.08.2023
 
 Pulp Project - A Tribute to Robert Johnson (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ VA - After Dark Warm Summer Nights Sensual Smooth Jazz (2023) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA166919D9BE2A223B6E127963D8CA83D6A11087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638893   (211747) от 11.06.2023
-
-VA - That's What We Call SMOOTH JAZZ (33 Tunes) (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean -- Shine (4:13)
-02. eJazz Artistry -- Real Love (4:16)
-03. Chillaxing Jazz Kollektion -- Summer Wind (5:08)
-04. Love Suggestions -- Little Talks (4:59)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D50B8C8A516141C29EDA8A1E786C9DA2D92A555
 ```
 
 https://mybot314.ru/tekegram_catalog/

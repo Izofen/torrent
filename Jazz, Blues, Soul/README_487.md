@@ -1,3 +1,32 @@
+###  Публикация: 1675401   (160319) от 09.11.2023
+
+Billy Hart - All Our Reasons (2012) ECM [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song For Balkis [12:53]
+02. Ohnedaruth [6:06]
+03. Tolli's Dance [5:32]
+04. Nostalgia For The Impossible [5:53](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCBA67AAF2E37D5ACEA4BC47971577D7A68B026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675445   (160312) от 09.11.2023
 
 Alex Lopez - Looking for a change (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -716,35 +745,6 @@ Green Dolphin Street - Paint It White (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A73F4B0CCE98080E77DC440C3D741DC4960441A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599878   (159433) от 25.12.2022
-
-Pete Rugolo - Adventures In Rhythm (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here's Pete [2:25]
-02. My Funny Valentine [2:49]
-03. Mixin' The Blues [3:13]
-04. Poinciana (Song Of The Tree) [2:17](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B1678BD3E3ADABB59B2BA89F806D4849222F55
 ```
 
 https://mybot314.ru/tekegram_catalog/

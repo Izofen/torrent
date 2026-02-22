@@ -1,3 +1,38 @@
+###  Публикация: 576263   (364211) от 17.11.2012
+
+Bobina - Russia Goes Clubbing 219 (14.11.12) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaDi & Kristofer - Hot Balloon - Silent Shore
+02. Josh Gabriel pres. Winter Kills - Forward Facing (Walsh & McAuley remix) - Different Pieces
+03. Sean Tyas feat. Julie Thompson - What I Am - Tytanium
+04. Mike Saint-Jules feat. J9 - Waited Too Long - Itwt
+05. Peter Santos - Solarstorm (Vitodito remix) - Kill the lights
+06. Oen Bearen - Nusantara - Black hole
+07. Rene Ablaze & Dima Krasnik - Stars - Redux
+08. The Noble Six - For Her (Type 41 remix) - Blue soho
+09. Right Face - Spring - Digital society
+10. Alex Morph with Hannah - When I Close My Eyes (Aly & Fila remix) - Asot(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD5E498F7896A3C4B7D9D39F12ED7B80E044F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071040   (364158) от 08.11.2016
 
 Adobe InCopy CC 2017.0 12.0.0.81 RePack by KpoJIuK [Multi/Ru]
@@ -661,32 +696,6 @@ Saw 2: Flesh and Blood : Хронологически игра помещена 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D3289206A11283A2CF95D9BEF62AECF21789B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576445   (363953) от 17.11.2012
-
-Artworks by Piero di Cosimo [Графика]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artworks by Piero di Cosimo
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0D2BEEA2E9BD60B40A630684D63FC0F3F0CA4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

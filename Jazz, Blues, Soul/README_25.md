@@ -1,3 +1,90 @@
+###  Публикация: 1447915   (1031293) от 15.02.2021
+
+Tscheky & The Blues Kings - Men of Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Down but Feeling Free (2:47)
+02. Talk to Me Baby (4:21)
+03. Give Me Back My Wig (4:16)
+04. LA Boogie (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3FD8EEE6A2C666163E7D9CEF568ACD058AE4050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621142   (1031218) от 24.03.2023
+
+Kevan And The Black Country Sons - Chasing Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Shadows (4:40)
+02. Mr Johnson (4:16)
+03. In Too Deep (3:55)
+04. Between The Lines (5:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9713D8E960DE5EB509EB7F3A4CB06A21ACCD2592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448056   (1031210) от 16.02.2021
+
+Charlie Christian - The Genius Of The Electric Guitar (1939 - 1941) 4CD, 2002, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031210.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Flying Home [3:13]
+02. Rose Room [2:47]
+03. Stardust [3:14](   Читать дальше...   )Жанр: Swing, Big Band, Guitar JazzПродолжительность: 05:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9FA684E05F61AFEE5CA084B41C2A7677D0602E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448225   (1031207) от 16.02.2021
 
 Orquestra Was - Forever's A Long, Long Time (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz>
@@ -658,93 +745,6 @@ Daniele Tenca - Just a Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D820AD46169329800C7A019A6CACC2F9F134CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622097   (1030525) от 27.03.2023
-
-The War and Treaty - Lover's Game (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover's Game (2:50)
-02. Blank Page (5:35)
-03. Ain't No Harmin' Me (3:51)
-04. Yesterday's Burn (5:11)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DADD3848E4E2C15761E45C76A41CB519D080E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622019   (1030524) от 27.03.2023
-
-Deep Ruts - Stranger (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wolf in Me (2:56)
-02. I've Got the Blues (2:55)
-03. Cold Cold Nights (2:38)
-04. Ain't No Other Place (3:20)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6CC07A3DB155DF6AB94C5B46A8957A6E3F7A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622122   (1030521) от 27.03.2023
-
-Eric Bibb - Ridin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Family (4:46)
-02. Ridin' (5:23)
-03. Blues Funky Like Dat (3:25)
-04. The Ballad of John Howard Griffin (5:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6DF9D3E0BE95821270877C4D281ED63FE1B16F
 ```
 
 https://mybot314.ru/tekegram_catalog/

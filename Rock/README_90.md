@@ -1,90 +1,3 @@
-###  Публикация: 1674838   (160585) от 07.11.2023
-
-VA - Maximum Rock The 1970s (Live) (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - War Pigs (Live) [07:03]
-02. Pink Floyd - Breathe (In The Air) (Live) [02:50]
-03. Genesis - The Musical Box (Live) [09:40]
-04. Led Zeppelin - Stairway to Heaven (Live) [09:52](   Читать дальше...   )Жанр: RockПродолжительность: 06:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4051966A07B65B7E2948224E9600164BD9A5EA4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599732   (159650) от 24.12.2022
-
-Aerosmith - Rocks (1976) Reissue, 2000, Columbia [OGG Vorbis|480 Kbps] <Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In The Saddle
-02. Last Child
-03. Rats In The Cellar
-04. Combination(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FCEEBFC3A9BFD68B3354A7BF4905860AF2799A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599764   (159567) от 24.12.2022
-
-King Crimson - In the Court of the Crimson King: King Crimson at 50 (Music from the Film Soundtrack and Beyond) (2022) [MP3|320 Kbps] <Progressive Rock, Avant-garde>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Introductory Bellscape - Live 06-07;11;18 [00:04:05]
-02 - 21st Century Schizoid Man (edit) - mixed by Steven Wilson 2019 [00:06:54]
-03 - Moonchild (including cadenzas) - Live in Philadelphia, 23;09;19 [00:07:27]
-04 - Cat Food - from Cat Food EP Alt. mix by David Singleton [00:05:03](   Читать дальше...   )Жанр: Progressive Rock, Avant-gardeПродолжительность: 04:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2A6C5873EF71857A00FFA20EDFC16AA9EF1FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599893   (159319) от 25.12.2022
 
 Slade - Singles & Rarities 3CD (2007) (1969-1984) [MP3|320 Kbps] <Rock, Hard Rock>
@@ -745,6 +658,93 @@ DE3RA - Old Scratch (2020) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB69939AC83DADB48D1DED2A994F00AB5B33C0CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601210   (152650) от 30.12.2022
+
+Gary Eisenbraun - Stepping Stones (2022) [MP3|320 Kbps] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clear The Air (06:31)
+ 02. Telling Me Lies (05:06)
+ 03. (Back To) Square One (05:22)
+ 04. Crying Out Loud (06:32)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE024941BC12CD45097B075307297C9810A9CF9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968542   (152594) от 24.12.2015
+
+David Gilmour - Greatest Hits (2015) 2CD, Japanese Edition [MP3|320 кб/с] <Progressive rock, Art rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love On The Air
+02. No Way
+03. Out Of The Blue
+04. Short And Sweet(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 01:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802D9B529CD149E844A3441721D102F61A1BDFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601082   (152550) от 30.12.2022
+
+Julio Iglesias - Crazy (1994) Reissue, 2015, Sony Music [OGG Vorbis|480 Kbps] <Rock, Soft Rock, Chanson>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy (Album Version)
+02. Let It Be Me
+03. Mammy Blue (Album Version)
+04. Fragile (Album Version)(   Читать дальше...   )Жанр: Rock, Soft Rock, ChansonПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D54D6EEE0BB23B512925D3CE12DDB25D7C66D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

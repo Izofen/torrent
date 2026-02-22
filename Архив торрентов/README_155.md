@@ -1,3 +1,29 @@
+###  Публикация: 1463399   (1020401) от 18.04.2021
+
+Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer SP1 15.0.5337.1000 VL (x86) RePack by SPecialiST v21.4 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 – лучший пакет прикладных программы для работы над документами различных типов. В его состав входят лучшие средства для развития бизнеса, а так же для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия, не важно, Office 2013 просто обязан быть установлен на любом (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E7CA98EBD0226956B20325BB210130EC252C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463167   (1020367) от 18.04.2021
 
 BELOFF 2021.04 Lite (Авторская раздача)
@@ -651,35 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39A181E188FD3FBE5A9B6FFBA6AAD2FD724B45EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344076   (1020254) от 19.04.2021
-
-VA - AnalogueTrash Records presents: Beat Cancer Series + Label Samplers - Collection 13 Releases (2013-2020) [MP3|320 Kbps] <EBM, Industrial, Noise, Dark Electro>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020254.jpg" />
-</div>
-
-
-###  Подробнее
-
-2013 - Beat Cancer (2CD)
-2014 - Beat Cancer 2 (3CD)
-2016 - Beat Cancer 3 (3CD)
-2017 - Beat Cancer Festival v1(   Читать дальше...   )Жанр: EBM, Industrial, Noise, Dark Electro, Synth-Pop, Electro-Punk, AggrotechПродолжительность: 18:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23572A77514FBD21E3B58E79ABCF4AE8BDA4F107
 ```
 
 https://mybot314.ru/tekegram_catalog/

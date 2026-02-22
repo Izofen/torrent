@@ -1,3 +1,87 @@
+###  Публикация: 645866   (162835) от 03.11.2023
+
+V.A. - В русском ресторане - Романсы (Выпуск 2) (2001) [FLAC|Lossless]<Шансон, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ф. Шаляпин - Сомнение
+02. А. Вертинский - Снился мне сад
+03. И. Кремер - Звезда
+04. Ю. Морфесси - Везде и всегда за тобою(   Читать дальше...   )Жанр: Шансон, РетроПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D276A11B3393B647C02D10FB4F774C334B350C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578294   (162825) от 03.11.2023
+
+Майя Кристалинская - Grand Collection (2004) [FLAC|Lossless]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Топ-топ
+02. Я тебя подожду
+03. Возможно
+04. Не спеши(   Читать дальше...   )Жанр: RetroПродолжительность: 01:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089F5C0D9F5130B81D0F1C300E53C94914DDC143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 348453   (162799) от 03.11.2023
+
+Тамара Гвердцители - Музыка - Храм Души (2009) [FLAC|Lossless]<Retro/Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Retro/PopПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7B3736910B53D54B0EA7082578A6FF7F517846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583191   (162795) от 03.11.2023
 
 Группа Стаса Намина - Цветы (1995) [APE|Lossless]<Retro>
@@ -670,93 +754,6 @@ Ramon Roselly - Herzenssache (Platin Edition) (2020) [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA5371AEDCF67FCE0F7CD56E10DCE5645F3D321B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432704   (162230) от 19.12.2020
-
-VA - Mellow Easy Chilled Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Taylor - You've Got a Friend (04:28)
-02. Tones and I - Dance Monkey (Stripped Back) (02:51)
-03. Dua Lipa - Be the One (Acoustic) (03:12)
-04. Jess Glynne - My Love (Acoustic) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C52EAF881EA48D16393ADBBA7EB333241907CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432973   (162077) от 19.12.2020
-
-Олег Винник - 3 Альбома (2013- 2018) [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Як жити без тебе
-02. Біла голубка
-03. Золота
-04. Мати каже правду(   Читать дальше...   )Жанр: РорПродолжительность: 02:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0DA170C18D60725A41C3CBE5F1A15B54BD7272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432785   (161991) от 19.12.2020
-
-VA - Love Songs & Romantic Ballads (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreigner - I Want To Know What Love Is 4:58
-02. Roxette - It Must Have Been Love (Edit) 4:19
-03. All-4-One - I Swear 4:20
-04. Percy Sledge - When A Man Loves A Woman 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 03:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5060B0793FE59F1C8B3104CF2A79F221C1A164
 ```
 
 https://mybot314.ru/tekegram_catalog/

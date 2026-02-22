@@ -1,3 +1,60 @@
+###  Публикация: 1023860   (722467) от 06.06.2016
+
+Plastikman - Disconnect (2003) [FLAC|Lossless|tracks+.cue] <Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disconnect (Edit) (03:13)
+ 02. Headcase (10:19)
+ 03. Digital / Divide (10:28)Жанр: Techno, MinimalПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D52554B0AE3BCB43EA342E24516A23EC4ECBDF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129029   (722155) от 28.04.2017
+
+Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Nu Jazz>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Burning Spider (feat. Lightnin' Hopkins) (04:14)
+02. Step Two (feat. Lilja Bloom) (02:54)
+03. Soul Fever Blues (feat. Muddy Waters) (03:04)
+04. Everything Of My Heart (03:07)(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6F37452C2CDABC9BBCCE4365E74AABE5D221D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218733   (721739) от 10.04.2018
 
 Cløtur (Clotur) - Levels of Consciousness (2017) Warok Music [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -677,64 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025272   (712049) от 11.06.2016
-
-VA - 538 Dance Smash 2016 vol.2 (2016) [FLAC|Lossless|image + .cue] <House, Club, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fais & Afrojack - Fais
-02. Kungs vs. Cookin' On 3 Burners - This Girl
-03. Galantis - No Money
-04. Tinie Tempah & Zara Larsson - Girls Like(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD287D882B4256D47D6B0A912C6B34B7E4861DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219575   (711917) от 15.04.2018
-
-Prime Minister Of Doom - Mudshadow Propaganda (2018) Planet Uterus [FLAC|Lossless|Vinyl|tracks] <Techno, Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Getting Things Started (06:01)
- 02. Tribal Days Part II (08:49)
- 03. Tribal Days Part III (09:06)
- 04. The Vibe (05:03)(   Читать дальше...   )Жанр: Techno, Dub Techno, AmbientПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6591DB72C32205581CDF9833890B1F73E2640EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

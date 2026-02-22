@@ -1,3 +1,32 @@
+###  Публикация: 1753677   (103766) от 06.10.2024
+
+Frank Sinatra - A Superb 2CD Collection Of Ol' Blue Eyes Classics (2002) 2CD, Air Music And Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There’s No Business Like Show Business [3:21]
+02. Oh, What A Beautiful Mornin’ [2:34]
+03. Soliloquy [8:09]
+04. Time After Time [1:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB9B977EF3485BB3A35FB609901FA4F119A2CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753797   (103764) от 06.10.2024
 
 VA - Just Blues (Soulful Groovy Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -714,35 +743,6 @@ Joe Pass Quartet - Nuages: Live At Yoshi's, Vol. 2 (1992) 1997, Pablo [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB827098FA5C7BA37F75D088E4CE1C5C274E3247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755400   (103603) от 17.10.2024
-
-Kenny Werner - Vida Nueva (New Life) (2001) Laurel Tree Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [5:03]
-02. Corcovado (Quiet Nights) [5:03]
-03. Girl from Ipanema [4:27]
-04. Morning of Carnival [5:00](   Читать дальше...   )Жанр: Post-Bop, Latin JazzПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DAE7D856932D069E8775D24B82C87B1AFB8FB76
 ```
 
 https://mybot314.ru/tekegram_catalog/

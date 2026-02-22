@@ -1,3 +1,116 @@
+###  Публикация: 1555435   (568732) от 04.06.2022
+
+Geoff Love's Big Disco Sound - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джефф Лав - музыкальный директор, аранжировщик, композитор и одна из самых популярных музыкальных личностей Великобритании с 1957 года. В 70х, на волне востребованного диско, создал оркестровую группу Geoff Love's Big Disco Sound.Список альбомов:
+1976 - Dance Dance Dance
+1977 - You Should Be Dancing - Volume 2
+1978 - Big Disco Movie Hits(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 03:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C6DD42965763812E59116EC764802123A78C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303776   (568631) от 23.05.2019
+
+Sting - My Songs (2019) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brand New DayЖанр: PopПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C3021F76B2DFB3E3B3B80CF643015DA8F5935E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152161   (568555) от 21.07.2017
+
+Lana Del Rey - Lust For Life (2017) [FLAC|Lossless|Web-DL|tracks] <Indie Pop, Baroque Pop, Dream Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love (4:33)
+02 - Lust For Life (4:24)
+03 - 13 Beaches (4:56)
+04 - Cherry (3:01)(   Читать дальше...   )Производство: Interscope Records, Polydor – B0026668-02Жанр: Indie Pop, Baroque Pop, Dream PopПродолжительность: 01:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92AB40B66B3BB0F53A6CD28BDB62AFA38BF0A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044087   (568534) от 18.08.2016
+
+Евгений Осин - Разлука (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любимая
+02. Белая метель
+03. На тропинке
+04. Рыбацкая(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BA0160926DF9A054C2E3B42093CF319A004F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137722   (568438) от 21.07.2017
 
 Yulduz Usmanova (Usmonova) - 17 Albums (1993-2014) [MP3|128-320 Kbps] <Pop, Ethno-Pop>
@@ -641,116 +754,6 @@ Savage - Don't Cry (Greatest Hits) 2CD (1994) [FLAC|Lossless]<Italo-Disco>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304149   (566983) от 24.05.2019
-
-Григорий Лепс - Гимн Российской Федерации (2019) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566983.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Гимн Российской ФедерацииЖанр: PopПродолжительность: 00:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD53330CDED4A8DFDB943E6D478CAABD74BC93B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044426   (566830) от 19.08.2016
-
-VA - Now That's What I Call Music 59 (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Now That's What I Call Music 59 - является 59-ым изданием  серии Now! в Соединенных Штатах. Он был выпущен 5 августа 2016 года. Это сборник 22 треков и его особенность в том, что в нем собраны, в том числе, хиты номер один Billboard Hot 100, такие как,  Justin Timberlake - Can't Stop The Feeling, Sia & Sean Paul - Cheap Thrills с участием Шона Пола и Panda в исполнении (   Читать дальше...   )01. Justin Timberlake - Can't Stop The Feeling  (3:54)
-02. The Chainsmokers & Daya - Don't Let Me Down  (3:26)
-03. Sia & Sean Paul - Cheap Thrills  (3:39)
-04. Meghan Trainor - No  (3:31)(   Читать дальше...   )Жанр: Pop, Electronic, Pop-RockПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B1E8F89F748C557E3A1912F33CB97135CE9810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361555   (566701) от 15.07.2011
-
-Верка Сердючка - 9 альбомов (2001-2008) [MP3|192-320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:07:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234883   (565998) от 08.07.2018
-
-VA - The Dome Summer (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565998.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dynoro & Gigi D\'Agostino - In My Mind 3:05
-02. El Profesor - Bella Ciao (HUGEL Remix) 2:45
-03. Alle Farben & YOUNOTUS & Kelvin Jones - Only Thing We Know 2:53(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C1FFA973D6C1FF1EAB46A96D41106F68AA8025
 ```
 
 https://mybot314.ru/tekegram_catalog/

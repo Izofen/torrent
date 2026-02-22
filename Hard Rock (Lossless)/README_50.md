@@ -1,3 +1,32 @@
+###  Публикация: 1565180   (496702) от 22.07.2022
+
+Dreamtide - Drama Dust Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop Being Deep
+02. Spin
+03. Around
+04. Ni Dos Ni Agua(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E04D27B5B0D61342BC62F895DB8C1F650FC22D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565164   (496701) от 22.07.2022
 
 Highway Sentinels - The Waiting Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -734,41 +763,6 @@ Intelligent Music Project VII - Unconditioned (2022) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC1A7A4D40C5803EFF74E33AF357CDC55A206503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384476   (482671) от 06.09.2011
-
-Uriah Heep - You Can't Keep A Good Band Down (2001/1970-1986) 7 Albums Box Set [FLAC|Lossless]<Hard Rock, Progressive Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Way Or Another (4:39)
-02. Weep In Silence (5:06)
-03. Misty Eyes (4:15)
-04. Midnight (5:40)
-05. Can't Keep A Good Band Down (3:38)
-06. Woman Of The World (3:08)
-07. Footprints In the Snow (3:56)
-08. Can't Stop Singing (3:20)
-09. Make A Little Love (3:27)
-10. Confession (2:08)Жанр: Hard Rock, Progressive Rock, Heavy MetalПродолжительность: 05:14:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

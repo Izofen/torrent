@@ -1,3 +1,32 @@
+###  Публикация: 1712983   (112027) от 04.04.2024
+
+Ramblin' Preachers - Sins & Virtues (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Separate Ways (4:03)
+02. Keep On (2:58)
+03. Jealousy (2:44)
+04. Jester (3:58)(   Читать дальше...   )Жанр: Hard Rock, Southern Rock, Blues RockПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA90526E8F24168CF85370CC4A699D3E954AE5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712909   (112003) от 04.04.2024
 
 Владимир Иванов, Игорь Бутман - Ornithology (2009) Мистерия [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -715,35 +744,6 @@ Copenhagen Blues Band - I'm Not in a Hurry - Copenhagen Blues Band - I'm Not in 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30777167C923B13400E6BC5870FA217C372201B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714892   (111584) от 11.04.2024
-
-Leif De Leeuw Band - Mighty Fine (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rosalie (5:23)
-02. Hard to Hold (3:51)
-03. Southern Man (feat. Berget Lewis) (4:37)
-04. Lone Star (5:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9EB477B6889E4C451D2D712D163D15991668481
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,34 @@
+###  Публикация: 1514797   (213862) от 05.12.2021
+
+Barnabas Sky - Inspirations (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213862.jpg" />
+</div>
+
+
+###  Подробнее
+
+...Новый звездный жесткий и тяжелый проект BARNABAS SKY создан гитаристом, композитором и мультиинструменталистом Маркусом Пфеффером (Lazarus Dream, Winterland, экс-Скарлетт) из Кайзерслаутерна/Германия.
+
+Дебютный альбом, полный запоминающихся хуклайнов, острых рок-гитарных риффов и филигранных гитарных соло, называется "Вдохновения" по определенной причине: (   Читать дальше...   )01. Legends Rise (feat. Danny Vaughn)
+02. What Lies Beneath (feat. Zak Stevens)
+03. In My Mind (feat. Danny Martinez Jr.)
+04. Yesterday’s Gone (feat. Rob Rock)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97CBFB4004C5731F4143D4C427F6A6B3C3420A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193622   (213808) от 23.12.2017
 
 AC/DC - Back In Black (1980) X-Cellent only for sale in CIS, 2003 [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -717,35 +748,6 @@ The Defiants - Zokusho (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5849DB89DE862BAB0C4F3F6329101D55D1C8F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654323   (205199) от 20.08.2023
-
-The Defiants - Drive (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Life (4:39)
-02. Go Big Or Go Home (4:06)
-03. 19 Summertime (4:41)
-04. What Are We Waiting For (4:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D565BFB9BB02FADCB04E8B6A32CA7BD702201C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

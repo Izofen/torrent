@@ -1,3 +1,61 @@
+###  Публикация: 1620376   (1032330) от 19.03.2023
+
+Kx5 & deadmau5 & Kaskade - Kx5 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive (ft. The Moth & The Flame) (5:09)
+ 02. Sacrifice (ft. Sofi Tukker) (4:40)
+ 03. Escape (ft. Hayla) (4:00)
+ 04. Bright Lights (ft. AR/CO) (3:23)(   Читать дальше...   )Жанр: EDM, Club House, TechnoПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCB04CBAF3184AF907BC77975BCD203AD89C582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342026   (1032080) от 12.02.2021
+
+Deep Blu' - Under The Ocean (2006) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simex - Under The Ocean (Taho Remix)
+02. Baier,Box - Duck Dub (Taho Remix)
+03. Brian Kage - Luna Twilight
+04. Brian Kage - The Days Of Us Two (Taho Remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6372B030BAC6D2F779D18D45313ADAD0851F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 80964   (1031753) от 21.03.2023
 
 Haddaway - Best (1993) [FLAC|Lossless|tracks] <House, Europop, Euro House>
@@ -685,64 +743,6 @@ Grad_U (Re_Grad) - Discography 32 Releases (2010-2021) Redscale, Greyscale [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83A2C08DB402A4C8FAE579E82D1C58576C655C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455236   (1025821) от 18.03.2021
-
-Tin Man - Tin Man Remixes (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recondite - Petrichor (Tin Man Remix) (08:00)
- 02. Palm Trax - Houses in Motion (Tin Man Remix) (07:24)
- 03. Tin Man - Sexy (Igor Vicente Remix) (11:45)
- 04. Erol Alkan - Subconcious (Tin Man Remix) (05:57)(   Читать дальше...   )Жанр: Techno, AcidПродолжительность: 01:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4FCECF543F0E9F9846BD7364731E3555F5EB839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202479   (1025738) от 18.03.2021
-
-Docetism - Discography 39 Releases (2012-2021) Nichts [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Field Recording, Dub, Drone>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Woods (03:41)
- 02. Putrefactio (04:49)
- 03. Heart Of The Wilderness (08:15)
- 04. There Is Nothing Left (06:00)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Dub Techno, Field Recording, Dub, Drone •Продолжительность: 21:37:41 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44F189709009BC9D215BF477571EA9B372E6F1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

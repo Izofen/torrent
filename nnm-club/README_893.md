@@ -1,25 +1,51 @@
-###  Публикация: 1445711   (1033534) от 06.02.2021
+###  Публикация: 1444727   (1034233) от 03.02.2021
 
-VA - Armin van Buuren & Ferry Corsten - A State of Trance 1002 (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
+Giorgi Mikadze - Georgian Microjamz (2020) [FLAC|Lossless|tracks + .cue] <Jazz, Jazz Rock, Ethnic Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metivuri (Prelude) (3:44)
+02. Dumba Damba (9:35)
+03. Shedzakhili (Interlude) (1:04)
+04. Elesa (8:46)(   Читать дальше...   )Производство: RareNoise Records – RNR116Жанр: Jazz, Jazz Rock, Ethnic Jazz, Experimental, MicrotonalПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D6341A3B98987A792612BC68D98A97B7803D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444842   (1034232) от 03.02.2021
+
+Logistics - Jungle Music (DRS & Dynamite MC x Logistics Remix) (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033534.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Omnia – Eternity
-02. Kyau & Albert – Runaway Girl
-03. ilan Bluestone & Maor Levi feat. Alex Clare – Hold On
-04. 7 SKIES – ZAO(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:36
+01. Jungle Music (DRS & Dynamite MC x Logistics Remix) (03:29)Жанр: Drum & BassПродолжительность: 00:03:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE655AECBF1A6A95D3336A7227F6D9D7D2ACD19E
+magnet:?xt=urn:btih:AA8247BEE834F0CA63D0FE51F9ACC3FBA05DD9F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,158 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445576   (1033533) от 06.02.2021
+###  Публикация: 1444789   (1034231) от 03.02.2021
 
-Звонкий - Angel (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel (03:07)Жанр: Rap, Hip-HopПродолжительность: 00:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05623CD44EED301FBEE9F72E9368CBB141C9E4C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445703   (1033532) от 06.02.2021
-
-Mozilla Thunderbird 78.7.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F60B2D74AEF94E0F7DC2628127A4A4421E0FE83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445357   (1033531) от 06.02.2021
-
-Steven Knipping | Applied Houdini Dynamics III (2016) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Applied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звездные войны: Пробуждение Силы, Мстители: Эра Альтрона, Земля будущего). Эта серия сочетает в (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DAD0E76FED032C74E43D49CF2F470FE888AEBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445649   (1033530) от 06.02.2021
-
-ConceptDraw DIAGRAM 14 v14.1.0.369 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощные решения для бизнес-чертежей и диаграмм. Новейшая редакция ConceptDraw DIAGRAM (ранее известная как ConceptDraw PRO) гарантирует, что она по-прежнему остается ведущим в мире профессиональным и простым в использовании программным обеспечением для построения бизнес-диаграмм. ConceptDraw DIAGRAM v14 предоставляет полный спектр решений для бизнес-графической документации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: S Odessa Corp.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC64DC207D0E141F768700147EFE29D94C6F00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445463   (1033529) от 06.02.2021
-
-Разоблачение сквозь объектив / Exposed (2007) DVB (сезон 1, серии 8, 13 из 14)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звезды Голливуда сияют с экранов кинотеатров и глянцевых журналов. Мир грез дарит нам возможность лицезреть самых красивых и талантливых актеров в зените славы. Но помимо официальных фасадов существует и другой Голливуд, другой мир звезд кино, открываемый нам папарацци.Производство: СШАЖанр: Документальный, биографияРежиссер: Шэрон О’КоннеллПеревод: Двуголосый закадровый, профессиональный (ТПО "Ред Медиа")Субтитры: отсутствуютПродолжительность: серии x ~00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42438CC2F1F3FED001B5C1F0202262EC4E76E4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445464   (1033528) от 06.02.2021
-
-VA - Ladies Training Beats 2021 [MP3|320 Kbps] <Pop, Dance, Other>
+VA - Intensity: Trance Compilation (2021) [MP3|320 Kbps] <Trance, Electro>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033528.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Joel Corry, MNEK, Tiesto - Head & Heart - Tiesto Remix (2:04)
-02. Felix Harrer - Eisbar (2:05)
-03. Fremde Passagiere - Teenage Dirtbag (2:07)
-04. Robin Schulz, KIDDO, Ofenbach - All We Got - Ofenbach Remix (2:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:46
+Авторы сборника "Intensity" объединили свои силы, чтобы достичь нового уровня "Интенсивности", так называется представляемый Вашему вниманию новый транс-сборник, с мощными психоделическими звуками и массивной ударной базой, где нет места милосердию и сладкой лирике.001. Salvatore Mascaro - Isabel
+002. Indecent Noise - Pictures Of A Gallery
+003. Above & Beyond - On My Way To Heaven
+004. Vyacheslav Sketch - New Life(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 08:20:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54BEE7F69DC9EF826CA169E1785004FEA52208BA
+magnet:?xt=urn:btih:3D7D5719385DA47E3935A59464320C08BA16BEF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,26 +82,311 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445744   (1033527) от 06.02.2021
+###  Публикация: 1444885   (1034230) от 03.02.2021
 
-Полидор. Ужасное дитя / L'enfant terrible (1917) WEBRip
+DJ Healer - Nothing 2 Loose (2018) All Possible Worlds [FLAC|Lossless|tracks|Vinyl] <Ambient, Breakbeat, House>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Last (Becalming The Storm) (03:27)
+ 02. Great Escape (03:09)
+ 03. 2 The Dark (08:27)
+ 04. Gods Creation (08:01)(   Читать дальше...   )Жанр: Ambient, Breakbeat, HouseПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC38030683C5325CA00BE7493DD850636A44A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444943   (1034229) от 03.02.2021
+
+C.O.D. - Tears (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears (3:20)
+02. Groovin' (2:52)
+03. Good Time (3:21)
+04. I Just Want To Be With You (3:21)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59580E61C026A14B5EFE8654D6977BFCA7123E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444800   (1034228) от 03.02.2021
+
+VA - Acoustic Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Soul, Pop, RnB>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tamia - Officially Missing You
+02. Leela James - When You Love Somebody
+03. Jason Derulo - Ridin' Solo (Acoustic Version)
+04. Rose Royce - Angel In the Sky(   Читать дальше...   )Жанр: Soul, Pop, RnBПродолжительность: 01:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB76711D6D1B28B9ED6A70251FD13ADDEB9DCC1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444792   (1034226) от 03.02.2021
+
+VA - Best New Electro: Tech House Party (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы фанат не стандартной современной электронной музыки, то вам определенно прийдётся по нраву альбом с названием "Best New Electro: Tech House Party". Сюжет космоса, роботов и технологий синтеза - это потрясающий музыкальный мир, в котором захочется раствориться и не заметить ход времени. Превосходные аранжировки, прогрессивный звук и выделяющееся (   Читать дальше...   )001. Sources - Fields
+002. Korioto - El Bien Y El Mal
+003. Lab Doctors - Doing Tricks
+004. Kacper Kirtz - Clarity(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 08:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31BD4D869523C7627B6A4F9597E3DB1978EB80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444935   (1034225) от 03.02.2021
+
+VA - Liquid Drum & Bass Sessions, Vol. 4 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghosty, Andy Grimwood - All I Know (Vocal Mix) (04:30)
+02. Tact Tokyo - Leaf Of Happiness (Original Mix) (05:12)
+03. Malaky - In Blue (Original Mix) (05:34)
+04. Satorbass - Mindcrime (Original Mix) (03:15)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0669EDFEEF13DDE3E129E4C49E7B1FEFB2D5EDC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444882   (1034224) от 03.02.2021
+
+VA - Liquid Drum & Bass Sessions, Vol. 2 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altered Perception - Bombay Sunset (Original Mix) (04:38)
+02. Rohmz - Promise Land (Original Mix) (05:36)
+03. Vibrant Scientists - Fortune (Original Mix) (09:02)
+04. Al Menos - New Stars (Original Mix) (07:29)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C44379D9C27AAD17160B4F4D3CD0779F997B302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444920   (1034223) от 03.02.2021
+
+VA - Liquid Drum & Bass Sessions, Vol. 3 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sikka - Spellbook (Original Mix) (05:22)
+02. Telpha, Jeauneil Baptiste - Polarity (Original Mix) (03:51)
+03. Swayz - Finding (Original Mix) (06:37)
+04. paul psr ryder - Challenge Everything (Format Remix) (02:03)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A433ED6AECAD3C7DAE5142E0C7BE7C9764DE7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444844   (1034222) от 03.02.2021
+
+Thе Ritсhiе Fаmily - Bad Reputation (1975-1983) [MP3|320 Kbps] <Pop, Funk, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская вокальная группа из Филадельфии. Некогда, во времена Disco, довольно популярная в Америке и мало известная в нашей стране. Основной период их творчества приходится на 1975-1983 года, а в последующие года меликнувшие только со своими ремиксами.01. Theme Of The Queen Of Sheba
+02. Theme Of Nefertiti
+03. Theme Of Cleopatra
+04. Lady Champagne(   Читать дальше...   )Жанр: Pop, Funk, DiscoПродолжительность: 03:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE161BD68BBB3AF0EFFDBAF47B957516D669EAC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444836   (1034221) от 03.02.2021
+
+Любовь Тильман | Мир круженья [Эксклюзивный релиз] (2021) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир круженья – тринадцатый сборник и восемнадцатая книга Любовь Иосифовны Тильман,
+две из которых написаны в соавторстве.
+Настроение сборника, как и почти всех других книг автора, отображает обложка, сделанная ей на основе собственного снимка. Над неподвижными домами, дорогами, светящимися фонарями, островками зелени – гонимые ветрами слои туч и туманы облаков, подсвеченные (   Читать дальше...   )Жанр: современная проза, поэзияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59A1FFAAF58E93160A3475DDDC60ED776519928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444747   (1034220) от 03.02.2021
+
+Газета | Народный совет №4 (январь 2021) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F17C1C69EBF26E2025EE76E25E75865C6DB9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444906   (1034219) от 03.02.2021
+
+Роско Арбакл. Простая жизнь Фатти и Мейбл / Mabel and Fatty's Simple Life (1915) DVDRip
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033527.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-К старшей сестре маленького Агенора приезжает долговязый жених. Но объясниться молодым всё не удаётся - Агенор избрал жениха главным объектом для своих проказ...
-Фильм неправильно озаглавлен "Полидор и парик". На сайте Болонской синематеки он представлен под своим настоящим названием - Инфант террибль.Производство: Италия, Società Italiana CinesЖанр: Комедия, короткометражный, немое киноРежиссер: ПолидорАктеры: Матильда Гийом, Наталино Гийом, Полидор (Фердинанд Гийом)Перевод: Немой с интертитрамиСубтитры: Итальянские интертитры, русские отдельным файломПродолжительность: 00:11:42
+Отец Мейбл хочет выгодно выдать её замуж. Но Мейбл уже любит ФаттиПроизводство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Роско АрбаклАктеры: Роско Арбакл, Мэйбл Норманд, Аль Ст. Джон, Джозеф Суикерд, Джо Бордо, Тед Эдвардс, Филлис Аллен, Билли Гилберт, Бобби ДаннПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:24:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF926BDAF31F83AB7F0F3B628B993CFE40C68F1C
+magnet:?xt=urn:btih:B489D16C2C7530DCCB95D35B40296B34617458E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -213,25 +394,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445654   (1033526) от 06.02.2021
+###  Публикация: 1444863   (1034218) от 03.02.2021
 
-Steven Knipping | Applied Houdini Rigids II (2016) PCRec [En, Ru]
+VA - Liquid Drum & Bass Sessions, Vol. 1 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033526.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Applied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звездные войны: Пробуждение Силы, Мстители: Эра Альтрона, Земля будущего). Эта серия сочетает в (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 04:08:00
+01. Denial, Shiva - Don't Forget About Me (Furney Remix) (05:34)
+02. MSdoS, A.k.A - It's You (Original Mix) (05:58)
+03. Swiss, Struz - Together (Original Mix) (05:45)
+04. Exper1menT - Live Already (Original Mix) (07:09)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:26:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AA3B3DAE489A6FA58BDC1F195321E9094200DD2
+magnet:?xt=urn:btih:363510D968D84670AB8F01766D230F3D103ED9C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,25 +423,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445368   (1033525) от 06.02.2021
+###  Публикация: 1444733   (1034217) от 03.02.2021
 
-Steven Knipping | Applied Houdini Dynamics V (2016) PCRec [En, Ru]
+The Persuaders - It's All About Love (1976) LP [MP3|320 Kbps] <Disco, Funk Soul>
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033525.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-pplied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звездные войны: Пробуждение Силы, Мстители: Эра Альтрона, Земля будущего). Эта серия сочетает в (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:03:00
+01. It's Love (2:57)
+02. Count The Ways (4:58)
+03. I Need Love (4:15)
+04. Quickest Way Out (Vocal) (4:11)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 00:37:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC99CCE4739923666F980399CE22055DDFE12D2E
+magnet:?xt=urn:btih:4B886262AAB7C476F05300D84D4DB0E88C201586
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,27 +452,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445693   (1033524) от 06.02.2021
+###  Публикация: 1444245   (1034216) от 03.02.2021
 
-BimmerCode for BMW and Mini v3.5.0 [En]
+Екатерина Риз | Закон подлости (2017) [EPUB]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033524.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BimmerCode позволяет кодировать блоки управления в вашем BMW или Mini, чтобы разблокировать скрытые функции и настроить автомобиль по своему вкусу.
-
-Активируйте цифровой дисплей скорости на комбинации приборов или разрешите пассажирам смотреть видео во время движения в системе iDrive. Вы хотите отключить функцию Auto Start / Stop или Active Sound Design? Вы сможете (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 12 января 2021гРазработчик: SG Software GmbH & Co. KGПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
+Маша искренне считала, что не хочет от жизни ничего сверхъестественного. Как и любая девушка хочет быть счастливой, любимой, выйти замуж и создать семью. И она встретила своего принца, человека, которого смогла полюбить, который отвечал ей взаимностью. Но, как порой бывает, любовная лодка разбилась. Под насмешливым взглядом надменного родственника… Который откровенно (   Читать дальше...   )Жанр: Современные любовные романыФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B78B59E642F35F14825EB51076612C81C30A1644
+magnet:?xt=urn:btih:8BB62FBBD21C340363E9B16FE7F063BC80FEDEF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,263 +478,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445468   (1033523) от 06.02.2021
+###  Публикация: 1444921   (1034215) от 03.02.2021
 
-Adobe Zii 2021 - Universal Patcher 6.0.7 [En]
+Любовь Вайткене, Мира Филиппова | 200 любимых страниц для почемучек. Занимательные науки и увлекательные эксперименты (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хочешь узнать, что изучают различные науки, например такие, как химия, физика, биология? А может быть, ты уже рассматриваешь варианты будущей профессии? Тогда ты выбрал правильную книгу. Прочитав ее, ты разберешься во многом, чего раньше попросту не понимал. Теперь ты будешь знать, чем химические реакции отличаются от ядерных, как появился пенициллин, что такое молочная (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61077AC3E0168960516B507893A10E1E857A9335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444729   (1034214) от 03.02.2021
+
+MediaHuman Youtube Downloader 3.9.9.52 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033523.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией практически всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6168E30672829CC6D869F00A3D852811A04B4A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445590   (1033522) от 06.02.2021
-
-Звонкий - Shine (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine (03:12)Жанр: Rap, Hip-HopПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C31F552DB1FE5F4B4FD5F13CA35DCF04AFC752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445732   (1033521) от 06.02.2021
-
-Bucky - Deep Down (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Down (04:04)Жанр: Electronic, AmbientПродолжительность: 00:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF52049434FFC7A658E211399494F5396E1EAC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445656   (1033520) от 06.02.2021
-
-ConceptDraw MINDMAP 12 v12.0.0.164 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Mind Map профессионального уровня. ConceptDraw MINDMAP v12, ведущий инструмент для создания интеллектуальных карт, включает в себя полный набор решений для проектирования и построения интеллектуальных карт, которые экономят время. Создавайте интеллектуальные карты, которые интуитивно иллюстрируют ваш мыслительный процесс. Организуйте идеи (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: S Odessa Corp.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4BE44D54CCAD906B44AA80DB17BF74FCE977B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445783   (1033519) от 06.02.2021
-
-Bucky - Retribution (feat. D-DUBLL) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retribution (feat. D-DUBLL) (03:11)Жанр: Electronic, AmbientПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1D868B23E00074C87681966D07C0954B6A9064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445579   (1033518) от 06.02.2021
-
-Главная дорога (06.02.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьянству за рулем объявлен бой! В России решают, как сделать так, чтобы нетрезвые водители не могли садиться за руль. Может быть, запереть их алкозамком? Но можно ли надеяться на такой прибор? В новом выпуске «Главной дороги» Андрей Федорцов и Денис Юченков попытались обмануть эту электронику: они накачали в алкозамок воздух насосом, позвали на помощь трезвых прохожих, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52E4772B6FBAE63EE64D4306B96FD60A4D52140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445193   (1033517) от 06.02.2021
-
-М. А. Сапожков | Речевой сигнал в кибернетике и связи (1963) [DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена преобразованиям речи применительно к задачам техники связи и кибернетики. Книга рассчитана на специалистов в области техники связи, автоматики, кибернетики, инженеров, аспирантов и научных сотрудников, изучающих вопросы преобразования речи.Жанр: научная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C86481EBF851DCBB252C862EEFD81FC2493FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445547   (1033516) от 06.02.2021
-
-Звонкий - После пяти (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. После пяти (03:15)Жанр: Pop, Hip-HopПродолжительность: 00:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D5BAA6B7581D9E10D94F2A2C3B24D5CEF31F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445569   (1033515) от 06.02.2021
-
-Wondershare UniConverter 12.5.4.17 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
-Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D5C1CC4455335FA9AE77B59FAE169EDBAC922E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445748   (1033514) от 06.02.2021
-
-Sun Locator Pro v4.20 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sun Locator предсказывает положение Солнца и Луны втечении всего дня и года.
+YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
 
-★На главном экране отображается важная информация о текущем положении Солнца и Луны, такая как время восхода и захода, сумерки, фаза луны и т.д.
-(   Читать дальше...   )Тип издания: Пиратка Pro)Релиз состоялся: 3 февраля 2021 г.Разработчик: GeneWarriorПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
+• Закачка нескольких файлов одновременно
+• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2021Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE2719FD3C04F4EBDED87C5AC6B3E0ED63AD4E45
+magnet:?xt=urn:btih:58ED2B25CADFA60E02143FE78AA5AE4BD4EBAFAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,28 +533,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445331   (1033513) от 06.02.2021
+###  Публикация: 1444788   (1034213) от 03.02.2021
 
-Flaer Smin - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+VA - Quantum Motion (2021) [MP3|320 Kbps] <Synth Space, Electronic>
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033513.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wish U Were Here (Re-Edition 18 Mix) (7:41)
-02. Alone In The Dark (6:59)
-03. Adagio For Love (7:41)
-04. Catharsis (7:08)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:54:18
+С музыкой лонгплея "Quantum Motion" мы с Вами отправимся в фантастическое путешествие по просторам нашей необъятной галактике. Так что пристёгиваемся, одеваем наушники и полетели!001. Kalax - Let Go (feat. Anton Vic)
+002. Stilz - Hyperspace Drifter
+003. Julian Wassermann - Komet
+004. Ugo Benso - Houmework(   Читать дальше...   )Жанр: Synth Space, ElectronicПродолжительность: 09:25:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB3258AA985A1AD47FA4C79D8C4993410D718734
+magnet:?xt=urn:btih:C52CD90E3597AAEED126A618A77FEE1D5CB58B14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,25 +562,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445658   (1033511) от 06.02.2021
+###  Публикация: 1444787   (1034212) от 03.02.2021
 
-Steven Knipping | Applied Houdini Rigids III (2016) PCRec [En, Ru]
+VA - International Pop Party (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033511.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Applied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звездные войны: Пробуждение Силы, Мстители: Эра Альтрона, Земля будущего). Эта серия сочетает в (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 05:11:00
+Абсолютно все треки микса "International Pop Party" просто напичканы отличным танцевальным настроем, чьи мелодии призывают вас самозабвенно пуститься в музыкальное путешествие по самым разнообразным странам и послушать что поют и танцуют их жители.001. The Boyz - Checkmate
+002. DJ Di Granati - Du Bist Engel
+003. Dua Lipa - Levitating
+004. The Whiskey Gingers - Change Your Mind(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 09:00:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57D63933E0440D2AE21DDD5186E3A74031A2B347
+magnet:?xt=urn:btih:D335A8E2B018AFEF6B5B44DCA765924681DFF895
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,25 +591,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445650   (1033510) от 06.02.2021
+###  Публикация: 1444757   (1034211) от 03.02.2021
 
-Steven Knipping | Applied Houdini Rigids I (2016) PCRec
+Тайны Фрэнки Дрейк / Расследования Фрэнки Дрейк / Frankie Drake Mysteries (2018) BDRip [H.264/1080p-LQ] (сезон 2, серии 1-10 из 10) VIP Serial HD
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033510.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Applied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звездные войны: Пробуждение Силы, Мстители: Эра Альтрона, Земля будущего). Эта серия сочетает в (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоПродолжительность: 02:06:00
+Сериал расскажет о Фрэнки Дрейк - первой в городе женщине, ставшей частным детективом, действующей в канадском городе Торонто в 20-е годы прошлого века. Фрэнки, обладая всеми качествами, присущими хорошему детективу, вместе со своей помощницей Труди берётся за расследование самых сложных и запутанных дел - даже таких, где, казалось бы, нет никаких улик.Производство: Канада / Shaftesbury Films, Canada Media Fund (CMF), Independent Production FundЖанр: драма, криминал, детективРежиссер: Руба Надда, Садс Сазерленд, Элинор ЛиндоАктеры: Лорен Ли Смит, Шантель Райли, Ребекка Лиддьярд, Шаррон Мэтьюз, Грэйс Линн Кунг, Венди Крюсон, Энтони Лемке, Ромэйн Вейт, Карен Робинсон, Эммануэль КабонгоПеревод: Многоголосый профессиональный (VIP Serial HD)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF9995DDF251B162B9CB12A1CD9535FDBBB70F2E
+magnet:?xt=urn:btih:5462D4E052CD5CF0E55FB120ADAD29687B957A45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,25 +617,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445757   (1033509) от 06.02.2021
+###  Публикация: 1444794   (1034210) от 03.02.2021
 
-Ольга Размахова, Анна Край | Домашнее насилие. Так будет не всегда (2020) [EPUB]
+VA - Beatport Deep House: Electro Sound Pack #237 (2021) [MP3|320 Kbps] <Deep House, Vocal House>
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033509.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034210.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Домашнее насилие. Так будет не всегда» – книжный проект Оли Размаховой и Анны Край, являющихся практикующими психологами, участницами различных социальных проектов. Из книги вы узнаете о том, как можно и нужно бороться против домашнего насилия, за законодательную защиту пострадавших и публичное освещение вопроса. К проекту привлечено большое количество людей, столкнувшихся (   Читать дальше...   )Жанр: Семейная психологияФормат: EPUB
+Слушателя ждёт не на один час погружение в море размеренной и мелодичной музыки в стиле Deep House. Специфичная для восприятия на слух, эта музыка способна вызвать довольно противоречивые настроения. Однако, именно она, наиболее выразительно преподносит слушателю для изучения немаленький пласт электронной музыки.001. Maxriven - Astronomia
+002. Mark Silengton - Away From Home
+003. Arthem - Happy And Sweet
+004. Omid 16b - Hope(   Читать дальше...   )Жанр: Deep House, Vocal HouseПродолжительность: 09:44:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D45D8E1C0735F9691266454B8AF3E78A68E9819
+magnet:?xt=urn:btih:C6D337A6080B5F1824E3494D6C100734BD84591B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,25 +646,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445674   (1033508) от 06.02.2021
+###  Публикация: 1444899   (1034209) от 03.02.2021
 
-Макс Пембертон | Доверьтесь мне. Я – доктор (2020) [EPUB]
+Полидор хочет покончить с собой / Polidor vuol suicidarsi (1912) DVDRip
 
->>Научная и техническая литература
->>Здоровье и медицина
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033508.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В первой части трилогии Макса Пембертона трогательно и с юмором описываются впечатления интерна от первого года работы в Национальной службе здравоохранения Великобритании. Юношеский максимализм доктора сменяется откровенным недоумением от осознания того, насколько мало в его деле собственно «спасения жизней» и как много времени уходит на заполнение бланков и обдумывание (   Читать дальше...   )Жанр: Популярно о медицине, Истории из жизниПеревод: Ирина ГолыбинаФормат: EPUB
+Кредиторы наседают на Полидора, грозят тюрьмой и пожизненным заключением. Полидор решает покинуть этот мир... Но как настоящему неудачнику ему это не удаётся...Производство: ИталияЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: Полидор (Фердинанд Гийом)Перевод: Немой с интертитрамиСубтитры: Итальянские интертитры, русские отдельным файломПродолжительность: 00:08:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD164AB257D2B7DD58F359D25EDCF04B1B98CAB3
+magnet:?xt=urn:btih:91315B033542FFC856AFB033F36F890920365277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444866   (1034208) от 03.02.2021
+
+M. A. 3 - M. A. 3 (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bee Gee's Mania (Medley) (13:40)
+02. If You Wanna Dance (5:15)
+03. Music (4:13)
+04. When Will I See You Again (4:02)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BC22B5D4DC672BC97376133CEA228302E41C2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444924   (1034207) от 03.02.2021
+
+Mr.Kitty - -+ (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurt (4:33)
+ 02. Let Go (4:05)
+ 03. In Loving Memory (3:55)
+ 04. Everything Will Be Okay (4:54)(   Читать дальше...   )Жанр: Electronic, Synthwave, DarkwaveПродолжительность: 00:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B125C04A44FB54DFF0C95D4AFF5F913EF81B0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

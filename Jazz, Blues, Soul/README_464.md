@@ -1,3 +1,32 @@
+###  Публикация: 1659460   (190125) от 11.09.2023
+
+Laufey - Bewitched (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dreamer (00:03:30)
+02 - Second Best (00:03:24)
+03 - Haunted (00:03:20)
+04 - Must Be Love (00:03:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93152E337F2DFD3D6A4510F82E41964C665EBB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589618   (190046) от 10.11.2022
 
 Scott Hamilton - Live At Brecon Jazz Festival (1995) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -716,35 +745,6 @@ Idris Muhammad - Turn This Mutha Out (1977) 2016, King Record [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB996970C5FC028B19E65FF30994F2C99FDBDD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590276   (189150) от 13.11.2022
-
-Johnny Smith - The Complete Roost Johnny Smith Small Group Sessions (1952 - 1964) 8CD, 2002, Mosaic Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189150.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Where or When [2:26]
-02. Tabu [2:41]
-03. Moonlight in Vermont [3:15](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Guitar JazzПродолжительность: 09:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BA91E73916B2917748AC380CA7E80101034C49
 ```
 
 https://mybot314.ru/tekegram_catalog/

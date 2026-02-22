@@ -1,3 +1,90 @@
+###  Публикация: 925390   (541491) от 06.08.2015
+
+Curtis Fuller Quintet - South American Cookin' (1961) /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Young Lovers [05:24]
+02. Besame Mucho [09:20]
+03. Willow Weep For Me [06:45]
+04. One Note Samba [04:16](   Читать дальше...   )Жанр: Jazz, Hard Bop, Mainstream JazzПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1726BA6A674DA27364352CE0D2E261A63B6C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925369   (541411) от 06.08.2015
+
+VA - Electro Jazz (2015) [FLAC|tracks|WEB-DL]<Electro Jazz, Nu Jazz, Broken Beat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interpretes Divers - Rhodes Club (03:41)
+02. Interpretes Divers - Hot Times (03:20)
+03. Interpretes Divers - Urban Trumpet (03:31)
+04. Gregory Toucas - Miles from Dream (04:08)(   Читать дальше...   )Производство: Justement MusicЖанр: Electro Jazz, Nu Jazz, Broken BeatПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18381AC79BAFE37658D060A05BE731EB7AE7740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925454   (541401) от 06.08.2015
+
+Phantom Blues Band - Inside Out (2011) [MP3|320 кб/с]<Funky Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Stand It (02:50)
+02. A Good Time For The Blues (03:16)
+03. Boogah Man (03:28)
+04. So Far From Heaven (06:01)(   Читать дальше...   )Жанр: Funky BluesПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D09433F1C30463883032CED10757551D74A684B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154326   (541050) от 30.07.2017
 
 Christ Ruest & Gene Taylor - It's Too Late Now (2017) [MP3|320 Kbps] <Chicago Blues, Jump Blues>
@@ -660,102 +747,6 @@ Brian Bromberg - Thicker Than Water (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7EBA714F8B8171A30F0C833C03F196337C2FF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532323   (538674) от 07.08.2012
-
-VA - Bar Room Blues: A 12-Track Program (2004) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538674.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tommy Castro - Rip This Joint (3:28)
-2. Tab Benoit - I Got Loaded (4:26)
-3. Charlie Musselwhite - Cold Grey Light Of Dawn (2:56)
-4. Kenny Neal - Whiskey Tears (5:23)
-5. Doug Wainoris - If The Sea Was Whiskey (4:21)
-6. Troy Turner - Later Than You Think (2:33)
-7. Junior Wells - Last Hand Of The Night (3:27)
-8. Sam Lay - Pure Grain Alcohol (2:41)
-9. Bob Margolin - My New Baby Owns A Whiskey Store (3:36)
-10. Tinsley Ellis - Feelin' No Pain (8:03)(   Читать дальше...   )Жанр: Blues
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B973304B3B412D2ED0C62C4C876F9DB54979F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532343   (538554) от 07.08.2012
-
-Divin' Ducks - 5 albums (1992 - 1998) [MP3|224-320 кб/с]<Hard Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-1992 - Rapes The World
-1994 - An Eye For An Eye..A Tooth For A Tooth
-1995 - Gutter Rhymes
-1998 - Both Ends Burning
-1998 - Brewed And Bottled - Alive!(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 03:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E942B885A6F8D40A7C9A2FB2B1C2BD51451D7F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050461   (538427) от 08.09.2016
-
-Paul Bley, Franz Koglmann, Gary Peacock - Annette (1992) 2001, HAT HUT Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Touching (take 1) [05:52]
- 02.El Cordobes [08:31]
- 03.Cartoon [06:27]
- 04.Albert's Love Theme [03:46](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BC90FABC431E3156D79EDDABBFD8B86ED5E1465
 ```
 
 https://mybot314.ru/tekegram_catalog/

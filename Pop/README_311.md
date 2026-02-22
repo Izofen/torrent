@@ -1,3 +1,87 @@
+###  Публикация: 1348219   (145231) от 27.12.2019
+
+Falco - Meisterstucke (1995) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Kommissar (Rap' That) (3:51)
+02. Maschine Brennt (3:40)
+03. Auf Der Flucht (4:15)
+04. Wiener Blut (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4679CFC107F8956F5B7F3D7F103DF310E77A1BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348317   (145149) от 27.12.2019
+
+Жасмин - Я верю в любовь (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145149.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я верю в любовь
+2. Похожи
+3. Белая птица
+4. Ты моё, моё…(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A5F572A7499502F057C53C5CEE0D5CC45F8CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348162   (145087) от 27.12.2019
+
+Vision Mastermixers - The Very Best 60s Megamix (1999) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Dance - Lee Chappell (1:23)/ I Get Around - Wilson (0:58)/ I Saw Her Standing There - Davies (1:36)/ You Really Got Me - Barry, Greenwich, Spector (1:02)/ Da Doo Ron Ron - E.Holland, L Dozier, B.Holland (1:08)/ Baby Love - Marriot, Lane (1:03)/ Lazy Sunday - Weiss, English (0:43)/ Hi Ho Silver Lining - Stewart (0:47)/ Daydream Believer - Various (0:56)/ (   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBFBF8FC6D90A592A994C9D2C85CEBFB09D5386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348215   (145070) от 27.12.2019
 
 Abba Revival Band - Thank You For The Music (1992) [MP3|320 Kbps] <Pop>
@@ -655,93 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5B5016225C87247182DCE203934CC0F1A86C48A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970101   (143570) от 29.12.2015
-
-Иварс (Ивар) Калныньш - Актер И Песня (2003) [APE|Lossless|image+.cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Город Любви
-02	Сказка Любви
-03	Ниточка
-04	Цветочек(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB17ED0289E24179045EAEDB29131BC9D273446C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678647   (143562) от 22.11.2023
-
-VA - Disco Fantasy '79 (1979) 2LP [MP3|320 Kbps] <Funk / Soul, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gala Gypsy Orchestra - The Stranger (3:44)
-02. Fantastic Sounds Orchestra - Macho (A Real, Real, One) (4:00)
-03. Fantastic Sounds Orchestra - Fantasy (4:06)
-04. Hollywood - Don't Treat Me Like Your Sister (3:38)(   Читать дальше...   )Жанр: Funk / Soul, Pop, DiscoПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E90CEB345060B46EB406F29894629B4C77BE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195152   (143472) от 28.12.2017
-
-VA - Популярные песни 60-х годов (2006) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А годы летят (М.Фрадкин - Е.Долматовский) - Валентина Левко
-02. Тишина (Э.Колмановский - В.Орлов) - Владимир Трошин
-03. Ландыши (О.Фельцман - О.Фадеева) - Гелена Великанова
-04. В нашем городе дождь (Э.Колмановский - Е.Евтушенко) - Лили Гегелия(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC47CE364AAF90922269F1E07F282A8EEA1F559A
 ```
 
 https://mybot314.ru/tekegram_catalog/

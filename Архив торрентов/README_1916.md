@@ -1,3 +1,32 @@
+###  Публикация: 1012456   (793263) от 01.05.2016
+
+VA - Trance Gate Vol.2 (2016) [MP3|320 кб/с] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xoren Big vs. DJ -  Magic of Sound  8:39
+02. Romeo Lang -  Constitution (DJ Sakin Progressive Mix)  5:59
+03. DJ X-Wing -  The Infinity of the Wide (Club Mix)  5:58
+04. Malatya 44 -  Ingredient (Hekimhan Mix)  7:12(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4EB0B735B914584867207838CCB7837ABC7E61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011747   (793257) от 01.05.2016
 
 Гастролеры / Беглецы (2015) SATRip (серии 1-16 из 16)
@@ -643,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC0B0E37F7075823045F32D729F41F743381E883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274364   (793062) от 07.01.2019
-
-Permute 3 v3.0.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 31.12.2018Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A114005D8768334A7D3088A7F9DC665E1265A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

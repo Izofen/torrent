@@ -1,3 +1,32 @@
+###  Публикация: 1126573   (765369) от 18.04.2017
+
+VA - I Love Music! - Alternative Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3 Pill Morning - Escape 3:59
+002. AFI - She Speaks The Language 4:01
+003. Acceptance - 73 5:00
+004. Acronycal - Lost Without A Name 4:23(   Читать дальше...   )Жанр: Alternative Rock, Punk-Rock, Pop-PunkПродолжительность: 06:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE6F34A554FAB9F90987D5DEEECF537464AD1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126578   (765366) от 18.04.2017
 
 VA - I Love Music! - Nu Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative Metal, Modern Rock, Nu Metal>
@@ -716,35 +745,6 @@ Joe Cocker - Compilation (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C1D77AA282AB3D570D0ABD1FFB20C2FC0CCEF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215527   (757851) от 26.03.2018
-
-Александр Маршал - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Александр Маршал - Дай мне руку
-02 Александр Маршал - Обещай мне
-03 Александр Маршал - Погоди, постой
-04 Александр Маршал - Как тебя найти(   Читать дальше...   )Жанр: Rock, ShansonПродолжительность: 03:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B626EB888570C721C1CBD9CF081D7FB3554875
 ```
 
 https://mybot314.ru/tekegram_catalog/

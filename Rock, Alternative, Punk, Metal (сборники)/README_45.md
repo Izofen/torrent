@@ -1,3 +1,32 @@
+###  Публикация: 1748997   (43797) от 12.09.2024
+
+VA - The Open Hearts. Compilation (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43797.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chanel Beads - Unifying Thought
+002. Coldplay - Speed Of Sound
+003. Harrison Storm - Better With You
+004. Zach John King - The Way I See You(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 09:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27E39C6FD771EE5845A2BCD8EAC40FDF3D787B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748672   (43623) от 14.09.2024
 
 Pink Floyd - Gilmour Age Compilation (2024) [MP3|320 Kbps] <Progresive Rock>
@@ -717,35 +746,6 @@ Avril Lavigne - Compilation (2002-2023) [MP3|320 Kbps] <Pop punk, Alternative, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16901230CDD307645FAB2F7823E0F1AA1A1EA8F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764913   (34724) от 09.12.2024
-
-Nautilus Pompilius - Compilation (1983-1997) [MP3|320 Kbps] <New wave, Art rock, Soft Rock, Post punk>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Три Хита (Оркестровая Увертюра) (Атлантида 1997)
-02. Эпиграф (Разлука 1986)
-03. Эта Музыка Будет Вечной (Разлука 1986)
-04. Отход На Север (Наугад 1994)(   Читать дальше...   )Жанр: New wave, Art rock, Soft Rock, Post punkПродолжительность: 05:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9DA6A5012644D35224F14C30CDFA99DBDB7EF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

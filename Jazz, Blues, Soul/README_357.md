@@ -1,3 +1,90 @@
+###  Публикация: 949690   (370220) от 26.10.2015
+
+Mojo Man - Mojo Man (2015) [MP3|320 кб/с]<Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scarecrow
+02. The Ship Is Sinking
+03. I'm a Man
+04. Is It a Crime(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3D9447EFB4BBBBA3BC319DA872CF4EE3F37CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176508   (370150) от 22.10.2017
+
+The Duke Pearson Nonet - Honeybuns (1965) 2012, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honeybuns [07:11]
+02. New Girl [05:18]
+03. You Know I Care [04:19]
+04. Is That So? [04:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926222E412DD63F60B8C069DAAA38F3023C57870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176515   (370148) от 22.10.2017
+
+Volker Kriegel - Journal & Palazzo Blue (1981, 1987) 2CD, 2010, Inakustik [APE|Lossless|image + .cue] <Jazz Fusion, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370148.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Journal:
+01. Calcador [03:55]
+02. Storyboard [04:54]
+03. Am Wцrthsee [04:44](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2F0AAF01664FF8C0BEBB314F4C13EF37129817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176512   (370146) от 22.10.2017
 
 The Junior Mance Trio - Blue Mance (1994) Chiaroscuro [WavPack|Lossless|image + .cue] <Hard Bop, Piano Jazz>
@@ -659,99 +746,6 @@ Tito Puente Featuring Maynard Ferguson - Special Delivery (1996) Concord [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F9E52417A1F23E3BEDF056E9EFE5D79F108529A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416511   (367962) от 16.10.2020
-
-Chano Dominguez - Piano Iberico (2010) Blue Note [FLAC|Lossless|tracks + .cue] <Latin Jazz, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mantreria [5:03]
-02. El Puerto [6:45]
-03. Tangos a Mompou [6:51]
-04. Andaluza No.5 [4:17](   Читать дальше...   )Жанр: Latin Jazz, Contemporary Jazz, Piano JazzПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73135A2640B44FA4C985A5E810103CDB8E80003E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416459   (367958) от 16.10.2020
-
-Ray Barretto - Que Viva la Musica (1972) 1992, Fania Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Salsa>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Que Viva la Musica [5:31]
-02. Bruca Manigua [4:06]
-03. La Pelota [4:19]
-04. El Tiempo lo Dira [4:23](   Читать дальше...   )Жанр: Latin Jazz, SalsaПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579C5140585213BFC0380F50DF64CFB203B54C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 153631   (367850) от 20.11.2009
-
-John Mayall - Tough (2009) [FLAC]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_367850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing To Do With Love [05:53]
- 02. Just What You're Looking For [04:23]
- 03. Playing With A Losing Band [04:08]
- 04. An Eye For An Eye [04:35]
- 05. How Far Down [05:05]
- 06. Train To My Heart [04:33]
- 07. Slow Train To Nowhere [04:27]
- 08. Numbers Down [03:58]
- 09. That Good Old Rockin' Blues [04:56]
- 10. Tough Times Ahead [07:18](   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

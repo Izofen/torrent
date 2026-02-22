@@ -1,3 +1,29 @@
+###  Публикация: 438825   (975620) от 19.01.2012
+
+Улетное видео по-русски. Новый сезон  (2012.01.17) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA5DF9EBB9BFD967873DAEA9E7CA61304276A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357124   (975616) от 02.02.2020
 
 While - Slip (2000) Chocolate Industries [FLAC|Lossless|tracks + .cue] <IDM>
@@ -690,41 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53235E715C8C5AC2AF0B9E83E27B538C8A5D8391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438852   (975555) от 19.01.2012
-
-VA - Vocal Trance Volume 23 (2012) [MP3|320 kbps]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. Josh Gabriel Pres Winter Kills - Hot As Hades (Original Mix)
-002. Kyau & Albert - A Night Like This (Original Mix)
-003. Marcia Juell - Calling (5aint's Airplay Extended Mix)
-004. Mark Otten - Libertine
-005. Markus Schulz feat. Sir Adrian - Away (Cosmic Gate Remix)
-006. Max Graham feat. Neev Kennedy - So Caught Up (Original Mix)
-007. Nektarios Mees Kirsty Hawkshaw & Jan Johnston - Invisible Walls (Accuface Back 2 The Roots Remix)
-008. Setrise feat. Yana Kay - Weapon (Extended Mix)
-009. Sied Van Riel feat. Nicola McKenna - Stealing Time (Aly & Fila Remix)
-010. John O'Callaghan & Betsie Larkin - Save This Moment (Gareth Emery remix)2012Жанр: Vocal TranceПродолжительность: 02:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A37467F4298841F7DC7421165573960D421A3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

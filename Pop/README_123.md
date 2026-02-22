@@ -1,3 +1,119 @@
+###  Публикация: 1222263   (687586) от 28.04.2018
+
+Folk & Røvere - Kaustisksoda (1998) Sonet Grammofon AS [MP3|320 Kbps] <Breaks, Trip Hop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тот самый случай, когда яблоко упало прямо под яблоней: Беате - дочь польского джазового скрипача Здзислава Леха и норвежской преподавательницы музыки. Родилась и выросла в Норвегии. Уже во время учёбы в университете Осло познакомилась с будущим мужем, музыкантом Мариусом Рексо. С ним они сначала учавствовали в группах "Insertcoin" и "Folk og Røvere", (   Читать дальше...   )01. Cowboy & Indianer 4:48
+02. Prozac 5:19
+03. Bris 5:48
+04. Banemesterkhan 3:52(   Читать дальше...   )Жанр: Breaks, Trip Hop, Synth-popПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D28632F227545F70C7C7B819F00AA5F55D37CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222370   (687488) от 28.04.2018
+
+T.J.M. - TJM (1979) Reissue CD, Big Break Records, 2011 [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Need No Music (9:47)
+02. Put Yourself In My Place (9:17)
+03. Small Circle Of Friends (11:14)
+04. Am I Dreaming (8:14)Жанр: Funk-Soul, DiscoПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4A3E7DF603E333D04357DFBC63CA2BA3BEFAC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134656   (687433) от 16.05.2017
+
+VA - Beach Party 2 (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Black Pitch - Hard Bass 05:51
+02. Novacloud - Potion 05:11
+03. Olleo - Cyclone 05:43
+04. Josh Nor - Bulan 05:55(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBCEEDFECFEDFCD01F8DFF9B8125566A2834CD0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134516   (687349) от 16.05.2017
+
+VA - It's So Disco Vol 2 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - De La Disco (original mix) (04:47)
+02. Audio Jacker - Go With The Flow (original mix) (05:21)
+03. Daft Funk - Makes Sense To Me (original mix) (05:27)
+04. Discotron - 60 Seconds 4 Love (original mix) (05:51)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9445AEE6BC6016808E91B79FBA0EADCE3B2EE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134572   (687344) от 16.05.2017
 
 Оксо и Эспанцы - Полетели! (2017) [MP3|320 Kbps] <Art Pop, Chamber Pop, Acoustic>
@@ -626,122 +742,6 @@ Natalia - In My Blood (2016) [FLAC|Lossless|tracks] <Pop, R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2CF8D27492E4F9E435583AF9F145378C3312A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289834   (684455) от 17.03.2019
-
-VA - Ballermann Award 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684455.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Mickie Krause - Für Die Ewigkeit
-02. Almklausi - Mama Laudaaa
-03. Marry - Vorglühn Nachglühn(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581E43099A2AF0AF76A2F63858FA81757C142B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028930   (684421) от 25.06.2016
-
-Мона Лиза - Я уезжаю (1997) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я уезжаю
-02. Давай поговорим
-03. Напиши
-04. Белый город(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90F030D85471484CEE27F235F06F93B6CD224F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028935   (684409) от 25.06.2016
-
-Мона Лиза - Наши бабы лучше Аббы! (1994) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Омон
-02. За океан
-03. Я верю в тебя
-04. Эмансипация(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5DF29A63B9B3744DB69BB15B29F9E931F2157D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289947   (684342) от 17.03.2019
-
-VA - Fruhlings Fox Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Lancaster feat. Onkel J. - So wie im Film
-02. Schlagergold - Flippers Hitmix
-03. Daniela Haake - Liebesrausch
-04. Bernice Ehrlich - Nie wieder missen(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C2A7CCCE028608F729CB5596DEFA63EA45D411
 ```
 
 https://mybot314.ru/tekegram_catalog/

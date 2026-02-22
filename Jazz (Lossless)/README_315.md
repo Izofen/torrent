@@ -1,32 +1,3 @@
-###  Публикация: 1271902   (147594) от 25.12.2018
-
-Katica Illenyi - Tango Classic (2018) IKP Music [FLAC|Lossless|tracks + .cue] <Swing, Tango>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tango a Fuego Lento [3:42]
-02. Evaristo Carriego [4:19]
-03. Escualo [3:57]
-04. The Four Seasons of Buenos Aires: Verano Porteno [6:06](   Читать дальше...   )Жанр: Swing, TangoПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD43E73469A40AFA22D4D1FB336D8117798A638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519419   (147476) от 25.12.2021
 
 Erroll Garner - 1954 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
@@ -751,6 +722,35 @@ Frank Sinatra - Christmas Dreaming (1987) Columbia [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B338E45C7B461974A7F6D454B6DBE158D3F3372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272128   (145750) от 26.12.2018
+
+Frank Sinatra - The Ultimate Christmas (Daily Mail CD) (2012) Upfront [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hark! The Herald Angels Sing [2:25]
+02. Jingle Bells [2:03]
+03. Let It Snow! Let It Snow! Let It Snow! [2:38]
+04. O Come All Ye Faithful (Adeste Fidelis) [2:36](   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2FAE9E2901D2143B60C7DED97F1BF7D532888F
 ```
 
 https://mybot314.ru/tekegram_catalog/

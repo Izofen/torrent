@@ -1,3 +1,32 @@
+###  Публикация: 1131803   (705222) от 07.05.2017
+
+VA - Душевный сборник Русского радио. Выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705222.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алина Башкина Feat. Dj Andrey Sanin - Ты Изменил Мою Жизнь 3:18
+002. Lola - Правила 3:19
+003. Олеся Слукина - Потеряли Друг Друга 3:21
+004. Alex 67 - Сумасшедшая 3:18(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D6E0DFC4C2C244FD4E69A5913BD0589D7F19DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220406   (704315) от 19.04.2018
 
 VA - Bravo All Stars: Planet Pop (2018) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Дискотека 80-90 годов по - новому C.C.Catch (Зару
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B78721D7D224FB646896ED0DE31F5CF4917BFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288221   (697866) от 10.03.2019
-
-VA - German Top 50 Official Dance Charts 08.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris - Giant
-02. Niels Van Gogh - Pulverturm (Tiësto's Big Room Remix)
-03. Hugel - WTF (feat. Amber Van Day)
-04. David Guetta - Better When You're Gone(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60322510B63C9AF5E0A17B94EBE11226D724758
 ```
 
 https://mybot314.ru/tekegram_catalog/

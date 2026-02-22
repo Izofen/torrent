@@ -1,3 +1,32 @@
+###  Публикация: 1618145   (1034352) от 10.03.2023
+
+Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Minstral Hall Music [MP3|320 Kbps] <Folk, Medieval>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034352.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shadow of the Moon (25th Anniversary New Mix)
+2. The Clock Ticks On (25th Anniversary New Mix)
+3. Be Mine Tonight (25th Anniversary New Mix) 
+4. Play Minstrel Play (25th Anniversary New Mix)(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862D72FEDAC63EF45FB986D0EF5DB8B8023CE2D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444936   (1033969) от 04.02.2021
 
 Yakuro - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo>
@@ -714,35 +743,6 @@ VA - Erotica (1977) [FLAC|Lossless] <Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F48589D2A95E0BE1E37403FDD19B7A034BFD5261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214614   (1030578) от 18.02.2021
-
-VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chillout>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man Behind C. feat. Miriam - See You Again 	(06:08)
-02. Magica Fe - Words					(06:47)
-03. Soulcraft feat. Jill Noom - Rain In My Hair		(05:34)
-04. Sine - Always					(05:03)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 04:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9092AF1C9FFEC87046D39C28CAAFAEBFD474F521
 ```
 
 https://mybot314.ru/tekegram_catalog/

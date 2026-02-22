@@ -1,3 +1,108 @@
+###  Публикация: 431251   (993200) от 03.01.2012
+
+VA - Lady's Jazz : Starke Neue Stimmen (2008) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.Madeleine Peyroux - You're Gonna Make Me Lonesome When You Go (3:28)
+02.Anna Maria Jopek - Don't Speak (4:43)
+03.The Peter Malick Group Feat. Norah Jones - New York City (5:07)
+04.Roberta Gambarini - When Lights Are Low (5:01)
+05.Laura Fygi - Girl Talk (3:12)
+06.Torun Eriksen - From Day To Day (4:20)
+07.Vienna Teng - Nothing Without You (3:39)
+08.Molly Johnson - Streets Of Philadelphia (3:17)
+09.Rebekka Bakken - Cover Me With Snow (3:46)
+10.Dave Grusin Feat. Diana Krall - Dreamsville (4:39)(   Читать дальше...   )2008Жанр: Vocal JazzПродолжительность: 01:05:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608406   (992932) от 26.01.2013
+
+Alex Skolnick Trio - Transformation (2004) [WavPack|Lossless]<Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transformation [05:53]
+02. Electric Eye [05:19]
+03. Fear Of Flying [05:10]
+04. Money [05:12]
+05. Both Feet In [05:27]
+06. Scorch [07:13]
+07. Blackout [05:03]
+08. Imv/The Trooper [05:17]
+09. No Fly Zone [04:27]
+10. Don't Talk To Strangers [05:58](   Читать дальше...   )Жанр: FusionПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608962   (992855) от 26.01.2013
+
+Rachelle Ann - Love Me (2009) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me  [04:03]
+02. If  [03:01]
+03. Feelings  [03:56]
+04. If You Dont Know Me By Now  [03:25]
+05. Didnt Me  [03:17]
+06. Traces  [03:04]
+07. Somebody Waiting  [03:59]
+08. If I Were A Boy  [04:27]
+09. You And Me Against The World  [03:37]
+10. Of All The Things  [03:17](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608867   (992845) от 26.01.2013
 
 V.A. - Johnny Hodges & Friends - Jazz Ballads Vol. 15 (2006) 2CD [FLAC|Lossless]<Jazz, Instrumental>
@@ -764,102 +869,6 @@ VA - Rhythm and Romance Smooth Jazz Tunes (2020) [MP3|320 Kbps] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3699283956C1A414438320665641670BEDA0CA04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431331   (991711) от 05.01.2012
-
-Lefties Soul Connection - One Punch Pete (2011) [FLAC|Lossless]<Funk, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Shake It Up, Burn It Loose
-02. She's Not Answering
-03. Code 99
-04. The Hump
-05. U Got Me
-06. Have Love Will Travel
-07. Cover My Eyes
-08. You Don't Know
-09. Rimfire
-10. Buckaloose (Full Version)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431739   (991704) от 05.01.2012
-
-Boptails - Tot Rod Wheels (2004) [MP3|320 kbps]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(2:23) 01. Comin' Home
-(2:38) 02. Take My Love
-(3:04) 03. Bad bad rhythm
-(2:13) 04. Desperate Love
-(3:25) 05. Bop Till You Drop
-(3:34) 06. Hot Rod Wheels
-(2:54) 07. Nothin' But The Blues
-(3:18) 08. Whiskey And Moonlight
-(3:02) 09. Going By Train
-(2:31) 10. Rockabilly Law(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE383C975DB7579EBE5367A0874269F5D888AF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431765   (991401) от 05.01.2012
-
-Dean Martin - Greatest Hits (2006) [MP3|320 kbps]<Vocal Jazz, Oldies>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-2006Жанр: Vocal Jazz, OldiesПродолжительность: Disc 1 - 01:06:51; Disc 2 - 01:13:47; Disc 3 - 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B83B1E6A176FA5A2FB6E722B1CC378285FE508
 ```
 
 https://mybot314.ru/tekegram_catalog/

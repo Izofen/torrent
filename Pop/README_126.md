@@ -1,3 +1,119 @@
+###  Публикация: 1290673   (676580) от 21.03.2019
+
+VA - Turbo Disco International Vol. 1-2 (2004) [MP3|320 Kbps] <Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gibson Brothers - Cue Sera Mi Vida (2:54)
+02. Jairo Pereira - Pais Tropical (3:00)
+03. Supermax - African Blood (5:45)
+04. Ricchi & Poveri - Acapulco (3:43)(   Читать дальше...   )Жанр: Pop, Dance, Pop RockПродолжительность: 02:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072BF0212090A1425A16A55DB032855A0750FA45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290553   (676460) от 21.03.2019
+
+Dennis Parker - Like An Eagle (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like An Eagle (6:26)
+02. New York By Night (5:04)
+03. High Life (6:25)
+04. Why Don't You Boogie / I'm A Dancer (9:53)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4556034FCAD5DEBEFF5D03D8AE9FCDA1B3467705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290531   (676459) от 21.03.2019
+
+VA - Canzoni - 48 Canti D'Emotioni (Unknown) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Piccola E Fragile / Drupi (4:02)
+02. Angelo Blu / Gepy & Gepy (3:20)
+03. Ma Che Bella Storia D´ Amore / Jo Chiarello (5:01)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 03:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C0C8D55C19D7CACF8DD8B93C7EAE6D379C7D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029671   (676407) от 29.06.2016
+
+VA - Super Eurobeat Vol.239 - Extended Version (2016) [MP3|320 Kbps] <Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Rodgers - Restarted Tonight
+02. Lolita - Made for Love
+03. Dejo & Chai - We Rock'em All
+04. Seastar - Made out of Fire(   Читать дальше...   )Жанр: EurobeatПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F55870D7D4893D8659A991B69EE73EEA1250064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508777   (676358) от 11.06.2012
 
 VA - Старая танцплощадка (2008) 2 выпуска 4 CD[MP3|320 кб/с]<Oldies>
@@ -630,122 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223409   (673459) от 05.05.2018
-
-VA - Dreamers Lounge (Easy Listening And Adult Casual Songs) (2018) [MP3|320 Kbps] <Pop, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandi See - Crow Maiden
-02. Angela Predhomme - Just Like Magic
-03. Patrick Joseph - Foot In The Door
-04. Larry Warren - You Can Change The World(   Читать дальше...   )Жанр: Pop, DowntempoПродолжительность: 02:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09233C727C345746C2D196992FDC1FEFC89014CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223614   (673457) от 05.05.2018
-
-The Simon Orchestra - Mr. Big Shot (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Big Shot (7:59)
-02. Love Is Comin' On (9:15)
-03. Don't Give Up (8:37)
-04. I Close My Eyes And Count To Ten, Dancing Suite (8:20)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985439CDACF8A552E05DB7F60F935E810632DE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223578   (673308) от 05.05.2018
-
-Pattie Brooks - Love Shook & Our Ms Brooks (2009) 2 Albums (1977, 1978), Reissue CD, Funky Town Grooves [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два диско-альбома Pattie Brooks, продюсером которых был не безызвестный Simon Soussan.01. Girl Don't Make Me Wait (10:47)
-02. Love Shook (8:34)
-03. Let's Make Love To The Music (8:46)
-04. Pop Collage Medley - Popcorn, Black Is Black, Na Na Hey Hey Kiss Him Goodbye (9:18)Жанр: Electronic, DiscoПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7AF50E43ED06B54EB1668EC73D59CA9E9623734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536278   (672657) от 13.03.2022
-
-Bryan Adams - So Happy It Hurts (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Happy It Hurts (3:35)
-02. Never Gonna Rain (3:18)
-03. You Lift Me Up (3:08)
-04. I've Been Looking For You (2:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D1D6AEA2800F9CFC5AE768FDAAFAE2D423D499
 ```
 
 https://mybot314.ru/tekegram_catalog/

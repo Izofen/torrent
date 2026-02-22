@@ -1,3 +1,177 @@
+###  Публикация: 1784270   (69565) от 10.03.2025
+
+Leaves' Eyes - Myths of Fate (2024) Orchestral Version, 2025, AFM Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Forged by Fire (Orchestral Version)
+02 – Realm of Dark Waves (Orchestral Version)
+03 – Who Wants to Live Forever (Orchestral Version)
+04 – Hammer of the Gods (Orchestral Version)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D733FC4BFB3F5A902C4A7A67BF024820640F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784316   (69562) от 10.03.2025
+
+Saraya - Gypsy Child (1989) Remastered, 2025, OLD BOY [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get U Ready [00:03:10]
+02. Gypsy Child [00:04:33]
+03. One Night Away [00:04:35]
+04. Alsace Lorraine [00:00:51](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07725DB408358F614270B755182E78CE58A31924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784315   (69556) от 10.03.2025
+
+Kayser (Sweden) - Studio Albums (4 releases) (2005-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kayser - трэш-метал группа из Хельсингборга, Швеция. Образована в 2004 году.2005 - Kaiserhof
+2006 - Frame The World... Hang It On The Wall
+2014 - Read Your Enemy
+2016 - IV: Beyond The Reef Of SanityЖанр: Thrash MetalПродолжительность: 03:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4065AB796F73AE9ED637A6EB358F5F190F3A5B33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784945   (69520) от 13.03.2025
+
+Wily Bo Walker - The Rattlin Bone Theatre Show Volume 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shoot Me Down (3:50)
+02.  Drag Me Down (3:00)
+03.  Down Amongst the Dead Men (4:47)
+04.  Ain't Gonna Dig My Own Grave (No More) (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DD74C251E4570A8B7A49C558625EAB1C334E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784948   (69511) от 13.03.2025
+
+Yellowjackets - Fasten Up (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Comin' Home Baby (5:21)
+02.  Fasten Up (6:52)
+03.  Will Power (4:15)
+04.  November 8th (6:45)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684E5C1907EDA2C84E8D404FE981359B39619DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784944   (69507) от 13.03.2025
+
+Warwolf - The Final Battle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eye of the Storm (5:37)
+02.  Burning Skies (5:04)
+03.  The Lycan Empire (5:36)
+04.  Fight the Invaders (8:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C25EB9756ECB4D931B041396F22D85E5E31E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784645   (69506) от 13.03.2025
 
 Cryptosis (ex-Distillator) - Studio Albums (5 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
@@ -571,181 +745,6 @@ Space Chaser — немецкая трэш-метал-группа из Берл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6472F98FB26B9CC9F802692A05E93AA5576B4E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784801   (69469) от 13.03.2025
-
-Saraya - When The Blackbird Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Queen of Sheba (6:19)
-02.  Bring Back the Light (6:03)
-03.  Hitchin' a Ride (5:48)
-04.  When You See Me Again (4:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF007D69534C566201AE41340F762269766AD2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785049   (69424) от 14.03.2025
-
-Zventa Sventana - коллекция (4 издания) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic, Folk, World & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zventa Sventana — российский музыкальный проект Тины Кузнецовой и Юрия Усачёва.
-Команда переосмысляет фольклор и адаптирует его для современного слушателя. Треки Zventa Sventana основаны на архивных народных песнях, собранных российскими фольклористами в период с конца XIX века по конец 1970-х. Группа работает со множеством жанров и смешивает фольклор с электронной (   Читать дальше...   )2006 - Страдания
-2019 - Мужа дома нету (EP)
-2021 - На горе мак
-2023 - Звента СвентанаЖанр: Electronic, Folk, World & CountryПродолжительность: 02:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F554CE61C1C80EC79F605881517A0D81C07CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785080   (69418) от 14.03.2025
-
-Coolio - Greatest Hits (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gangsta's Paradise (feat. L.V.) [4:02]
-02 - Ooh La La [4:06]
-03 - County Line [2:58]
-04 - Rollin' with My Homies [4:07](   Читать дальше...   )Жанр: Hip-Hop, Rap, DanceПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7069C1E5F3FD335F29E109E70D0BFD95E7B09F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784951   (69412) от 14.03.2025
-
-Legion of the Damned - The Poison Chalice (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69412.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Saints In Torment
-A2 - Contamination
-A3 - Progressive Destructor
-A4 - Skulls Adorn The Traitor's Gate(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA06595D62FEB50298EBC18DE98F4753D2661B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785098   (69410) от 14.03.2025
-
-Sentenced - Shadows of the Past (1991) Released, 2011, Century Media [FLAC|24/96|tracks|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69410.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 When The Moment Of Death Arrives
-A2 Rot To Dead
-A3 Disengagement
-A4 Rotting Ways To Misery(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:690D9CAE2362CA0706FB1A876132B21D6AF33BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784921   (69406) от 14.03.2025
-
-Seventh Storm - Maledictus (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69406.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Pirate's Curse
-A2 - Saudade (English Version)
-A3 - Sarpanit
-B1 - Gods of Babylon(   Читать дальше...   )Жанр: Progressive, Gothic MetalПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11AE5B0D3663E69980224660A739910366C09EF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

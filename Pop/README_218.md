@@ -1,3 +1,119 @@
+###  Публикация: 949286   (377585) от 23.10.2015
+
+The Beloved - The Sun Rising (2005) [FLAC|image+.cue]<House, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sun Rising
+ 02. Your Love Takes Me Higher
+ 03. Wake Up Soon
+ 04. Up, Up and Away(   Читать дальше...   )Жанр: House, PopПродолжительность: 1:03'00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E24D3F0A46DB1BDB50CE84F125482904FF9176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949509   (377575) от 23.10.2015
+
+The Beloved - Conscience (1993) [FLAC|image+.cue]<House,Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit (4:46)
+02. Sweet Harmony (5:04)
+03. Outerspace Girl (4:49)
+04. Lose Yourself In Me (4:33)(   Читать дальше...   )Жанр: House,PopПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E5877CE01DEFD888CC9E514F3DDF072FB64771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254146   (377520) от 12.10.2018
+
+General Lafayette - Jester (1993) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377520.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Oh My Beloved Father
+2.	The Power Of Music
+3.	Love In The Eyes Of A Child
+4.	Blow The Trumpet At The New Moon(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7F5807719B1A47C4AD26CD25B25B9DC036607D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254165   (377519) от 12.10.2018
+
+General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377519.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	King Of The Broken Hearts
+2.	True Love Will Never Die
+3.	Like A Story You Read In A Book
+4.	Country Blues(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48020EDF4B913031BE0477200569577599BBFE24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254135   (377517) от 12.10.2018
 
 General Lafayette - Love Is A Rhapsody (1992) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
@@ -627,128 +743,6 @@ Van Hinton - Remember Me (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D1174CEA26E0BA88591C229518A8D4FF1FAEB55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575581   (375383) от 10.09.2022
-
-Al Barton & Spirit Of Smokie - Room With A View (2011) Reissue, 2018, Big Lake [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come For Me
-02. Sacred Heart
-03. Highways And Heartaches
-04. Send Me An Angel(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B0F47201136CD6B8D68DC2E295DEED274BFB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575623   (375382) от 10.09.2022
-
-Sophie - My World (1989) [OGG Vorbis|485 Kbps] <Electronic, Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.		My World	3:48
-02.		Same	4:35
-03.		Tonite Tonite	3:52
-04.		Rapture  4:40(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EurobeatПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F258834236014ED440E52B110A1EE9C212CF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574113   (375341) от 12.11.2012
-
-Whitney Houston - I Will Always Love You-The Best of Whitney Houston (2012) [MP3|320 кб/с]<Pop,Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 You Give Good Love
- 02 Saving All My Love for You
- 03 How Will I Know? (Remastered)
- 04 Greatest Love of All
- 05 I Wanna Dance With Somebody (Remastered)
- 06 Didn’t We Almost Have It All
- 07 So Emotional (Remastered)
- 08 Where Do Broken Hearts Go?
- 09 I’m Your Baby Tonight
- 10 All the Man That I Need(   Читать дальше...   )Жанр: Pop,SoulПродолжительность: 01:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C49B12BC7CAC091A90D1F83E68DDB5454869DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949752   (375128) от 24.10.2015
-
-Vanessa Carlton - Liberman (2015) 2CD Deluxe [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Делюкс-версия альбома "Liberman" американской певицы и автора песен Ванессы Карлтон.CD1:
-01. Take It Easy (05:32)
-02. Willows (02:54)
-03. House of Seven Swords (03:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6AFBA572E92CABE11A0135C4320E587B2DC8BE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

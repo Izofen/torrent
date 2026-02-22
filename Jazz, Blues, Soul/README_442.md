@@ -1,3 +1,32 @@
+###  Публикация: 1640527   (232369) от 18.06.2023
+
+Horace Silver - And The Jazz Messengers (1955) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Room 608 [5:23]
+02. Creepin' In [7:26]
+03. Stop Time [4:07]
+04. To Whom It May Concern [5:11](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50EBEB4DDB70686658AB701FA741180F01C71FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640529   (232362) от 18.06.2023
 
 Horace Silver Quintet - The Stylings Of Silver (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -715,35 +744,6 @@ Ben Webster - The Classic Collaborations (1958 - 1963) 4CD, 2021, Enlightenment 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CE1E757EF49429D9B5CE28A3AE979FF2F3E100D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641977   (231665) от 25.06.2023
-
-Eddie Gomez - Per Sempre (2009) 2012, BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arianna [6:21]
-02. Bologna d'Inverno [9:32]
-03. Why Cry? [10:55]
-04. Forever [6:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50574E3463677E1467811A1E491C50F063B34440
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1751038   (104141) от 22.09.2024
+
+VA - DJ Dance 96 Volume 9 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gina G - I Belong To You
+02. Queen Dance Traxx & Captain Jack - Another One Bites The Dust
+03. The Free - Shout
+04. Spice Girls - Who Do You Think You Are(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62630C88046E8D593AB7587207A3C642A463FA60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751044   (104137) от 22.09.2024
+
+VA - Hola Hola Compilation (1995) [OGG Vorbis|480 Kbps] <Electronic, Eurodance, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Band - Sweet Dreams
+02. Fanny Cadeo - Pecame
+03. The Dancers - Never Alone
+04. Martine - Tough Girl(   Читать дальше...   )Жанр: Electronic, Eurodance, ItalodanceПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99C5E8A5323E2161E27E9379411D992C37F17ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752138   (104035) от 28.09.2024
+
+VA - Dance Classics - The Remixes Volume 2 (1989) [FLAC|Lossless|tracks + .cue] <House, Hip Hop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Real Thing – You To Me Are Everything (Decade Remix 76-86) (6:04)
+02. Bill Withers – Lovely Day (Sunshine Mix) (6:33)
+03. Barry White – Never Never Gonna Give You Up (Remix) (7:18)
+04. Freeez – I.O.U. (House Mix) (5:59)(   Читать дальше...   )Жанр: House, Hip Hop, DiscoПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E608385EC132492CCB811DF2ABFBF6EFBB3F3693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752031   (104018) от 28.09.2024
 
 Michael Buble - The Best of Buble (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -657,105 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBA27CD5329AE916D53663AB2DEC70BAC80A5D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763413   (102809) от 01.12.2024
-
-Geoff Moore - A Beautiful Sound (2002) [FLAC|Lossless|tracks + .cue] <Acoustic, Pop Rock, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Beautiful Sound (4:12)
-02. God Believes in You (3:26)
-03. Surrounded (4:18)
-04. Impossible (4:56)(   Читать дальше...   )Жанр: Acoustic, Pop Rock, RockПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AABA998D3D553DC92789F49F9AAA92774B59984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489727   (102492) от 01.05.2012
-
-Филипп Киркоров - ДруGOY (Limited Edition 3 CD) (2011) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зу-Зу (3:58)
-02. Таньки грязи не боятся (3:11)
-03. В этот час (3:26)
-04. Даже если ты уйдешь (4:55)
-05. Птица в груди (3:22)
-06. Мир без твоей любви (3:35)
-07. Мы так нелепо разошлись (4:26)
-08. Алла (3:23)
-09. Кристина (5:47)
-10. На миллион одна (4:14)(   Читать дальше...   )2011Жанр: PopПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489224   (101841) от 28.04.2012
-
-Barbra Streisand - A Woman in Love - The Greatest Hits (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Guilty
- 02 Tell Him
- 03 People (Single Version)
- 04 Papa, Can You Hear Me_
- 05 I’ve Dreamed of You (Single Versi
- 06 The Way We Were
- 07 No More Tears (Enough Is Enough)
- 08 Smile
- 09 Stranger In a Strange Land
- 10 In the Wee Small Hours of the Mor(   Читать дальше...   )2012Жанр: PopПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9504363E507DCD57B18A5FD5EA2564ABD18ED8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,96 @@
+###  Публикация: 1354647   (986983) от 23.01.2020
+
+Tommy Flanagan - Four Classic Albums 1957 - 1958 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986983.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Two Ton [4:53]
+02. It's Magic/My One and Only/They Didn't Believe Me [13:44]
+03. Soul Station [5:45](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00236CBC2662C640CAADB57B83894FE79BC6EEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354748   (986978) от 23.01.2020
+
+Gary Moore - Parisienne Walkways: The Collection (2020) 2CD [MP3|320 Kbps] <Blues, Blues-Rock, Hard-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Parisienne Walkways (Live) [5:50]
+ 02 - The Prophet [6:19]
+ 03 - Rest In Peace [5:59]
+ 04 - Enough Of The Blues [4:47](   Читать дальше...   )Жанр: Blues, Blues-Rock, Hard-RockПродолжительность: 02:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A382F3708344F33C4A36D126CA0B907F631661EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 434182   (986922) от 10.01.2012
+
+Jerry 'Boogie' McCain - This Stuff Just Kills Me (1999) [APE|Lossless]<Blues, Harp>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Where You Been 03:46
+02. Super Woman 05:01
+03. This Stuff Just Kills Me 06:24
+04.  Viagra Man 06:12
+05. Slave Master 03:49
+06. My Deal At The Crossroads 05:26
+07. Jealousy 04:04
+08. Ain't No Use For Drug Abuse 05:24
+09. Mama's Gone 06:15
+10. Madison Mood 04:23(   Читать дальше...   )Жанр: Blues, HarpПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 434132   (986914) от 10.01.2012
 
 Omar & the Howlers - Big Leg Beat (1992)/1980,Amazing AMCD-1003/ [FLAC|Lossless]<Blues-Rock>
@@ -758,105 +851,6 @@ Various Artists - Thievery Corporation - Sounds From The Verve Hi-Fi (2002) [APE
  08. Elis Regina - Bala Com Bala
  09. Walter Wanderley - Batucada
  10. Jackie & Roy - Samba Triste(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612999   (985913) от 02.02.2013
-
-VA - Chesky Records - Women of Song (1997) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana Caram - Samba de Verao [03:27]
-02. Christy Baron - Get to Get You Into My life [03:10]
-03. Sara K. - If I Could Sing Your Blues [03:50]
-04. Badi Assad - Num Pagode Em Planaltina [04:44]
-05. Christy Baron - Round Midnight [05:06]
-06. Sara K. - Brick House [06:02]
-07. Ana Caram - Sonhando [04:35]
-08. Rebecca Pidgeon - Spanish Harlem [03:39]
-09. Sara K. - What You Don't Know [04:32]
-10. Badi Assad - Batucada [03:11](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971387   (985865) от 03.01.2016
-
-Jonny Lang - Wander This World (1998) [FLAC|Lossless|image + .cue]<Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский исполнитель, композитор и автор текстов Джонни Ланг благодаря своей необычной манере исполнения завоевал любовь как критиков, так и многочисленных фанатов. Критики говорят, что у Ланга голос, как у сорокалетнего блюзмена. Благодаря этому он и получил престижную награду «Grammy».01. Still Rainin' 04:49
-02. Second Guessing 05:10
-03. I Am 05:04
-04. Breakin' Me 04:32(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B309B92CAB4770E6EA5A5717981A7C92FDC717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434960   (985692) от 11.01.2012
-
-Baptiste Trotignon - Share (2009) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. First Song (4:38)
-02. Samsara (5:07)
-03. Mon ange (6:27)
-04. Dexter (6:16)
-05. Peace (4:58)
-06. Flow (7:05)
-07. Blue (4:40)
-08. Grey (5:50)
-09. Waiting  (4:48)
-10. Red Light District (4:27)(   Читать дальше...   )2009Жанр: JazzПродолжительность: 00:58:32
 
 ## Скачать торент
 ```bash

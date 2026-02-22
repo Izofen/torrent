@@ -1,3 +1,177 @@
+###  Публикация: 1755225   (40366) от 14.10.2024
+
+Schizophrenic Demon - Jazietto (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Heartbeats (2:10)
+02. A Fast Lane Melody (2:11)
+03. A Fast-Paced Love Affair (2:09)
+04. Chasing the Breeze (2:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1551988CB3B34739CE3F829F22241C82B2780CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755231   (40365) от 14.10.2024
+
+The Headhunters - The Stunt Man (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stunt Man (5:59)
+02. Attitude Of Gratitude (5:42)
+03. Embraceable You (7:05)
+04. ESP (4:06)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BEE3B3AA876F89C78CFB72489BCA7E9ADC191F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755218   (40364) от 14.10.2024
+
+Samy Thiebault - In Waves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armelle CIPPE - In Waves (5:25)
+02. Devenirs (4:15)
+03. Armelle CIPPE - Rituals (4:31)
+04. Horizons (5:33)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBDE85CA5BC0130E1C774FBEEFEE514454EE1BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755124   (40363) от 14.10.2024
+
+Blues Factory - III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unhappy Girl (5:52)
+02. Rolling Man (4:29)
+03. Time To Make Mistake (5:33)
+04. Mountain Man (5:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18EB0BD40047B7DA0138DBCC39A7E66B445DC7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755138   (40362) от 14.10.2024
+
+Myles Kennedy - The Art Of Letting Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Art Of Letting Go (4:37)
+02. Say What You Will (3:34)
+03. Mr. Downside (4:17)
+04. Miss You When You're Gone (4:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB2EEBEF24698820F9BBEA721F39CB5375B192B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755166   (40361) от 14.10.2024
+
+Robespierre - Rainy Wednesday (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears (3:52)
+02. It Could've Been (4:26)
+03. Shot (3:16)
+04. Summernights (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09837FF68837C8546751A48509A8BF30E3FF224C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755133   (40358) от 14.10.2024
 
 Jeanette Berger - Do Your Thing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -566,175 +740,6 @@ Frozen Crown — итальянская пауэр-метал-группа, об
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF40EA7C93198F3AC17161FCFE5F5A8DEE0CC5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756454   (39654) от 21.10.2024
-
-Divinefire - Studio Albums (5 releases) (2004-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Divinefire — пауэр-метал-группа, основанная весной 2004 года финским гитаристом Яни Стефановичем и шведским певцом Кристианом Лильегреном.2004 - Glory Thy Name
-2005 - Hero
-2006 - Into a New Dimension
-2008 - FarewellЖанр: Power MetalПродолжительность: 03:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF969602EA3C361FF63C4E0A6CEA48B7B6147AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756680   (39565) от 22.10.2024
-
-Beth Hart - You Still Got Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savior With A Razor (feat. Slash) (4:48)
-02. Suga N My Bowl (feat. Eric Gales) (3:33)
-03. Never Underestimate A Gal (3:07)
-04. Drunk On Valentine (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A9D6F914DA32352BBBE6A4826706E413B43990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756594   (39561) от 22.10.2024
-
-Sunburst - Studio Albums (2 releases) (2016-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sunburst - пауэр/прогрессив-метал группа из Лариссы, Греция, образованная в 2010 году.2016 - Fragments of Creation
-2024 - ManifestoЖанр: Power/Progressive MetalПродолжительность: 01:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5654B825A67E656CA34616BA72AAFDE318491B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756591   (39551) от 22.10.2024
-
-New Horizon - Studio Albums (2 releases) (2022-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39551.jpg" />
-</div>
-
-
-###  Подробнее
-
-New Horizon - шведская метал-группа, образованная в 2021 году Эриком Грёнваллем и Йоной Ти.2022 - Gate Of The Gods
-2024 - ConquerorsЖанр: Power/Heavy MetalПродолжительность: 01:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C915C75D0FC779CD03F0099B02BC444C228336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756732   (39515) от 23.10.2024
-
-David Gilmour - Fifth Night Of Residency (2024) [FLAC 24/44.1|Lossless|tracks] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 5 A.M. (03:13)
- 02 - Black Cat (02:09)
- 03 - Luck And Stange (06:37)
- 04 - Speak To Me ? Breathe (03:36)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C00D3B81A6BC6C47CBA4B50299A974088F67B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756742   (39457) от 23.10.2024
-
-Steelgar - Collection (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steelgar - трэш-метал группа из Испании.2008 - Beware (demo)
-2010 - Xenocide (Full-length)
-Singles 2019-2024Жанр: Thrash MetalПродолжительность: 01:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30109ED85B73AE47526EE157021C49442C30BD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

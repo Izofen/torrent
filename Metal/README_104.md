@@ -1,3 +1,32 @@
+###  Публикация: 1458000   (235784) от 28.03.2021
+
+Woe Unto Me - Spiral-Shaped Hopewreck (2021) [MP3|320 Kbps] <Melodic Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - And Every Piece of a Being Was Washed Away by The [00:01:10]
+02 - Spiral-Shaped Hopewreck [00:11:30]
+03 - Dissolving and Then Forming a New Image So [00:00:50]
+04 - Sad and Slow [00:06:07](   Читать дальше...   )Жанр: Melodic Metal, Doom MetalПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FDA601B30A95A1F9E7A931CE9B039CF2FF3123A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458196   (235721) от 28.03.2021
 
 Schysma - Schysma (2021) [MP3|320 Kbps] <Progressive Metal, Heavy Metal, Female Vocal>
@@ -715,35 +744,6 @@ Slomatics & Domkraft - Ascend/Descend (2022) Split [MP3|320 Kbps] <Psychedelic S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A300F68D6FF757A2F33FA087BF97DC3AE02CAD30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547975   (234080) от 02.05.2022
-
-Greenbeard - 7 Albums (2014-2022) [MP3|320 Kbps, V0] <Stoner Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creatures of the Night [00:03:23]
-02. Burns Like Basketweave [00:04:24]
-03. Get in the Car. No Time to Explain. [00:05:09]
-04. Diamond in the Devil's Grinder [00:05:20](   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 03:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18591403272BEEE52F1B495E9DC60479A2344657
 ```
 
 https://mybot314.ru/tekegram_catalog/

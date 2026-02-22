@@ -1,3 +1,32 @@
+###  Публикация: 1690347   (121888) от 20.01.2024
+
+A-HA - Scoundrel Days (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scoundrel Days (4:02)
+02. The Swing Of Things (4:14)
+03. I’ve Been Losing You (4:23)
+04. October (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C734DC6405306DAB7A9405058B2CCEA8E3600A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693207   (121877) от 20.01.2024
 
 Hurts - Exile (2013) Deluxe Limited Edition [APE|Lossless|image + .cue] <SynthPop>
@@ -714,35 +743,6 @@ Celine Dion - Courage (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA1A009248BDD02D7730B317A4983E339CFE61C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702150   (115167) от 28.02.2024
-
-Al Corley - Riot of Color (1986) Expanded Edition, 2023, Mercury [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face to Face (04:35)
-02. Havana Blue (04:07)
-03. House of Courage (03:38)
-04. Waste of Time (04:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED303D17DA88437D5863B0B6E0F0289CCC873E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

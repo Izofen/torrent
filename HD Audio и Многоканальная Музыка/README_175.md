@@ -1,3 +1,172 @@
+###  Публикация: 1772963   (71743) от 12.01.2025
+
+GTO Trio featuring Gadi Lehavi, Tal Mashiach and Ofri Nehemya - GTO TRIO: Within (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Like Water (5:05)
+02.  One for G (4:17)
+03.  Merengue Mediterráneo (5:01)
+04.  Vv & Zaco (3:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6070BB6D98E3033601391CEDEB08A6DC5F1585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772960   (71740) от 12.01.2025
+
+Diogo M. Jr. - Rock com Maestria (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  João Kurk, o Maestro do Rock (4:00)
+02.  Ana Elisa Fom FomЖанр: Hard RockПродолжительность: 00:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D0418CBB1B1E6B8D6B59354C61294F6E47E83F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772964   (71739) от 12.01.2025
+
+Kemas - Deus X Machina (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  SmokescreenЖанр: Progressive MetalПродолжительность: 00:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616E43EA74CF4B8DE78CE90DC832EB3A9503EEF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772912   (71730) от 12.01.2025
+
+Olivia Rox - Super Cool Songs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Changes [00:03:34]
+02. Bubble Pop [00:03:03]
+03. Ignite [00:02:52]
+04. Pheromones [00:02:40](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C83D65E9FFA8DF49E2D29E8CF294297D143339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773043   (71726) от 13.01.2025
+
+Starchilde - Jupiter Brain (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Singularity (4:14)
+02.  Jupiter Brain (4:56)
+03.  Demon Core (1:15)
+04.  Drowning Machine (6:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4FD94324A1DB08DCD00DB7C134574286B10796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773407   (71717) от 15.01.2025
+
+Aldo Farias with Mario Nappi, Tommaso Scannapieco & Pietro Iodice - Worlds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  How Deep Is the Ocean (5:12)
+02.  Edoardo (5:00)
+03.  Walzer New (5:59)
+04.  Lorenzo e la vela (5:04)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:548E4A3AB029BC3B1D35FA9F6892D319F1C48F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773434   (71716) от 15.01.2025
 
 Crimson Storm - Livin' on the Bad Side (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy / Power / Speed Metal>
@@ -569,180 +738,6 @@ Kariny Phonsy - CHECKMATE (2024) Super Deluxe, 2025, Kariny Phonsy [FLAC 24/44.1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDFCC5C98DBF5BC742D6375B80A4D5486170C863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774852   (71532) от 23.01.2025
-
-Witchwood (ex-Buttered Bacon Biscuits) - Studio Albums (4 releases) (2009-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Prog Rock, Southern Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Witchwood — итальянская хард-рок-группа, основанная в 2014 году.2009 - From The Solitary Woods (as Buttered Bacon Biscuits)
-2015 - Litanies From The Woods
-2016 - Handful of Stars
-2020 - Before the WinterЖанр: Hard Rock, Prog Rock, Southern RockПродолжительность: 03:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBD40BD5CF113A7E7760072782A0A0DAA916B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774888   (71522) от 23.01.2025
-
-Bonfire - Higher Ground (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nostradamus (01:30)
- 02 - I Will Rise (04:37)
- 03 - Higher Ground (04:13)
- 04 - I Died Tonight (04:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43FBEAA36DC4C9B4974FD5B8EC91BAEAAFD33CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775040   (71514) от 24.01.2025
-
-The Great Old Ones - Kadath (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me, the Dreamer (10:55)
-02. Those from Ulthar (9:10)
-03. In the Mouth of Madness (7:11)
-04. Under the Sign of Koth (8:46)(   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851DF21D1350201F106C1D8484E59F714FC29905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775053   (71509) от 24.01.2025
-
-Avatarium - Between You, God, The Devil and The Dead (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom Metal, Heavy Rock, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Long Black Waves (06:10)
- 02 - I See You Better in the Dark (03:43)
- 03 - My Hair Is on Fire (But I'll Take Your Hand) (05:30)
- 04 - Lovers Give a Kingdom to Each Other (05:02)(   Читать дальше...   )Жанр: Doom Metal, Heavy Rock, Female VocalПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DCF0C090D071D0B4A245E333CA970540315E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775153   (71504) от 25.01.2025
-
-Armik - Gitano Amor (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Flamenco, Instrumental, Guitar>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gitano Amor (04:18)
-02 - Tears In Paradise (04:56)
-03 - Libertad (04:00)
-04 - Intro To Donatella (03:05)(   Читать дальше...   )Жанр: Flamenco, Instrumental, GuitarПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970E21E93F079F7BAFF43889B8D3F4362CC9EE03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775162   (71501) от 25.01.2025
-
-Wardruna - Birna (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nordic folk, ambient, dark folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hertan (6:13)
-02. Birna (6:25)
-03. Ljos til Jord (5:01)
-04. Dvaledraumar (15:25)(   Читать дальше...   )Жанр: Nordic folk, ambient, dark folkПродолжительность: 01:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3503A348BC3DDDE1BF92C6283562CAEB0626D02D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 352134   (143363) от 27.12.2018
-
-KNOPPIX 6.5 Linux Magazine Live DVD RU /USB 6.5 [x86] (1xDVD)
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ядро Linux Kernel 2.6.37, оконный менеджер LXDE + compiz-fusion as 3D-window manager,
-LibreOffice 3.3.0, VirtualBox OSE, special feature accessibility: ADRIANE Audio-Desktop, Orca as graphical screenreader
-Adobe acrobat reader + Flash plugin
-Firefox + Chromium web browser(   Читать дальше...   )Разработчик: Klaus KnopperЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BF37580056279AAE5C9FA7C2987FDF1A90C025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958214   (142051) от 29.12.2015
 
 Red Hat Enterprise Linux (Server, Workstation, Client) 7.2 [x86-64]
@@ -690,6 +661,34 @@ Zorin OS - дистрибутив на базе Ubuntu, разработанны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C2CA39652C5710D8E979D4C7E4B3988FF5786AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706636   (63029) от 14.03.2024
+
+Whonix Xfce 17.1.3.1 (образ для VirtualBox) [x64]
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Whonix — это дистрибутив Linux на основе Debian, который разработан для обеспечения повышенной безопасности и конфиденциальности. Высокая анонимность достигается средствами VirtualBox и Tor. Whonix снижает угрозу от распространенных векторов атак, сохраняя при этом удобство использования.
+
+Сильно перенастроенная база Debian запускается на нескольких виртуальных машинах, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB83A82FC9ECFAC723246EFDE6CC91BD6C997429
 ```
 
 https://mybot314.ru/tekegram_catalog/

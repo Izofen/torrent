@@ -1,3 +1,32 @@
+###  Публикация: 947415   (418393) от 17.10.2015
+
+Feyza - I Wish I Knew (2015) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wish I Knew
+02. Look Of Love
+03. Bye Blackbird
+04. Never Let Me Go(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227BA328A50F84875C03FFD22B328139EE51B134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947439   (418392) от 17.10.2015
 
 Rocio Guitard & Moises P. Monk - Marriage & Other Novellas (2015) [FLAC|image+.cue]<Vocal Jazz, Latin Jazz>
@@ -716,35 +745,6 @@ Tony Bennett & Count Basie - The Jazz Collector Edition (1958) 1990, LaserLight 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F29DAD95AE07A5156B6ACFD390AC9278702907D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167713   (415094) от 21.09.2017
-
-The Dick Morrissey Quartet - Here And Now And Sounding Good! (1966) 1995, Norma [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off The Wagon [08:21]
-02. Corpus [07:05]
-03. Don't Fall Over The Bridge [04:18]
-04. Sunday Lunch [08:05](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B43CC9A3FD693E5688AC8158063424E0D389A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

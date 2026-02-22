@@ -1,3 +1,32 @@
+###  Публикация: 1481770   (1008027) от 05.07.2021
+
+Band Of Brothers - Band Of Brothers (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eastern Front
+02. Pull The Trigger On PTSD
+03. War Is Strictly Business
+04. Sands Of Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B745F02D74438AE3BF97B5FFE7AE1948FE81225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482491   (1007465) от 09.07.2021
 
 Spearfish - The English Project (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -716,35 +745,6 @@ Nitrate - Renegade (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B0219C5EE31B1D9B0FA1A9B7EA25C5C9AE6CBB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486492   (1004585) от 01.08.2021
-
-Restless Bones - Captured by the Roots (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonewalk (04:41)
-02. Monster (03:43)
-03. Common Sense (04:59)
-04. Sail Away (feat. Don Airey) (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEE96FD2A44048A939F18DAF571F4997C42F3A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

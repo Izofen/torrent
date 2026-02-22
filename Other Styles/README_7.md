@@ -1,3 +1,32 @@
+###  Публикация: 1486968   (1003860) от 04.08.2021
+
+Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock, Soft Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break Of Dawn (3:48)
+02. Headed For A Fall (4:09)
+03. Getaway (3:46)
+04. Leave It Alone (2:49)(   Читать дальше...   )Жанр: Country Rock, Pop Rock, Soft RockПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5620FD7C08872F56873DB9D0D5E010995C2A5CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487213   (1003786) от 04.08.2021
 
 Caravelli - Caravelli at San Remo & J’aime (2019) Compilation, Remastered [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
@@ -734,41 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6B51B4E6567E481E7218CF1E9174166511477A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598967   (999120) от 07.01.2013
-
-Jesse Cook - Greatest Hits (2CD) (2010) [MP3|320 кб/с]<New Age, Flamenco, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999120.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Продолжительность: 01:19:34
-01. [03:49] Mario Takes a Walk
-02. [03:01] Tempest
-03. [04:10] Paloma
-04. [03:06] Bogota by Bus
-05. [03:29] Matisse the Cat
-06. [04:08] Virtue
-07. [03:48] Rattle and Burn
-08. [03:58] Gravity(   Читать дальше...   )Жанр: New Age, Flamenco, InstrumentalПродолжительность: 02:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBBC911DF331113F9E476EF046940E229CB052B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 517402   (647050) от 01.07.2012
+
+VA - Metal Hammer Collection (2СD) (2000) [MP3|320 кб/с]<Gothic Metal, Doom/Death Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Gothic Metal, Doom/Death Metal, Speed MetalПродолжительность: 01:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED99029BAF6D9253D1DF4F5A11A09DA4984533B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292283   (646900) от 29.03.2019
 
 Ellende - Lebensnehmer (2019) [MP3|320 Kbps] <Atmospheric Black Metal, Post-Black Metal>
@@ -722,35 +748,6 @@ Iced Earth - Incorruptible (2017) [MP3|320 Kbps] <Power / Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:593FACF8AB6DABFCCA8F86104814ADBCABAAD668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907277   (640036) от 11.06.2015
-
-Karakoram - Ov Shangri-La (2015) [MP3|320 кб/с]<Heavy / Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azathoth
-02. Sagarmatha
-03. En Sabah Nur
-04. Via Betelgeuse(   Читать дальше...   )Жанр: Heavy / Groove MetalПродолжительность: 00:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0B73058516BB46FC8B43007D132AFA45B9C54F
 ```
 
 https://mybot314.ru/tekegram_catalog/

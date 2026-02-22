@@ -1,3 +1,32 @@
+###  Публикация: 1251726   (413352) от 03.10.2018
+
+VA - New Music Releases Week 39 of 2018 (2018) [MP3|192 - 320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413352.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Juicy J, Travis Scott - Neighbor
+002. Culture Shock - Get Physical
+003. Tank, the Bangas - Spaceships
+004. Kinnerman - Promised Land(   Читать дальше...   )Жанр: DanceПродолжительность: 15:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC2B249A0BB97023DEDFE433A61B954BB2DF252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251839   (413183) от 03.10.2018
 
 VA - Popular Lyrical Ballads (2018) [MP3|320 Kbps] <Pop, Lyric, Ballad>
@@ -734,35 +763,6 @@ VA - Осенний Плей-Лист 50/50 (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3502F2C19C27EF6EB7DA8532DA6BCB923925BFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949171   (408257) от 22.10.2015
-
-VA - Фея Дождя. Песни на стихи Франчески Тотти (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MILEN - Фея дождя (02:37)
-02. Сергей Ищенко - Дождь сентября (04:03)
-03. Андрей Бирюков - В городе дождь (03:55)
-04. Arkadias feat Francheska Totti - Дышать (03:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6D69BC77F76C083B15C2738347237305BAE8CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 371744   (517620) от 10.08.2011
+
+Marc Bolan & T.Rex - Golden Hits (2011) 2CD [FLAC|Lossless]<Hard Rock, Glam Rock, Psychedelic Folk, Psychedelic Rock, Pop Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chrome Sitar (3:16)
+02. Truck On (3:09)
+03. Ride A White Swan (2:15)
+04. Sitting Here (2:19)
+05. Raw Ramp (5:16)
+06. Zip Gun Boogie (3:22)
+07. City Port (2:42)
+08. Free Angel (2:13)
+09. Jitterburg Love (2:57)
+10. Laser Love (3:38)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Psychedelic Folk, Psychedelic Rock, Pop RockПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1379299DF967D13DBC97D5D55FF0C002EB27A4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 373740   (517612) от 10.08.2011
 
 Во все тяжкие / Breaking Bad [Season 4 Episode 4] (2011) SATRip
@@ -665,35 +700,6 @@ Firefox - очень интересный продукт, который при�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A1F79B9236F004FF7F31EFB300AAAA13E571179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929818   (517394) от 21.08.2015
-
-Lueur Verte - Crystalica [EP] (2013) [MP3|320 кб/с]<Dark Synth , Synthwave , 80s>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lueur Verte's Theme (05:39)
-02. Crystalica (09:34)
-03. Emerald Rising (05:36)
-04. Onyx Noir (04:40)(   Читать дальше...   )Жанр: Electronic , Dark Synth , Synthwave , 80sПродолжительность: 00:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1837376745BA82B968888B1A3F328D11CAA6D378
 ```
 
 https://mybot314.ru/tekegram_catalog/

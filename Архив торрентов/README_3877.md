@@ -1,3 +1,32 @@
+###  Публикация: 951879   (361170) от 30.10.2015
+
+VA - Dark Sessions Radio 011 (Mixed by Oberon) (2015) [FLAC|Lossless|WEB-DL]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John O'Callaghan & Bryan Kearney - Pendulum (Chris Voro Remix) (7:24)
+02. The Technicians - The Power of the Darkside (6:27)
+03. Activa Presents Mekk - Restless (Peter Plaznik's No Sleep Remix) (7:46)
+04. Gary Maguire - It's Complicated (7:45)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43CB7F4D28A10AFDB97C2C36132C1FD024A151B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177901   (361163) от 26.10.2017
 
 XMedia Recode 3.3.7.7 + Portable [Multi/Ru]
@@ -659,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F625846735678F15C5E4CBB76BF2FC9561399EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576911   (360975) от 18.11.2012
-
-Операция «Мутанты»/ Acción mutante (1993) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360975.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 год. Миром правят богатые и красивые. Уродливые повстанцы борются против диктаторского режима. В калейдоскопе увлекательных и смешных событий успевает родиться и неожиданная любовь…Жанр: Фантастика, Боевик, Триллер, Комедия, КриминалРежиссер: Алекс де ла ИглесиаАктеры: Антонио Ресинес (Antonio Resines), Алекс Ангуло (Álex Angulo), Фредерик Федер (Frédérique Feder), Хуан Виадас (Juan Viadas), Карра Элехальде (Karra Elejalde), Сатурнино Гарсия (Saturnino García), Фернандо Гильен (Fernando Guillén), Джейм Бленч (Jaime Blanch)Перевод: Любительский (одноголосый)Продолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79445937404F198A283BA5ABBFF67241A4C98716
 ```
 
 https://mybot314.ru/tekegram_catalog/

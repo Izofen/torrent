@@ -1,3 +1,90 @@
+###  Публикация: 1617058   (1035584) от 05.03.2023
+
+Quincy Jones - Milestones Of A Legend (1953 - 1962) 10CD, 2022, The Intense Media [FLAC|Lossless|tracks + .cue] <Bop, Cool, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Golden Touch [3:05]
+02. Jones Beach [4:55]
+03. The Midnight Sun Will Never Set [4:58]
+04. I'm Gone [5:18](   Читать дальше...   )Жанр: Bop, Cool, Big BandПродолжительность: 11:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3F29486D6390723B585BFCB9094B27EC0261BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617171   (1035567) от 05.03.2023
+
+Eva Cassidy & London Symphony Orchestra - I Can Only Be Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Classical Crossover, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Songbird
+02. Autumn Leaves
+03. People Get Ready
+04. Waly Waly(   Читать дальше...   )Жанр: Vocal Jazz, Classical Crossover, Easy ListeningПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA53B2414396FAC477647554C693B1E5028E3E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617061   (1035538) от 05.03.2023
+
+Laura Cox - Head Above Water (2023) [FLAC|Lossless|image + .cue] <Blues Rock, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head Above Water
+02. So Long
+03. One Big Mess
+04. Set Me Free(   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C6F5F289C624D77977C15035EC19324033AEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443498   (1035500) от 29.01.2021
 
 Mary Lou Williams - Conversation (1940-e) 2002, Past Perfect [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
@@ -658,93 +745,6 @@ L.A. 4 - Executive Suite (1982) 1995, Concord Jazz [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DE929238DF45029607050C7C00AD360AD0C10C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444606   (1034468) от 02.02.2021
-
-Nancy Wilson - Yesterday's Love Songs & Today's Blues (1963) 1991, Capitol Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Song Is You [2:01]
-02. The Very Thought of You [2:54]
-03. Satin Doll [2:24]
-04. Bewitched [3:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4BA017471F76573A871E773E2E36998C9F8A35E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444560   (1034467) от 02.02.2021
-
-3AM - On the Road Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Road Again (3:09)
-02. Reflections (4:07)
-03. Thank You Cyril Davies (2:32)
-04. Glory Box (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E32A3D79A856D37431BA423FF134168F2BFAD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444567   (1034466) от 02.02.2021
-
-E Van Olst - Songs for Hal (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Friend (4:24)
-02. Making It Worse (4:23)
-03. Song for Hal (2:26)
-04. Rocky Bottoms (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435BE41504BD4FB8405DDED4EF87B41E2B5C81F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

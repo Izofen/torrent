@@ -1,3 +1,108 @@
+###  Публикация: 432794   (990053) от 07.01.2012
+
+VA - The Ultimate Diva Collection (2010) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.Cassandra Wilson - Polka Dots And Moonbeams (5:45)
+02.Jacintha - Round Midnight (6:15)
+03.Joni Mitchell - The Man I Love (5:57)
+04.Shirley Horn - Beautiful Love (3:39)
+05.Abbey Lincoln - Love has gone away (4:39)
+06.Patricia Barber - You Stepped Out Of A Dream (7:35)
+07.Stacey Kent - It Never Entered My Mind (4:40)
+08.Roberta Gambarini - Centerpiece (5:21)
+09.Susannah McCorkle - Manhc De Carnaval (Sunrise) (4:52)
+10.Jane Monheit - Comecar De Novo (6:18)(   Читать дальше...   )2010Жанр: Jazz, Vocal JazzПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432680   (990029) от 07.01.2012
+
+Blues Trackers - Smells Like Trouble (2011) [FLAC|Lossless]<Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Smells Like Trouble (5:30)
+02. Desperate Man (4:14)
+03. Dream (4:20)
+04. Mind Starvation (4:05)
+05. The Dolphin Dance (Part2) (4:09)
+06. Looking For Myself (4:30)
+07. In a Bad Condition (4:21)
+08. Jenny Star (3:39)
+09. Fake Fairy Tale (4:40)
+10. The Dolphin Dance (Part1) (2:00)Жанр: Blues, Blues-RockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432635   (990019) от 07.01.2012
+
+Roy Roberts - Every Shade Of Blue (1997) [FLAC|Lossless]<Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Understand
+02. I Got a Gypsy Woman
+03. Hard to Find a Woman
+04. What Should I Do?
+05. Comin' Through the Back Door
+06. Why You Didn't Come Home
+07. Have You Seen My Baby?
+08. My Baby Left Me
+09. Sweet as a Honey Bee
+10. A Woman Needs Love(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 432568   (990015) от 07.01.2012
 
 Charles Mingus - Mingus At The Bohemia (1990) [FLAC|Lossless]<Bop, Hard Bop>
@@ -707,99 +812,6 @@ Sensual Chill Saxaphone Band - Sensual Jazz - Saxophone Music (2016) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:609C9BC2420AA638755C704EAA076C5452FC7CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354647   (986983) от 23.01.2020
-
-Tommy Flanagan - Four Classic Albums 1957 - 1958 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986983.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Two Ton [4:53]
-02. It's Magic/My One and Only/They Didn't Believe Me [13:44]
-03. Soul Station [5:45](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00236CBC2662C640CAADB57B83894FE79BC6EEA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354748   (986978) от 23.01.2020
-
-Gary Moore - Parisienne Walkways: The Collection (2020) 2CD [MP3|320 Kbps] <Blues, Blues-Rock, Hard-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Parisienne Walkways (Live) [5:50]
- 02 - The Prophet [6:19]
- 03 - Rest In Peace [5:59]
- 04 - Enough Of The Blues [4:47](   Читать дальше...   )Жанр: Blues, Blues-Rock, Hard-RockПродолжительность: 02:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A382F3708344F33C4A36D126CA0B907F631661EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434182   (986922) от 10.01.2012
-
-Jerry 'Boogie' McCain - This Stuff Just Kills Me (1999) [APE|Lossless]<Blues, Harp>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Where You Been 03:46
-02. Super Woman 05:01
-03. This Stuff Just Kills Me 06:24
-04.  Viagra Man 06:12
-05. Slave Master 03:49
-06. My Deal At The Crossroads 05:26
-07. Jealousy 04:04
-08. Ain't No Use For Drug Abuse 05:24
-09. Mama's Gone 06:15
-10. Madison Mood 04:23(   Читать дальше...   )Жанр: Blues, HarpПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

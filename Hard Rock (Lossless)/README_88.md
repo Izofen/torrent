@@ -1,3 +1,32 @@
+###  Публикация: 1664150   (186053) от 25.09.2023
+
+Bang Camaro - Bang Camaro I-III (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_186053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2007 - Bang Camaro I
+2009 - Bang Camaro II
+2023 - Bang Camaro IIIЖанр: Hard RockПродолжительность: 02:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21107725F17C413B62B9742629382486A6A4449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592015   (185581) от 20.11.2022
 
 Orbiter - A Goddamn Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Bluesy>
@@ -716,35 +745,6 @@ B.O.W - Chasing Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C9BF2331CE0C5D4DBACB97E87694536C1EC67F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665714   (181517) от 01.10.2023
-
-Nikki Stringfield - Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Surrender [00:04:43]
-02. The Spell [00:04:38]
-03. Where the Demons Lie [00:04:41]
-04. The Outsider [00:05:17](   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Female VocalПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7151503C5544665E64C5C291AC1DF4347D071160
 ```
 
 https://mybot314.ru/tekegram_catalog/

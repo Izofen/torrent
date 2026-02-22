@@ -1,3 +1,30 @@
+###  Публикация: 1415958   (371764) от 14.10.2020
+
+Emurasoft EmEditor Professional 20.2.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371764.jpg" />
+</div>
+
+
+###  Подробнее
+
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
+Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484F0FC9B70B931248CF1F9BA371D493BB6400B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415909   (371763) от 14.10.2020
 
 ReviverSoft Driver Reviver 5.34.3.2 RePack (& Portable) by TryRooM [Ru/En]
@@ -654,38 +681,6 @@ VA - Country Originals (1994) [MP3|320 кб/с]<Country, Bluegrass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D22AC5FA0D0970EE38BFEB04EAEB9456E5839D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575077   (371519) от 14.11.2012
-
-VA - Libido Vol. II (2012) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371519.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Libido Vol. II (2012)
-Год: 2012
-Лейбл: Phoenix Groove Records
-Жанр: Trance, Progressive Trance
-Продолжительность: 01:08:27Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:01. Mr Suspect — Punked (06:44)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E86CEB9C6675AACD062DE51D4E25AC41D58CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

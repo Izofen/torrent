@@ -1,3 +1,32 @@
+###  Публикация: 1617960   (1034572) от 09.03.2023
+
+Bertha Hope - Elmo's Fire (1991) SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low Tide [6:58]
+02. Mirror-Mind Rose [2:18]
+03. Bai Tai Blues [9:17]
+04. For Duke and Cannon [9:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E1FED5AE9D5C0FF2B8FAAFE22FEB0DC5FFA7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617961   (1034571) от 09.03.2023
 
 Dinah Washington - Drinking Again (1962) 1989, Roulette [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ James Brandon Lewis Trio - Eye of I (2023) [FLAC|Lossless|tracks + .cue] <Avant-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:188314EBD17B2665700A1190E684B6088A978F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446392   (1033042) от 08.02.2021
-
-Yussef Dayes Trio - Welcome to the Hills (2020) [FLAC|Lossless|tracks] <Jazz Fusion,  Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Love ~ Amazonian Springs (05:17)
-02. Jamaican Links (01:46)
-03. Odyssey (03:45)
-04. Gully Side (12:30)(   Читать дальше...   )Жанр: Jazz Fusion,  Jazz-FunkПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85690D1DF38BCB230BE1AD1295606924413AD356
 ```
 
 https://mybot314.ru/tekegram_catalog/

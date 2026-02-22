@@ -1,3 +1,262 @@
+###  Публикация: 1411107   (430078) от 24.09.2020
+
+Lepergod - Impvro (2019) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     Tetragramaton
+02.     La Edad Satánica
+03.     Sociale Stigma Liber
+04.     Los Pilares del Edén(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CB9A6F530A46DBD9BDE72B15A1DD379AE541FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411081   (430075) от 24.09.2020
+
+Sinfonica - Bosque Eterno (2019) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     Intro
+02.     Freya in Folkvang
+03.     Guardianes
+04.     Ishtar(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B85F0D84C4839E4A31BF9CF627F0AB7F25C9E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411042   (430072) от 24.09.2020
+
+Lazarvs - Lazarvs (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IV. Rebirth [00:01:38]
+02. The Order [00:04:36]
+03. Reaping [00:01:55]
+04. Pit. [00:03:18](   Читать дальше...   )Жанр: Sludge Metal, Groove MetalПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA92860816149E24B34A59E88073867503719C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411106   (430069) от 24.09.2020
+
+Lepergod - Siniestro Éxtasis (2018) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     Fuego Salvaje
+02.     Litvrgia
+03.     Diatriba Infernal
+04.     Vi la Muerte(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E25928C57DF17879C8F5A65DDACE23E6660776A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411118   (429993) от 24.09.2020
+
+Secret Sphere - Heart And Anger (2005) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless (1:53)
+02. Where the Sea Ends (5:03)
+03. First Snake (6:28)
+04. Loud & Raw (4:57)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B97D519CED8F9C058C4795A89AC35EA536060D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410803   (429991) от 24.09.2020
+
+Mezmerized - Electrolyze (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electrolyse [00:04:17]
+02. Comeback [00:02:50]
+03. Rage [00:03:52]
+04. Desire [00:03:42](   Читать дальше...   )Жанр: Modern Metal, MetalcoreПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2B9474BA8C190030D5F06C67903FC59576DFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411006   (429990) от 24.09.2020
+
+Dominus Inferi - Age of Darkness (2008) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prologus
+01.     Dominus InferiЖанр: Symphonic MetalПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1614F35EBC31F4EE24F7828808F3EDF92B96E12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411109   (429989) от 24.09.2020
+
+Lingerbliss - Uncertain (2010) [FLAC|Lossless|image + .cue] <Progressive Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     The First Other
+02.     Transition
+03.     Electricity
+04.     Necessary Pain (Lilith)(   Читать дальше...   )Жанр: Progressive Symphonic MetalПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC39BFF2BA6627784CA6A3FE15D28E60E02E68C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411124   (429988) от 24.09.2020
+
+Twilight - The Time Has Come (2007) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     Welcome to My World
+02.     Lost in Time
+03.     My Beloved
+04.     Fantasy Temple(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F365FFE656324D2025133149140FDDC0D62A5CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410806   (429985) от 24.09.2020
 
 Mirayon - A Tale of Challenging Hope (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
@@ -481,267 +740,6 @@ Almas Militares - Almas Militares (2006) [FLAC|Lossless|image + .cue] <Power Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBF12D27CA915521023DFA8FA6BF19826F1DB7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250154   (427195) от 27.09.2018
-
-Almas Militares - Nubes De Gloria (2004) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nubes De Gloria
-02. El Alboroto De La Vida Y La Muerte
-03. Pasaporte
-04. Dentro De La Guerra(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A765CEDF36F63A0E46D969864D9CC0CC72B3C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250157   (427194) от 27.09.2018
-
-Almas Militares - Tormenta Solar (2012) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternidad (Instrumental) (Intro)
-02. Tormenta Solar
-03. Piedad Piedad
-04. Impulso Implacable(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D46B17E10EECA5490247EC8AA6CB6DCDDE32439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250168   (427193) от 27.09.2018
-
-Finsterforst - Weltenkraft (2007) 2CD, Reissued, 2008 [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Des Waldes Macht (5:30)
-02-Die Suche Nach Dem Licht (6:21)
-03-Lauf Der Welt (8:10)
-04-Traumwald (5:17)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83EFB459F17A406573B98AADB45F9AC014126AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250169   (427191) от 27.09.2018
-
-Fortíð - Völuspá Part III: Fall of the Ages (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Fornir Salir (5:55)
-02-Austursins Heimsenda Her (8:10)
-03-Fall Aldanna (4:45)
-04-Jafnvaegi Endurheimt (5:42)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E7A4D8E2345CD19300314BF52E0C844F233E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250161   (427187) от 27.09.2018
-
-Demonical - Chaos Manifesto (2018) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Void Most Obscure
-02. Towards Greater Gods
-03. Sung to Possess
-04. Välkommen undergång(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF4C07388E5816A50B41C8F7B6967E89700217E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166337   (426919) от 16.09.2017
-
-Root - Hell Symphony (1991) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Belzebub              06:08
-02 - Belial                03:08
-03 - Lucifer               04:07
-04 - Abaddon               03:15(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94DB520E8678456F5A4EBB02D1CE3161AE7E04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166209   (426916) от 16.09.2017
-
-Boris - Dear (2017) Deluxe Japanese Version [FLAC|Lossless|Web-DL|tracks] <Drone Metal, Shoegaze, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.O.W.N -Domination Of Waiting Noise- (6:06)
-02. Deadsong -詩- (6:43)
-03. Absolutego -絶対自我- (4:56)
-04. Beyond -かのひと- (6:40)(   Читать дальше...   )Производство: Daymare Recordings – DYMC-300Жанр: Drone Metal, Shoegaze, ExperimentalПродолжительность: 01:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F3FA57A3246760081148BDF3F23F685341471D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250164   (426879) от 27.09.2018
-
-Drowning the Light - Varcolaci Rising (2017) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awaken... Most Ancient Ones
-02. Blood Covered Moon of Varcolaci
-03. Shadows Dancing from the Crypt
-04. Nosferatu(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2420DDFF571F0B1228D8D2BF21E65635CD273C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166024   (426802) от 16.09.2017
-
-Quiet Riot - Road Rage (2017) [FLAC|Lossless|tracks + .cue] <Glam Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get Enough (4:01)
- 02. Getaway (4:54)
- 03. Roll This Joint (4:31)
- 04. Freak Flag (4:02)(   Читать дальше...   )Жанр: Glam Metal, Hard RockПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7FE2D4B4DA50ACBFB81336B1F7F6F693B7FFE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

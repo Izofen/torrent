@@ -1,3 +1,90 @@
+###  Публикация: 1595742   (175101) от 06.12.2022
+
+Julie Parsons - Piano Lady (1977) LP [MP3|320 Kbps] <Pop, Funk-Soul, Easy Listening, Soul-Jazz, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love Only You (2:47)
+02. I'll Wait For You (3:05)
+03. Separate Ways (3:21)
+04. Water (2:21)(   Читать дальше...   )Жанр: Pop, Funk-Soul, Easy Listening, Soul-Jazz, BalladПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F6067DF87B4AE81CF5853FC52571E529EA9036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595665   (174943) от 06.12.2022
+
+Технология - Нажми На Кнопку (1994) Unofficial Release [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нажми на кнопку
+02. Все, что ты хочешь
+03. Странные танцы
+04. Холодный след(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A878A5858E852EA8E003282A5CC690ECA2CCA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595703   (174941) от 06.12.2022
+
+VA - Трибьют «Иванушки International» (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174941.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Таврида.АРТ/Иванушки International - Пролог
+2. MATANYA - Два океана
+3. Фабрика - Малина
+4. ATMO5 - Билетик в кино(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02473530E78FA709DE9FE552FC37ABF1EBA63BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509070   (174880) от 10.10.2023
 
 ВИА Гра (Nu Virgos) - 5 альбомов, 2 сборника (2002-2008) [FLAC|Lossless]<Pop, Europop>
@@ -661,93 +748,6 @@ VA - Italo 2000 - Italo Rarities (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81618E47DAA0193948AE076059DD53A374442639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670200   (172261) от 19.10.2023
-
-Игорь Николаев - Лучшие хиты (2023) [MP3|256-320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172261.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пять причин
-2. Выпьем за любовь
-3. Синий Ветер - Белый Лён
-4. Такси, такси(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1DF3E8FE528F51C32125E253DE6ADF3025333F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670179   (172092) от 20.10.2023
-
-VA - Italo 2000 - Italo Rarities Vol. 2 (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koto - Japanese War Game
-02. Linda Jo Rizzo - Heartflash
-03. Ken Laszlo - Glasses Man
-04. Paul Boy - Lucky Guy(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A929D23DFCA0BE0F6A50B0B742FA22C762A4D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670241   (172089) от 20.10.2023
-
-VA - Italo 2000 - Italo Rarities Vol. 3 (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Adams - I Know Your Mind
-02. Deborah Haslam - Let Me Trouble
-03. Max Coveri - Bye Bye Baby
-04. Joe Yellow - Last Call(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C9D733667B94F667E17CF6EF5C8C79AA5DD7EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

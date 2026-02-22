@@ -1,3 +1,32 @@
+###  Публикация: 1256032   (359278) от 20.10.2018
+
+Don Byas - Complete American Small Group Recordings (1944 - 1946) 4CD, 2001, Definitive Records [APE|Lossless|image + .cue] <Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359278.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Riffin' and Jivin' [2:57]
+02. Free and Easy [2:52]
+03. Worried 'N Blue [3:15](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 04:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F42E94EC9137C85FEB203F287FA0520A60BF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255920   (359277) от 20.10.2018
 
 Trilok Gurtu - "Usfret" (1988) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
@@ -716,35 +745,6 @@ Zaz - Sur La Route (2015) [FLAC|Lossless|WEB-DL] <Nu Jazz, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2DF367130545ACD4DE5C70D9179824FF0714ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072103   (355028) от 12.11.2016
-
-Miss Sophie Lee and The Parish Suites - Traverse This Universe (2016) Sophieleemusic[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You And Me (The Universe) [04:20]
- 02.That's When Your Heartaches Begin [04:22]
- 03.Someday [03:27]
- 04.A Safe Place [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE973B08B9A43A0C5465A9052274CB5B63B38A1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

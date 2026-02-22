@@ -1,32 +1,3 @@
-###  Публикация: 1748069   (104590) от 08.09.2024
-
-Scott Hamilton - Jazz Signatures (2001) Concord [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raincheck [5:06]
-02. In Your Own Sweet Way [7:04]
-03. Jitterbug Waltz [7:37]
-04. If You Could See Me Now [5:32](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685309AD4892408AB50163ACA3AA1F9743DC3A52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748121   (104588) от 08.09.2024
 
 VA - Enriching Peaceful Supreme Happiness Smooth Experience Playlist During Vacation (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -745,6 +716,35 @@ Sonny Stitt & Don Patterson - The Boss Men (1965) 2001, Prestige [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBB38E871F9FE8ECBC6BE168A526759633DB625D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752232   (103929) от 29.09.2024
+
+Betty Carter - 'Round Midnight (1963) 2012, Atlantic [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing More to Look Forward To [2:39]
+02. Who What Why Where When [3:11]
+03. Heart and Soul [3:19]
+04. Call Me Darling [3:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB4E134F6F154F47FE02AD70CB5D49DDBCE2424
 ```
 
 https://mybot314.ru/tekegram_catalog/

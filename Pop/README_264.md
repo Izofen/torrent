@@ -1,3 +1,90 @@
+###  Публикация: 1627245   (243199) от 18.04.2023
+
+VA - ZYX Italo Disco New Generation Vol. 2 (2013) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanello & Steven Kimber - S.O.S. for Love (Maxi Version)
+02. Lenroy - Do You (Extended Version)
+03. TQ - Let's Go To Tokyo (Axel Remix)
+04. Siberian Heat - Magic Blue Eyes (Long Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B5DE2AAC0BEC207AE15EE300A3EF2DCC1EB6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352548   (243188) от 15.01.2020
+
+The Vision Mastermixers - The Immaculate Mix (1997) [FLAC|Lossless|image + .cue] <Synth-pop, Cover, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243188.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	The Immaculate Mix	7:08
+1.a	Vogue. Written-By – Madonna, Shep Pettibone
+1.b	Open Your Heart. Written-By – Cole, Madonna, Rafelson
+1.c	Into The Groove. Written-By – Madonna, Bray(   Читать дальше...   )Жанр: House, Synth-pop, Cover, MedleyПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38226C571C61ECC217A2C40B6AF1F34CF6480D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352560   (243110) от 15.01.2020
+
+The Vision Mastermixers - Immaculate Mixes II (2001) [FLAC|Lossless|image + .cue] <Disco, House, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sawmix 1 (7:32)
+
+1.1.	I Heard A Rumour
+1.2.	Never Gonna Give You Up(   Читать дальше...   )Жанр: Disco, House, Synth-popПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BCC3A7B259AC6442BA12A52FC1A3701EDCF0DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623705   (242952) от 02.04.2023
 
 ВИА ''Верные друзья'' - Верные друзья (2003) CD, Compilation [MP3|320 Kbps] <Pop>
@@ -658,93 +745,6 @@ Brandy Clark - Brandy Clark (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BB5E318827470D5E4B319E2E8656B47D195F739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624549   (242255) от 07.04.2023
-
-VA - Totally '80s (1993) 2 CD[OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-ha - Take on Me
-02. Buster Poindexter - Hot Hot Hot
-03. Billy Ocean - Caribbean Queen (No More Love on the Run)
-04. Bangles - Walk like an Egyptian(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E8271EE0E27BA693CD0787AC51873CF41C4539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628327   (242202) от 22.04.2023
-
-Everything But The Girl - Fuse (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, House, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Left To Lose (3:45)
- 02. Run A Red Light (3:39)
- 03. Caution To The Wind (4:07)
- 04. When You Mess Up (3:48)(   Читать дальше...   )Жанр: Pop, House, DowntempoПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8270FD8FF9716B9B3C4AAFDB7590C5FDC6238793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624889   (242131) от 08.04.2023
-
-Bananarama - Masquerade (2022) 2CD, The Unmasked Edition, 2023, IN SYNK [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running With The Night (Almighty Remix Edit) [00:03:25]
-02. Forever Young (Lamentis Remix Edit) [00:03:53]
-03. Favourite (Shanghai Surprize Remix Edit) [00:02:54]
-04. Masquerade (Cahill & DTAG Remix Edit) [00:03:29](   Читать дальше...   )Жанр: PopПродолжительность: 2CD, 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05FE409186AD8A11236A9E1C7223F5A54C1C3C72
 ```
 
 https://mybot314.ru/tekegram_catalog/

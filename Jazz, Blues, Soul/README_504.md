@@ -1,3 +1,32 @@
+###  Публикация: 970506   (139674) от 31.12.2015
+
+Joe Henderson - Big Band (1997) Verve Records[FLAC|tracks+.cue] <Post-Bop, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Without A Song [05:25]
+ 02.Isotope [05:21]
+ 03.Inner Urge [09:02]
+ 04.Black Narcissus [06:54](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Big BandПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D70035BB7DE366F976D435B668746E4F9B2AD5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970916   (139601) от 31.12.2015
 
 Cannonball Adderley - Live! (1964) Remaster, 2011, EMI Music[FLAC|tracks+.cue] <Hard Bop, Soul Jazz>
@@ -736,35 +765,6 @@ Craig Payne - A Long Time Coming (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F876101E7A9D5904997A314693711C5FD817EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520843   (138992) от 30.12.2021
-
-Bluejaf - Blues Coffee (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allright! (3:25)
-02. I Don't Smoke After Love (5:10)
-03. I'm a Shy Guy (5:28)
-04. When I Take the Road (5:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A869C19BD1EDDC31D41A1D80A2B1883B01F4D01
 ```
 
 https://mybot314.ru/tekegram_catalog/

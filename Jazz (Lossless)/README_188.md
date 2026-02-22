@@ -1,3 +1,32 @@
+###  Публикация: 1318897   (490987) от 08.08.2019
+
+Chuck Hedges & The Johnny Varro Trio - Skylark (1983) 1995, Delmark Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You're Smiling [4:37]
+02. Here's That Rainy Day [4:04]
+03. Autumn Leaves [4:20]
+04. 'Round Midnight [3:38](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CA3E84B65FD8B9DAC90A24C37971EA8C79B5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565770   (490445) от 25.07.2022
 
 The Uptown String Quartet - Max Roach Presents The Uptown String Quartet (1989) Philips [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
@@ -712,35 +741,6 @@ Hugh Masekela - Jabulani (2012) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:827452BF3B4A65FA55066B6B1E666038DBB0FB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158982   (488136) от 18.08.2017
-
-Joe Zawinul - Concerto Retitled (1976) 2007, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Vienna With Love [04:27]
-02. My One And Only Love [03:50]
-03. Riverbed [05:10]
-04. Concerto Retitled [05:24](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305A40425773FDA1B9D4C91B48ED38415056AE71
 ```
 
 https://mybot314.ru/tekegram_catalog/

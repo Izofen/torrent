@@ -1,3 +1,32 @@
+###  Публикация: 1422051   (313144) от 07.11.2020
+
+Tony Carey's Planet P Project - G.O.D.B.O.X. 4CD (2014) [FLAC|Lossless|tracks + .cue]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1931 ( Belive It )
+02. My Radio Talks To Me
+03. A Sanitation Problem
+04. The Others Side Of The Mountain(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 04:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487F9EDEFA0AA07C500D5FCC89C03E96914F057B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959904   (312408) от 26.11.2015
 
 Deep Purple - The Battle Rages On… (1993) [FLAC|tracks+.cue]<Hard Rock>
@@ -716,32 +745,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61F4C7B8763BC7A94C08A128C6C33D06C2621478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333570   (303542) от 25.10.2019
-
-Crystal Ball - 2020 (2CD) (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard 'n' HeavyПродолжительность: 01:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878605A5334356D136AF7249D6A2991DA6983651
 ```
 
 https://mybot314.ru/tekegram_catalog/

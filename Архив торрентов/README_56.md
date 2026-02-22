@@ -1,3 +1,29 @@
+###  Публикация: 1441216   (1037667) от 21.01.2021
+
+The Wild Darkness v1.1.08 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037667.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Wild Darkness – старый колдун что-то напутал в заклинании и вы оказались посреди чащи фантастического леса в абсолютно незнаком вам мире.Тип издания: Пиратка (Мод)Релиз состоялся: 1 января 2021 г.Разработчик: PoPeyed IncПоддерживаемая ОС: Android 4.4+Жанр: Ролевая играЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C871AAE65DA14BE372E6F941961151C8076531FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441218   (1037665) от 21.01.2021
 
 ProfiCAD 11.0.5 [Multi/Ru]
@@ -650,32 +676,6 @@ Art Text - красивое текстовое приложение под Mac O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FCD7081E2CB232F6DACE7ECE4896D0C842A5A6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615542   (1037540) от 26.02.2023
-
-WonderFox HD Video Converter Factory Pro 26.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037540.jpg" />
-</div>
-
-
-###  Подробнее
-
-HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95E0F3D28F81AD3DCE27E359855841BDA477A9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

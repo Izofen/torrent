@@ -1,3 +1,293 @@
+###  Публикация: 1087263   (145334) от 28.12.2016
+
+VA - Танцевальная зима. Выпуск № 2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145334.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Pitbull Feat. Steven A. Clark & Ape Drums - Can't Have 3:37
+002.Far East Movement Feat. Yoonmirae & Autolaser - Fighter 4:14
+003.Яна Батаева - Мы Уйдем Вдвоем 3:06
+004.Костя Кирьянов - Под Этим Дождем 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8D85AAA771B664F6233D8608E8D41D9FB73DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087305   (145321) от 28.12.2016
+
+VA - Музыкальный заряд Выпуск № 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145321.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Нужный Ритм - Незабываемая 3:12
+002.Ласковый Шепот - Не Говори Мне 4:47
+003.Guenta K & Andy Ztoned - Be La La 3:33
+004.Beyonce - Formation 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D513A21F4018016C7F944738859A266A3B76612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087383   (145308) от 28.12.2016
+
+VA - Зимний шансон года Выпуск № 3 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145308.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Александр Дадали - Я Здесь Один Я Против Всех 4:53
+002.Александр Поручик - Кураж 3:02
+003.Александр Келеберда - Нарисуй Мне Художник Портрет 3:46
+004.Руслан Уфимский - Хундай Солярис 3:28(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE7B0F3DE1A15D8549419AD2D454D7469A32026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087835   (145300) от 28.12.2016
+
+VA - Best of Perplexity 2016  [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Peter - Minus (Original Mix) 08:15
+02. Alex H & Mona Moua - There's No Turning Back (Vintage & 07:28
+03. Bee Hunter - Trip to Nassfeld (Original Mix) 08:09
+04. Musty - Sunny Days (Talamanca Remix) 08:11(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 02:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9371B8D9D952FFE47D856D6E6B1326CD3EBEC652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087486   (145280) от 28.12.2016
+
+VA - Trance Collection Vol.55 (2016) [MP3|96-320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145280.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Above & Beyond - Can't Sleep (We Are All Astronauts Progressive Mix) 7:04
+002.Above & Beyond feat. Alex Vargas - Sink the Lighthouse (Maor Levi Extended Remix) 6:52
+003.Abstract Vision, DRYM - Shark (Original Mix) 5:07
+004.Adam Ellis & Michele C - Don’t Disappear (Extended Mix) 8:01(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 10:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD630E8AF9D2CE922F274CD0B998790EFDAA34C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087410   (145279) от 28.12.2016
+
+VA - Масть крестовая от радио Шансон. Часть №7 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145279.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Альберт Салтыков & Виталий Котиц - Огонек 4:30
+002.Андрей Орельский - Вованчик 3:59
+003.Александр Закшевский - За Тобой 3:27
+004.Александр Альтергот - Одесская 3:25(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18981803C3C23532425673879E16987DB128BC0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519991   (145272) от 26.12.2021
+
+Wolf Hoffmann - Compilation (2021) [MP3|320 Kbps] <Rock, Instrumental>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Western Sky
+02. In the Hall of the Mountain King
+03. Pomp & Circumstance
+04. Symphony No. 40 (1st Movement)(   Читать дальше...   )Жанр: Rock, InstrumentalПродолжительность: 01:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EF96CF65F2E0A21D89010E78A4B3C0BED3FFBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087296   (145268) от 28.12.2016
+
+VA - Зимние мега хиты. Русская версия (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Xana - Красивыи Мужчина 4:00
+002.Aisha - Заново 3:13
+003.Пропаганда - Я Тебя Забываю 2:40
+004.Helena Shadia - О Тебе 3:00(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A7BBB21AC09925483EC3BC5D65A4F2B5118BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087268   (145247) от 28.12.2016
+
+VA - Музыкальные новинки mp3. Сборник № 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Галина Боб - Только С Тобой 3:48
+002.Breathe Carolina & Inukshuk - Nights 4:00
+003.Xana - Красивыи Мужчина 4:00
+004.Jojo - Mad Love 4:05(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C199099F92D032D4D6B1A7FDF6BA122864850142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087265   (145238) от 28.12.2016
+
+VA - Сотка модных хитов. Сборник № 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145238.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Анна Боронина - Уходи 3:30
+002.Мулат - Включила Заднюю 3:08
+003.Lyuba Almann - Делай Мне Хорошо 3:47
+004.Dan Balan - Funny Love 3:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446D5497AF181A29B7AA73925771D30FA4629419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969960   (145229) от 28.12.2015
 
 VA - Авто. Музыка. Дорога - 2 (Sound Clinic - Energy Edition) (2015) [MP3|320 кб/с] <Deep, House, G-House, Indie, Trap, Dubstep, Electro, Progressive, Tech, Trance>
@@ -455,296 +745,6 @@ VA - Новогодний ресторан Шансона. Сборник № 6 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49D0F1C8DD0A540039597AE7BB91D564B1F6E11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087301   (144958) от 28.12.2016
-
-VA - Полный отрыв. Зимние хиты (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144958.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Edx - High On You 5:01
-002.Анжелика Варум - Голос 4:43
-003.Елена Яловик - Лодочка 3:32
-004.Onerepublic - All These Things 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A57B7C1F4C888BB30DBD97D58AE3ECF9E3EBAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087304   (144946) от 28.12.2016
-
-VA - Зимний топ 100. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144946.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Kyla & Popcaan - Should've Been Me 4:04
-002.Mc Doni - Полегче 2:45
-003.Lady Gaga - Just Another Day 2:58
-004.Danny Avila Feat. Haliene - High 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829BE64261C0760C530C50D1D900F44D1D926F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087292   (144930) от 28.12.2016
-
-VA - Зимний драйв. Авто дискотека. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144930.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Olly Murs - Grow Up 3:45
-002.Нюша - Тебя Любить 3:39
-003.Станислав Сорока - Иди За Мной 3:53
-004.Koven - Telling Me 4:53(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F9D737E8694D40DDC0D6E748F143BEC41AF31D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087425   (144899) от 28.12.2016
-
-VA - Эх, Разгуляй! Новогодний выпуск Шансона Выпуск № 6 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144899.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Олеся Атланова - Рандеву С Мечтой 3:49
-002.Андрей Широков - Мельдоний 3:34
-003.Владимир Курский - Колода 3:08
-004.Евгения Карельская - Как Я Люблю 3:36(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10787CEA574B1439C40F6C0612767B67B16B038B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087393   (144891) от 28.12.2016
-
-VA - Золотые застольные хиты от радио Шансон Часть №7 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Вячеслав Анисимов - Я Буду С Тобой 3:16
-002.Орская Маргарита - Любимый Муж Мой 4:21
-003.Олег Карпович - Ты Не Одна 3:07
-004.Александр Келеберда - Горький Вкус Кампари 4:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA0164ACD02268E06EE62D6DF7F5DFAA008F9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087468   (144885) от 28.12.2016
-
-VA - German Top 100 Single Charts 23.12. (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144885.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Rag'n'Bone Man - Human 3:19
-002.Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) 4:11
-003.Mark Forster - Chore 3:28
-004.Disturbed - The Sound Of Silence 4:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BADDA6C87E98F7D4D36481169DF91E3CAD6A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087312   (144808) от 28.12.2016
-
-VA - Зимние хиты экспресс. Зарубежная версия (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144808.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
-002.Evelina - Ei Filtterii 3:08
-003.Mans Zelmerlow - Primal 3:32
-004.Alle Farben - Berlin 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92144285A93577DEEAA3D7985E01E23E5642D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087113   (144797) от 28.12.2016
-
-VA - Acoustic Covers Rewind (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Torn
-02. Portland UK - The Boxer
-03. Thom Cooper - God Only Knows
-04. Dean Dyson - Dancing in the Dark(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F55453F6DE63E57BDBE1BEED0E1A0BA04349B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087311   (144784) от 28.12.2016
-
-VA - Снегопад новинок на Hit FM. Версия 3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144784.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Наргиз - Revolution 3:31
-002.Jojo Feat. Alessia Cara - I Can Only 3:21
-003.Sigala & Digital Farm Animals - Only One 3:24
-004.Макс Барских - Туманы 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E41C1575026D2BEADDE52AF3D9C3BC9AED860B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087298   (144727) от 28.12.2016
-
-VA - Музыкальный плен Часть № 5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144727.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Stevie Wonder Feat. Ariana Grande - Faith 2:41
-002.Дмитрий Недоспелов - На Экскаваторе 3:10
-003.Fallulah - Vandalain 3:50
-004.S.N.E.G Feat. Evaloras - Эйфория 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C0387B7CDF7BBEE0BB121F7DC00DA376C64B8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

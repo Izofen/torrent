@@ -1,3 +1,125 @@
+###  Публикация: 563090   (405178) от 20.10.2012
+
+VA - Platinum 80s (2002) [FLAC|Lossless]<Pop, Rock, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_405178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Lennon - (Just Like) Starting Over [03:58]
+02. Pink Floyd - Another Brick In The Wall (Pt. 2) [03:54]
+03. Van Halen - Why Can't This Be Love [03:34]
+04. Frankie Goes To Hollywood - Relax [03:59]
+05. Duran Duran - Rio [04:47]
+06. Crowded House - Don't Dream It's Over [03:56]
+07. Belinda Carlisle - Heaven Is A Place On Earth [04:07]
+08. Bananarama - Venus [03:41]
+09. Fine Young Cannibals - Good Thing [03:14]
+10. Communards - Don't Leave Me This Way [04:34](   Читать дальше...   )Жанр: Pop, Rock, Soul, DiscoПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168978   (405054) от 25.09.2017
+
+Fifth Harmony - Fifth Harmony (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down (Feat. Gucci Mane)
+02. He Like That
+03. Sauced Up
+04. Make You Mad(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960C8177023CCB42A58DFBE23EEF814BB0257C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168941   (405052) от 25.09.2017
+
+D.C. LaRue - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405052.jpg" />
+</div>
+
+
+###  Подробнее
+
+D.C. LaRue, настоящее имя - Дэвид Чарльз Леро, родился 26 апреля 1948 года в городе Мериден, штат Коннектикут. Американский певец, автор песен и продюсер. Его музыка в 1970-х и начале 1980-х годов пользовалась успехом в клубах и танцевальных чартах по всему миру.Список альбомов:
+1976 - The Tea Dance
+1978 - Confessions
+1979 - Forces Of The Night(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Disco, Pop RockПродолжительность: 02:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBD5FF70DB1716C461CBE626E0E239DE43FE595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168751   (404987) от 25.09.2017
+
+VA - House Disco Soul (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mighty Nighty – Mental Holiday (70’s Classic Disco mix) (03:44)
+02. Jean Claude Project – Partial Transition (Le Disco mix) (03:36)
+03. Tommy Whyte – Get Up My Hands (Disco Love mix) (03:52)
+04. Doctor Rich – Between You And Me (Cocco’s Disco mix) (03:36)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C22D4C0D240AE12AE3081A86BFC6E8BC8D3831E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169016   (404778) от 25.09.2017
 
 Леонид Агутин - Дискография (1994-2016) [MP3|320 Kbps] <Pop, Latin Pop, Romantic Pop Rock>
@@ -667,134 +789,6 @@ VA - Legacy: A Tribute To Fleetwood Mac's Rumours (1998) [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F053FE083C33110BC2211EE5BA6FD65297A50147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566975   (396697) от 29.10.2012
-
-Donna Summer - 8 Albums (1975-1979) /2012, SHM-CD Universal Music Japan/ [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Radio 04:02
-02. Love To Love You Baby 04:15
-03. Try Me, I Know We Can Make It 03:18
-04. I Feel Love 03:21
-05. Our Love 03:46
-06. I Remember Yesterday 04:46
-07. I Love You 03:11
-08. Heaven Knows 03:31
-09. Last Dance 04:59
-10. MacArthur Park 03:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567753   (395772) от 30.10.2012
-
-Michael Cretu - Gambit (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Love Is The Missing Word (Extended Version, 1987)
-02. Samurai (Did You Ever Dream) (Long Version, 1985)
-03. Spiel Auf Zeit (Single Version, 1983)
-04. Zeitlose Reise (Extended Version, 1983)
-05. Silver Water (Single Version, 1985)
-06. Carte Blanche (Single Version, 1985)
-07. Captain Right (Single Version, 1988)
-08. Crazy Life (Single Version, 1988)
-09. Mona Lisa (Album Version, 1988)
-10. School's Out (Extended Version, 1987)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171755   (395759) от 05.10.2017
-
-Hans Edler - Dirty Sally (1975) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mus Expo (4:05)
-02. Every Night And Day (2:58)
-03. My Baby's Walking Around (2:34)
-04. Honeymoon (3:08)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B6317823FB34E84C3767F50A1BD99D0FA6E365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171409   (395585) от 05.10.2017
-
-Cerrone - Hysteria (2002) [FLAC|Lossless|tracks + .cue] <Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Only One (5:15)
- 02. Gonna Get You (5:20)
- 03. Hysteria (4:05)
- 04. Love On The Dance Floor (6:32)(   Читать дальше...   )Жанр: Disco, HouseПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577B7D5D59AA593C8857479F394BFF559EC535DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

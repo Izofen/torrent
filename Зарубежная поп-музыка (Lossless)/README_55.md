@@ -1,3 +1,32 @@
+###  Публикация: 934352   (502056) от 05.09.2015
+
+A-Ha - Cast In Steel (2015) 2CD [FLAC|tracks+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End Of The Affair
+02. Mother Nature Goes To Heaven
+03. Nothing Is Keeping You Here
+04. Shadowside (Demo Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEA118B4006F4F6F0127D95C1196DD6F1F305BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541525   (500966) от 31.08.2012
 
 George Michael - White Light (CD Single) (2012) [FLAC|Lossless]<Pop>
@@ -723,35 +752,6 @@ Side Walk - No Stop Hit Mix (1989) [FLAC|Lossless|image + .cue] <Pop, Cover, Med
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4A3351C870CD636292F1FD02934A5444449637B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319189   (486819) от 10.08.2019
-
-Stella Donnelly ‎ - Beware Of The Dogs (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Man (03:33)
-02. Mosquito (03:11)
-03. Season’s Greetings (02:49)
-04. Allergies (02:55)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8745631B30BF2DE7C97FD5B3E756F98F426E2030
 ```
 
 https://mybot314.ru/tekegram_catalog/

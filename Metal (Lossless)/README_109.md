@@ -1,3 +1,282 @@
+###  Публикация: 507524   (683456) от 08.06.2012
+
+Stream of Passion - Darker Days (2011) Japanese Edition [FLAC|Lossless]<Symphonic Gothic Metal / Progressive / Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_683456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost
+02. Reborn
+03. Collide
+04. The Scarlet Mark
+05. Spark
+06. Our Cause
+07. Darker Days
+08. Broken
+09. This Moment
+10. Closer(   Читать дальше...   )Жанр: Symphonic Gothic Metal / Progressive / Female VocalПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135124   (682898) от 18.05.2017
+
+Voyager - Ghost Mile (2017) [FLAC|Lossless|tracks] <Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascension
+02. Misery Is Only Company
+03. Lifeline
+04. The Fragile Serene(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA393A802F31C7CC95D703045C40C735A9ECF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 213090   (682736) от 26.06.2010
+
+Ozzy Osbourne - Scream [Japanese Edition] (2010) [FLAC|Lossless]<Heavy Metal/Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_682736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Die (6:07)
+02. Let Me Hear Your Scream (3:26)
+03. Soul Sucker (4:35)
+04. Life Won't Wait (5:07)
+05. Diggin' Me Down (6:04)
+06. Crucify (3:30)
+07. Fearless (3:42)
+08. Time (5:32)
+09. I Want It More (5:37)
+10. Latimer's Mercy (4:27)(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506056   (682617) от 08.06.2012
+
+Pain of Salvation - 13 albums (1997-2011) [FLAC/WavPack|Lossless] <Progressive Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_682617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road Salt Theme (00:44)
+02. Softly She Cries (04:16)
+03. Conditioned (04:15)
+04. Healing Now (04:29)
+05. To the Shoreline (03:03)
+06. Break Darling Break (Bonus track) (02:22)
+07. Eleven (06:55)
+08. 1979 (02:52)
+09. Of Salt (Bonus track) (02:36)
+10. The Deeper Cut (06:07)(   Читать дальше...   )1997-2011Жанр: Progressive Metal, Progressive RockПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535854   (682590) от 08.03.2022
+
+Spirit Of The Forest - Kingdom Of Despair (2010) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystic Caves (5:06)
+02. Animosity (5:42)
+03. A Strange Forest (2:08)
+04. Echoesof Deepness (6:08)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3921D0BAB65A2827D30576B872B7DDB0EAAF57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535697   (682515) от 08.03.2022
+
+Farseer - Crowned By The Hammer (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into Oblivion (06:43)
+02. The Valiant Dead (04:26)
+03. Calamitas (04:26)
+04. Legion (05:06)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592A6074C7F9957D025D1CFE4879302B80553A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535855   (682228) от 08.03.2022
+
+Spirit Of The Forest - A Brew Of Lightning And Terror (2007) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (02:02)
+02. The Forest (07:06)
+03. The Calm Before Tempest (05:08)
+04. Lord Of The Storm (04:43)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62E87524A44D11DE7CA98F231DA124D86A01A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289873   (682156) от 18.03.2019
+
+Hollowheart - Hollowheart (2016) [FLAC|Lossless|WEB-DL|tracks] <Love, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Falling Away
+02 - City Of Angels
+03 - Heartbeat
+04 - Burning(   Читать дальше...   )Жанр: Love, Gothic RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FE67F94039AD1C12F4F02926480CD45DA17F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289933   (682085) от 18.03.2019
+
+Darkwater - Human (2019) [FLAC|Lossless|tracks + .cue] <Rock, Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Beginning (6:20)
+02. In Front of You (7:28)
+03. Alive (Pt. I) (1:26)
+04. Alive (Pt. II) (7:22)(   Читать дальше...   )Жанр: Rock, Progressive Metal, Power MetalПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F56567C3A0C10E0D890E5B0EE28C0721058B46C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029304   (681853) от 26.06.2016
 
 Rammstein - Liebe Ist Fur Alle Da (2009) [FLAC|Lossless|image + .cue] <Rock, Industrial>
@@ -497,269 +776,6 @@ Minsk - 3 albums (2005-2009) [FLAC|Lossless] <Post-metal, Sludge, Post-hardcore,
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508810   (677183) от 11.06.2012
-
-Shrinebuilder ‎– Shrinebuilder (2009) [FLAC|Lossless] <Stoner / Doom Metal, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solar Benediction (08:44)
-02. Pyramid Of The Moon (07:35)
-03. Blind For All To See (07:27)
-04. The Architect (05:56)
-05. Science Of Anger (09:25)2009Жанр: Stoner / Doom Metal, SludgeФормат: CD, AlbumПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507171   (677049) от 11.06.2012
-
-Isis - 13 albums (1998-2012) [FLAC/APE|Lossless] <Post-Metal, Progressive metal, Sludge, Doom Metal, Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677049.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: (00:40:26)
-01. Carry (06:59)
-02. Hymn (09:31)
-03. Weight (13:29)
-04. The Beginning and the End (10:25)1998-2012Жанр: Post-Metal, Progressive metal, Sludge, Doom Metal, Post-RockПродолжительность: 06:20:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029999   (676792) от 29.06.2016
-
-Masterstroke - Sleep (2007) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transition
-02. Killing Creatures
-03. Turn Away
-04. Under Our Command(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C13D03AE171BE0FBA88A63E3390789F1623C5F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030004   (676791) от 29.06.2016
-
-Starkill - Fires of Life (2013) Japan [FLAC|Lossless|image + .cue] <Symphonic Metal, Melodic Death Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispers of Heresy
-02. Fires of Life
-03. Sword, Spear, Blood, Fire
-04. Below the Darkest Depths(   Читать дальше...   )Жанр: Symphonic Metal, Melodic Death Metal, Power MetalПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDB88C4B9ADFF69C1AFED35B37D2716D97E8984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029982   (676787) от 29.06.2016
-
-Glorior Belli - Sundown (The Flock That Welcomes) (2016) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lies-Strangled Skies
-02. World So Spurious
-03. Rebels in Disguise
-04. Thrall of Illusions(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6857EC0DFF2F29C0C5AF88E3BA37FCD160FFBD77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030006   (676784) от 29.06.2016
-
-Whyzdom - Blind (2012) Japan [FLAC|Lossless|image + .cue] <Gothic Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lighthouse
-02. Dancing with Lucifer
-03. Cassandra's Mirror
-04. On the Road to Babylon(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42897B93CF239C937FE11FA8381CFE23DAD82F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536273   (676685) от 11.03.2022
-
-New Horizon - Gate of the Gods (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Horizon (Intro) (1:27)
-02. We Unite (5:46)
-03. Stronger Than Steel (3:44)
-04. Cry for Freedom (5:26)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D865B9E816F1477984A809C3BC8D1821AF65F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029984   (676681) от 29.06.2016
-
-Loudness - The Sun Will Rise Again (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Sun Will Rise Again
-02 The Metal Man
-03 Mortality
-04 Shout(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A430B912E9DBC7C1C558C3821C5971BFAB8867AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030019   (676669) от 29.06.2016
-
-Sarcofago - Die... Hard!!! (2015) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro Da Satanas
-02 - Satanas
-03 - Nightmare
-04 - Third Slaughter(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:18:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8C14F2225B38C3B791E6C7F8087D32AEC6CA53
 ```
 
 https://mybot314.ru/tekegram_catalog/

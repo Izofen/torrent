@@ -1,3 +1,38 @@
+###  Публикация: 484821   (89381) от 19.04.2012
+
+Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_89381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Punta Del Soul (5:31)
+02. Southwest Passage (5:50)
+03. First-time Love (4:05)
+04. Western Women (4:40)
+05. Dancing in the Township (6:07)
+06. Old Bones (6:14)
+07. In the Middle of the Night (5:52)
+08. T. K. O. (5:48)
+09. Polina (6:56)
+10. Lupita (1:08)(   Читать дальше...   )1989Жанр: Jazz, Contemporary, Crossover JazzПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485063   (89372) от 19.04.2012
 
 Jessy Martens & Band - Brand New Ride (2012) [WavPack|Lossless]<Blues, Blues-Rock>
@@ -323,36 +358,6 @@ The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Loss
 08..  Down to the Bone -  Gotta Get Back To You  (5:11)
 09..  The Crusaders -  Spiral  (6:10)
 10..  Down to the Bone -  Brooklyn Heights  (7:13)(   Читать дальше...   )2012Жанр: Jazz, FusionПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481890   (87952) от 12.04.2012
-
-Алексей Козлов и ансамбль "Арсенал" - Reconciliation/Примирение (2011) [APE|Lossless]<Jazz, Fusion, Bebop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Year / Ещё один год(3:10)
-02. Lonely Dandy / Одинокий денди(6:07)
-03. Third Wind / Третье дыхание(8:52)
-04. Miles Blues / Майлз-блюз(6:34)
-05. Brothers Reconciliation / Примирение братьев(9:05)(   Читать дальше...   )Жанр: Jazz, Fusion, BebopПродолжительность: 01:13:12
 
 ## Скачать торент
 ```bash

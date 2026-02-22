@@ -1,32 +1,3 @@
-###  Публикация: 1684860   (127354) от 17.12.2023
-
-Bob Brookmeyer New Art Orchestra - New Works: Celebration (1997) 1999, Challenge Records [FLAC|Lossless|tracks + .cue] <Cool, Third Stream, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celebration Jig [2:32]
-02. Celebration Slow Dance [8:24]
-03. Celebration Remembering [10:59]
-04. Celebration Two And [10:16](   Читать дальше...   )Жанр: Cool, Third Stream, Big BandПродолжительность: 01:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8902A5522CD997F440EF03A2285AF2ED859E4D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684867   (127353) от 17.12.2023
 
 Charles Mingus - Blues & Roots (1959) 2007, Warner Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -745,6 +716,35 @@ Dexter Gordon - Settin' The Pace (1943 - 1950) 4CD, 2001, Proper Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC7966991B2BF2891E9F71BC407E711EB1CE8CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686531   (126432) от 23.12.2023
+
+The Stan Getz Quartet - Pure Getz (1982) Concord Records [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Up and Up [8:16]
+02. Blood Count [3:39]
+03. Very Early [7:11]
+04. Sipping at Bell's [5:08](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBE6E9727F15ACCD864664FBF113CD0B5E4FCA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

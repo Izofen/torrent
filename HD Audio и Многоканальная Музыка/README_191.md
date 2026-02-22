@@ -1,3 +1,177 @@
+###  Публикация: 1788557   (68542) от 30.03.2025
+
+Phil X & The Drills - Pow! Right In The Kisser (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't Wake Up Dead (2:28)
+02.  Fake The Day Away (3:52)
+03.  Heal (3:08)
+04.  Find A Way (4:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3435AEE3E20178666D7205449D890380064150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788558   (68541) от 30.03.2025
+
+Van Meurs Van Peppen - Blues and Soul for Lovers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Must Leave Today (5:06)
+02.  Don't Let It Be (4:57)
+03.  The One I Love (5:56)
+04.  Won't Change My Wooden Man For You Sugar (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53494476A1060C842A248164B5C60E385B85C339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788527   (68540) от 30.03.2025
+
+Erja Lyytinen - Smell the Roses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Smell the Roses (4:40)
+02.  Going to Hell (5:01)
+03.  Abyss (7:21)
+04.  Dragonfly (5:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8392F1CADEF7379FCB45781DECC3DD89D3CAD26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788561   (68539) от 30.03.2025
+
+William Roche - Ramblin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Smooth Sailin' (3:08)
+02.  Deep Pockets (3:24)
+03.  Rhodes Piano (3:14)
+04.  Hele Suimensa (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222F9A7DBF01D03305E55E6AF50E788CC100DB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788474   (68535) от 30.03.2025
+
+Nightwish - Once (2004) Released, 2013, Nuclear Blast [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Chest of Wonders
+02. Wish I Had an Angel
+03. Nemo
+04. Planet Hell(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09EED9BC75D4789E2AC28BE59545AB55EFE00F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788433   (68534) от 30.03.2025
+
+Don Dokken - Up From The Ashes (1990) [APE|24/96|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68534.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Crash'n'Burn
+A2 1000 Miles Away
+A3 When Some Nights
+A4 Forever(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3413E3A452548C4D6DB7B6E58B292C55DA8733FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788560   (68532) от 30.03.2025
 
 W.E.T - Apex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -570,180 +744,6 @@ Aeonian Sorrow - международная мелодик-дум-метал/ф�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBC99651D76B408754434EA309F642C11CC108EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788894   (68419) от 01.04.2025
-
-Occult - The Enemy Within (1996) Reissue, 2016, Cosmic Key Creations [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68419.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Souls
-A2 Inquistion Of The Holy
-A3 Crossing The Boundaries (Of Life And Death)
-A4 Selfbetrayel(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A798D0A79E7DFD2E82C5AB7B8BFE9F680A6644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788839   (68418) от 01.04.2025
-
-Katatonia - For Funerals to Come... (1995) EP, Reissue, 2011, Peaceville [FLAC|24/96|image + .cue|Vinyl-Rip] <Doom, Death Metal, Gothic, Alternative, Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68418.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Funeral Wedding
-A2 Shades Of Emerald Fields
-A3 For Funerals To Come...
-A4 Epistel(   Читать дальше...   )Жанр: Doom, Death Metal, Gothic, Alternative, Progressive Rock, MetalПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A551BE8AFBFD6489BCCC7F1B25AE91BEFB1532FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789091   (68389) от 02.04.2025
-
-Тяжелый День - Два Альбома (1988, 1989) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68389.jpg" />
-</div>
-
-
-###  Подробнее
-
-00:36:20
-
-A1 Дай Мне Знать • Let Me Know
-(В. Бажин)(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FA5B246CBB4422FED57DF59995F39D298C3D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789099   (68367) от 02.04.2025
-
-Red Rocks Worship - The King Is Coming (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gospel>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68367.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. Gates (Live) [00:05:04]
-00. Spirit of Elijah (Live) [00:06:39]
-00. Never Gets Old (Live) [00:06:36]
-00. The King Is Coming (Live) [00:06:30](   Читать дальше...   )Жанр: Christian, GospelПродолжительность: 01:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1899155C3DECDACBE64A80164B3A48EF44F232C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789108   (68359) от 02.04.2025
-
-Polo & Pan - 22:22 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop, Downtempo>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Piano & The Violin [00:02:52]
-02. Pareidolies [00:05:47]
-03. Disco Nap [00:03:14]
-04. Nenuphar [00:04:16](   Читать дальше...   )Жанр: Indie Pop, DowntempoПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9161449458479B5C3295B4B307F478E81E64895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789094   (68358) от 02.04.2025
-
-Perfume Genius - Glory (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Art Pop, Chamber Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Mirror [00:03:32]
-02. No Front Teeth [00:04:46]
-03. Clean Heart [00:03:52]
-04. Me & Angel [00:03:22](   Читать дальше...   )Жанр: Indie Pop, Art Pop, Chamber PopПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79018E46A4611B505B26BD47098A08CA0C025E4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

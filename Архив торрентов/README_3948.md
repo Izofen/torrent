@@ -1,142 +1,3 @@
-###  Публикация: 579406   (346023) от 24.11.2012
-
-Train Wallpapers (21.11.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC059FD0D1DCA5F3DEE2196AAC3AF61FA7336F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580470   (346022) от 24.11.2012
-
-VA - Level 2 Presents Viva Brazil (2012) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346022.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Level 2 - Deeper Love (06:35)
-2. DJ Roots - Rush Me (feat Sopheye) (05:40)
-3. Critycal Dub - Situations (06:40)
-4. DJ Chap & Andrezz - Double Shock (05:32)
-5. Subsid & L Side - Wasting Time (06:17)
-6. Level 2 - She Goes Away (06:37)
-7. DJ Chap & Andrezz - Doing The Same Thing (05:25)
-8. Critycal Dub - Deep Motion (06:37)
-9. DJ Chap & Digital Hunters - Call Me (06:16)
-10. Unreal - Jack & Coke (05:16)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 02:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12994AFC857EEB0E3FE840C70194D72F009A3A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579402   (346020) от 24.11.2012
-
-Desktop Wallpapers (21.11.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B15FA54FB3B85D79A5C1DBA162FC80CCAB3C6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579934   (346019) от 24.11.2012
-
-[Wallpapers] Девушки и авто(часть 4)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые авто...Дувушки тоже ничего...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92754B24EED9BA8849FC5AB652FA9D0B15957192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580017   (346017) от 24.11.2012
-
-Чудесное превращение/ A Saintly Switch (1999) TVRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруги Андерсон понимают, что их развод неизбежен. Бывший футболист и его беременная жена устали от ссор, взаимных упрёков и обоюдного нежелания идти на уступки. Единственный сдерживающий фактор — это дети, которым, к счастью, удаётся найти «волшебное средство» решения семейных проблем…Жанр: Фэнтези, Мелодрама, Комедия, Семейный, СпортРежиссер: Питер БогдановичАктеры: Вивика А. Фокс (Vivica A. Fox), Дэвид Алан Грир (David Alan Grier), Эл Уоксмен (Al Waxman), Скотт Камбербэтч (Scott Cumberbatch (в титрах: Scott Owen Cumberbatch)), Шейдиа Симмонс (Shadia Simmons), Дэвид Кили (David Keeley), Ру МакКлэнахан (Rue McClanahan), Фрэнк Уэлкер (Frank Welker)Перевод: Профессиональный (одноголосый)Продолжительность: 01:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF229EBF49A899A6EA8EB139ED35DFD1CED7523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580327   (346016) от 24.11.2012
 
 Dhamika - In Control (2012) [MP3|320 кб/с]<Ambient, Psychill, Downtempo>
@@ -736,6 +597,148 @@ Twitterrific - Простой в использовании, Истинная п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B98E5BD40B0538EF9BE680692811FDDB96A54AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257441   (345797) от 26.10.2018
+
+Unclutter 2.1.12d [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unclutter - это новое удобное место на рабочем столе для хранения заметок, файлов и клипов.
+Чтобы открыть карман, просто наведите мышь на самую верхнюю часть экрана и прокрутите вниз. Перетащите элементы из других приложений в верхнюю часть экрана, чтобы сохранить их в Unclutter.
+
+Будучи всего лишь одним легким жестом, Unclutter становится удивительно полезным и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2018Разработчик: Eugene Krupnov, UJ.LabsПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654D3A8EC533C7D20205DDD6A3293BD4E02279C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257418   (345793) от 26.10.2018
+
+Network Kit X 7.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345793.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью данного приложения ы можете быстро найти всю информацию о своей сети. Информация, такая как внутренний и внешний IP, имя ISP, сетевое имя, MAC-адрес, адрес шлюза, маска подсети и адреса DNS. Кроме того, одним щелчком Вы можете PING домен, запросить сервер или использовать службу NSLookup/Dig. Вы можете скопировать любую информацию о сети с котрой Вы соединены (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2018Разработчик: Fausto RistagnoПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2266790B5A266E6A4CFFA682FCC823D94CE006EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580436   (345767) от 24.11.2012
+
+XXL/ XXL (1997) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть одного из членов семьи зачастую кардинально меняет жизнь огромного количества людей. Долгие годы не общавшиеся между собой родственники съезжаются на поминки, не предполагая, что этот момент может стать для них переломным. Особенно во Франции, где так горяча кровь неверных жен, так непредсказуемы старики. А если в воздухе пахнет крупным наследством, произойти может все что угодно.Жанр: Мелодрама, КомедияРежиссер: Ариэль ЗейтунАктеры: Мишель Бужена (Michel Boujenah), Жерар Депардье (Gérard Depardieu), Эльза Зильберштейн (Elsa Zylberstein), Катрин Жакоб (Catherine Jacob), Джина Лоллобриджида (Gina Lollobrigida), Гад Эльмалех (Gad Elmaleh), Феликс Фибич (Felix Fiebich), Морис Шевит (Maurice Chevit)Перевод: Профессиональный (многоголосый)Продолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3FEC8743029A3E61B08C8626C97D30762B6BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580156   (345765) от 24.11.2012
+
+[Wallpapers] Обои на рабочий стол - calendar wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые обои календарь.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BA58FD06955B7DF33618B5E3728AA9E174231A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580306   (345762) от 24.11.2012
+
+VA - Magic Island - Music For Balearic People Vol. 4 (Mixed by Roger Shah) (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Norvis & Seepryan - Ibiza Feelings (Original Mix) (5:00)
+02. Garrido & Skehan - Split Second (Original Mix) (6:19)
+03. Rocking J - New Dawn (Original Mix) (6:04)
+04. Jamie Carpenter feat. Ciaran Warren - You're Not Alone (Original Mix) (5:58)
+05. Sunlounger & Zara Taylor - Try To Be Love (Roger Shah Naughty Love Mix Radio Edit) (3:54)
+06. Kim Svard feat. Chase - When The Sun Goes Down (MI4 Mix) (4:39)
+07. Sunlounger & Rocking J - Finca (Roger Shah & Rocking J Original Mix) (6:05)
+08. Julian Wess & Mike Carey - Limitless (Original Mix) (6:40)
+09. Hanski & Jjoo - Utopia (Original Mix) (6:31)
+10. Aly & Fila meet Roger Shah feat. Adrina Thorpe - Perfect Love (Radio Edit) (3:41)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753CFB168EAE6C92CE66E83785A0229AAC924913
 ```
 
 https://mybot314.ru/tekegram_catalog/

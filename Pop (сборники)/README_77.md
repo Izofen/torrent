@@ -1,3 +1,32 @@
+###  Публикация: 1056236   (480679) от 25.09.2016
+
+VA - Дискотека 80-90 годов по-новому (Dj Ikonnikov - E.x.c Version) (38) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Fugitive (Dj Ikonnikov E.x.c Version) (06:45)
+02. Вячеслав Диденко и гр. Компания - Девушка (Dj Ikonnikov E.x.c Version) (05:00)
+03. Boney M - Blue Beach (Dj Ikonnikov E.x.c Version) (04:08)
+04. C.C. Catch - House Of Mystic Lights (Dj Ikonnikov E.x.c Version) (03:01)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED07E647431DC25C4E4F611DF3F4234622A8395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938597   (479788) от 19.09.2015
 
 VA - Попсовая соточка MTV Сборник 5 (2015) [MP3|256 кб/с]<Pop>
@@ -740,35 +769,6 @@ VA - Summer Vacation: National Pop Music (2020) [MP3|320 Kbps] <Pop, Folk, Ethni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD3AEE069E1B59EF053822F8D03D75BE7635C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939942   (470687) от 23.09.2015
-
-VA - Top 100 Зайцев.Нет Cентябрь (2015) [MP3|320 кб/с]<Pop, Dance, Rap, R&B, Rock, Chanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470687.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тимати feat. Рекорд Оркестр - Баклажан (03:07)
-002. Imany - Don’t Be So Shy (Filatov & Karas Remix) (03:10)
-003. Время и Стекло - Имя 505 (03:19)
-004. Паола - #Девочкитакиедевочки (02:24)(   Читать дальше...   )Жанр: Pop, Dance, Rap, R&B, Rock, ChansonПродолжительность: 05:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92C0A435FFCC5F4ADA5BBCBFCB14FF2639B2363
 ```
 
 https://mybot314.ru/tekegram_catalog/

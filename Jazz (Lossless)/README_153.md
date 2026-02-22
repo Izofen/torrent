@@ -1,3 +1,32 @@
+###  Публикация: 913407   (607239) от 28.06.2015
+
+Nico Morelli - Nico Morelli (2003) [FLAC|tracks]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tarante
+02. Blues Zen
+03. Il Canto di Sadone
+04. Pezzo X(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86ECAE2EAE23AC6D18DBD075A0248F49AA7109A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913410   (607235) от 28.06.2015
 
 Novi Singers - Novi sing Chopin (1995) [FLAC|tracks+.cue]<Vocal Jazz, Classical>
@@ -716,35 +745,6 @@ Larry Vuckovich - Somethin' Special (2011) Tetrachord Music [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B304D685D618D5AB8D5DC5A557CFC548474FA366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231648   (604153) от 19.06.2018
-
-Larry Vuckovich Trio - Street Scene (2006) Tetrachord Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dexter's Mode [5:58]
-02. Street Scene [6:43]
-03. News For Lulu [6:07]
-04. As Time Goes By Mambo [4:43](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5B3AB3FC39141AA7090E32FE61AFF49D833571
 ```
 
 https://mybot314.ru/tekegram_catalog/

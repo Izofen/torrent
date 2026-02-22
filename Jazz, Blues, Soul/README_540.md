@@ -1,3 +1,32 @@
+###  Публикация: 1715771   (111434) от 13.04.2024
+
+Jo Stafford - It Had to Be You: Lost Radio Recordings (1950 - 1951) 2017, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Had to Be You [2:47]
+02. Nevertheless (I'm in Love with You) [2:51]
+03. Ain't Misbehavin' [2:37]
+04. I'll Get By (As Long as I Have You) [2:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C3D4091F83C380E653DD1B929785F08C145DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715770   (111433) от 13.04.2024
 
 Tal Farlow - Second Set (1956) 1998, Tokuma [FLAC|Lossless|tracks + .cue] <Bop, Cool>
@@ -716,35 +745,6 @@ Tedd Graves - The Day My World Turned Blue (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E99C6E5DCCCB90CC5428E8AE90DC5EEC4143C8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717044   (111289) от 18.04.2024
-
-Louis Prima & Keely Smith - Live from Las Vegas (1958) 2005, Capitol Records [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them There Eyes/Honeysuckle Rose [4:54]
-02. I've Got You Under My Skin [2:11]
-03. Should I/I Can't Believe That You're in Love with Me [5:55]
-04. Don't Take Your Love from Me [2:54](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEB2F3C073A1925C9F9CBE2B5F1000218F87403
 ```
 
 https://mybot314.ru/tekegram_catalog/

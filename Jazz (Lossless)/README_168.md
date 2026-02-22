@@ -1,3 +1,32 @@
+###  Публикация: 1045197   (561825) от 22.08.2016
+
+Diane Schuur - Love Songs (1993) [FLAC|Lossless|image + .cue] <Smooth Jazz, Cool Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall In Love
+02. Speak Low (From The Musical Production "One Touch Of Venus")
+03. I Thought About You
+04. Prelude To A Kiss(   Читать дальше...   )Жанр: Smooth Jazz, Cool JazzПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1370A2B4E1BDB61AEC2974F7F3BED66E159F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556111   (561770) от 08.06.2022
 
 Charnett Moffett - New Love (2021) Motema Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -716,35 +745,6 @@ Marion Brown - Vista (1975) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Avant-Gard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C25CE8A57CC0D3F2D0369FEE8B1EB1F13ED8168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924440   (559178) от 03.08.2015
-
-Gary Burton Quintet - Whiz Kids (1987) /ECM/[FLAC|image+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Clown [08:58]
-02. Yellow Fever [06:53]
-03. Soulful Bill [08:12]
-04. La Divetta [08:35](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48D989BB8BD61FB837F66FAF644CB24CB56A234
 ```
 
 https://mybot314.ru/tekegram_catalog/

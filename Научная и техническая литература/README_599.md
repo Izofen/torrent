@@ -1,3 +1,317 @@
+###  Публикация: 1727831   (54400) от 04.06.2024
+
+Е.М. Гершензон и др. | Радиотехника (1986) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для студентов физико-математических факультетов педагогических институтов. Изложены вопросы радиотехники и вычислительной техники. Главное внимание уделено физическим принципам работы рассматриваемых устройств.Жанр: ЭлектроникаИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8783A9B2127CE97F820BFC437245238CB4264FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727890   (54390) от 04.06.2024
+
+Н.А. Рубанова | Математическое программирование (2024) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54390.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии изложены теоретические сведения, примеры решения задач и типовые расчеты по ряду разделов математического программирования, а именно по линейному программированию, целочисленному линейному программированию, транспортной задаче, сетевому планированию и теории игр.
+Книга предназначена для студентов экономических специальностей высших учебных заведений.Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341DF780E866E961AF64C7A516DDDE6213369894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727883   (54367) от 04.06.2024
+
+Rob Houston (editor) | How Food Works (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54367.jpg" />
+</div>
+
+
+###  Подробнее
+
+An easy-to-understand visual guide to the facts of food and nutrition. Through a highly visual approach that uses bold infographics, explore the good, the bad, the confusing, and the trending world of food. Covering a wide variety of topics, from dieting to gluten intolerance, debunks common food myths, explains nutrition, covers the food groups, and looks into organic (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBA8246128E63E1F294BD21D9B6F93CBDF4029A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728053   (54238) от 05.06.2024
+
+Andrew Scott Conning | The Kodansha Kanji Learner's Course (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54238.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Step-by-Step Guide to Mastering 2300 Characters is a complete guide to mastering all the kanji needed for genuine literacy in Japanese. It anchors a comprehensive kanji learning system, supported by the KLC Graded Reading Sets, the KLC Green Book, the KLC Wall Chart, and keystojapanese.com (a user-support website for forming study groups, exchanging tips, and tracking (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Kodansha USAФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966F8A8F12270C65B46E2D9C6A025081819171D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728206   (54192) от 06.06.2024
+
+Т.В. Авдеенко, М.Ю. Целебровская | Введение в искусственный интеллект и логическое программирование. Программирование в среде Visual Prolog (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее учебное пособие представляет собой вводную часть курса по искусственному интеллекту, основной целью которого является изучение модели представления знаний на основе классических логических исчислений - исчисления высказываний и исчисления предикатов. Пособие затрагивает не только теоретические основы рассматриваемой модели представления знаний, но и ее (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НГТУФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC41162A687247D0C0BE97669927E5EA94CAD291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728127   (54173) от 06.06.2024
+
+Angeles Gavira, Christine Stroyan, Angela Wilkes (еditors) | Spanish English Bilingual Visual Dictionary (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54173.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Spanish English Bilingual Visual Dictionary by Dorling Kindersley is vocabulary guide to the world around you. With over 10,000 fully illustrated terms arranged by theme, language learning has never been easier. For tourist and business travellers alike, DK's Bilingual Visual Dictionary series is by your side when buying food, talking about work, discussing health, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BA39DDAA5B38B6B83DAC3AB8DD9203F3D39DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728379   (54156) от 06.06.2024
+
+С.Н. Тихонов | Основы электрорадиотехники (1956) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для курсов радиомастеров и радиотелеграфистов ДОСААФ. Книга знакомит читателя с основными законами и физическими явлениями электрорадиотехники и подготавливает его к изучению радиотехнической аппаратуры. Главное внимание в книге уделено изложению физической сущности явлений, происходящих в электрических схемах. Большинство разделов иллюстрировано (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Военное издательство министерства обороны Союза ССРФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1795B599875FCDA064C55C3453E4F6947867EB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728492   (54105) от 07.06.2024
+
+К.Х. Кекчеев | Психофизиология маскировки и разведки (1942) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54105.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге обобщаются данные по всем видам чувствительности и даются рекомендации для управления чувствительностью - снижения порогов восприятия для разведчиков, "слухачей", и, наоборот, повышения порогов чувствительности наблюдателей при задачах маскировки. Предлагаются способы борьбы с различными негативными явлениями, связанными с процессами восприятия (   Читать дальше...   )Жанр: учебное пособиеИздательство: Советская наукаФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32B12EA7A74ACE3407204C2AF885B4ECDDFF55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728531   (54086) от 07.06.2024
+
+Julie Lachance | Basic English. Second edition (2015) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Practice Makes Perfect Premium: Basic English is a bestselling workbook that provides learners of English with invaluable tools to ensure mastery of essential concepts. Three-page units cover each subject, which can be completed in a mere 10 to 15 minutes! Each lesson covers a single grammar concept, supported by many clear examples. Extensive exercises keep you (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-HillФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD129A3EA0BF6DAB655C5DF78694327089A57F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728516   (54085) от 07.06.2024
+
+Rob Houston (editor) | History of the World Map by Map (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54085.jpg" />
+</div>
+
+
+###  Подробнее
+
+More than 140 detailed maps tell the story of pivotal episodes in world history, from the first human migrations out of Africa to the space race.
+Custom regional and global maps present the history of the world in action, charting how events traced patterns on land and ocean-patterns of exploration, discovery, or conquest that created empires, colonies, or theaters (   Читать дальше...   )Жанр: КартографияЯзык: английскийИздательство: Dorling Kindersley Limited, SmithsonianФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5435D9E32997276614DA58A6FAD1C54427BF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728383   (54084) от 07.06.2024
+
+С.Н. Тихонов | Основы электрорадиотехники (1959) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главное внимание в книге уделено изложению физической сущности явлений, происходящих в электрических схемах.Жанр: ЭлектроникаИздательство: Военное издательство министерства обороны Союза ССРФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D1034A6320D8B953BB51E2904FFF38573F6324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728405   (54074) от 07.06.2024
+
+Б. Сергеев | Военная хитрость (1942) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54074.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издании собраны боевые эпизоды, случаи проявления солдатской смекалки помогавшие бойцам Красной Армии бить немцев.Жанр: Военное делоИздательство: ЦК ВЛКСМ "Молодая гвардия", МоскваФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773947F95AE7ECEC56EDCC289E54298A1C94F0EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728436   (54073) от 07.06.2024
 
 С.Н. Тихонов | Электротехника для начинающих (1969) [PDF]
@@ -368,333 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CCAA5861F59946B134FC5CE87F17C6EA814D05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729576   (53667) от 11.06.2024
-
-Mohammad. Alhawary | Arabic Grammar in Context (2016) [EPUB, MP3] [EN/AR]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arabic Grammar in Context offers a unique and exciting approach to learning grammar. It presents grammar as a necessary and essential tool for understanding Arabic and for developing comprehension and production skills.
-Features include:
-authentic texts from a rich variety of sources, literary and non-literary, used as the starting point for the illustration and (   Читать дальше...   )Жанр: учебное пособиеЯзык: английский, арабскийИздательство: RoutledgeФормат: EPUB, MP3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5A58CE53BAD8491EF632B9324CA5C501E79555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729490   (53636) от 11.06.2024
-
-Carol Fehringer | German Grammar in Context. Third edition (2019) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53636.jpg" />
-</div>
-
-
-###  Подробнее
-
-German Grammar in Context, 3rd Edition includes updated textual examples which provide the basis for an accessible and engaging approach to learning grammar.
-Using authentic texts from a variety of contemporary sources such as newspapers, magazines, poems, TV and film scripts, books or online sources, each chapter explores a key aspect of German grammar. Following (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B3B4EDB2977E4B118F89DF822C23238D81A968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729709   (53522) от 12.06.2024
-
-Adrian Wallwork | Top 50 Vocabulary Mistakes (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Each chapter contains:
-Examples of typical mistakes.
-Examples of correct usage.
-Rules / explanations.(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0124C77E3BF966E5B837BF12DDA5D08E4E3B7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729755   (53517) от 12.06.2024
-
-Bruce Stirling | TOEFL Strategies. A Complete Guide to the iBT (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53517.jpg" />
-</div>
-
-
-###  Подробнее
-
-TOEFL iBT recycles opinion-based and fact-based arguments for testing purposes from start to finish. If you want a high score, you need essential argument scoring strategies. Learn how to maximize scoring by rhetorically analyzing all reading, listening, speaking and writing tasks.
-
-TOEFL iBT от начала до конца использует аргументы, основанные на мнениях и фактах, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Nova PressФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715D24F212003636D31D0ED782DFED5315683BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729672   (53515) от 12.06.2024
-
-В.И. Константинов, А.Ф. Симонов | Сборник практических примеров и задач по общей электротехнике (1972) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53515.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны примеры и задачи из электротехнической практики, снабженные подробными пояснениями, анализом полученных результатов и практическими выводами. Кроме того, даны задачи для самостоятельной проработки (без решений , но с ответами).
-Задачи соответствуют теоретическому материалу, изложенному в учебнике В. С. Попова и С. А. Николаева «Электротехника» (изд-во (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CB3109EAE00A73136ED18CF8C1CAD629D82EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729666   (53509) от 12.06.2024
-
-В.С. Попов, С.А. Николаев | Электротехника (1969) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание книги соответствует программе курса электротехники для техникумов, дополненной вопросами новой техники: электрические машины автоматических устройств; основы электроавтоматики; вычислительные устройства; электротехнология.
-В книге рассматриваются основные вопросы расчета цепей постоянного и переменного токов, краткая теория измерения электрических и неэлектрических (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F771994B92F7ACFA4B037CAE4DE5B48B8BB0695B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729677   (53508) от 12.06.2024
-
-В.С. Попов, С.А. Николаев | Общая электротехника с основами электроники (1972) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53508.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены электрические цепи, электрические машины и трансформаторы, электротехнические намерения и приборы, электропривод и аппаратура управлением, передача и распределение электрической энергии, электронные лампы, гаэоразрядные приборы, полупроводниковые приборы, фотоэлектрические приборы, усилители и генераторы.
-Книга предназначена для учащихся техникумов (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AAB86FB98DF538E4733EE76021253A9C9E84A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729893   (53449) от 13.06.2024
-
-Р.С. Гутер, Б.В. Овчинский | Элементы численного анализа и математической обработки результатов опыта (1970) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть содержит основные методы вычислительной математики: приближенное решение уравнений и систем, простейшие задачи линейной алгебры, параболическую интерполяцию, численное интегрирование и решение дифференциальных уравнений. Вторая часть посвящена теории вероятностей в объеме, предусмотренном общей программой втузов. В третьей части рассматривается теория (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A634BB92FF7AD1AA8C9CA6684CF665A4B6B9C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729947   (53447) от 13.06.2024
-
-Learnhotenglish | English Unlocked! Book III (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn over 500 words and move up a level with our course book English Unlocked! Over 100 pages of quality learning. Your complete, self-study English learning pack.
-Inside...
-How to learn English with us.
-How to access Hot English.(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Hot English PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9F0BF1F97143063A5B97A475F661C62A8E18DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729889   (53429) от 13.06.2024
-
-Christopher Seely, Kenneth G. Henshal | The Complete Guide to Japanese Kanji (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53429.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Complete Guide to Japanese Kanji: (JLPT All Levels) Remembering and Understanding the 2136 Standard Characters includes: Clear, large-sized entries, All of the General Use Joyo Kanji Characters, Japanese readings and English meanings, stroke-count, stroke order, usage examples, mnemonic hints for easy memorization.
-This book is essential to anyone who is planning (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Tuttle PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694FCFBB3F2F0059BD04B7C066AC096A08FDA040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729994   (53425) от 13.06.2024
-
-Emma Eberlein O.F. Lima, Samira A. Lunes | Falar, ler, escrever portugues. Um curso para estrangeiros. (2 издание) (2006) [PDF] [PT]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Falar, ler, escrever português - Um curso para estrangeiros. Livro do aluno (com a nova ortografia). Este livro, através de método estrutural-comunicativo, leva o aluno totalmente principiante a entender, falar, ler e escrever português com fluência e segurança, em nível de linguagem coloquial correta. É destinado a adultos (   Читать дальше...   )Жанр: учебное пособиеЯзык: португальскийИздательство: Editora Pedagogica E UniversitariaФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3C6A64105D054650E9AAF5BE824E889D690137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730121   (53344) от 14.06.2024
-
-Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53344.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Language Files: materials for an Introduction to Language and Linguistics" has become one of the most widely adopted, consulted, and authoritative introductory textbooks to linguistics ever written. The scope of the text makes it suitable for use in a wide range of courses, while its unique organization into student-friendly, self-contained sections allows (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Ohio State University PressФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6437FFBC83466B028F2FDDD63E19795B5E383E8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

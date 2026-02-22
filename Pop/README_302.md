@@ -1,3 +1,90 @@
+###  Публикация: 1432984   (161201) от 20.12.2020
+
+VA - Zumba Beats Strong 2021 (2020) [MP3|320 Kbps] <Electro Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samuel Kimkò, El 3mendo - Mi Novia - Radio Edit (3:15)
+02. Joe Berte - Choka Choka (feat. El 3mendo) - Club Radio Edit (3:04)
+03. Diego A., Oscar Yestera - Retumba Moombah - Original mix (3:29)
+04. Luka J Master, Carlo M. - Baila! (feat. Karlon Urbano) - Radio Mix (2:43)(   Читать дальше...   )Жанр: Electro Pop, DanceПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11152B7E3FDC8C0CA4E46C989CA816C21E22A04F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674240   (161099) от 05.11.2023
+
+VA - Car Music Dance Hits 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Jim - Beat It (2:30)
+02. Baris Turna - Right Now (Na Na Na) (2:24)
+03. Nickobella - Let Me Know (2:40)
+04. Old Jim - Balenciaga (2:24)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A89F15D063F5BD4B7E6F11D5AC9A1019A1BA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433305   (161077) от 20.12.2020
+
+Sade - Bring Me Home: Live 2011 (2012) RCA 88691977359 [FLAC|Lossless|image + .cue]< Sophisti-Pop, Adult Contemporary R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soldier of Love (6:17)
+ 02. Skin (3:57)
+ 03. Kiss of Life (5:04)
+ 04. Love Is Found (4:05)(   Читать дальше...   )Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6605FAC84AC63740100D8ADEA0FEB8523D73CF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518125   (161047) от 18.12.2021
 
 Electronic ( Nen Order, The Smiths ) - Raise The Pressure (1996) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -670,90 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:095F622E0975B78B13D1B68848AE80080316CC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 158571   (160718) от 06.11.2023
-
-Аида Ведищева - Где-то на белом свете (2002) [APE|Lossless] <Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где-то на белом свете (Песенка о медведях) (2:55)
- 02. Дорожная (2:31)
- 03. Черный кофе (2:15)
- 04. Помоги мне (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8727C2ADC2E8AACA4AB94002200F2F63BB420B84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185527   (160711) от 06.11.2023
-
-Группа Стаса Намина 'Цветы' - Ностальгия по настоящему. Юбилейный концерт с участием гостей (2005) [FLAC (image+.cue)|Lossless]<ВИА, Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВИА, Советская эстрадаПродолжительность: 02:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BB951AF557CC5F4EB4151EFEAABA95EBD018AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674661   (160646) от 07.11.2023
-
-VA - Hit News Vol. 8 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superfly - Is It Love
-02. Two Boys - Calling For Affection
-03. Essono - I Can't Understand
-04. Twenty 4 Seven - Keep On Goin'(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C810E63242815CDF924C294C2D7D63A22F567F
 ```
 
 https://mybot314.ru/tekegram_catalog/

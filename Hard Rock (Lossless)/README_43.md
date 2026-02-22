@@ -1,3 +1,32 @@
+###  Публикация: 1550826   (591226) от 13.05.2022
+
+Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paroxysm
+02. One And Only
+03. Hero
+04. War Machine(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550958   (590777) от 14.05.2022
 
 Stinger - Expect The Unexpected (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -716,35 +745,6 @@ H.E.A.T. - Into The Great Unknown (2017) [FLAC|Lossless|image + .cue] <Melodic H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2AC12D56087B0F299C552DA68D6FD4FBA7F877C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041507   (582475) от 09.08.2016
-
-Mike Pachelli - Tube Driven (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Intro [0:03:12.35]
-02. Stand Alone [0:05:18.47]
-03. Texas Twin [0:04:07.53]
-04. Good Day's Rain(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502FE046920491BDA01112DB90664EAF15E0F1F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

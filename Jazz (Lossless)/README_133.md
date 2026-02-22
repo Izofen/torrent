@@ -1,3 +1,32 @@
+###  Публикация: 1223628   (673416) от 05.05.2018
+
+Sylvia Bennett - I Wish You Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Adult Contemporary, Easy Listening, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bésame Mucho 3:14
+02. It's Impossible (feat. Nathan East) 3:05
+03. C'est Magnifique 2:52
+04. I Wish You Love 3:44(   Читать дальше...   )Жанр: Adult Contemporary, Easy Listening, Smooth JazzПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA53D2B4713DA259C88A5734E84667609E9C501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136376   (673341) от 23.05.2017
 
 Duke Ellington - Bigbands Live: Liederhalle Stuttgart, March 6, 1967 (2011) Jazzhaus [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ Stan Kenton Orchestra - The Stuttgart Experience (1972) 2016, Jazz Haus[FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94DCD5E33993263FF76CC03D9C606CC890DD9229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030775   (672405) от 01.07.2016
-
-Tim Bowman - Paradise (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Of Love [04:55]
-02. Paradise [04:49]
-03. The Only One [04:41]
-04. I'll Never Forget [04:51](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F42A6B964C9393607D64C9D5779E73CFD1CC362
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1723122   (109589) от 14.05.2024
+
+Xana - The Sex Was Good Until It Wasn't (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lip Service
+02. the sex was good!
+03. Better Kind Of Best Friend
+04. Homewrecking Era(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C260DF8B198B2CB5980BF93651359AD37F3A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722702   (109560) от 14.05.2024
+
+Teenage Bad Girl - Separate (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Dance, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Separate [00:03:38]
+02. Provision [00:04:29]
+03. California Wang [00:03:23]
+04. Buried Feeling [00:03:09](   Читать дальше...   )Жанр: Electro, Dance, DiscoПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D413AF51492CDC19D96BB921F125AD22259376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723194   (109538) от 15.05.2024
+
+VA - The Best of Italo Disco, Vol. 3 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patty Johnson - I'm In Love (Europe Version) (6:03)
+02. Jimmy Ross - First True Love Affair (Larry Levan Remix) (7:09)
+03. International Music System - Dancing Therapy (128 Bpm) (6:05)
+04. Tom Hooker - Love Attack (Extended Mix) (5:25)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2938F1514B387EC76DE7352D3FFFFBC41C5B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723396   (109503) от 16.05.2024
 
 VA - The Disco Rock Years (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco. Pop, Rock>
@@ -657,93 +744,6 @@ VA - Fulltime, Vol. 4 (Reworked by DJs) (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF1D69CB6994874B8B04A40F0A9125B0AC7ED0EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726238   (108825) от 27.05.2024
-
-VA - Fulltime, Vol. 5 (Reworked by DJs) (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kano - It's a War (Purple Disco Machine & Lorenz Rhode Remix) (6:42)
-02. Maxero - Silenced By You (Mind Enterprises Remix) (5:15)
-03. Alex Party - Don't Give Me Your Life (Classic Alex Party Mix) (5:33)
-04. Kano - Unconditional Lover (Dr. Packer Remix) (6:12)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A2938954EAC442ECA49D29EA49957AD56ACA43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726107   (108824) от 27.05.2024
-
-БИО - 1987 556 25 7 (2024) [FLAC|Lossless|tracks + .cue] <Synth-Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Рельсы, шпалы
-02.Тоннели метро
-03.Наша славная страна
-04.Электроток(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E118EA3B356062CBFE7D826E4692AE3F410CEC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726232   (108823) от 27.05.2024
-
-VA - Fulltime, Vol. 1 (Reworked by DJs) (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ago - You Make Me Do It (Dr. Packer & Mark Lower Remix) (6:24)
-02. Kano - It's A War (Re-Tide Remix) (6:56)
-03. B.B. and Band - All Night Long (Massimo Berardi Remix) (6:20)
-04. Rainbow Team - Let' Em Be (Villanis Dub Edit) (6:08)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4177C7143CA2F2D61167B2AB0874E7ABA01391
 ```
 
 https://mybot314.ru/tekegram_catalog/

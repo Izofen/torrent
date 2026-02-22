@@ -1,96 +1,3 @@
-###  Публикация: 1435200   (146695) от 27.12.2020
-
-Heavy Pettin - Best Of Heavy Pettin (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In and out of Love [00:03:53]
-02 - Sole Survivor [00:03:42]
-03 - Born to Burn [00:03:22]
-04 - Northwinds [00:04:02](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62D754ECE60B1AAAE71F488FFDDFEF4289BA05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590178   (145557) от 16.12.2012
-
-Claudia Cane Sings Bon Scott - CC/DC - A True AC/DC Remake (2011) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock'n'Roll Damnation 03:38
-02. Rock'n'Roll Singer 04:54
-03. Go Down 05:31
-04. Hell Ain't A Bad Place To Be 04:10
-05. Riff Raff 05:09
-06. Crabsody In BLue 04:47
-07. It's A Long Way To The Top 05:06
-08. High Voltage 04:13
-09. Girls Got Rhythm 03:25
-10. Gonna Be Some Rocking 03:19Жанр: RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617DEF5CB7A1D7FE2FB95BCCB81C2F616315C49C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435486   (144359) от 28.12.2020
-
-Yes - Songs From Tsongas (2014) 35th Anniversary Concert, 3xCD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144359.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. Intro - Firebird Suite (02:15)
- 02. Going For The One (05:31)
- 03. Sweet Dreams (06:41)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FDD19B0BB48524F8D306E9A25ABD4B8A2C10EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435393   (144350) от 28.12.2020
 
 SvaDaRa - Pilgrim / Зареница (2020) [MP3|320 Kbps] <Progressive Folk Rock>
@@ -778,6 +685,105 @@ The Doors - Back In Town (Live) (1968) Reissue, 2023, Vision [MP3|320 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4AA8EB4AC9A2365F33088DF467E1B9FACA91676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593578   (134194) от 25.12.2012
+
+Hard Rain - Два альбома (1997 - 1999) [MP3|320 кб/с]<Melodic Hard Rock | AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  An Ordinary Day
+02.  Eat It Up
+03.  Lightnin' Strikes
+04.  Never Say Never
+05.  No One Can Show You The Way
+06.  Rock Me In Ya Cradle
+07.  Showtime
+08.  Step Back
+09.  Talks Like A Lady
+10.  When The Good Times Come(   Читать дальше...   )Жанр: Melodic Hard Rock | AORПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF4F08433568583FA6CA9FE1BA6B2700701B66E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594314   (133658) от 26.12.2012
+
+Hinder - 3 альбома (2003, 2008, 2010) [MP3|320 кб/с]<Hard-rock, Alternative, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -2 Sides of Me
+02 -All American Nightmare
+03 - What Ya Gonna Do
+04 - Hey Ho
+05 - The Life
+06 - Waking Up the Devil
+07 - Red Tail Lights
+08 - Striptease
+09 - Everybody's Wrong
+10 - Put That Record OnЖанр: Hard-rock, Alternative, Post-GrungeПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25688080B2A7AEA444C40A934E766196527D742F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680885   (133399) от 01.12.2023
+
+Peter Gabriel - i/o (2023) [MP3|320 Kbps] <Art-rock, neo-folk, progressive-rock, world-music>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panopticom (Dark-Side Mix) [00:05:16]
+02. The Court (Dark-Side Mix) [00:04:20]
+03. Playing For Time (Dark-Side Mix) [00:06:18]
+04. i/o (Dark-Side Mix) [00:03:53](   Читать дальше...   )Жанр: Art-rock, neo-folk, progressive-rock, world-musicПродолжительность: 2 CD, 02:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE333510BC55210E2BAD011F71B9BAA41B563F63
 ```
 
 https://mybot314.ru/tekegram_catalog/

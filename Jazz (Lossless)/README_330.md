@@ -1,32 +1,3 @@
-###  Публикация: 1695649   (120079) от 30.01.2024
-
-Coccolite - Extrasystole (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exorde (1:07)
-02. Et Pour Finir (3:07)
-03. CPU 180 Degrés (4:17)
-04. Qu'il Est Agréable De Croiser Un Chevreuil En Forêt (4:07)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80AFDEBAAF565ABED477E030083D6DF1910A1E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695650   (120078) от 30.01.2024
 
 Grant Clarkson - South West Five (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -746,6 +717,35 @@ The John Irvine Band - The Starships Are Gathering (2024) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C19765EF364EA1B39B9B018A88F9B440E66EC55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696830   (119315) от 04.02.2024
+
+Joe Pass - Meditation: Solo Guitar (1992) 2002, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation (Meditacao) [4:52]
+02. Shadow Waltz [2:06]
+03. Mood Indigo [3:24]
+04. More Than You Know [3:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CA487108EDA048F7749853C26B4872564AC24E
 ```
 
 https://mybot314.ru/tekegram_catalog/

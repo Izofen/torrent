@@ -1,3 +1,90 @@
+###  Публикация: 1396458   (746969) от 15.07.2020
+
+Charlie Shavers Featuring Maxine Sullivan - Four Classic Albums Plus 1954 - 1959 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746969.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Keepin' Out Of Mischief Now [2:50]
+02. How Can You Face Me? [3:19]
+03. S'posin' [3:38](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 02:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AD583FD77207EE86EE97097155CE320E3AB199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020133   (746905) от 25.05.2016
+
+Sonny Rollins - After the Bridge (1964) 2CD, Remaster, 2014, Sony Music[FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746905.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Fifty-Second Street Theme [14:54]
+ 02.Django [05:28]
+ 03.Now's the Time [16:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226D0B6F886FD30F8DA596F86125555607DF08AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 323949   (746766) от 15.04.2011
+
+Louis Armstrong & Ella Fitzgerald - Ella and Louis (1956) [FLAC 2.0 96/24 |tracks (WEB DL)]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Can't We Be Friends? (3:03)
+02 Isn't This A Lovely Day? (5:11)
+03 Moonlight In Vermont (2:55)
+04 They Can't Take That Away From Me (3:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 0:44:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282317   (746702) от 11.02.2019
 
 Michael Chapman - True North (2019) [FLAC|Lossless|tracks + .cue] <Blues, Folk, World & Country>
@@ -653,90 +740,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A7CA236E52908E709F9632FA8DD19F0271B5A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282684   (743839) от 13.02.2019
-
-Greta Matassa - I Wanna Be Loved (2009) Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broadway [5:03]
-02. Chan's Song [5:40]
-03. Alone in the World [4:56]
-04. I Wanna Be Loved [6:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580EEF15056EA188F2482D6AE8241B8A7C343FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783691   (743817) от 05.05.2014
-
-VA - Pure... Blues (2010) Box Set, 4 CD [FLAC|Lossless]<Blues, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта коллекция из 68 треков на 4 дисках проведет вас по маршруту всех стилей блюза от старинного кантри-блюза (Robert Johnson "Cross Road Blues", Son House "Death Letter Blues"), через городской, в том числе чикагский блюз (Nina Simone "Blues for My Mama", Billie Holiday "Billie’s Blues"), британский блюз (Jeff Beck "JB’s (   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 03:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DFC3157D22F43579990B6C0165963D99B5BC4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524482   (743768) от 16.01.2022
-
-Anita O'Day - The Complete Anita O'Day Verve / Clef Sessions (1952 - 1962) 9CD, 1999, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743768.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lover Come Back to Me [2:27]
-02. Lullaby of the Leaves [3:10]
-03. Rock and Roll Blues [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 09:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D427510AE274F6E6A66C319E3472A8FA3860A428
 ```
 
 https://mybot314.ru/tekegram_catalog/

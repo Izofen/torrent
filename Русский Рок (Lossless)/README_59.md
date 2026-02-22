@@ -1,380 +1,3 @@
-###  Публикация: 1599403   (159876) от 23.12.2022
-
-Через Край - Через Край (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Через край [00:03:07]
-02. Художник [00:04:22]
-03. Крылья [00:02:58]
-04. Не важно [00:03:39](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4352622058D07ABD043FAE3149DCD971B7774EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675844   (159799) от 10.11.2023
-
-Чёрный кофе - Переступи порог (1987) Reissue, 2023, Moroz Records [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Переступи порог
-02. Владимирская Русь
-03. Жизни рассвет
-04. Листья(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8482E291E9D435CF5974F661A5114F53BEA055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599407   (159779) от 23.12.2022
-
-М.Ё.Д. - Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лезвие [00:04:05]
-02. Господин Фантазия [00:03:42]
-03. Свет [00:05:02]
-04. Сердце шторма [00:03:50](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33698BF6D45BB187C64FD3162BA84BE7CEF1F589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599442   (159746) от 23.12.2022
-
-Кино - 12-22 (2022) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нам с тобой
-02. Мама, мы все тяжело больны
-03. Троллейбус
-04. Сосны на морском берегу(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4459F1D90F772659789B8C070EC7D238E65763AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599355   (159739) от 23.12.2022
-
-Ария - Ballads (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159739.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мечты
-2. Без тебя
-3. Всё, что было
-4. Ангельская пыль(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C992AE91D6BCFDC06E22C5B702F6366994C23B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599523   (159671) от 24.12.2022
-
-Witness Effect - WE (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Безумие [00:03:37]
-02. Поколение рабов [00:03:12]
-03. Террор [00:03:57]
-04. Апатия [00:04:20](   Читать дальше...   )Жанр: Death, Groove MetalПродолжительность: 00:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18B8F6EEB2E5BDC4618A7B7A0E57360338381AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599509   (159665) от 24.12.2022
-
-IceHammer - Печать ночных штормов (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy metal, Power metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Циклон (Intro) [00:01:36]
-02. Хозяин морей [00:05:05]
-03. Посейдон [00:02:39]
-04. Там, где я не был [00:05:52](   Читать дальше...   )Жанр: Heavy metal, Power metalПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8508C5A011563FBC5D1B1000F6992CE79918CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599514   (159664) от 24.12.2022
-
-BadTrip Boys - Первый (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BadTrip Boys [00:03:28]
-02. Зай [00:03:27]
-03. Дай леща [00:03:18]
-04. Твоя любовь [00:03:21](   Читать дальше...   )Жанр: RockПродолжительность: 00:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7508D9CC17BDD5779B0CE792E40D0AE92CCDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599724   (159661) от 24.12.2022
-
-Supruga - Смерть культуры (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Hardcore, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гора крестов [00:03:04]
-02. Теория относительности [00:02:34]
-03. Священная болезнь [00:04:37]
-04. Крах [00:02:48](   Читать дальше...   )Жанр: Blackened Hardcore, Female VocalПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36062B0AF650506EEF9F506C700A67E7E8FCA602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599670   (159658) от 24.12.2022
-
-Kanatami - IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ДОМ СОВЕТОВ [00:03:54]
-02. МАГАЗИН [00:03:45]
-03. ПАРА СЕКУНД [00:03:51]
-04. ГРЯЗЬ [00:03:10](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5B50927F45D7ABCA3A06E9E3CD044CC9A008EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599680   (159652) от 24.12.2022
-
-ФАКТОРИЯ - Последние романтики (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Все в твоих руках [00:02:57]
-02. Зимняя [00:02:43]
-03. Подкассетник [00:03:11]
-04. Все равно [00:04:10](   Читать дальше...   )Жанр: Alternative, Indie Rock, Pop PunkПродолжительность: 00:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18B685C7A36829ECFC4059B15D0FE5BF41B18C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600085   (158952) от 26.12.2022
-
-Коррозия Металла (Паук) - Russian Vodka Вокруг Мира / Фестиваль Надежд (1987-1989) Remastered, 2022, Meat Stocks Records [FLAC|Lossless|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С.П.И.Д [00:05:00]
-02. Героин [00:04:45]
-03.  Crazy House [00:04:08]
-04. Съешь Живьём [00:03:11](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 2 CD, 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784E75C62E2FE231F8EC56DF15464F48962B6DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676152   (158899) от 12.11.2023
-
-КняZz - Платим за Шута! Том 1 (2023) [FLAC|lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Платим за Шута (03:38)
-02. Клуб бывших алкоголиков (02:55)
-03. Разбойничье дело (03:16)
-04. Бывший раб (04:42)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21DD0D30BF1229A91CB685D94FA99E9A2C9D577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967582   (158246) от 22.12.2015
 
 Бачинский и NAMBA WON - №1 (2000) [FLAC|Lossless|tracks + .cue] <rock>
@@ -584,35 +207,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676694   (155497) от 14.11.2023
-
-Саша Цой - Основан на реальных событиях (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155497.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Невзначай
-2. Светлячки
-3. Часть меня (Которой нет)
-4. Свобода(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40A86BC03AC43291A523DA7C15C78D800F71ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600698   (155469) от 28.12.2022
 
 Радиопомехи - Стихи и мастурбация (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
@@ -699,35 +293,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825880   (151007) от 18.10.2025
-
-Чёрный обелиск - Коробка (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151007.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Человек
-2. Между небом и землёй
-3. Коробка
-4. Нас нет(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B68D063FDD61D2EF86015A7D7489FE5CC8F08DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601169   (150974) от 31.12.2022
 
 In Depth Of My Mind - Reflection of Self-Destruction (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -750,6 +315,441 @@ In Depth Of My Mind - Reflection of Self-Destruction (2022) 2CD [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42EC5FBFB0648E6B043885665E2DE897DADD1329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601247   (150961) от 31.12.2022
+
+Metaline - Hidden Hand (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 元线 [00:01:47]
+02. Goddance [00:02:57]
+03. Break Mental Fever [00:02:50]
+04. Forever in My Heart [00:04:34](   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29121EEAF1299A355A6A7A422CE50C52F436C672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086689   (150194) от 25.12.2016
+
+Distemper - 25 (2014) [FLAC|Lossless|tracks] <Ska Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Луна (3:02)
+02 - Резиновая Жопа (2:22)
+03 - Бультерьер (1:55)
+04 - Зловещий Мир Подъездов (2:41)(   Читать дальше...   )Жанр: Ska PunkПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A70829955E41904AA00A9243F97EAB2D0CAF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969283   (148585) от 26.12.2015
+
+Чёрный Кофе - Осенний Порыв (2015) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А Наш-то, Наш
+02. Отчаяние
+03. Волкодав
+04. Листопад(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF3D3BDDE7BAD17B93D370335FDD85B8BD6ABB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271652   (148522) от 24.12.2018
+
+Евгений Маргулис - Туда-сюда! (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ЭрЖэДэ блюз (Поезд)
+02. Про Аню
+03. Ч.Б. Кино
+04. Танго-манго (М.С.)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7908AE455E7E97EC16012133F44BB6CDC766BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348017   (147479) от 25.12.2019
+
+Дмитрий Ревякин - Снег-печенег (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147479.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Топи зеркал
+2. Апокрифы
+3. Пёс
+4. Снег-печенег(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A927327213FBF35E78BED5FCC9D998FC257788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435217   (146671) от 27.12.2020
+
+Пятая бригада - Концерт в ДК '99 (2011) [FLAC|Lossless|image + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весна                 [3:12]
+02. Дикаприо              [1:57]
+03. Несчастная любовь     [2:22]
+04. Посвящается патриотам [0:47](   Читать дальше...   )Жанр: PunkПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36777491D000564CC8C98EB4B247648B3E78EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435234   (146292) от 27.12.2020
+
+Конец фильма - Ретроградный Меркурий (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146292.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Снег
+2. Royal Bikini
+3. Пистолет или яд (feat. Галина Босая)
+4. Ток(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABEDCCC07F0607A5FD7C9E707DEEC8BF4DB5BED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678350   (146185) от 21.11.2023
+
+Sot-75 - Мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Под мелом [00:05:29]
+02. Только о тебе [00:03:29]
+03. Жду тебя [00:03:28]
+04. О весне [00:03:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EAD67BB5326074F04B2369200E0DCFBCA6F7AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678231   (146166) от 21.11.2023
+
+тринадцать карат - еще одна ночь (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. еще одна ночь [00:02:25]
+02. запутанный мир [00:02:22]
+03. останови меня [00:02:10]
+04. 00:13 [00:00:40](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488FEE7484B78FDB6ECB41A2538CA2EA6FE0051F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677994   (146023) от 21.11.2023
+
+Скворцы Степанова (Stepanov's Starling) - Всё хорошо! (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фрисби [00:03:23]
+02. Микеланджело [00:03:32]
+03. Саня [00:04:39]
+04. Петельман [00:03:04](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4941A4D42C48BB6751AB3876E619E3283960D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435091   (145943) от 27.12.2020
+
+Красная плесень - Союз параллельных проектов 60 (2020) [FLAC|Lossless|image + .cue] <Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я хочу девушек любить                          [2:06]
+02. Отсос                                          [2:28]
+    (Верка Смердючка – «Пылесос»)
+03. Харлей                                         [3:11](   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6C420E97155474CAF637594540A82B03899C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087599   (144805) от 28.12.2016
+
+Омела - Хрустальная Сторона (2016) [FLAC|lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1 Ночное вдохновение (05:45)
+02. 2 Память бересты (06:16)
+03. 3 Травник (05:43)
+04. 4 Премьера (04:17)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB70FCBD8A7B91F75E939987A1A490AB9357D8F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087596   (144781) от 28.12.2016
+
+Кот-Баюн - Сильнее зла (2016) [FLAC|lossless|image + .cue] <Folk-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Was A Time (04:05)
+02. Prayer Before The Battle (02:08)
+03. Memory (03:20)
+04. On the Kulikov Field (02:48)(   Читать дальше...   )Жанр: Folk-MetalПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A76582A31168575540B36390C79DFF43CD9C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087600   (144709) от 28.12.2016
+
+Тролль Гнет Ель - Карьялали (2016) [FLAC|lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1. Де-да (05:10)
+02. 2. Карьяллтролль (05:12)
+03. 3. Медведь Йонне (04:30)
+04. 4. Самогонка (03:45)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228E6FEBFB838257989CE895AD52D6B96C6701AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678659   (144043) от 22.11.2023
+
+Powder Burns - ... На Горячей Земле (2023) [FLAC|Lossless|WEB-DL|tracks] <Death-Metal, Oldschool>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Неравный Бой [00:03:21]
+02. Архитектор [00:03:59]
+03. Лагерь Смерти [00:04:00]
+04. Черный Тюльпан [00:04:38](   Читать дальше...   )Жанр: Death-Metal, OldschoolПродолжительность: 00:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150C43ACBE7510C74E4A60E284FD6D98E9E6B3C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1816024   (4393) от 04.09.2025
+
+Ami Taf Ra - The Prophet and The Madman (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Gospel>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak to Us (Intro) [00:01:09]
+02. How I Became a Madman [00:06:53]
+03. The Prophet [00:08:45]
+04. God [00:04:08](   Читать дальше...   )Жанр: Jazz, GospelПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830783ED7B8D48E425DA0894711F0C61FFDF0A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816292   (4391) от 04.09.2025
+
+Yates McKendree - Need To Know (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  BURNIN’ TEARS (2:57)
+02.  NEED TO KNOW YOU BETTER (3:08)
+03.  RUN IT IN THE GROUND (2:53)
+04.  I DON’T CARE (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299E8389D7EA416E17831FB9410EE223FC3B40BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816339   (4390) от 04.09.2025
+
+Pearly Drops - The Voices Are Coming Back (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delusional On Sunset Blvd [00:03:34]
+02. Ratgirl [00:03:28]
+03. Mermaid [00:04:09]
+04. Shallow [00:03:36](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0176E943882261C4DBE390B56A0746474DDAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816271   (4389) от 04.09.2025
+
+Bushfire - Snakes Bite Tales (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cult of Conformity (4:18)
+02.  Force of 1000 Suns (4:36)
+03.  Dead Man's Hand (4:21)
+04.  Self-Inflicted Bite (4:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F938233ED285DE466292075894214E95B77B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816277   (4388) от 04.09.2025
+
+James Big Jim Johnson - Highway Howlin (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gasoline in My Veins (3:12)
+02.  Sidebar Queen (2:48)
+03.  Red Lights & Leather Boots (3:18)
+04.  Devil’s in the Backseat (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100F71B16B2A22D0048A38A2CD5FF729F4E1C8A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816291   (4387) от 04.09.2025
+
+Unen - Forever Winter (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Prelude For The Wicked (2:01)
+02.  My Love's Broken (4:59)
+03.  In My Bones (4:23)
+04.  Black Heart (5:45)(   Читать дальше...   )Жанр: Hard Rock, Symphonic MetalПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64AC65B85CC6DC304C52266680A50AD47609A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816006   (4386) от 04.09.2025
 
 Scarlet Requiem - Precious Gemstone Of Graceful Charm And Elegant Beauty (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neoclassical, Melodic Death, Power Metal>
@@ -572,180 +746,6 @@ David Byrne - Who Is The Sky? (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C91E501BE1F03CCD52275E836C8F947025E8C99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816898   (3861) от 07.09.2025
-
-Ryan Adams - Heartbreaker (2000) 25th Anniversary Edition, 2025, PAX-AM [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alt Country, Singer-Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damn Sam (I Love a Woman That Rains) [00:02:31]
-02. My Winding Wheel [00:03:13]
-03. To Be Young (Is to Be Sad, Is to Be High) [00:03:14]
-04. Why Do They Leave? [00:03:17](   Читать дальше...   )Жанр: Rock, Alt Country, Singer-SongwriterПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFDCBEB9AFA0D382AC9D08662F3971EC009CD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816895   (3857) от 07.09.2025
-
-Justin Bieber - Swag II (2025) 2CD [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ALL I CAN TAKE [00:04:07]
-02. DAISIES [00:02:56]
-03. YUKON [00:02:43]
-04. GO BABY [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A918A72FB9FA5409DFBA28CAEF5D48E548C3DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816820   (3844) от 07.09.2025
-
-Faithless - All Blessed (2021) Deluxe - Explicit, 2021, BMG[FLAC 24/44.1|Lossless|WEB-DL|tracks] <House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3844.jpg" />
-</div>
-
-
-###  Подробнее
-
-◈ 01 - Poetry (feat. Suli Breaks) (00:03:38)
-◈ 02 - Gains (feat. Suli Breaks) (00:03:27)
-◈ 03 - I Need Someone (feat. Nathan Ball & Caleb Femi) (00:04:54)
-◈ 04 - Remember (feat. Suli Breaks & LSK) (00:07:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE4D0B054F781B087EDD50D20E65A2021A49D012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816886   (3717) от 08.09.2025
-
-Faithless - Champion Sound (2025) 4CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Find A Way (feat. Suli Breaks) [00:03:02]
-02. Dollars And Dimes (feat. Bebe Rexha) [00:02:48]
-03. Champion Sound (feat. LSK) [00:02:31]
-04. Emmanuel (feat. Emmanuel Jal) [00:04:28](   Читать дальше...   )Жанр: Progressive House, Downtempo, Trip-HopПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2CA3595990BEED1D4AB446307B2826100E4E309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816896   (3699) от 08.09.2025
-
-Big Thief - Double Infinity (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Indie Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Incomprehensible (3:53)
-02. - Words (3:47)
-03. - Los Angeles (3:57)
-04. - All Night All Day (4:49)(   Читать дальше...   )Жанр: Indie Rock, Indie FolkПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7CEFA35E42BA49136FD0A60D90A3EB42D7CB4FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530351   (3663) от 09.09.2025
-
-Pantera (Damageplan; Rebel Meets Rebel) - Studio Albums (12 releases) (1983-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Trash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pantera — американская рок-группа из Арлингтона, штат Техас, образованная в 1981 году братьями Эбботтами (гитарист Даймбэг Даррелл и барабанщик Винни Пол)1983 - Metal Magic
-1984 - Projects In The Jungle
-1985 - I Am The Night
-1988 - Power Metal(   Читать дальше...   )Жанр: Glam/Heavy Metal; Groove/Trash MetalПродолжительность: 10:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95ADC536632AE62D010BBDB7A4A9662E0C6B239D
 ```
 
 https://mybot314.ru/tekegram_catalog/

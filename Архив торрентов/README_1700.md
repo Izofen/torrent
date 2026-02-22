@@ -1,3 +1,30 @@
+###  Публикация: 1500999   (839592) от 07.10.2021
+
+Mozilla FireFox 93.0.0.7940 Portable by JolyAnderson [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla FireFox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. В него изначально входит проверка сайта на отслеживание, поддержка расширений и многое другое.
+Вашему вниманию предоставляется Portable версия браузера Firefox.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAE7DA76E3056BA0389D4E27C5DD78F1511A819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500958   (839589) от 07.10.2021
 
 Reg Organizer 8.76 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -667,32 +694,6 @@ VA - Black Hole Miami Sampler (17.03.2011) [MP3|320 kbps]<Trance, Progressive Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3321FA8103D782B81CF97FFE7B1D828D7C769810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309886   (839489) от 17.03.2011
-
-VA - Hits 2011 (16.03.2011) [MP3|~199 kbps]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BB5CF822AEE7BBCF878ED93576F136AEA2206C
 ```
 
 https://mybot314.ru/tekegram_catalog/

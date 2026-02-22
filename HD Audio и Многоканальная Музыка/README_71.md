@@ -1,3 +1,174 @@
+###  Публикация: 1674268   (161365) от 05.11.2023
+
+Vektor - Studio Albums (4 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vektor — американская прогрессив/трэш-метал группа из Темпе, основанная в 2002 году. Тексты группы сосредоточены вокруг научных, философских и футуристических тем.2009 - Black Future
+2011 - Outer Isolation
+2016 - Terminal Redux
+2021 - Activate (Single)Жанр: Progressive Thrash MetalПродолжительность: 03:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD5B0B41551BF23A4268344AD8771A4A8319377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674171   (161305) от 05.11.2023
+
+Chicago - Greatest Christmas Hits (2023) Remaster [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Snow! Let It Snow! Let It Snow! (2023 Remaster) [3:30]
+02. All Over the World (2023 Remaster) [4:21]
+03. White Christmas (2023 Remaster) [2:32]
+04. Have Yourself a Merry Little Christmas (2023 Remaster) [4:05](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352E92A050F79003E083254786E97F70DD2C5192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674163   (161290) от 05.11.2023
+
+Chicago - Chicago Christmas Complete (2023) Remaster [FLAC 24/192|24/96|24/44.1|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Pop RockПродолжительность: 02:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6582DB0887D59A00FA49086F221BC2CC417F77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674569   (160861) от 06.11.2023
+
+DGM - Momentum (2013) Reissue, 2014, Night Of The Vinyl Dead Records [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160861.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Reason
+A2. Trust
+A3. Universe
+B1. Numb(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BE03017CA1294C04BF4CA13EA7798BADCDA914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674546   (160839) от 06.11.2023
+
+David Coverdale - Snakebite (1978) [WavPack|24/192|image + .cue|Vinyl-Rip] <Blues Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On
+02. Bloody Mary
+03. Ain't No Love In The Heart Of The City
+04. Steal Away(   Читать дальше...   )Жанр: Blues Hard RockПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A0E81DF4E721EBDA49C8CD14E39E2B1CAB9954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674507   (160835) от 06.11.2023
+
+David Coverdale - Whitesnake (1977) Japan Edition [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Blues-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady
+02. Blindman
+03. Goldie's Place
+04. Whitesnake(   Читать дальше...   )Жанр: Hard Rock, Blues-rockПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0DB99FE15017F7B8CD88B777045DA6B307DFBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674575   (160800) от 06.11.2023
 
 ABBA - Voyage (2021) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, EuroDance>
@@ -568,181 +739,6 @@ James Blunt - Who We Used To Be (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3524940E2773CC9148E3F7190D46B7F2F0EBF226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599746   (159564) от 24.12.2022
-
-Ayreon - Universal Migrator, Pt. I & II (2000) 2022 remixed & remastered [DTS 5.1 CD-DA| 44.1/16|image+.cue|Audio-DVD] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая дилогия AYREON “Universal Migrator” была переиздана в различных форматах 18 ноября.
-Лидер AYREON Арьен Люкассен (Arjen Lucassen) заявил: "Я тщательно ремикшировал и ремастировал эти альбомы, и они будут выпущены во множестве форматов с кучей бонус-треков и книжкой комиксов... ". Вот один из этих форматов - Audio-DVD (не путать с DVD-Audio!) (   Читать дальше...   )Universal Migrator Pt 1: The Dream Sequencer
-01. The Dream Sequencer (5:09)
-02. My House On Mars (7:50)
-03. 2084 (7:41)(   Читать дальше...   )Продолжительность: 01:10:11+01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF9EC72A945A7D35F72BB3A5DCD9060CD6F9EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599928   (159385) от 25.12.2022
-
-Дмитрий Полторацкий - Моё Ружьё (1992) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159385.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 На Фазенду
-A2 Молдавское Вино
-A3 Ночка
-A4 Америка(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D0DD2F629618176FE3824694F0D366E7F648D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676081   (159314) от 11.11.2023
-
-illenium - ILLENIUM (2023) Remixes [FLAC 16/44.1; 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Electronic, Psytrance, Progressive House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starfall (Trivecta Remix) [3:47]
-02. Starfall (Lost Prince Remix) [3:28]
-03. Starfall (Gem & Tauri Remix) [4:26]
-04. Starfall (3THOS x Draeden Remix) [4:02](   Читать дальше...   )Жанр: Electronic, Psytrance, Progressive HouseПродолжительность: 02:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79B2A8E0C89E4FB243B2A42C914E2DADD0B6F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676143   (158997) от 12.11.2023
-
-Angelus Apatrida - Studio Albums (8 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks] <Thrash metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angelus Apatrida - трэш-метал группа из Альбасете, Испания, образованная в 2000 году.2006 - Evil Unleashed
-2007 - Give 'Em War
-2010 - Clockwork
-2012 - The CallЖанр: Thrash metalПродолжительность: 06:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87BCE0385384610A15E6892EE316C30AD015C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676137   (158995) от 12.11.2023
-
-Evile - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evile — британская трэш-метал-группа, сформированная в 1999 году в городе Хаддерсфилд, Уэст-Йоркшир.2007 - Enter the Grave
-2009 - Infected Nations
-2011 - Five Serpent's Teeth
-2013 - SkullЖанр: Thrash MetalПродолжительность: 05:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F672D0A1B05F47DBEEEE2E823802ED84FCAE36A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555578   (158834) от 12.11.2023
-
-Doro & Warlock - Studio Albums (18 releases) (1984-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Doro (Dorothee Pesch) — немецкая певица, экс-вокалистка хэви-метал-группы Warlock, в настоящее время занимается сольной карьерой. Доро начала карьеру в 1980-е и стала одной из первых женщин, прославившихся в тяжёлой музыке, за что получила от фанатов прозвище «Metal Queen».1984 - Burning The Witches
-1985 - Hellbound
-1986 - True As Steel
-1987 - Triumph And Agony(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 16:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C372952D471446A3A9610BA276D7348227003990
 ```
 
 https://mybot314.ru/tekegram_catalog/

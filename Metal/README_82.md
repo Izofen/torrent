@@ -1,3 +1,32 @@
+###  Публикация: 1412410   (418462) от 29.09.2020
+
+Mountains of Charlie - Unfinished Business (2020) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overton Window (05:31)
+ 02. Echo Chambers (04:33)
+ 03. Derrida's Poison (03:53)
+ 04. Soma Holiday (04:44)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF19292BF1AAEE8F36078E2C85768FA4BDC4C9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947766   (418110) от 17.10.2015
 
 Enshine - Singularity (2015) [MP3|320 кб/с]<Atmospheric Doom, Death Metal>
@@ -716,35 +745,6 @@ Epica - Live At Paradiso (2022) [MP3|320 Kbps] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB0D946179C536A0DB68097EBA93E62DB3515158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573675   (408739) от 02.09.2022
-
-Blind Guardian - The God Machine (2022) [MP3|320 Kbps] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deliver Us From Evil (5:22)
-02. Damnation (5:21)
-03. Secrets Of The American Gods (7:29)
-04. Violent Shadows (4:18)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9033725380052311A9A711E8C0A8A51CDD3C059
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1386872   (793552) от 30.05.2020
+
+Apollonia 6 - Apollonia 6 (1984) Reissue CD, 1990, Warner Bros. Records [MP3|320 Kbps] <Electronic, Funk Soul, Synth-pop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Birthday, Mr. Christian (7:09)
+02. Sex Shooter (3:40)
+03. Blue Limousine (6:22)
+04. A Million Miles (I Love You) (5:52)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Synth-pop, PopПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94988961C55CC0B701423B38DB008F819C5E2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010585   (793551) от 01.05.2016
+
+Ladies Of Soul - Live At The Ziggo Dome (2016)  [FLAC|Lossless|image + .cue] <Pop, RnB, Soul, Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture 2016 1:30
+02. Feel Good 3:39
+03. Night To Remember 2:23
+04. Soul & Supremes Medley 8:46(   Читать дальше...   )Жанр: Pop, RnB, Soul, Disco, FunkПродолжительность: 02:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADF310D0C9D1889C609CAD2100DE12C28A7B027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386734   (793467) от 30.05.2020
+
+VA - New Pop Top Hits 2020 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stargirlz - This Way 3:17
+02. DJ Absinth - Follow My Lead 3:35
+03. Dance Monkey - Dance Monkey 3:31
+04. Ruff Ryder - Freak 6:19(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2D5024A0916D3EFD5CD3BB0AD6165A3916E88A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123016   (793432) от 06.04.2017
+
+VA - Айсберг. Каникулы с Андреем Губиным (2001) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андрей Губин - Улетает лето
+02. Лето - Позови
+03. Reflex - Моя любовь
+04. Матрикс - Луна (latrack remix lotos)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5017BB9E4F296DA92CAB7C127043E35A9AD2A575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386723   (793409) от 30.05.2020
 
 Michael Bolton - Michael Bolton: Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop, Soul>
@@ -630,122 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4824FF1B718F36013E02129EB90D22F2649E1F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123232   (792336) от 07.04.2017
-
-Gilla - The HQ Vinil Collection (1975-1980) All Studio Albums [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джилла, она же Гизела Вюхингер (Gisela Wuchinger), родилась в 1950 году в австрийском городе Линце. Уже с пяти лет начала играть на бас-гитаре, затем освоила такие инструменты как тромбон и орган. Стала первой успешной исполнительницей в творческой карьере композитора и продюсера Фрэнка Фариана, который  во многом ещё успевал отрабатывать на ней свои будущие основные (   Читать дальше...   )Список альбомов:
-1975 - Willst Du Mit Mir Schlafen Gehn
-1976 - Zieh Mich Aus
-1977 - Help! Help!(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 03:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724377AE312A28C7CAC0493DF84401776336C370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123171   (792335) от 07.04.2017
-
-Денис Майданов - Что оставит ветер (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792335.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Что оставит ветер
-2. Час-пик
-3. Жена
-4. По дороге к богу(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE040B68E691F18B6EB5137082760B3D8817B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274669   (792269) от 08.01.2019
-
-Noel - Is There More To Life Than Dancing? (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Is Dangerous (9:55)
-02. Is There More To Life Than Dancing? (7:55)
-03. The Night They Invented Love (9:06)
-04. Au Revoir (3:19)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E553272E472C58840D3A368D16EC695383B1E8D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201676   (792101) от 25.01.2018
-
-Людмила Сенчина - Золушка (1975) Remastered, 2001, Melodiya Record Company Europe [MP3|320 Kbps] <Pop, Vocal>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Памяти исполнительницы посвящается.01. Золушка (3:45)
-02. Ты дождись меня (3:12)
-03. Я к тебе не вернусь (3:45)
-04. Ты (3:03)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AB6A9B42CF64DB5800A96B1D6A8A8B7B7C2E97
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1805810   (12025) от 09.07.2025
+
+VA - 101 Greatest Country Hits - Vol. Two: Country Sunshine (1994) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dottie West / Country Sunshine    [0:02:06.05]
+02. Ray Stevens / Misty    [0:02:55.70]
+03. B.J. Thomas / (Hey Won’t You Play) Another Somebody Done Somebody Wrong Song    [0:03:26.02]
+04. Tanya Tucker / Delta Dawn    [0:02:57.30](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2109B6CA87707CDE33889E5376D408BA9673070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811660   (8443) от 11.08.2025
 
 VA - The Orient Collective: Mystic Sands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>

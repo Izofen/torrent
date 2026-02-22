@@ -1,3 +1,33 @@
+###  Публикация: 871260   (881484) от 21.02.2015
+
+Lionel Hampton - Flying Home (2009) 10CD[FLAC|Lossless]<Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD1 (00:34:49)
+CD2 (00:30:28)
+CD3 (00:34:14)
+CD4 (00:35:20)(   Читать дальше...   )Жанр: Jazz, Swing, Big BandПродолжительность: 05:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41CDA341293A018253763B8CD975F5526CC4C529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996193   (881403) от 13.03.2016
 
 Dave "Fathead" Newman - Straight Ahead (1960) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -728,35 +758,6 @@ Brian Simpson - Out Of A Dream (2015) [FLAC|Lossless|WEB-DL|tracks]<Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D6FDE5855D85FC0033EDEB6A2D09BE610BABEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996708   (879401) от 14.03.2016
-
-Miles Davis - Blue Moods (1956-1984) 2001, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Time After Time [05:37]
- 02.Summertime [03:21]
- 03.Circle [05:51]
- 04.My Ship [04:30](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858460081BF97D52822BD0EE58E171F4215ECBA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

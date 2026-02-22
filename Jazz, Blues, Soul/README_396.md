@@ -1,3 +1,32 @@
+###  Публикация: 1265555   (274065) от 28.11.2018
+
+Sade - Rare Adventure (2003) Unofficial Release [FLAC|Lossless|tracks + .cue] <Soul, Funk, Jazz, House>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. I Never Thought I'd See The Day (Club Mix) (8:03)
+ 02/12. Pearls (Club Mix) (8:35)
+ 03/12. Love Is Stronger Than Pride (4:28)
+ 04/12. Super Bien Total (92 Remix) (6:50)(   Читать дальше...   )Жанр: Soul, Funk, Jazz, HouseПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FFB57C25B64A09936A894FBE710702EEE009E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083345   (273783) от 16.12.2016
 
 Le Tout-puissant orchestre Poly-rythmo (T.P. Orchestre Poly-Rythmo) - Madjafalao (2016) [FLAC|Lossless|tracks + .cue] <Afrobeat, fusion, psychedelic>
@@ -716,35 +745,6 @@ Coen Wolters Band - Broken Glass (2004) [FLAC|Lossless|image + .cue] <Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17DA703F76F9F7DC6785EEA190ACDBDAD847F222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337691   (272641) от 12.11.2019
-
-Nina Simone - A Very Rare Evening (2013) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Morning (B.Gibb) - 3:49
-02. Turn! Turn! Turn! (To Everything There Is a Season) (Seeger) - 4:17
-03. To Love Somebody (B.Gibb-R.Gibb) - 2:38
-04. Ain't Got No/I Got Life (From the Musical "Hair") (Rado-Ragni-MacDermot) - 5:22(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DCCFE7A5C37482D7A4AFA0A28660E0E04A7212
 ```
 
 https://mybot314.ru/tekegram_catalog/

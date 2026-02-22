@@ -1,3 +1,349 @@
+###  Публикация: 492121   (247882) от 05.05.2012
+
+VA - Seashore Desire #25 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance, Progressive Trance, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247882.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anaki - 333 (Original Mix)
+002. Andrew Rayel - 550 Senta (Original Mix)
+003. Artento Divini - Adhd (Original Mix)
+004. Christian Drost & DK Project - Always Connected (Original Mix)
+005. Sean Bay - At The End Of The World (Sean Bay Remix)
+006. Boom Jinx & Daniel Kandi - Azzura (Original Mix)
+007. Airborne Angel - Before The Sun Goes Down (Original Mix)
+008. Sean Tyas feat. David Berkeley - Believe (Original Mix)
+009. Marcel Woods - Black Angus (Original Mix)
+010. Avion - Brilliant (Original Mix)2012Жанр: Uplifting Trance, Dream Trance, Progressive Trance, TranceПродолжительность: 05:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65BFD04E4A5ABEDBCCF25995CAB9FA79F998BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492128   (247880) от 05.05.2012
+
+VA - Seashore Desire #26 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance, Progressive Trance, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247880.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fafaq - 21st Century
+002. Lunar Motion - Aozora (Original Mix)
+003. Paul Miller vs. Ronald De Foe - Aqua Virgo (Original Mix)
+004. Santerna - Aquamarine
+005. Radion 6 - B U Tiful (Original Mix)
+006. Orjan Nilsen - Between The Rays (Original)
+007. Reneek - Burning (Dave Boyle Remix)
+008. Beat Service - Charged (Original)
+009. You Are My Salvation - Chase Me
+010. Ummet Ozcan - Cocoon (Original Mix)2012Жанр: Uplifting Trance, Dream Trance, Progressive Trance, TranceПродолжительность: 05:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06AFEE905140CD8E92B68B22762222DA1E88DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492104   (247866) от 05.05.2012
+
+VA - Клубный Танцпол Лето Vol.1 (2012) [MP3|320 кб/с]<Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247866.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2345 & 5Ivesta Family - Я Буду (DJ Fisun remix one) (2:38)
+2. Adele - Rolling In The Deep (Maison & Dragen Bootleg) (7:06)
+3. Andrea Tarsia - Im The One (DJ Brizi & Delexy Remix)2012Жанр: Club, PopПродолжительность: 04:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AC36B3F9C54D8B31B0D296D4C259570EA9CD4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491923   (247843) от 05.05.2012
+
+VA - Клубные Новинки Vol.71 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel & Dresden feat. Molly - Tracking Treasure Down (original mix)
+02. Solarstone & Clare Stagg - The Spell (Solarstone Pure Mix)
+03. Veerus, Maxie Devine - Funky Beats (Original Mix)
+04. Julian Vincent and Shannon Hurley - Lost In Space (DoubleV Remix)
+05. Dave Nadz & Leblanc - Haamiah (Original Mix)
+06. Sheef Lentzki - Lucifer (Teho Remix)
+07. Nicologik and Zephyr vs Tiff Lacey - Lost for Words (Extended Mix)
+08. Dj Soundlife - Cloudburst (Extended Mix)
+09. HouseEssence - That Before (Original Mix)
+10. South Ground - Let's Rock (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC0250107A961789D95C12D0054CA5E21F343E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492142   (247841) от 05.05.2012
+
+VA - Soul of Ibiza Volume 29 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)
+002. Sean Tyas feat. David Berkeley - Believe (Original Mix)
+003. Vast Vision - Black Shores (Original Mix)
+004. Trilucid feat. Sophie Tusnelda - Bring You The Sun (Original Mix)
+005. Vada - Fire In The Sky (Original Mix)
+006. Paul Webster feat. Angelic Amanda - Forever Today (Original Mix)
+007. Solid Stone feat. Hanna Finsen - Helpless (Original Mix)
+008. Gareth Emery feat. Mark Frisch - Into the Light (Alex M.O.R.P.H. Remix)
+009. Solarstone feat. Bill Mcgrudy - Is There Anyone Out There (Dirty Herz Remix)
+010. Simon Patterson feat. Lucy Pullin - Keep Quiet (Original Mix)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3052498A1627E3BB3164A03008FD67A68DA80E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492252   (247839) от 05.05.2012
+
+VA - Клубные Новинки Vol.72 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisko Electrofantik - No Thanx (Original Fanatik Mix)
+02. Orbion - Aurora (Sensetive5 Remix)
+03. Stan Kolev, Juan Mejia - To The Clouds (Beat Factory Remix)
+04. Eitan Carmi - New West (Cristian Poow Remix)
+05. S.K.A.M. - Outside The Box (Original Mix)
+06. Lauhaus, Kabale Und Liebe - Hiphouse (Original Mix)
+07. Sidney Samson - Get Low (Original Mix)
+08. Freza - La Luna (Original Mix)
+09. Mode B - Phantom (Original Mix)
+10. Steven Quarre & Morris Mavado ft. Orlando Vaughan - Starlight (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4EE967BDE4DC9874F5464A1F0715B9DB691E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305379   (247149) от 06.07.2023
+
+VA - Deep House & Nu Disco Top 100 (Compiled by ZeByte) (2019) [MP3|320 Kbps] <Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filatov & Karas Feat. Rada - Lirika [03:36]
+02. Inward Universe - Residues Lives [03:57]
+03. Osaka Feat. Brianna - Find Me (The Distance & Igi Remix) [04:36]
+04. Snap! Feat. Rukmani - Rame (Mi-8 Deep Version) [06:04](   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 07:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E40BFCE4F526FF6C0A442BF2DBA567A9E3CE96A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491773   (246513) от 04.05.2012
+
+VA - Весенняя Вечеринка Non-Stop (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246513.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Елена Лордес - Ангелы (3:57)
+2. Лолита Gold Feat. Юля Grand - Этим Летом (3:06)
+3. Шима - Океан (3:22)
+4. Женя Юдина Feat. Pawbeat - Небо Это Я (4:10)
+5. Вельвеt - Нанолюбовь (LaTrack mix) (4:15)
+6. Лера Массква - Про тебя (3:18)
+7. V2G Feat. Женя Юдина - На Осколках Планет (2:51)
+8. Валерий Меладзе - Потерян И Не Найден (4:02)
+9. Тимати Feat. Аида – Fantasy (3:02)
+10. Ольга Плотникова - Лето (3:30)2012Жанр: PopПродолжительность: 06:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DD2B12862588BFFCF4316C6941E183B8DDCB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491598   (246500) от 04.05.2012
+
+VA - Only DubStep Vol. 1 (2012) [MP3|128-320 кб/с]<DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Obernik, The Str8jackets – Love & Oxygen (Xilent Remix)
+02. Lazy Rich – The Chase Feat. Belle Humble (Habstrakt Remix)
+03. Joe Jonas – Love Slayer (Invader! Remix)
+04. Sixstring King & Invader! – Natural High (Original Mix)
+05. Dubsidia & Balkansky – Annoying Dog
+06. Invader! – Innocent
+07. Fearless Ft. Sonna Rele – Everywhere & Nowhere (1uP Remix)
+08. Ry Legit – Dreamer
+09. Skrillex – Kill Everybody (Bare Noize Remix)
+10. Mantis – Ruthless (Original Mix)(   Читать дальше...   )2012Жанр: DubStepПродолжительность: 02:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F515E43D6807619DC45BA36044AD78D362B03915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491325   (246415) от 03.05.2012
+
+VA - Песня с женским именем 2CD (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анатолий Корж - Алена
+02. Боба Грек - Акулина
+03. Братья Жемчужные - Разговор с Авророй
+04. Виктор Королев - Сашенька
+05. Геннадий Жаров - Принцесса Нюра
+06. Кабриолет - Эмели
+07. Михаил Круг - Про Таню Сытину и всех остальных
+08. Михаил Шуфутинский - Тетя Таня
+09. Петлюра - Наташка
+10. Юрий Маковей - Яна, Яна2012Жанр: ШансонПродолжительность: 06:16:36
+
+01. Владимир Бажиновский - Наташка
+02. Михаил Шуфутинский - Людка
+03. Виктор Калина - Светуля
+04. Кабриолет - Таня
+05. Бока Давидян - Роза
+06. Зона - Наводчица Катя
+07. DJ Шантырь - Зажигай, Наташа!
+08. Олег Лифановский - Светик(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539F3EC7B580876979176E8DBA703F5E4B85470E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491611   (246409) от 03.05.2012
 
 VA - Убойная Авто Дискотека DFM 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
@@ -489,296 +835,6 @@ VA - Like The Old Day (2023) [MP3|320 Kbps] <Disco, Electronic, Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F37FB4076AB71C19831057637FB92EF846820593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056132   (245944) от 24.09.2016
-
-VA - Beatport Trance Pack (23.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radion6 - Another Dimension (Extended Mix) 5:12
-02. Giuseppe Ottaviani & Christian Burns - Brightheart (On Air Mix) 6:58
-03. SoundLift - River Side (Nick V Remix) 7:43
-04. Andrew Stark & New Decline - The Birth Of The Wind (Original Mix) 6:55(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 03:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C640D2FF701E75245FEF8F1AF2EA6A401238E5AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620028   (245851) от 19.03.2023
-
-VA - В машине с музыкой Vol.329 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ляля Размахова  - Доброе Утро, Малыш! (03:54)
-02. Zippo - В Огонь За Тобой (03:34)
-03. Pnau Feat. & Khalid - The Hard Way (03:04)
-04. Aleks Ataman & Finik.Finya  - Ойойой (Ты Говорила) (02:12)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A409C3F55111519CAED4F9ACECC0947B1E4C01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056267   (245803) от 25.09.2016
-
-VA - Sublime Revelation Melody (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abide - Remember Me (Original Mix) 8:26
-02. Dimension ft. Cat Martin - Memories (Original Mix) 7:11
-03. Ciro Visone - Spring Dream (Original Mix) 9:10
-04. Ataraxia - DCL (Original Mix) 8:37(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 04:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2FDA84AD27A7022DA15B1B20C90E8C267CD1E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056263   (245797) от 25.09.2016
-
-VA - The Best of Trance 48 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Tyas & Darren Porter - Relentless (Extended Mix) 6:56
-02. RAM - Elijah (Sean Tyas Remix) 7:19
-03. Sound of Tomorrow - Strong Feelings (Original Mix ) 8:25
-04. TOA - Anguish (Neos Remix) 7:44(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 02:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B32B4BE5EAB62CA2392D7E76CD4F33EE06FE99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448604   (245774) от 18.02.2021
-
-VA - Elegant New Trance Set (2021) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка транса это то, что заставляет людей чувствовать эмоции и погружаться в феерическое настроение. Эта музыка наводит на ассоциации об "идеальной" жизни, своеобразной утопии в которую мечтает окунуться каждый из нас.001. Daniel Skyver - As The Clouds Pass
-002. F4t4l3rr0r - Everlasting
-003. Timelab - Youself
-004. Solarstone - Summer Fills The Sky(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 09:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F06E97FF6134ECD8AFF58583854099677A2C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056235   (245769) от 25.09.2016
-
-VA - The Best of Trance 49 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mohamed Ragab & Attila Syah - Crux (Extended Mix) 6:00
-02. Saad Ayub feat. Fenja - Ever After (Extended Mix) 6:42
-03. Ciro Visone & Rita Visone - The Boy Forever (Original Mix) 7:41
-04. Chris SX - Out & Back (Extended Mix) 7:00(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 03:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59EFB8BA2485E851135FD3E9C7B63320D8552F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565802   (245764) от 25.07.2022
-
-Cinderella - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звучание этой группы невозможно перепутать ни с какой другой. А вокал Тома Кейфера сразу залетает в память и остается там навсегда. Всегда считал что все альбомы Cinderella сведены и записаны идеально и японские оригиналы звучат великолепно, пока не услышал данный ремастер. Звук просто улётный, детальный, мощный, чистый и уделает многие современные записи. Целостность (   Читать дальше...   )01. Night Songs
-02. Shake Me
-03. Nobody's Fool
-04. Nothin' For Nothin'(   Читать дальше...   )Жанр: RockПродолжительность: 03:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E845487F04B56F49F73E7403BD3F010135420C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056417   (245741) от 25.09.2016
-
-VA - Sensual Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Loop Foundation - Lost at Sea (4:19)
-02. Morris Lionel - Office (4:17)
-03. Nicola Quagliato - Night Bar (3:05)
-04. Mateen J - Coffee Break (4:01)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3199C6445FEB41218A43F49D35AB03CC10F76F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448602   (245738) от 18.02.2021
-
-VA - Beatport Techno Electronic: Electro Sound Pack #241 (2021) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попробуйте выйти на улицу ранним зимним утром и прогуляться по пустынным улицам своего города. И слушайте. Вот эта пустота замерзшего города и есть техно. Казалось бы, шум автомобилей, трамваев, шуршание шин, звуки эскалатора – все это привычные звуки, но в контексте пустоты они обретают поистине музыкальный объем и значение.001. Deepfreqz, Owen Ni, Raytek - Nexus
-002. R.I.O. - Miss Sunshine
-003. Olexii - Untitled 3
-004. Filipe Barbosa - Derit(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1101E3455EAB15B639E2C278F8F91337ABDB252F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448603   (245724) от 18.02.2021
-
-VA - Beatport Trance: Electro Sound Pack #243 (2021) [MP3|320 Kbps] <Trance, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличительная сторона транс музыки это его эмоциональность и окрылённость. Музыка, которая не уступает по гармонии и мелодичности классической музыке. И в то же время транс многообразен, это музыка полета и красивых мелодий. Каждый может найти в нём что то своё, что сможет его вдохновить.001. Ahmed Romel - Road To Vilna
-002. Red Scan - T02
-003. Sonic Boy - Urban Legend
-004. Ava Lantern - Having Words(   Читать дальше...   )Жанр: Trance, ElectronicПродолжительность: 10:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B228E4FB0D0D5E9F7DE8DD8E7A305E7BA8C8F951
 ```
 
 https://mybot314.ru/tekegram_catalog/

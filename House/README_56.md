@@ -1,3 +1,90 @@
+###  Публикация: 1247994   (448684) от 17.09.2018
+
+Armada Deep - Ibiza Closing Party (2018) [MP3|320 Kbps] <Minimal,Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448684.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yotto – The One You Left Behind (feat. Vok)
+2. Maya Jane Coles – Go on and Make It Through
+3. Lane 8 – The Disappearance of Colonel Mustard
+4. Jan Blomqvist – The Space in Between (Ben Böhmer Remix)(   Читать дальше...   )Жанр: Electronic, Deep House, HouseПродолжительность: 04:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A4701124F6890D53DB314F03E76F3141E72DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322469   (448379) от 29.08.2019
+
+VA - House Classic Hits Summer Playlist (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bacci Bros. - Joy And Pain (Original Mix) 6:55
+02. The Miami Collective feat. Angie Brown - Never Gonna Give Up (Dub Mix) 6:45
+03. Barbara Tucker - Spread Love (Ferrari Mix) 7:39
+04. Carlos Rubio - The Feeling (Jack Da House Mix) 7:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F8E8363ACD5998DE06E3D666EF3CCDB06C9255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163291   (448272) от 06.09.2017
+
+Axwell & Ingrosso - More than You Know (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  More Than You Know  3:23
+02.  How Do You Feel Right Now  2:59
+03.  This Time  3:37
+04.  Something New  4:07(   Читать дальше...   )Жанр: HouseПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB486B1ABAE26FAFA7C6687C63F69DFD11E8112E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409216   (447363) от 16.09.2020
 
 VA - Cartoon People-Future Club House Vol.1 (2020) [MP3|320 Kbps] <Electro House>
@@ -699,97 +786,6 @@ VA - Club Traxx - Progressive House 21 (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC7031BC96258AB7A8DA6FD2DA3A8540D705ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323739   (433795) от 05.09.2019
-
-VA - The Best Of Summer Season '19 (2019) [MP3|320 Kbps] <House, Tech House, Bass House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Draxler - Back To The Future (Original Mix) 4:28
-02. David Calfan - Recognize (Original Mix) 5:00
-03. Crunchy Masters - In That World (Dub Mix) 5:17
-04. Carl Armstrong - Strange Condition (Original Mix) 4:59(   Читать дальше...   )Жанр: House, Tech House, Bass House, Funky HouseПродолжительность: 04:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF19DFEA2CBFD26AA1207173232546D86B132C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555686   (431874) от 03.10.2012
-
-Various Artists - Club House 2012 (2012) [MP3|320 кб/с]<Club House, House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pain - Another Glass (Simone Cattaneo & Alex Gardini Remix) (5:50)
-02. Takeshy Kurosawa - Let Me Go (Rudeejay Remix) (1:57)
-03. Niky Martinez - Keep This Love Alive (Dub Mix) (7:32)
-04. Granite - One & Only (Original Mix) (5:20)
-05. A.D.M. - I Want You (David Jones Remix) (6:39)
-06. StoneBridge - I Love It (Album Mix) (3:21)
-07. Patric La Funk - Baltic (Original Mix) (6:33)
-08. Nightstylers - Up Your Rumpa (Original Mix) (8:19)
-09. Wally Lopez - House Of Mine (Simone Vitullo Remix) (8:16)
-10. SIKK - My Washing Machine (Leonardo Glovibes 2012 Remix) (6:10)(   Читать дальше...   )Жанр: Club House, House, Progressive HouseПродолжительность: 01:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F472021AC646D087147424113276945213B3A94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945460   (431747) от 11.10.2015
-
-Dustin Nantais - Cloak / A Long Road (The Remixes) (31.08.2015) [MP3|320 кб/с]<Electronic, Deep, House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dustin Nantais feat. Amber Long - A Long Road (Kobana Remix)
-02. Dustin Nantais - Cloak (Max Cue Remix)Жанр: Electronic, Deep, House, ProgressiveПродолжительность: 00:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD1279437FD20F4DE02027CC7EA1BE730920313
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1554979   (572242) от 02.06.2022
+
+Symphony X - Дискография (10 releases) (1994 - 2015) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony X — американский музыкальный коллектив, работающий в жанрах прогрессив-метал и пауэр-метал. Был основан в 1994 году в Нью-Джерси гитаристом Майклом Ромео.1994 - Symphony X
+1995 - The Damnation Game
+1996 - The Divine Wings of Tragedy
+1998 - Twilight in OlympusЖанр: Progressive Power MetalПродолжительность: 11:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8402E328F819AADD68A333A75729DE890F8E6575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921711   (571514) от 27.07.2015
+
+Оркестр Поля Мориа - Под музыку Вивальди (1982) [FLAC 2.0 16/44,1|traks(Vinyl-Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Под музыку Вивальди · Sur Un Air Du Vivaldi  3:04
+2. Pulstar  3:28
+3. Любовь синего цвета · L'Amour Est Bleu  2:32(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8EE0016A1C65E072726249166D16EC7674B003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922241   (571506) от 27.07.2015
+
+Roger Waters - The Pros And Cons Of Hitch Hiking (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571506.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. 4:30 AM (Apparently They Were Travelling Abroad) (3:15)
+A2. 4:33 AM (Running Shoes) (4:08)
+A3. 4:37 AM (Arabs With Knives And West German Skies) (2:17)
+A4. 4:39 AM (For The First Time Today, Part 2) (2:03)(   Читать дальше...   )Производство: EMI RecordsЖанр: Psychedelic RockПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93CE33C2983B52713AE3425C77A1A017D3784D97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044039   (567283) от 19.08.2016
+
+Royal Knights/Ройял Найтс - Вокальный Квартет "Ройял Найтс" (Япония) (1979) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567283.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Я Верю В Музыку
+A2 Чувства
+A3 Рабочая Песня
+A4 Джамбалая(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C066592730F242B641B27E1AC2BE9C1287FB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 363443   (567105) от 15.07.2011
+
+Enya - Watermark (1988) [APE 2.0 24/96|tracks (Vinyl-Rip)] <Electronic/Ambient/New Age/Celtic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567105.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1.  Watermark [02:23]
+ A2.  Cursum Perficio [04:07]
+ A3.  On Your Shore [03:57]
+ A4.  Storms In Africa [04:02](   Читать дальше...   )Жанр: Electronic/Ambient/New Age/CelticПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923046   (566199) от 30.07.2015
+
+Al Bano & Romina Power - Аль Бано и Ромина Пауэр (1982) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Italo-Disco, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Чистый воздух (Aria Pura)  3:14
+2. Счастье (Felicita)  3:16
+3. Идиллия (Sharasan)  4:48(   Читать дальше...   )Жанр: Italo-Disco, Pop RockПродолжительность: 00:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2642248F866BAE628B1936C17ED1C6C37C63F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923154   (566188) от 30.07.2015
 
 Smokie - Greatest Hits (1977) Repress /1988, Балкантон/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
@@ -568,180 +742,6 @@ Tin Machine - Tin Machine II (1991) [FLAC 2.0 24/192|image|Vinyl-Rip] <Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5DE6718718C36B98A18891D70CD2B82EACFB050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048502   (546298) от 02.09.2016
-
-Виктор Цой - Печаль (2000/2015) [WavPack 2.0 32/192|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона A
-A1. Война
-A2. Спокойная ночь
-A3. В наших глазах(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B7650CFAA018C694EB8D91386250A82C52352F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048861   (545605) от 03.09.2016
-
-Def Leppard - Pyromania (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Rock (Till You Drop) (3:57)
-02. Photograph (4:06)
-03. Stagefright (3:46)
-04. Too Late For Love (4:26)(   Читать дальше...   )Производство: Mercury Records - 810 308-1Жанр: Hard RockПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F94159702996FFB78062811CA47C100AA28371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048341   (544718) от 04.09.2016
-
-Alan Parsons - A Valid Path (2006) [FLAC 2.0|48/24|image+.cue|Audio-DVD] <Progressive Rock, Art-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Return to Tunguska
- 02 - More Lost Without You
- 03 - Mammagamma '04
- 04 - We Play The Game(   Читать дальше...   )Жанр: Progressive Rock, Art-RockПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2B2B0337101128C04100750DB08F197FD5D7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 695492   (544636) от 31.08.2013
-
-Pussycat - Blue Lights (1981) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rio
-02. Blue Lights In My Eyes
-03. Then The Music Stopped
-04. Rain(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD00B4E3451E7B707AE6C11C5E51559980D5E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311165   (543687) от 28.06.2019
-
-Harry Secombe - At Your Request (1958) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening, Vocal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543687.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Song Of Songs
-A2 At The Balalaika
-A3 Granada
-A4 Shine Through My Dreams(   Читать дальше...   )Жанр: Pop, Easy Listening, VocalПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27BF96131A3EEC9E00077F216931169E6E8BE90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153806   (542648) от 29.07.2017
-
-ВИА ''Ритм'' - Дискотека «А». Из Репертуара Аллы Пугачевой (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542648.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Все Силы Даже Прилагая · Exerting All Powers
-A2 Улетай, Туча · Fly Away, Cloud
-A3 Женщина, Которая Поет · The Woman Who Sings
-A4 Три Желанья · Three Wishes(   Читать дальше...   )Жанр: Pop, Disco, FunkПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0011E5CC6EB1A6F6C9E8F2F162A92F7ED6E6E1DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

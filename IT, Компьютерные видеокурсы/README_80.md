@@ -1,3 +1,111 @@
+###  Публикация: 1830936   (212623) от 28.10.2025
+
+1С Учебный центр №3, Дмитрий Гончаров | Управленческий учет затрат, финансовый результат в прикладном решении «1С:ERP Управление предприятием 2» (2024) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_212623.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках курса разберем функционал практически всех подсистем, связанных с учетом активов и пассивов компании, а также с формированием итогового финансового результата.Производство: 1С Учебный центр №3Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 18:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C21F52EEFF73CF3899C243C7646499001CA8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830944   (212609) от 28.10.2025
+
+1С Учебный центр №1, Анна Паушкина | Регламентированный учет в прикладном решении «1С:ERP Управление предприятием» и «1С:Комплексная автоматизация» (2015) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_212609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс подходит для освоения программ «1С:ERP Управление предприятием» и «1С:Комплексная автоматизация 2» в части регламентированного учета. Интерфейс и возможности программ в этой части одинаковы.Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 11:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB7E4DCDB717D72F0C3F6F300A5AEE8CEE409A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768069   (212572) от 28.10.2025
+
+Юрий Шатохин | Linux Ubuntu и Mint Росинка вводная для начинающих (2014) [PCRec]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_212572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Ubuntu и Mint Росинка для Начинающих, привыкших к Windows
+Все начинающие пользователи слышали и знают о бесплатной альтернативе Windows - Операционной Системе Linux. Кто не решился потратить своё время на установку Linux , предлагаю посмотреть обзор в котором показана работа двух Linux - систем : Linux Ubuntu 12.4 и Linux Mint 11 РосинкаЖанр: Обучающие видеурокиПродолжительность: 00:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7E862A14A247DCC809ED30E068C604742C15A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563771   (212540) от 15.07.2022
+
+JavaBegin, Тимур Батыршинов | Авторизация и работа с пользователями (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_212540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовая стандартная технология, которая используется почти во всех крупных приложениях, особенно с RESTful сервисами.
+Вы можете защитить все сервисы от анонимных запросов.
+Самое главное - в OAuth2 пароль и чувствительные данные хранятся в одном месте (спец. сервер) и не передаются в другие приложения.
+(   Читать дальше...   )Производство: JavaBeginЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:00:23Реклама: Присутствуют сторонние наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E162C51D35B951E54909B1758E553CB626EF10D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564025   (212471) от 16.07.2022
 
 МИФ, Ренат Шагабутдинов | Магия Excel. Модуль Магистры (2022) WEB-DL [AD] [RU]
@@ -601,118 +709,6 @@ Thinknetica Pro, Александр Борисов | Безопасность п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:798F42DC5C214A7C962EFF22A5DABF56CE1625BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605791   (209588) от 19.01.2023
-
-BAS, Павел Дуглас | Создание Чекеров на BAS (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь создавать простые скрипты чекеры на Browser Automation Studio (BAS).
-Этот навык полезен, когда вам необходимо проверить на валид множество аккаунтов, используя браузер Chrome.
-Чекеры - это специальные скрипты, которые заходят на сайт, пробуют авторизоваться по введенным логину и паролю и смотрят вошли в личный кабинет или нет.
-Если вошли, то сохраняет результат (   Читать дальше...   )Производство: BASЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:41:20Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8362A5FA5ED3A09243ECB9E4BDB6580472AE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607383   (208887) от 27.01.2023
-
-Udemy, Sean Campbell | .NET Microservices: CQRS & Event Sourcing with Kafka (2022) WEBRip [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208887.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this course, you will learn how to create .NET microservices that comply with the CQRS and Event Sourcing patterns.
-You will not use any CQRS framework, but you will write every line of code that is required to effectively create your own CQRS and Event Sourcing framework using C# and Apache Kafka. While this might sound a little daunting, you will be carefully (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 08:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722CEAE444F97C61398AE590F6CD58DFC708D0C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646825   (208821) от 16.07.2023
-
-Udemy, Michael Pogrebinsky | Java Multithreading, Concurrency & Performance Optimization (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208821.jpg" />
-</div>
-
-
-###  Подробнее
-
-If you had your own jet plane, would you drive it to the grocery store or fly it on tour around the world?
-
-Today every computer and phone comes with immense computing power and multiple cores, allowing full parallelism. In this course, you will go on a journey to learn all the fundamental tools you need to become a confident and successful multithreaded application (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 05:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B2281746F44E4663EB4A6E6AF239E0585CBBCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647007   (208804) от 16.07.2023
-
-Udemy, Michael Pogrebinsky | Software Architecture & Design of Modern Large Scale Systems (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Are you ready to take your career to the next level?
-
-Do you want to masterПроизводство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A12256A94A48B3AAB7111608DEF7059A45B5822
 ```
 
 https://mybot314.ru/tekegram_catalog/

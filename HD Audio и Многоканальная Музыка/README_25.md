@@ -1,3 +1,177 @@
+###  Публикация: 1038235   (607945) от 27.07.2016
+
+Steven Wilson - 4 ½ (2016) [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray]  <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Book of Regrets 9.23
+02. Year of the Plague 4.15
+03. Happiness III 4.31
+04. Sunday Rain Sets In 3.50(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:46 + 00:36:54 + 00:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919F6BB56AD54ED5EBD0A575A362D421D048AC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941398   (607676) от 23.04.2022
+
+Harry Secombe - At Your Request (1958) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607676.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Song Of Songs
+A2	At The Balalaika
+A3	Granada
+A4	Shine Through My Dreams(   Читать дальше...   )Жанр: Pop/Easy ListeningПродолжительность: 00:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD39C66E482673A37C083EF65F671EC48BD8C106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945141   (607675) от 23.04.2022
+
+VA - Soul Meeting Vol. II - The Sound Of Young America (1966) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Funk, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607675.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Diana Ross & The Supremes -	Reflections
+A2	Stevie Wonder -	I'm Wondering
+A3	The Temptations -	You're My Everything
+A4	Marvin Gaye & Tammi Terrell -	Ain't No Mountain High Enough(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7E8F2BECD8B6C041C5B1A5BEF52A5267F73396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939700   (607671) от 23.04.2022
+
+Al Martino - Spanish Eyes (1965) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Spanish Eyes
+Written-By – Kaempfert, Singleton, Snyder
+02.	Melody Of Love
+Written-By – Englemann, GlazerЖанр: PopПродолжительность: 00:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B0A4F335979C66628A17454F13F21D74BD4B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941322   (607553) от 23.04.2022
+
+VA - Rock Линия (2004) [FLAC 2.0 16/44,1|image+.cue (MC Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звери - Всё, что касается
+Р. Зверь
+02. Рок-Группа - Попса
+Ю. Собелев/А. Сон(   Читать дальше...   )Жанр: RockПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CA95F9EB30DDD9BDF6D73F28E9E700EDFF1BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941066   (607552) от 23.04.2022
+
+VA - Послушай музыку (1983) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607552.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Проказница (Babooshka) - Кейт Буш
+A2 Долгая поездка в поезде (Long Train Runnin) - Группа "Братья Дуби"
+B1 Рок на шоссе - Группа "Братья Дуби"
+B2 Будь со мной - Группа "Братья Дуби"Жанр: Pop RockПродолжительность: 00:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8701F53B77DB1CE65C35EE19C6B025B7A60C681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943603   (607549) от 23.04.2022
 
 Людмила Гурченко - Любимые Песни (1983) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Pop>
@@ -574,180 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C9FC68084896F933C1152CA4D25072D23287B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089383   (603217) от 27.04.2022
-
-VA - RETROспектива, часть II: Эстрадные оркестры II (1937-1961) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментальный секстет - Тополь (медленный вальс)
-02. Инструментальный секстет - Цветущий май (фокстрот)
-03. Венгерский джаз-секстет п.у. Т. Балаша - Чай вдвоем (румба)
-04. Венгерский джаз-секстет п.у. Т. Балаша - Серебряная гитара (танго)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CDE915717A0E4E70712072D67FB8BAD86BF598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297720   (603074) от 24.04.2019
-
-Michael Jackson - Blood On The Dance Floor. HIStory In The Mix (1997) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Electronic, Hip Hop, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Blood On The Dance Floor
-02. Morphine
-03. Superfly Sister(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055C536E63D35F4664ADD40727E1030D19E3D026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297746   (603066) от 24.04.2019
-
-Rainbow - Ballads (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Cath The Rainbow
-02. Maybe Next Time
-03. Tearin' Out My Heart(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C363EDBC6FB7F794D9E001C20555E7E031C2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297726   (603054) от 24.04.2019
-
-Guns'N'Roses - The Ballads (1992) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Don't Cry
-02. Patience
-03. November Rain(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2EE2D772F394935C13F2D352C86BC1C0D8BB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547522   (602418) от 29.04.2022
-
-Форум - Три альбома (1987-1992) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602418.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Зови Меня, Иди Ко Мне
-(В. Сайко – Л. Виноградова)
-A2 Серые Глаза
-(В. Сайко – Д. Панфилов)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCDA5F64130E86C81410FDC4D0186C4D0B7964D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547836   (602027) от 30.04.2022
-
-Оризонт - Между Нами Снег (1984) ЕР [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Между Нами Снег
-(В. Шаинский - С. Алиханов, А. Жигарев)
-02. Песня Куклы
-(В. Шаинский - С. Алиханов, А. Жигарев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6727DDBAB1C47846FA52E37E23D51591DA2BD391
 ```
 
 https://mybot314.ru/tekegram_catalog/

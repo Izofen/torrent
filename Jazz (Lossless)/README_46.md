@@ -1,3 +1,32 @@
+###  Публикация: 989108   (917376) от 22.02.2016
+
+Dennis Rollins' Velocity Trio - Symbiosis (2015) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Funk, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utopia
+02. Reverence
+03. Symbiosis
+04. Hark!(   Читать дальше...   )Жанр: Contemporary Jazz, Funk, FusionПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07084B66E5A40DF21A29E248E714A5380F8D211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989504   (917368) от 22.02.2016
 
 Karasol - In Your Wild Garden (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World Fusion>
@@ -728,35 +757,6 @@ The Hot Sardines - The Hot Sardines (2014) [FLAC|Lossless|tracks + .cue] <Modern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC52DF448736106393797D83C06F36D43FE99D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097482   (914134) от 27.01.2017
-
-Tommy Ladnier - Giants Of Jazz (1923 - 1939) 1997, Promo Sound[APE|Lossless|tracks + .cue] <Early Jazz, Swing, Trumpet Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ja-Da [02:58]
- 02.Really The Blues [03:41]
- 03.Weary Blues [03:05]
- 04.When You And I Were Young Maggie [02:47](   Читать дальше...   )Жанр: Early Jazz, Swing, Trumpet JazzПродолжительность: 01:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3738E3E68E0320930CFA692B889B9CD3DC6C89F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

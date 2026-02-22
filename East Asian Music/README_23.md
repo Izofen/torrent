@@ -1,38 +1,3 @@
-###  Публикация: 455965   (77460) от 21.02.2012
-
-Black Infinity - 666 Metal (2009) [FLAC|Lossless]<Melodic death, gothic metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Return For Dying (3:23)
-02. Heaven Downfall (4:44)
-03. Lost Angels (3:42)
-04. The Secret (5:53)
-05. Paint Yourself All Black (5:12)
-06. Embracing Hearts (5:40)
-07. When Her Love On Fire (3:11)
-08. Deathbed Illusion (4:07)
-09. Celebrating Nightmare (4:44)
-10. G.O.D. (4:21)(   Читать дальше...   )2009Жанр: Melodic death, gothic metalПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 306359   (76185) от 14.02.2012
 
 Psysalia Psysalis Psyche -  8 альбомов (2007-2011) Дискография [MP3|192-320]<J-Rock/Punk/Psychedelic/Indie>

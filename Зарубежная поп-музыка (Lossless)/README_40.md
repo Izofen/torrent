@@ -1,3 +1,32 @@
+###  Публикация: 1290494   (676584) от 21.03.2019
+
+Maren Morris - Girl (2019) [FLAC|Lossless|tracks + .cue] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl (04:10)
+02. The Feels (03:07)
+03. All My Favorite People (feat. Brothers Osborne) (03:19)
+04. A Song for Everything (03:14)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C37ABB7AF9265267C8271352FD3569AEEB0251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290531   (676459) от 21.03.2019
 
 VA - Canzoni - 48 Canti D'Emotioni (Unknown) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Ballad>
@@ -719,35 +748,6 @@ Fancy - 30 Years: The New Best Of (2018) Compilation [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B72F1CFFA90C1AF6D486A7DD1226F1A9B1123794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223894   (669539) от 07.05.2018
-
-Kimbra - Primal Heart (2018) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Good War (03:38)
-02. Top Of The World (03:25)
-03. Everybody Knows (03:44)
-04. Like They Do On The TV (04:19)(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Soul, ElectronicПродолжительность: 00:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4D5795272509122114D3CC2B096FCD568113D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

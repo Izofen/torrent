@@ -1,3 +1,30 @@
+###  Публикация: 949700   (374527) от 24.10.2015
+
+Проекты - VideoHive - Elegant Broadcast Package [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо ролика, ТВ-шоу, вечеринки или любого мероприятия, к которому вы хотите добавить лоска.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7459F3067083E89AFB4B0DDADF516F2DC68664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327547   (374126) от 25.09.2019
 
 VideoHive - Garage - Broadcast Pack - 23472141 [AEP]
@@ -650,32 +677,6 @@ VideoHive - One Day - 860185 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CDFB067A088547305B66A7F8949EF049ECDAA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328790   (360661) от 01.10.2019
-
-ProShow Producer - Cooking Channel [PSH]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон презентация "Кулинарного Шоу"... Дерзайте!Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4EFB67953295F5D39B409964A64DA8D88CC058
 ```
 
 https://mybot314.ru/tekegram_catalog/

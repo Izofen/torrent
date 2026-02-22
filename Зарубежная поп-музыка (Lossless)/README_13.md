@@ -1,3 +1,32 @@
+###  Публикация: 1364122   (939525) от 01.03.2020
+
+VA - 00s Workout (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gnarls Barkley - Crazy (02:57)
+02. Steve Arrington - Feel so Real (05:06)
+03. Sean Paul - Temperature (03:38)
+04. Kylie Minogue - Can't Get You out of My Head (03:50)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04DF781626C8596ABF4401315B8B7A6D6F9CD69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364123   (939522) от 01.03.2020
 
 Krzysztof Krawczyk - Największe Przeboje (Najwieksze Przeboje) (1993) [FLAC|Lossless|image + .cue] <Pop>
@@ -802,35 +831,6 @@ VA - Global Hits 2002 (2002) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F020F7A7C13EA218612C3EFA397CF54C43EFFF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364797   (933710) от 05.03.2020
-
-Vanessa Daou - Welcome to My Blues: An Anthology (1994-2017) (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Soul, Acid Jazz, Trip-Hop, Lounge>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once in a While (5:24)
- 02. Trouble Comes (5:09)
- 03. Snow (A Deeper Drift) (3:56)
- 04. How Do You Feel (3:51)(   Читать дальше...   )Жанр: Electronic, Soul, Acid Jazz, Trip-Hop, LoungeПродолжительность: 02:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E258FD9CB1011852470F7CAAC3EEA732F43415
 ```
 
 https://mybot314.ru/tekegram_catalog/

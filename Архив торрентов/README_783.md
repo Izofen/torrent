@@ -1,3 +1,32 @@
+###  Публикация: 1362612   (946579) от 25.02.2020
+
+Dan Deacon - Mystic Familiar (2020) [FLAC|Lossless|tracks + .cue] <Electronic,  Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Become a Mountain (04:05)
+02. Hypnagogic (01:33)
+03. Sat by a Tree (04:26)
+04. Arp I: Wide Eyed (02:07)(   Читать дальше...   )Жанр: Electronic,  ExperimentalПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E1757276CF3C457E5669CBB4D833EAB1B5D87E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362891   (946578) от 25.02.2020
 
 Opera 66.0.3515.115 Portable by Cento8 [Ru/En]
@@ -652,32 +681,6 @@ Wise Program Uninstaller 2.3.7.141 RePack (& Portable) by elchupacabra [Multi/Ru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33AE77803A6487CA27B9EB006583196E60CF63B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362921   (946460) от 25.02.2020
-
-O&O ShutUp10 1.7.1408 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946460.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O ShutUp10 позволяет получить полный контроль над теми функциями Windows 10, которые Вы хотите использовать и убедиться, что ваши данные не будут отправлены третьим лицам. При помощи простого и интуитивного интерфейса пользователь может самостоятельно решить, какие нежелательные функции должны быть отключены для улучшения условий конфиденциальности данных.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30224F2B589FDC341A451DF1C5EA3805AFF9A554
 ```
 
 https://mybot314.ru/tekegram_catalog/

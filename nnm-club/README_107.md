@@ -1,22 +1,22 @@
-###  Публикация: 1850352   (1054158) от 27.01.2026
+###  Публикация: 1850999   (1054900) от 31.01.2026
 
-Журнал | Сабрина №01 (2026) [PDF]
+PrivaZer Pro 4.0.117 + Portable [Multi/Ru]
 
->>Журналы
->>Хобби (журналы)
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054158.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: ВязаниеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+PrivaZer – полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E77B17A6C16B6BC2C4E554273735B9896507CA2B
+magnet:?xt=urn:btih:05D3210A78DE7007E62E9D55DCC5F151E71C4605
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850351   (1054157) от 27.01.2026
+###  Публикация: 1850866   (1054899) от 31.01.2026
 
-Журнал | Сабрина №12 (2025) [PDF]
+Акции Microsoft показали сильнейшее падение с 2020 года
 
->>Журналы
->>Хобби (журналы)
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054157.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: ВязаниеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+Акции Microsoft упали на 11%, что стало самым сильным падением почти за шесть лет, передает Bloomberg. Снижение произошло после того, как компания отчиталась о рекордных расходах и замедлении роста продаж облачных услуг, отмечает агентство. Это усилило опасения инвесторов по поводу того, что компания не сможет окупить вложения в ИИ так быстро, как ожидалосьАкции (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DEC1DF6AEEBAE681B535D3008FEDFE67997278A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,26 +50,103 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850345   (1054156) от 27.01.2026
+###  Публикация: 1850811   (1054898) от 31.01.2026
 
-Борис Батыршин | Московский лес (Книга 1). День Ботаника (2025) [MP3, Дмитрий Хазанович]
+Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем рабов в лабиринте другого мира [2022, TV, 12 + 2 OVA] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Мичио Кага как обычно бесцельно сёрфил в Интернете и наткнулся на подозрительный сайт, где предлагалось испытать новую онлайн-игру. Кликнув «Да», Мичио переместился в другой мир, где получил читерскую способность — владеть сразу несколькими профессиями. Теперь он применит все свои силы, чтобы стать авантюристом, заработать денег и, конечно же, организовать (   Читать дальше...   )Производство: Passione / パッショーネЖанр: приключения, фэнтези, эротикаРежиссер: Тацува НаоюкиЯзык озвучки: Японский и русский закадровый (SHIZA Project)Субтитры: ОтсутствуютПродолжительность: 12 эп. по 25 мин. + 2 OVA по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584D35342736E7F81D1C137F284A11E4C185FB17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850972   (1054897) от 01.02.2026
+
+Astarotte no Omocha! | Astarotte's Toy! | Игрушка Астаротты [2011, TV, 12 эп. + спэшл] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая принцесса суккубов Астаротта ненавидит мужчин. Ненавидит настолько, что оставила вокруг себя только женскую свиту, состоящую из довольно неординарных дам. Вот только согласно своим обязанностям суккуба, она должна собирать мужские гаремы для пополнения своей магии. Так Асторротта и вела свою беззаботную жизнь, пока Мировое Древо не открыло врата в другую (   Читать дальше...   )Производство: Япония, DiomedéaЖанр: комедия, мистика, романтика, эттиРежиссер: Оидзаки ФумитосиЯзык озвучки: Русский закадровый (AniLibria - Lupin, Silv)Продолжительность: ТВ, 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B457583A7703375891DCE4CD7051DCAD04725CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850960   (1054896) от 02.02.2026
+
+Журнал | Радио №1 (январь 2026) [PDF, DJVU]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054896.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале представлены новости науки и техники, устройство и ремонт отдельных образцов видео и аудиотехники, конкретные устройства в технике измерений и источников питания. Показаны разработки радиолюбителей-конструкторов, большой объем устройств из прикладной электроники. В каждом журнале имеется специальный раздел для начинающих радиолюбителей.Жанр: Научно-популярный журналИздательство: ЗАО "Журнал "Радио"Формат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57880C63F318B0FBE5735F332B4B983E99D2E986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851006   (1054895) от 31.01.2026
+
+Вадим Панов | Пандемия. Аркада (Эпизод первый).  kamataYan (2026) [MP3, Илья Дементьев]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054156.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если мегаполис вокруг тебя превратился в непроходимую чащобу, если на руинах спальных районов выросли гигантские, выше сталинских высоток, деревья, а улицы оказались во власти странных растений и ещё более странных существ - это ещё не повод, чтобы самому становиться зверем.
-Останься человеком - и неважно, с карабином в руках или с котомкой бродячего торговца за (   Читать дальше...   )Жанр: ПостапокалипсисИздательство: Аудиокнига своими руками (Творческая группа «СамИздат»)Продолжительность: 11:01:45
+Нет, это не фантастика. Искусственные продукты, ДНК-модифицированные вирусы, очки дополненной реальности, поголовное внедрение чипов, безошибочно идентифицирующих каждого жителя Земли – мы знакомы с этими технологиями, называем их достижениями и не задумываемся над тем, как они могут быть использованы. Потому что страшно задумываться над тем, что технологии не только (   Читать дальше...   )Жанр: Социальная фантастикаИздательство: ЛитРес: чтец, авторПродолжительность: 13:35:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:364CA02BF4C90CEA453498382410848495F04878
+magnet:?xt=urn:btih:DDBDB520ED36B36B0FBCD2A66113AD6A363411A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,294 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850319   (1054155) от 27.01.2026
+###  Публикация: 1851002   (1054894) от 31.01.2026
 
-VA - Uplifting Only Top 15: January 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kvaii - Tenderness In Dreams (Intro Mix) [5:42]
-02. Evebe & Danny Claire - Everything (Timo Pralle Extended Remix) [5:54]
-03. Alex Nomak & Yuri Melnikov - Endless Spring (Extended Mix) [6:59]
-04. Mhammed El Alami & NELLY TGM - We Are One (Extended Mix) [6:31](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F8B4970020A542195CE016CF35E00DF3C1D69D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850287   (1054154) от 27.01.2026
-
-Jeremy McDowell | Acing the CCNA Exam. Volume 1. Fundamentals and Protocols. Volume 2. Advanced Networking and Security (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pass the Cisco Certified Network Associate (CCNA) exam on your very first try!
-
-Acing the CCNA Exam comes directly from Jeremy McDowell, a much-loved Cisco tutor who’s amazing courses have helped hundreds of thousands of students pass their exams. This comprehensive guide is split over two volumes—Acing the CCNA Exam, Volume 1 Fundamentals and Protocols and Acing (   Читать дальше...   )Жанр: LANs, Cisco Certification Guides, Computer Networking, Security CertificationsЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6279A8E2DF769837123567565D05B09044AFEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850285   (1054153) от 27.01.2026
-
-Michael Kofler, Bernd Oggl, Sebastian Springer | AI-Assisted Coding. A Practical Guide to Boosting Software Development with ChatGPT, GitHub Copilot, Ollama, Aider, and Beyond (Rheinwerk Computing) ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Generative AI is transforming software development. Stay on the cutting edge with this guide to AI pair programming! Learn how to make the most of modern tools like ChatGPT and GitHub Copilot to improve your coding. Automate refactoring, debugging, and other tedious tasks, and use techniques such as prompt engineering and retrieval-augmented generation to get the (   Читать дальше...   )Жанр: Software Design Tools, Generative AI, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE80C91A7DB585100D1187D9C8FE3DC3278650D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850284   (1054152) от 27.01.2026
-
-Alex Soto Bueno, Andrew Block | Red Hat Certified Engineer (RHCE) Ansible Automation Study Guide: In-Depth Guidance and Practice (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054152.jpg" />
-</div>
-
-
-###  Подробнее
-
-With the Ansible automation tool, developers and system administrators in the enterprise can automate the provisioning, configuration, and management of distributed and on-premises systems. This study guide prepares you for the Red Hat Certified Engineer (RHCE) certification exam, 90% of which covers Ansible.
-
-Red Hat's Alex Soto Bueno and Andrew Block walk you through (   Читать дальше...   )Жанр: Linux Certification Guides, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FECFC46FE3654C346AA8780B005F81D54856362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850283   (1054151) от 27.01.2026
-
-Joachim Steinwendner, Roland Schwaiger | Programming Neural Networks with Python. Your Practical Guide to Building Smart AI Systems with Machine Learning and Deep Learning (Rheinwerk Computing) (20 ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Neural networks are at the heart of AI—so ensure you’re on the cutting edge with this guide! For true beginners, get a crash course in Python and the mathematical concepts you’ll need to understand and create neural networks. Or jump right into programming your first neural network, from implementing the scikit-learn library to using the perceptron learning algorithm. (   Читать дальше...   )Жанр: Introductory & Beginning Programming, Python Programming, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4EA16B88AA76E6F09E150CE7B140784DA4747A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850282   (1054150) от 27.01.2026
-
-Bernd Oggl, Michael Kofler | Docker. Practical Guide for Developers and DevOps Teams - Unlock the Power of Containerization. Skills for Building, Securing, and Orchestrating with Docker (Rheinwerk  ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn the ins and outs of containerization in Docker with this practical guide! Begin by installing and setting up the platform. Then master the basics: get to know important terminology, understand how to run containers, and set up port redirecting and communication. You’ll learn to create custom images, work with commands, and use key containerization tools. Gain (   Читать дальше...   )Жанр: Software Design Tools, Computer Operating Systems, Computer Network AdministrationЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D2C6800B2409A122EE69FCFE4896244A316F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850280   (1054149) от 27.01.2026
-
-Michael Kofler | Linux. The Comprehensive Guide to Mastering Linux—From Installation to Security, Virtualization, and System Administration Across All Major Distributions (Rheinwerk Computing) (202 ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beginner or expert, professional or hobbyist, this is the Linux guide you need! Install Linux and walk through the basics: working in the terminal, handling files and directories, using Bash, and more. Then get into the nitty-gritty details of configuring your system and server, from compiling kernel modules to using tools like Apache, Postfix, and Samba. With information (   Читать дальше...   )Жанр: Computer Operating Systems, Linux Networking & System Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4E0AEFA8ACA68CA93F2F3BA56455D5C8921111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850275   (1054148) от 27.01.2026
-
-Torsten T. Will | C++. The Comprehensive Guide to Mastering Modern C++ from Basics to Advanced Concepts with Hands-on Examples, and Best Practices for Writing Efficient, Secure, and Scalable Code ( ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054148.jpg" />
-</div>
-
-
-###  Подробнее
-
-If you need to know C++, look no further! This comprehensive guide has everything you need to master the modern C++23 language, from syntax fundamentals to advanced development concepts. Follow practical code examples as you learn object-oriented programming, work with standard library containers, program concurrent applications, and more. Don’t just learn how to (   Читать дальше...   )Жанр: Object-Oriented Software Design, C++ Programming Language, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58AC16053360638447ECF0B5ACB3CC28225F7748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850272   (1054147) от 27.01.2026
-
-Christopher Negus | Linux Bible. 11th Edition (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054147.jpg" />
-</div>
-
-
-###  Подробнее
-
-The industry gold standard in Linux guides, fully updated
-In the newly updated eleventh edition of the Linux Bible, veteran Linux author and trainer Christopher Negus walks you through the latest and most popular Linux distributions, including Red Hat Enterprise 9, Ubuntu 24 LTS, and Fedora 41. Whether you're a brand new or power user, you'll learn hands-on ways (   Читать дальше...   )Жанр: Linux & UNIX Administration, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: SybexФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6924716470702716E78D42C690A985F8FE519CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850271   (1054146) от 27.01.2026
-
-Тони Парсонс | Сборник аудиокниг [2 книги] (2013-2015) [AAC, Nikosho]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта маленькая светлая книга возвращает человеку его естественное величие и неповторимую ценность. Тайна, которой нет, то единственное и прекрасное, что никогда нам не изменит, не будет никем похищено или разрушено. Тони Парсонс один из немногих, кто говорит о высочайших наслаждениях духа столь просто и доступно.
-Освобождение по своей природе очевидно, просто и естественно, (   Читать дальше...   )Жанр: АдвайтаИздательство: Аудиокнига своими рукамиПродолжительность: 01:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E6432EBF630C7F3F21293C3EC5A09D84D14B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850264   (1054145) от 27.01.2026
-
-Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
+А.Н. Лобин | Пушки Смуты. Русская артиллерия 1584–1618 (2021) [PDF, FB2, EPUB]
 
 >>Научная и техническая литература
->>Техническая литература
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054145.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+После Ливонской войны в Российском государстве начался стремительный рост производства артиллерии. В царствование Федора Ивановича, помимо легендарной «Царь-пушки», было отлито большое количество именных пищалей: «Скоропея», «Троил», «Аспид», «Свиток», «Лев», «Медведь» и других настоящих шедевров русского оружейного искусства. «Трудно вообразить, какое бесчисленное (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
+magnet:?xt=urn:btih:84D5DFECF8EBDD3C45C62D02472B30822E311750
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,25 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850265   (1054144) от 27.01.2026
+###  Публикация: 1851001   (1054893) от 31.01.2026
 
-Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and Multiple Number Series (2026) [PDF] [EN]
+А.Н. Лобин | Артиллерия Петра Великого. В начале славных дел (2023) [PDF, FB2, EPUB]
 
 >>Научная и техническая литература
->>Точные и естественные науки
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054144.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Addressing a significant gap in the study of number series, this book presents an in-depth theory of multiple number series and an exhaustive examination of one-dimensional series. It incorporates overlooked yet essential results alongside recent research advancements. Much of the text is based on the authors' original contributions, particularly in the development (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
+Книга известного историка, кандидата исторических наук А.Н. Лобина завершает серию исследований по истории русской артиллерии XIV—XVII вв., охватывая период 1676—1702 гг.: от царствования Федора Алексеевича до кардинальных Петровских реформ в области военного дела после поражения под Нарвой в ходе Северной войны. Обнаруженные автором новые архивные данные Пушкарского (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
+magnet:?xt=urn:btih:E56D532A3F958BD403EC3A8DE4EB4A288DCD6D22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,27 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850268   (1054143) от 27.01.2026
+###  Публикация: 1851000   (1054892) от 31.01.2026
 
-Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduction to Modern Methods With MATLAB® Implementations by C. Vomel (2026) [PDF] [EN]
+А.Е. Писарев | Московские стрельцы. Второй половины XVII – начала XVIII века. Из самопалов стрелять ловки (2021) [PDF, FB2, EPUB]
 
 >>Научная и техническая литература
->>Точные и естественные науки
+>>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054143.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The aim of this book is to provide a comprehensive introduction to solving large systems of equations.
-
-In addition to direct algorithms, it presents a wide range of classical and modern solvers – from splitting methods and multigrid techniques to current Krylov subspace methods (CG, GMRES, BiCGSTAB, etc.). These methods are discussed both mathematically and in terms (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+«Из самопалов стрелять ловки» – так формулировалось одно из профессиональных требований к боеспособности московских стрельцов, включавшее в себя умение быстро и метко вести огонь. Несмотря на это, стрельцы от дореволюционных и советских историков надолго получили ярлык «отсталых», «утративших боеспособность» войск. «Отсталость» определялась принадлежностью стрелецкого (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77BAE95C5FF96D54AB419C91DC5E104D5ACABDB2
+magnet:?xt=urn:btih:E250562C5927B7BA8F9C7F39BD9A5AB0CF6EE49A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,25 +232,263 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850269   (1054142) от 27.01.2026
+###  Публикация: 1850992   (1054891) от 31.01.2026
 
-Andrew Tanenbaum, Herbert Bos | Modern Operating Systems. 5th Edition (2023) [PDF] [EN]
+А.Н. Лобин | Пушки первых Романовых. Русская артиллерия 1619–1676 гг (2022) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054891.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора бестселлеров «Артиллерия Ивана Грозного» и «Пушки Смуты»!
+«Русская артиллерия, которая весьма хороша и эффективна, состоит не только из обычных, принятых у нас различных типов картовертов, полевых и полковых пушек, шлангов, мортир и пр. Кроме того, они имеют свои пушки и мортиры и другие маленькие изобретения…» – так в 1674 г. о военной мощи Русского государства (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0246B236AACFE0FA18BB397EFB86069C32704A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850987   (1054890) от 31.01.2026
+
+Генрих Жомини | Наполеон как полководец. Опыт военного искусства (2025) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генрих Жомини (1779 — 1869) — бригадный генерал на французской службе, генерал от инфантерии на русской службе, — один из крупнейших военных теоретиков ХIХ века (наряду с Клаузевицем).
+Принципы ведения войны Генрих Жомини вывел из рассмотрения походов Наполеона, которому посвятил отдельную книгу. Кроме того, Жомини является автором ряда работ по военному искусству, (   Читать дальше...   )Жанр: ИсторияИздательство: РодинаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78349B496A82C2D2B8244738093DD802B4E819A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850985   (1054889) от 31.01.2026
+
+А.А. Матвеева, М.А. Беляева | Пусть соперничают сто школ. О философах древности и первых царствах на территории Китая (2022) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каким был Древний Китай до того, как стать единой Империей?
+Периоды Чуньцю и Чжаньго были неспокойным временем для Поднебесной – многочисленные царства десятилетиями вели кровопролитные воины за гегемонию на Великой китайской равнине. Тем не менее, в историю эта эпоха вошла не как век военных, а как век философов.
+Это было время Конфуция, Лао-цзы, Мэн-цзы и множества (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: ШансФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CABAFA2418E186757DBAF1D6588BEE6BFFED2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850984   (1054888) от 31.01.2026
+
+Александр Пятигорский | Буддийская философия мысли (2020) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Моисеевич Пятигорский (1929–2009) – выдающийся мыслитель, востоковед, писатель, автор философских и буддологических монографий, романов, а также многочисленных философских работ и эссе. Эта книга была написана Александром Пятигорским на английском языке («The Buddhist Philosophy of Thought», 1984) и, таким образом, впервые публикуется на русском языке. (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: КоЛибриФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC1067F919AE2676886B0E7175C30EE8AD795C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850982   (1054887) от 31.01.2026
+
+Татьяна Ермакова, Елена Островская, Валерий Рудой | Классическая буддийская философия (2021) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учение Будды Шакьямуни о вступлении в Нирвану, его теоретическая интерпретация в текстах постканонической традиции считаются среди большинства специалистов предметом слишком сложным и в силу этого едва ли способным увлечь читающую публику. Но выходящие на эту тему книги неизменно привлекают широкое внимание. Работа, написанная ведущими буддологами России, посвящена (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: Академический ПроектФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935BB81E3D7FD4D2787257B607BB2DFA0E876037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850980   (1054886) от 31.01.2026
+
+Е. Торчинов, Ю. Щуцкий | Ицзин. Книга Перемен (2023) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054886.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ицзин» («Книга Перемен») – одна из древнейших книг китайской цивилизации и, пожалуй, одна из самых знаменитых. В основе ее лежат 64 гексаграммы, особые символы, призванные очертить определенные жизненные ситуации и раскрыть вопрошающему их дальнейшее развитие. Однако значение и смысл «Книги Перемен» выходят далеко за рамки «предсказателя судьбы». Своей мудростью (   Читать дальше...   )Жанр: Восточная философия, ИсторияПеревод: Е. Торчинов, Ю. ЩуцкийИздательство: Азбука-АттикусФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6512CD895EB59E70E63FE2BAF129830F985B9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850979   (1054885) от 31.01.2026
+
+Херли Крил | Философская мысль Китая. От Конфуция до Мао Цзэдуна (2017) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хёрли Крил - выдающийся американский синолог, автор научных трудов, посвященных истории, государственному устройству, философским и религиозным течениям Китая. В настоящей книге, предназначенной для широкой читательской аудитории, ученый рассматривает главные этапы формирования философской системы Поднебесной со времен династии Шан (ХV-ХIII вв. до н. э.) до провозглашения (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: ЦентрполиграфФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AF79F4CB56B70AE8B57121884B4670D4A1F5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850978   (1054884) от 31.01.2026
+
+Лао-Цзы | Книга о Пути Жизни. Дао-Дэ цзин (2018) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054884.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Книга о пути жизни» Лао-цзы, называемая по-китайски «Дао-Дэ цзин», занимает после Библии второе место в мире по числу иностранных переводов. Происхождение этой книги и личность ее автора окутаны множеством легенд, о которых известный переводчик Владимир Малявин подробно рассказывает в своем предисловии. Само слово «дао» означает путь, и притом одновременно путь (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: АСТФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C4860249EA2A54D5145D76E176962E694755DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850974   (1054883) от 31.01.2026
+
+Евгений Торчинов | Философия китайского буддизма (2023) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, подготовленная известным китаеведом и буддологом Е. А. Торчиновым, содержит три основополагающих текста, относящихся к VI–IX векам, без которых невозможно адекватное понимание всей дальневосточной буддийской традиции. В нее вошли важнейшие философские трактаты: «Трактат о пробуждении веры в Махаяну», трактат Цзун-ми «О началах человека» и трактат пятого чаньского (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: Азбука-АттикусФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFAFA6818C350D89E55BDA60EC4D2058BC51C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850966   (1054882) от 31.01.2026
+
+Н.И. Гурин, А.Г. Скоморохов | Аналитические вычисления в системе REDUCE (1989) [DJVU]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054142.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Modern Operating Systems incorporates the latest developments and technologies in operating systems (OS) technologies. Author Andy Tanenbaum's clear and entertaining writing style outlines the concepts every OS designer needs to master. In-depth topic coverage includes processes, threads, memory management, file systems, I/O, deadlocks, interface design, multimedia, (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
+Рассмотрены основные возможности системы аналитических вычислений на ЭВМ REDUCE, одной из самых развитых в мире систем компьютерной алгебры. Приведено множество примеров, иллюстрирующих особенности работы системы в различных ситуациях. В качестве примеров использованы в основном фрагменты программ, созданных авторами для решения конкретных физических задач. Даны (   Читать дальше...   )Жанр: МатематикаИздательство: Наука и техникаФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4CE95A007BAA059E295740DCC0FD5CE2A4100A9
+magnet:?xt=urn:btih:39F9AD6F76C3F75CD8373A9063267157F12429C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,28 +496,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850304   (1054141) от 27.01.2026
+###  Публикация: 1850903   (1054881) от 31.01.2026
 
-VA - Magical Melodies: Nicolai, Rossini, Gounod, Brahms, Tchaikovsky, Wagner - Overture, Waltz and other (1968) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Classical>
+Николай Метельский | Цикл «Унесенный ветром». Компиляция [13 книг] (2017-2023) [FB2, EPUB]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054141.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 The Vienna State Opera Orchestra - The Merry Wives Of Windsor : Overture Nicolai
-A2 The Beecham Promenade Orchestra - The Thieving Magpie : Overture Rossini
-A3 The Vienna State Opera Orchestra - Faust Waltzes Gounod
-B1 The Vienna State Opera Orchestra - Three Hungarian Dances (Nos. 6, 7 And 1) Brahms(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:51
+Он привык быть одним из сильнейших. Тем, чья сила не вызывает сомнений. Тем, кто у целого мира выбил свою независимость. Когда он неожиданно умер, очень многие вздохнули с облегчением. Их можно понять. Но он не зря носил позывной «Кощей». И пусть новый мир лишь похож на его старый, пусть в нем живут те, кто намного сильнее его, — он не привык быть массовкой. И он (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы в магические миры, фэнтези, героическое фэнтезиИздательство: СамиздатФормат: FB2, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12B91270303C405F91D635574F13175399F914C7
+magnet:?xt=urn:btih:820D291D29B39FCB72DDDC8124FA0A52BEABEDA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,28 +522,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850341   (1054140) от 27.01.2026
+###  Публикация: 1850895   (1054880) от 31.01.2026
 
-The Boomtown Rats - Dave (1984) [FLAC|Lossless|image + .cue] <Rock, New Wave, Synth-pop>
+Журнал | Popular Woodworking №287 (февраль 2026) [PDF] [EN]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054140.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Dave (LP Version)
-A2 Hard Times
-Lazun Gemmun - The Boomtown Rats Live
-B1 Banana Republic(   Читать дальше...   )Жанр: Rock, New Wave, Synth-popПродолжительность: 00:23:30
+Журнал, посвященный столярному делу. Проекты, идеи, обзоры материалов и инструментов. Многочисленные идеи и проекты от создателей одного из популярнейших изданий для любителей столярного дела. Журнал является одним из основных ресурсов для энтузиастов работы с деревом, от среднего уровня мастерства до профессионалов в своем деле.Жанр: Столярное делоЯзык: АнглийскийИздательство: F+W Publications, Inc.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1A298C245597DDF30D165D36C4C78016994747D
+magnet:?xt=urn:btih:AAA073B4F0CF665AA053006851F4D6A0BA5EC616
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,25 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850380   (1054139) от 27.01.2026
+###  Публикация: 1850894   (1054879) от 31.01.2026
 
-Проекты - VideoHive - Phone Notifications (Liquid Glass Style) - 61576187 [AEP]
+АСТ | Секреты GIT. Никогда не теряй свой код! (2024) [PDF]
 
->>Проекты
->>Элементы (проекты)
+>>Компьютерная литература
+>>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054139.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Автоматизированные уведомления в стиле «жидкого стекла»: создавайте мобильные уведомления в стиле «жидкого стекла» за считанные минуты с помощью этого шаблона. Настройте все параметры в интуитивно понятной панели управления всего за несколько кликов. Встроенные звуковые эффекты и пошаговое видеоруководство делают настройку доступной даже для новичков.Формат: AEP
+Данное издание может стать незаменимым помощником для любого пользователя системы контроля версий Git, в наши дни широко распространенной в сфере разработки программного обеспечения благодаря своей «продвинутое» и универсальности. Авторы разделов этой книги — опытные разработчики, постоянно и активно использующие Git в решении повседневных задач при написании и систематизации (   Читать дальше...   )Жанр: Учебное пособиеИздательство: АСТФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25AD609373CACC0607A65CB27539D48406038907
+magnet:?xt=urn:btih:765071B4D8816D533319A2CEFCB62E2F259E8C2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,28 +574,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850383   (1054138) от 27.01.2026
+###  Публикация: 1849411   (1054878) от 31.01.2026
 
-Пресеты - Alex Hutchinson - Lightroom & ACR Preset Pack: 35mm Film [XMP, LRTEMPLATE]
+VA - The Biggest Songs of 2000s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054138.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это мой набор пресетов для Adobe Lightroom и Photoshop. Пресеты не универсальны, но достаточно близки к идеалу.
-
-Эта коллекция пресетов разрабатывалась годами, в течение которых я снимал на плёнку и стремился воспроизвести тонкий цветовой баланс в своих цифровых работах.
-(   Читать дальше...   )Формат: XMP, LRTEMPLATE
+01. Coldplay - Viva La Vida - (04:02)
+ 02. David Guetta - Sexy Bitch (feat. Akon) - (03:16)
+ 03. B.O.B - Nothin’ on You (feat. Bruno Mars) - (04:28)
+ 04. Roxette - Milk and Toast and Honey - (04:05)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 04:18:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C7030EA925623A519FD3599B46C2CD1240D26DF
+magnet:?xt=urn:btih:1CFF68E93208A9939F6223D53CF4CC2BC35FE3F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,26 +603,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850385   (1054137) от 27.01.2026
+###  Публикация: 1850748   (1054877) от 31.01.2026
 
-Perfectly Clear WorkBench 5.0.1.3057 + AddonsPack [Multi/Ru]
+Дмитрий Пыжьянов | Ремонт плат котлов (2025) WEB-DL [RU]
 
->>Мультимедиа и Графика
->>Графические редакторы
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054137.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Ремонт плат котлов (РПК) — это востребованное направление, особенно с учётом того, что новая плата может обойтись в сумму до 30 000 рублей. Освоить эту профессию можно онлайн, без необходимости посещать офлайн-курсы. Практиковаться вы сможете прямо у себя дома, а затем зарабатывать, не выходя из него.
+В процессе обучения вы научитесь считывать и перепрошивать микроконтроллеры, (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 12:46:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EA45E4166DD6F0AB0575AECC84390F10CBA9A5B
+magnet:?xt=urn:btih:D81B600131E71C7D3B3FC324A4372073F42FB065
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,25 +630,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849747   (1054136) от 
+###  Публикация: 1850749   (1054876) от 31.01.2026
 
-Книга Илая / The Book of Eli (2009) BDRip [H.265/2160p] [4K, HDR10+, 10-bit] [handmade Upscale]
+Дмитрий Пыжьянов | Navien до винтика (2025) WEB-DL [RU]
 
->>Остальное
->>hand made * video
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054136.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После мировой катастрофы Америка превратилась в выжженную пустыню. По бескрайним дорогам, кишащим бандами, враждующими между собой за воду и еду, странствует мудрый Илай. Однажды он прибывает в мрачные края, где когда-то была цветущая Калифорния, а теперь это сущий ад, где бесчинствует тиран Карнеги.Производство: США / Alcon Entertainment, Silver PicturesЖанр: фантастика, боевик, драмаРежиссер: Альберт Хьюз, Аллен ХьюзАктеры: Дензел Вашингтон, Гари Олдман, Мила Кунис, Рэй Стивенсон, Дженнифер Билз, Малкольм МакДауэлл, Фрэнсис де ла Тур, Майкл Гэмбон, Том Уэйтс, Ивэн ДжонсПеревод: Дублированный (Пифагор), Многоголосый профессиональный, Авторский (Сербин, Гаврилов, Есарев)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:57:36
+Курс по котлам Navien — это полноценное практическое обучение, охватывающее все ключевые аспекты работы с оборудованием: от монтажа до устранения неисправностей. Вы получите структурированный и подробный материал, который поможет вам начать зарабатывать в сфере обслуживания отопительных систем.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:29:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC72BBDFABBF2FB6BB37EC872C45A348BCBC7776
+magnet:?xt=urn:btih:F715296CD96229F3E41554D1DCCEE72A39E8ED9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,78 +656,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850390   (1054135) от 27.01.2026
+###  Публикация: 1850756   (1054875) от 31.01.2026
 
-Анаконда / Anaconda (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+Иван Мастер | Обучение вскрытию замков и автомобилей (2025) WEB-DL [RU]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054135.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа друзей отправляется в джунгли, чтобы снять ремейк «Анаконды», их любимого фильма юности. Однако вскоре после начала съёмок змея, главная звезда фильма, погибает, и друзьям приходится продвигаться в глубь джунглей, чтобы найти ей замену.Производство: США / Columbia Pictures, Fully Formed Entertainment, TSG EntertainmentЖанр: боевик, комедия, приключенияРежиссер: Том ГормикэнАктеры: Джек Блэк, Пол Радд, Стив Зан, Тандиве Ньютон, Даниэла Мелшиор, Селтон Мелу, Айс Кьюб, Айони Скай, Руй Рикардо Диас, Джон Биллингсли, Себастьян СероПеревод: Дублированный (MovieDalen)Субтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:38:50
+После прохождения обучения ученики уже через три дня выезжают на первые заказы и начинают зарабатывать. Курс полностью закрывает все вопросы по замкам: разобраны все типы конструкций, показаны наглядные макеты и подробно объяснено устройство и принципы работы — от основ до профессиональных нюансов.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 06:13:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7F0F14A7C79AB5FD98E3FF289F4CCEF50126414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850391   (1054134) от 27.01.2026
-
-Елена Логунова | Ванна с шампанским (2025) [MP3, Дарья Копысова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индия негодовала: ее жених не смог выбить у начальства отпуск, а теперь поездка в Рим накрывается медным тазом! Составить девушке компанию согласился брат, известный дизайнер Казимир, но если бы она знала, чем все закончится! Увидев в одном из римских сквериков бесхозную старинную ванну, он вознамерился увезти ее с собой, чтобы выгодно продать одному из постоянных (   Читать дальше...   )Жанр: Иронический детективИздательство: ЭксмоПродолжительность: 08:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F20F132AD5C6640CD3D111A2B3A238EB8C5B09D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849686   (1054133) от 27.01.2026
-
-В России снова планируют выпускать собственные процессоры: для этого власти создают крупную корпорацию с бюджетом в 1 триллион рублей⁠⁠
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054133.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках плана развития микроэлектроники в России правительство собирается создать мегакорпорацию под названием «Объединенная микроэлектронная компания» (ОМК), на развитие которой в период до 2030 года направят триллион рублей, в том числе 750 миллиардов — из федерального бюджета.Основные детали плана:
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:58899EC710DAF4265B8E0CCA4D9B35DCBD50E223
 ```
 
 https://mybot314.ru/tekegram_catalog/

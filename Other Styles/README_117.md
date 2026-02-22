@@ -1,3 +1,38 @@
+###  Публикация: 538006   (504839) от 28.08.2012
+
+Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In Pacific Ocean (Ethereal)
+02.Breath underwater (Ethereal)
+03.Flying in the deep blue (Ethereal)
+04.Across the Lagoon Nebula
+05.Son of the Sun
+06.Sailing the river Styx
+07.From the Beginning Till the End
+08.Touch of Blue light
+09.Ganymede
+10.K'ank'in(   Читать дальше...   )Жанр: New Age, Enigmatic, AmbientПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2622E9CA068BE2A2BAE908E3567827A0D89437C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540217   (504743) от 28.08.2012
 
 Marilyn Monroe - Marilyn Monroe Sings! (2CD) (2012) [MP3|320 кб/с]<OST>
@@ -756,35 +791,6 @@ Iasos - 9 albums (1975-2001) [MP3|256-320 кб/с]<New age>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935765   (498441) от 09.09.2015
-
-Divine Matrix - Atmospheric Variations (2012) [MP3|320 кб/с]<Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1000 Light Years
-02. Jigokudani Springs
-03. Magnetic Disturbance
-04. Marine Forcast(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D1082088CFC1BCAD4B122B9DC5BE8186962DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1763618   (35415) от 02.12.2024
+
+VA - Nocturnal Knights Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Wilks - Voice In The Dark (Extended Mix) (07:18)
+02. Dan Cooper - Electra (Extended Mix) (06:48)
+03. RAM, Richard Durand, Digital Culture, Spacefrog & Derb - Follow Me 2024 (Extended Mix) (07:49)
+04. 0Gravity & Lucas Deyong - Interfusion (Extended Mix) (06:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE56D27138D2E00517966AFEF4DF80A28FEB4FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763660   (35412) от 02.12.2024
 
 VA - Gert Records 1000 - Celebration Dj Mix (Mixed By Vito Von Gert) (2024) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ Bobina - Speed Breaker (2016) [MP3|320 кб/с] <Progressive Trance, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8B745988951118D55D373C76CC54CF4265C5ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824760   (31716) от 07.01.2025
-
-VA - The Very Best Of Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31716.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rafael Frost - Never Been Hurt Before - Radio Edit
-002. Dart Rayne - Incomplete - Radio Edit
-003. Beat Service - When You Won't Come Home - Radio Edit
-004. Tenishia - Lifetime When Right - Radio Edit(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC14C730011382CE1C0C583BF8BD550C0F07BC4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 928453   (522574) от 16.08.2015
+
+Gabriele Mirabassi, Nando Di Modugno, Pierluigi Balducci - Amori Sospesi (2015) [FLAC|Lossless|WEB-DL]<World Fusion, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gli Amori Sospesi
+02. Minuano
+03. Fryderyk
+04. En La Orilla Del Mundo(   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C1F3C41181F1C539C04F36383E6BF431EAC7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928430   (522550) от 16.08.2015
+
+Peter Erskine - Peter Erskine (1982) /1988, Contemporary Records/ [FLAC|image+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leroy Street [07:50]
+02. In Statu Nascendi [01:31]
+03. E.S.P. [02:57]
+04. Change of Mind [07:28](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C79ED1BB893766831F10DDE4B311DD030818CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928504   (522548) от 16.08.2015
+
+Fortadelis - The New Batch (2015) [FLAC|Lossless|WEB-DL]<Nu Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bossa (03:54)
+ 02. Chillin In The Club (03:44)
+ 03. Urban Vibe (05:18)
+ 04. Unfolding Into Vastness (05:11)(   Читать дальше...   )Жанр: Nu Jazz, Jazz-FunkПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B686A5D40FA5266513C12CF782A28DA5014ABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928282   (522545) от 16.08.2015
 
 VA - The Jazz Box Set (1996) 3CD [MP3|320 кб/с]<Jazz, Bop, Fusion>
@@ -658,99 +745,6 @@ Nat King Cole - The Trouble With Me Is You (1944) /1989, ORO/[FLAC|tracks+.cue]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD123503EE0ACFF095FBEF2E98B0187C482073D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314342   (520403) от 13.07.2019
-
-Harlan Leonard - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' With The Rockets [3:12]
-02. Hairy Joe Jump (Southern Fried) [3:15]
-03. Contact [3:08]
-04. Snaky Feeling [3:31](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024B2D750FDF5560738D902AB51BE81179ECE536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534379   (520026) от 13.08.2012
-
-VA - Stax Records 50th Anniversary (2008) 3CD BoxSet [FLAC|Lossless]<Blues, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Otis Redding - Try A Little Tenderness [04:02]
-02. Veda Brown - Short Stopping [02:24]
-03. Johnnie Taylor - Cheaper to Keep Her [03:30]
-04. David Porter- I'm Afraid The Masquerade Is Over [04:46]
-05. Ollie & the Nightingales - I'll Be Your Anything [02:56]
-06. Mable John - Your Good Thing (Is About to End) [02:58]
-07. The Mad Lads - By The Time I Get to Phoenix [02:49]
-08. Rance Allen - I Got To Be Myself [02:53]
-09. Steve Cropper - In The Midnight Hour [03:39]
-10. Eddie Floyd - Yum Yum Yum (I Want Some) [02:51](   Читать дальше...   )Жанр: Blues, Soul, FunkФормат: 3CD BoxSet Collector's EditionПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560558   (519781) от 30.06.2022
-
-V.A. - Jazz Ambient Del Mar (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro Comini & The Sagittarius Trio – Chet And Chet
-02. Rossella Graziani 4Tet – Love For Sale
-03. Velho 4 – De Novo
-04. Guido Guidoboni Quintet – Freddy Go(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DE54FC42BF78D5B941B837A5286E0ED3DAE0F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

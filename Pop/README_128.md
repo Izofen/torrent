@@ -1,3 +1,119 @@
+###  Публикация: 1030962   (670043) от 02.07.2016
+
+Sarah Brightman - Greatest Hits (2009) 2CD [FLAC|Lossless|image + .cue] <Europop, Vocal, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Symphony 	04:47
+02. 	Arrival 	03:17
+03. 	Running 	06:09
+04. 	Harem 	05:45(   Читать дальше...   )Жанр: Europop, Vocal, ClassicalПродолжительность: 02:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8728D57B7ED7DAA9C0C7BE4E7312344F4CC85F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223955   (669773) от 07.05.2018
+
+Dear Rouge - Black To Gold (2015) [FLAC|Lossless|tracks] <Electronic Pop Rock, Dance Rock, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black To Gold
+02. Best Look Lately
+03. Nostalgia
+04. I Heard I Had(   Читать дальше...   )Жанр: Electronic Pop Rock, Dance Rock, Female VocalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B288B2C5680272AB2C02902E74662AC0325A04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223935   (669766) от 07.05.2018
+
+Dear Rouge - Phases (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic Pop Rock, Dance Rock, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wicked Thing
+02. Live Through The Night
+03. Stolen Days
+04. Boys & Blondes(   Читать дальше...   )Жанр: Electronic Pop Rock, Dance Rock, Female VocalПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28EA9EBCED04905A071D4A4393CC15C51535A80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223767   (669541) от 07.05.2018
+
+Fancy - 30 Years: The New Best Of (2018) Compilation [FLAC|Lossless|image + .cue] <Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Flames Of Love (3:30)
+02.Slice Me Nice (4:07)
+03.Come Back And Break My Heart (4:03)
+04.We Can Move A Mountain (3:50)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72F1CFFA90C1AF6D486A7DD1226F1A9B1123794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223894   (669539) от 07.05.2018
 
 Kimbra - Primal Heart (2018) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Indie Pop, Electronic>
@@ -629,122 +745,6 @@ VA - Voll Bock auf Ballermann (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9867506FDC56F59009F046F272CB3D7D9CEDD1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224021   (668107) от 08.05.2018
-
-The Three Degrees - Greatest Hits (1998) [FLAC|Lossless|image + .cue] <Disco, Soul, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Jump The Gun
-02.	Long Lost Lover
-03.	Red Light
-04.	Together(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A44A42E2C91A06CFA0AB1B5EEF788BA501E79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224128   (668106) от 08.05.2018
-
-West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|image + .cue] <Musical, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Grease
-02.	Summer Nights
-03.	Hopelessly Devoted To You
-04.	You're The One That I Want(   Читать дальше...   )Жанр: Musical, PopПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD52C0EEA786807C365E7A9FCC0D6A6ABE8F896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537184   (667891) от 16.03.2022
-
-VA - Mastermix Pro Disc 259 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Oh My God
-02. Danny Byrd & D Double E - Selecta
-03. Joy Crookes - Trouble
-04. D.O.D feat. Carla Monroe - Still Sleepless(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:10:54 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95E15D0EB7FEB0C6D354E986B72F6B3F8FDEF07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137568   (667880) от 26.05.2017
-
-Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Is A Place On Earth (4:07)
-02. I Get Weak (4:52)
-03. World Without You (4:42)
-04. Runaway Horses (4:42)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B4EBF2ED4C5AC40DBDF82D4D8B451D0433D81
 ```
 
 https://mybot314.ru/tekegram_catalog/

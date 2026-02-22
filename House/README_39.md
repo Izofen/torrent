@@ -1,3 +1,90 @@
+###  Публикация: 1537142   (669239) от 15.03.2022
+
+VA - Hardstyle XXL Megamix 2022 [MP3|320 Kbps] <House, Club House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gunz For Hire - Ongedierte van de Nacht
+02. D-block & S-te-fan - Twilight Zone (Headhunterz Remix)
+03. Ran-DSound RushLePrince - We Are the Storm (Radio Edit)
+04. JDXSander Nijbroek - Tides (Performance Mix)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 03:40:08 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A58868CFA388DB9301D5083D734F664E711ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031368   (668783) от 03.07.2016
+
+VA - Future House 2016-03 (2016) [MP3|320 Kbps] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugel & Jasmine Thompson -  Where We Belong (Calvo Remix) 4:27
+02. Cedric Gervais -  Make Me Feel 3:28
+03. Destructo -  4 Real (Joyryde Swurve Mix) 4:35
+04. Felix Leiter -  BWU 3:07(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 01:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A058B09E24F8EC498082A1FEB316FB84260D315F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031299   (668782) от 03.07.2016
+
+VA - Girl Power #1 (2016) [MP3|320 Kbps] <House, Electro House, Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Coverage -  Tell Me (Club Mix) 4:05
+02. Vio -  One Girl (Stephan F Extended) 4:45
+03. Deeplow -  Limelight (DJane HouseKat Remix) 4:45
+04. Fucking Role Models -  Leave Me Alone (Feat. Adeena) (Extended Mix) 4:52(   Читать дальше...   )Жанр: House, Electro House, Vocal HouseПродолжительность: 02:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99CF45DA0B996397BC7B4CF925C6F858FFC30426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137498   (667934) от 26.05.2017
 
 VA - Beach House Anthems Volume 2 (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -664,93 +751,6 @@ VA - Spring Collective 01 (2018) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:078070D53CD7AE30A9790D34E3173876ED38CFE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225687   (658828) от 17.05.2018
-
-VA - Best Of Series: Miroslav Vrlik Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miroslav Vrlik - Another Night (Mark & Lukas Remix)
-02. Miroslav Vrlik - Words Mean Nothing (Original Mix)
-03. Miroslav Vrlik - Pathfinder (Original Mix)
-04. Miroslav Vrlik - Find You (Original Mix)(   Читать дальше...   )Жанр: Progressive House, House,TranceПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112713D3394B7905619DDC02B19B4FC1D6559AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140163   (658277) от 04.06.2017
-
-VA - Strong Stuff (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Following Light - Intention (Michael A Remix) 06:29
-02. Magnetic Brothers - Morning Feelings (K Nass Remix) 07:03
-03. Ewan Rill - Scanners 06:32
-04. Platunoff - Secret 07:09(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D90A49FBCEF789A7FB01FDF54F1060A0A8AF8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139913   (658209) от 04.06.2017
-
-VA - Ibiza Vocal Hits 2017 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BRKLYN – Heart Of The City (Myon Signature Remix) (3:21)
-02. Ryos – Discover Love (Original Mix) (3:45)
-03. Cuebrick – Smoke & Fire (Original Mix) (3:17)
-04. Tritonal – Running Into Me (Original Mix) (4:27)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90E20D96276730839E6C86DC5FE3C893481A20F
 ```
 
 https://mybot314.ru/tekegram_catalog/

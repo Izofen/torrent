@@ -1,3 +1,32 @@
+###  Публикация: 1191165   (264473) от 13.12.2017
+
+St. Vincent - Masseduction (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Pop, Art Pop, Baroque Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hang on Me (02:48)
+02. Pills (04:40)
+03. Masseduction (03:17)
+04. Sugarboy (04:01)(   Читать дальше...   )Жанр: Alternative Pop, Art Pop, Baroque Pop, Electropop, New Wave, Ambient RockПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8920CC4363A7AB1F408F68E4C954FB61439B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191256   (264472) от 13.12.2017
 
 VA - BBC Radio 2: The Piano Room (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Piano>
@@ -718,41 +747,6 @@ Tanita Tikaram - 9 альбомов (1988 - 2005) [FLAC|Lossless]<Pop, Folk>
 1995 - Lovers In The City
 1998 - The Cappuccino Songs
 2005 - SentimentalЖанр: Pop, Folk
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499992   (256991) от 22.05.2012
-
-Foster The People - Torches (2011) [FLAC|Lossless]<Indie Pop, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256991.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Helena Beat
-2. Pumped Up Kicks
-3. Call It What You Want
-4. Color On the Walls (Don't Stop)
-5. Waste
-6. I Would Do Anything for You
-7. Houdini
-8. Hustling (Life On the Nickel)
-9. Miss You
-10. Warrant(   Читать дальше...   )Жанр: Indie Pop, AlternativeПродолжительность: 00:45:36
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,90 @@
+###  Публикация: 1524779   (130378) от 18.01.2022
+
+Molly Nilsson - Extreme (2022) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absolute Power (03:49)
+ 02. Earth Girls (04:11)
+ 03. Fearless Like A Child (04:03)
+ 04. Kids Today (04:05)(   Читать дальше...   )Жанр: Dream PopПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938E3E603B696ACF6E34F9526BE29425A0211AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525181   (130095) от 19.01.2022
+
+Tony Valor Sounds Orchestra - 2 Albums (1976, 1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первой песней, выпущенной под управлением оркестра Tony Valor Sounds из США, была "Ma-Mo-Ah" на 7-дюймовом сингле и пластинке "Gotta Get it", став мировым хитом в 1977 году и с тех пор несколько раз переиздавалась.01. A Little Thing (3:02)
+02. Don't Forget (2:40)
+03. Girl (3:03)
+04. Give Me Some More (2:52)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7569E21CC44B71D57DBFE92391F1C306667672E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525129   (130036) от 19.01.2022
+
+Beach House - Once Twice Melody (2022) 3[EP] [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Rock, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunset (04:00)
+ 02. Only You Know (04:50)
+ 03. Another Go Around (03:42)
+ 04. Masquerade (04:42)(   Читать дальше...   )Жанр: Dream Pop, Indie Rock, Indie PopПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A51A5457A39D18F5DCED5C879890FD0622C3A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682956   (129911) от 09.12.2023
 
 Kylie Minogue - Extension (2023) The Extended Mixes [MP3|320 Kbps] <Pop>
@@ -661,93 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52E0240B4175F4A4029496040E3C50B9948FA111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684320   (127811) от 15.12.2023
-
-Тайпан - Она говорила (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127811.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Царство моё (feat. Logmarin & MorozKA)
-2. Так влюблена (feat. IL'GIZ)
-3. Лети (feat. NAZAMI)
-4. Не сойти с ума (feat. LI ZA)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2D86854D8F2741BC6EDA097A8361ECEBD0EC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684324   (127640) от 16.12.2023
-
-VA - M6 Hits 2024 (2023) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris - My Way (3:39)
-02. Rema - Calm Down (3:39)
-03. Hamza - Nocif (3:49)
-04. SDM - Bolide allemand (2:56)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 04:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676DC2CBBAC03776D835E0437F5243BE21CFCE8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684668   (127585) от 16.12.2023
-
-Мэйби Бэйби - SHAWTY (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello, My Name Is Baby (00:02:20)
-02. DURAGA (00:02:22)
-03. Принцесса Диана (00:03:20)
-04. Ice Baby (00:02:49)(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECFC67FE9109AA38FD207CC404B7A1E2AE8CE54
 ```
 
 https://mybot314.ru/tekegram_catalog/

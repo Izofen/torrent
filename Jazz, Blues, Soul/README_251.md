@@ -1,3 +1,90 @@
+###  Публикация: 1147309   (609867) от 02.07.2017
+
+Abdu Salim - Aladdin's Magic Lamp (2001, 2008) 2011, Crisis Muzon Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jibril [07:51]
+02. The Next Blues [07:15]
+03. Elegante [07:04]
+04. Amirha's Dance [07:55](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7782D8173EAFF63B71B927FA699A34C9CCE82381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147305   (609735) от 02.07.2017
+
+Roscoe Mitchell - Bells For The South Side (2017) 2CD, ECM [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609735.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Spatial Aspects of the Sound [12:15]
+02. Panoply [07:37]
+03. Prelude to a Rose [12:45](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 02:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DBE7C15E2C684A89F5778176740C5B757EEECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147177   (609733) от 02.07.2017
+
+JvT Band - Bound (2015) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bound  (05:40) 
+02. Damnright  (06:54) 
+03. Moonshine  (08:50) 
+04. Angels  (07:06) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0919B4598639AAF3ED001F18B3D14A4816763E4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147402   (609731) от 02.07.2017
 
 Perez Prado - The Best Of Perez Prado - The Original Mambo No.5 (2006) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mambo>
@@ -657,99 +744,6 @@ Bobby Watson and the Horizon Quintet - Gumbo (1994) [FLAC|Lossless]<Hard Bop, Po
 05. Gumbo
 06. Wheel Within A Wheel
 07. PremonitionЖанр: Hard Bop, Post-Bop, Saxophone JazzПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147695   (607724) от 03.07.2017
-
-Louis Armstrong - Under The Stars (1957) 2009, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top Hat White Tie & Tails [04:14]
-02. Have You Met Miss Jones [04:42]
-03. I Only Have Eyes For You [04:17]
-04. Stormy Weather [04:20](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38DD8949DF23A7A81D2A56FEF41F574C44A61768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546272   (607548) от 23.04.2022
-
-Edgar Winter - Brother Johnny (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трибьют-альбомы с участием всех звезд обычно вызывают осторожность у покупателей. Слишком часто они небрежны и не сфокусированы на главном. Brother Johnny, к счастью, редкое исключение. Восемь лет с большой любовью создавалось это музыкальное письмо от Edgar Winter'а его старшему брату Johnny, великому блюз-рокеру, который умер в 2014 году в возрасте 70 лет. И вот, (   Читать дальше...   )01. Mean Town Blues (Featuring Joe Bonamassa) (5:04)
-02. Still Alive And Well (Featuring Kenny Wayne Shepherd) (3:42)
-03. Lone Star Blues (Featuring Keb' Mo') (3:57)
-04. I'm Yours And I'm Hers (Featuring Billy Gibbons & Derek Trucks) (4:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8919D3BDD5DB0AFC14A36FFA59034A6B5E2CB16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525355   (607495) от 21.07.2012
-
-Bobby Hutcherson - Best of the Blue Note Years (2001) [FLAC|Lossless]<Post-Bop, Hard Bop, Vibraphone>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_607495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Mind Matter
-02. Little B's Poem
-03. Bouquet
-04. Getto Lights
-05. Patterns
-06. 'Til Then
-07. Dave's Chant
-08. Same Shame
-09. Ummh
-10. Houston St Thursday Afternoon(   Читать дальше...   )Жанр: Post-Bop, Hard Bop, VibraphoneПродолжительность: 01:09:01
 
 ## Скачать торент
 ```bash

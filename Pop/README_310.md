@@ -1,3 +1,90 @@
+###  Публикация: 969691   (147068) от 27.12.2015
+
+Игорь Корнелюк - Избранное Vol. 3 (2014) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Интродукция
+02.  Клево
+03.  Фокстрот
+04.  На раз (Саксофон)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AE63CE54C416BC57064EA38C69F0CF2CB3291B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969574   (147013) от 27.12.2015
+
+ABBA - The Definitive Collection (2001) [FLAC|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147013.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. People Need Love
+02. He Is Your Brother
+03. Ring Ring(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414A6BBBE9D60D80AF3AD8DA467DD97BE36F668B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969552   (146902) от 27.12.2015
+
+VA - $uper DISCOteka 70s/80s (2015) 5CD [MP3|320 кб/с] <Disco, Pop, Dance, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - Rasputin (7:32)
+02. Sabrina - Boys (Sommertime Love) (3:52)
+03. Toni Esposito - Kalimba De Luna (4:59)
+04. Pupo - Burattino Telecomandato (3:01)(   Читать дальше...   )Жанр: Disco, Pop, Dance, BalladПродолжительность: 06:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD5A3BCA9BB55AC589CA2459F5565C90DF32497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087285   (146779) от 27.12.2016
 
 Big Pig - Bonk (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Funk>
@@ -657,90 +744,6 @@ Vision Mastermixers - Seventies Mixes (1995) [FLAC|Lossless|image + .cue] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46EACA5618E362DF5308BB1B038B24A03E6B9E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348219   (145231) от 27.12.2019
-
-Falco - Meisterstucke (1995) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Kommissar (Rap' That) (3:51)
-02. Maschine Brennt (3:40)
-03. Auf Der Flucht (4:15)
-04. Wiener Blut (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4679CFC107F8956F5B7F3D7F103DF310E77A1BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348317   (145149) от 27.12.2019
-
-Жасмин - Я верю в любовь (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145149.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я верю в любовь
-2. Похожи
-3. Белая птица
-4. Ты моё, моё…(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A5F572A7499502F057C53C5CEE0D5CC45F8CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348162   (145087) от 27.12.2019
-
-Vision Mastermixers - The Very Best 60s Megamix (1999) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Dance - Lee Chappell (1:23)/ I Get Around - Wilson (0:58)/ I Saw Her Standing There - Davies (1:36)/ You Really Got Me - Barry, Greenwich, Spector (1:02)/ Da Doo Ron Ron - E.Holland, L Dozier, B.Holland (1:08)/ Baby Love - Marriot, Lane (1:03)/ Lazy Sunday - Weiss, English (0:43)/ Hi Ho Silver Lining - Stewart (0:47)/ Daydream Believer - Various (0:56)/ (   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBFBF8FC6D90A592A994C9D2C85CEBFB09D5386
 ```
 
 https://mybot314.ru/tekegram_catalog/

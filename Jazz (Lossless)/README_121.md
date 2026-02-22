@@ -1,3 +1,32 @@
+###  Публикация: 1286226   (713197) от 02.03.2019
+
+Carmen Bradford - Home With You (2004) Azica Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can Depend on Me [3:28]
+02. My Shining Hour [5:32]
+03. Home with You [4:25]
+04. Take the A Train [3:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B75F1100C040DEA548CA2386DCD738A7F7847E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286431   (713191) от 02.03.2019
 
 Joe Chambers - The Almoravid (1974) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ Ben Webster - Ballads (1954, 1955) 2011, Phoenix Records [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB2FE176679BB0AE2E840BD920354474142B9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533066   (708997) от 22.02.2022
-
-Maxine Sullivan With The Scott Hamilton Quintet - Uptown (1985) Concord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Were Meant for Me [3:35]
-02. I Thought About You [5:10]
-03. Goody Goody [3:50]
-04. Something to Remember You By [5:22](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25D88E26CC13241F2A2AE0DC782A1E60B99ABDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

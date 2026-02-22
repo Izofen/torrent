@@ -1,3 +1,32 @@
+###  Публикация: 1749169   (104526) от 13.09.2024
+
+London Grammar - The Greatest Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - House [3:11]
+02 - Fakest Bitch [4:20]
+03 - You And I [5:01]
+04 - LA [4:32](   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAF3C60F48CD06D8AE703CFC4F88895111143F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822800   (104508) от 08.10.2025
 
 Terry Stafford - Suspicion (1994) [WavPack|Lossless|image + .cue] <Pop>
@@ -727,41 +756,6 @@ C 1984 года Eros Ramazzotti выпустил 11 студийных альб�
 02 - Più Bella Cosa
 03 - Quasi Amore
 04 - Il Mio Amore Per Te(   Читать дальше...   )Жанр: PopПродолжительность: 02:17:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481498   (88038) от 12.04.2012
-
-Madonna - MDNA (2012) Japan Edition [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Girl Gone Wild [3:43]
-02. Gang Bang [5:26]
-03. I'm Addicted [4:34]
-04. Turn Up The Radio [3:47]
-05. Give Me All Your Luvin' (Featuring Nicki Minaj & M.I.A.) [3:23]
-06. Some Girls [3:54]
-07. Superstar [3:55]
-08. I Don't Give A (Featuring Nicki Minaj) [4:19]
-09. I'm A Sinner [4:52]
-10. Love Spent [3:46](   Читать дальше...   )Жанр: PopПродолжительность: 01:12:45
 
 ## Скачать торент
 ```bash

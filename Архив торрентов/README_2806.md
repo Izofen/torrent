@@ -1,3 +1,32 @@
+###  Публикация: 1039441   (595955) от 01.08.2016
+
+VA - Goa Year 2016 Vol.4 (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixsense, Vimana Shastra & GoaStream -  Acid Drops 6:19
+02. Retronic -  Young and Restless 7:29
+03. Nosfer -  Kill Them All (Atomic Pulse Remix) 8:23
+04. D-Tek -  U96 7:17(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 03:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE3BF8C3B3967F35692BBE12D83A39456B25142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039439   (595950) от 01.08.2016
 
 Jack The Smoker - Jack Uccide (2016) [MP3|320 Kbps] <Hip-Hop, Trap>
@@ -706,32 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCE7C966A4D88B2C626CD0C240B3333D24BAFDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914831   (595846) от 03.07.2015
-
-Tor Browser Bundle 4.5.3 Final [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5B0F9D27370854E4F4912EBAC68E7FE9B32EDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

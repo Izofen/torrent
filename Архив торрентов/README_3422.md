@@ -1,3 +1,29 @@
+###  Публикация: 1161880   (463098) от 30.08.2017
+
+Malwarebytes AdwCleaner 7.0.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463098.jpg" />
+</div>
+
+
+###  Подробнее
+
+AdwCleaner - программа, которая ищет и удаляет рекламное ПО в веб-браузере, панели инструментов, потенциально нежелательные программы (PUP) и hijacker-утилиты с вашего компьютера. С помощью AdwCleaner вы можете легко удалить многие из этих типов программ для спокойной работы на вашем компьютере и в Интернете.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3638EEDDFEC0AB85C4CC27498C8E2D7CA4F214AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246458   (463058) от 10.09.2018
 
 Process Hacker 3.0.1854 Nightly + Portable [En]
@@ -656,39 +682,6 @@ Icecream Screen Recorder 2.61 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56BC0EF2318815EF99A33D718381C03FE7DF2C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537277   (462835) от 24.09.2013
-
-Elton John Vs Pnau - Good Morning To The Nigh (2012) [FLAC|Lossless]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Morning To The Night
-02. Sad
-03. Black Icy Stare
-04. Foreign Fields
-05. Telegraph To The Afterlife
-06. Phoenix
-07. Karmatron
-08. SixtyЖанр: PopПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

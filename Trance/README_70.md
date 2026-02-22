@@ -1,3 +1,32 @@
+###  Публикация: 1793472   (20386) от 24.04.2025
+
+VA - 12 Years Of Suanda Music (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Message In A Bottle (Extended Mix) [6:20]
+02. Adip Kiyoi - Admire (Extended Mix) [6:32]
+03. Alex M.O.R.P.H. & Roman Messer - Tranquillity (Extended Mix) [7:03]
+04. EpicFail & ILSE - Worth It (When it's You) (Extended Mix) [6:23](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB853991C8D20CCEE52AA810AB69815F0302084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793503   (20374) от 24.04.2025
 
 VA - A State of Trance - Classics Top 10, Vol. 2 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -716,35 +745,6 @@ VA - A State of Trance - Classics Top 10, Vol. 5 (2025) [MP3|320 Kbps] <Trance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E426086E1510EAF7791B5A1A5D3BBDDBAC003C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808154   (10582) от 23.07.2025
-
-VA - Uplifting Only Top 15: July 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etasonic - Nature's Garden (Intro Mix) [5:52]
-02. Phil Dinner - The Battle (Extended Mix) [7:14]
-03. Tycoos & Sandro Mireno & Saphron - Lost At Sea (Extended Dub) [5:47]
-04. blurrrSAMA & REX.W - 18TH (REX.W Extended Remix) [6:35](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:48 :10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F983E56B10DF5BB4BBAD2CF671DF1F0AB808D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,64 +1,3 @@
-###  Публикация: 463441   (80452) от 06.03.2012
-
-ZZ Top / ZZ Top: Live From Texas (2008) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Концерт ZZ TOP в Далласе (США, Техас) 24 июня 2008г.Жанр: RockРежиссер: Milton LageАктеры: Dusty Hill, Frank Beard, Billy GibbonsПеревод: Отсутствует
-Треклист :
-01. Got Me Under Pressure
-02. Waitin' For The Bus
-03. Jesus Just Left Chicago
-04. I'm Bad, I'm Nationwide
-05. Pin Cushion
-06. Cheap Sunglasses
-07. Pearl Necklace
-08. Heard It On The X(   Читать дальше...   )Продолжительность: 01:25:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461695   (80425) от 06.03.2012
-
-Leonard Cohen / Leonard Cohen: Songs from the Road (2009) BDRemux [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-«Songs From The Road» представляет материал, записанный в ходе последнего мирового тура Леонарда. Собственно в программу вошли композиции с 11 выступлений — и хотя по очевидной причине новинка проигрывает «Live In London» в монолитном единстве и программной драматургии, здесь представлены достаточно редко исполняющиеся Леонардом композиции, в том числе «Heart With No Companion» и «That Don’t Make It Junk». При не самом очевидном подборе материала «Songs…» в очередной раз демонстрируют завидный профессионализм Леонарда и несомненный уровень его аккомпанирующего состава, в котором на этой записи особо выделяются саксофонист Дино Сольдо и гитарист Боб Мецгер.Жанр: Folk-RockРежиссер: Sony LegacyАктеры: Leonard CohenПеревод: ОтсутствуетПродолжительность: 01:11:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463331   (80424) от 06.03.2012
 
 VA/Коктейль  Клипов (2012) HDTV[1080p]
@@ -763,6 +702,76 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42D121C02C5F2E29E5E365A8035375744B38CBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459681   (79118) от 29.02.2012
+
+VA - Зарубежный Коктейль (2012)(1080p) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Aboutblank & KLC feat. DJ Bo - Gänsehaut (Im 7 Himmel) (3:22)
+2. Adelina Berisha - Ti Je Ai Official Music Video (3:36)
+3. Aelyn - Your love Trance Version Mix (4:05)
+4. Alchemist Project Feat.Angie - Don t let me down (3:09)
+5. Alyssa Reid - The Game (3:03)
+6. Andain - Promises (4:00)
+7. Ariana Grande - Put Your Hearts Up 1080p (3:48)
+8. Arminvan Buuren vs Sophie Ellis-Bextor - Not Giving Up On Love Dash Berlin 4AM Mix (2:54)
+9. Aura - Geronimo LIVE - DMA 2011 (3:31)
+10. Big Sean - Dance (A$$) Remix ft. Nicki Minaj (3:50)Жанр: Pop, Rap, Disco,Latin,Hip-Hop,Dance, House, Electro,RockФормат: mp4 (AVC-H264)Продолжительность: 04:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17C0D403523CC0C5A547C1C2D78884C9D44B222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459155   (78926) от 28.02.2012
+
+VA - Русский Коктейль (2012)(1080p) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. ChinKong DJ Smash A.Ryzhov - На заре (3:47)
+2. DJ Smash feat. Винтаж - Москва (3D) (3:57)
+3. Dress Code - Скуку развей Full (3:45)
+4. Fresh - Kaпитан (3:19)
+5. Max Barskih - DANCE (6:49)
+6. Анна Седокова - Ревность (3:45)
+7. Вельвет - Все забудется (3:46)
+8. Вера Брежнева - Ищу тебя (3:23)
+9. Даша Суворова - Я пою тебе (3:59)
+10. Ивена - Просто замълчи (3:25)Жанр: Pop,DiscoФормат: mp4 (AVC-H264)Продолжительность: 02:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202E5FFF805B44BB2D575C74313A991FA6A28AE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

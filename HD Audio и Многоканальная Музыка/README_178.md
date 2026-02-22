@@ -1,3 +1,177 @@
+###  Публикация: 1776686   (71174) от 02.02.2025
+
+The 2:19 - Keep My Will Strong (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Thing I Figured (4:28)
+02. Dead Dogs and Bee Suits (3:36)
+03. Gape Row (2:48)
+04. Say Yeah (2:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C56AB017ACA5F4EF18A7BE3A43203BCD964885B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776690   (71172) от 02.02.2025
+
+Zaza Desiderio - Osmoses (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. É o Fim da Procissão (6:39)
+02. L'enchanteur (6:05)
+03. Voyager 1 Miniature (1:11)
+04. Miss Ifa (3:21)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A99BA62EC8445E1744C2FE7FDCFB06A56B81AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776618   (71170) от 02.02.2025
+
+Nicole Zuraitis - Siren songs volume 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. the dawntreader (6:01)
+02. i love you (5:41)
+03. he's a tramp (3:43)
+04. ode to billie jo (6:00)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE2612C3D86C5D162C796DCD4FC84DC706B27D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776585   (71168) от 02.02.2025
+
+The Hellacopters - Overdriver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Garage Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71168.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Token Apologies (3:22)
+• 02. Don't Let Me Bring You Down (3:15)
+• 03. (I Don't Wanna Be) Just A Memory (3:23)
+• 04. Wrong Face On (2:58)(   Читать дальше...   )Жанр: Garage Rock, Hard RockПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F3074D5812D0EE6330117FD23C09A80565F6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776619   (71167) от 02.02.2025
+
+Pep'sBrown - I Fell In Love (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rhythm and Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For You (2:09)
+02. I Fell In Love (2:20)
+03. Gate To Your Heart (2:05)
+04. Gate To Your Heart 2 (2:51)(   Читать дальше...   )Жанр: Rhythm and BluesПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA8035C3850DBC9F4FA4A7727DAD6DE6572F882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776620   (71166) от 02.02.2025
+
+Peter Kern - Guitar Man (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Kiss (3:57)
+02. Good as Well as Bad (3:57)
+03. Guitar Man (4:26)
+04. Nobody Can Keep My Spirit Down (2:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D0BC79CB2077AA3D3C587AA830199D45C785F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776678   (71161) от 02.02.2025
 
 David Rose - Let It Slide (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -568,178 +742,6 @@ Nico's Trio - Standard's Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C6316D6F733E33A33529BCC0D2723BB042277DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777515   (70986) от 06.02.2025
-
-Bill Moio - Try This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Try This (6:06)
-02.  720 Berkeley (5:50)
-03.  I've Heard It All Before (4:57)
-04.  Need To Know (5:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC878647C4AB8A8A7F8C6ABFD38B838FBA98789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777712   (70983) от 06.02.2025
-
-Peter Erskine & JAM Music Lab All-Stars - Vienna to Hollywood: Impressions of E.W. Korngold & Max Steiner (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Herwig Gradischnig - March of the Merry Men (7:07)
-02.  Danny Grissett - Sterbelied (from Lieder des Abschieds, Op. 14) (6:13)
-03.  Bertl Mayer - Old Spanish Song (5:32)
-04.  Danny Grissett - The Boys Go to Play (5:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A0441F82082563FE04FBA40E16DB09AED11C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777707   (70982) от 06.02.2025
-
-Nel Begley - Small Flame (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cherokee (4:09)
-02.  A House Is Not A Home (6:17)
-03.  The Gentle Rain (5:09)
-04.  Lucky To Be Me (5:51)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E49ABDBB604AF8FAAA9727CCB89D94AFBCCDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777556   (70977) от 07.02.2025
-
-Dream Theater - Parasomnia (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 In The Arms Of Morpheus (5:22)
-02 Night Terror (9:55)
-03 A Broken Man (8:30)
-04 Dead Asleep (11:06)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756E0005A5A96719E3C681EF84A9CD9C774C9940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777820   (70973) от 07.02.2025
-
-Canterra - Studio Albums (2 releases) (2016-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Canterra - метал-группа с женским вокалом из Лейпцига, Германия.2016 - First Escape
-2020 - HeartmachineЖанр: Symphonic/Gothic MetalПродолжительность: 01:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFEEF1BC4E01952022114C0AC77CCE5DC405945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777909   (70949) от 07.02.2025
-
-Majestica - Power Train (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Train [00:04:04]
-02. No Pain, No Gain [00:03:35]
-03. Battle Cry [00:04:00]
-04. Megatrue [00:05:41](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADC7DE29F1BE887B28C2CFA05D59B671EF1A42F
 ```
 
 https://mybot314.ru/tekegram_catalog/

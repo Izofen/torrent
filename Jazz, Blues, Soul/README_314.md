@@ -1,3 +1,102 @@
+###  Публикация: 546954   (476628) от 14.09.2012
+
+Armen Chakmakian & Djivan Gasparyan - Ceremonies (1998) [WavPack|Lossless]<Jazz, World, New Age>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Gypsy Rain [5:25]
+02. - A Kiss And A Sign [5:21]
+03. - Ceremonies [5:15]
+04. - A Time To Heal [6:14]
+05. - Imaginings [5:41]
+06. - Enchantress [4:15]
+07. - Distant Lands [5:55]
+08. - Rain, Rain Go Away [4:57]
+09. - Echoes Of A Prayer [6:21]
+10. - Moonlight In Your Eyes [6:09]Жанр: Jazz, World, New AgeПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546846   (476620) от 14.09.2012
+
+Buddy Whittington - Six String Svengali (2011) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back When the Beano Was Boss
+02. Deadwood and Wire
+03. My World Revolves Around You
+04. Ain't Got the Scratch
+05. I Had to Go and See Alice
+06. Fender Champ
+07. Six String Romance
+08. Texas Trios
+09. The Put On Song
+10. For Crystal Beach(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567085   (476504) от 01.08.2022
+
+Joe Williams - Four Classic Albums (1956 - 1960) 2CD, 2021, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476504.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Indiana [7:36]
+02. More Than One For My Baby [7:27]
+03. Too Marvellous For Words [5:30](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EB70C75A6F010B48CEF2C2C0F665D5C057187C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546704   (476481) от 14.09.2012
 
 Cecilia - 2 альбома (1994 & 1996) [FLAC|Lossless]<Jazz Vocal, Ballad, Easy Listening>
@@ -685,93 +784,6 @@ Mette Juul - There Is A Song(2015) - There Is A Song (2015) [FLAC|tracks|WEB-DL]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:342C0F0518B053D57102EB9DF86ADB2CD984DB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939307   (473560) от 22.09.2015
-
-Donna Hightower - Take One! & Gee, Baby, Ain't I Good To You? (2009) [FLAC|tracks+.cue]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Donna Hightower "Take One!" with Sid Feller's All-Star Group (Capitol T 1133)
-01. Perfidia (Albert Dominguez-Milton Leeds) (02:30)
-02. Maybe You'll Be There (Rube Bloom-Sammy Gallup) (02:49)
-03. Lover Come Back To Me (Sigmund Romberg-Oscar Hammerstein II) (01:59)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E0CC0CC9D4CABFD33A6D384027802982EBCE30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939540   (473552) от 22.09.2015
-
-Deborah Coleman - The Essential Deborah Coleman (2015) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm A Woman (04:50)
-02. Roll With Me (04:11)
-03. My Heart Bleeds Blue (04:26)
-04. Don't Lie To Me (03:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A969FEB4E60D334F8AD8625D46E8046C50619A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939539   (473464) от 22.09.2015
-
-Fourplay - Silver (2015) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quicksilver
-02. Horace
-03. Sterling
-04. A Silver Lining(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FED083390A57A0DD4BD9E590CB766AF174E8E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

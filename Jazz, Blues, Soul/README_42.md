@@ -1,3 +1,90 @@
+###  Публикация: 1486930   (1004333) от 02.08.2021
+
+Polly O'keary And The Rhythm Method - 50 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brand New Day (4:10)
+02. Too Much Like I Care (4:33)
+03. Can't Catch Me (4:16)
+04. Smiling (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E9F6B4AAB76B1D0EBF684638B19086242F7108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349618   (1004274) от 02.01.2020
+
+Charles Aznavour & The Clayton-Hamilton Jazz Orchestra (2009) EMI [FLAC|Lossless|image + .cue] <Big Band, Vocal Jazz, Shanson>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viens Fais-Moi Rever [4:19]
+02. Fier De Nous (Duet with Rachelle Ferrell) [4:27]
+03. Comme Ils Disent [3:48]
+04. Des Amis Des Deux Cotes [3:43](   Читать дальше...   )Жанр: Big Band, Vocal Jazz, ShansonПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5C9659838A0209249FFA369FCF2A2418446DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349818   (1004112) от 03.01.2020
+
+Edgar Hayes And His Orchestra - 1938 - 1948 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help Me [3:17]
+02. Without You [3:04]
+03. You're My First Thought Every Morning [2:43]
+04. In The Mood [3:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1624A4808432449BE9F3D48DD428999C67833B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487090   (1004054) от 03.08.2021
 
 Dirty Dave Osti - Retro-Sonic Blues Train (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -658,99 +745,6 @@ VA - 100 Greatest Soul (2020) [MP3|320 Kbps] <Soul, Funk, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8680E19E7A6CCBB24C6EF959672DE3C91B3BBD50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488349   (1002318) от 10.08.2021
-
-Орлан - Башкирский Караван / Башкирские Легенды 2CD (2014) [FLAC|Lossless|image + .cue] <Jazz-Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002318.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Башкирский Караван (Олег Киреев) - 7:53
-2. Интерлюдия 1 (Олег Киреев) - 2:30
-3. Татарский Танец (O. Kireyev*) - 7:46
-4. Салават (Рустем Галиуллин) - 8:38(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 01:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28839FBA2FDEC717FBA97612FB31F3DD403FE8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655747   (1002268) от 10.08.2021
-
-Fitz and The Tantrums - More Than Just A Dream (2013) [FLAC|Lossless]<Indie Pop, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of My League (03:29)
-02. Break The Walls (03:36)
-03. The Walker (03:53)
-04. Spark (03:19)
-05. 6am (04:30)
-06. Fools Gold (03:35)
-07. Keepin Our Eyes Out (03:08)
-08. Last Raindrop (04:03)
-09. House On Fire (03:28)
-10. The End (03:46)(   Читать дальше...   )Жанр: Soul, Indie PopПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3389CA2CAD8034F0DA018751A867BF3378B5882A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351502   (1002225) от 10.01.2020
-
-John Gary - Sings Cole Porter (1994) Audiophile Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got You Under My Skin [3:29]
-02. I Get a Kick Out of You [4:00]
-03. Just One of Those Things [3:34]
-04. Let's Do It [4:28](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7A26FFA030E099213C5C05C46AED94A2B59B35
 ```
 
 https://mybot314.ru/tekegram_catalog/

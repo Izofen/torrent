@@ -1,3 +1,38 @@
+###  Публикация: 860799   (937678) от 18.01.2015
+
+Don Friedman Trio - My Favorite Things (2004) [FLAC|Lossless]<Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. My Favorite Things [05:45]
+02. It Could Happen To You [07:06]
+03. Easy To Love [05:47]
+04. Ask Me Now [07:08]
+05. Schmooze Blooze [05:30]
+06. Never Let Me Go [07:31]
+07. Half and Half [03:35]
+08. I'm All Smiles [06:35]
+09. Giant Steps [03:57]
+10. Summer's End [06:21]Жанр: Jazz, Post-Bop, Piano JazzПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E017B4D15390A5D3CDFC9A2528904AFAB0BA1A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 284217   (937433) от 19.01.2011
 
 Wycliffe Gordon - Cone And T-Staff (2010) [FLAC|Lossless]<Jazz, Trombone Jazz, Post-Bop>
@@ -773,35 +808,6 @@ Seamus Blake & Chris Cheek - Let's Call The Whole Thing Off (2016) WEB [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCAEA14BBC242C3A21ED1F474C7E0C3E2D1D889E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093254   (935435) от 14.01.2017
-
-Melvin (Mel) Rhyne - Organ-izing (1960) 2000, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Things Ain't What They Used to Be [11:00]
- 02.Blue Farouq [10:45]
- 03.Barefoot Sunday Blues [12:53]
- 04.Shoo, Shoo Baby [08:43]Жанр: Hard BopПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366D01F4287121678121D3D32EABA222E8C1CDD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

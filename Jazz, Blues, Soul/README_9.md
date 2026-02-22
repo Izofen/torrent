@@ -1,3 +1,90 @@
+###  Публикация: 1605223   (1044993) от 17.01.2023
+
+Stanley Turrentine - That's Where It's At (1962) 2021, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile, Stacey [8:06]
+02. Soft Pedal Blues [7:27]
+03. Pia [5:31]
+04. We'll See Yaw'll After While, Ya Heah [7:25](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E719BA40679C639140CAB6104DBF91F71DA52B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605219   (1044990) от 17.01.2023
+
+Paul Chambers - The Complete Albums Collection (1956 - 1960) 4CD, 2016, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044990.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Afternoon in Paris [5:58]
+02. You Turned the Tables on Me [4:46]
+03. Apothegm [5:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 04:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008C17AFC891A10D411EE78DB035AC22A3FE6883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605226   (1044987) от 17.01.2023
+
+Lee Morgan - Candy (1957) 2012, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candy [7:04]
+02. Since I Fell for You [5:38]
+03. C.T.A. [5:10]
+04. All the Way [7:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65575D00551D1D1A66B32450A374D10FE6949851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605488   (1044877) от 18.01.2023
 
 Paul Desmond - The Complete Albums Collection (1953 - 1963) 4CD, 2018, Enlightenment [FLAC|Lossless|tracks + .cue] <Cool>
@@ -658,93 +745,6 @@ Bedford Slim - Crow's Alley (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9477566D0D38F4CB3A1D277E3C7FD312F1CF625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606973   (1044221) от 24.01.2023
-
-Beiztegui & The Hammond Lovers - Get it Loud (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marked Cards (3:11)
-02. Tell Me (7:25)
-03. Double Crossing (3:09)
-04. Please Come Back Home (6:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B36B62099599EC2CCFEFCB9144700C09F1EEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606977   (1044208) от 24.01.2023
-
-Don P. & The Blue Jags - Lu-Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lu-Town (2:33)
-02. I Wanna Know (5:06)
-03. Sharp Dressed Gumshoe (3:06)
-04. Rattlesnake Boogie (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F4418DDE6D7F2C2CAD6B915E0E5B296BB15361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607117   (1044172) от 25.01.2023
-
-Kim Waters - What I Like (2018) Shanachie [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Touch of Love [4:29]
-02. That's What I Like [4:22]
-03. Walking on Air [4:06]
-04. Sumthin' Sumthin' [4:36](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D2E17D035D2F94A2BF6E8E0DC9E03A98E517D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

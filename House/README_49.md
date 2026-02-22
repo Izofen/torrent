@@ -1,3 +1,90 @@
+###  Публикация: 1153964   (557084) от 28.07.2017
+
+VA - Music From Paradise (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Shop Boys - Nibelungen News (Diving Mix)
+02. Chillo - Treatment of Tales
+03. Reflex Artists - Silky Tears (Reflex Mix)
+04. Andrew Bright - Mamba (Chillout Version)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8433D8E8FAEF93EF7B08630DEDA648C9A153D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153740   (557082) от 28.07.2017
+
+VA - Ibiza Summer Party 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filatov - Back In The Love (Swanky Tunes remix)
+02. Seal De Green - Those Days (original mix)
+03. Hlasznyik & Danev - Let's Go To The Party Beach (original mix)
+04. Royal Gigolos - California Dreamin' (Tek-House extended)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF37E665F5DAE6CDA60A8E5BD98878FBBE9467D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045879   (556981) от 25.08.2016
+
+VA - Deep Chill Autumn Skies (2015) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Morais - Deep Chill | Autumn Skies (Non Stop Mix)
+02. Alex Morais - Love & Music (Original Mix)
+03. Adam Byrd - Light Makes Me Calmer (Original Mix)
+04. MotiBo - Satin Sunrise (MotiBo Remix)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903B86D82213FDD613136C3B41DEBE83E547B91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045771   (556978) от 25.08.2016
 
 VA - Amnesia Ibiza 2016 (Mixed by Mar-T, Hector Couto, Betoko) (2016) 3 CD [MP3|320 Kbps] <House, Tech House, Techno>
@@ -661,93 +748,6 @@ VA - Bikini Grooves (20 Pool Party Beats Vol 1) (2016) [MP3|320 Kbps] <House, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B15AC42D4618B90657F94B256D229398237ED5EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237824   (549642) от 26.07.2018
-
-VA - Ibiza Cocktail Time (50 Deep-House Warm Ups) Vol.4 (2018) [MP3|320 Kbps] <Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Soulstar - My Love Is Everlasting (Radio Edit) 3:40
-02. Ariane Blank - Becarec (Deep Spelle Remix) 7:02
-03. Dee C'rell - Whodoo (Berlin Beach Mix) 5:22
-04. Florito & Roberto Sol - Loveflow (Florito Mix) 4:52(   Читать дальше...   )Жанр: Deep House, ProgressiveПродолжительность: 05:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47FBF621C57DBEE115DBBB6099FD3C9CD0F0ECB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309708   (549604) от 21.06.2019
-
-VA - Chill House Ibiza 2019 (2019) [MP3|320 Kbps] <House, Chill House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adonai - Say (Edit Mix)
-02. Guilhem Mariposa & Idiocrate - Dawn (Original Mix)
-03. Takticals feat. Simply Oktaver - Just For One Day (Beach Mix)
-04. Ben Brummitt - A Story To Be Told (Edit Mix)(   Читать дальше...   )Жанр: House, Chill House, Deep HouseПродолжительность: 02:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A50C4D714B593A02F92900F98CC4E85987532E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310012   (548841) от 22.06.2019
-
-VA - Airbeat One Dance Festival (2019) [MP3|320 Kbps] <House, Trance, Electronic, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548841.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01.  Airbeat Inc.  -  Run With You (Airbeat One Anthem 2019)
-02.  Martin Garrix feat. Bonn  -  No Sleep(   Читать дальше...   )Жанр: House, Trance, Electronic, DanceПродолжительность: 03:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78332F88B979DF2E85E903529768126BD5D27B1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

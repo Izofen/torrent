@@ -1,3 +1,33 @@
+###  Публикация: 348074   (637183) от 09.06.2011
+
+OST - Игра престолов / Game of Thrones (бутлег) (2011) [MP3 |192 kbps] <Soundtrack>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Game Of Thrones - Main Theme - Soundtrack (1:41)
+02. Game Of Thrones - End Title - Soundtrack (1:01)
+03. Game Of Thrones - Main Theme (Piano version) (2:08)
+04. Game of Thrones - Main Theme (Guitar version) (1:32)
+05. WhiteNoise Lab - Game of Thrones Theme (1:40)Жанр: SoundtrackПродолжительность: 00:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5C8C04C8BC83A749B7FB8553288398E1562B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907600   (637158) от 12.06.2015
 
 RusLiveFull by NIKZZZZ CD/DVD (2015 06 11) [Ru/En]
@@ -653,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293442   (636894) от 03.04.2019
-
-Movavi Video Suite 18.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Suite – это пакет программ на русском языке, который поможет вам без труда смонтировать отличный фильм, музыкальный клип или слайд-шоу, даже если вы совсем новичок в создании видеороликов. Накладывайте музыку, применяйте визуальные эффекты, добавляйте титры и стильные переходы – обрабатывайте видео на свой вкус! Также в Movavi Video Suite входит набор (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95766DD4A3500B78A6808C50BD367C635A2CE4FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

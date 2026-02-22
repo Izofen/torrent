@@ -1,3 +1,121 @@
+###  Публикация: 1161225   (469657) от 27.08.2017
+
+VA - Love Songs (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En Vogue - Don't Let Go (Love) (4:52)
+02. INXS - Never Tear Us Apart (3:06)
+03. Donna Lewis - I Love You Always Forever (4:00)
+04. a-ha - This Alone Is Love (Remastered 2015) (5:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FDDD23C8A96CAACBC572B65979A46FCF128B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547786   (469551) от 17.09.2012
+
+Carly Rae Jepsen - Curiosity (EP) (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469551.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Call Me Maybe [03:14]
+2. Curiosity [03:26]
+3. Picture [03:04]
+4. Talk To Me [02:52]
+5. Just A Step Away [03:47]
+6. Both Sides Now [03:52]Жанр: PopПродолжительность: 00:20:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320642   (469378) от 19.08.2019
+
+Kish Mauve - Black Heart (2009) [MP3|320 Kbps] <Alternative Pop, Electropop, Electroclash>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lose Control
+02. Matthew
+03. I Don't Care
+04. In My Kitchen(   Читать дальше...   )Жанр: Alternative Pop, Electropop, Electroclash, Synthpop, Indie Pop, Dance-PopПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF5B51A97EDF7DBC911E2F70847E073118A5969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058290   (469194) от 01.10.2016
+
+Here Come The Mummies - Cryptic (2013) [MP3|320 Kbps] <Funk, Rhythm & Blues, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Know The Drill   (03:34)
+02. Chaperone   (02:59)
+03. Infinity   (03:25)
+04. Devil Better Run   (03:21)(   Читать дальше...   )Жанр: Funk, Rhythm & Blues, SoulПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E87D873FF68259F667462364CF04138AA7E150F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320543   (468905) от 19.08.2019
 
 Digital Emotion - 2 Albums, 4 Singles & EPs (1984-2019) Collection [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
@@ -700,137 +818,6 @@ VA - Русская Дискотека СССР (2012) [MP3|187-192 кб/с]<Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5CE89EF2A4613599CB2635D2B740AB733F656F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546575   (466578) от 18.09.2012
-
-Boney M - Ultimate Long Versions & Rarities 1976-1987 (2009) [FLAC|Lossless]<Pop, Disco, Eurodance.>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus (Noah's Ark 2001Maxi Version)
-02. Wild Planet (Maxi Version)
-03. Somewhere In The World (Long Version)
-04. Future World (Long Promo Version)
-05. 10.000 Lightyears (Promo Version)
-06. Kalimba De Luna (US Club Mix)
-07. Young, Free And Single (12' Version)
-08. Daddy Cool (Anniversary Recording '86Special Club Mix)
-09. Mother And Child Reunion (Frank Farian CorporationLong Version)
-10. I'm Alive (Frank Farian CorporationLong Version)(   Читать дальше...   )Жанр: Pop, Disco, Eurodance.Продолжительность: 01:02:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407411   (466560) от 07.09.2020
-
-Grand Tour - On Such A Winter's Day (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Grand Tour  (5:56)
-02. Let's Go Boating  (5:49)
-03. Still I'm Sad  (6:00)
-04. Flight From Versailles  (6:16)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D64518FC308B624EA65236A226CFDADFF9393A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407412   (466552) от 07.09.2020
-
-Beatrice Egli - Mini Schwiiz - mini Heimat (2020) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Du gisch mim Läbe en Sinn (Schweizerdeutsch)
-02. Mini Schwiiz, mini Heimat
-03. Vivila
-04. Terra Australia (Promets-moi de me faire revenir)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369576DE01C2C72E73D4162A2D720A974A569BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547780   (466451) от 18.09.2012
-
-Boney M. - Original Version - Long Version - Rarities (2012) 4xCD Box Set / CD Records / [FLAC|Lossless]<Disco, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No More Chain Gang (Long Version) (5:41)
-02. Exodus (Maxi Version) (5:47)
-03. Gotta Go Home (Long 12'' Version) (5:07)
-04. Help! Help! (Long Version) (6:06) и т.д.01. Silly Confusion (12'' Version) (4:01)
-02. African Moon (Long Version) (6:43)
-03. I See A Boat On The River (Long 12'' Version) (6:07)
-04. I'm Alive  (Fr. Farian Corp. Long Version) (5:15)
-05. Going Back West (3:12)
-06. Hooray! Hooray! It's A Holi-Holiday (3:39)
-07. Love For Sale (4:15)
-08. Hold On! I'm Comin' (3:38)
-09. Bang Bang Lulu (3:01)
-10. Barbarella Fortuneteller (2:56)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 05:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0872B34A69D3E9F51E05A76C7507536AE1DB9622
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,30 +1,22 @@
-###  Публикация: 454927   (93945) от 20.02.2012
+###  Публикация: 1821746   (91289) от 03.10.2025
 
-VA - Cinema Of Consciousness 2 (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
+Lets Play: Quest Darake no My Life | Сыграем [2025, TV, 1 из 12 эп.] WEBRip 720p raw
 
->>Архив торрентов
->>Архив Музыки
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93945.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Philter - Stairway To Heaven 07:53
- 02. Dual Lane - Yalta Journey 07:59
- 03. Solar Groove - Heretic 09:47
- 04. Hypnos - Disco Doll 06:27
- 05. Bio-Psy - Cheap Thrill 08:05
- 06. Lightsphere - Faith 08:26
- 07. Krystaline - Science Of Signs 08:00
- 08. Peak Processor - White Rabbit 07:35
- 09. Lunar Surface - Cosmic Base 07:052012Жанр: Psychedelic / ProgressiveПродолжительность: 01:11:17
+Она молода, не замужем и вот-вот осуществит свою мечту о создании невероятных видеоигр. Но тут жизнь наносит ей двойной удар: популярный стример дает ее первой игре разгромную оценку. Еще хуже то, что она узнает, что этот же неприятный критик теперь ее новый сосед! Забавная, сексуальная и слишком реальная история об играх, мемах и социальной тревожности.Производство: студия OLM / オー・エル・エムЖанр: комедия, романтикаРежиссер: Томиясу ДайкиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83F15EFFAD576BA34D34ACA6D11FBF307CA13456
+magnet:?xt=urn:btih:9B9F67587B617594B686928A1C8D4DD64362DA11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -32,34 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455085   (93942) от 20.02.2012
+###  Публикация: 1821754   (91288) от 03.10.2025
 
-VA - Progressive Music (19.02.2012) [MP3|320 kbps]<Progressive House>
+Владимир Высоцкий - Высота (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Авторская песня>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93942.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andy King - Sativa (Original Mix) (7:52)
- 02. Basto & Yves V - Cloudbreaker (Original Mix) (6:22)
- 03. Carbon - Only Those Who Believe (Fusi Johnson Own Space Mix) (6:46)
- 04. Conrad S - Night Active (Original Mix) (6:46)
- 05. Dave Romans - Wrapped Up Happiness (Original Mix) (6:33)
- 06. David Puentez Feat. Max C. - Things We Do 4 Love (Dani Veiga Remix) (7:03)
- 07. Dyro - Metaphor (Original Mix) (4:38)
- 08. Hardsoul & Baggi Begovic - Survival (Robbie Taylor Iberican Mix) (6:40)
- 09. Psycatron - Memories of The Moment (John Digweed & Nick Muir Remix) (7:45)
- 10. Shopping Therapy - Sofia Diaries (Original Mix) (6:47)19.02.2012Жанр: Progressive HouseПродолжительность: 01:07:16
+01. Песня о Земле [00:02:31]
+02. Охота на волков [00:03:42]
+03. Дом хрустальный [00:02:25]
+04. Песня о переселении душ [00:02:06](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:35:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4D4A730BBE1972CD28C27A0EBFB0B6690FF1752
+magnet:?xt=urn:btih:635FD4F0D3642557A4623AAE3FA550FB542AFA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -67,29 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455454   (93938) от 20.02.2012
+###  Публикация: 1821775   (91287) от 03.10.2025
 
-VA - Living The Dream EP pt.3 (2012) [MP3|320 kbps]<Drum & Bass>
+Aphex Twin - Surfing On Sine Waves (1993) Expanded Edition, 2025, Warp Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Breaks, Techno, Abstract>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93938.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cybass - it's a new life for me (big bud remix) (06:01)
-02. Random Movement - dropping the chips (06:29)
-03. Flaco - choose me (insiders remix) (06:42)
-04. Blue Motion, Grimm, Remo - we used to be good (06:47)
-05. Kubiks, Sicko - mad men (04:59)2012Жанр: Drum & BassПродолжительность: 00:30:18
+01. Polygon Window [00:05:27]
+02. Audax Powder [00:04:40]
+03. Quoth [00:05:36]
+04. If It Really Is Me [00:07:03](   Читать дальше...   )Жанр: Breaks, Techno, AbstractПродолжительность: 01:15:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91477090D9B93F041D754DC742C9BDCFDB684C4F
+magnet:?xt=urn:btih:77B9822268D120332DCC7F8679087F06B1932A26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -97,34 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455183   (93936) от 20.02.2012
+###  Публикация: 1821759   (91286) от 03.10.2025
 
-Trance Therapy - Volume 7 (2012) [MP3|320 kbps]<Trance>
+Till Lindemann - Zunge 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93936.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ferry Corsten - I Love You-Original 2003 Version [07:38]
- 02. Gouryella - Ligaya-Ferry Corsten Remix [08:45]
- 03. Ferry Corsten - Sweet Sorrow-Ferry Corsten Fix [07:37]
- 04. Breakfast - River Of Light [10:06]
- 05. Ferry Corsten - Masquerade [08:00]
- 06. Embrace - Embrace-Leon Bolier Remix [07:42]
- 07. Ferry Corsten - Galaxia-Symphonic Remake [03:44]
- 08. Gouryella - Tenshi-Ochestra Cyber France De Paris [04:44]
- 09. Tritonal Feat. Soto - Piercing Quiet [08:33]
- 10. Ferry Corsten Pres. Pulse - Rendition [07:50](   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:53:52
+01. Zunge [00:04:35]
+02. Sport frei [00:04:12]
+03. Altes Fleisch [00:04:24]
+04. Übers Meer [00:03:19](   Читать дальше...   )Жанр: IndustrialПродолжительность: 01:24:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F369CA086D3486466CFC894F78F748DD46ACB37E
+magnet:?xt=urn:btih:D018C5C611249416F462202F564607DF46FA9D73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,33 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455461   (93935) от 20.02.2012
+###  Публикация: 1821778   (91285) от 03.10.2025
 
-VA - The Beach 2011 (2011) [MP3|320 kbps]<Psychedelic / Full On>
+Reg Organizer 9.86 + Portable [Multi/Ru]
 
->>Архив торрентов
->>Архив Музыки
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93935.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. G.M.S - Pray For Japan 06:45
- 02. 1200 Micrograms - Let It Roll 06:59
- 03. Bizzare Contact - Vibrations 07:56
- 04. Space Cat - In The Air 07:13
- 05. Dynamic vs. Melicia - Go Back 07:03
- 06. Perplex vs. Intersys - Dirty Bytes 07:20
- 07. Black & White - Transition Mode 06:51
- 08. X-Noise - Streptococcus A 07:03
- 09. Nick Callaghan & Will Atkinson - Blizzard (Liquid Soul Remix) 08:122011Жанр: Psychedelic / Full OnПродолжительность: 01:05:24
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Microsoft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:332D0D12E0F1F8D67D5884BB69D8F7D0E3A32193
+magnet:?xt=urn:btih:58223EE845DCE4D888BD43FFEE4FF94DE61422F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,34 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455433   (93930) от 20.02.2012
+###  Публикация: 1821678   (91284) от 03.10.2025
 
-VA - Paul Oakenfold: DJ Box - February 2012 (2012) [MP3|320 kbps]<Trance>
+Книжная серия | Интеллектуальный детектив [126 книг] (2005-2012) [FB2, PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественная литература
+>>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93930.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oakenfold - Maybe It's Over (feat Tamra Keenan - Organ Donors Perfecto mix) (06:36)
-02. Planet Perfecto Knights - ResuRection (Beatman & Ludmilla remix) (05:50)
-03. Symphonix - Dirty Minds (Osher remix) (08:01)
-04. HJM - 222 (Marco V remix) (06:36)
-05. Trance Arts & Sonic Element - Reformation (original mix) (08:03)
-06. Destroyers & Aggresivnes - The Untouchables (original mix) (06:20)
-07. Federation - Innocent Desire (Nick Sentience remix) (08:42)
-08. Orison - Mutation (original mix) (06:57)
-09. East Cafe - Flashback (Aeron Aether remix) (06:52)
-10. Limbo - Paradox (original mix) (08:16)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:17:27
+Серия книг, в которую вошли увлекательные детективные романы зарубежных и некоторых отечественных авторов, написанные в стиле Дэна Брауна. Мальтийские ордена, тамплиеры, крестовые походы, христианские реликвии, загадочный да Винчи – все это окутано ореолом тайн, интриг и загадок.Жанр: ДетективИздательство: РазличныеФормат: FB2, PDFКачество: Изначально электронное (ebook), Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC9A800F45DDBCB0248D2EFE2B01488CDAC9ACD2
+magnet:?xt=urn:btih:85864E6EE184CFEE8B0BD8EC8273FDA14ECA2D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,34 +163,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454746   (93925) от 19.02.2012
+###  Публикация: 1821783   (91283) от 03.10.2025
 
-VA - Metal Violin (2011) [MP3|320 kbps]<Symphonic Metal, Gothic Metal>
+Проекты - VideoHive - Infographic Widgets - 59613038 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте понятные и современные панели мониторинга и статистику за считанные секунды. Этот пакет включает 18 готовых к использованию виджетов в двух стилях: Glass BG и Solid BG. Все элементы управляются псевдоэлементами управления (цвет, текст, значения, положение, ход выполнения и т. д.), что обеспечивает быстрый и простой рабочий процесс.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B43D052EA749FF212098AD050D3A7B7A18E58E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821786   (91282) от 03.10.2025
+
+Warren Haynes - Tales of Ordinary Madness (Remix 2025) (1993) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues-rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire In the Kitchen(5:38)
+02. Kiss Tomorrow Goodbye(3:40)
+03. Movers and Shakers(7:21)
+04. Tear Me Down(4:50)(   Читать дальше...   )Жанр: Blues-rock, Classic RockПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01A62450CA1BEE195723DFAC33EA5E8235D481C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821790   (91281) от 03.10.2025
+
+Caligula's Horse - Bloom (2015) Reissue, 2018, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93925.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eluveitie - Of Fire, Wind & Wisdom (03:05)
-03. Jelonek - Vendome 1212 (03:05)
-03. Korpiklaani - Wooden Pints (03:42)
-04. Septem Voices - Для Тебя (04:30)
-05. Morgul - The Murdering Mind (06:20)
-06. Троль гнет ель - Октоберфест (05:23)
-07. Haggard - Of A Might Divine (08:21)
-08. The Sins Of Thy Beloved - Until The Dark (06:41)
-09. Skyclad - Still Small Beer (03:10)
-10. Anabioz - Родная сторона (06:53)(   Читать дальше...   )2011Жанр: Symphonic Metal, Gothic MetalПродолжительность: 01:02:01
+1. Bloom 3:14
+2. Marigold 6:19
+3. Firelight 4:38
+4. Dragonfly 9:23(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:44:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7C44649E0A99D8BF17C4B45546F445B3C45E4DE
+magnet:?xt=urn:btih:608BB2CC386106116B03FF7B8F0BAAD17FE9C9D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,25 +247,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454604   (93919) от 19.02.2012
+###  Публикация: 1821782   (91280) от 03.10.2025
 
-Горе в табакерке / ТРК Петербург (1989) VHSRip
+Темный рыцарь / The Dark Knight (2008) BDRip [AV1/2160p] [4K, HDR, 10-bit] [IMAX] [hand made Upscale AI]
 
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93919.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Телеспектакль по мотивам произведения Самуила Яковлевича Маршака "Горя бояться - счастья не видать", из огромной коллекции телепостановок для популярнейшей передачи "Сказка за сказкой".Производство: СССРЖанр: сказка, спектакльРежиссер: Анатолий СлясскийАктеры: Сергей Паршин, Ростислав Катанский, Иван Краско, Вадим Яковлев, Юлия Яковлева, Андрей Ургант, Ирина СоколоваПродолжительность: 00:51:00
+Бэтмен поднимает ставки в войне с криминалом. С помощью лейтенанта Джима Гордона и прокурора Харви Дента он намерен очистить улицы Готэма от преступности. Сотрудничество оказывается эффективным, но скоро они обнаружат себя посреди хаоса, развязанного восходящим криминальным гением, известным напуганным горожанам под именем Джокер.Производство: США, Великобритания / DC Comics, Legendary Pictures, SyncopyЖанр: фантастика, боевик, триллер, криминал, драмаРежиссер: Кристофер НоланАктеры: Кристиан Бэйл, Хит Леджер, Аарон Экхарт, Мэгги Джилленхол, сэр Гари Олдман, Майкл Кейн, Морган Фриман, Чин Хань, Нестор Карбонелл, Эрик Робертс и др.Перевод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:32:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C17EBF685BB1C64ABDEB4481264A50FB7BE96AA
+magnet:?xt=urn:btih:0B192543A991B01835B6F3BBAF735B60A54B91FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,27 +273,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454990   (93913) от 19.02.2012
+###  Публикация: 1821793   (91279) от 03.10.2025
 
-Владимир Поляков | Шаг за грань [2012] [FB2,RTF]
+Алим Тыналин | Фарцовщик [3 книги] (2023-2024) [FB2]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93913.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многие мечтают заглянуть в бездну. Оккультные науки манят, обещая даровать невиданную силу и могущество. Человек, вставший на этот путь, никогда не станет прежним.
- Именно это происходит с героями романа. Стилет, Клим, Висельник и Ханна - сотрудники Третьего Отделения, которые занимаются поиском террористов и увлекаются оккультизмом, отвергая традиционную религию. Неожиданно на их пути возникает таинственный граф Черепанов. Кто он, этот обладающий огромной властью человек, в руках которого - четки из серебряных черепов? Это проводник в мир бессмертных воинов и магов, где не поклоняются богам, а стремятся ими стать. Здесь гордость - наивысшая добродетель, а смирение и покорность стоят наравне с трусостью и предательством.
- Героям осталось сделать последний шаг. Шаг за грань.2012Формат: FB2,RTF
+Он невероятно богат. Но пал жертвой собственной жадности. И очутился в СССР. На полвека назад. Стране, где можно стать миллионером. Если сделать все правильно.Жанр: Фэнтези, попаданцы, криминалИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8F596399D1A053B831DD513D0E8EB1ADEB52DAB
+magnet:?xt=urn:btih:3BC87674EC27B2721B0882ABFE39F197B2F6E940
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,25 +299,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454973   (93906) от 19.02.2012
+###  Публикация: 1821791   (91278) от 03.10.2025
 
-Дмитрий Манасыпов | За нами – Россия! [2012] [FB2]
+Алим Тыналин | Попаданец. Назад в СССР. Не отступать и не сдаваться (2024) [MP3, Семён Ващенко]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93906.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Середина 60-х годов ХХ века. Война с фашизмом продолжается. Не было капитуляции Германии и парада на Красной площади. Противник силен как никогда! У него теперь не только танки и самолеты, но и вертолеты, и даже боевые шагоходы панцер-шрайтеры. Но фашистам и этого мало. В секретной лаборатории в катакомбах под Куйбышевом они создают монстров – смертоносных, почти непобедимых генетически модифицированных .....2012Формат: FB2
+Напряженные боксерские поединки, жестокие испытания, работа на пределе сил, драматичные повороты сюжета. В новой жизни он снова выйдет на ринг, чтобы получить звание чемпиона… Ходячий труп, он был боксером, вылетевшим из спорта из-за неизлечимой болезни. Но затем он получил второй шанс, попав назад в прошлое. Несмотря на все препятствия и барьеры, несмотря на недоверие (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: Аудиокниги (АСТ)Продолжительность: 07:23:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AF745C52D4B54649133B4959743B3F7023A2FC0
+magnet:?xt=urn:btih:71FA48A6652D8C2CB89954F1AC7CE2088D8318F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,25 +325,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454957   (93904) от 19.02.2012
+###  Публикация: 1821785   (91277) от 03.10.2025
 
-Прожекторперисхилтон. Сезон 4. Выпуск 18(118) (17.02.2012) DVBRip
+CyberYozh Academy, Евгений Ивченков, Павел Хавский | Кибердетектив. Тариф Expert (2025) WEB-DL [RU]
 
->>Архив торрентов
->>Архив Юмора
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93904.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:29:20
+Получите преимущество, благодаря доступу к уникальным данным из различных источников. Выведите свою осведомлённость на новый уровень. Приобретите ценный навык собирать максимум информации о действующих и потенциальных сотрудниках. Вам будет доступно всё от давно удалённых постов в социальных сетях до интересов на основе поисковых запросов. Хотите работать в сфере (   Читать дальше...   )Производство: CyberYozh AcademyЖанр: видеокурс, обучающий курс, кибербезопасность, OSINTЯзык озвучки: русскийПродолжительность: 82:20:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E69C0F3B084692D2662972628F6B42F752E9AE0
+magnet:?xt=urn:btih:7F142C0FE06FE1C37F6C0EDA29FDCA98D5B84712
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,282 +351,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454822   (93892) от 19.02.2012
+###  Публикация: 1821780   (91276) от 03.10.2025
 
-Большое разочарование / The Big Chill (1983) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_93892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жили-были в Южной Каролине восемь друзей детства. Разъехались в разные края и стали профи каждый в своём деле: журналюга Майкл, вояка Ник, звезда телеэкрана Сэм и влюбленная в него Кэрин, молодые супруги Хэролд и Сара, а также Мег и заводила компании Алекс. Последний, кстати, умер. Точнее — покончил с собой. Именно похороны и стали причиной встречи этой семёрки и (   Читать дальше...   )Производство: СШАЖанр: Драма, КомедияРежиссер: Лоуренс КэзданАктеры: Том Беренджер, Гленн Клоуз, Джефф Голдблюм, Уильям Херт, Кевин Клайн, Мэри Кэй Плэйс, Мег Тилли, ДжоБет Уильямс, Дон Гэллоуэй, Джеймс Гиллис, Джон Кэсдан, Мюриэль Мур, Патриция ГолПеревод: Профессиональный многоголосыйПродолжительность: 01:40:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454745   (93880) от 19.02.2012
-
-Журнал | Selber Machen [февраль 2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Selber Machen - немецкий журнал для домашних мастеров: советы по ведению домашнего хозяйства, создание изделий из дерева для дома и сада своими руками, обустройство приусадебного участка, навыки обращения с рабочим инструментом, мелкий ремонт, идеи по оформлению интерьерафевраль 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B8484A705827BDD2E424FEE5B0F464BB0B04D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454753   (93873) от 19.02.2012
-
-Пяточка - Ах, какая шаурма! [Single] (2012) [MP3|320 kbps]<Electro-Punk, Steb, Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Леопардовые трусы (04:18)
-02. Шаурма (03:30)
-03. Завязал (Crank version) (03:12)
-04. Завязал (Punk version) (03:01)2012Жанр: Electro-Punk, Steb, RapПродолжительность: 00:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3E83ACCEF25489CF75622E8C4F017319D36E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454987   (93872) от 19.02.2012
-
-Игорь Гаврилов | Стальной арбитр [2012] [FB2,epub,rtf]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот мир очень похож на наш. В нем те же материки и те же народы, но у него совсем другая история, творимая не только мечом, но и магией…
-Еще в Средние века европейские страны объединились и образовали Континентальный Имперский Союз, или просто - Империю. Но даже в этой Империи нет мира. Чудовищная и непостижимая эпидемия мгновенно превращает заболевшего человека в зловещего монстра, именуемого эаром. Монстров расплодилось так много, что люди вынуждены начать против них войну. Один из виднейших сановников Империи, герцог Александр Стил, он же Стальной Арбитр, проникает в главную тайну эаров - их создают рнайхи, пришельцы, уже не первый раз пытающиеся захватить Землю. В схватке с рнайхами герцог погибает, но битва еще не проиграна. Совершенно неожиданно для себя Стальным Арбитром становится Юрий Кириллов - россиянин, живущий в нашем времени и в нашем мире…2012Формат: FB2,epub,rtf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500F2206BBF3D732E947B4ADBE5305DCF8E6C817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454742   (93859) от 19.02.2012
-
-Semargl - Satanic Pop Metal (2012) [MP3|256 kbps]<Melodic Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hunger (03:24)
-02. Sweet Suicide (03:24)
-03. Drag Me to Hell (03:31)
-04. God Is Not Love (03:29)
-05. Tak, Kurwa (03:53)
-06. Suck My Dick (02:47)
-07. Labyrinth (03:22)
-08. Join in Fire (02:43)
-09. I Hate You (03:26)
-10. Opium (04:01)(   Читать дальше...   )2012Жанр: Melodic Industrial MetalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2FB02F09F02D864A302E04FD7FB4498750E6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455074   (93853) от 19.02.2012
-
-Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Men Don`t Dance (03:23)
-02. The Teaser (03:42)
-03. Big City Life (04:40)
-04. Back Porch (03:44)
-05. Highway 78 (05:11)
-06. Apple Picker (04:45)
-07. Dad`s Story (02:34)
-08. 8. 47 (04:41)
-09. Liquor Store (02:40)
-10. She Used To Call Me Sugar (04:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1121A71E490833139AEBE184E8E13CEB3741D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453831   (93848) от 19.02.2012
-
-Voices From The Lake Feat. Donato Dozzy & Neel - Voices from the Lake (Album) (2012) [MP3|320 kbps]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iyo 9:53
-02. Vega 4:13
-03. Manuvex 4:56
-04. Circe 4:30
-05. S.T. (VFTL Rework) 8:17
-06. Meikyu 9:09
-07. In Giova 7:25
-08. Twins In Virgo 5:14
-09. Twins In Virgo (Reprise) 4:04
-10. Mika 5:51(   Читать дальше...   )2012Жанр: Techno, Ambient, Deep TechПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF95E2DBC7B80389EC059CCD0F90EDBD9655091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454694   (93845) от 19.02.2012
-
-VA - Record Super Chart № 228 (18.02.2012) [MP3|~142-320 kbps]<House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas - Changes (Original Mix)
-02. LMFAO - Sexy And You Know It
-03. Niels van Gogh vs. Emilio Verdez - Beatrocker (Original Mix)
-04. Dj Kuba & Ne!tan - Deejay Deejay (Peppermint Remix)
-05. Knife Party - Internet Friends (Original Mix)
-06. DJ SMASH FEAT MAURY - Rendez Vous (Sebastien Lintz Extended Mix)
-07. Roisin Murphy feat. The Crookers - Royal T
-08. Sarvi - Amore (Chuckie Remix)
-09. Dj Antoine vs. Empire Of The Sun - Walking On A Dream (Dj Pitchugin Booty Mix)
-10. Rihanna Feat. Calvin Harris - We Found Love (Chuckie Remix)18.02.2012Жанр: House, Trance, DanceПродолжительность: 02:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949BBB3E7E949D069EE0C09BE1893F296608BE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454329   (93843) от 19.02.2012
-
-VA - Psychology Vol.3 (2012) [MP3|320 kbps]<Psychedelic / Ambient, Psy Chill>
+VA - Ori Uplift - Uplifting Only Episode 660 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
->>Psychedelic, psytrance, fullon
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93843.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lauge & Baba Gnohm - Nordlys 13:39
- 02. Bob Tracker - 17 Grand Way 07:44
- 03. Bahramji and Mashti - All About You 04:56
- 04. MIC - Visite Champetre 16:53
- 05. Nalepa - Snowflakes 06:00
- 06. Metaphorical Cloud - Substance 06:04
- 07. E-Mantra - If there is Nothing 07:29
- 08. Soulalive - Undercurrent 05:10
- 09. Easily Embarrassed - Blurred Clouds Under The Gloomy Moon 08:02
- 10. Side Liner - A Hand To Hold 09:02(   Читать дальше...   )2012Жанр: Psychedelic / Ambient, Psy ChillПродолжительность: 01:41:48
+01. Maratone & Cyril Ryaz ft. Emoiryah – When The Rivers Rage
+02. William Silva & Cathy Burton – Tears I Never Shed
+03. Kelly Andrew – Beyond The Stars (Emotional Mix) (Orchestral Uplifting Classic
+04. Alexander Komarov – The Lion Is Born(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20EFC983498F7E72FA4968BCC5ECD551FAE0A697
+magnet:?xt=urn:btih:2F58F3CCA4EBDA975B5264F91F6FA839D434DFAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,25 +380,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455014   (93842) от 19.02.2012
+###  Публикация: 1821795   (91275) от 03.10.2025
 
-Н.В.Мельникова | Семейный обед [2012] [DJVU]
+Алим Тыналин | Нэпман [9 книг] (2024-2025) [FB2]
 
->>Разное (категория книг)
->>Кулинария
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93842.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаем читателям рецепты для совместных трапез из недорогих и простых в приготовлении продуктов. Соберитесь всей семьей на обед!2012Формат: DJVU
+Москва, 1928 год, разгар НЭПа. Успешный промышленник Леонид Краснов неожиданно оказывается в центре опасной игры. В его теле – сознание человека из 2024 года, за его технологиями охотятся конкуренты, а на кону – судьба советской индустриализации.
+Используя опыт корпоративных войн будущего и помощь преданной команды, он пытается построить новую модель промышленного (   Читать дальше...   )Жанр: Фэнтези, ПопаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F80CF5E3A22240237880469C61C8260FC80733C5
+magnet:?xt=urn:btih:374C3E86F73EADF9C2999D9B3C0284241117DAC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,26 +407,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454455   (93832) от 19.02.2012
+###  Публикация: 1821799   (91274) от 03.10.2025
 
-VA - Derrick & Tonika, Shyma - Remix EP (2012) [MP3|320 kbps]<Drum & Bass>
+Школьный автобус / The Lost Bus (2025) WEB-DLRip [H.264] [MVO]
 
->>Архив торрентов
->>Архив Музыки
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93832.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Derrick & Tonika - bird 1 (derrick & tonika remix) (05:18)
-02. Shyma - by the wind (derrick & tonika remix) (05:39)2012Жанр: Drum & BassПродолжительность: 00:10:57
+Фильм показывает события время пожара в Кэмп-Файре в Калифорнии, самого смертоносного лесного пожара в стране за столетие, и как предотвратить подобные трагедии в будущем, а также рассказывает истории водителя автобуса и школьной учительницы, которые помогали тушить лесной пожар.Производство: США | Apple Original Films, Blumhouse Productions, Comet PicturesЖанр: триллер, драмаРежиссер: Пол ГринграссАктеры: Мэттью Макконахи, Америка Феррера, Юл Васкес, Эшли Аткинсон, Кимберли Леви МакКонахи, Леви МакКонахи, Джон Мессина, БойскаутыПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:09:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:451CEEC97E1E446D6402B26E5AB99EE70329FDA9
+magnet:?xt=urn:btih:914251D9C0454893AC92D8076E87BEB2BEB8EE21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,32 +433,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454308   (93829) от 19.02.2012
+###  Публикация: 1821801   (91273) от 03.10.2025
 
-Sanathana - Saraswati (2012) [MP3|192-320 kbps]<Psychedelic / PsyAmbient, Electronika>
+Максим Дынин | Карт-Хадашт не должен быть разрушен! (2025) [FB2]
 
->>Electronic
->>Psychedelic, psytrance, fullon
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93829.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Into The Land of Nod 7:02
- 02. Raghupati Raghava Rajaram 9:50
- 03. Monsoon Dreams 9:43
- 04. The Tree That Swayed Me 9:47
- 05. Light Seeking Dancer 8:49
- 06. The Purpose of Existence 9:12
- 07. Down The Memory Lane 8:26
- 08. Dark is So Bright 11:152012Жанр: Psychedelic / PsyAmbient, ElectronikaПродолжительность: 01:14:04
+«Карфаген должен быть разрушен!» Эти слова римского сенатора Катона-старшего известны всем. Но мало кто задумывался, что же произошло на самом деле. Почему слова озлобленного римлянина привели к уничтожению величайшего торгового города-государства Средиземноморья, не представлявшего угрозы для Рима и даже связанного с ним кабальным договором?
+…После подрыва на мине (   Читать дальше...   )Жанр: Фантастика, боевик, попаданцыИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D54CD38EDF12F71D8C065AFA68683E403D25D67
+magnet:?xt=urn:btih:5A2DA4D83DC961AFECF24A8A7198E30425870FC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -711,25 +460,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454916   (93826) от 19.02.2012
+###  Публикация: 1821798   (91272) от 03.10.2025
 
-Журнал | Conde Nast Traveller [Россия] №4 (февраль 2012) [PDF]
+Андрей Никонов | Сергей Травин (Книга 4). Артист (2024) [MP3, Алексей Воскобойников]
 
->>Журналы
->>Хобби (журналы)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93826.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Condé Nast Traveller» — журнал для путешественников, издаваемый международной корпорацией Condé Nast Publications. Издание принято называть библией для туристов.Формат: PDF
+Осень 1928 года. Поль Дирак уже предсказал существование антиматерии, Александр Флемминг открыл пенициллин, Ильф и Петров выпустили книгу «Двенадцать стульев», а кинематограф предвкушает начало звуковой эры.
+Сергей Травин отправляется на отдых в Пятигорск. Он напьётся нарзана, поучаствует в съёмках фильма, познакомится со знаменитой артисткой, встретит старую любовь (   Читать дальше...   )Жанр: Фантастика, приключения, попаданцы, детективИздательство: Аудиокниги (АСТ)Продолжительность: 11:32:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C92BBBF14D4A51647E52490D96C4D2067F6AEEB1
+magnet:?xt=urn:btih:490EA1D97578CB902426AFE323CA4A1366607710
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -737,34 +487,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 452554   (93817) от 19.02.2012
+###  Публикация: 1821796   (91271) от 03.10.2025
 
-VA - The Best Of Trance & Progressive 19 (2011) [MP3|320 kbps]<Trance, Progressive Trance, Uplifting Trance, House>
+Андрей Никонов | Управдом [5 книг] (2023-2025) [FB2]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93817.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Hard Rock Sofa & St. Brothers - Blow Up (Thomas Gold Vs. Axwell Remix) (6:15)
-2. Ferry Corsten - Punk (Arty Rock N Rolla Mix) (6:25)
-3. Ferry Corsten - Feel it (Original Extended Mix) (6:16)
-4. Sander van Doorn - Koko (Original Mix) (5:39)
-5. Orjan Nilsen - Between the Rays (3:56)
-6. leon bolier - cape town
-7. abstract vision and elite electronic - rise again
-8. jaco - excuses (original mix)
-9. John O Callaghan - Ride The Wave (feat. Giuseppe Ottaviani)
-10. juventa - dionysia (original mix)(   Читать дальше...   )Жанр: Продолжительность: 19:40:00
+Двадцатые годы прошлого века. НЭП. Сергей Олегович Травин, агент угро, направлен на хозяйственную работу в провинциальный городок, который сотрясает череда разбойных нападений. Как известно, оперов бывших не бывает, поэтому Травин оказывается в гуще событий…Жанр: Фантастика, попаданцы, детективИздательство: АСТ, СамиздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5582C334190A3F7DD03187D299B8B201AAF772E
+magnet:?xt=urn:btih:3B0701B0783199BA4AEACFE33244F19DFFAD2378
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -772,25 +513,181 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454378   (93815) от 19.02.2012
+###  Публикация: 1821794   (91270) от 03.10.2025
 
-VA - Stax Does the Beatles (2008) [APE|Lossless]<Southern Soul, Jazz Soul>
+Алим Тыналин | Император Рима [4 книги] (2022-2024) [FB2]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93815.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Otis Redding - Day Tripper2008Жанр: Southern Soul, Jazz SoulПродолжительность: 01:08:20
+Наш современник, авантюрист Роман Панов, попадает в Древний Рим времен упадка и прилагает все силы, чтобы спасти империю от уничтожения.Жанр: Фэнтези, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A69C5490B1933DB646BA954AD649ACC85ACEDF2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821789   (91269) от 03.10.2025
+
+Алим Тыналин | Каратист [4 книги] (2023) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91269.jpg" />
+</div>
+
+
+###  Подробнее
+
+После показательного боя с быком каратист Виктор Ермолов попал на полвека назад, в 1972 год. В эпоху, когда карате под запретом. И чтобы стать лучшим воином, ему предстоит пройти множество испытаний.Жанр: Фэнтези, Попаданцы, БоевикИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C841D5FD5246EB252F35C9AABFACD549BF2B030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821787   (91268) от 03.10.2025
+
+Алим Тыналин | Гипнотизер в МВД [3 книги] (2022-2023) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91268.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далеком прошлом маньяк истребил его семью. И вот теперь он вернулся назад во времени, чтобы предотвратить чудовищное преступление и поймать убийцу... Во второй книге - продолжение приключений гипнотизера и менталиста Яна Климова в 1974 году в Ленинграде. В третьей - гениальный гипнотизер Ян Климов возвращается. У Пикового короля остались последователи. Причем один (   Читать дальше...   )Жанр: Фэнтези, ПопаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5484F20C801D7358EB9C870453A19F38C0A3E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821805   (91267) от 03.10.2025
+
+Эрик Фуасье | Бюро темных дел (Книга 1) (2024) [MP3, Александр Кудринский]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция, Июльская монархия. Страна охвачена политическими волнениями, ученые совершают научные открытия, которые навсегда изменят мир… Но все это не волнует Валантена Верна: он занят куда более важным делом — поимкой преступника, который скрывается под именем Викарий и уже много лет ускользает от закона. Валантен слишком богат, чтобы служить в полиции, и слишком (   Читать дальше...   )Жанр: детективИздательство: РИПОЛ КлассикПродолжительность: 13:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6FC59A7619BB6E891A592C1BBCC4D1CF0241E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821803   (91266) от 03.10.2025
+
+Рафаэль Дамиров, Валерий Гуров | Завод: Назад в СССР [4 книги] (2024-2025) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Больше сорока лет я отпахал на заводе, пока несчастный случай на производстве не забрал мою жизнь. Но я не умер – мое сознание перенеслось в прошлое. На дворе семидесятые, СССР в самом расцвете, а я молодой пацан – ученик на советском оборонном предприятии. Здесь все так знакомо и кажется родным… Вот только я прекрасно помню, что мой родной завод пошел с молотка (   Читать дальше...   )Жанр: Фантастика, попаданцы, юморИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35502D836350E4B83983B91FD3A1E2E804F8106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821809   (91265) от 03.10.2025
+
+Мистер Крутой / Yat goh ho yan / Mr. Nice Guy (1997) BDRip [AV1/1080p-LQ] [10-bit] [Handmade AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий кулинарного телешоу в Мельбурне Джеки случайно становится обладателем видеокассеты с записью кровавой разборки между бандами наркоторговцев. На этом спокойные дни для Джеки закончились и превратились в бесконечную гонку на выживание. Он бы с удовольствием отдал кассету бандитам или полиции, ведь на ней улика. Но те не задавали вопросов, а у Джеки все равно (   Читать дальше...   )Производство: Гонконг / Golden Harvest CompanyЖанр: боевик, комедияРежиссер: Саммо ХунАктеры: Джеки Чан, Ричард Нортон, Мики Ли, Карен МакЛаймонт, Гэбриэлль Фицпатрик, Винс Полетто, Бэрри Отто, Саммо Хун, Эмиль Чау, Джойс ГодензиПеревод: Многоголосый профессиональный (West, THT)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB23B09C2910516142720CAB400CE2472B176323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821810   (91264) от 03.10.2025
+
+Soft Organizer Pro 10.31 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E73784ECA06CF14BE888A2DA1BB81B4B8CE7A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

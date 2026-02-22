@@ -1,3 +1,38 @@
+###  Публикация: 735225   (227739) от 19.12.2013
+
+Rhetta Butler - Still Rockin' (2013) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Prehistoric Woman 03:29
+02. Monday, Please Don't Come 02:25
+03. Hopin' For Better Days 03:23
+04. Under The Same Moon 04:47
+05. Thank God, I'm So Glad I Didn't Marry That Man 03:03
+06. Midweek City Sidewalk Blues 02:47
+07. It Sure Ain't Georgia 02:53
+08. Honeyman 02:21
+09. Don't Have To Fool With The Blues No More 02:41
+10. Can't Change The Way I Feel About You 03:09(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1E555A6354AB375E93BB990D154DBAA135FA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 735098   (227703) от 19.12.2013
 
 Akiko Osada With Eddie Higgins - Winter Moon (2006) [FLAC|Lossless]<Vocal Jazz>
@@ -782,35 +817,6 @@ Harold Land - The Fox & Take Aim (1959, 1960) 2011, Essential Jazz Classics [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD8D8FD29CDD589BA9FE018ADC0BBBFAB4140D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268538   (226615) от 11.12.2018
-
-Harold Land - Xocia's Dance (Sue-sha) (1981) 1990, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Mood [8:20]
-02. Daisy Forever [9:21]
-03. Xocia's Dance (Sue-sha's Dance) [4:51]
-04. Ah, I See [10:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C3C0F89EFF17620440499802C19FE8F9E71DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

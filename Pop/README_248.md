@@ -1,3 +1,90 @@
+###  Публикация: 1335895   (284402) от 04.11.2019
+
+VA - Space Sound Records Presents: Italo Euro Disco Vol. 1 (2010) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirko Hirsch - Fire (Long Version) (7:08)
+02. Galaxy Hunter - Running High (4:24)
+03. Retronic Voice - Menace To Society (5:08)
+04. Tiziana Rivale - Take Me In Your Arms (3:56)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45968B7D217E21709D37719678877EDEBCB1F95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335844   (284391) от 04.11.2019
+
+Celine Dion - Courage (Deluxe Edition) (2019) Scene [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying On My Own
+02. Lovers Never Die
+03. Falling In Love Again
+04. Lying Down(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B326C72A89ED730A8754DD2D7E746C6D228E306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264002   (284359) от 21.11.2018
+
+VA - Romantic Easy Listening (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal Jazz, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Valli - Can't Take My Eyes Off You
+02. Shirley Bassey - (Where Do I Begin) Love Story
+03. Fred Astaire - My Eyes Adored You
+04. Vera Lynn - Besame Mucho (Kiss Me)(   Читать дальше...   )Жанр: Pop, Vocal Jazz, Easy ListeningПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC4DFEB769746577FCCE5D255EE20141468B106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264014   (284334) от 21.11.2018
 
 Platinum Blonde - Standing in the Dark (1983) Remastered, 2014, Columbia [FLAC|Lossless|tracks] <Pop Rock, New Wave>
@@ -656,93 +743,6 @@ VA - Босса Нова - Всё ещё самая красивая музык�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D09AE026F46A2F4EBB82A4808FC4A4F1C7EC9EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187014   (282165) от 27.11.2017
-
-VA - Босса-нова - Самая красивая музыка в СССР (2005) [APE|Lossless|image + .cue] <Retro, Pop, Easy Listening>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Трио Александра Тартаковского - Garota De Ipanema
-02. Эдита Пьеха - Manha De Carnaval
-03. Квартет Р.Бабаева - Manha De Karnaval
-04. Ансамбль миниатюр п/у В.Чижика - Samba De Uma Nota So(   Читать дальше...   )Жанр: Retro, Pop, Easy ListeningПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C682551097415D3F765ACBCCCB24325B2CE8D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964443   (282098) от 11.12.2015
-
-Britney Spears - Greatest Hits: My Prerogative (2004) [FLAC|tracks+.cue]<RnB, Swing, House, Vocal, Ballad, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Prerogative (3:33)
-02. Toxic (3:19)
-03. I'm a Slave 4 U (3:25)
-04. Oops!...I Did It Again (3:33)(   Читать дальше...   )Жанр: RnB, Swing, House, Vocal, Ballad, Synth-popПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC7838FF11D2FD306ED40BC21A866458454B9B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964169   (282091) от 11.12.2015
-
-Patricia Kaas - Scene De Vie (1990) [FLAC|tracks+.cue]<Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Générique (0:52)
-02. Les Mannequins D'Osier (3:52)
-03. L'Heure Du Jazz (3:56)
-04. Coeurs Brisés (3:21)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E35AAF52270AA484C5291E554AE71694B5DFF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

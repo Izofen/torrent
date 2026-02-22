@@ -1,3 +1,264 @@
+###  Публикация: 1267332   (266732) от 06.12.2018
+
+Iron Hunter - Mankind Resistance (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In The Heat Of The Night [04:26]
+2. Street Warriors [03:51]
+3. I'll Die For You [03:24]
+4. The Deathbringer [03:41](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FD1BB9EC3900FCDD8C97D236DCD5C50F18E5BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267247   (266664) от 06.12.2018
+
+Soulfly - Ritual (2018) [WavPack|Lossless|image + .cue] <Groove Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ritual (4:55)
+02. Dead Behind The Eyes (feat. Randy Blythe) (5:17)
+03. The Summoning (4:15)
+04. Evil Empowered (3:34)(   Читать дальше...   )Жанр: Groove Thrash MetalПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BBF7C53EFF913809EBC75638B0DCC4351AC9DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339673   (265304) от 20.11.2019
+
+Lindemann - F&M: Frau Und Mann (2019) [FLAC|Lossless|tracks] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steh Auf
+02. Ich Weiss Es Nicht
+03. Allesfresser
+04. Blut(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210420FD94A7697A27E7E623CE5EA268A78A93EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191162   (265231) от 12.12.2017
+
+Morbid Angel - Kingdoms Disdained (2017) Limited Edition [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piles of Little Arms
+02. D.E.A.D.
+03. Garden of Disdain
+04. The Righteous Voice(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5331A23A8CD39678908C1EB3804FA68FE60E2EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191245   (264519) от 13.12.2017
+
+Speed Limit - Anywhere We Dare (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anywhere We Dare (5:16)
+02. Sober Truth (6:54)
+03. Sweet Morphine (5:18)
+04. No More Ace To Play (7:54)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4F06499D23ED7C6A32B1F3E00633CC06D06FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339980   (264305) от 22.11.2019
+
+Sonic Syndicate - Only Inhuman (2007) [FLAC|Lossless|image + .cue] <Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aftermath
+02. Blue Eyed Fiend
+03. Psychic Suicide
+04. Double Agent 616(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150762412BAE72A88294A244467F085CBB2CBC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339904   (264281) от 22.11.2019
+
+The Ferrymen - 2 albums (2017-2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитарист и композитор Магнус Карлссон (Kiske/ Somerville, Magnus Karlsson's Free Fall, Primal Fear, The Codex, Planet Alliance, Last Tribe, Midnight Sun, Starbreaker, Allen/ Lande, Bob Catley, Scheepers) и вокалист Ронни Ромеро (Rainbow, Walter Giardino Temple, Eridan, Aria Inferno, Lords of Black, Jose Rubio's Nova Era, Santelmo, Voces del Rock) объединились в новом (   Читать дальше...   )--------------------------
+
+01. Don't Stand In My Way (5:02)
+02. Bring Me Home (6:24)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 01:55:19 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C87937604104FAAC9A58357D335E2DF3DE4A7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340172   (263977) от 23.11.2019
+
+Pretty Maids - Undress Your Madness (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263977.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Intro [0:34]
+2 - Serpentine [4:17]
+3 - Firesoul Fly [4:17]
+4 - Undress Your Madness [4:20](   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF41086EE97FC95E506E35A3F4CD4428967AC7FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340498   (263628) от 24.11.2019
+
+Machine Men - 3 Альбома Collection (2004-2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2004 - Scars & Wounds
+2005 - Elegies
+2007 - Circis Of FoolsЖанр: Heavy MetalПродолжительность: 02:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCB40749EFB4093B28F0847712C3EA52A22D63E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340896   (262916) от 26.11.2019
 
 Silent Force - 6 Альбомов Collection (2000-2013) [FLAC|Lossless|image + .cue] <Melodic Heavy/Power Metal>
@@ -497,303 +758,6 @@ The Fall Of Every Season - From Below (2007) [FLAC|Lossless] <Death Metal, Doom 
 03. The Triumphant Beast (12:35)
 04. Escape Of The Dove (03:39)
 05. Her Withering Petals (15:12)Жанр: Death Metal, Doom MetalФормат: CD, AlbumПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502869   (260388) от 02.06.2012
-
-Forest Stream - 2 albums (2003-2009) [APE/FLAC|Lossless] <Death / Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Feral Magic ) (02:19)
-02. The Crown Of Winter (11:44)
-03. Mired (09:27)
-04. Bless You To Die (07:38)
-05. Autumn Dancers (08:40)
-06. The Seventh Symphony Of... (09:05)
-07. The Beautiful Nature (09:24)
-08. Outro (My Awakening Dreamland) (01:38)Жанр: Death / Doom MetalПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503884   (260011) от 31.05.2012
-
-Katatonia - 16 albums (1993-2010) [FLAC|Lossless] <Doom / Progressive / Gothic Metal, Depressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Longest Year (04:43)
-02. Sold Heart (04:33)
-03. Day And Then The Shade (Frank Default remix) (05:37)
-04. Idle Blood (Linje 14) (03:23)1993-2010Жанр: Doom / Progressive / Gothic Metal, Depressive RockПродолжительность: 00:18:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503396   (259574) от 30.05.2012
-
-Virgin Black - 5 albums (1998-2008) [FLAC|Lossless] <Gothic / Doom / Symphonic / Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fragile Breath (05:49)
-02. In Winters Ash (07:23)
-03. Silent (06:42)
-04. God In Dust (08:38)
-05. Lacrimosa (Gather Me) (02:21)
-06. Darkness (11:45)
-07. Forever (01:13)1998-2008Жанр: Gothic / Doom / Symphonic / Death MetalПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502775   (259375) от 29.05.2012
-
-Be'lakor - Of Breath And Bone (2012) [FLAC|Lossless]<Modern Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1 - Abeyance
-2 - Remnants
-3 - Fraught
-4 - Absit Omen
-5 - To Stir The Sea
-6 - In Parting
-7 - The Dream And The Waking
-8 - By Moon And StarЖанр: Modern Melodic Death MetalПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503101   (259337) от 29.05.2012
-
-October Tide - 2 albums (1997-1999) [APE|Lossless] <Melodic Death / Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grey Dawn (04:28)
-02. October Insight (05:03)
-03. Sweetness Dies (05:45)
-04. Heart Of The Dead (04:16)
-05. Floating (06:14)
-06. Lost In The Dark - And Then Gone (05:25)
-07. Into Deep Sleep (05:13)
-08. Dear Sun (03:32)1997-1999Жанр: Melodic Death / Doom MetalПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502767   (259331) от 29.05.2012
-
-Silent Descent - Mind Games (2012) [FLAC|Lossless]<Modern Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Overture
-02 - Psychotic Euphoric
-03 - Mind Games
-04 - Bricks
-05 - Coke Stars
-06 - Bring-In-Sanity
-07 - Lasting Impression
-08 - Devoid
-09 - On That Trip
-10 - Sober Thoughts(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502776   (259303) от 29.05.2012
-
-Tristitia - 4 albums (1995-2002) [FLAC|Lossless] <Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Entrance (02:08)
-02. Path I. Beholders tears (06:20)
-03. Path II. Black Godz Serenade - Part 1 (01:34)
-04. Path III. As Death Says Mine (13:13)
-05. Path IV. When Tears Cry (11:58)
-06. Path V. Beyond The 7 th Valley (01:43)
-07. Path VI. There Will Never Be Another Dawn (10:20)
-08. Path VII.Black Godz Serenade - Part 2 (01:57)
-09. Path VIII. Tears Of The Moon (09:07)Жанр: Doom Metal, Gothic MetalПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502968   (259284) от 29.05.2012
-
-Synkletos - Spiritual Alchemy (2011) [FLAC|Lossless] <Melodic Doom / Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Windy Days (01:34)
-02. Golden Fields Of Creation (07:45)
-03. The Elementals (05:29)
-04. Turn Of The Year (02:55)
-05. Rain Of Eternal Distress (09:10)
-06. The Ascent (03:54)
-07. Spiritual Alchemy (08:35)
-08. Contemplation (03:01)Жанр: Melodic Doom / Death MetalПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502957   (259269) от 29.05.2012
-
-Dimness Through Infinity - Nymph (2003) [FLAC|Lossless] <Atmospheric Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celestial Divinity (02:53)
-02. And Begins The Tragedy... (09:54)
-03. Lurid (1st Patch) (01:53)
-04. Dying Embrace (09:32)
-05. Mourning part 1 (01:53)
-06. The Solitude Echoes (02:25)
-07. Mourning part 2 (04:37)
-08. Woe to Nymph (05:40)
-09. Unknown Foliages, Faraway (03:49)
-10. Lurid (2nd Path) (02:20)(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 01:09:38
 
 ## Скачать торент
 ```bash

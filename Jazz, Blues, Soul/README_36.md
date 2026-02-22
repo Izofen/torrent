@@ -1,3 +1,90 @@
+###  Публикация: 1469630   (1016305) от 13.05.2021
+
+Emmet Cohen - Future Stride (2021) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphonic Raps [3:08]
+02. Reflections at Dusk [5:12]
+03. Toast to Lo [6:42]
+04. Future Stride [5:54](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D177C0FAB1FC72C53ED7EB117EFF563D7B7AE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469832   (1016150) от 14.05.2021
+
+Bill Evans - The Secret Sessions: Recorded At The Village Vanguard (1966 - 1975) 8CD, 1996, Milestone [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016150.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Very Early [5:21]
+02. 'Round Midnight [7:59]
+03. One for Helen [6:20](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 09:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A50618CE85CCA64DB6C5BD27A0873D22B7C8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469950   (1016057) от 14.05.2021
+
+Frank Sinatra - Reprise Rarities - Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Dance
+02. The Second Time Around
+03. Moment To Moment
+04. In The Shadow Of The Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F28918974856DBA3AC8A0968EEE1B8FC432C57A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470051   (1015996) от 15.05.2021
 
 Robert Hohner Percussion Ensemble - Far More Drums (2000) [FLAC|Lossless|tracks + .cue] <Fusion>
@@ -658,93 +745,6 @@ Carol Welsman - Dance with Me (2020) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5663765A1A03EA1B9C78CFF3DB3C6FE7A4287778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473428   (1013723) от 29.05.2021
-
-Andy LaVerne - Rhapsody (2021) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waltz For Debby [9:14]
-02. Retroactive [6:36]
-03. My Foolish Heart [8:48]
-04. Autumn Leaves [5:42](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEC6BFA0F713022FE47568483E15B16D8774F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473418   (1013679) от 29.05.2021
-
-Rosalie Drysdale - Mumbo Jumbo (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mumbo Jumbo (4:02)
-02. One More Chance (4:50)
-03. Kiss You Goodbye (4:24)
-04. Blurry in the Rain (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B03CAA3D3B9F2511F65374FC91D224B2BD6D220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473422   (1013654) от 29.05.2021
-
-Tommy Z - Plug in and Play (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pumpin' (Let's Have Fun) (5:35)
-02. Tommy Guns (4:22)
-03. My Alarm Clock (4:08)
-04. Please Come Back to Me (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6319B2DD8E5BA9E9B461F9C2C719783D1BA3A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

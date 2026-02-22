@@ -1,3 +1,32 @@
+###  Публикация: 1457830   (1024248) от 27.03.2021
+
+Evilizers - Solar Quake (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solar Quake (03:53)
+ 02. U.T.B (03:22)
+ 03. Intro (01:51)
+ 04. Chaos Control (05:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD91CD93CF9D8F88A8C94734730AB0FB1DA934A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457974   (1024084) от 28.03.2021
 
 Sotury - Andel Zkazy (2021) [MP3|320 Kbps] <Power Metal>
@@ -716,35 +745,6 @@ Marius Danielsen - Legend of Valley Doom - Part 1-3 (2015-2021) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0FE1406DE3E567EE4340F53196E68A71744A032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468262   (1017281) от 07.05.2021
-
-Diamante - 2 Albums (2018-2021) [MP3|320 Kbps] <Alt.Metal, Modern Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Dream [00:03:05]
-02. Ghost Myself [00:03:12]
-03. Serves You Right [00:03:34]
-04. Obvious [00:03:42](   Читать дальше...   )Жанр: Alt.Metal, Modern Rock, Female VocalПродолжительность: 2CD, 01:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C9705AC7BF5B3213E1A382239DAC86941BE18F
 ```
 
 https://mybot314.ru/tekegram_catalog/

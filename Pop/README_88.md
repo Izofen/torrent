@@ -1,3 +1,119 @@
+###  Публикация: 1124608   (785564) от 12.04.2017
+
+VA - Через Тернии К Звездам. Песни О Космосе (2009) [FLAC|Lossless|image + .cue] <Pop,  Monolog, Vocal, Field Recording, Spoken Word>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. К.Циолковский - Речь К.Э.Циолковского (0:45)
+02. Е.Кибкало - Всё выше (Марш авиаторов) (3:02)
+03. М.Бернес - А самолёты сами не летают (2:44)
+04. Передача с борта ИСЗ 'Спутник-1' - Позывные первого спутника Земли (0:26)(   Читать дальше...   )Жанр: Pop,  Monolog, Vocal, Field Recording, Spoken WordПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F2F9B69DD87BE583658487A505677AF2CD65D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204025   (785429) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Laura Branigan (1990) Atlantic, 7567-82086-2, Europe [MP3|320 Kbps] <House, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Moonlight On Water 4:40
+02. Bad Attitude 4:03
+03. Never In A Million Years 4:11
+04. Smoke Screen 4:07(   Читать дальше...   )Жанр: House, Pop Rock, Synth-popПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B3C65F83176000D0EF146E9F8DCCB1737944CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203968   (785427) от 04.02.2018
+
+David Myles - Real Love (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Night & Day
+02 – Real Love
+03 – Night After Night
+04 – Knockout(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3FEC15C3A9F2BE73DD40DBB860D55F6A509C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203974   (785424) от 04.02.2018
+
+VA - Pool Party Hits (2018) [MP3|320 Kbps] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785424.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Selena Gomez Feat Gucci Mane - Fetish
+02. Demi Lovato - Sorry Not Sorry
+03. Shawn Mendes - There's Nothing Holdin' Me Back(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 02:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50606048222B7B9777AA669345AE59F156FB436A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204000   (785422) от 04.02.2018
 
 Laura Branigan (Лора Брэниган) - Branigan 2 (1983) Atlantic, 78 0066-1, UK & Europe [MP3|320 Kbps] <Ballad, Disco>
@@ -627,122 +743,6 @@ Catherine Clarnette - Wildcard (2017) [MP3|320 Kbps] <Alternative Pop, Dark Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:960DC7E4105D76DA3F1A89F9BB57425D88803448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204923   (784081) от 08.02.2018
-
-Veronica Unlimited - Veronica Sound Shower (1981) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Donna (3:43)
-02. I Wanna Dance With Out (3:38)
-03. What Lousy Party (3:21)
-04. Sun Sun Singing In The Sun (3:14)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE5B17AE56F20EE09DA051B7DC3DB3F773D9871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204947   (784076) от 08.02.2018
-
-VA - Radio Italia Love (2018) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cesare Cremonini – Poetica [04:51]
-02. J-AX & Fedez – Sconosciuti da una vita [03:01]
-03. Francesca Michielin – Io non abito al mare [03:14]
-04. Negramaro – Fino all’imbrunire [04:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632821B2594692464ADE440C9D218464E0895B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204574   (784075) от 08.02.2018
-
-VA - Smash Hits Love Songs (2018) 3CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784075.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Bonnie Tyler  -  Total Eclipse Of The Heart  5:34
-02.  Cutting Crew  -  Died In Your Arms (I Just)  4:23
-03.  Foreigner  -  I Want to Know What Love Is  4:58(   Читать дальше...   )Жанр: PopПродолжительность: 03:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A291906110739464C9FCC2053B2784BEFBC5752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204655   (784062) от 08.02.2018
-
-VA - Stay In The 80s (2018) 2CD [MP3|320 Kbps] <EuroPop, EuroDisco, Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784062.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Kano  -  Another Life (Maxi Version)  7:14
-02.  C.C. Catch  -  Cause You Are Young (12' Version)  4:49
-03.  Sweet Connection  -  Need Your Passion (Remix)  5:58(   Читать дальше...   )Жанр: EuroPop, EuroDisco, Italo DiscoПродолжительность: 02:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3414EFBB84B880225BE3CD410A9E1CB2D5403D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

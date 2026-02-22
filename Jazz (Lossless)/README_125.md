@@ -1,3 +1,32 @@
+###  Публикация: 1132472   (701276) от 09.05.2017
+
+Wild Bill Davis - Swing & Shout: Americans Swinging In Paris (1977) 2002, Black And Blue [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stick Up The Band [07:14]
+02. Lullaby Of Birdland [09:50]
+03. Indiana [06:57]
+04. Body And Soul [05:52](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3045DF59CF11C8E6D94532F1DBCC04ADFE885275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132479   (701270) от 09.05.2017
 
 Pepper Adams - Plays Charlie Mingus (1963) 2003, Fresh Sounds Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -716,35 +745,6 @@ Black Flower - Magma (2022) [FLAC|Lossless|tracks + .cue] <World Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49BA0CA68A6F0CE72936AC1C540F3C1E759E33F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402976   (696044) от 17.08.2020
-
-Curtis Counce - Four Classic Albums (1953 - 1958) 2016, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696044.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Variations On A Motive By Bud [3:47]
-02. Wailing Dervish [4:51]
-03. Further Out [2:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCD20BD298395260C11B42B1214E9A4C766D889
 ```
 
 https://mybot314.ru/tekegram_catalog/

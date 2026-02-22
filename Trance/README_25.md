@@ -1,3 +1,32 @@
+###  Публикация: 1241502   (519380) от 18.08.2018
+
+VA - Progression Vol.7 (Mixed By Jon Bourne) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Szabo - Budapest (Original Mix)
+02. Danny Chen feat. Nicole Rodriguez - Everything We Lost (Monoverse Remix)
+03. Anden State - Flame (Original Mix)
+04. Westlake (US) - Bengala (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FAF2C7C6B74DC2AD9873A5E8DF31FA1B7E075C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241635   (519299) от 18.08.2018
 
 VA - Trance In Space 6 (2018) [MP3|320 Kbps] <Trance>
@@ -714,35 +743,6 @@ VA - The Very Best Of Uplifting Vocal Trance (2015) [MP3|320 кб/с]<Trance, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62401B5E1637622CA6AF0DCC48EF947D0F010E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565469   (494676) от 23.07.2022
-
-VA - Trance 100 - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494676.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren feat. Wrabel - Feel Again (Extended Club Mix) (6:11)
-002. Andrew Rayel feat. Sam Gray - Wild Feelings (Extended Mix) (4:01)
-003. Ferry Corsten & Dustin Husain - Timeout (Extended Mix) (5:16)
-004. Arty - So Good To Me (Extended Mix) (4:39)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 10:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8275000A2CE0432AD02958563947D7DB38065024
 ```
 
 https://mybot314.ru/tekegram_catalog/

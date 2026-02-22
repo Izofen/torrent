@@ -1,3 +1,113 @@
+###  Публикация: 1304149   (566983) от 24.05.2019
+
+Григорий Лепс - Гимн Российской Федерации (2019) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566983.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Гимн Российской ФедерацииЖанр: PopПродолжительность: 00:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD53330CDED4A8DFDB943E6D478CAABD74BC93B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044426   (566830) от 19.08.2016
+
+VA - Now That's What I Call Music 59 (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Now That's What I Call Music 59 - является 59-ым изданием  серии Now! в Соединенных Штатах. Он был выпущен 5 августа 2016 года. Это сборник 22 треков и его особенность в том, что в нем собраны, в том числе, хиты номер один Billboard Hot 100, такие как,  Justin Timberlake - Can't Stop The Feeling, Sia & Sean Paul - Cheap Thrills с участием Шона Пола и Panda в исполнении (   Читать дальше...   )01. Justin Timberlake - Can't Stop The Feeling  (3:54)
+02. The Chainsmokers & Daya - Don't Let Me Down  (3:26)
+03. Sia & Sean Paul - Cheap Thrills  (3:39)
+04. Meghan Trainor - No  (3:31)(   Читать дальше...   )Жанр: Pop, Electronic, Pop-RockПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B1E8F89F748C557E3A1912F33CB97135CE9810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361555   (566701) от 15.07.2011
+
+Верка Сердючка - 9 альбомов (2001-2008) [MP3|192-320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234883   (565998) от 08.07.2018
+
+VA - The Dome Summer (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565998.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dynoro & Gigi D\'Agostino - In My Mind 3:05
+02. El Profesor - Bella Ciao (HUGEL Remix) 2:45
+03. Alle Farben & YOUNOTUS & Kelvin Jones - Only Thing We Know 2:53(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C1FFA973D6C1FF1EAB46A96D41106F68AA8025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234909   (565918) от 08.07.2018
 
 Michelle - Tabu (Deluxe) (2018) 2CD [MP3|320 Kbps] <Pop>
@@ -635,122 +745,6 @@ VA - BRAVO Hits 98 (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD92409AA76EC1B6747E21C0C55608D9110E90E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045024   (562979) от 21.08.2016
-
-Britney Spears - Glory (2016) Deluxe Version [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invitation (3:18)
-02. Make Me... (feat. G-Eazy) (3:51)
-03. Private Show (3:54)
-04. Man On The Moon (3:46)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF82A9E6ACF1AC5ADB9689C8F6603600CF7DE12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044900   (562972) от 21.08.2016
-
-Michael Jackson - Thriller: 25th Anniversary Edition (1982) Remastered, 2008, Epic/Legacy [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin' (6:02)
- 02. Baby Be Mine (4:20)
- 03. The Girl Is Mine (3:42)
- 04. Thriller (5:57)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC30F5871375BF187FD1600A2E6901150A1EA309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304844   (562088) от 27.05.2019
-
-Stensound Party Group - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vamonos (3:52)
-02. Y Viva Espana (3:20)
-03. Vamos A La Playa (3:13)
-04. La Copa De La Vida (4:31)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040572FB5F530800865AA862A9ED58C74CAF0DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304777   (562075) от 27.05.2019
-
-Power Play - Come On Take Me Higher - Do It One More Time (1977) LP, Mixed [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор, исполнитель и продюсер - Roy Boston (настоящее имя Rudolf Friedrich Witsch). Известен так же сольными синглами и созданными группами: R. B. & Company и The Boston Soul Sound Orquestra & Voices.01. Mixed Side One (17:34):
- - Come On Take Me Higher
- - Do It One More Time
- - Come On Take Me(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE41411B11D06E1B0BFD24F911C1616D01B8E46
 ```
 
 https://mybot314.ru/tekegram_catalog/

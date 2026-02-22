@@ -1,3 +1,32 @@
+###  Публикация: 1565470   (490337) от 25.07.2022
+
+Geri Halliwell - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Call Me Baby
+02. Strength Of A Woman
+03. Circles Round The Moon
+04. Desire(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DCB6F2AB542D7CAD361DA59864CFA1926D5607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054999   (490296) от 21.09.2016
 
 VA - New Edition Italo Disco 80s (2016) [MP3|320 Kbps] <Disco, Pop, Dance>
@@ -782,35 +811,6 @@ VA - Radio DFM Top D-Chart Август 2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:763EB2EF160741BC26F7A73B2146179D32E2673A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056236   (480679) от 25.09.2016
-
-VA - Дискотека 80-90 годов по-новому (Dj Ikonnikov - E.x.c Version) (38) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Fugitive (Dj Ikonnikov E.x.c Version) (06:45)
-02. Вячеслав Диденко и гр. Компания - Девушка (Dj Ikonnikov E.x.c Version) (05:00)
-03. Boney M - Blue Beach (Dj Ikonnikov E.x.c Version) (04:08)
-04. C.C. Catch - House Of Mystic Lights (Dj Ikonnikov E.x.c Version) (03:01)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED07E647431DC25C4E4F611DF3F4234622A8395
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1084426   (271528) от 18.12.2016
-
-Cannonball Adderley with Milt Jackson - Things Are Getting Better (1958) 1993, Riverside[WavPack|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues Oriental [05:04]
- 02.Things Are Getting Better [07:15]
- 03.Serves Me Right (Take 5) [04:50]
- 04.Serves Me Right (Take 4) [04:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D9D99C77E758F04A38DC16E12A930C208DBECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084414   (271464) от 18.12.2016
 
 Guy Lafitte - Blue And Sentimental (1954) 2011, Universal[FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -745,6 +716,35 @@ VA - Simply Jazz After Dark (2014) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FA4FD4A821883B558D45EB253A496DCA1FD4364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189864   (269622) от 07.12.2017
+
+Yusef Lateef - Hush 'N' Thunder (1972) 1998, 32Jazz [WavPack|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Sunday [02:34]
+02. The Hump [04:43]
+03. Opus Pt.I/Opus Pt.II [08:09]
+04. This Old Building [02:43](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421D81CD1C0D7B423F0B37966B00A058DFCFD93E
 ```
 
 https://mybot314.ru/tekegram_catalog/

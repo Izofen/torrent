@@ -1,3 +1,29 @@
+###  Публикация: 1205267   (783774) от 09.02.2018
+
+Movavi PDF Editor 1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для редактирования PDF на Mac сложно подобрать подходящую программу: онлайн-сервисы не стоит использовать для обработки конфиденциальной информации, бесплатные приложения часто «глючат» и не содержат нужных функций, а платный редактор PDF для Mac может стоить, как крыло самолета. Поэтому мы создали недорогую, но функциональную программу, которая позволит редактировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2018Разработчик: MovaviПоддерживаемая ОС: Mac OS Х 10.7 и вышеЯзык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A362E15E678E8745166F84231660FBB6231013F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205277   (783764) от 09.02.2018
 
 Cocktail High Sierra Edition 11.3 [En]
@@ -658,35 +684,6 @@ Gold Panda - Good Luck and Do Your Best (2016) City Slang [FLAC|Lossless|tracks+
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEAE00A5183220033D1C680829513677E82EABE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205438   (783528) от 10.02.2018
-
-Numina - The Chroma Plateau (2018) Spotted Peccary [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beaming Up The Fossils (06:32)
- 02. Bringer Of The Beings (09:14)
- 03. Intergalactic Traveller (05:25)
- 04. Where All The Creatures Are Dreaming (08:44)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB7AB05F37D70A71E96AFCC365B43C63A737C69
 ```
 
 https://mybot314.ru/tekegram_catalog/

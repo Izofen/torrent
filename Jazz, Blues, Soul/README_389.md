@@ -1,3 +1,61 @@
+###  Публикация: 1263151   (290116) от 18.11.2018
+
+Eubie Blake - Memories Of You (1973) 2003, Shout! Factory [FLAC|Lossless|tracks + .cue] <Ragtime, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charleston Rag [3:07]
+02. Chevy Chase [2:44]
+03. Mirandy [2:43]
+04. Fizz Water [1:48](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7055C5D39E8514CA548D0549EFDFAA571EEF0CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263141   (290115) от 18.11.2018
+
+Chico Freeman - The Emissary (1996) Clarity Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Afro-Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Spirit Catcher [2:49]
+02. Mandela [3:57]
+03. The Emissary [6:30]
+04. Murcia [5:20](   Читать дальше...   )Жанр: Post-Bop, Afro-Cuban JazzПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5476E939FD88A4DC76B96BF1EE14AB7A74B0CEA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263143   (290114) от 18.11.2018
 
 Eric Gale - Part Of You (1979) 2017, Sony Music [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Funk>
@@ -687,64 +745,6 @@ CD1 - Stablemates:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78C4B9F318A8A8F99FF35D4EEC162855D933DA9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263491   (288260) от 19.11.2018
-
-Hiroshi Matsumoto & Hideo Ichikawa Quartet - Megalopolis (1969) 2006, Think! Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sketch of City Life [15:31]
-02. Nostalgia [4:37]
-03. Megalopolis [5:56]
-04. Serenade to a Dimly Lit Street [5:10](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3967BF2EE05ECABA1BEB355E2952950403951016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186186   (288246) от 24.11.2017
-
-VA - Blues & Boogie (2017) Artist Collection Vol.10 [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Jones - You Don't Have To (04:55)
-02. Blues Rocket Men - Blues Day (03:38)
-03. Nico Brina - Don't Mess Around With A Pianoman (02:45)
-04. Andi's Blues Orchester - Hard Road Blues (03:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208DDA30106371E91AB3D62A85908283A48912DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1121579   (800488) от 02.04.2017
+
+Dawid Jurzyk - Mysterious Forest (2017)Single [MP3|320 Kbps] <Progressive Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Mysterious Forest (Original Mix) [07:17]
+02 Mysterious Forest (Stream Noize Remix) [06:39]Жанр: Progressive Trance, Uplifting TranceПродолжительность: 00:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C198D04EDCC0208E8CA967F2FA7DF83C7B3C0DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273644   (799894) от 02.01.2019
 
 VA - Suanda Music Year Mix 2018 (Mixed by Roman Messer) (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Dance>
@@ -716,35 +743,6 @@ VA - Black Hole Trance Music 11-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34838996B15C69DFE14526BA51AA90D2AF5235AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201175   (792880) от 24.01.2018
-
-VA - True Hits Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer  -  True (Temple One Radio Edit)  3:34
-02.  Alpha Force & Mike Van Fabio feat. Robin Vane  -  Save Me (Radio Edit)  3:40
-03.  LTN & Attila Syah  -  B29 (Original Mix)  4:24
-04.  Christian Zechner & Three Faces  -  Lost In Time (Steve Allen Radio Edit)  4:23(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB92CEF6DA583F3A9FD02D9BDD12E8C515AFEA0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

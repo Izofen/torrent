@@ -1,3 +1,91 @@
+###  Публикация: 1495954   (875706) от 15.09.2021
+
+Band Of Friends - Spotlight on the G-Man Vol.2  (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_875706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Treat Her Right (3:20)
+02. Lonely Mile (4:45)
+03. Secret Agent (4:50)
+04. Livin' Like a Trucker (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08959FC9C8381CE6DCD14BD82B548C4DEFA4443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495866   (875700) от 15.09.2021
+
+Chris Rea - Blue Guitars IV - Electric Memphis Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Guitar (4:44)
+02. Electric Memphis Blue (4:17)
+03. All Night Long (4:14)
+04. Born Bad (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A1BE35AE23369376D11D5A43EB91544417F11F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872307   (875685) от 24.02.2015
+
+Frank Sinatra - Sings His Greatest Hits (1997) [FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. All Of Me [02:44]
+02. I Could Write A Book [02:45]
+03. I've Got A Crush On You [03:18]
+04. Night And Day [03:42]
+05. Saturday Night (Is The Loneliest Night Of The Week) [02:46](   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Swing, Easy ListeningПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A469F80BCC9A3EBC3E58F829AC191F627C7BA255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 643379   (875633) от 13.04.2013
 
 Gabin - TAD|Replay (2012) [FLAC|Lossless]<Nu Jazz, Jazzy Lounge>
@@ -721,93 +809,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496009   (874648) от 16.09.2021
-
-VA - Fall Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nat King Cole Trio - 'Tis Autumn (1993 Digital Remaster) (03:08)
-02. Sarah Vaughan - September Song (05:47)
-03. John Coltrane - Autumn Serenade (04:19)
-04. Dinah Washington - September In The Rain (02:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F0F209DBCC8843CC27E8D83EFC5E4E65012B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496201   (874640) от 16.09.2021
-
-V.A. - Smooth Jazz n Chill, Vol. 6 (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cindy Bradley - Exhale
-02. Kayla Waters - Open Portals
-03. Nick Colionne - Right Around The Corner
-04. Oli Silk - Just Can't Resist(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99591B148E81442E4765BE38B11E2B634C2A1094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495993   (874483) от 16.09.2021
-
-Chris Kramer - Unterwegs (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meister Igel (Remaster) (3:58)
-02. Du gabst mir 7 Kinder (3:11)
-03. Ich hab Scheiß gebaut (5:50)
-04. Dein Herz schlägt wie es schlägt (Remastered) (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4521E72787DA241D23F70A4E123C0673AC91CFBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

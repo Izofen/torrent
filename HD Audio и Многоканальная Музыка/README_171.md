@@ -1,3 +1,177 @@
+###  Публикация: 1822394   (100755) от 06.10.2025
+
+Remigio Ducros and Luciano Simoncini - America amore amaro (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bus Stop (2:37)
+02.  Mawil (2:42)
+03.  Subways (2:19)
+04.  Magnolia Boulevard (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C78BE1AE692A1614EE2373487AA20CD2E69BE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822399   (100752) от 06.10.2025
+
+Richard D. Johnson - Warm Embrace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  East of the Sun (3:58)
+02.  Warm Embrace (4:45)
+03.  Moonlight In Vermont (4:28)
+04.  Ruby My Dear (7:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB161B0E6AD51560477C8D27927E832A7EACF83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822404   (100751) от 06.10.2025
+
+Riot Jazz Brass Band - Ginja (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ginja (3:00)
+02.  Paradox (3:43)
+03.  Frisky (3:00)
+04.  Soundwave (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE841E62C6303B2C511D7C99D1F6E6FFDBB887E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822409   (100750) от 06.10.2025
+
+Sam Siefert Ensemble Project - Realization (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mirrored (3:03)
+02.  Despite Everything (5:59)
+03.  Facing the Opposite (5:20)
+04.  March for Peace (8:26)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8FEDD59FBE479B87A85B9269E6ACD31997FE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822412   (100749) от 06.10.2025
+
+Schlussakkord - Drehbuch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro (2:11)
+02.  Wir sind wieder da (3:34)
+03.  Kein Weg zu lang (3:03)
+04.  Für immer verbunden (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521A684D362C45934A71091E23E765450F85DB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822414   (100748) от 06.10.2025
+
+Smokey Brights - Dashboard Heat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Northgate Way (4:05)
+02.  Never Hurts Never Mind (4:07)
+03.  All in Who You Know (3:32)
+04.  Peace Sign Pentagram (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E0F5D9504FF523A789B8519238CD47EFEE9DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822418   (100746) от 06.10.2025
 
 Sophia Oster Quartet - Praise (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
@@ -565,180 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0AC0A5209602425CE85B042EEEA6DA071124033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770344   (100558) от 31.12.2024
-
-Bump2Soul - Bump2Soul Live Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We are Bump2Soul - Live at TONE Studio, Seoul (1:38)
-02. Let’s Clap - Live at TONE Studio, Seoul (5:05)
-03. Dopamine - Live at TONE Studio, Seoul (4:17)
-04. Do you like F? - Live at TONE Studio, Seoul (5:12)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635CA79CBAD602C7CBC0843040BBA14AA58C8AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770340   (100557) от 31.12.2024
-
-A Plane To Catch - Soul Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bamako Convention Center (4:48)
-02.  Corny Big (4:58)
-03.  Mr. Well Dressed (4:25)
-04.  At Least The Sky Is Blue (6:34)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFEE42248294764046708E27FCCEE20122FCB43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770347   (100556) от 31.12.2024
-
-Juanma Torres - Swing City Sessions #3 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three O'Clock Blues (3:42)
-02. Fruit Boots (2:34)
-03. Tell me what's the reason (2:39)
-04. Mary Ann (4:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E4767ACDA3B85045987BB87E081E85D89BC19B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770350   (100555) от 31.12.2024
-
-Leavin' Trunk - The River (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claw Hammer (4:27)
-02. Shop Around (3:34)
-03. Trying to Live My Life Without You (4:07)
-04. The Love Mechanic (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85D7619B7FC6642AD7E134785B519085544DA90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770360   (100553) от 31.12.2024
-
-Rick Fowler Band - RFB (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hitchhiking (5:02)
-02. Worried About It (6:27)
-03. Willoughby, for Mr. Serling (4:08)
-04. Close to the Truth (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B2B696ACE10BAC26165F9B814FD0D36424E796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770356   (100551) от 31.12.2024
-
-Omar And The Howlers - Rhythm and Western (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get No Grindin' (2:15)
-02. Pipeline (2:42)
-03. Long Distance Call (3:31)
-04. Ida Red (2:34)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C22A2BB9A4DC9EE39422E544BA26237D8D7F2A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

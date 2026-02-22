@@ -1,3 +1,264 @@
+###  Публикация: 1033627   (636144) от 12.07.2016
+
+Vinnie Moore - Aerial Visions (2015) [FLAC|Lossless|image + .cue] <Neoclassical, Heavy Metal, Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mustang Shuffle
+02. Now's the Time
+03. Faith
+04. Slam(   Читать дальше...   )Жанр: Neoclassical, Heavy Metal, Instrumental RockПродолжительность: 0:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8B461836D6314D0C4CD411DB2A423260C750AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 681575   (636021) от 20.07.2013
+
+Manowar - Warriors of the World (2002) 10th Anniversary Remastered Edition / 2013, Magic Circle Records / [FLAC|Lossless]<Heavy/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_636021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	 Call to Arms
+02.	 The Fight for Freedom
+03.	 Nessun Dorma
+04.	 Valhalla(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143321   (635534) от 18.06.2017
+
+Mood - Volume 1 (1996) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	The Shell 03:28
+02.	Demons from the Inside Pocket 05:12
+03.	Plastic Man 03:04
+04.	Four Winds Are Blowing 06:42(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5001453C58AC4C43CFC8533A07371A62B9B9ADC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143335   (635531) от 18.06.2017
+
+Mood - Wombocosmic (1999) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Intro 01:17
+02.	I the Bloodstained Embyro 03:42
+03.	The Untold 02:04
+04.	Circles 05:39(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6591B6E821D96D17A5D87E0E14A91EAB343F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143347   (635528) от 18.06.2017
+
+Warning - Metamorphose (1984) Reissued-2015 [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Petit peuple
+02 - Star
+03 - Métamorphose
+04 - Rock ball(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137E4C4BEED75B1EE7D55F130935BFD320814BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143562   (635527) от 18.06.2017
+
+Fleshgrind - Destined For Defilement (1997) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635527.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Whacked
+2. Burning Your World
+3. Chamber Of Obscurity
+4. Sordid Degradation(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155A1E66317B9CB684B3BC9E089948BDBD3244C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143325   (635511) от 18.06.2017
+
+Mallevs Maleficarvm - Homo Homini Lupus (2017) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homo Homini Lupus 06:21
+02. Der Widerchrist 04:55
+03. Under The Red Skies 06:56
+04. A Blaze At Dawn 05:56(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 01:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC7401564705EB88753F113B4422CD1A6C12F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143333   (635508) от 18.06.2017
+
+Mood - Slow Down (1997) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	One More Scar (Scars Pt. 2) 05:09
+02.	The Engine Is Burning 04:20
+03.	Through These Eyes 05:21
+04.	Left by the Living, Found by the Dead 06:55(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD900A13942DD43C5C10227388F85F79DCA79E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143384   (635389) от 18.06.2017
+
+Omen - Hammer Damage (2016) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hammer Damage
+02. Chaco Canyon (Sun Dagger)
+03. Cry Havoc
+04. Eulogy for a Warrior(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5836985D037314FDFB2B4DA00EE0FFF58A0DC2BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143395   (635385) от 18.06.2017
 
 Sherpa - El Rock Me Mata (2007) (ex - Baron Rojo) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -489,267 +750,6 @@ Amethyst - The Maze Of Destiny (2010) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E93EBBC94901D1496746B237E6D08F064DA7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908532   (630318) от 16.06.2015
-
-Hemlock - Bleed the Dream (2004) [FLAC|image+.cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Eyes Itch 03:46
-02 - Weakman Suicide 04:26
-03 - The Platinum Lie 04:01
-04 - Nobody Knows 03:17(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A4AFE32B1C43BE861CC1AC0B77F866B4C4E0D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907838   (630315) от 16.06.2015
-
-The Meads Of Asphodel - Sonderkommando (2013) [FLAC|image+.cue]<Avant-Garde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonderkommando
-02. Wishing Well Of Bones
-03. Aktion T4
-04. Silent Ghosts Of Babi Yar(   Читать дальше...   )Жанр: Avant-Garde Black MetalПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B685FB71238E83214EC99F137C74D8F5FD4F7AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907784   (630221) от 16.06.2015
-
-Within Silence - Gallery Of Life (2015) [FLAC|image+.cue]<Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Silent Desire
-03. Emptiness Of Night
-04. Elegy Of Doom(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904C55D49A360E454D56F88C33286FBD3CC0F40D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294278   (630103) от 07.04.2019
-
-Outrun The Sunlight - Terrapin (2014) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughing With Such Abandon (4:48)
-02. Where Every Word Spoken, Speaks (3:01)
-03. And Every Glance Given Has Only One Meaning (4:35)
-04. Spirit (3:53)(   Читать дальше...   )Жанр: Instrumental Progressive Metal, Post RockПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0C9976ED8D404A2463A4430AD5ECB265F7D181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294225   (630101) от 07.04.2019
-
-Black Matter Device - Hostile Architecture (2019) EP [FLAC|Lossless|tracks + .cue] <Metalcore, Mathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630101.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hurricane Pornography  (01:16)
-2. The Great Pyramid Scheme Of Giza  (01:51)
-3. Honest To Goddess  (01:09)
-4. Stoppable Force Meets Moveable Object  (02:51)(   Читать дальше...   )Жанр: Metalcore, MathcoreПродолжительность: 00:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0A20DE0A76296664B9E7B44E9A9A8F9D941814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294280   (630097) от 07.04.2019
-
-Outrun The Sunlight - Red Bird (2017) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Bird (5:02)
-02. Synergy (7:43)
-03. The Danger of Alignment (9:21)
-04. Remaining in a Constant State of Discomfort (7:38)Жанр: Instrumental Progressive Metal, Post RockПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96352582E558D530001CD4662CA570B9159D08D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229066   (629848) от 04.06.2018
-
-Five Finger Death Punch - A Decade Of Destruction (2017) Compilation [FLAC|Lossless|tracks + .cue] <Heavy Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble (3:13)
- 02. Gone Away (4:35)
- 03. Lift Me Up (4:07)
- 04. Wash It All Away (3:46)(   Читать дальше...   )Жанр: Heavy Metal, Nu MetalПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11BB04B930174F5ED5C855B90651AA56086C1397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543103   (629786) от 11.04.2022
-
-Crown Compass - The Drought (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Send Your Words (00:04:09)
-02 - Ecdysis (00:06:12)
-03 - Gilbert (00:05:20)
-04 - The Drought I (00:07:24)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE459DE5F78FA72676984E7C328596A59AC7679B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543335   (629520) от 11.04.2022
-
-Edguy - The Savage Poetry, 2CD (2000) Remastered, 2021, Fono [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key To My Fate (Demo Version) (4:35)
-02. Hallowed (Demo Version) (6:29)
-03. Misguiding Your Life (Demo Version) (4:12)
-04. Sands Of Time (Demo Version) (5:06)(   Читать дальше...   )Жанр: Power Metal, Speed Metal, Symphonic MetalПродолжительность: 00:53:10 + 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F45FCEA5EB9CDC21AEB56F88E91699409193563
 ```
 
 https://mybot314.ru/tekegram_catalog/

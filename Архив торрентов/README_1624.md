@@ -1,3 +1,29 @@
+###  Публикация: 1377430   (853554) от 21.04.2020
+
+Process Lasso 9.7.5.44 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347B795FA70754F6A6DF76990946E7B1BEF69849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377372   (853553) от 21.04.2020
 
 GoodSync Enterprise 10.11.6.9 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -719,41 +745,6 @@ Shardad Rohani - Beauty Of Love (1994) [MP3|320 кб/с]<New Age, Instrumental, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06575EF443F987541CC4BA55FB18EC43953CEE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770159   (853503) от 24.03.2014
-
-Christopher Alvarado - Translucence (2014) [FLAC|Lossless|WEB-DL]<Ambient, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Frozen Fields (4:47)
- 02. Passage (6:40)
- 03. Fire Above The Desert Mesa (5:01)
- 04. Marbled Mask (5:15)
- 05. Ascension Of Silence (6:08)
- 06. Visions And Arcs (Bonus Track) (10:14)
- 07. Blades Of The Sun (6:05)
- 08. Solace (5:04)
- 09. Arcades Of Light (5:57)
- 10. Currents Through The Horizon (5:41)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1723A2B5B2F2A70FB610FE0C61C6A2D3EEF670C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,288 @@
+###  Публикация: 861535   (934806) от 20.01.2015
+
+Night Demon - Curse Of The Damned (2015) [FLAC|Lossless] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Screams In The Night (03:29)
+02. Curse Of The Damned (04:58)
+03. Satan (03:02)
+04. Full Speed Ahead (02:36)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C86B994CAE2A9BE1DF4101683AAF25CA108B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093301   (934692) от 14.01.2017
+
+Accept - Restless And Live (2017) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Stampede
+02. Stalingrad
+03. Hellfire(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 02:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B25E07E001FAF88172F96D6FD73CEDEFA30C279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753963   (934281) от 06.02.2014
+
+Elysion - Someplace Better (2014) [FLAC|Lossless]<Gothic Metal/Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Made Of Lies (3:19)
+02. Someplace Better (3:07)
+03. Fairytale (3:30)
+04. The Promise (3:56)
+05. Our Fate (4:02)
+06. Awake (3:48)
+07. What Lies Beneath (3:58)
+08. Transparent (3:50)
+09. Breakfree (3:28)
+10. In Despair (3:29)(   Читать дальше...   )Жанр: Gothic Metal/Alternative RockПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5084BC69AED559BE79D37D3C61F0F17F21A8B92E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093570   (934025) от 15.01.2017
+
+Arizmenda - Despairs Depths Descended (2016) [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934025.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Christening Unborn Deformities
+2. Taste of Purity
+3. Sculpting Sins of a Universal Tongue
+4. Birth(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB18BD3883CC986F83F5290048837701A6D8A918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093563   (934016) от 15.01.2017
+
+SAOR - Guardians (2016) [FLAC|Lossless|image + .cue] <Atmospheric Folk, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934016.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Guardians - 11:31
+2. The Declaration - 10:31
+3. Autumn Rain - 11:09
+4. Hearth - 11:27(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D775209EF455A1E2709D22B1C93F69067D2B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093483   (933956) от 15.01.2017
+
+Concerto Moon - Rise From Ashes (2008) Japanese Ed. [FLAC|Lossless|image + .cue] <Power, Neoclassical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933956.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Lies and Betrayal
+2.Not by Chance
+3.Hope Above All
+4.Break Free(   Читать дальше...   )Жанр: Power, Neoclassical MetalПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA28DA27B76E9C8294A63A5F817BEF60F6989E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629392   (933787) от 12.03.2013
+
+Hatriot - Heroes Of Origin (2013) [FLAC|Lossless]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Suicide Run 03:53
+02. Weapons of Class Destruction 04:45
+03. Murder American Style 03:57
+04. Blood Stained Wings 04:36
+05. The Violent Times of My Dark Passenger 04:38
+06. Globicidal 03:58
+07. And Your Children to Be Damned 04:07
+08. The Mechanics of Annihilation 04:11
+09. Shadows of the Buried 06:20
+10. Heroes of Origin 03:11Жанр: Thrash MetalПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754370   (933732) от 07.02.2014
+
+Thyrien - Hymns Of The Mortals - Songs From The North (2014) [FLAC|Lossless]<Melodic Death Metal/Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Far Beyond Midgard (1:48)
+02. Vengeance Through My Soul (3:17)
+03. Deathwish (4:03)
+04. My Victory, My Defeat  (4:42)
+05. The Frozen North  (5:29)
+06. The Eternal Journey  (5:48)
+07. Forest Is My Throne  (5:49)
+08. Nature's Rage  (3:59)
+09. When the Horizon Burns  (5:12)
+10. Tinasormus (Janne Hurme Cover)  (3:42)Жанр: Melodic Death Metal/Folk MetalПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11917E8F59CC73E1CC48FC4B94BDFCCA9DD0694A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628300   (933669) от 12.03.2013
+
+Eternal Tears Of Sorrow - Children Of The Dark Waters (2009) Korea Edition [FLAC|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Angelheart, Ravenheart (Act II: Children of the Dark Waters) (5:58)
+02. Baptized by the Blood of Angels (4:21)
+03. Tears of Autumn Rain (4:16)
+04. Summon the Wild (4:27)
+05. Sea of Whispers (4:14)
+06. Midnight Bird (4:49)
+07. Diary of Demonic Dreams (4:25)
+08. When the Darkest Night Falls (2:32)
+09. Nocturne Thule (5:10)
+10. Vilda Mannu (Re-Recording Version) (5:48)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093473   (933614) от 15.01.2017
 
 Powerwolf - Blessed & Possessed (2017) 2CD, Tour Edition [FLAC|Lossless|image + .cue] <Power Metal>
@@ -524,285 +809,6 @@ Tartaros - The Red Jewel (1999) [FLAC|Lossless|image + .cue] <Symphonic Black Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F43799E2D7B4D64E3289EC08E1D7CBCE88E156D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094107   (930978) от 17.01.2017
-
-Panopticon - Panopticon (2008) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Flag Burner, Torch Bearer
-03. I, Hedonist
-04. ...Speaking...(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24BFD24603B71AEA299DAA533DA07193C22FFDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094103   (930974) от 17.01.2017
-
-Iceland - Iceland (1994) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Brain Washing		4:59
-02 Magic C'R'Cl			4:10
-03 My Last Words		5:30
-04 Merry Sinner			3:11(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FFCFDAFCC0F067EEE0271B002CEEEEF1935FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093440   (930919) от 17.01.2017
-
-Lancer - Mastery (2017) Limited Edition [FLAC|Lossless|image + .cue] <Power, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Raising Towers
-02. Future Millennia
-03. Mastery
-04. Victims of the Nile(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8DE0D8132C3F40EFCA4A47203ED4C88026F374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365559   (930896) от 07.03.2020
-
-Stalino - Conflict (2010) EP [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bitter Poison (3:32)
-02. Multifaced (4:53)
-03. Cared by Prejudices (2:51)
-04. Feeding the Carnivorous (4:23)(   Читать дальше...   )Производство: Eclectic Productions – EP022Жанр: Death MetalПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804FD7B84BEDB91DAD1CDB9FB9E910FA7D16A484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365530   (930807) от 07.03.2020
-
-Masi - Downtown Dreamers (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Promised A Paradise
-02. Thunder And Lightning
-03. Movin' On
-04. Undercover (Rock And Roll Lover)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC643BC2FD12DEDA7DC2297C7EDF63861BC53FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176867   (930779) от 21.02.2010
-
-Katra - Beast Within (2008) [FLAC|Lossless]<Symphonic Metal/Gothic Metal/Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Grail Of Sahara
-Forgotten Bride
-Beast Within
-Fade To Gray
-Swear
-Promise Me Everything
-Mystery
-Flow
-Scars In My Heart
-Storm Rider(   Читать дальше...   )Жанр: Symphonic Metal/Gothic Metal/Female VocalПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755127   (930480) от 09.02.2014
-
-Evertale - Of Dragons And Elves (2013) [WavPack|Lossless]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Paladine's Embrace (Intro) [01:24]
-02.  In The Sign Of The Valiant Warrior [05:12]
-03.  Tale Of The Everman [09:06]
-04.  The Dragon's Lair [05:26]
-05.  Of Dragons And Elves [04:01]
-06.  Elventwilight [05:48]
-07.  As Tarsis Falls [07:03]
-08.  My Honor Is My Life [01:43]
-09.  The Crownguard's Quest [06:12]
-10.  The Last Knight [07:46](   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC00A1CAD57747944EBB3259DE927189FE0344A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754894   (930366) от 09.02.2014
-
-Saint Vitus - Live (1990) [WavPack|Lossless]<Heavy Metal/Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Living Backwards [02:32]
-02.  Born Too Late [07:12]
-03.  The War Starter [07:29]
-04.  Mind-food [03:23]
-05.  Looking Glass [05:12]
-06.  White Stallions [05:52]
-07.  Look Behind You [04:16]
-08.  Dying Inside [09:00]
-09.  War Is Our Destiny [04:26]
-10.  Mystic Lady [08:52](   Читать дальше...   )Жанр: Heavy Metal with elements of Doom MetalПродолжительность: 01:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3C9ED15C478E614F4393ACE276EB094D5A8A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498215   (930141) от 17.01.2017
-
-U.D.O. - Celebrator (Rare Tracks) (2012) 2CD, 2012, AFM Records [FLAC|Lossless|image + .cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Of A Clown (Orchestral Version) (4:18)
-02. Man A King Ruler (Remix) (3:34)
-03. Hardcore Lover (Remix) (4:46)
-04. Scream Killers (Remix) (4:18)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E2563AAEAF8B1D04FB3CC3EFC98FDAFE5B06E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

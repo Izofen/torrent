@@ -1,3 +1,177 @@
+###  Публикация: 1822635   (101717) от 07.10.2025
+
+Native James - Confessions Of A Sinner (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raise The Alarm [00:01:06]
+02. Fallen [00:02:35]
+03. Fire Pon Dem [00:02:26]
+04. As The Crow Falls [00:00:37](   Читать дальше...   )Жанр: Rapcore, Nu-MetalПродолжительность: 00:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A127B5BEE7D616A3EF2CE0F65E5DD71B7231251B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822666   (101716) от 07.10.2025
+
+Vladar - The Angel of the Abyss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Having to Talk Destroys the Symphony of Silence [00:03:57]
+02. The Angel of the Abyss [00:04:51]
+03. Cathedral of Contradictions [00:05:29]
+04. Whispers of the Machine [00:05:42](   Читать дальше...   )Жанр: Symphonic Metal, Melodic Death MetalПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE98F9FB0B70CF4AC503ADD5AB8DFD695610A2BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764555   (101568) от 07.12.2024
+
+Sexual Music Collection - Sedutopia: Love-Making Jazz, Intimate Vibes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Café de Luxe (4:11)
+02. Soft and Slow (3:33)
+03. Midnight Easy Listening (3:35)
+04. I Love Sax (3:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3859CD9219B5ACEB72F3E264469C120D3303341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764466   (101561) от 07.12.2024
+
+The Rolling Stones - Welcome To Shepherds Bush (Live) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101561.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Shattered (Live) (4:19)
+• 02. It's Only Rock 'n' Roll (But I Like It) (Live) (5:39)
+• 03. Respectable (Live) (3:19)
+• 04. All Down The Line (Live) (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 01:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B0F433CA053C20BF3A2EB068B4885D712CACEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764563   (101559) от 07.12.2024
+
+Above & Beyond - Tranquility Base Vol. 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trance, Progressive House, Progressive Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - React [3:37]
+02 - Another Breakdown [3:31]
+03 - From Grey To Light [3:34]
+04 - Chasing Highs [3:37](   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C58DB8EA2A0D8086BA3792A9EF8DD260176887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764562   (101557) от 07.12.2024
+
+Sexual Music Collection, Soft Jazz Mood - Endless Amour: Twilight Glow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Treasured Melodies (4:32)
+02. Jazz Serenade (4:32)
+03. Golden Ballads (4:55)
+04. Melodic Memories (4:32)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AC49FEBD8E19982295EFD9B48261679224BCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764526   (101544) от 07.12.2024
 
 Laufey - A Night At The Symphony: Hollywood Bowl (Live at the Hollywood Bowl) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
@@ -571,180 +745,6 @@ Catherine Russell, Sean Mason - My Ideal (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:241809519F16BC6DBAB1170998D0D0F11C81FA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764681   (101475) от 08.12.2024
-
-Lars Jansson - Standards (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Get Started (4:50)
-02. In Your Own Sweet Way (6:45)
-03. Night And Day (5:52)
-04. You Must Believe In Spring (4:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F459AA54C0BDE78405724D8861CB4A411E993274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764622   (101473) от 08.12.2024
-
-Night In Gales - Shadowreaper (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Into the Evergrey [5:06]
-02 - The Horrors of Endlessness [3:02]
-03 - Open the Sun [3:42]
-04 - The Nihilist Delta [4:21](   Читать дальше...   )Жанр: Metal, Melodic Death MetalПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649EE032A9EE8D2F4A3A92BD4538156020F13F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764859   (101472) от 09.12.2024
-
-Eldritch - Studio Albums (13 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eldritch - итальянская пауэр-прог-метал группа из Ливорно, образованная в 1991 году и характеризующаяся слегка «современным» звучанием, включающим некоторые элементы ню-метала и электронные влияния.1995 - Seeds Of Rage
-1997 - Headquake
-1998 - El Nino
-2001 - ReverseЖанр: Progressive/Power MetalПродолжительность: 13:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88204BB6E6E8EB862906DE4A2B7DD19544CB3739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765171   (101452) от 11.12.2024
-
-Jerry Cantrell (Alice in Chains) - Studio Albums (4 releases) (1998-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock; Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джерри Фултон Кантрелл младший (англ. Jerry Fulton Cantrell Jr.; род. 18 марта 1966 года) — американский музыкант, основной автор песен, гитарист и вокалист группы Alice in Chains.1998 - Boggy Depot
-2002 - Degradation Trip
-2021 - Brighten
-2024 - I Want BloodЖанр: Hard Rock; GrungeПродолжительность: 05:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D119A60D7A3A103BDF8C22AC66A3ADAC6C7F0A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765312   (101443) от 12.12.2024
-
-Shyfrin Alliance - Upside Down Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cage (4:34)
-02. Unconditional (3:15)
-03. I See Your Eyes (4:07)
-04. Upside Down Blues (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18DEBA7ED449F49F602579FF56363F7A14B5837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765391   (101442) от 12.12.2024
-
-Wolverine Leipzig - Machine Messiah (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Of the Never Never (03:51)
- 02. Call the Ball (04:36)
- 03. Grape & the Grain (04:22)
- 04. Just Saying (04:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F2256F5035A871C61FD0AC6EAB7D9B9C646DF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

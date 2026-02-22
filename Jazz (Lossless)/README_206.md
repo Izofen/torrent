@@ -1,3 +1,32 @@
+###  Публикация: 1410835   (431982) от 23.09.2020
+
+Slide Hampton - Drum Suite (1962) 2006, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fump [5:21]
+02. Lover [5:10]
+03. Like Someone in Love [8:27]
+04. Gallery Groove [4:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DB3AE148C39FCBF3C4C8AF0020B7A6E46F4BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410875   (431979) от 23.09.2020
 
 New York Jazz Quartet - Blues For Sarka (1978) 1998, Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
@@ -743,35 +772,6 @@ Johnny Smith - Moonlight In Vermont (1953) 2016, Warner [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:047B489D53EB92B8420ECCD50FCB9AC0343B4115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063983   (430369) от 18.10.2016
-
-Janet Klein & Her Parlor Boys - Put A Flavor To Love (2002) Coeur De Jeanette Productions[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Put A Flavor To Love [04:26]
- 02.Troubled Waters [04:23]
- 03.If I Could Be With You One Hour Tonight [03:00]
- 04.My Bundle Of Love [02:44](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9771905342D03747FDF00B33BC58F10A91809440
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1573675   (408739) от 02.09.2022
+
+Blind Guardian - The God Machine (2022) [MP3|320 Kbps] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deliver Us From Evil (5:22)
+02. Damnation (5:21)
+03. Secrets Of The American Gods (7:29)
+04. Violent Shadows (4:18)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9033725380052311A9A711E8C0A8A51CDD3C059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573691   (408578) от 02.09.2022
 
 Megadeth - The Sick, the Dying... and the Dead! (2022) Deluxe Edition [MP3|320 Kbps] <Thrash Metal>
@@ -784,35 +813,6 @@ Chaosweaver - 2 Albums (2008-2012) [MP3|320]<Industrial/Symphonic Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C891B757C406A97374309538E20F877C4AF3B896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570723   (390337) от 05.11.2012
-
-Raventale - 6 Albums (2006-2012) [MP3|320]<Atmospheric Black/Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390337.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shine
-2. Room Winter
-3. Without Movement
-4. TranscendenceЖанр: Atmospheric Black/Doom MetalПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6E3217E549212EC713A6CA4D4B64B3208164C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

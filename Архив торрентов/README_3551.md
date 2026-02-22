@@ -1,3 +1,29 @@
+###  Публикация: 1063482   (434213) от 16.10.2016
+
+Sputnik 2.1.947.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Браузер “Спутник” помогает сделать работу в интернете безопаснее и полезнее, решать повседневные задачи быстрее, делает проще доступ к официальной информации или государственным службам и сервисам в Сети.Язык интерфейса: Русский, Английский и Другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E186D109E608A8ACEB9642946D60956CE9BD2D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063447   (434212) от 16.10.2016
 
 Abelssoft SSD Fresh Plus 2016 5.0 Retail [En/De]
@@ -701,35 +727,6 @@ VA - Festival Anthems (2020) [MP3|320 Kbps] <Trance, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C745FD1476CA3147C0CA7EBCE2AD0205C535587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410786   (434056) от 22.09.2020
-
-VA - Redux Selection Vol.9 (2020) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airdream - Different Worlds (Extended Mix)
-02. Trance Reserve - 34 (Extended Mix)
-03. Terra V - Beyond the World (Extended Mix)
-04. Daniel Cesana - We Are All Heroes (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FBB88A59E9E4C284CDC216D1CDF24D8060B48D
 ```
 
 https://mybot314.ru/tekegram_catalog/

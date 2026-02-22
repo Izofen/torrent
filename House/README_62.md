@@ -1,3 +1,90 @@
+###  Публикация: 1179686   (347103) от 01.11.2017
+
+VA - Workout Music, Vol.2 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dunsterz - Cometa (Original Mix)
+02. 4ngus - Circles (Original Mix)
+03. #MONKEYStuff - Be Someone (Original Mix) (feat. Dmitry F)
+04. Chris Energize - Modern Times (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB61C936CA47628CAA718D72BA6872FC7F4B644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257166   (347035) от 25.10.2018
+
+VA - Deep House Blast Three (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modell & Mercier - Great Koma (Human Mix) 3:48
+02. Tony Cool - Gianfalla (Funk and Deep Mix) 3:52
+03. Mediterraneo - Love in Med (Maratea Deep Mix) 3:54
+04. Tee Glam - Omni Passion (Glamorous & Glitter Mix) 3:54(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF386D3EF6266ABD2E20DDFEF7D12856730326DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179685   (346966) от 01.11.2017
+
+VA - Workout Music, Vol.7 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilya Ozon - One Mode (Original Mix) 03:25
+02. Magenta Hawk - Restart (Rhazab Remix) 04:00
+03. Rob Noble - The Night (Original Mix) (feat. Sanjey Ole) 04:33
+04. Alex Byrne - Flash (Original Mix) 03:33(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285BBD3B90748343BE0AF85C253554AA1867B0B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073400   (345861) от 16.11.2016
 
 VA - Drumma Society Vol.3 (2016) [MP3|320 Kbps] <Minimal, Tech House>
@@ -661,93 +748,6 @@ VA - Deep November: 25 Groovy Deep-House Beats (2016) [MP3|320 Kbps] <Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF25CE796305AC6CA411101507C6CFF4534ECD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074734   (336356) от 20.11.2016
-
-VA - Gleaming Rhythms: Glamorous Vibes Only (2016) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piece Grade - Jazzy Company - Supa Trumpet Mix
-02. Edo Romani - Syntomatique - Flying Mix
-03. Norma Reagan - Livin' on a Stick - Natural Soul Mix
-04. Piece Grade - Kiss on the Moon - Babylon Man Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D951BC9CE38852BFB6715D34F17BDDA81700BD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074742   (336355) от 20.11.2016
-
-VA - Afterglow Vol.2: Deep Electronic Sounds (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Dassi - The Right Side
-02. Sascha Braemer - Touchdown
-03. Marcio Kantana - Fresh
-04. Alexander Koning - Out of Firsts(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49B9628E7C583A55C24C2A0E85AEC63BB5962BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074400   (336351) от 20.11.2016
-
-VA - This Is Deep House Vol.1 (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slippy Beats & Terri B! - Deep In The Night (Maui's Tropical Beach Remix) 3:48
-02. Aleksey & Alexandra Prince - Sunrise (Summerbreeze Mix) 4:32
-03. Robbi Altidore - Moving 5:08
-04. Soul Traumer - Distraction 5:17(   Читать дальше...   )Жанр: HouseПродолжительность: 02:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAFBDE8746452115BF2824D9AD8BE010BDD240E
 ```
 
 https://mybot314.ru/tekegram_catalog/

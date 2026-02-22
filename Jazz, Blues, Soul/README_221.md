@@ -1,3 +1,90 @@
+###  Публикация: 1137205   (667996) от 26.05.2017
+
+The Walter Norris Quartet - Sunburst (1991) Concord Jazz [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunburst [05:45]
+02. What's New [07:45]
+03. Bird [04:20]
+04. Naima [05:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCA6858FF9B401A03B417B17BAABC2CF94D5D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137426   (667990) от 26.05.2017
+
+The Zawinul Syndicate - The Immigrants (1988) [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March Of The Lost Children (4:16)
+02. Criollo (4:21)
+03. Shadow And Light (5:06)
+04. King Hip (5:04)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC83B129BBF392B352973B93BB93FB788E353FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137412   (667942) от 26.05.2017
+
+Erin Boheme - What Love Is (2006) Сoncord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone To Love [04:08]
+02. One Night With Frank [04:17]
+03. Let's Make The Most Of A Beautiful Thing [04:42]
+04. What Love Is [05:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFD3932EFD4E6220C635B3EB3F393267DB612F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137585   (667926) от 26.05.2017
 
 Blues Underground - On My Way Back Home (1995) [APE|Lossless|image + .cue] <Blues>
@@ -665,93 +752,6 @@ Erik Friedlander - Block Ice & Propane (2007) [FLAC|Lossless|image + .cue] <Avan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8544EB119BE3E9DFB4E4A466DEC5290190C13E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137892   (665717) от 28.05.2017
-
-Alice Babs - Alice and Wonderband (1959) 1993, RCA/BMG Ariola AB Sweden [FLAC |Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Words Blues (Hallberg-Babs) - 3:03
-02. Just A-Sittin' and A'Rockin' (Strayhorn-Ellington-Gaines) - 2:57
-03. Willow Weep for Me (Ronell) - 4:47
-04. I Didn't Know What Time It Was (Rodgers-Hart) - 2:42(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DE978F3B6C75A3103392E8E55525910098E3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137987   (665711) от 28.05.2017
-
-Francesco Cafiso New York Quartet - New York Lullaby (2006) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby Of Birdland [07:58]
-02. Reflections [04:11]
-03. Polka Dots And Moonbeams [06:26]
-04. My Old Flame [09:45](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48390C35968CD84E94C026994323CFF51031BC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138226   (665709) от 28.05.2017
-
-Aaron Parks, Ben Street, Billy Hart - Find The Way (2017) ECM [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrift [05:47]
-02. Song for Sashou [06:23]
-03. Unravel [04:44]
-04. Hold Music [04:20](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4822DB7F8C5844AA8BE0F66A0AC771045FC83EE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

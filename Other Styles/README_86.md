@@ -1,3 +1,32 @@
+###  Публикация: 1029288   (680249) от 27.06.2016
+
+Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора шпиона (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Central Intelligence (02:08)
+02. Robbie (00:38)
+03. Golden Jet (01:02)
+04. I Don't Like Bullies (01:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1222F5D90EC55DD44DFF17B7E272DA09C3DC3EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290052   (680232) от 19.03.2019
 
 Yiruma - Frame (2017) Mind Tailor Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
@@ -738,35 +767,6 @@ The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E0F92DB062575CF3A97B4E32259D8EB8FDB7C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030757   (672291) от 01.07.2016
-
-Offrandes - Best of 2008-2015 (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Myriads of Light
-02.	Eternal Gratitude
-03.	Vision of the Soul
-04.	Beauty Elvish(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51737C26A5283887250317EE3788D99D4B042170
 ```
 
 https://mybot314.ru/tekegram_catalog/

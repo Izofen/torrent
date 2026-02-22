@@ -1,3 +1,32 @@
+###  Публикация: 1770622   (71974) от 02.01.2025
+
+VA - Redux Selection, Vol. 1 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Lloyd - Fly Me Back (N-sKing Extended Remix) [6:41]
+02. ICARUS PROJECT - Elysian Fields (Extended Mix) [6:07]
+03. Peter Agyagos - The Last Of Us (Extended Mix) [6:34]
+04. Liam Bailey (UK) - Solenoid (Extended Mix) [7:02](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E81F3B1271C9AE014072666F59636464487D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770677   (71956) от 02.01.2025
 
 VA - Ultima Audio: Essentials 2024 (2025) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Alex Sonata & TheRio - 25 Years Of Anjuna (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3947B7EC091DA0EC5300E9B3E1257BF8644B4913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776886   (71154) от 03.02.2025
-
-VA - Trance Anthems 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC - Welcome To The Future (Schiller Extended Remix) [6:15]
-02. Paul van Dyk - For An Angel (Kolonie Remix) [7:12]
-03. Mark Sherry & Peetu S & Emma Gillespie - Open Ocean (Extended Mix) [7:07]
-04. John O'Callaghan & Paul Skelton & Ren Faye - May The Road Rise (Extended Mix) [8:06](   Читать дальше...   )Жанр: TranceПродолжительность: 04:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B5101E3E6E2212841723A909EA989DB0C41399
 ```
 
 https://mybot314.ru/tekegram_catalog/

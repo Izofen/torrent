@@ -1,3 +1,61 @@
+###  Публикация: 1204873   (783799) от 09.02.2018
+
+VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dizzee Rascal - Dirtee Disco (4:46)
+02.Example - Kickstarts (Wideboys Stadium Mix) (4:52)
+03.J2K; Jodie Connor; Wiley - Electric Boogaloo (Find a Way) (2:59)
+04.Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 02:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204895   (783796) от 09.02.2018
+
+VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cicada - The Things You Say (Dirty South Remix) (3:47)
+02.Kortezman Feat. Rozalla - Everybody's Free (3:15)
+03.Mason - Exeeder (Original Mix) (2:56)
+04.Sebastien Leger - Git Girl (3:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205242   (783787) от 09.02.2018
 
 VA - Rooftop Beats, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
@@ -684,64 +742,6 @@ Lane 8 - Little By Little (2018) This Never Happened [FLAC|Lossless|tracks+.cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:098194B75D1ADC8A386F7B0C01D220415915E175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208027   (780298) от 20.02.2018
-
-Schwefelgelb - Den Umgekehrten Atem (2017) Fleisch [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Im Wasser (04:42)
- 02. Das Armellose Hemd (05:32)
- 03. Stillhalten (05:59)
- 04. Um Meine Haut (05:34)Жанр: Techno, Electro, IndustrialПродолжительность: 00:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4407FC220F134324528604A283D319FEA29AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208325   (780128) от 21.02.2018
-
-John Shima - Elements Unknown (2017) FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elements (08:27)
- 02. Symbols (07:15)
- 03. Implant (07:17)
- 04. Illuminate (07:24)Жанр: Electro, IDM, TechnoПродолжительность: 00:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421DD4CBB53312BED78054C89BD42CFAEE35FC1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

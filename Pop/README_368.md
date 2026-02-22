@@ -1,3 +1,90 @@
+###  Публикация: 1801391   (14925) от 11.06.2025
+
+VA - Classic Soul Music (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Solomon Burke - Everybody Needs Somebody to Love [00:02:44]
+02 - CHAKA KHAN - I’m Every Woman [00:04:07]
+03 - Sam & Dave - Soul Man [00:02:36]
+04 - Ben E. King - This Magic Moment [00:02:25](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 02:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F89F883075137BEDA6574A3A32E3B7236D1822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801504   (14924) от 11.06.2025
+
+VA - Some Great 20s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14924.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Benson Boone - Beautiful Things (3:00)
+002. Rose - APT. (2:49)
+003. Teddy Swims - Lose Control (3:30)
+004. Ed Sheeran - Azizam (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 05:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4701B24D3BC0DF5932159596EE89D34A5123E9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801855   (14768) от 13.06.2025
+
+VA - Потанцуй со мной (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дуэт «Не уходи» - Я буду ждать [00:03:37]
+02 - Виктор Королёв - Ты очень красива [00:04:00]
+03 - Владимир Ждамиров - А ты прости меня [00:04:13]
+04 - Илья Яббаров - Я смотрю в твои глаза [00:03:31](   Читать дальше...   )Жанр: PopПродолжительность: 01:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1332CF7616CBFD8D066413076AD38A06B617ACAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801813   (14744) от 13.06.2025
 
 VA - Magical Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -655,93 +742,6 @@ Steve Aoki - HiROQUEST 3: Paragon (2025) [MP3|320 Kbps] <Electro House, Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F735A0990950801F83B5F4096FC73ECAE85D5E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805851   (12007) от 09.07.2025
-
-VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bl3ss & Camrinwatsin - Kisses (Feat. Bbyclose) 02:18
-02. Lf System - Afraid To Feel 02:58
-03. A7s - Dumb 02:30
-04. Billy Gillies - Dna (Loving You)Жанр: Pop, DanceПродолжительность: 02:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED4C548F147CDEC673F8C9760D460911F46C188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806147   (11824) от 11.07.2025
-
-ВИА Поющие гитары - 5 Albums (2002-2025) [MP3|320 Kbps] <Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2002 - Синий иней
-2013 - Сумерки
-2016 - Если любишь ты(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 5 CD, 03:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A558686C64336E811BCAB6ADAD2415BFDDC658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806798   (11530) от 14.07.2025
-
-Thomas Anders - …Sings Modern Talking - Ready For Romance - Thomas' Version (2025) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11530.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Thomas Anders - …Sings Modern Talking - Ready For Romance:
-01. Brother Louie (Thomas' Version) 3:53
-02. Just We Two (Mona Lisa) (Thomas' Version) 4:10
-03. Lady Lai (Thomas' Version) 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 02::10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF63E1B1560E6C6A12FEB507E6A4D1D527B0DEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1179394   (349342) от 31.10.2017
+
+Camille Thurman - Inside The Moment (2017) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Has a Thousand Eyes [07:22]
+02. Sassy's Blues [07:41]
+03. Road Song [06:14]
+04. Detour Ahead [07:44](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C266B8F253757EDD735A2508664472F8CF1EE9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579176   (348199) от 23.11.2012
 
 Al Di Meola - The Grande Passion (2000) [FLAC|Lossless]<Jazz>
@@ -727,35 +756,6 @@ Denzal Sinclaire - I Found Love (2000) /Emarcy/[FLAC|tracks+.cue]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECD809F84C1E9B0644DA955B5DE040EC018B6A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953846   (344777) от 06.11.2015
-
-Johnny "Hammond" Smith - Open House (1963) /2001, Milestone/[FLAC|tracks+.cue]<Soul-Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Open House [04:39]
- 02.Cyra [05:28]
- 03.I Remember You [05:02]
- 04.Theme From Cleopatra [02:37](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1D8FAD3B78868D7ED6B9BFFFDF33CF761C5A4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

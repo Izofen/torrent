@@ -1,3 +1,90 @@
+###  Публикация: 1624611   (242376) от 07.04.2023
+
+VA - Twelve Inch Nineties 90s - Loaded (2017) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Euro House, Synth-pop>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primal Scream - Loaded (Terry Farley Remix)
+02. The Stone Roses - Fools Gold 95 (Full Length Version)
+03. Candy Flip - Strawberry Fields Forever (Raspberry Ripple Mix)
+04. Manic Street Preachers - The Everlasting (Deadly Avenger's Psalm 315)(   Читать дальше...   )Жанр: Electronic, Euro House, Synth-popПродолжительность: 03:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73F3C28B45876FCB75AFE1741AF6D235EFB6471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105487   (242371) от 18.02.2017
+
+VA - Black Hole House Music 02-17 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Myon - Rain (Extended Mix)  5:11
+02.  Phil Martyn - Shapes  3:52
+03.  Namatjira - Illuminar  4:59
+04.  Yuji Ono - Real Dark (Original Mix)  6:52(   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69FD8009CA9E9BD9245CB98B8067D54951975E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458237   (242329) от 28.03.2021
+
+VA - Spring Cardio Dance Hits 2021 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lawrence - Afterglow (Fitness Version 128 Bpm) (04:15)
+02. D'Mixmasters - 911 (Fitness Version 128 Bpm) (04:00)
+03. Kyria - Midnight Sky (Fitness Version 128 Bpm) (04:15)
+04. DJ Space'c - Goosebumps (Fitness Version 128 Bpm) (03:30)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5BAB3C68B5F2A225C59DCD9EEA5D4DEE005BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105692   (242271) от 18.02.2017
 
 VA - Deep House Resort (2017) [MP3|320 Kbps] <Deep House>
@@ -658,93 +745,6 @@ VA - Ultimate Club Tunes (2023) [MP3|320 Kbps] <Euro House, Club, Progressive, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79DCBA4ABBCF5644DBEDBFD746DB324D303DE71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360290   (237281) от 15.02.2020
-
-Elite Force - Modern Primitive (2006) [MP3|320 Kbps] <House, Downtempo, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern:Primitive (0:46)
-02. Coming Back For More (6:44)
-03. My Generation (6:43)
-04. You (5:45)(   Читать дальше...   )Жанр: House, Downtempo, Tech HouseПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6812C5D58A90D63A59B892AB7EE4E32B53B6FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640511   (237264) от 18.06.2023
-
-VA - We Love Summer Vol. 2 (2023) [MP3|320 Kbps] <Deep House, Deep Tech, Soulful, Deep Groove>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganga - Autumn (Dj Malte of Real Xs Mexican Club Mix)
-02. Mad Meyer - Diggi Dang
-03. Lounge Groove Avenue - It Ain't Right
-04. Mo'jardo - I Am Fashion(   Читать дальше...   )Жанр: Deep House, Deep Tech, Soulful, Deep GrooveПродолжительность: 02:29:48 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFEE26032F3133A77787A6CD740CC0BC7F8EF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640510   (237236) от 18.06.2023
-
-VA - Deep House Summer Paradise Pt. 1 (2023) [MP3|320 Kbps] <Deep House, Deep Tech, Soulful, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Itu - A Minor Accident
-02. Mr. Anderson - Cinderella (Jamie Lewis Remix)
-03. Harry Color - The Wrong House (Ankaph's Number 6 With Extra Dub)
-04. Circuito Zeta - Congas Rulez(   Читать дальше...   )Жанр: Deep House, Deep Tech, Soulful, TechnoПродолжительность: 03:35:17 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C7E26522D1B9399A44A4C9BD68944309212786
 ```
 
 https://mybot314.ru/tekegram_catalog/

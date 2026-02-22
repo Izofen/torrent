@@ -1,3 +1,93 @@
+###  Публикация: 869161   (893122) от 14.02.2015
+
+N-Groove - It's Who We Are (2007) [WavPack|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. You and Me 5:22
+02. Funny How Time Flies 3:54
+03. Groove Serum 3:52
+04. Bring It On Let's Go 3:04
+05. It's Who We Are 4:59(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65EBFCF56C3FF7223909D0617652062551101572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869358   (893120) от 14.02.2015
+
+Nicholas Payton - Payton's Place (1998) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Zigaboogaloo
+02. The Three Trumpeteers
+03. Back To The Source
+04. A Touch Of Silver
+05. Concentric Circles(   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A86FCE6C379BF5E1657171117E7247DAB279CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869357   (893119) от 14.02.2015
+
+Nicholas Payton - Gumbo Nouveau (1996) [FLAC|Lossless]<Neo-Bop, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Whoopin' Blues
+02. When The Saints Go Marching In
+03. Wild Man Blues
+04. After You've Gone
+05. Way Down Yonder In New Orleans(   Читать дальше...   )Жанр: Neo-Bop, New Orleans JazzПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7F85E03C278B18C3110B18A06E44896B2A42F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 639552   (893102) от 04.04.2013
 
 Anthony Wilson Trio - Our Gang (2001) [FLAC|Lossless]<Contemporary Jazz, Guitar Jazz>
@@ -728,93 +818,6 @@ Hot'n'Nasty - Burn (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F4F2128FF2CAF5F7E07E513326DCE5DFFE2343A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493888   (892414) от 05.09.2021
-
-Ray Mahumane - 20_20 Vision (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left Turn (5:14)
-02. The Funk Starts Here (feat. Jan Beiling) (4:39)
-03. Happy Feelings (feat. Kevin Iszard) (4:38)
-04. Home Grooves (feat. Kirt Dallaway) (4:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C02808C1F3CBC71FA71CC6E0881D794CCEC076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371214   (892127) от 30.03.2020
-
-The Oscar Peterson Trio - Canadiana Suite 1964 (2008) Limelight [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballad To The East [4:08]
-02. Laurentide Waltz [5:21]
-03. Place St. Henri [3:58]
-04. Hogtown Blues [3:41](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760AFD4FF25ACBF99437FCDAB9496E1B9C1697F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370941   (891886) от 30.03.2020
-
-Roomful Of Blues - In A Roomful Of Blues (2020) [FLAC|Lossless|tracks+ .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Can I Do? (03:04)
-02. You Move Me (03:22)
-03. In a Roomful of Blues (03:31)
-04. Phone Zombies (03:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA27DE8FAFC44BA82360E7316B71223FB5B2FC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

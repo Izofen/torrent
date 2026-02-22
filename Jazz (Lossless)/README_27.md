@@ -1,3 +1,38 @@
+###  Публикация: 616029   (976403) от 09.02.2013
+
+VA - Capitol's Great Ladies Of Song (1992) 2CD [FLAC|Lossless]<Jazz Vocal, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dinah Shore – Sentimental Journey [03:28]
+02. Helen Forrest – I Had the Craziest Dream [02:42]
+03. Andrews Sisters, The – Well All Right! (Tonight's The Night) [03:16]
+04. Keely Smith – I'll Never Smile Again [03:08]
+05. Mavis Rivers – Five O'Clock Whistle [02:38]
+06. Martha Tilton – And the Angels Sing [03:14]
+07. Peggy Lee – I Don't Know Enough About You [03:20]
+08. June Christy – Shoo Fly Pie and Apple Pan Dowdy [02:37]
+09. Helen O'Connell – Green Eyes [02:49]
+10. Ella Mae Morse – No Love, No Nothin' [02:36](   Читать дальше...   )Жанр: Jazz Vocal, SwingПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974432   (975735) от 12.01.2016
 
 Natalie Cole - Ask A Woman Who Knows (2002) SACD [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Smooth Jazz, Vocal, Contemporary Jazz, Ballad>
@@ -796,41 +831,6 @@ Frank Sinatra - The Platinum Collection 3CD (2004) [WavPack|Lossless]<Vocal Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A2970225B2BCBD1AEDB318C314D54B177C0E2B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439267   (974054) от 20.01.2012
-
-Bebel Gilberto - Momento (2007) [FLAC|Lossless]<Nu Jazz, Lounge, Bossa>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Momento (5:17)
-02. Bring Back The Love (feat. Brazilian Girls) (4:29)
-03. Close To You (3:21)
-04. Os Novos Yorkinos (3:42)
-05. Azul (3:13)
-06. Caзada (4:35)
-07. Night And Day (4:57)
-08. Tranquilo (feat. Orquestra Imperial) (4:06)
-09. Um Segundo (3:12)
-10. Cadк Vocк? (3:33)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, BossaПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

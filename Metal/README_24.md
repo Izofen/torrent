@@ -1,3 +1,32 @@
+###  Публикация: 1491956   (907385) от 27.08.2021
+
+Dark Arena - Worlds of Horror (2021) [MP3|320 Kbps] <Progressive, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Worlds of Horror (05:33)
+ 02 - Dark Arena (03:54)
+ 03 - Annunaki Arise (05:12)
+ 04 - Damnation Within (06:15)(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4FE40466BF19BF35F90D30D6F5D140546BE0542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098956   (907334) от 31.01.2017
 
 Silent Circus - Rise and Fall (2017) [MP3|320 Kbps] <Groove Metal, Rock>
@@ -740,35 +769,6 @@ Nine Inch Nails - Ghosts V: Together (2020) [MP3|320 Kbps] <Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2F9BDF2F69B8381567BBB9CACD95FD9658E5647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761511   (896372) от 28.02.2014
-
-Axxis - Kingdom of the Night II (2014) 2 CD [MP3|320 кб/с]<Melodic Heavy / Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingdom of the Night II
-02. Venom
-03. Beyond the Sky
-04. The War(   Читать дальше...   )Жанр: Melodic Heavy / Power Metal |Продолжительность: 01:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D2B137C5499B38F022B7CAF0DFA5FE37EA9AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

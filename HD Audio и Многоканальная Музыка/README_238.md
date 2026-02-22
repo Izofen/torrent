@@ -1,3 +1,177 @@
+###  Публикация: 1773427   (30833) от 15.01.2025
+
+Monk Rules the Rhino - Fuzzy Unicorn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dark Matter (4:46)
+02.  Insert Coin (4:17)
+03.  A Long Way Home (4:06)
+04.  Veil of Dusk (4:40)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9BA838DEE0684ED83E519C1BE1BFC39A66D3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771230   (30824) от 15.01.2025
+
+David Rose - The Night Is Ours - David Rose - The Night Is Ours (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_30824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Weight of Words (3:36)
+02.  Let's Hit the Dance Floor (2:04)
+03.  Wisdom Comes with Age (3:32)
+04.  We Never Gave Up (3:08)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1E401E2FD43153C0DD9733474FC38AEB36C6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675044   (30568) от 18.01.2025
+
+HammerFall (& Cans) - Studio Albums (20 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_30568.jpg" />
+</div>
+
+
+###  Подробнее
+
+HammerFall — группа из Швеции, играющая в стилях хеви-метал и пауэр-метал. Основана гитаристом Оскаром Дроньяком в 1993 году, а известности достигла после прихода в 1996-м вокалиста Йоакима Канса, который стал вторым лидером группы. Песни HammerFall в основном посвящены средневековым рыцарям, сражениям, мужеству и героизму. Музыка группы эволюционировала от чистого (   Читать дальше...   )1997 - Glory to The Brave
+1998 - Legacy of Kings
+2000 - Renegade
+2002 - Crimson Thunder(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 17:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2E9C5DC419665928FD6A8251EDC5AC08FBECE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774301   (30322) от 20.01.2025
+
+Sybreed - Studio Albums (4 releases) (2004-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sybreed — швейцарская индастриал/грув-метал группа из Женевы, основанная в 2003 году.2004 - Slave Design
+2008 - Antares
+2009 - The Pulse Of Awakening
+2012 - God Is An AutomatonЖанр: Industrial/Groove MetalПродолжительность: 04:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC405A35871419CE8B65196B73EC4FA6D09ABAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774334   (30315) от 20.01.2025
+
+Dream Express - Дрийм Экспресс (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side I
+A1 Hi Lili Hilo • Kaper, Deutsch
+A2 I'm A Lion • L. Smets, E. VerheeS
+A3 Got To Have You Back • L. Smets, C. Pilditch(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E10FF7D94D161227BF607A6EE8B7AF6B4B7D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631046   (30139) от 22.01.2025
+
+Grave Digger (Hellryder; Steelhammer; The Fyredogs) - Studio Albums (27 releases) (1984-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_30139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grave Digger — хэви-метал группа из Гладбека, Северный Рейн-Вестфалия (Германия), образованная в 1980 году Крисом Болтендалем и Питером Массоном.1984 - Heavy Metal Breakdown & Rare Tracks
+1985-86 - Witch Hunter - War Games
+1986 - Stronger Than Ever
+1993 - The ReaperЖанр: Heavy/Power MetalПродолжительность: 26:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9050D2AB784C5AB2A4B4DE6D620EE213694455F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774727   (30112) от 22.01.2025
 
 Brad Goode - Polytonal Big Band: The Snake Charmer (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
@@ -568,181 +742,6 @@ Elvis Presley - The King (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00B96AA5A997FE534443193051927DA507DF7BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533726   (27653) от 14.02.2025
-
-Lacuna Coil - Studio Albums (12 releases) (1999-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lacuna Coil — итальянская готик-метал группа, созданная в Милане в 1994 году.
-Прежние названия: Sleep of Right и Ethereal. По словам участников группы, на их творчество оказали сильное влияние такие команды как Paradise Lost, Tiamat, Septicflesh и Type O Negative.1999 - In A Reverie
-2001 - Unleashed Memories
-2002 - Comalies
-2006 - KarmacodeЖанр: Gothic/Alternative MetalПродолжительность: 12:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85CE70BD4AD99DD7547712F306AE51904C456134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523505   (27459) от 16.02.2025
-
-Dream Theater - Дискография (33 releases) (1989-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dream Theater — прогрессив-метал-группа из США. Основана в 1985 году тремя студентами музыкального колледжа Беркли.1989 - When Dream and Day Unite
-1992 - Images and Words
-1994 - Awake
-1997 - Falling Into InfinityЖанр: Progressive MetalПродолжительность: 54:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54DA8DF7B049A3992B3F87B218182001FC3E6E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780103   (27396) от 16.02.2025
-
-Demis Roussos - Demis (2009) Remaster, 2025, AMPSA [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Rock, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September (I'm on My Way) [2025 Remastered] [00:02:42]
-02. On My Pillow (2025 Remastered) [00:03:20]
-03. Love Is (2025 Remastered) [00:03:20]
-04. What They Say (2025 Remastered) [00:03:21](   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148B3B6A395718CCF0DFA6915BE3738A2189FB52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522398   (27207) от 18.02.2025
-
-Александр Розенбаум - Казачьи Песни (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27207.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Песня Красных Конников • Song Of Red Cavalry Men
-А2 Кубанская Казачья • Kuban Cossack Song
-А3 Тетя Маня • Aunt Manya
-А4 Кандальная • Irons Song(   Читать дальше...   )Жанр: Chanson, BalladПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1928C2509F45913B982EE8AC3964CD9AEB61630D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615817   (27099) от 19.02.2025
-
-Dynazty - Studio Albums (9 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynazty  — шведская пауэр-метал-группа из Стокгольма.2009 - Bring The Thunder
-2011 - Knock You Down
-2012 - Sultans Of Sin
-2014 - Renatus(   Читать дальше...   )Жанр: Heavy/Power Metal, Hard RockПродолжительность: 07:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2B5F4745CB4C050AED893799FD4FC3A9203A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663904   (27030) от 20.02.2025
-
-Tristania - Studio Albums (8 releases) (1997-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tristania — симфо-готик-метал-группа из Норвегии, основанная в конце 1996 года гитаристом и вокалистом Мортеном Веландом, клавишником Эйнаром Моэном и ударником Кеннетом Олссоном.1999 - Beyond the veil
-2001 - World Of Glass
-2005 - Ashes
-2007 - IlluminationЖанр: Symphonic/Gothic MetalПродолжительность: 06:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FDB3371A7D6D454B1BEB9695414FB66375469D
 ```
 
 https://mybot314.ru/tekegram_catalog/

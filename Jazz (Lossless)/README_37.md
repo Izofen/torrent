@@ -1,3 +1,38 @@
+###  Публикация: 752984   (940044) от 03.02.2014
+
+Allan Harris & Takana Miyamoto - Convergence (2012) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. My Foolish Heart
+ 02. Days of Wine and Roses
+ 03. But Beautiful
+ 04. Waltz for Debby
+ 05. You Don't Know What Love Is
+ 06. Young and Foolish
+ 07. Touch of Your Lips
+ 08. You Must Believe in Spring
+ 09. Some Other Time
+ 10. We'll Be Together AgainЖанр: Vocal JazzПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28ADF0FE3BF509E2D95CE6F1B18123C7A62E6E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 752701   (940039) от 03.02.2014
 
 Jacintha - Lush Life (2001) [FLAC|Lossless]<Vocal Jazz>
@@ -792,41 +827,6 @@ Art Simmons - Quartet (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz, Cool, Vocal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:462A03B3305454011B7151A4E4A565EA78DF4FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860799   (937678) от 18.01.2015
-
-Don Friedman Trio - My Favorite Things (2004) [FLAC|Lossless]<Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. My Favorite Things [05:45]
-02. It Could Happen To You [07:06]
-03. Easy To Love [05:47]
-04. Ask Me Now [07:08]
-05. Schmooze Blooze [05:30]
-06. Never Let Me Go [07:31]
-07. Half and Half [03:35]
-08. I'm All Smiles [06:35]
-09. Giant Steps [03:57]
-10. Summer's End [06:21]Жанр: Jazz, Post-Bop, Piano JazzПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E017B4D15390A5D3CDFC9A2528904AFAB0BA1A44
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 604703   (996225) от 18.01.2013
+
+Exist - Безысходность (2013) [MP3|320 kbps] <Alternative>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Люди-Тени (04:39)
+02. Никто (03:18)
+03. Лживые Слова (04:22)
+04. Пусть (03:57)
+05. Не Молчи (feat. Cryst) (05:13)
+06. Жги Мосты (04:13)
+07. Amen (00:57)
+08. Пляшем (04:31)
+09. Параллельные Линии (05:11)
+10. На Дне (02:56)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F906C19D920DD8BC01CBC5E76F3B117E0BC9A0DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604575   (996224) от 18.01.2013
 
 Encircle - Into the Dreamstate (2013) [MP3|320 kbps] <Progressive metal>
@@ -707,32 +742,6 @@ Winter Wallpapers (2/2013) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC94EBEDF76586C9EA835762E00C8722C23B7E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604628   (996169) от 18.01.2013
-
-[Wallpapers] Wallpapers Fantasy №17(Pavel)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 50 шт
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B702F12A624FA240BD43CEE6DD6D77D99579219E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1344150   (213803) от 09.12.2019
-
-The Buck Clayton Legacy Band - Claytonia (2011) [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэклист:
-1. Outer Drive - 5.29
-2. I'll Make Believe - 6.21
-3. Party Time - 6.10(   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00: 54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4552CE7D0CDD29D05BFCCE3E575A7A26FC0931C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653918   (213801) от 18.08.2023
 
 Sonny Criss - Intermission Riff (1951) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
@@ -745,6 +716,35 @@ Dexter Gordon Quartet - Swiss Nights, Vol. 1 (1975) 1987, SteepleChase [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:370778D25E618A53CFB1EC70B84E9C4C366A6C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642490   (210350) от 27.06.2023
+
+VA - Sax & Romance (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ella Fitzgerald - Dream A Little Dream Of Me (Single Version) (3:08)
+02. Jo Stafford - You Belong To Me (3:14)
+03. Dinah Washington - What A Difference A Day Made (2:28)
+04. Buddy Holly - True Love Ways (2:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28A11B3DBBC746B25EEC88842822CF46A312805
 ```
 
 https://mybot314.ru/tekegram_catalog/

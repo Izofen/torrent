@@ -1,3 +1,96 @@
+###  Публикация: 859945   (938898) от 17.01.2015
+
+The Andrews Sisters - The Golden Age Of The Andrews Sisters (2002) 4CD [MP3|320 кб/с]<Jazz, Swing, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (01:12:28)
+Disc 2 (01:12:27)
+Disc 3 (01:10:02)
+Disc 4 (01:12:05)Треклист Disc 1:
+01. Bei Mir Bist Du Schon
+02. Tu-Li-Tulip Time
+03. Lullaby To A Litle Jitterbug
+04. Hold Tight, Hold Tight
+05. The Beer Barrel Polka
+(   Читать дальше...   )Жанр: Jazz, Swing, Pop |Продолжительность: 04:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8001C797E18A49669FDDCFAF796F8599D2F8C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984601   (938845) от 09.02.2016
+
+VA - Love's Greatest Hits (2006) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Contemporary Jazz >
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harold Melvin & The Blue Notes - If You Don't Know Me By Now (3:27)
+02. Diana Ross & Lionel Richie - Endless Love (4:25)
+03. Marvin Gay & Tammi Terrell - You're All I Need To Get By (2:51)
+04. Peabo Bryson & Robert Flack - Tonight, I Celebrate My For For You (3:30)(   Читать дальше...   )Жанр: Funk, Soul, Contemporary Jazz, Soft JazzПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5DF6A38E3A922F74FDB51BC46CBD1979B1B3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860664   (938817) от 17.01.2015
+
+VA - Simply Late Night Jazz (2010) 2CD [FLAC|Lossless]<Jazz, Vocal Jazz, Lounge, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многим понравилась предыдущая раздача из серии Simply. Вот очередной сборник, судьба которого достаточно интересна. Первоначально он вышел в 2008 году в формате 4CD (собственно как большинство релизов из этой серии). Сборник достаточно хорошо и быстро был раскуплен, поэтому в 2010 году Studio Recording его повторила под тем же названием, похожий и состав исполнителей, (   Читать дальше...   )CD1:
+01. Billie Holiday - That Ole Devil Called Love  (2:56)
+02. Lester Young - These Foolish Things  (3:01)
+03. Cannonball Adderley - Willow Weep For Me  (6:23)(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Lounge, ChilloutПродолжительность: 02:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECE3F3857FBCDDB09A412CF053E568578E5E403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753417   (938695) от 04.02.2014
 
 Andrew Bird's Bowl Of Fire - Thrills (1998) [FLAC|Lossless]<Neo Swing, Dixieland>
@@ -729,98 +822,6 @@ Anita O'Day with Billy May and His Orchestra - Swings Cole Porter And Rodgers & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C75561F952AC911986E83B25E1B9977A4668C3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284147   (937381) от 19.01.2011
-
-Keith Jarrett Trio - Somewhere Before (2007) [FLAC|Lossless]<Jazz, Post Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. My Back Pages (5:25)
-02. Pretty Ballad (3:30)
-03. Moving Soon (4:25)
-04. Somewhere Before (6:51)
-05. New Rag (5:40)
-06. A Moment For Tears (3:08)
-07. Pout's Over (And The Day's Not Through) (4:35)
-08. Dedicated To You (5:00)
-09. Old Rag (2:37)Жанр: Jazz, Post Bop, Piano JazzПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984997   (937344) от 10.02.2016
-
-Phil Woods & Donald Byrd - The Young Bloods (1956) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dewey Square [07:50]
- 02.Dupeltook [06:47]
- 03.Once More [05:07]
- 04.House Of Chan [05:53](   Читать дальше...   )Жанр: BopПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AE07F0C051DEA1CEE3DF53307EB20CA7D4DC80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984908   (937259) от 10.02.2016
-
-Charlie Rouse & Seldon Powell - We Paid Our Dues! (1961) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Two For One [07:53]
- 02.When Sunny Gets Blue [05:54]
- 03.For Lester [07:19]
- 04.Quarter Moon [05:49](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC40401021CC309412E25D0BE91A310BFF27A136
 ```
 
 https://mybot314.ru/tekegram_catalog/

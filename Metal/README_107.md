@@ -1,3 +1,32 @@
+###  Публикация: 1644306   (232295) от 05.07.2023
+
+Scaphis - Dissected & Fermented (2022) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gathering
+02. Broken By The Wheel
+03. The Hunt
+04. Let Me Out(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28DBEFC5B50BBCC37B63D64D39D5124BF4EA795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646217   (232285) от 13.07.2023
 
 End of the Dream - All I Am (2015) [MP3|320 Kbps] <Melodic Symphonic Metal>
@@ -716,35 +745,6 @@ Vansidian - Reflecting the Shadows (2023) [MP3|320 Kbps] <Melodic Death, Power M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8717A9B320615190013E138CDB2A59E881F5AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646830   (231730) от 17.07.2023
-
-Unsoulicited - Reflections (2023) [MP3|320 Kbps] <Symphonic Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave You by the Shore
-02. I Wish We Could
-03. Glowing Fairytales
-04. Autumn Clouds(   Читать дальше...   )Жанр: Symphonic Metal, RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9618E6B1E5D3C299F195BE85460F71086479447
 ```
 
 https://mybot314.ru/tekegram_catalog/

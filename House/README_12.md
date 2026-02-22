@@ -1,3 +1,102 @@
+###  Публикация: 761906   (894585) от 01.03.2014
+
+The Noisy Freaks - Straight Life (2014) [MP3|320 кб/с]<Nu Disco, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude
+02. Love Robot
+03. Freaks Orchestra
+04. Straight Life
+05. French Club
+06. Cheer Song
+07. Funky Kids
+08. Bring It Back (feat. None Like Joshua)
+09. Selection
+10. Hell & Back(   Читать дальше...   )Жанр: Nu Disco, ElectronicПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7112DC8196FAE96565307D56CC8CD6F1367721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448201   (894010) от 13.02.2015
+
+DJ JIM - Breath Of Winter (2007-2015) (Обновляемая) [MP3|192-320 kbps]<Progressive House, Electro Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Fox Stevenson - Sweets (Soda Pop)
+02. Nora En Pure - The Sound
+03. Mindset - Phaneron (Stiben Dapper Remix)
+04. D05 - Fly
+05. Fonzerelli - Innovate(   Читать дальше...   )Жанр: Progressive House, Electro Progressive, Progressive Trance, House, Deep HouseПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C912FCF8C8336F3A73DFB7B5F1554C34674D287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637080   (893271) от 04.04.2013
+
+Harley & Muscle - Life Evolution (2013) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1 Life Evolution
+2 Have You Ever Wondered
+3 White Shoes
+4 Open Society
+5 Burning Fire (Feat. Charles McDougald)
+6 Degraded Nation
+7 Milk & Honey
+8 Kept Honor
+9 Light To A Flame (Caio's Theme)Жанр: HouseПродолжительность: 02:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0544E3EC67A8400FA0C0F8049BD4223A28FE206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 638984   (893229) от 04.04.2013
 
 Todd Terry - Sessions Eight (1997) [MP3|~245 кб/с (V0)]<House, Deep House, Garage House>
@@ -692,103 +791,6 @@ VA - Minimal Daydream (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBB85CCEAA1A935EE39CE0B35CA3C6D3C8B5454B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103038   (887787) от 11.02.2017
-
-VA - Dance Essentials (Armada Music) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hardwell & W&W - Get Down (Original Mix)  2:49
-02.  Steve Angello & Still Young - Follow Me (Instrumental)  5:35
-03.  Armin van Buuren & Vini Vici ft. Hilight Tribe - Great Spirit (Original Mix)  3:36
-04.  Dash Berlin & Do - Heaven (Original Mix)  3:18(   Читать дальше...   )Жанр: HouseПродолжительность: 02:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDC747A6A29726CAC2410E63A3F15B5AD600F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640984   (886843) от 07.04.2013
-
-Bob Sinclar - Paris By Night (A Parisian Musical Experience) (2013) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Bob Sinclar - Paris By Night (A Parisian Musical Experience) (2013)
-
-Год: 2013
-Жанр: House
-Продолжительность: 01:32:35Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Bob Sinclar - Summer Moonlight (Original Mix) (7:07)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF214182D3BC13DB31D0D19E1BB9B0DBB8B724E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640089   (886822) от 07.04.2013
-
-Inna - Party Never Ends (Ok Edition) (4CD) (2013) [MP3|320 кб/с]<House, Dance, Pop>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 More Than Friends (Odd Radio Edit)
-02 More Than Friends (Futurism Remix)
-03 More Than Friends (Adi Perez Remix Edit)
-04 Crazy Sexy Wild (Sagi Abitbul & Avi Ace Remix)
-05 Crazy Sexy Wild (Willy Sanjuan Wild Remix)
-06 Crazy Sexy Wild (Dmitry Nema & Welldone Summer Remix)
-07 INNdiA (Salvatore Ganacci Remix)
-08 INNdiA (Dj Turtle Remix)
-09 J'Adore (Nieggman Radio Edit)
-10 J'Adore (Ramy Blazin Remix)(   Читать дальше...   )Жанр: House, Dance, PopПродолжительность: 01:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BDB986D1A153BE246BADD08B70C2268DC631829
 ```
 
 https://mybot314.ru/tekegram_catalog/

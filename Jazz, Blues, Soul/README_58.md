@@ -1,3 +1,95 @@
+###  Публикация: 743609   (974428) от 09.01.2014
+
+Andy Williams - Greatest Hits (2005) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Moon River (2:46)
+02. Days Of Wine And Roses (2:47)
+03. The More I See You (2:24)
+04. The Hawaiian Wedding Song (2:28)
+05. Solitaire (4:24)
+06. The Look Of Love (2:53)
+07. Music To Watch Girls By (2:38)
+08. Can't Take My Eyes Off You (3:15)
+09. It's A Most Unusual Day (2:03)
+10. Happy Heart (3:15)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36903D8AE5E936013225B3E830BB58182049BFAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975047   (974403) от 13.01.2016
+
+Johnny Griffin & Dexter Gordon - Jazz Undulation (1968) Remaster, 2014,Studio Songs[FLAC|tracks+.cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Body & Soul [07:10]
+ 02.All The Things You Are [13:55]
+ 03.Blues Up And Down [20:46]Жанр: Hard BopПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C6D55FDCB02DE3ED14C573BA0413FE31D75906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357407   (974392) от 03.02.2020
+
+Manny Albam - Four Classic Albums 1955 - 1957 (2015) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974392.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Anything Goes [3:47]
+02. Headstrong [2:24]
+03. Black Bottom [3:42](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 02:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A141B61D2443A8C871058FFA737443DBB3F419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743289   (974375) от 09.01.2014
 
 Frank Sinatra - The Platinum Collection 3CD (2004) [WavPack|Lossless]<Vocal Jazz>
@@ -742,107 +834,6 @@ Roland Kirk with Jack McDuff - Kirk's Work (1961) 2000, OJC[FLAC|tracks+.cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1E03062E1C22A2E3EF328197E1E0A6F9BF61ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744135   (972172) от 11.01.2014
-
-Johnny Mathis - Open Fire, Two Guitars (1999) [FLAC|Lossless]<Blues, Pop>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Open Fire [03:56]
-02. Bye Bye Blackbird [04:08]
-03. In The Still Of The Night [02:35]
-04. Embraceable You [03:29]
-05. I'll Be Seeing You [04:28]
-06. Tenderly [03:02]
-07. When I Fall In Love [04:33]
-08. I Concentrate On You [03:18]
-09. Please Be Kind [03:29]
-10. You'll Never Know [04:09](   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B589BCEB58E7ECDE26382EA911E8827C1E17940B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 399394   (972151) от 21.01.2012
-
-B.B. King - Icon, Icon 2 (2011) 3CD [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Nobody Home (3:14)
-02. Ghetto Woman (5:13)
-03. Guess Who (4:07)
-04. To Know You Is to Love You (8:32)
-05. I Like to Live the Love (3:17)
-06. Let the Good Times RollЖанр: BluesПродолжительность: 02:37:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744270   (972092) от 11.01.2014
-
-The Beegie Adair Trio - The Nat King Cole Collection (1998) [FLAC|Lossless]<Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Lorraine (3:13)
-02. L-O-V-E (3:01)
-03. Unforgettable (4:18)
-04. Straighten Up and Fly Right (3:14)
-05. Mona Lisa (4:07)
-06. Smile (4:04)
-07. Route 66 (2:57)
-08. That Sunday, That Summer (4:36)
-09. Orange Colored Sky (3:25)
-10. Darling, Je Vous Aime Beaucoup (3:43)(   Читать дальше...   )Жанр: Piano JazzПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B7E9CA3DD2C791FE34C21E004F4A9D631F9EA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

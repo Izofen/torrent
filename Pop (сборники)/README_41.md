@@ -1,3 +1,32 @@
+###  Публикация: 1130074   (716793) от 01.05.2017
+
+VA - Весенние заводные хиты выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716793.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andy Rey - Люби Пока Молодой 3:09
+002. Eya - Пару Минуток 3:14
+003. Егор Диких - Маэстро 3:55
+004. Сергей Славянский - На Пешеходном Переходе 3:18(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4D80D47E764C917FFCB7BC19EDABDF2DC53FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130428   (716660) от 01.05.2017
 
 VA - Весенний молодежный хитовичок (2017) [MP3|256 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Экспресс русских хитов на Hit FM (8) (2018) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B405A1080AC23D087B4ACF232EDA48A9EC7DB978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401423   (709270) от 10.08.2020
-
-VA - Pop Dance Foam Party (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709270.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tomorrow - Fairy Of Shampoo
-002. Kristofer Astroem - Ode To...
-003. Daniel O'donnell - Crystal Chandeliers
-004. Isaac Dunbar - Boy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2ADA57ACF7D2BC9C0F6FC99D6AF1797F9472915
 ```
 
 https://mybot314.ru/tekegram_catalog/

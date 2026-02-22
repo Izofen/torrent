@@ -1,3 +1,29 @@
+###  Публикация: 1199522   (800809) от 16.01.2018
+
+Microsoft .NET Framework 1.1 - 4.7.1 Final RePack by D!akov [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800809.jpg" />
+</div>
+
+
+###  Подробнее
+
+.NET Framework — программная платформа, выпущенная компанией Microsoft. Основой платформы является исполняющая среда Common Language Runtime (CLR), способная выполнять как обычные программы, так и серверные веб-приложения. .NET Framework поддерживает создание программ, написанных на разных языках программирования. Платформа необходима для установки и корректной работы (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635D067D1652CEFF307D10374E1980F16D929E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199555   (800801) от 16.01.2018
 
 Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybrid x86 & x64 (от 13.01.2018) [Ru]
@@ -672,35 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB89F44F7DADB510AE83283194DDEA69523118DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120700   (800609) от 02.04.2017
-
-VA - Vocal Trance Classics 009 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Orjan Nilsen - In The Air (feat. Adam Young)  4:10
-02.  Gareth Emery - Into The Light (feat. Mark Frisch)  3:19
-03.  Cosmic Gate & Emma Hewitt - Going Home (Club Mix)  2:59
-04.  Dash Berlin - Waiting (W&W Remix) (feat. Emma Hewitt)  4:26(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1347DD8A5EFF10E6D04CCCE2B4CF55DCBD7E4C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

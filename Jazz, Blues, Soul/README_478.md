@@ -1,3 +1,32 @@
+###  Публикация: 1671296   (171418) от 24.10.2023
+
+VA - 30 Pleasing to the Ear, Elegant, Cozy and Comforting Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, New Age>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Butterfly Kisses (5:10)
+02. Kool&Klean - I Can Only Imagine (4:55)
+03. Chillaxonic - Oasis (4:58)
+04. Chillaxing Jazz Kollektion - Home (5:42)(   Читать дальше...   )Жанр: Smooth Jazz, New AgeПродолжительность: 02:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662024F67F2EE26F9F27B89A231715D5ABEA991E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671377   (171407) от 24.10.2023
 
 Papik & Nicole Magolie - Montecarlo Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz>
@@ -716,35 +745,6 @@ Jojo Effect - Spreading Rhythm (2022) [FLAC|Lossless|WEB-DL|tracks] <Future Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D2B37ED899D1A89E228A2716C6BA84353FD4DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515199   (170407) от 06.12.2021
-
-Modern Jazz Quartet - Milestones Of A Legend (1953 - 1962) 10CD, 2016, The Intense Media [FLAC|Lossless|tracks + .cue] <Cool, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170407.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 -  The Modern Jazz Quartet 1953 & Concorde:
-01. All The Things You Are [3:17]
-02. La Ronde [3:10]
-03. Vendome [3:15](   Читать дальше...   )Жанр: Cool, Third StreamПродолжительность: 12:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CACE0D4E3E8AB7024585B51815A93F92173D501
 ```
 
 https://mybot314.ru/tekegram_catalog/

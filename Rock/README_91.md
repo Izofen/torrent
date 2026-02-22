@@ -1,90 +1,3 @@
-###  Публикация: 1601210   (152650) от 30.12.2022
-
-Gary Eisenbraun - Stepping Stones (2022) [MP3|320 Kbps] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clear The Air (06:31)
- 02. Telling Me Lies (05:06)
- 03. (Back To) Square One (05:22)
- 04. Crying Out Loud (06:32)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE024941BC12CD45097B075307297C9810A9CF9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968542   (152594) от 24.12.2015
-
-David Gilmour - Greatest Hits (2015) 2CD, Japanese Edition [MP3|320 кб/с] <Progressive rock, Art rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love On The Air
-02. No Way
-03. Out Of The Blue
-04. Short And Sweet(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 01:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:802D9B529CD149E844A3441721D102F61A1BDFA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601082   (152550) от 30.12.2022
-
-Julio Iglesias - Crazy (1994) Reissue, 2015, Sony Music [OGG Vorbis|480 Kbps] <Rock, Soft Rock, Chanson>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy (Album Version)
-02. Let It Be Me
-03. Mammy Blue (Album Version)
-04. Fragile (Album Version)(   Читать дальше...   )Жанр: Rock, Soft Rock, ChansonПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D54D6EEE0BB23B512925D3CE12DDB25D7C66D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271256   (152477) от 22.12.2018
 
 Foghat - The Best Of Foghat (1989) Compilation, Reissue, Rhino Records [MP3|320 Kbps] <Rock, Rock & Roll>
@@ -759,6 +672,99 @@ Devil Doll - Queen Of Pain (2002) [MP3|320 Kbps] <Rockabilly, Country Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18489187C4A4D492CB9ABED56FBF4E5F56D2B83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435200   (146695) от 27.12.2020
+
+Heavy Pettin - Best Of Heavy Pettin (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In and out of Love [00:03:53]
+02 - Sole Survivor [00:03:42]
+03 - Born to Burn [00:03:22]
+04 - Northwinds [00:04:02](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62D754ECE60B1AAAE71F488FFDDFEF4289BA05F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590178   (145557) от 16.12.2012
+
+Claudia Cane Sings Bon Scott - CC/DC - A True AC/DC Remake (2011) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock'n'Roll Damnation 03:38
+02. Rock'n'Roll Singer 04:54
+03. Go Down 05:31
+04. Hell Ain't A Bad Place To Be 04:10
+05. Riff Raff 05:09
+06. Crabsody In BLue 04:47
+07. It's A Long Way To The Top 05:06
+08. High Voltage 04:13
+09. Girls Got Rhythm 03:25
+10. Gonna Be Some Rocking 03:19Жанр: RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617DEF5CB7A1D7FE2FB95BCCB81C2F616315C49C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435486   (144359) от 28.12.2020
+
+Yes - Songs From Tsongas (2014) 35th Anniversary Concert, 3xCD [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144359.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Intro - Firebird Suite (02:15)
+ 02. Going For The One (05:31)
+ 03. Sweet Dreams (06:41)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FDD19B0BB48524F8D306E9A25ABD4B8A2C10EC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

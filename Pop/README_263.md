@@ -1,3 +1,90 @@
+###  Публикация: 1631894   (244464) от 08.05.2023
+
+VA - USA Top Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melanie Martinez - VOID
+02. NLE Choppa - SLUT ME OUT
+03. Zach Bryan - Something in the Orange
+04. Yng Lvcas, Peso Pluma - La Bebe (Remix)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 03:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B72A5B5DBC0272385A72EBD680C231AC66EB098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610027   (244451) от 05.02.2023
+
+Whitney Houston - Don't Cry For Me (2023) The Remixes [FLAC|Lossless|WEB-DL|tracks] <Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cry For Me (Extended Mix) [00:04:00]
+02. Don't Cry For Me [00:03:19]
+03. Don't Cry For Me (Instrumental) [00:04:00]
+04. Don't Cry For Me (Thunderpuss Reunion Extended Remix) [00:06:29](   Читать дальше...   )Жанр: Soul, PopПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D5C7579A4B53E46E28B342BCC30609EAF31F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631951   (244439) от 08.05.2023
+
+VA - Disco Boy, I'm A Disco Boy: Weekend Party Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La$$A - Disco Boy                                       [02:36]
+   02. Yung Gravy - Betty (Get Money)                          [02:25]
+   03. Kungs - Never Going Home                                [02:49]
+   04. Dio - Tijdmachine (Edit)                                [03:29](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067D0D55EA2CAA40C676451DF87C7CF72AB2954B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567146   (244425) от 01.08.2022
 
 VA - I Love The 90's - The Party (2019) 4CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] <Eurodance, House, Dance, Eurobeat>
@@ -648,93 +735,6 @@ VA - 100 Hits Pure 80s (100 Original Classics From The Decade) (2016) Box Set: 5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53DE3E3ACA7601BBFF98675AFF6D9C6E17CC4473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627245   (243199) от 18.04.2023
-
-VA - ZYX Italo Disco New Generation Vol. 2 (2013) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanello & Steven Kimber - S.O.S. for Love (Maxi Version)
-02. Lenroy - Do You (Extended Version)
-03. TQ - Let's Go To Tokyo (Axel Remix)
-04. Siberian Heat - Magic Blue Eyes (Long Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B5DE2AAC0BEC207AE15EE300A3EF2DCC1EB6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352548   (243188) от 15.01.2020
-
-The Vision Mastermixers - The Immaculate Mix (1997) [FLAC|Lossless|image + .cue] <Synth-pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243188.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	The Immaculate Mix	7:08
-1.a	Vogue. Written-By – Madonna, Shep Pettibone
-1.b	Open Your Heart. Written-By – Cole, Madonna, Rafelson
-1.c	Into The Groove. Written-By – Madonna, Bray(   Читать дальше...   )Жанр: House, Synth-pop, Cover, MedleyПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38226C571C61ECC217A2C40B6AF1F34CF6480D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352560   (243110) от 15.01.2020
-
-The Vision Mastermixers - Immaculate Mixes II (2001) [FLAC|Lossless|image + .cue] <Disco, House, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sawmix 1 (7:32)
-
-1.1.	I Heard A Rumour
-1.2.	Never Gonna Give You Up(   Читать дальше...   )Жанр: Disco, House, Synth-popПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCC3A7B259AC6442BA12A52FC1A3701EDCF0DD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

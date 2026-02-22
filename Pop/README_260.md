@@ -1,3 +1,90 @@
+###  Публикация: 1836781   (255672) от 12.11.2025
+
+Discobonus - Different Shores (2020) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Always Inside (4:29)
+02. Let Me Fall (4:00)
+03. Lonely Again (4:30)
+04. The Sweetest Mistake (3:29)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1817EF17FD5F1FC7814854FB3EBE21082FF1BC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836884   (255603) от 13.11.2025
+
+VA - Now That's What I Call Music! 27 (1994) 2CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Funk / Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Of Base - The Sign     03:09
+ 02. Chaka Demus & Pliers (With Jack Radics & Taxi Gang) - Twist & Shout     03:56
+ 03. DReam - Things Can Only Get Better     03:59
+ 04. East 17 - It's Alright     04:41(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Funk / SoulПродолжительность: 02:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C01A20468652A751E2C67CEF3BA0AF80C18CEB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 403426   (255574) от 03.04.2023
+
+Винтаж - 4 альбома (2007-2011) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:11:21
+
+01. Деревья
+02. Стерео(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80472C430B33412C24E78DC027347C74BB28BDAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 175814   (255566) от 03.04.2023
 
 Белый Орел - Дискография (1997-2007) [FLAC|Lossless]<POP>
@@ -670,93 +757,6 @@ CD1 (Best)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835294   (250972) от 05.11.2025
-
-Kristian Torgalsen - 2 Albums (2023-2025) [FLAC 24/44.1, FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250972.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. Get your mind straight [00:03:14]
-00. I figured it out [00:03:58]
-00. Normal world [00:03:48]
-00. Why the hell should I care [00:02:40](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3414CDB0D79E5DFC88426208B4A141C15EC9B121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835394   (250966) от 05.11.2025
-
-Mylene Farmer - 86-97 Mylene Farmer (2025) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250966.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Maman a tort (nouvelle version)
-02. Plus Grandir
-03. Libertine(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9679A37459452FA883F08E3F35EEF3DA940A6B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835365   (250936) от 06.11.2025
-
-VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Dreams (2018 Remaster) (4:17)
-02. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!) (3:21)
-03. Racey - Boy Oh Boy (2:53)
-04. Tina Turner - Sometimes When We Touch (3:59)(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCAEAE156F971E95586DADEB2B9410B21A7F48B
 ```
 
 https://mybot314.ru/tekegram_catalog/

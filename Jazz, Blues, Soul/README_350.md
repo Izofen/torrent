@@ -1,3 +1,90 @@
+###  Публикация: 1174540   (385570) от 15.10.2017
+
+John Pizzarelli  (featuring Daniel Jobim) - Sinatra & Jobim @ 50 (2017) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baubles, Bangles And Beads
+02. Aqua De Beber
+03. Meditation Quiet Nights Of Quiet Stars
+04. Dindi(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BF7940FB2ED7A5F061E27A03034B01CB0AFBC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174528   (385568) от 15.10.2017
+
+Boney James - Honestly (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kicks
+02. Tick Tock
+03. On The Prowl
+04. Low And Slow(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8232475715C505AF11506D03070E6271E5984B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174504   (385567) от 15.10.2017
+
+Cary Morin - 2 Albums (2015 - 2017) [MP3|320 Kbps] <Acoustic Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cradle to the Grave
+02. Laid Back
+03. Dawn's Early Light
+04. Lay Baby Lay(   Читать дальше...   )Жанр: Acoustic BluesПродолжительность: 01:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3781E418CC7F4814F92038F08A3C5D0025E1DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253273   (385555) от 08.10.2018
 
 Louie Bellson - Don't Stop Now! (1984) 1994, Capri Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
@@ -658,93 +745,6 @@ Bobby Troup - The Feeling Of Jazz (1994) Star Line [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE30DAE7E5F25F9AAB7AC7797F3E299BC8C7DB54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326686   (383389) от 21.09.2019
-
-Janiva Magness - Janiva Magness Sings John Fogerty: Change in the Weather (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change in the Weather
-02. Lodi
-03. Someday Never Comes
-04. Wrote a Song for Everyone(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E07F76B4674B39D5FE0BE6D65E164A10EB9ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326635   (383382) от 21.09.2019
-
-Herbie Mann - Live At The Whisky (1969) 2CD, 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383382.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Untitled Jam [7:22]
-02. Tangier/If I Were a Carpenter [24:21]
-03. Memphis Underground [10:38](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-Funk, World FusionПродолжительность: 02:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949C526CCF4EB5D9C92A1BE05E3CAD650B763016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068052   (382943) от 31.10.2016
-
-Kurt Elling - The Beautiful Day: Kurt Elling Sings Christmas (2016) [MP3|320 Kbps] <Jazz Vocals, Xmas>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sing A Christmas Carol (4:33)
-02. Wenceslaus (Image I) (1:27)
- 03. Star Of Wonder (2:04)
- 04. We Three Kings (6:31)(   Читать дальше...   )Жанр: Jazz Vocals, XmasПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BBF9979CC9A33363704E3B08FC6BDDCAFD45DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

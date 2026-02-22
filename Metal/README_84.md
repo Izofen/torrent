@@ -1,3 +1,32 @@
+###  Публикация: 570723   (390337) от 05.11.2012
+
+Raventale - 6 Albums (2006-2012) [MP3|320]<Atmospheric Black/Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390337.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shine
+2. Room Winter
+3. Without Movement
+4. TranscendenceЖанр: Atmospheric Black/Doom MetalПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6E3217E549212EC713A6CA4D4B64B3208164C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173738   (389644) от 12.10.2017
 
 Samael - Hegemony (2017) [MP3|320 Kbps] <Industrial Metal, Black Metal>
@@ -721,35 +750,6 @@ Straightout - Phobia (2016) [MP3|320 Kbps] <Melodic Death, Black Metal, Metalcor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9FD83B10EEBA5D62465FF6522783D5074490338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067977   (383355) от 31.10.2016
-
-Engage The Unseen - A Storm Is Coming (2016) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Storm Is Coming 03:21
-02. All in Blind 03:55
-03. Primal 03:52
-04. Getting Filthy 03:46(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4EF505EDAAB6E6AE9A853DA277C8AA52AF2C3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

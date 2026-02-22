@@ -1,3 +1,32 @@
+###  Публикация: 1635492   (239702) от 26.05.2023
+
+The Silent Rage - Nuances Of Life (2023) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Serpent Lord
+02. Code Of Destruction
+03. Carve Your Rage
+04. Crows Fly Back(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1556E0AB79E7A1F36FEDD0AC31BD58030328DB50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621805   (239638) от 26.03.2023
 
 Swan Valley Heights - Terminal Forest (2023) [MP3|320 Kbps] <Stoner, Doom Metal, Rock>
@@ -716,35 +745,6 @@ Ekrom - Uten N​adigst Formildelse (2023) [MP3|320 Kbps] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C474F0D00E094D76F1CC36EEEA9F8B05F7007BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638231   (238031) от 07.06.2023
-
-Dieth - To Hell and Back (2023) [MP3|320 Kbps] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Hell and Back (03:55)
-02. Don't Get Mad ... Get Even! (04:37)
-03. Wicked Disdain (03:36)
-04. Free Us All (05:19)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5F175E585047347123704E2C131AD6DD1440BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

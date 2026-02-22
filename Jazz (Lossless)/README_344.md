@@ -1,32 +1,3 @@
-###  Публикация: 1717237   (111226) от 19.04.2024
-
-Paul Motian And The Electric Bebop Band - Flight Of The Blue Jay (1997) Winter & Winter [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight of the Blue Jay [3:06]
-02. Pannonica [4:33]
-03. Brad's Bag [5:51]
-04. Celia [5:07](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246494B16E9FB8C9B2181CC0FBC960F532E3FD8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717436   (111156) от 20.04.2024
 
 Matt Ottewill - 12 From 5 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -744,6 +715,35 @@ VA - Luxury Lifestyle Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B867C73FC5465F5D54A5300F2DFC1CFF5E3B3609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718816   (110723) от 27.04.2024
+
+VA - Summer Jazz & Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Otis Redding - Stand by Me (2:52)
+02. John Coltrane - My Favorite Things, Pt. 1 (Single Version) (2:47)
+03. Wilson Pickett - In the Midnight Hour (2:37)
+04. Ray Charles - Mess Around (2:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0142BFD956FADD249ABF5CA486CE3AE38871798
 ```
 
 https://mybot314.ru/tekegram_catalog/

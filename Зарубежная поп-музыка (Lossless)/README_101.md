@@ -1,3 +1,32 @@
+###  Публикация: 1780929   (27001) от 20.02.2025
+
+VA - All Stars 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy Swims - Bad Dreams (3:04)
+02. Rose - APT. (2:49)
+03. Benson Boone - Beautiful Things (3:00)
+04. Charli XCX - Apple (2:31)(   Читать дальше...   )Жанр: PopПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0174A28DA2BCBAEF5F56AC466A7E46701834FFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783778   (25452) от 07.03.2025
 
 Thomas Anders - … Sings Modern Talking: The 1st Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ VA - Classic Soul Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:639BEE5F95067E0DBD799A36F6466875DA715181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801504   (14924) от 11.06.2025
-
-VA - Some Great 20s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14924.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Benson Boone - Beautiful Things (3:00)
-002. Rose - APT. (2:49)
-003. Teddy Swims - Lose Control (3:30)
-004. Ed Sheeran - Azizam (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 05:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4701B24D3BC0DF5932159596EE89D34A5123E9E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

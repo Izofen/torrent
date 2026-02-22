@@ -1,3 +1,119 @@
+###  Публикация: 1283600   (739783) от 17.02.2019
+
+The Day - Midnight Parade (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Dream-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Island.flac
+02. Where the Wild Things Are.flac
+03. Grow.flac
+04. The Golden Glow.flac(   Читать дальше...   )Жанр: Indie, Dream-popПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411AFFEA861F9C5405EEF3E036D4CD79539F1D6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283603   (739727) от 17.02.2019
+
+Bogart - Brandnew... (1980) LP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance When The Music Plays (5:09)
+02. Sweet Darlin' (4:04)
+03. Spend A Night In Love With Me (3:31)
+04. Overnight, On Broadway (6:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AD89104C53A9B0DB613E9D168447B92EA021AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283654   (739725) от 17.02.2019
+
+Hideki Matsutake - Space Fantasy (1978) LP [MP3|320 Kbps] <Electronic, Classical, Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture - Space Cruiser Yamato (3:41)
+02. Nocturnal Pursuit (3:41)
+03. Iskandall (5:25)
+04. White Morning After (3:16)(   Читать дальше...   )Жанр: Electronic, Classical, Disco, Synth-popПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648958D44017AB8D803784E2A8CA52D3E5C7688F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526150   (738832) от 23.01.2022
+
+Sam Martin - Alpha Omega (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Omega (40:43)
+ 02. The Birth (1:10)
+ 03. Come On! (0:35)
+ 04. Summer Days (3:09)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6A2964FBFAD084C0B20BEBDE826A2D64AA5E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526135   (738814) от 23.01.2022
 
 Baynk - ADOLESCENCE (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
@@ -628,119 +744,6 @@ The Charlie Calello Orchestra - Calello Serenade (1979) CD, Album, Reissue, 1992
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A24BBB908BD0A328B6A992A3EA119E72A7C6650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398075   (736567) от 24.07.2020
-
-Григорий Лепс - Честь имею! Кони привередливые (Высоцкий) (2020) [MP3|320 Kbps] <Pop, Авторская песня>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песня про стукача
-2. В младенчестве
-3. Ах, родная сторона
-4. Жил я славно в 1-й трети(   Читать дальше...   )Жанр: Pop, Авторская песняПродолжительность: 01:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A23C83C252E5898CBA894668730A800FDC33BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398173   (736539) от 24.07.2020
-
-Taylor Swift - Folklore (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop, Country>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 1
-02. Cardigan
-03. The Last Great American Dynasty
-04. Exile (featuring Bon Iver)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EAD50E8FE1B7B6118AD059C5962C579D9CC883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527784   (736402) от 29.01.2022
-
-Vincent International - Retro 2 (The 2nd Album) (2022) [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel My Fire /feat.Stylove/ (Extended Mix) 06:44
-02. Heart & Soul /duet with Rachel Santos/ (Extended Mix) 06:13
-03. Tick Tock Baby (Extended Mix) 06:32
-04. Kiss Me (Extended Mix) 05:38(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DB3138379D8F5CE6CDE40825290FFBA250FEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527670   (736386) от 29.01.2022
-
-Secret Service - Jane (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JaneЖанр: PopПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FF3E3C0578ED321C7466BDAC9ACC66CBB1CCAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

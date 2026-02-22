@@ -1,3 +1,90 @@
+###  Публикация: 1048532   (546593) от 02.09.2016
+
+Louis Van Dyke - When a Man Loves a Woman (1968) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When A Man Loves A Women [03:18]
+ 02.With A Little Help From My Friends [03:32]
+ 03.She's Leaving Home [03:32]
+ 04.Mercy, Mercy, Mercy [04:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D727F470A05285C291CC77757E1777EC836CCE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048516   (546589) от 02.09.2016
+
+Art Blakey & Freddie Hubbard - Feel The Wind (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Arieties [05:27]
+ 02.Feel The Wind [09:54]
+ 03.Embraceable You [09:18]
+ 04.Off Minor [06:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD02615AC3546B74C8E9B9C9751992A1437FE357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048270   (546588) от 02.09.2016
+
+Sonny Rollins - Alfie (1965) 1997, MCA Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alfie's Theme [09:45]
+ 02.He's Younger Than You Are [05:14]
+ 03.Street Runner With Child [04:03]
+ 04.Transition Theme For Minor Blues [05:53](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52EDD8236C518F20D11D10C159A45AA062E23FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048601   (546585) от 02.09.2016
 
 Johnny "Hammond" Smith - Opus De Funk (1961) 2004, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -658,93 +745,6 @@ Michael Dease - Reaching Out (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B15F828F604FBBDD18AAECCD4E467F1868DFDAFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238859   (544656) от 01.08.2018
-
-Deb Rhymer - Don't Wait Up (2018) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartache and trouble (03:50)
-02. Let your heart decide (04:37)
-03. Cry for me (03:31)
-04. Don't wait up (04:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25AEE61B2E873C815673DDF242CE221C87DF4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310937   (544455) от 27.06.2019
-
-Tullie Brae - Revelation (2019) [FLAC|Lossless|WEB-DL|tracks] < Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Price of the Blues (4:42)
-02. Seven Bridges (3:19)
-03. Mississippi Rain (5:04)
-04. Break These Chains (4:03)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3856D91AAEDB1DEB66D8AFD1A6D78C6F729BE3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310932   (544222) от 27.06.2019
-
-Rory Gallagher - Blues (2019) 3CD Deluxe [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544222.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Don't Start Me Talkin' (Jinx Session / 1982)
-02. Nothin' But The Devil (Against The Grain Session / 1975)
-03. Tore Down (Blueprint Session / 1973)(   Читать дальше...   )Жанр: BluesПродолжительность: 3:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0FDB1BD5195524AC010FAC46050F23450B635E
 ```
 
 https://mybot314.ru/tekegram_catalog/

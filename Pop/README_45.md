@@ -1,3 +1,116 @@
+###  Публикация: 1093880   (932272) от 16.01.2017
+
+Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932272.jpg" />
+</div>
+
+
+###  Подробнее
+
+На мой взгляд (и не только) шедевр 80-ых во многом опередивший своё время и, возможно поэтому, недостаточно оцененный современниками.01. For America
+02. Heart Of The Sun
+03. Billy's Line
+04. Bantu(   Читать дальше...   )Жанр: Alternative Pop, New Wave, Choral, Orchestral, Art Rock, World MusicПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365190   (932238) от 06.03.2020
+
+Наталья Подольская - Плачь (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Феникс
+2. Сильная слабая
+3. Плачь
+4. Ни много, ни мало(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F7A000073D6A3C1ACC5C4DC71EB7D7D42821D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365189   (932115) от 06.03.2020
+
+Филипп Киркоров - Романы, Часть 1 (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932115.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Романы
+2. Это была любовь
+3. Любимые люди
+4. Улети(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D609EB6848F9619BB688D0FDD9719E1F7032108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629864   (931274) от 13.03.2013
+
+Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+cue)|Lossless]<Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, R&BПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986352   (930872) от 14.02.2016
 
 Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disco, RnB/Swing>
@@ -626,122 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E261D4240B135A66977031AFF5CC69736B2231E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987260   (927453) от 16.02.2016
-
-Валерий Ободзинский - Всё сбудется. Избранное (2003) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эти глаза напротив (3:33)
-02. Девушка (3:45)
-03. Настоящая любовь (3:01)
-04. Встреча (3:09)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BED94E266801A5D5EC53BE23BC445B27FACBC19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489250   (927116) от 15.08.2021
-
-EMIN - LOVE IS (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927116.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Таял
-2. Кругами
-3. Не было меня
-4. Love Is(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174BB26462EA0034E74543F267FDAEAF1422CF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095174   (926044) от 20.01.2017
-
-Тати - Драма (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Голубые бабочки
-03. Связки металлических ключей
-04. Другой(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4C3EE4A78805604D35F23460BED1F48E8B7981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366083   (925742) от 10.03.2020
-
-VA - I Love German Pop (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925742.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mokaby, Natha Lee - Diese Liebe (Radio Edit)
-2. Brian Ferris - Halt deine Fresse und tanz! (Party Mix Radio Edit)
-3. Boerney - Weißt Du noch gestern
-4. Freitagsauto - Mulinello(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002D32582ADC030C52F775C3C29580E088570AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1108966   (968745) от 08.02.2020
+
+Chet Baker Quartet featuring Russ Freeman 1953 (1998) Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isn't it Romantic (3:30)
+02. The Lamp is Low (2:33)
+03. This Time the Dream's on Me (2:46)
+04. Maid in Mexico (2:56)(   Читать дальше...   )Жанр: CoolПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7697BF6E520D15637837421E71B02C06AA3A888F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133419   (968689) от 08.02.2020
 
 Astrud Gilberto - Jungle (2002) Magya [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Vocal Jazz>
@@ -735,35 +764,6 @@ Ariane Nielsen - It's About Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D3F9A2C811FFCAAE899909B657BCF0294B346E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978432   (963719) от 23.01.2016
-
-Anandi - Anandi (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchained Melody
-02. Night & Day
-03. Perennial
-04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E1789C43AA0675E026511355EB831AC03DFF59
 ```
 
 https://mybot314.ru/tekegram_catalog/

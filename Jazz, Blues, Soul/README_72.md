@@ -1,3 +1,95 @@
+###  Публикация: 284147   (937381) от 19.01.2011
+
+Keith Jarrett Trio - Somewhere Before (2007) [FLAC|Lossless]<Jazz, Post Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. My Back Pages (5:25)
+02. Pretty Ballad (3:30)
+03. Moving Soon (4:25)
+04. Somewhere Before (6:51)
+05. New Rag (5:40)
+06. A Moment For Tears (3:08)
+07. Pout's Over (And The Day's Not Through) (4:35)
+08. Dedicated To You (5:00)
+09. Old Rag (2:37)Жанр: Jazz, Post Bop, Piano JazzПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984997   (937344) от 10.02.2016
+
+Phil Woods & Donald Byrd - The Young Bloods (1956) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dewey Square [07:50]
+ 02.Dupeltook [06:47]
+ 03.Once More [05:07]
+ 04.House Of Chan [05:53](   Читать дальше...   )Жанр: BopПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AE07F0C051DEA1CEE3DF53307EB20CA7D4DC80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984908   (937259) от 10.02.2016
+
+Charlie Rouse & Seldon Powell - We Paid Our Dues! (1961) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Two For One [07:53]
+ 02.When Sunny Gets Blue [05:54]
+ 03.For Lester [07:19]
+ 04.Quarter Moon [05:49](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC40401021CC309412E25D0BE91A310BFF27A136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092915   (937239) от 13.01.2017
 
 Ryan McGarvey - 3 Альбома (2007 - 2014) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -733,93 +825,6 @@ Ornette Coleman And Prime Time - Virgin Beauty (1988) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB12639C25E73DC81B00DC9B794709122A349FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093255   (935428) от 14.01.2017
-
-The Lew Tabackin Quartet - What A Little Moonlight Can Do (1994) Concord Jazz[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.What A Little Moonlight Can Do [05:15]
- 02.Easy Living [07:23]
- 03.I Wished On The Moon [06:52]
- 04.Love Letters [05:03](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECE603317AE9280C356CDC0EDA4A995FF58FD91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093119   (935420) от 14.01.2017
-
-Glenn Kaiser Band - Octane (2008) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Glenn Kaiser Band / Broken Love  (03:35) 
-02|  Streetcorner Blues  (03:51) 
-03|  Roller Coaster  (03:00) 
-04|  Depends On Where You Stand  (03:39) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E820F1718C0D129370D650228F1CC64A5007A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093248   (935358) от 14.01.2017
-
-Dave Brubeck - Time Out / Gone With The Wind (1959) 2CD, 2010, Not Now Music[FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935358.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Time Out:
-01.Blue Rondo A La Turk [06:49]
-02.Strange Meadow Lark [07:26]
-03.Take Five [05:29](   Читать дальше...   )Жанр: CoolПродолжительность: 01:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AE9BCD7C842C5343602C8FAA3D8B580093E5FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

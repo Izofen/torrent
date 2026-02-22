@@ -1,3 +1,29 @@
+###  Публикация: 538093   (504973) от 28.08.2012
+
+Nature Wallpapers (22.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B6A2D3744E9BECD44D84BE23E9DFF9FC90F0B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540140   (504972) от 28.08.2012
 
 Computer Desktop Wallpapers Collection (27.08.12) [Wallpapers]
@@ -653,32 +679,6 @@ Landscapes HD Wallpapers (21.08.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C266FE9FD3B34EAD30303EE0450DF4F785336179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540144   (504917) от 28.08.2012
-
-Design and interior of the wallpaper (27.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE15C11972D5CC940FC3E821B780EB7836CDF38D
 ```
 
 https://mybot314.ru/tekegram_catalog/

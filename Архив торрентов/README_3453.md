@@ -1,3 +1,38 @@
+###  Публикация: 551250   (456283) от 23.09.2012
+
+VA - Vocal Trance Top 25 Vol.9 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456283.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Within Temptation - Sinead (Alex M.O.R.P.H. Extended Vocal Mix)
+002. Serge Devant feat. Emma Hewitt - Take Me With You
+003. Ruben de Ronde & Aelyn - She's Already Gone Vocal Mix
+004. Sebastian Ingrosso, Alesso & Ryan Tedder - Calling (Lose My Mind) (Extended Club Mix)
+005. Simone Anes feat. Abigail Bailey - Love Is A Battlefield (Original Mix)
+006. Snatt & Vix - At The End Of The Day (Original Mix)
+007. Stoneface & Terminal feat. Ellie Lawson - Breaking Through (Club Mix)
+008. Sunlounger feat. Zara Taylor - Try To Be Love (Original Balearic Summer Mix)
+009. Susana Rex Mundi - All Time Low (Original Mix)
+010. Tritonal feat. Jeza - Can't Keep It In (Tritonal Club Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9003C11F5D65D7CEE96E473F7CB45B2FA12671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162291   (456261) от 02.09.2017
 
 Debian 9.1 KDE Plasma 5 LiveCD 0831 [amd64] 1xDVD
@@ -662,38 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93E2F35CEABCE5ABE479963B6F519A3215A5356C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550148   (455949) от 23.09.2012
-
-Рене Шандель | Война за Грааль [2008] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, проливающая новый свет на историю отношений Марии Магдалины и Иисуса Христа…
-
-Книга, открывающая совершенно неожиданные аспекты мистической и оккультной миссии ордена тамплиеров…
-
-Книга, позволяющая взглянуть под иным углом на жизнь и творчество великого Леонардо да Винчи…
-
-Книга, содержащая информацию об истинной истории Святого Грааля…Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAC64CFDEF63207DF96208765308B528BD21AEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

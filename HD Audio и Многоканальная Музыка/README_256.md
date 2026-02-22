@@ -1,3 +1,177 @@
+###  Публикация: 1815127   (5482) от 28.08.2025
+
+Manegarm - Edsvuren (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Viking-Black-Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I skogsfruns famn (feat. Lea Grawsiö Lindström) (5:22)
+02. Lögrinns värn (4:12)
+03. En Blodvittneskrans (4:04)
+04. Rodhins hav (feat. Ellinor Videfors) (2:40)(   Читать дальше...   )Жанр: Viking-Black-Folk MetalПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3F7C81D2EC1B7ED28C3231C1A4828529F9D493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815134   (5481) от 28.08.2025
+
+Headless - Transitional Objects (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weightless (4:44)
+02. Losing Power (4:27)
+03. Fall To Pieces (5:24)
+04. Misery (4:29)(   Читать дальше...   )Жанр: Progressive Metal, Hard RockПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCA8E4B4A2FEF216C92EFAE9B02F612A9435390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707627   (5373) от 29.08.2025
+
+Vicious Rumors - Studio Albums (10 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal, Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vicious Rumors - метал-группа из США (Санта-Роза, Калифорния) основана в 1980 году.1994 - Word Of Mouth
+1996 - Something Burning
+1998 - Cyberchrist
+2001 - Sadistic SymphonyЖанр: Heavy/Power Metal, Groove MetalПродолжительность: 08:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913192E0AFA562CF7F783EC968C28A2F266DDC0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815302   (5370) от 29.08.2025
+
+Bryan Adams - Roll With The Punches (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roll With The Punches
+02. Make Up Your Mind
+03. Never Ever Let You Go
+04. A Little More Understanding(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714CD4598CB19DC4065730E38A3E1964C4E70086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815310   (5353) от 29.08.2025
+
+Belinda Carlisle - Once Upon a Time in California (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyone Who Had a Heart
+02. If You Could Read My Mind
+03. One
+04. Never My Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC0A7519A35110605A8299D7B88A51E390C6728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815307   (5346) от 29.08.2025
+
+Helloween - Giants & Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Giants On The Run [6:21]
+02 - Savior Of The World [4:15]
+03 - A Little Is A Little Too Much [3:31]
+04 - We Can Be Gods [5:11](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9709D2419C17F911EB5E9087DFA3979813B68A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815343   (5337) от 29.08.2025
 
 Sweet Freedom - Blind Leading The Blind (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -571,180 +745,6 @@ Mr. Creatovsky - Braincity Blues EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5D801C0941A8FC242DCB389B9074611804AC70D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815862   (4788) от 01.09.2025
-
-Huntress - Studio Albums (4 releases) (2010-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Huntress - американская хэви-метал группа из Хайленд-Парка, Калифорния, создана в 2009 году.2010 - Off With Her Head (EP)
-2012 - Spell Eater
-2013 - Starbound Beast
-2015 - StaticЖанр: Heavy MetalПродолжительность: 02:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6504B50137E67CCD3A7C1A2688B8532F592CB7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815936   (4787) от 01.09.2025
-
-Slant KX - Endless Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Endless Love (2:55)
-02.  Jangle My Frame (3:33)
-03.  Back in Your Youth (2:16)
-04.  Wasting Hours (4:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C4805DEF4C0E06EF928D5814418D33F94B796E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815938   (4785) от 01.09.2025
-
-Steve Fair - Play Fair (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Play Fair (3:33)
-02.  Blown Away (3:25)
-03.  Bench Seat (4:58)
-04.  Who's Truck We Takin' (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7F137FDBE9DBF74C0566F6FE97C4E6009ED18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815925   (4781) от 01.09.2025
-
-Maria Oswen - Nu Woman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Be the Woman You Deserve to Be (3:05)
-02.  Did I Just Seduce You (4:00)
-03.  Give Me Your Energy (3:12)
-04.  Tantra (3:12)(   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF4D38999E02385AA33DBF456649BA2B448CB51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815933   (4777) от 01.09.2025
-
-No Bull - Rock N Roll Remains Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Overdrive (3:25)
-02.  Straight up Rough (3:17)
-03.  Rock Away Your Ills (4:20)
-04.  Blown a Fuze (5:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F4ECE4C34D914EEF7E66E3B477E8553DFCE425A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815854   (4771) от 01.09.2025
-
-Evocatus - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evocatus - метал-группа из Австралии, основана в 2012 году.2014 - Evocatus (EP)
-2017 - Mortem in Deos
-2020 - Path to Tartarus
-2025 - Inevitable Death(   Читать дальше...   )Жанр: Heavy/Thrash Metal, Melodic Death MetalПродолжительность: 03:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B59F17ED7164D2B3C0603BAA29A619103314621
 ```
 
 https://mybot314.ru/tekegram_catalog/

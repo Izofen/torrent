@@ -1,3 +1,32 @@
+###  Публикация: 1291553   (668914) от 25.03.2019
+
+Kristin Berardi - Where Or When (2015) ABC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where or When [4:38]
+02. Lucky 13 [4:47]
+03. Suzanne [6:13]
+04. Born to Be Blue [5:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088B98558D92FCBD1568921BA51FA9B78F4FE2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291557   (668912) от 25.03.2019
 
 The Modern Jazz Quartet - A La Plaza de Toros (1971) 1992, Oscar Records [FLAC|Lossless|tracks + .cue] <Cool>
@@ -722,35 +751,6 @@ Dee Alexander - Songs My Mother Loves (2014) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72B89B4CB696FA9AED946835A2ABBF4ADD4818AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537902   (665586) от 18.03.2022
-
-Junior Mance Trio - Live At Cafe Loup (2007) JunGlo Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broadway [5:12]
-02. Blue Monk [8:51]
-03. For Dancers Only [9:06]
-04. What Is This Thing Called Love? [12:24](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D9BD8BF9B90694B0BE9C93CB68284580A8E2C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

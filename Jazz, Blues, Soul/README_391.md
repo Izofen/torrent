@@ -1,3 +1,61 @@
+###  Публикация: 1186803   (284797) от 26.11.2017
+
+Rob Schneiderman - Radio Waves (1991) Reservoir [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Extra Time [08:31]
+02. Gravitation [06:37]
+03. Blue Moon [08:51]
+04. There's a Small Hotel [05:55](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AB80A8C1131056654F7458C62D9C499F231D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186797   (284793) от 26.11.2017
+
+Alex Riel & Stefan Pasborg - Drumfaces (2013) Stunt Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernie's Tune [07:51]
+02. Byen Vagner [06:08]
+03. Big Noise from Winnetka [06:07]
+04. Lux [05:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CD7B3FD97825B63F5888D24032A00B598E27EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263925   (284685) от 21.11.2018
 
 Stephane Wrembel - The Django Experiment: Live In Rochester (2016) 2CD, Water Is Life Records [FLAC|Lossless|tracks + .cue] <Guitar Jazz, Gypsy Jazz>
@@ -687,64 +745,6 @@ VA - Timeless 15th Anniversary Sampler (1991) Timeless Records[FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8CAC110F54C7BE7E26B417FD339B2A6985374FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080752   (283068) от 10.12.2016
-
-The Jive Aces - Spread A Little Happines (2015) [FLAC|Lossless|image + .cue] <Neo-Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spread A Little Happiness (2:43)
-02. Bare Necessities (2:09)
-03. Dolce Vita (3:15)
-04. L.O.V.E (2:49)(   Читать дальше...   )Жанр: Neo-SwingПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7935D3A468003911701CEB4F8D25F0415DBB720A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081247   (283063) от 10.12.2016
-
-Bert Kaempfert & sein Orchester - Seine größten Erfolge (1993) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderland By Night (3:15)
-02. Cherokee (3:43)
-03. Lullaby For Lovers (2:21)
-04. A Swingin' Safari (3:08)(   Читать дальше...   )Жанр: Jazz-Pop, Easy ListeningПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836BC4E9626B1EDB1820EE10DF122E5BD42B8C7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

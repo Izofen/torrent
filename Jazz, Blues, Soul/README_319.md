@@ -1,3 +1,91 @@
+###  Публикация: 1059288   (464157) от 03.10.2016
+
+Neal Black & The Healers - Before Daylight (2014) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus & Johnny Walker   (05:35)
+02. Hangman's Tree   (04:48)
+03. The Peace Of Darkness   (03:55)
+04. Mama's Baby   (04:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EECB44F0935862E51DC4D284B02BEC1A02253C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407508   (464116) от 08.09.2020
+
+Muddy Waters & Rory Gallagher - The London Muddy Waters Sessions (1996) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Man Blues
+02. Key To The Highway
+03. Young Fashioned Ways
+04. I'm Gonna Move To The Outskirts Of Town(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454C0111FD403A38AA35C82AFF032B9A06931AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059022   (463876) от 03.10.2016
+
+Scott Henderson (Tribal Tech, Vital Tech Tones, HBC) - 20 альбомов (1985-2015) 21 CD [WavPack|Lossless|image + .cue] <Jazz-Rock, Fusion, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Скотта Хендерсона стоит отдельно в списке самых влиятельных и талантливых гитаристов мира.
+ Его внушительный вклад в развитие джаза и блюза, работы с Чиком Кориа, Жаном-Люком Понти и Джо Завинулом, создали Хендерсону славу одного из авторитетнейших представителей этих направлений...1994 - Dog Party (Mesa Recordings 79073)
+1997 - Tore Down House (Mesa Recordings 7567-92722-2)
+2002 - Well to the Bone (Blues Bureau International BB-2045 2)
+2005 - Live! 2CD (Tone Center TC 4037 2)(   Читать дальше...   )Жанр: Jazz-Rock, Fusion, Blues-RockПродолжительность: 20:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28B129FC1E4F80A634091100C5E65E0AA65BC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246383   (463703) от 10.09.2018
 
 Carmen Lundy - Code Noir (2016) Afrasia Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -676,93 +764,6 @@ VA - Blues Guitar Duels (1997) [MP3|256 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD7CA314B248A2E07B8A1B4F06BF47BF8FD32C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941018   (462717) от 27.09.2015
-
-Mindi Abair And The Boneshakers - Live In Seattle (2015) Live [MP3|320 кб/с]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here She Comes (Live) (01:09)
-02. Wild Heart (Live) (04:38)
-03. Haute Sauce (Live) (07:51)
-04. I Can't Lose (Live) (04:12)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983739638A7A76A30D58C7C9F055532449BFD4D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941041   (462709) от 27.09.2015
-
-Thorbjorn Risager & The Black Tornado - Songs From The Road (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Wanna Leave (04:49)
-02. Paradise (04:59)
-03. Drowning (04:16)
-04. Baby Please Don't Go (03:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76104E923219D49EF7557C1DBE16BC6EF005194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407710   (462595) от 09.09.2020
-
-Freddie Fox - Limitless (2020) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top It Off (05:41)
-02. Too Tuff (03:49)
-03. Lets Dance (04:14)
-04. Sweet Kisses (04:56)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE9584F409984451BA7AB58D36753ADF7B5E1F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

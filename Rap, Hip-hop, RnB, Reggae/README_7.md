@@ -1,3 +1,61 @@
+###  Публикация: 1370540   (896704) от 27.03.2020
+
+Childish Gambino - 3.15.20 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, R&B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 0.00 (02:59)
+02. Algorhythm (03:32)
+03. Time (06:07)
+04. 12.38 (06:32)(   Читать дальше...   )Жанр: Hip-Hop, R&BПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC643368690BB71BA491F46258560A133FF6C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370521   (896689) от 27.03.2020
+
+Jessie Reyez - BEFORE LOVE CAME TO KILL US (2020) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Funk>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DO YOU LOVE HER (03:16)
+02. DEAF (who are you) (02:53)
+03. INTRUDERS (03:05)
+04. COFFIN (Feat. Eminem) (04:22)(   Читать дальше...   )Жанр: R&B, Soul, FunkПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4E7B3676F45ED6115F72211192207E65D0A471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370627   (895294) от 28.03.2020
 
 N.Masteroff - Все мечты давно сгорели (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -705,64 +763,6 @@ A$AP Twelvyy - Before Noon (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44D9361E1E54416D7D08878579362ECD27B3409A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372346   (885362) от 03.04.2020
-
-Dropout Kings - GlitchGang (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PitUp [03:30]
-02. GlitchGang [02:25]
-03. Virus [03:04]
-04. Devil'sPlayground [03:46](   Читать дальше...   )Жанр: Rap, Rapcore, Nu MetalПродолжительность: 00:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B379A4057B98A04256629ADF79A14F0BB6AA580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372341   (885357) от 03.04.2020
-
-Enemy Radio - Loud Is Not Enough (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2020 [02:46]
-02. STD (Slavery Transmitted Disease) [02:26]
-03. Born Woke [02:46]
-04. Food As A Machine Gun (feat. Public Enemy) [03:55](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F245AC270DC68B36729ECE4D30879E7024A2CC7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

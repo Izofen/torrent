@@ -1,3 +1,32 @@
+###  Публикация: 1606259   (1044160) от 25.01.2023
+
+VA - Black Hole Trance Music 01-23 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Clara Yates - Million Stars (Extended Mix) [07:47]
+02. Fisherman & Nifra - Passion (Extended Mix) [06:32]
+03. Alex Kunnari & AK & Christian Burns - Anywhere With You (Extended Mix) [05:13]
+04. Johan Gielen & Tastexperience - Serenity (Extended Mix) [07:37](   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABE874D347A56199200D4BB19244692B8E556FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607357   (1043959) от 27.01.2023
 
 VA - Trance Party 2023 (2023) [MP3|320 Kbps] <Trance>
@@ -714,35 +743,6 @@ VA - Best Of Trancer (Mixed by Nick Turner) (2020) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D44EF8E77F01F2F5A734E4A40E0D8DF876B8CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439282   (1040156) от 12.01.2021
-
-VA - The VERSE Uplifting Trance Journey 2020 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arentis & Jovi Frost - Flora's Touch (Intro Mix)
-02. Joe Cormack & Binary Ensemble - For The Ones We Love (Original Mix)
-03. Joulez - Summer Rain (Original Mix)
-04. Joulez - Wishes For Tomorrow (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4969066B16C95A4B3CA2F0EB32563E280FF00A10
 ```
 
 https://mybot314.ru/tekegram_catalog/

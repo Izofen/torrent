@@ -1,3 +1,119 @@
+###  Публикация: 1099076   (907180) от 31.01.2017
+
+VA - Twelve Inch Eighties: When the Going Gets Tough (2017) [MP3|320 Kbps] <Pop, R&B, New Wave, Italo Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907180.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+
+01. Belinda Carlisle - Leave A Light On (Extended Version) 08:07
+02. The Bangles - Walk Like An Egyptian (Extended Version) 05:50(   Читать дальше...   )Жанр: Pop, R&B, New Wave, Italo DiscoПродолжительность: 03:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD99B53CBA76F49E5F752526E1F75BF36D722C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368716   (907086) от 21.03.2020
+
+Вадим Казаченко - Лучшее (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907086.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Глаза в глаза
+2. На волоске
+3. Бегу за тобой
+4. Ты одна такая(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40B9C93955FFC5E93CF60421CF03DAEA6C67D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098983   (907074) от 31.01.2017
+
+VA - 30 Stars: Love (2017) [MP3|320 Kbps] <Roots Rock, Alternative, Electro Soul, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907074.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Kelly Clarkson - Heartbeat Song 03:20
+02. Little Mix - Love Me Like You 03:17
+03. Sara Bareilles - Love Song 04:19(   Читать дальше...   )Жанр: Roots Rock, Alternative, Electro Soul, CountryПродолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22AD9E4FD60402B659CB6E4E4BD9D0507FD4CFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099093   (906782) от 31.01.2017
+
+Marian Hill - Act One (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic, Minimalist>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down
+02. Talk to Me
+03. Wild
+04. Bout You(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E243C848BADF6F195A22DCEB347D24D54ABD2926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099151   (906642) от 31.01.2017
 
 Marian Hill - Sway (2015) EP [FLAC|Lossless|tracks] <Alternative Pop, Electronic, Minimalist>
@@ -632,119 +748,6 @@ Dua Lipa - Future Nostalgia (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AE3F7E234D2366E2414F29BBE36539F9D8646DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369357   (903255) от 23.03.2020
-
-Dua Lipa - Future Nostalgia (2020) [MP3|320 Kbps] <Synthpop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia
-02. Don't Start Now
-03. Cool
-04. Physical(   Читать дальше...   )Жанр: Synthpop, DanceПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0909C37CF5C99EA47CC914214207EF998DC1DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369192   (903138) от 23.03.2020
-
-Army of Lovers - Master Series (1997) [FLAC|Lossless|image + .cue] < Disco, Euro House, Synth-pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crucified (03:34)
-02. Ride the Bullet (1991 remix) (03:30)
-03. My Army of Lovers (03:29)
-04. Obsession (03:44)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B92A14B03EADFEA8B8595E0EFC3724226BEB09B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099678   (902952) от 02.02.2017
-
-Sandra - Reflections (2006) Compilation [FLAC|Lossless|image + .cue] <Europop, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Around My Heart (3:23)
- 02. Stop For A Minute (3:46)
- 03. Hi! Hi! Hi! (4:17)
- 04. Maria Magdalena (3:57)(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF2D42C4EFEF6D95ED525FA93FC4B9A7193FD02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293241   (902922) от 09.02.2011
-
-Dee D. Jackson - Space And Time (2010) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DiscoПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

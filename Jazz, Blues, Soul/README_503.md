@@ -1,3 +1,32 @@
+###  Публикация: 1272782   (140844) от 29.12.2018
+
+Jimi Hendrix - Blues (1994) Remaster 2010 [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hear My Train Comin’ (Acoustic) 3:05
+02. Born Under a Bad Sign 7:37
+03. Red House 3:43
+04. Catfish Blues 7:47(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05CD307FA3B9A11DB2089803A26C64A597548F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195779   (140786) от 30.12.2017
 
 Ella Fitzgerald - Les Jazz RTL: La voix du swing (2012) 2CD [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -740,35 +769,6 @@ Oscar Peterson - An Christmas (1995) [FLAC|Lossless]<Jazz, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9030FD9D331A0FB7CBF04413F485C18AF7B1C630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970506   (139674) от 31.12.2015
-
-Joe Henderson - Big Band (1997) Verve Records[FLAC|tracks+.cue] <Post-Bop, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Without A Song [05:25]
- 02.Isotope [05:21]
- 03.Inner Urge [09:02]
- 04.Black Narcissus [06:54](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Big BandПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D70035BB7DE366F976D435B668746E4F9B2AD5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

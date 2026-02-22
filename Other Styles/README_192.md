@@ -1,3 +1,35 @@
+###  Публикация: 1782734   (69940) от 02.03.2025
+
+Джонатан Кристенсон - ВОРОН: Воображаемая жизнь и загадочная смерть Эдгара Аллана По (2025) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состоялся релиз мюзикла «Ворон: Воображаемая жизнь и загадочная смерть Эдгара Аллана По». Это канадский мюзиkл, шедший в городе Эдмонтон, в театре «The Catalyst». БАЯРУНАСконцерт представило русскоязычную версию мюзикла в аудио формате.
+Алексей Горшенёв — Артист 1
+Кирилл Гордеев — Артист 2
+Эмиль Салес — Артист 3(   Читать дальше...   )1. Пролог
+2. Начнём сначала
+3. Семейка По, Часть 1
+4. Смерть Элизы(   Читать дальше...   )Жанр: OSTПродолжительность: 02:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E475388B41C97649EFD8434426EF676F49FEE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784719   (69538) от 12.03.2025
 
 Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
@@ -716,41 +748,6 @@ Jo Dee Messina - A Joyful Noise (2002) CD, Album [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D7479C94F1604B374F945F9B8FFCA2BA2BC8CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441024   (64272) от 25.01.2012
-
-Hans Zimmer - Sherlock Holmes: A Game of Shadows (2011) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Hans Zimmer - I See Everything (0:39)
-2. Hans Zimmer - That is My Curse (Shadows - Part 1) (1:52)
-3. Hans Zimmer - Tick Tock (Shadows - Part 2) (8:13)
-4. Hans Zimmer - Chess (Shadows - Part 3) (7:34)
-5. Hans Zimmer - It's So Overt It's Covert (3:19)
-6. Hans Zimmer - Romanian Wind (1:56)
-7. Hans Zimmer - Did You Kill My Wife? (2:42)
-8. Hans Zimmer - He's All Me Me Me (1:58)
-9. Hans Zimmer - The Mycroft Suite (1:41)
-10. Nicolaus Esterhazy Sinfonia & Hungarian Radio Chorus - To the Opera! (4:03)(   Читать дальше...   )2011Жанр: SoundtrackПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

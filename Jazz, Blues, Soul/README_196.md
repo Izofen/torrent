@@ -1,3 +1,90 @@
+###  Публикация: 1218422   (723401) от 09.04.2018
+
+Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Another Monday Night At Birdland (1958) 2016, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's You Or No One [08:36]
+02. Jamph [11:11]
+03. Nutville [10:17]
+04. Wee [11:29]Жанр: Hard BopПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34F53611ED0C33431EED961F2D3C5D308BEB686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400016   (723166) от 03.08.2020
+
+Chet Baker Quartet featuring Phil Markowitz - Live at Nick's (1989) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Thing for You Is Me [9:44]
+02. Broken Wing [9:56]
+03. This Is Always [8:27]
+04. Beautiful Black Eyes [17:11](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242D1CC7ACD2970E7404573EB595981419862EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400014   (723163) от 03.08.2020
+
+Bebop & Beyond - Plays Thelonious Monk (1990) Bluemoon [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Francisco Holiday [7:12]
+02. Brilliant Corners [7:02]
+03. Think of One [7:30]
+04. Crepescule with Nellie [4:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953EAE00F23D1EC8A7C5077BB71C98C09D849FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400018   (723153) от 03.08.2020
 
 Chet Baker - Peace (1982) 1989, Enja Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
@@ -658,93 +745,6 @@ Humphrey Lyttelton - Classic Years (2005) Delta Music [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2D523CC12752B675F8256FC221791ED0A4B8E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531633   (720833) от 16.02.2022
-
-Johnny Hodges And His Orchestra - Perdido & Creamy (1955) 2010, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rose Room [6:52]
-02. Blues For Basie [6:22]
-03. Mood Indigo [6:22]
-04. Squatty Roo [6:52](   Читать дальше...   )Жанр: SwingПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD4FC954F798BA6370AA3D2086C7336F7A0434F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129599   (720806) от 29.04.2017
-
-Cannonball Adderley Quintet - Cannonball In Japan (1966) 2004, Capitol [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Work Song [04:30]
-02. Mercy, Mercy, Mercy [05:19]
-03. This Here [10:14]
-04. Money In The Pocket [10:40](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6454EDCD2AE7B1B17BA90E2DB426C394D88C60D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129590   (720797) от 29.04.2017
-
-Shorty Rogers - Creative West Coast Swing (1951-1954) 4CD, 2005, Membran [APE|Lossless|tracks + .cue] <West Coast Jazz, Cool, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720797.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Popo [03:02]
-02. Over the Rainbow [03:01]
-03. Didi [02:27](   Читать дальше...   )Жанр: West Coast Jazz, Cool, Big BandПродолжительность: 02:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ED351E4DA7F9F9CB306919B8A268637903C4DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

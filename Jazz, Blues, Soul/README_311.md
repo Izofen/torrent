@@ -1,3 +1,90 @@
+###  Публикация: 938210   (482092) от 18.09.2015
+
+Mike Goudreau - Je Reste Accroche (2015) [MP3|320 кб/с]<Chicago & Texas Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Envoie ma belle (04:29)
+02. Je reste accroche (03:30)
+03. Arrete de boire (03:54)
+04. Melon d'eau Boogaloo (03:27)(   Читать дальше...   )Жанр: Chicago & Texas BluesПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E84FC99E78F23FE94D1A67518DE531F56CB17A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244441   (482085) от 01.09.2018
+
+Andrea Motis - Emotional Dance (2017) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He's Funny That Way [4:50]
+02. I Didn't Tell Them Why [2:30]
+03. Matilda [6:52]
+04. Chega de Saudade [5:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BBB9FCC7CF1EE1448827C44F635A2FB4E2F4E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056302   (482000) от 25.09.2016
+
+Paul Camilleri - One Step Closer (2011) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Step Closer   (04:44)
+02. Dance With Me   (04:24)
+03. Fire In My Heart   (04:17)
+04. On My Own   (07:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1F7DF905808899C9C0128825E7D3B22B7CD39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056354   (481994) от 25.09.2016
 
 VA - Coffee To Go Latin Jazz Vol.1 (2016) [MP3|320 Kbps] <Jazz, Bossa Nova, Easy Listening>
@@ -663,93 +750,6 @@ Eric Ramsey - On the Record (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34D2A59ABF62FD988A6F6251F78CBF4C8B7F2F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566669   (480428) от 30.07.2022
-
-Lumberjacks - Cut, Split and Stack (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Small Town Man (4:24)
-02. How Long (3:35)
-03. Good Things Are Coming (4:06)
-04. Gone Fishing (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A822EAF8E6E290C91AD05EA99042E904DC858BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566685   (480427) от 30.07.2022
-
-Sass Jordan - Bitches Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Alive And Well (3:37)
-02. Chevrolet (2:30)
-03. Even (3:55)
-04. Still The World Goes Round (4:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49D95732012E85C04445D52794A83641CA417D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566688   (480425) от 30.07.2022
-
-Scotty Charles - Rockin' the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Link in the Chain (4:17)
-02. Something Good is on the Way (4:27)
-03. Can't get Away From the Blues (3:35)
-04. Next Time Around (3:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3284D78F8D7C0A23F3E41D913E2C4043EC309B
 ```
 
 https://mybot314.ru/tekegram_catalog/

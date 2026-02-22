@@ -1,3 +1,32 @@
+###  Публикация: 1541035   (242694) от 03.04.2022
+
+Hush Money - Industry Standard (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over and Over
+02. You're Gone
+03. Starfish Blues (Bottom of the Sea)
+04. Open up Your Mind(   Читать дальше...   )Жанр: Modern Hard Rock, Southern RockПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62800AE88428CE9CE7F0846DBF83D81CFE801BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362591   (242474) от 24.02.2020
 
 Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -715,35 +744,6 @@ Tenhi - Valkama (2023) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Progressive R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC0E7087267BD02162C65B48022A1EEFD4C9813D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628842   (237108) от 02.05.2023
-
-ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237108.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Sunken Paths, Towering Vines (08:02)
-2.Glimmering Depths Below (05:26)
-3.Restoration Magic (07:52)
-4.A Change in the Weather (06:13)(   Читать дальше...   )Жанр: Dungeon Synth,  Medieval AmbientПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1CC6DD189D01907512BE293639805368CECC50
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 559739   (407455) от 14.10.2012
+
+Журнал | Кино Парк №8/9 (170) [август - сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407455.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Кино Парк" - полноцветный журнал для тех, кто любит кино. В журнале публикуется информация о премьерах, последних событиях, сплетни киномира, личная жизнь актеров, новинки видеорынка, театральная и киноафиша.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB5556ECDDE92274DE400B777F2EE9E210614FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574039   (407445) от 03.09.2022
 
 Vivaldi 5.4.2753.47 + Автономная версия (standalone) [Multi/Ru]
@@ -678,41 +704,6 @@ BluffTitler - программа для создания красивых тек
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F440D17DE106E3D54B7EB821FBCF875C3E3BFAD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560182   (407351) от 14.10.2012
-
-Aaron Watson - Real Good Time (2012) [MP3|320 кб/с]<Country>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407351.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2:23) 01. Real Good Time
-(3:44) 02. Summertime Girl
-(3:48) 03. Lips
-(3:35) 04. Turn Around
-(4:22) 05. July In Cheyenne (Song for Lane's Momma)
-(3:06) 06. Cadillac Cowboy (with Justin McBride)
-(2:23) 07. Fish
-(3:54) 08. Leather and Lace (with Elizabeth Cook)
-(3:32) 09. Raise Your Bottle
-(3:44) 10. Texas Boys (with Pat Green & Josh Abbott)Жанр: CountryПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2E97B71C054A498283A452C90111B832B9007E
 ```
 
 https://mybot314.ru/tekegram_catalog/

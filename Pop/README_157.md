@@ -1,3 +1,119 @@
+###  Публикация: 1549310   (593954) от 06.05.2022
+
+O.C.A - Ночной дожор (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593954.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бездна
+2. Зайки
+3. 7 нот
+4. Море(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AE871AF500CED2047B0D0DF93BB15ED437D44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233031   (593943) от 28.06.2018
+
+Johnny Wakelin - Reggae, Soul And Rock'N'Roll (1976) LP [MP3|320 Kbps] <Funk, Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reggae, Soul And Rock'n'roll (3:17)
+02. Cream Puff (2:22)
+03. In Zaire (3:18)
+04. Me I'm A Capricorn (3:34)(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A905BDBB78180FB53579273F3F13F5FDC63B6075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549343   (593904) от 06.05.2022
+
+VA - ZYX Club 2020/1 (2020) 2CD, Compilation [MP3|320 Kbps] <Dance, House, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Avila - Beautiful Girls (2:42)
+02. Vize feat. Laniia - Stars (VIP Remix) (2:36)
+03. Niels Van Gogh - Like a bullet (Radio Edit) (2:51)
+04. Teddy Cream - Summer Jam (2:42)(   Читать дальше...   )Жанр: Dance, House, TechnopopПродолжительность: 01:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B179FC38C0319D83DF567C719E8624A73951598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300235   (593880) от 05.05.2019
+
+Vicky Brown - The Collection (1993) [FLAC|Lossless|image + .cue] <Pop, Classical Crossover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't let go (4:16)
+02. The nearness of you (4:17)
+03. Stay with me til the morning (3:50)
+04. Jesu, joy of man's desiring (3:11)(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED50949303E9470EFC5D442096A1B89396FB8F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233099   (593837) от 28.06.2018
 
 VA - Двигай Попой!2 (1997) [FLAC|Lossless|image + .cue]<Pop, Dance>
@@ -627,122 +743,6 @@ Bonnie Pointer - Like a Picasso (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, R&B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3275647E4EC34298494D16AAB9EC1B65ABFC0EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915495   (592356) от 05.07.2015
-
-Timecop1983 - Synthetic Romance (2014) EP [MP3|320 кб/с]<80's Retrowave, Synthpop, Dreamwave, Synthwave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indigo Tears 04:54
-02. Secret Love 05:52
-03. Echoes 05:06
-04. Lonely Nights 05:00(   Читать дальше...   )Жанр: 80's Retrowave, Synthpop, Dreamwave, SynthwaveПродолжительность: 00:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A692D4F75286538958270C2C2598FD100A3F52FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915519   (592306) от 05.07.2015
-
-Timecop1983 - Waves (2014) EP [MP3|320 кб/с]<80's Retrowave, Synthpop, Dreamwave, Synthwave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight 05:04
-02. Closer 05:07
-03. In Your Arms 05:30
-04. Waves 05:02(   Читать дальше...   )Жанр: 80's Retrowave, Synthpop, Dreamwave, SynthwaveПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72303EDB8734BC4827315E0C0F001CD12F5BAFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915445   (592272) от 05.07.2015
-
-Timecop1983 - Reflections (2015) Limited Edition [MP3|320 кб/с]<80's Retrowave, Synthpop, Dreamwave, Synthwave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before Dawn (Intro) (01:53)
-02. Don't Let Go (Feat. Dana Jean Phoenix) (04:16)
-03. New Horizons (04:10)
-04. Tonight (Feat. BackInTheFuture) (05:01)(   Читать дальше...   )Жанр: 80's Retrowave, Synthpop, Dreamwave, SynthwaveПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1233E7C549FA69114822C1E2B22BF74A0514C1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915349   (592253) от 05.07.2015
-
-VA - Dance Classics (2CD Compilation) (1997) [MP3|320 кб/с]<Eurodance, House, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Varios - Dance Classics Mix (Radio Edit) (03:09)
-02. Technotronic - Pum Up The Jam (03:37)
-03. Corona - The Rhythm Of The Night (04:25)
-04. Culture Beat - Mr. Vain (06:35)(   Читать дальше...   )Жанр: Eurodance, House, Euro HouseПродолжительность: 02:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D738921552DDA36A2538CC4B05F61870B842FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

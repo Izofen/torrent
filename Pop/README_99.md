@@ -1,3 +1,119 @@
+###  Публикация: 1393785   (766212) от 02.07.2020
+
+VA - NRJ Summer Hits Only (2020) 3 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - летний сборник (   Читать дальше...   )01. Soolking feat. Dadju - Meleğim  (3:38)
+02. KAROL G & Nicki Minaj - Tusa  (3:21)
+03. Ava Max - Kings & Queens  (2:42)
+04. Soprano - Ninja  (3:05)(   Читать дальше...   )Релиз состоялся: 26 июня 2020 годаЖанр: Pop, Rock, DanceПродолжительность: 02:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D95DBC6DAEE7827520B14D76A38AA6A59ECCDA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279391   (766113) от 29.01.2019
+
+One-Two-Three - One-Two-Three (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор и продюсер: Bobby Orlando01. Runaway (5:19)
+02. Midnite Fantasy (5:22)
+03. Another Knife In My Back (6:05)
+04. Falling In Love With Myself (6:51)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC41E49229DF8423CCE174B3A938B6D6C5E30668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126303   (766004) от 17.04.2017
+
+VA - 100 Hits 80s Pop (2017) 5CD, Box Set[FLAC|Lossless|tracks + .cue] <80s, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкая ностальгия вас иногда пронизывает? Меня ностальгия не мучает – разве что иногда приятно вспомнить суету и веселье тех времен когда ничего в магазинах не было, но у всех всё было, когда была бесшабашная молодость и шабашки летом. А вы когда путешествуете по родным, далеким местам, какие чувства испытываете? Вот и этот сборник по волнам нашей памяти унесет нас (   Читать дальше...   )CD1:
+01. Dead Or Alive - You Spin Me Round (Like A Record)  (3:16)
+02. Haircut 100 - Fantastic Day  (3:15)
+03. Bros - I Owe You Nothing  (3:36)(   Читать дальше...   )Жанр: 80s, Pop, RockПродолжительность: 06:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B5AFCA43564E2B160C45ED7218C3E146A3854C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126607   (765486) от 18.04.2017
+
+Sound Of Music - 2 Albums (1986, 1987) CD [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шведская поп-группа, существовавшая с 1985 по 1987 год в составе вокалисток Angelique Widengren, Nanne Nordqvist со своим мужем Питерем Gronvall, композитором, клавишником и продюсером, сыном известного Benny Andersson из ABBA.01. A Pretty Lovesong (4:27)
+02. Eldorado (4:49)
+03. Peek-A-Boo (3:30)
+04. West Indies Nights (4:45)(   Читать дальше...   )Жанр: Electronic, Synth-pop, PopПродолжительность: 01:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD7894390B2DD6CFEDD54D297290BB2ECA0E699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126526   (765480) от 18.04.2017
 
 Sign System - Burning Down (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco, Europop>
@@ -629,122 +745,6 @@ The Lagoons - Midnight Afternoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF44DBC44554D441E1D998DD10A9E08FA80F9B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280082   (763650) от 01.02.2019
-
-НЕСОЛНЦЕ - Восход (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Рай
-02 - Проснись
-03 - Ау
-04 - Сладкая тоска(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B985490D856C7EC46FDE5B8706582053926805C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280162   (763642) от 01.02.2019
-
-VA - Bravo Hits,Vol.104 (2019) [MP3|320 Kbps] <Pop, Dance, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763642.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Ava Max - Sweet But Psycho 3:08
-02. HUGEL feat. Amber Van Day - WTF 2:41
-03. Rita Ora - Let You Love Me 3:10(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 02:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A766D1C3267B491E760FE8BA2FA21A914DC8345C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280078   (763639) от 01.02.2019
-
-Luis Fonsi - VIDA (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sola (3:24)
-02. Apaga la Luz (3:32)
-03. Le Pido al Cielo (4:07)
-04. Luis Fonsi & Ozuna – Imposible (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA6AC37E87D10C99DCCC7CEC8B0392EF2C29C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280074   (763638) от 01.02.2019
-
-Вика Дайнеко (Виктория Дайнеко) - Магнитные (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763638.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Твоя девочка
-2. Без ума
-3. Под красной луной
-4. По приколу(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFECDB9D2349F7058FC94439AD73509ED29F0567
 ```
 
 https://mybot314.ru/tekegram_catalog/

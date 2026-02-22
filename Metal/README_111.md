@@ -1,3 +1,32 @@
+###  Публикация: 1650468   (225670) от 02.08.2023
+
+Outlanders - From Chaos to Extinction (2023) [MP3|320 Kbps] <Heavy, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_225670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worship And Control (04:27)
+02. Subliminal Brutality (03:57)
+03. Miss Democracy (04:09)
+04. Keep Thy Religion To Thyself (03:59)(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A796C8E1DBD04D8C06D1BD2C4FFFFACB09CA5C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650644   (225030) от 03.08.2023
 
 Gatoebrio - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Hard Rock>
@@ -730,35 +759,6 @@ Gateway - Aeternae (2014) Demo [MP3|320 Kbps] <Death, Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E4C67EB60C1A8E3ED7259D52C43AAB561A01101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651251   (222537) от 06.08.2023
-
-Brutally Deceased - Black Infernal Vortex (2014) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divinity And Decay
-02. Devil's Tarn
-03. Day Of Darkness
-04. Black Hammer Of Satan(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884BB00D93B2F88FEDEDBE2C4083C76E029616B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 959471   (532125) от 11.09.2016
+
+Delain - 6 альбомов, 4 сингла (2006-2016) [MP3|320 кб/с]<Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532125.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 - Lucidity
+2007 - Frozen (Single)
+2007 - See Me In Shadow (Single)
+2009 - April Rain (Single)(   Читать дальше...   )Жанр: Symphonic Gothic Metal llПродолжительность: 06:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2E1FF5118187DE1DF5B2C623334DC714405B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 47358   (530922) от 11.08.2015
 
 Fear Factory - 14 Альбомов (1995-2015) [MP3|320] <Death metal\Industrial metal>
@@ -708,35 +737,6 @@ Final Light (Perturbator X Johannes Persson) - Final Light (2022) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D5E61FA66A1F01BD27567AE25F4B9AE17522D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928807   (521791) от 17.08.2015
-
-Plenty Of Nails - Aus Schatten Gerissen (2014) [MP3|320 кб/с]<Doom Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521791.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Der Gleisschlitzer
-2. Tiefer
-3. Memorandum
-4. Der Irrsinn(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD64FA218C861E0CEF3CBFFEE51E065C5DDB61CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 433776   (988191) от 09.01.2012
+
+[Wallpapers] Best Mix Wallpapers (42)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сборник HD обоев
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBE9D6E771F6AF76CCF3F86D77A8E59354EFCB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 433865   (988190) от 09.01.2012
 
 NG: Разбойники Селуса / Bandits of Selous (2008) [720p] HDTVRip
@@ -688,41 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0120A37703F74DE709DB8E2C1313257F632B55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432241   (988129) от 09.01.2012
-
-Markus Schulz - Global DJ Broadcast: World Tour - Sydney, Australia (2012-01-05) [MP3|256 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.	Global DJ Broadcast - Intro	(00:44)
-02.	ID - ID	(03:29)
-03.	KhoMha - The Sky Is Inside You	(06:05)
-04.	Koen Groeneveld - Slides (Markus Schulz Big Room Reconstruction)	(04:29)
-05.	Armin van Buuren - Blue Fear (Orjan Nilsen Remix)	(03:22)
-06.	Nash & Pepper pres. Ostrega - First Scream (Dennis Sheperd Remix)	(04:35)
-07.	Markus Schulz pres. Dakota - Cape Town (Sunnery James & Ryan Marciano Remix)	(04:29)
-08.	Gareth Emery & Ashley Wallbridge - Mansion	(04:09)
-09.	Markus Schulz pres. Dakota - Saints (Beat Service Remix)	(05:03)
-10.	Birdy Nam Nam - Goin' In (Bad Dancer Remix) (Markus Schulz Big Room Reconstruction)	(03:26)(   Читать дальше...   )2012-01-05Жанр: TranceПродолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5050BCCBFC12642C0EDB38D980BA414A265E4026
 ```
 
 https://mybot314.ru/tekegram_catalog/

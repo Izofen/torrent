@@ -1,3 +1,29 @@
+###  Публикация: 1037216   (615486) от 23.07.2016
+
+Шаблоны - CreativeMarket - Devices - Mockups V03 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615486.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 PSD-файлов с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 4000x2560px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D90B3E4FE891EB994F602F75E07359F8901507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037179   (615485) от 23.07.2016
 
 Шаблоны - CreativeMarket - Devices - Mockups [PSD]
@@ -642,32 +668,6 @@ Horror Photo Effect - шаблон для Вашего творчества.Фо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B67B156C279CD45C4B5AF9C957BA6860CDD7416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037422   (613427) от 24.07.2016
-
-Шаблоны - GraphicRiver - Glitch Effect Photo Template [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glitch Effect - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2000x3000 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B714975E3F4F6D541F27B54DD910985A5D86767
 ```
 
 https://mybot314.ru/tekegram_catalog/

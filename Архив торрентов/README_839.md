@@ -1,3 +1,29 @@
+###  Публикация: 281633   (940523) от 17.01.2011
+
+VA - A State Of Sundays Episode 18 (10.01.2011) [MP3|128-256 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 08:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F58E8D693358C6F47F755D718B6C7B3138E1E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 283827   (940522) от 17.01.2011
 
 Once Upon a Farm (P) [En] 2010
@@ -699,41 +725,6 @@ VA - Hypnotic Voices Volume 04 (2010) [MP3|320 kbps]<Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:035FF699A58FDBBC5DDD8D8F751728A11B62F47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283318   (940458) от 17.01.2011
-
-VA - Energy New Best Music top 50 TWELFTH (2011) [MP3|192-320 kbps]<Pop, Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Агент Смит - Завалю Снегом (DJ Solovey remix) (5:51)
-2. Ana Baston - Скандал (Dj Smart Remix) (4:03)
-3. Pink Floyd Vs DJKG - Another Brick in the Wall ( DJKG 2011 Electro Mix ) (5:00)
-4. Antoine Lavenant - I.M.A.L (5:17)
-5. Aruba Ice & Denis Kenzo - Novogodnyaya (S&D Project Radio Edit) (4:21)
-6. Aws - Explosion of Brain (Original Mix) (4:50)
-7. B.O.B. - Beast Mode (DJ Kue Remix) (4:55)
-8. Bart Widmore - Nuthouse (East Freaks Remix) (5:16)
-9. Blue Affair & Sasha Dith Ft. Carlprit - Я одна (Mondo Remix) (6:12)
-10. Britney Spears - Hold It Against Me (Happy HotDog Remix) (6:11)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 04:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575CB336FF72A5EFF79FC7B8378D6BD2ACB41D2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1482026   (1007867) от 06.07.2021
+
+Chris King Robinson - Chris King Robinson (2021) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Track You Down (03:31)
+ 02. Why Don't You Give Me Your Love (04:41)
+ 03. Million Miles Away (04:21)
+ 04. Going My Own Way (03:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9692FD3F709A8134F0C7046679E92D0E285007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482053   (1007839) от 06.07.2021
+
+Barbara Lewis - Don't Forget About Me: The Atlantic & Reprise Recordings (2020) 3CD [FLAC|Lossless|tracks + .cue] <Rhythm & Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Longest Night of the Year (Mono Single) (2:23)
+02. My Heart Went Do Dat Da (Mono Single) (2:22)
+03. My Mama Told Me (aka 'My Momma Told Me') (2:14)
+04. Gonna Love You Till the End of Time (2:16)(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 03:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F111F09EAEA8612F6C7B92B8C84DE03980A677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482158   (1007788) от 07.07.2021
+
+Dave Brubeck - In Berlin (1964) 1999, SME Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Louis Blues [12:03]
+02. Koto-Song [6:59]
+03. Take the 'A' Train [7:43]
+04. Take Five [7:09]Жанр: Cool, Mainstream JazzПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBC6410B5EDDC805ECC72125CABB69DD326B020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482154   (1007785) от 07.07.2021
 
 The Dave Brubeck Quartet - Time Outtakes (1959) 2020, Brubeck Editions [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
@@ -658,93 +745,6 @@ Johnny Holiday - Sings (1954) 2004, Contemporary Records [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BEC93AFCC54C16FEB4B759CCF5296FA31AB0FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483842   (1006534) от 16.07.2021
-
-Lena Horne - Love Songs (50-e - 60-e) 2005, Legacy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me or Leave Me [3:12]
-02. The Man I Love (Live) [4:29]
-03. What Is This Thing Called Love? [2:42]
-04. At Long Last Love [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99D4E6330D8F7073A6871ED0D4A80BB714D50A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483893   (1006516) от 16.07.2021
-
-Ben Jud - Hope (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope (Intro) (1:36)
-02. Glad You Made It (3:43)
-03. In My Chest (3:48)
-04. Believe in Myself (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE390F5F5E4C562AA328AC7E9B1F8860F57751D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483906   (1006507) от 16.07.2021
-
-Chris King Robinson - Chris King Robinson (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Track You Down (3:31)
-02. Why Don't You Give Me Your Love? (4:41)
-03. Million Miles Away (4:21)
-04. Going My Own Way (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F0994829D0F46931BB3E71D19BA11E817A89AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

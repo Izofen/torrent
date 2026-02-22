@@ -1,3 +1,32 @@
+###  Публикация: 810333   (144561) от 27.12.2019
+
+Stardown - 3 Альбома + 2 Компиляции (2007-2019) [MP3|320 кб/с] <Groove Metal, Modern Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144561.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 - Insi Deus (Limited Edition)
+2011 - Venom
+2014 - Void (2CD)
+2015 - Fill The Void (Compilation)(   Читать дальше...   )Жанр: Groove Metal, Modern Metal, MetalcoreПродолжительность: 04:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4C910DD1F5E913844AB2EDC2C5C51C4C1EB02C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272435   (144112) от 27.12.2018
 
 Metallica - 30 Years of Justice (2018) Live [MP3|320 kbps] <Thrash Metal>
@@ -20,35 +49,6 @@ Metallica - 30 Years of Justice (2018) Live [MP3|320 kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19E3EDDBE7F6DFC5456D38A5637F540EC2FB4CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678700   (143971) от 22.11.2023
-
-Ohmwork - In Hindsight (2023) [MP3|320 Kbps] <Hard 'n' Heavy Metal, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trial Of The Witch, Pt. II (04:20)
- 02. 17 Years (04:25)
- 03. Welcome To My Insanity (04:10)
- 04. Turmoil (05:13)(   Читать дальше...   )Жанр: Hard 'n' Heavy Metal, StonerПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E3FFEE7200D2E396A93631DD0C553D98CC83FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

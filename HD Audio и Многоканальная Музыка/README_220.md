@@ -1,3 +1,176 @@
+###  Публикация: 1737842   (49545) от 19.07.2024
+
+Пикник - Один на один (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Art.Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Один на один (3:34)
+02. Вдоль по улице, по бесстыжей (3:24)
+03. Ой ты, Солнце, закатись! (4:08)
+04. А зовут его: Оторви и Брось (4:38)(   Читать дальше...   )Жанр: Art.RockПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2F64B9F9FEDBBFA564BACC5293E395D5FC489B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737774   (49514) от 19.07.2024
+
+Deep Purple - =1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me (3:59)
+02. A Bit On The Side (4:11)
+03. Sharp Shooter (3:44)
+04. Portable Door (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27024FD72F79A426191E275A15FF8BCDCFF1D777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548750   (49139) от 23.07.2024
+
+Deep Purple - Studio Albums (13 releases) (1984-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Purple — британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия, и считающаяся одной из самых заметных и влиятельных в хард-роке 1970-х годов. Музыкальные критики считают Deep Purple одними из основателей хард-рока и высоко оценивают их вклад в его развитие.1984 - Perfect Strangers
+1987 - The House of Blue Light
+1990 - Slaves and Masters
+1993 - The Battle Rages On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 12:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CC58E5ED6B97AF7519F75D3798FD6D805E6255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738813   (48975) от 24.07.2024
+
+Beth Hart - You Still Got Me (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Still Got Me (6:01)
+02. Little Heartbreak Girl (4:19)
+03. You Still Got Me (Edit) (4:20)Жанр: Blues RockПродолжительность: 00:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C23EC4C368D8C3F78624E7491047EF4EC5E347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738710   (48971) от 24.07.2024
+
+Kiss - Studio Albums (5 releases) (1992-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kiss — американская рок-группа, основанная в Нью-Йорке в январе 1973 года, играющая в жанрах глэм-рок и хард-рок. Широко известна развитием направления шок-рок, сценическими макияжами её участников, а также концертными шоу, сопровождающимися различными пиротехническими эффектами.1992 - Revenge
+1997 - Carnival Of Souls: The Final Sessions
+1998 - Psycho Circus
+2009 - Sonic Boom(   Читать дальше...   )Жанр: Hard Rock, Glam, Heavy MetalПродолжительность: 05:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B0AE4571FBE4AFBF873A19A576B501E69A5561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624880   (48884) от 25.07.2024
+
+Imagine Dragons - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Imagine Dragons — американская поп-рок-группа, образованная в 2008 году в городе Лас-Вегас, США.2012 - Night Visions
+2015 - Smoke + Mirrors
+2017 - Evolve
+2018 - OriginsЖанр: Alternative & IndieПродолжительность: 07:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41718B91F055A9695DD40813888981042C8145E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627141   (48685) от 27.07.2024
 
 Powerwolf - Studio Albums (11 releases) (2005-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
@@ -567,178 +740,6 @@ VA - Одинокий пастух. Два Альбома (1998, 2001) [FLAC 2.0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23AA3AE43B2068EF2E15091B503AF72A0D0A8A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743361   (46696) от 15.08.2024
-
-Marilyn Manson - Raise The Red Flag, As Sick As The Secrets Within (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam Rock, Gothic Rock, Industrial Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raise The Red Flag (4:49)
-02. As Sick As The Secrets Within (5:36)Жанр: Glam Rock, Gothic Rock, Industrial RockПродолжительность: 00:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88EBB0051C7B1FA1503BD0D1C010FF30E7DDFEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743527   (46520) от 17.08.2024
-
-Falling In Reverse - Popular Monster (2024) [FLAC 24/44.1,96|Lossless|WEB-DL|tracks] <Alternative Metal, Rap Rock, Eleсtronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prequel [00:03:53]
-02. Popular Monster [00:03:40]
-03. All My Life [00:03:10]
-04. Ronald [00:03:16](   Читать дальше...   )Жанр: Alternative Metal, Rap Rock, EleсtronicПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71306EE1C91261431E0DCDBB02DE55AC3495394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743722   (46493) от 17.08.2024
-
-Meghan Trainor - Timeless (2024) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Europop, 	Funk, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make A Move [00:02:35]
-02. Criminals [00:02:34]
-03. Crushin' [00:02:03]
-04. Bestie [00:03:11](   Читать дальше...   )Жанр: Europop, 	Funk, SoulПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7913E1987DAA91BB9F35A9A091BCC46A0E395319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743696   (46488) от 17.08.2024
-
-VA - MTV Hits vol. 23 (1994) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Take That - Sure
-02. M. Carey & L. Vandross - Endless Love
-03. Shampoo - Trouble(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBBFF1DF2226D9BD4C4E391E558EF9C44227A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743896   (46288) от 19.08.2024
-
-Written By Wolves - THE LIGHTHOUSE (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Modern Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ADRIFT (0:25)
-02. GIVE 'EM HELL (4:07)
-03. MISERY (4:02)
-04. DARK PLACES (0:08)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF52DB48E43924A5F1BC9665E8688DCEBEE618DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744103   (46287) от 19.08.2024
-
-Richard Clapton - Goodbye Tiger (1977) Remaster, 2024, WM Australia [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rhythm and Blues, Rock and Roll, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down in the Lucky Country (2024 Remaster) [00:03:43]
-02. Wild Child (2024 Remaster) [00:03:35]
-03. Goodbye Tiger (2024 Remaster) [00:05:41]
-04. I Can Talk to You (2024 Remaster) [00:06:14](   Читать дальше...   )Жанр: Rhythm and Blues, Rock and Roll, Blues RockПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88A40E7AB7A7B5F1387E2C298A0764936B08B7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

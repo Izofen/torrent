@@ -1,3 +1,119 @@
+###  Публикация: 1221710   (691452) от 26.04.2018
+
+French Kiss - Panic! (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panic / Save Me (Suite) (8:37)
+02. We're the Right Combination / Right Combination (Suite) (9:01)
+03. You Got Me Groovin' (5:09)
+04. All Out of Tears / Lovin' Tears (Suite) (7:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BE08B5028BB170048367F22C16DB5EB3DDC323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134076   (691417) от 14.05.2017
+
+Кристиан Рэй & МФ3 - Жар (1997) [TAK|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - О-Э-О
+02 - Тихий вечер
+03 - Дикая кошка
+04 - Город(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F25FD970B7265ADA5F33E4F3CA3C37B8892615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134190   (691403) от 14.05.2017
+
+VA - Top Of The Spot 2017  [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons – Believer
+02. Lp – Lost on you
+03. The Strumbellas – Spirits
+04. Jake Bugg – Lightning bolt(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B82E221147725844F8FC333A7DF33812F59943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134055   (691289) от 14.05.2017
+
+VA - Русское счастье (Romantic Melodies) (2006) [TAK|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Павел Кашин - Московская Одиссея
+02 - Михей & Асман + Пицца - По волнам
+03 - Алёна Свиридова - В городе N
+04 - Гости из будущего - Разбить души твоей стёкла(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08763E3389DBA1BCBC74186129AAC5813A43B698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221879   (691253) от 26.04.2018
 
 Елена Темникова - TEMNIKOVA III: Не модные (2018) [MP3|320 Kbps] <Pop>
@@ -638,122 +754,6 @@ Umberto Tozzi - Grandes Exitos (2001) [FLAC|Lossless]<Italo-pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222263   (687586) от 28.04.2018
-
-Folk & Røvere - Kaustisksoda (1998) Sonet Grammofon AS [MP3|320 Kbps] <Breaks, Trip Hop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тот самый случай, когда яблоко упало прямо под яблоней: Беате - дочь польского джазового скрипача Здзислава Леха и норвежской преподавательницы музыки. Родилась и выросла в Норвегии. Уже во время учёбы в университете Осло познакомилась с будущим мужем, музыкантом Мариусом Рексо. С ним они сначала учавствовали в группах "Insertcoin" и "Folk og Røvere", (   Читать дальше...   )01. Cowboy & Indianer 4:48
-02. Prozac 5:19
-03. Bris 5:48
-04. Banemesterkhan 3:52(   Читать дальше...   )Жанр: Breaks, Trip Hop, Synth-popПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D28632F227545F70C7C7B819F00AA5F55D37CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222370   (687488) от 28.04.2018
-
-T.J.M. - TJM (1979) Reissue CD, Big Break Records, 2011 [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Need No Music (9:47)
-02. Put Yourself In My Place (9:17)
-03. Small Circle Of Friends (11:14)
-04. Am I Dreaming (8:14)Жанр: Funk-Soul, DiscoПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4A3E7DF603E333D04357DFBC63CA2BA3BEFAC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134656   (687433) от 16.05.2017
-
-VA - Beach Party 2 (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Black Pitch - Hard Bass 05:51
-02. Novacloud - Potion 05:11
-03. Olleo - Cyclone 05:43
-04. Josh Nor - Bulan 05:55(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCEEDFECFEDFCD01F8DFF9B8125566A2834CD0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134516   (687349) от 16.05.2017
-
-VA - It's So Disco Vol 2 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - De La Disco (original mix) (04:47)
-02. Audio Jacker - Go With The Flow (original mix) (05:21)
-03. Daft Funk - Makes Sense To Me (original mix) (05:27)
-04. Discotron - 60 Seconds 4 Love (original mix) (05:51)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9445AEE6BC6016808E91B79FBA0EADCE3B2EE31
 ```
 
 https://mybot314.ru/tekegram_catalog/

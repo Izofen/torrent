@@ -1,3 +1,29 @@
+###  Публикация: 1211464   (777377) от 07.03.2018
+
+Movavi Video Suite 17.3.0 RePack by KpoJIuK  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Suite – это пакет программ на русском языке, который поможет вам без труда смонтировать отличный фильм, музыкальный клип или слайд-шоу, даже если вы совсем новичок в создании видеороликов. Накладывайте музыку, применяйте визуальные эффекты, добавляйте титры и стильные переходы – обрабатывайте видео на свой вкус! Также в Movavi Video Suite входит набор (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DEA19A4F1C5EFA8DAB28D2A2163232B0E1E09B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211450   (777371) от 07.03.2018
 
 Форма воды / The Shape of Water (2017) HDRip [H.264]
@@ -691,35 +717,6 @@ QR-код является незаменимым и универсальным 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA0B5C169F1B44A6CFA427AB17E4C2B0CE5B0512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013849   (777305) от 05.05.2016
-
-Germind - Antimatter, Vol. 4 (2016) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snow Butterfly (05:58)
-02. Water Air Thoughts (07:47)
-03. Stars On Ice (06:09)
-04. Bird Flight Mission (07:47)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C17A935EBCBEFD9F27921222E86C7742F34789
 ```
 
 https://mybot314.ru/tekegram_catalog/

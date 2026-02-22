@@ -1,3 +1,35 @@
+###  Публикация: 616974   (971187) от 13.02.2013
+
+The Nymphs - Language of the Nymphs (2012) [MP3|192 кб/с]<New age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971187.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:39) 1. Sa Na Du
+(6:56) 2. Waka Zia
+(6:26) 3. Donde Djembeh
+(4:26) 4. Umna Sa
+(4:46) 5. Na No Mi Ne
+(5:46) 6. Adjah Bihem
+(5:04) 7. Nouri SamahЖанр: New age, Instrumental, RelaxПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517AA0BD7BCF379130E5DEDB194E8DEA3B78F4EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 440307   (971049) от 22.01.2012
 
 Midori (Medwyn Goodall) - Gregorian Harmony (2006) [FLAC|Lossless]<New Age, Relaxation>
@@ -774,41 +806,6 @@ VA - Birds of Prey / Хищные птицы (Потрясающая истор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:311378A72E690E63E71DF6D75707451E779CD6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618300   (969541) от 14.02.2013
-
-Pucaramanta - Sound of the spirits (2010) [MP3|~190 кб/с (V2)]<Native American,New Age,Ethnic,Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Qapaq Nan
-02. Chirapaq
-03. The Last Mohican
-04. Ananau
-05. Sunquyman
-06. Tananka
-07. White buffalo
-08. Kabra Nawy
-09. Paway Anka
-10. Abiu Tusuy(   Читать дальше...   )Жанр: Native American,New Age,Ethnic,FolkПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D439EBB0390D647F8B82AC433BC82CEDFA65AD28
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1297579   (603568) от 23.04.2019
+
+Альянс - Хочу летать! (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хочу летать! (4:44)
+ 02. Без тебя (4:20)
+ 03. Забытые слова (4:19)
+ 04. С тобой на краю (5:28)(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A12C50CAC41EE9F02A28E5EE0BEC10713C1F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298040   (602639) от 25.04.2019
 
 НРГ + Альянс - Неизданное эксклюзив!!! (2019) [FLAC|Lossless|Web-DL|tracks] <Pop Rock, New Wave, Synthpop>
@@ -725,35 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABF5D0969C46FD6DCE2335199B0199CB02DA061C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553586   (581871) от 26.05.2022
-
-Сектор Газовой Атаки - Ненависти вопреки (2022) [FLAC|Lossless|tracks] <Russian Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я не служил [00:03:09]
-02. Lips [00:03:10]
-03. Своей дорогой feat. ДМЦ, Наконечный [00:04:23]
-04. Все за тебя решено [00:04:01](   Читать дальше...   )Жанр: Russian Punk RockПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46AEF314BDF23AC6957607B8500761AFA19C5A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

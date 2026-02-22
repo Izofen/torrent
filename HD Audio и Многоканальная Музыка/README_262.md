@@ -1,3 +1,174 @@
+###  Публикация: 1783456   (1988) от 19.09.2025
+
+Ravager (Germany) - Studio Albums (4 releases) (2017-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ravager - метал-группа из Германии, г. Вальсроде, Нижняя Саксония2017 - Eradicate... Annihilate... Exterminate...
+2019 - Thrashletics
+2021 - The Third AttackЖанр: Thrash MetalПродолжительность: 02:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1C5C4D5782ED6180D0FEFF0B2DA2B289BFC3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818966   (1982) от 19.09.2025
+
+Paradise Lost - Ascension (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, Death Metal, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Serpent On The Cross [6:14]
+02 - Tyrants Serenade [4:21]
+03 - Salvation [7:08]
+04 - Silence Like The Grave [4:48](   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57F13431CD55E2D23B41969AAF3C15B8927FEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818985   (1963) от 19.09.2025
+
+Yasmine Hamdan - I remember I forget (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hon هون [00:04:38]
+02. Shmaali شمالي [00:03:49]
+03. Shadia شادية [00:03:35]
+04. The beautiful losers الحلوين الخسرانين [00:03:15](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2AC27BB059D0ADA03C5B85AB1A6159D4C6827E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818980   (1962) от 19.09.2025
+
+Native American Music Consort - The Calling of the Wolf (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Native American, World, New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voice of the Midnight Howl [00:03:12]
+02. Path of the White Fang [00:03:25]
+03. Moonlit Ancestral Rite [00:04:15]
+04. Guardian of the Frozen Peaks [00:03:29](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD5DB64ABB0A8812A030137A7D900CAD7D5DE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818885   (1950) от 19.09.2025
+
+Sins Of Omission - Studio Albums (2 releases) (1999-2001) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sins Of Omission - рок-группа из Стокгольма, Швеция. Образовалась в 1996 году1999 - The Creation
+2001 - Flesh On Your BonesЖанр: Melodic Death MetalПродолжительность: 01:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D73380091BA6939F041E1BE8C65A1D1BA970BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818973   (1946) от 19.09.2025
+
+Arjen Anthony Lucassen - Songs No One Will Hear (No Narration) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Rock, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clock Ticks Down (No Narration) [00:06:47]
+02. Goddamn Conspiracy (No Narration) [00:04:41]
+03. The Universe Has Other Plans (No Narration) [00:05:31]
+04. Shaggathon (No Narration) [00:02:45](   Читать дальше...   )Жанр: Prog Rock, Progressive MetalПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB9BE3B8A61601A3D579BEE7E96D44BBAF47B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819043   (1843) от 20.09.2025
 
 Nine Inch Nails - TRON: Ares (2025) Original Motion Picture Soundtrack [FLAC 24/48|Lossless|WEB-DL|tracks] <Soundtrack>
@@ -571,180 +742,6 @@ Bad Wolves - Die About It (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEE794F9986715206620F4275A2614EF85B20CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819344   (1566) от 21.09.2025
-
-7 Names Remain - Malcolm Ave (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Indigo Sky (4:49)
-02.  Peace of Mind (5:08)
-03.  Rescue Me (4:40)
-04.  Let's Run Away (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8139C8D9F76CD0CBE438C800815F6A08E0225B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819346   (1565) от 21.09.2025
-
-Alan Arena - Deceived (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Raised on Radio (3:05)
-02.  Believe in Yourself (4:35)
-03.  Deceived (3:18)
-04.  Big Black Cat (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA261768ACFD821354D57F728B0266903DF23050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819362   (1562) от 21.09.2025
-
-Juri Amicabile - Geared Up (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eviction (3:03)
-02.  Jimmy In N' Out (4:00)
-03.  41 (3:23)
-04.  Sugar (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13344A59DD68E6E5CA65461C0603E21B82557EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819366   (1561) от 21.09.2025
-
-Rusty Ends & Hillbilly Hoodoo - Roadhouses, Juke Joints and Honky-Tonks (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bad Like Billy the Kid (3:31)
-02.  The Same Thing (2:44)
-03.  Honky Tonk Man (2:51)
-04.  Lost in the Blues (3:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150AEE226318D0C322A9339F918B82B53572B8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819155   (1560) от 21.09.2025
-
-Ded - Resent (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative-Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasted [00:03:10]
-02. You Want Honest? [00:02:49]
-03. Purpose: Be Myself [00:03:00]
-04. Rockstar [00:02:55](   Читать дальше...   )Жанр: Nu-Metal, Alternative-Metal, MetalcoreПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3BE48A54081072B9ADD595CBFC2579A348C3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819348   (1558) от 21.09.2025
-
-Alice Armstrong - Fury & Euphoria (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Persephone (Intro) (2:11)
-02.  Punchline (3:23)
-03.  Good Love (3:21)
-04.  Bombshell (2:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2E8E1B516634CA44FE1FEACC8C678C1DE1B7E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

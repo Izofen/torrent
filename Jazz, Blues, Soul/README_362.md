@@ -1,3 +1,90 @@
+###  Публикация: 1256032   (359278) от 20.10.2018
+
+Don Byas - Complete American Small Group Recordings (1944 - 1946) 4CD, 2001, Definitive Records [APE|Lossless|image + .cue] <Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359278.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Riffin' and Jivin' [2:57]
+02. Free and Easy [2:52]
+03. Worried 'N Blue [3:15](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 04:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F42E94EC9137C85FEB203F287FA0520A60BF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255920   (359277) от 20.10.2018
+
+Trilok Gurtu - "Usfret" (1988) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shobharock (7:37)
+ 02. Shangri La / Usfret (13:02)
+ 03. Om (7:12)
+ 04. Deep Tri (7:03)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2028744CAE8415F625F48EDD10672FE1865A740D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255925   (359273) от 20.10.2018
+
+Evan Parker Electro-Acoustic Ensemble - The Eleventh Hour (2005) [FLAC|Lossless|tracks + .cue] <Jazz, Experimental, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Play (17:29)
+ 02. The Eleventh Hour, Part 1 (12:52)
+ 03. The Eleventh Hour, Part 2 (9:33)
+ 04. The Eleventh Hour, Part 3 (12:03)(   Читать дальше...   )Жанр: Jazz, Experimental, Free ImprovisationПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024CE657311C4D0E32B643B608AA0BE40E77856E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328911   (359267) от 02.10.2019
 
 Paul Bley - The Complete Footloose (1962 - 1963) 1987, King Record [FLAC|Lossless|tracks + .cue] <Piano Jazz, Post-Bop>
@@ -658,93 +745,6 @@ Brian Simpson - Something About You (2018) [FLAC|Lossless|image + .cue] <Smooth 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D455B97F83F872872E992E4DC9DA3942485250F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329066   (356522) от 03.10.2019
-
-Don Ray Band - 4 альбома (2009 - 2013) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Don Ray Band основан в 2009 году в Нэшвилле, штат Теннесси авторами песен и музыкантами мирового класса: Will McFarlane (Bonnie Raitt, Muscle Shoals Rhythm Section), Gary Dales (Leon Russell, 38 Special, The Van Zant Brothers), Jonathan Armstrong (Earl Thomas Conley), Jeff Offutt (Little Freddie King, Stan Hedges, Chicago Charlie). Don Ray родился в музыкальной семье (   Читать дальше...   )Список альбомов:
-2009 - On Top Of The Heap
-2010 - Lonesome Rider
-2012 - Full ThrottleЖанр: Blues-RockПродолжительность: 02:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2074EE25671965C5D70CBE7437B86E5F90962C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952218   (356337) от 01.11.2015
-
-Thad Jones - Mad Thad (1957) /1999, OJC/[FLAC|image+.cue]<Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Whisper Not [05:39]
- 02.Quiet Slip [09:05]
- 03.If You Were Mine / I'm Through With Love / Love Walked In [07:27]
- 04.Cat Meets Chick [05:27](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88167A0DC56A760B554B313BBAD74BB908098839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952214   (356336) от 01.11.2015
-
-Sonny Criss - The Joy Of Sax (1999) /Ars Nova/[APE|tracks+.cue]<Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You've Lost That Lovin' Feeling [04:18]
- 02.Don't You Worry 'Bout A Thing [05:38]
- 03.You Are So Beautiful [05:25]
- 04.Turn Me Loose [05:57](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6322F99DA91564298A81DCDF99DA5719F70B176
 ```
 
 https://mybot314.ru/tekegram_catalog/

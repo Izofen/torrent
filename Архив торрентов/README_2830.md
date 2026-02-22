@@ -1,3 +1,29 @@
+###  Публикация: 1551231   (590665) от 14.05.2022
+
+CyberLink AudioDirector Ultra 12.4.2906.0 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590665.jpg" />
+</div>
+
+
+###  Подробнее
+
+CyberLink AudioDirector Ultra – мощный инструментарий для обработки музыки. AudioDirector позволяет создавать собственные саундтреки с помощью многодорожечной записи, использовать средства микширования, автоматически удалять шумы и помехи и выполнять восстановление аудио. Благодаря возможности воспроизведения видео параллельно с редактированием звука пользователи (   Читать дальше...   )Язык интерфейса: Английский, немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F097E9FC3C85C89C607869AE2E17F6CD34351EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551138   (590658) от 14.05.2022
 
 IObit Smart Defrag Pro 7.5.0.121 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -654,35 +680,6 @@ Box предоставляет 10 ГБ под хранение данных и 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFA4BF3A154130247D0CA30D0C6FCD4E79D5756C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916662   (590442) от 09.07.2015
-
-Stefan Torto - The Forbidden Journey (2015) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ampoule (05:41)
-02. Radical Consciousness (05:14)
-03. Inside You I Can See (06:24)
-04. Hidden Forms Of Happiness (06:34)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75477D16ADA7370BBB318B3F0D4F576C17B83754
 ```
 
 https://mybot314.ru/tekegram_catalog/

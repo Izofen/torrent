@@ -1,3 +1,38 @@
+###  Публикация: 164384   (984123) от 09.01.2010
+
+VA - Monster Ballads Xmas (2007) (Skid Row, Queensryche, Dokken, Tom Keifer и т.д.) [MP3|192-320 kbps]<Heavy metal, Glam metal, Hard rock, Holiday>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Skid Row - Jingle Bells [00:03:01]
+02. Kip Winger - Happy Christmas (War Is Over) [00:04:06]
+03. Jani Lane of WARRANT - Have Yourself A Merry Little Christmas [00:03:34]
+04. Twisted Sister With Lita Ford - I'll Be Home For Christmas [00:04:08]
+05. Queensryche - White Christmas [00:02:27]
+06. L.A. Guns - Run Rudolph Run [00:03:09]
+07. Firehouse - Rockin' Around The Christmas Tree [00:03:06]
+08. Danger Danger - Naughty Naughty Christmas [00:04:54]
+09. Tom Keifer of CINDERELLA - Blue Christmas [00:04:14]
+10. Nelson - Jingle Bell Rock [00:02:51](   Дальше...)Жанр: Heavy metal, Glam metal, Hard rock, Holiday
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 163400   (984122) от 09.01.2010
 
 Night Club QUADRO - Quadro birthday ХIII (2005) [MP3|320 kbps]<Progressive Techno, Electro, Minimal>
@@ -702,32 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06B68FD80B6EFF0992A68350FD388265013DC4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613460   (984070) от 03.02.2013
-
-Суррогат / The Sessions (2012) [1080p] Blu-ray
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тридцатишестилетний Марк О`Брайен, подключенный к аппарату для искусственного дыхания, решает, что больше не хочет быть девственником.Жанр: ДрамаРежиссер: Бен ЛуинАктеры: Джон Хоукс, Хелен Хант, Уильям Х. Мэйси, Мун Бладгуд, Анника Маркс, Ри Перлман, Адам Аркин, У. Эрл Браун, Робин Вайгерт, Блейк ЛиндслиПеревод: Многоголосый закадровыйЯзык субтитров: Русские, английские, арабские, болгарские, китайские, хорватские, чешские, эстонские, французские, греческие, иврит, венгерские, исландские, индонезийские, корейские, латышские, литовские, малайские, польские, португальские, румынские, сербские, словенские, испанские, тайские, турецкие, украинские, въетнамскиеПродолжительность: 01:35:07
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

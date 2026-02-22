@@ -1,3 +1,90 @@
+###  Публикация: 1026448   (704156) от 15.06.2016
+
+Tom Killner - Hard Road (2015) [FLAC|Lossless|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home    02:46
+02. Ain't No Rest for the Wicked    04:56
+03. Feeling Good    05:31
+04. Fake It    02:49(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA91D035E56C3968E107315F1EA161A747C46D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402119   (703947) от 13.08.2020
+
+Hampton Hawes - Three Classic Albums Plus (1955 - 1956) 2013, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703947.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jordu [7:10]
+02. Groovin' High [5:48]
+03. Takin' Care [8:09](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7761F3660296ABCA29C8A9F60BAFC7CDC6823F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402125   (703944) от 13.08.2020
+
+Al Basile - B's Hot House (2019) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So-Called Storyteller (04:49)
+02. Five Roads (03:51)
+03. Razor Wire (04:30)
+04. Try One (02:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCE3DC4D1E050CC03EC0078E515EF18F0B62851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402262   (703931) от 13.08.2020
 
 Frances Madden - Beautiful World (2020) [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -655,93 +742,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC7E1D06C2145693F824536B15F569BAB0D82BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287503   (701766) от 08.03.2019
-
-VA - Sentimental Midnight Jazz (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701766.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dexter Gordon - Guess I'll Hang My Tears Out To Dry
-02. Ella Fitzgerald Feat. Ben Webster - Sophisticated Lady
-03. Billie Holiday - Strange FruitЖанр: JazzПродолжительность: 02:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C9E8374522375A2180822084FE059299B4B85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132476   (701282) от 09.05.2017
-
-Lionel Hampton - Reunion At Newport 1967 (1993) Bluebird [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Me Loose [04:30]
-02. Thai Silk [04:31]
-03. Greasy Greens [04:39]
-04. Tempo's Birthday [02:52](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F930145D3294A96F65C62815095A583CD3158F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132472   (701276) от 09.05.2017
-
-Wild Bill Davis - Swing & Shout: Americans Swinging In Paris (1977) 2002, Black And Blue [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stick Up The Band [07:14]
-02. Lullaby Of Birdland [09:50]
-03. Indiana [06:57]
-04. Body And Soul [05:52](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3045DF59CF11C8E6D94532F1DBCC04ADFE885275
 ```
 
 https://mybot314.ru/tekegram_catalog/

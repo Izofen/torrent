@@ -1,3 +1,125 @@
+###  Публикация: 519284   (636916) от 06.07.2012
+
+Валерия - Самое лучшее (1999) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты где-то там
+ 02. Обычные дела
+ 03. Не забудь былые увлеченья
+ 04. Кап-кап
+ 05. Жаль
+ 06. О том, что было
+ 07. Небеса
+ 08. Золотая рыбка
+ 09. Моя Москва
+ 10. Самолет(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172CC9793C44EE88DC440E9C2A6A76808D5BC203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542458   (636876) от 07.04.2022
+
+Комбинация - Легендарные Песни (2004) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Boy
+02. Белый вечер
+03. Russian Girls
+04. Два кусочека колбаски(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5910DA53346C41CFA2417B8E6BD98C953FBB219F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542465   (636859) от 07.04.2022
+
+ABBA - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Day Before You Came
+02. Take A Chance On Me
+03. Money, Money, Money
+04. The Piper(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F1089809F92CFE1B35A3B29C67B9E2F0FC9347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661991   (636785) от 03.04.2019
+
+VA - Песня 75, 76, 77 (3 CD) (2007) [FLAC|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ВИА «Пламя» / У деревни Крюково [0:03:29.55]
+02. Тамара Синявская / Черноглазая казачка [0:03:25.05]
+03. Геннадий Пономарев / Барабан [0:02:59.49]
+04. Мики Евремович (СФРЮ) / Московская серенада [0:04:15.13](   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1C29F1156823861F97874C192A99601188B2FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907827   (636163) от 13.06.2015
 
 James Taylor - Before This World (2015) [MP3|320 кб/с]<Folk-Rock, Country, Pop>
@@ -628,128 +750,6 @@ Michael Jackson - The Best 39 (2015) [MP3|320 кб/с]<Pop, R&B, Rock, Funk, Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:095AB17C6B7E249191B158CAF43EA1B3DCAC23AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143552   (635122) от 18.06.2017
-
-Disco Digitale - Electronic Passion (2014) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora 5:26
-02. Night Sky 4:58
-03. You Tell Me 3:48
-04. The Future 4:15(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9782C958D58C41911880EA131936DCB786C3338B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143672   (635108) от 18.06.2017
-
-Disco Digitale - Discography (2006-2014) [MP3|320 Kbps] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Disco Digitale была образована в 2003 году под влиянием творчества Fancy, Digital Emotion, Trans-X. Первый альбом "Computer Dreams" вышел в 2006 году и включал в себя 11 песен, здесь присутствует мужской и женский вокал. Позже вышел диск с ремиксами на треки из первого альбома и несколькими новыми песнями.
- Состав группы: братья Ларс и Кристер Бьёрндал (   Читать дальше...   )01. Taken To The Stars 3:47
-02. Videogirl 3:40
-03. Digital Love 3:58
-04. Lightspeed 3:23(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 02:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3A7C1770AD4A288CC3349283E56041CD3E9BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143332   (635094) от 18.06.2017
-
-Limelight - Special Love (2015) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special Love (6:24)
-02. Hold Me Tight (7:03)
-03. Call Me (7:02)
-04. I Want Your Love (7:19)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A21DEB12B1A107F895475C256E657A3C8D15E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517552   (635060) от 07.07.2012
-
-Flo Rida - Wild Ones (2012) [FLAC|Lossless]<Pop, Dance, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whistle
-02. Wild Ones (feat. Sia)
-03. Let It Roll
-04. Good Feeling
-05. In My Mind, Pt. 2 (feat. Georgi Kay)
-06. Sweet Spot (feat. Jennifer Lopez)
-07. Thinking Of You
-08. I Cry
-09. Run (feat. RedFoo of LMFAO)Жанр: Pop, Dance, R&BПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67CBA0061B8FB95ECDF51893E54D41A7F6A33143
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1461083   (1022129) от 08.04.2021
+
+Shannon - Shannon (2003) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreaker
+02. Love In Hollywood
+03. Billion Dollars Rain
+04. She’s A Liar(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323EEDF1C1C0A9F0387FC365753D7F1A68759AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461070   (1022127) от 08.04.2021
 
 6 Undercover - Angel of Refuge (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
@@ -716,35 +745,6 @@ Stratus - Throwing Shapes (1985) Reissue, 2008, Krescendo Records [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF2009AF08ECD6C4147A074EEB812175ECB9CF8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465389   (1019163) от 26.04.2021
-
-West Hill - Rock 'n' Bubble (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pleasure Machine (04:38)
-02. The Bard (04:16)
-03. Innocent Smile (05:15)
-04. Pretty Air Hostess (04:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18BA887713EFB6E5BA0C7BB875FE7DCF9C3BAD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

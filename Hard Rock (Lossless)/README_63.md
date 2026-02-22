@@ -1,3 +1,29 @@
+###  Публикация: 1333570   (303542) от 25.10.2019
+
+Crystal Ball - 2020 (2CD) (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard 'n' HeavyПродолжительность: 01:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878605A5334356D136AF7249D6A2991DA6983651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333789   (301458) от 26.10.2019
 
 Road To Ruin - Road To Ruin (2007) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
@@ -715,35 +741,6 @@ Niva - Atmospherical (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06DE727A59C92B8606D32DD7FCB0D44CDABA736A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337373   (274795) от 10.11.2019
-
-UFO - The Best Of The Rest (1988) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Writer
-02. Mystery Train
-03. Makin Moves
-04. Night Run(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75417F974B50772B9F0CF34D6707A8CA20C076A
 ```
 
 https://mybot314.ru/tekegram_catalog/

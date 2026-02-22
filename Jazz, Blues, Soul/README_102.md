@@ -1,3 +1,100 @@
+###  Публикация: 1494564   (887351) от 08.09.2021
+
+Chris Rea - Blue Guitars II - Country Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkin' Country Blues (3:41)
+02. Man Gone Missing (4:40)
+03. Can't Stay Blues (4:58)
+04. KKK Blues (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01EA0CA9C44DC1DED0104C5CF5E2359A7DEEDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640381   (887347) от 07.04.2013
+
+Eddie Harris - Dancing By A Rainbow (1995) [FLAC|Lossless]<Hard Bop, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Mean Greens
+ 02. The Grand Strut
+ 03. Set Us Free
+ 04. Boogie Woogie Bossa Nova
+ 05. You Are Not the Right One for Me
+ 06. Dancing by a Rainbow
+ 07. An April to Be Remembered
+ 08. It's Just Fun and GamesЖанр: Hard Bop, Soul, FunkПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640670   (887300) от 07.04.2013
+
+Solveig Slettahjell - 3 альбома (2005-2007) [FLAC|Lossless]<Jazz Vocal, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. 4:30 AM [03:15]
+02. I Do [03:00]
+03. One of these days [03:19]
+04. This is my people [03:09]
+05. Because [02:44]
+06. Time [04:18]
+07. Snowfall [03:17]
+08. Match Perfect [02:33]
+09. Inscription for the ceiling of a bedroom [01:52]
+10. Bed is too small [03:00](   Читать дальше...   )Жанр: Jazz Vocal, Contemporary JazzФормат: image+cueПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640455   (887291) от 07.04.2013
 
 Elizabeth Shepherd - Rewind (2012) [FLAC|Lossless]<Vocal Jazz>
@@ -695,103 +792,6 @@ Dwane Dixon - Black Satin Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1819247C6E3AB867732F0FE5930F67E144FDDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103379   (885563) от 12.02.2017
-
-Omar & the Howlers - Essential Collection (2011) 2×CD, Compilation [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Европейские поклонники блюза всегда восхищались техасским музыкантом Омаром Кентом Дайксом, чему в немалой степени способствовал его имидж, соответствовавший их представлением об американце. Высокий, в ковбойских сапогах, с глубоким голосом и южным акцентом, Омар с легкостью мог завести аудиторию. Дайкс родился в 1950 году там же где и Бо Диддли, в маленьком городке (   Читать дальше...   )CD 1 - Best Of
-CD 2 - Omar's PicksЖанр: Blues-RockПродолжительность: 02:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEAF784E64928F9E321BFE8CB8873CBE37ABE18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763654   (885286) от 06.03.2014
-
-Buddy Guy - Live At Legends (2012) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:39)
-02. Best Damn Fool (6:14)
-03. Mannish Boy (4:06)
-04. I Just Want To Make Love To You\Chicken Heads (9:22)
-05. Skin Deep (5:17)
-06. Damn Right I Got The Blues (6:26)
-07. Boom Boom\Strange Brew (3:01)
-08. Voodoo Chile\Sunshine Of Your Love (3:35)
-09. Polka Dot Love (5:35)
-10. Coming For You (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FE2D12C7E6731DB869E5A0CFC4A73CC606300A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763719   (885269) от 06.03.2014
-
-Freddie King - The Blues Live! Expanded Edition (2012) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Have You Ever Loved A Woman (12:47)
-02. Mojo Boogie (7:19)
-03. You`re The One (7:13)
-04. Messin' With The Kid (4:26)
-05. Going Down (4:18)
-06. Stormy Monday (13:39)
-07. Let The Good Times Roll (8:05)
-08. Sweet Home Chicago (6:04)
-09. Hide Away (4:27)
-10. Rock Me Baby (5:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7157AD3CEB8A45AC73978106A303A8F95D7E600F
 ```
 
 https://mybot314.ru/tekegram_catalog/

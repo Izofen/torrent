@@ -1,3 +1,177 @@
+###  Публикация: 1665185   (183300) от 29.09.2023
+
+Vera Bloom - It's Me (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <garage rock, grunge, punk-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183300.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Eyes On You 03:15
+2.Say Goodbye 03:09
+3.Mud 02:40
+4.Boxes 03:35(   Читать дальше...   )Жанр: garage rock, grunge, punk-rockПродолжительность: 00:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B58EF95DE811EC347172E43A12833D6520E951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665170   (183257) от 29.09.2023
+
+Jethro Tull - RökFlöte (RokFlote) (Alternative Mixes) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Folk, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voluspo (Alternative Mix) (3:43)
+02. Ginnungagap (Alternative Mix) (3:49)
+03. Allfather (Alternative Mix) (2:46)
+04. The Feathered Consort (Alternative Mix) (3:40)(   Читать дальше...   )Жанр: Prog Folk, Progressive RockПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F389415845233B30C2CAF8C591C59218A8C09FC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665011   (183253) от 29.09.2023
+
+Black Stone Cherry - Screamin' At The Sky (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Screamin’ At The Sky (3:25)
+02. Nervous (3:16)
+03. When The Pain Comes (3:24)
+04. Out Of Pocket (3:08)(   Читать дальше...   )Жанр: Southern Rock, Hard Rock, Post-GrungeПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039165348DA3F8BCE53D7677F7A8F396EF3C739B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665206   (183203) от 29.09.2023
+
+Vader - Studio Albums (19 releases) (1992-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vader — польская дэт/трэш-метал группа, основанная в 1983 году в Ольштыне.1992 - The Ultimate Incantation
+1995 - De Profundis
+1996 - Future of The Past
+1997 - Black To The BlindЖанр: Death/Thrash MetalПродолжительность: 13:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B21BD40FAFB97AF20AC965FB64E0BE21F0A406A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665182   (183178) от 29.09.2023
+
+Cherry Glazerr - I Don't Want You Anymore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Addicted To Your Love
+02 – Bad Habit
+03 – Ready For You
+04 – Touched You With My Chaos(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA71F9A41E065B08C4BAAD09EC76306385DC7AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665187   (183071) от 29.09.2023
+
+Toyah - The Changeling (1982) Deluxe Edition, Remastered, 2023, Cherry Red Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183071.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Creepy Room (Work In Progress Mix) (3:30)
+2. Street Creature (Work In Progress Mix) (4:26)
+3. Castaways (Work In Progress Mix) (4:08)
+4. The Druids (Work In Progress Instrumental) (3:20)(   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964756F90654CE19019886E795AE688E0625D066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665514   (182583) от 30.09.2023
 
 Heavy Water - Dreams Of Yesterday (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -568,180 +742,6 @@ Surrender The Crown - IV - The Healing (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A5477FAD9654CCEC1C0733B83C706387383B3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665532   (181570) от 01.10.2023
-
-Psychework - Spark of Hope (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shape of a Ghost [00:05:36]
-02. River Runs Red [00:04:40]
-03. Kiova [00:03:48]
-04. Interstellar [00:03:38](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDBB48E176FCC3994EE047554737A7A39F6873D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665578   (181566) от 01.10.2023
-
-The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agora [00:03:35]
-02. Otus [00:09:38]
-03. 2054 [00:07:23]
-04. Urian [00:07:28](   Читать дальше...   )Жанр: Mathcore, Progressive MetalПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC273EB87600ACAF799EA0990CD35F1EF0A8AEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665685   (181557) от 01.10.2023
-
-Fat Freddy's Drop & Kings - Blackbird Returns (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dub, Reggae, Jazzy Roots, Neo Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – BLACKBIRD (REMIX)
-02 – Russia (10th Anniversary Remix)
-03 – Clean The House (Remix)
-04 – Silver & Gold (Remix)(   Читать дальше...   )Жанр: Dub, Reggae, Jazzy Roots, Neo SoulПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDAF022DB4A027A504AD33A8ECE9A1A068B0BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665691   (181553) от 01.10.2023
-
-Bullant - Late Life Circ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like It's Not Fun [00:05:32]
-02. Tiny Bad Boy [00:05:26]
-03. Perv [00:05:52]
-04. Perfect Shelving Technique [00:08:06](   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C311F82582F5A38D8E4C7D93E6619BD3032F0B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665541   (181528) от 01.10.2023
-
-Blackbriar - A Dark Euphony (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Unwelcome Guest (4:10)
-02. Far Distant Land (4:38)
-03. Spirit of Forgetfulness (3:50)
-04. Bloody Footprints in the Snow (5:11)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B447CB66805D376947ACD5679D9C93B0909FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665660   (181497) от 01.10.2023
-
-Stam1na - X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Thrash, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kombustio [00:03:48]
-02. Muistipalatsi [00:04:57]
-03. Vereen piirretty viiva [00:03:52]
-04. Utopia [00:04:29](   Читать дальше...   )Жанр: Progressive, Thrash, Heavy MetalПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B096B1E7851E67B6CF05F9D7C848CC7AEF4A9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

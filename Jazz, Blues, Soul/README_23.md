@@ -1,3 +1,90 @@
+###  Публикация: 1446687   (1032550) от 10.02.2021
+
+Richard M. Jones - 1923 - 1927 (1995) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzin' Babies Blues [2:44]
+02. 12th Street Rag [2:53]
+03. New Orleans Shags [3:21]
+04. Spanish Shawl [3:25](   Читать дальше...   )Жанр: Early Jazz, New Orleans JazzПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D33971EEE4D7F6C0C88C8DA3A3EF10CCEAB480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446780   (1032486) от 10.02.2021
+
+Layla Zoe - Nowhere Left to Go (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pray    [0:04:10.04]
+02. Nowhere left to go    [0:03:47.24]
+03. Sometimes we fight    [0:04:43.68]
+04. Don't wanna help anyone    [0:04:40.50](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF2AC5370E11F2D7FEC480E30BA79038D9D639F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446799   (1032483) от 10.02.2021
+
+The Floating Trunks - На расстоянии шепота (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пятничное танго (3:10)
+02. Блюз спящей собаки (3:31)
+03. Лодка грез (2:31)
+04. Дождаться дождя (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BEF1D2804CA0B78D6F5F5B61A84C28BE2115BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620277   (1032361) от 19.03.2023
 
 Jim Oblon - I Wanna Be Loved (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ Ain’t No Square - Taking Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44F82DC55B3BE3DA8DCBE3295061676B8914E02F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620671   (1031864) от 21.03.2023
-
-Angels Of Libra - Revelations (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Only Thing Left (4:50)
-02. Revelations (feat. Nathan Johnston) (4:39)
-03. House of Zeus (3:27)
-04. Gabriel (feat. Milo Milone) (4:30)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D94CBF414030C4EFE077CE7C5A8A670F0333FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620673   (1031863) от 21.03.2023
-
-Atomica Music - Hello Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aint Goin Down (3:44)
-02. Hello Blues (3:20)
-03. I Dont Want Nothin (2:28)
-04. If I Ever (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17917474E4FA87C75E9CB0BA393D071EFD96EAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620687   (1031862) от 21.03.2023
-
-Daddy Long Legs - Street Sermons (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Sermon (2:25)
-02. Nightmare (3:23)
-03. Rockin' My Boogie (3:51)
-04. Harmonica Razor (2:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96D601326618D31F94E2B882E207B109EF4EC5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

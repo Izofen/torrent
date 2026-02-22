@@ -1,3 +1,90 @@
+###  Публикация: 1527066   (737399) от 27.01.2022
+
+Allan Thomas - The Journey (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Journey (4:30)
+02. Van (4:14)
+03. You Never Know (4:12)
+04. It's All Good (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C08A036B57CC6ABE6D4A2C6CF332128A94C97D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527072   (737395) от 27.01.2022
+
+James Cooke - Put In a Little Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Myself Healed (6:06)
+02. Spitfire Shuffle (4:27)
+03. Low Place (4:21)
+04. Make My Blood Move (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC908C1413E90B10CB0934B568701B979C86D5B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527064   (737393) от 27.01.2022
+
+Bill Evans - Undercurrent (1962) 2CD, 2013, Not Now Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737393.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - Undercurrent:
+01. My Funny Valentine [5:25]
+02. I Hear A Rhapsody [4:41]
+03. Dream Gypsy [4:36](   Читать дальше...   )Жанр: Hard Bop, Cool, Piano JazzПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA213FA6DC0137DD12B9889A75AD278C1B918010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527077   (737391) от 27.01.2022
 
 Johnny Tucker and The Allstars - 75 and Alive (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ Duffmusiq - Urban Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85361728276DCE05DDD873BCA23A9882CA937BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528059   (735347) от 31.01.2022
-
-Stormcellar - Stormcellar Blues Collection, Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Mama (3:19)
-02. On the Low Low (4:10)
-03. Don't Get Around Much (3:44)
-04. That Smile Is Not for Me (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFA27D4DB2AA653BF242576FE088A3ED64D1E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528055   (735346) от 31.01.2022
-
-Frank Di Angelis - Frankly (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cliché (5:49)
-02. Bad News (5:47)
-03. Call Your Mother (4:01)
-04. California (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2AFE2BB659E2B03B7669D8302F1E21CFEF092F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528052   (735345) от 31.01.2022
-
-Bart Bryant - Magic Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Mind (4:47)
-02. Shake You're Money Maker (2:28)
-03. I'm Ready (4:00)
-04. Past the Pain (3:52)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E71CB1673620700625C248D1C0E292DDDF63B3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

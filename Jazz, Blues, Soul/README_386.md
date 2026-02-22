@@ -1,3 +1,61 @@
+###  Публикация: 1078605   (298217) от 02.12.2016
+
+Mel Torme and The Marty Paich Dek-Tette - The 1956 Torme-Paich Legendary Sessions (2006) Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lulu's Back In Town [03:09]
+ 02.I Love To Watch The Moonlight [02:55]
+ 03.When April Comes Again [03:01]
+ 04.The Carioca [03:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134B3593802B957C02791AE36766B52B3EE3AFC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078653   (298216) от 02.12.2016
+
+Mongo Santamaria - Mongo At Montreux (1971) 2012, Atlantic/Warner Japan/WEA/Rhino [FLAC|Lossless|tracks + .cue] <Afro-Cuban, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Candela (3:55)
+02. Climax (4:53)
+03. Disappear (4:59)
+04. Marty's Tune (4:44)(   Читать дальше...   )Жанр: Afro-Cuban, Latin JazzПродолжительность: 00: 37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739DEBB340B291CA2C7BBE80AED815C84518A9BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078997   (298212) от 02.12.2016
 
 Klaus Doldingers Passport - Balance Of Happiness (1990) WEA[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -687,64 +745,6 @@ Ben Harper - Live At The Apollo (2005) Live [MP3|320 Kbps] <Blues, Folk, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CDFE5BB79F550CD2E9DC96A7C045C30C0C48260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079358   (295858) от 03.12.2016
-
-VA - Romantic Lovers Music Song - Erotic Jazz Session (2016) [MP3|320 Kbps] <Jazz,Instrumental,Piano>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Romantic Dinner (03:36)
-02.  Music for Love (02:55)
-03.  Romantic Morning (03:01)
-04.  Love Thoughts (03:00)(   Читать дальше...   )Жанр: Jazz,Instrumental,PianoПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9E2E32AE7E8C3431C505EB28DCB0236D8BF298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962273   (295356) от 04.12.2015
-
-Earl Coleman - Earl Coleman Returns (1956) 2013, Universal[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Say It Isn't So [05:43]
- 02.Reminiscing [05:54]
- 03.Social Call [06:32]
- 04.It's You Or No One [05:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8C02C94E1954D08C1D17EC778341D903693AE35
 ```
 
 https://mybot314.ru/tekegram_catalog/

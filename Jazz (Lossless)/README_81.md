@@ -1,3 +1,32 @@
+###  Публикация: 1382156   (822662) от 09.05.2020
+
+Low Kick Collective - Exhale (Выдох) (2019) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Halo / Гало (5:59)
+02. Carriage / Экипаж (4:39)
+03. Rhinoceros / Носорог (6:20)
+04. One who seeks an exit / Тот кто ищет выход (7:57)(   Читать дальше...   )Жанр: Dark Jazz, ExperimentalПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8A46E5AF0FA0D6707E28D399F3798E341B75C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196553   (822561) от 03.01.2018
 
 Billy Harper - Trying to Make Heaven My Home (1979) 1991, MPS Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -712,35 +741,6 @@ Miller, Petrucciani, Lagrene, White, Garrett - Dreyfus Night In Paris (recorded 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:801F3DE0D7531EE897E210A2DF45370AB6F52E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007543   (819755) от 16.04.2016
-
-Weather Report - Night Passage (1980) Reissue 1990 [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Passage
-02. Dream Clock
-03. Port of Entry
-04. Forlorn(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9BAA13DA9273A3DB93BCF2F37BEAA7EA8C697F
 ```
 
 https://mybot314.ru/tekegram_catalog/

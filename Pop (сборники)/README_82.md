@@ -1,3 +1,38 @@
+###  Публикация: 554446   (436822) от 01.10.2012
+
+VA - Новинки сезона №2 Русский (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436822.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. СтаЯ - Душа
+002. Алина Артц - Со мной по-другому нельзя
+003. Инфинити - А он такой
+004. Макс Лоренс - За твои глаза
+005. Она - Самая счастливая
+006. Николай Басков - Странник
+007. Ирина Кулькова - Храните любовь
+008. Филипп Киркоров - Я отпускаю тебя
+009. Lalo Project - Город Goodbye
+010. Оксана Казакова - Гипнотизирую(   Читать дальше...   )Жанр: PopПродолжительность: 11:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE889EAFF07C1766EFA4250FDA21E282AB51D6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554449   (436810) от 01.10.2012
 
 VA - 100 пудовый хит. Русский выпуск (2012) [MP3|256 кб/с]<Pop. Dance>
@@ -740,50 +775,6 @@ VA - Самые Лучшие Хиты Осени 50/50 (2012) [MP3|256 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1867FE7CFE11DFD2F3F696FE07A753A16F61498D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555664   (430566) от 03.10.2012
-
-VA - Супер Дискотека 90-х Vol. 1-3 (3CD) (2012) [MP3|111-320 кб/с]<Retro, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol 1
-01 140 Ударов В Минуту - Une Vie D'Amore
-02 2 Unlimited - Faces
-03 ATC - Around The World
-04 Bellini - Samba De Janeiro
-05 Cher - Believe
-06 Corona - Baby Baby
-07 Culture Beat - Crying In The Rain
-08 Dr. Alban - It's My Life (rmx)
-09 Dr. Alban - Sing Hallelujah(   Читать дальше...   )Жанр: Retro, DanceПродолжительность: 01:43:06
-01 Комбинация - American Boy
-02 Modjo - Lady (Hear Me Tonight)
-03 Maxx - No More (I Can't Stand It)
-04 Кар-Мэн - Чио Чио Сан
-05 Corona - Baby Baby
-06 La Bouche - Be My Lover
-07 Комбинация - Два Кусочека Колбаски
-08 Darude - Sandstorm
-09 Дискотека Авария - Заколебал Ты(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553FE4AFD72ECC894BCEC2ADA59CD1C7954EF119
 ```
 
 https://mybot314.ru/tekegram_catalog/

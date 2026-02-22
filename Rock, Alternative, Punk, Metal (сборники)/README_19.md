@@ -1,3 +1,32 @@
+###  Публикация: 792166   (709913) от 02.06.2014
+
+VA - Driving Rock Ballads (2014) [MP3|320 кб/с]<Rock, Hard Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nirvana - The man who sold the world
+02. Chris Rea - I just wanna be with you
+03. Doors - The severed garden
+04. Nocturnal rites - The legends lives on(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 07:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD6BE00E83289DB10AB995C2140C7579A471809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401421   (709390) от 10.08.2020
 
 VA - Get The Indie Music (2020) [MP3|320 Kbps] <Indie Pop-Rock>
@@ -717,35 +746,6 @@ VA - Concord Dawn: Hard Rock Core Anthology (2020) [MP3|320 Kbps] <Hard Rock, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F18208A55D9D55A3059AFA732C68E0DCBD46C3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404162   (684265) от 23.08.2020
-
-VA - Rock Songs: Essentials Collection (2020) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Broken Field Runner - Test Everything
-002. Vulture Party - Mayday Cockerel
-003. Neufundland - Liebe (Radio Edit)
-004. Bersuit Vergarabat - Vuelos(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C958F0AECCE5A418C90F7F3546A018CAC019A115
 ```
 
 https://mybot314.ru/tekegram_catalog/

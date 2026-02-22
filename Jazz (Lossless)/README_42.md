@@ -1,3 +1,32 @@
+###  Публикация: 1094621   (929390) от 18.01.2017
+
+Alfredo Rodriguez - Tocororo (2016) Mack Avenue[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion, Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chan Chan [02:10]
+ 02.Yemaya [03:43]
+ 03.Raices (Roots) [04:29]
+ 04.Gitanerias [03:59](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Cuban JazzПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7775956C9958CBC2377C6BA3380CC8D79B3B682C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094574   (929389) от 18.01.2017
 
 John Pizzarelli - Dear Mr. Cole (1995) [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -776,39 +805,6 @@ Nina Simone - My Baby Just Cares For Me (1985) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0960F6B7242B0098076F7D765DA19F37927CC644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863012   (927512) от 25.01.2015
-
-Earl Klugh - Wishful Thinking (1984) [FLAC|Lossless]<Jazz, Smooth, Pop-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Wishful Thinking [03:58]
-02. Tropical Legs [05:32]
-03. All The Time [04:39]
-04. A Natural Thing [02:57]
-05. Once Again [04:18]
-06. Take It From The Top [04:00]
-07. The Only One For Me [04:51]
-08. Right From The Start [05:29]Жанр: Jazz, Smooth, Pop-JazzПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A081A8269BAE39D2EFF309795F82368D4DADC0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

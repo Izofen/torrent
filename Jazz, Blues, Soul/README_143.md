@@ -1,3 +1,90 @@
+###  Публикация: 1503502   (819596) от 19.10.2021
+
+Dinah Shore - Happy In Love (1940 - 1942) 1995, Hallmark Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honeysuckle Rose [2:45]
+02. I Do, Do You? [2:37]
+03. Manhattan Serenade [3:11]
+04. If It's You [3:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9CB7DCBAD4F294CF2D68C871AC19206E9014E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382447   (819414) от 11.05.2020
+
+Mark Murphy - Song For The Geese (1997) RCA Victor [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Go to My Head [6:19]
+02. Sugar [3:37]
+03. Baltimore Oriole [4:01]
+04. Do It Again [4:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE823C634946E146DD9D7DCAD0CDFFF61AD754FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196916   (819351) от 05.01.2018
+
+Marcus Roberts Trio - In Honor Of Duke (1999) Columbia [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rickitick Tick [06:03]
+02. There It Is [08:50]
+03. The Feeling Of Something New [09:09]
+04. Take A Chance [05:13](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97171544A3D3A8C28DFD4C839B7D57711B008DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382413   (819279) от 11.05.2020
 
 Diana Krall - When I Look In Your Eyes (1999) [FLAC|Lossless|image + .cue]<Vocal Jazz>
@@ -658,93 +745,6 @@ Frank Magnolia - Night Rider (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:465FC0490E37ADC626C8B4224947EF63C67C92C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503794   (817634) от 20.10.2021
-
-Black Cherry Perry's Mississippi Medicine Show - Where There's Smoke (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where There's Smoke (5:27)
-02. Desperate People (3:36)
-03. Southern Cross the Dog (3:25)
-04. The Mojo Man (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484AB3CC571B560F2D777AC221B661FAB5B9F928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197305   (817578) от 06.01.2018
-
-Louis Armstrong - The Silver Collection (1984) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top Hat, White Tie And Tails
-02. Have You Met Miss Jones
-03. I Only Have Eyes For You
-04. Stormy Weather(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1275ECD5C0156A7D266D53A1BE8CB44A61D67A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382684   (817545) от 12.05.2020
-
-Zoot Sims - The Modern Art Of Jazz 1956 (1998) Dawn [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September in the Rain [5:09]
-02. Down at the Loft [4:30]
-03. Ghost of a Chance [6:39]
-04. Not So Deep [7:04](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05679A05A511198DC116FC82ED2FFAD41E4D904B
 ```
 
 https://mybot314.ru/tekegram_catalog/

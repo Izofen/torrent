@@ -1,3 +1,32 @@
+###  Публикация: 960638   (305151) от 29.11.2015
+
+VA - Golden Memories - The...Gold Party Collection (2012) 4CD [FLAC|image + .cue]<Pop, Blues, Oldies, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whatever Will Be, Will Be (02:08)
+02. Magic Moments (02:43)
+03. Sway (02:45)
+04. Nel Blu, Dipinto Di Blu (02:04)(   Читать дальше...   )Жанр: Pop, Blues, Oldies, RetroПродолжительность: 03:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC0BC2B7C2D2A3BFB1F50A997651872D271BC78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960832   (304812) от 29.11.2015
 
 Mylene Farmer - The Best Of (2007) [FLAC|image + .cue]<Pop>
@@ -714,35 +743,6 @@ VA - Instrumental Covers: Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFD25EC6DAD86154A4B7826D44A145D87E51CA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423206   (295570) от 15.11.2020
-
-VA - Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Disco Explosion - I Love You (3:12)
-02. The Starlite Singers - South of the Border (Down Mexico Way) (3:04)
-03. Countdown Nashville - That's the Way Love Goes (3:05)
-04. The New Broadway Players - Hello Young Lovers (3:18)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 05:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5357F9D32360F6C7C65D4C585E8F03C8C4C9364
 ```
 
 https://mybot314.ru/tekegram_catalog/

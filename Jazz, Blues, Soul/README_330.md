@@ -1,3 +1,90 @@
+###  Публикация: 1165082   (437397) от 11.09.2017
+
+Johan Clement Trio - Some Over Time (2014) Johan Clement [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can See [07:08]
+02. The 2 Lonely People [06:45]
+03. This is for Albert [04:58]
+04. Time Remembered [05:24](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C4EB614A1559363E30673D92B7C33E3527C6174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164764   (437395) от 11.09.2017
+
+Cecil Taylor - Silent Tongues (1974) 1988, Freedom [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss, Petals & Filaments, Jitney [18:24]
+02. Crossing [18:41]
+03. After All [09:52]
+04. Jitney No.2 [04:12](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741F91F68C0E66265B6C223C78F2A3F691B8D31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165083   (437394) от 11.09.2017
+
+The Dutch Swing College Band - Stompin' The Hits (1989) LaserLight [FLAC|Lossless|tracks + .cue] <Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad, Bad Leroy Brown [02:59]
+02. Can't Buy Me Love [03:38]
+03. Georgia [04:55]
+04. Hello Mary Lou [02:47](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88328BDBF9057823A5F4C80D84D8A3C6959C674B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165086   (437389) от 11.09.2017
 
 One For All - Killer Joe (2005) Venus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
@@ -658,93 +745,6 @@ Big John Patton - Got A Good Thing Goin' (1966) Remaster, 1997, Toshiba[FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE7C8792398A3F99AD3800EB9A25DAA39C5C98D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063407   (435380) от 16.10.2016
-
-Larry Coryell - Barefoot Man: Sanpaku (2016) Purple Pyramid[FLAC|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sanpaku [10:42]
- 02.Back To The Russia [06:16]
- 03.If Miles Were Here [07:02]
- 04.Improv On 97 [05:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEA5CA9F36505BA3FE85936205334DD298F35B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063253   (435372) от 16.10.2016
-
-Marc Antoine - Laguna Beach (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Not (featuring Philippe Saisse)
- 02. This And That (featuring Paul Brown)
- 03. Laguna Beach
- 04. Deixa (featuring Tim Welvaars)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B8418899B6D1390E919C70383E287E43E4C7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063432   (435352) от 16.10.2016
-
-Joanna Connor - Believe It! (1989) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Texas Flyer   (03:23)
-02. He's Mine   (03:55)
-03. Doctor Feelgood   (05:06)
-04. I'm Satisfied   (03:33)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3009B55696452561421741C1CEDE2F1B3B9A2427
 ```
 
 https://mybot314.ru/tekegram_catalog/

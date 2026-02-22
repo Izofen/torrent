@@ -1,3 +1,84 @@
+###  Публикация: 682059   (628542) от 24.07.2013
+
+David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628542.jpg" />
+</div>
+
+
+###  Подробнее
+
+David Vendetta Vs Keith Thomspon - Break 4 Love (Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540E96509B2F2D119C002E2EDD1E2E54A9902447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682051   (628538) от 24.07.2013
+
+David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628538.jpg" />
+</div>
+
+
+###  Подробнее
+
+David Vendetta - Love To Love You Baby (Official Clip)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21EF568739269F4CD7EADF2F80FD93F7CBE38785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035229   (628512) от 16.07.2016
+
+Shakespear's Sister - Best Of (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628512.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Break My Heart (You Really)
+2	Heroine
+3	Run Silent Run Deep
+4	You're History(   Читать дальше...   )Жанр: Europop, Pop RockПеревод: ОтсутствуетПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8CFF634322382FABF2F3C2AC637E78A528382F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034983   (628296) от 16.07.2016
 
 Сборник - Bollywood Summermix (2016) BDRip 720p
@@ -605,88 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFAB1C1C0385890A269C30030FFACC5FC8B8F590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522632   (620979) от 14.07.2012
-
-Animal ДжаZ - Три полоски (2007) HDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РокПродолжительность: 00:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BA7D32490D6353D3AB02066D62C0D26C9C3039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522370   (620697) от 14.07.2012
-
-Сборник Советской Эстрады №4 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E454A2DE7084B9497018EBB461C112C9443A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522839   (620392) от 14.07.2012
-
-Black Sabbath: Paranoid - Classic Albums (1970/2010) BDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй альбом Black Sabbath, выпущенный в 1970 году, уже давно достигший классического статуса. Paranoid не только изменил лицо рок-музыки навсегда, но и определил звук и стиль Heavy Metal больше, чем любая другая запись в истории рока.
-Программа рассказывает историю сочинения, записи и успеха этого революционного альбома. Использование эксклюзивных интервью, музыкальные (   Читать дальше...   )01. Early Sabbath
-02. War Pigs
-03. Iron Man
-04. Planet Caravan(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Концерт, Документальный, Hard rockПродолжительность: 01:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D545DF6B791746852BBFF354269996A3C4ECCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

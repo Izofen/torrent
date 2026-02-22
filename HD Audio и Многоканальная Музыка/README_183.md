@@ -1,3 +1,173 @@
+###  Публикация: 1782961   (69853) от 03.03.2025
+
+Paul Buskirk - Banjo, But Beautiful (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk, Bluegrass>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69853.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mr. Wonderful
+A2 Yesterday
+A3 Good Morning Starshine
+A4 Body And Soul(   Читать дальше...   )Жанр: Folk, BluegrassПродолжительность: 00:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33208A9C25F7FE841C24338C008F6BD33C983291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783234   (69848) от 04.03.2025
+
+Asylum (Australia) - Studio Albums (2 releases) (2017-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Asylum - метал-группа, образованная в Голд -Кост, Австралия, в 2012 году.2017 - Concealed Death/Slaughterhouse
+2022 - TyrannicideЖанр: Thrash MetalПродолжительность: 01:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D626F2340CCD2A61EF8A4ED12B2CCA209BED8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783160   (69847) от 04.03.2025
+
+Fatal Embrace (Sweden) - Studio Albums (3 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Blackened Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fatal Embrace - метал-группа из Варберга, Швеция. Была активна с 1992 по 1998 год и воссоединилась в 2016 году.1997 - Shadowsouls' Garden
+2023 - Manifestum Infernalis
+2024 - Hail Down DeepЖанр: Melodic Blackened Death MetalПродолжительность: 02:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B510205E1DEEE2394E91EC0CAA5FFDE43D65B4D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783153   (69846) от 04.03.2025
+
+Adversor - Studio Albums (3 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adversor - трэш-метал группа из Италии, сформированная в сентябре 2015 года2016 - Rise To Survive
+2018 - The End Of Mankind
+2023 - Portrait of a WastelandЖанр: Thrash MetalПродолжительность: 01:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E46757FB9190B28A20736500DEB64C388A4D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783086   (69843) от 04.03.2025
+
+Christian Mistress - Children of the Earth (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City of Gold [00:04:11]
+02. Voiceless [00:03:56]
+03. Demon's Night [00:04:12]
+04. Love of the World [00:05:05](   Читать дальше...   )Жанр: MetalПродолжительность: 00:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C71545861AC0CCB1E7367B4894B1D137AB0D01D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783099   (69842) от 04.03.2025
+
+Antony Szmierek - Service Station At The End Of The Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternativa & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Service Station at the End of the Universe [00:03:06]
+02. Rafters [00:03:07]
+03. The Great Pyramid of Stockport [00:02:35]
+04. Big Light [00:03:23](   Читать дальше...   )Жанр: Alternativa & IndieПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CB4726AADA505A86581B033351F037078CAF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783401   (69824) от 05.03.2025
 
 Morlas Memoria - Adieu (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal>
@@ -568,180 +738,6 @@ Tokimonsta - Eternal Reverie (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F305D19C54C4643813EDF37C02261A0839F566C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784270   (69565) от 10.03.2025
-
-Leaves' Eyes - Myths of Fate (2024) Orchestral Version, 2025, AFM Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Forged by Fire (Orchestral Version)
-02 – Realm of Dark Waves (Orchestral Version)
-03 – Who Wants to Live Forever (Orchestral Version)
-04 – Hammer of the Gods (Orchestral Version)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D733FC4BFB3F5A902C4A7A67BF024820640F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784316   (69562) от 10.03.2025
-
-Saraya - Gypsy Child (1989) Remastered, 2025, OLD BOY [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get U Ready [00:03:10]
-02. Gypsy Child [00:04:33]
-03. One Night Away [00:04:35]
-04. Alsace Lorraine [00:00:51](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07725DB408358F614270B755182E78CE58A31924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784315   (69556) от 10.03.2025
-
-Kayser (Sweden) - Studio Albums (4 releases) (2005-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kayser - трэш-метал группа из Хельсингборга, Швеция. Образована в 2004 году.2005 - Kaiserhof
-2006 - Frame The World... Hang It On The Wall
-2014 - Read Your Enemy
-2016 - IV: Beyond The Reef Of SanityЖанр: Thrash MetalПродолжительность: 03:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4065AB796F73AE9ED637A6EB358F5F190F3A5B33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784945   (69520) от 13.03.2025
-
-Wily Bo Walker - The Rattlin Bone Theatre Show Volume 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shoot Me Down (3:50)
-02.  Drag Me Down (3:00)
-03.  Down Amongst the Dead Men (4:47)
-04.  Ain't Gonna Dig My Own Grave (No More) (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DD74C251E4570A8B7A49C558625EAB1C334E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784948   (69511) от 13.03.2025
-
-Yellowjackets - Fasten Up (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Comin' Home Baby (5:21)
-02.  Fasten Up (6:52)
-03.  Will Power (4:15)
-04.  November 8th (6:45)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684E5C1907EDA2C84E8D404FE981359B39619DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784944   (69507) от 13.03.2025
-
-Warwolf - The Final Battle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eye of the Storm (5:37)
-02.  Burning Skies (5:04)
-03.  The Lycan Empire (5:36)
-04.  Fight the Invaders (8:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C25EB9756ECB4D931B041396F22D85E5E31E1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

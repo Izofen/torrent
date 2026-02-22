@@ -1,3 +1,37 @@
+###  Публикация: 766976   (868008) от 16.03.2014
+
+Kevin Eubanks - Spiritalk 2 Revelations (1995) [FLAC|Lossless]<Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Faith 7:06
+ 02. Like The Wind 5:08
+ 03. Whispers Of Life 6:31
+ 04. Revelations 7:29
+ 05. Earth 2:42
+ 06. Sun 4:25
+ 07. Moon 1:47
+ 08. Being 7:52
+ 09. Passing 7:08Жанр: Contemporary Jazz, FusionПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21243668FD513A85DD263561C257EF12239E116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 767125   (868006) от 16.03.2014
 
 Mario Canonge - Retour Aux Sources (1991) [FLAC|Lossless]<World Fusion, Caribbean jazz>
@@ -766,35 +800,6 @@ Duke Ellington - The 1962 MOMA Recital (2010) La Maison du Duke [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6E1D399EE260B8AB71591105416331012CC1C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999140   (866497) от 21.03.2016
-
-The Puppini Sisters - The High Life (2016) [FLAC|Lossless|image + .cue] <Jazz Vocal, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is This The High Life?
-02. Accentuate The Positive
-03. It Ain't What You Do
-04. Girls Just Wanna Have Fun(   Читать дальше...   )Жанр: Jazz Vocal, SwingПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FB2C32C3182B945FB704AA92739F661B882DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

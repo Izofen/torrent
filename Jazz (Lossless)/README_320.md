@@ -1,36 +1,3 @@
-###  Публикация: 855057   (139202) от 31.12.2014
-
-Duke Ellington - Afro-Eurasian Eclipse (1999) [FLAC|Lossless]<Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Chinoiserie [08:16]
-02. Didjeridoo [03:41]
-03. Afrique [05:27]
-04. Acht O'Clock Rock [03:05]
-05. Gong [04:49]
-06. Tang [04:49]
-07. True [03:40]
-08. Hard Way [04:09]Жанр: Jazz, Swing, Big BandПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE390F90320CC12C9C3202A3211BDBA3319F42A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 855149   (139126) от 31.12.2014
 
 Marta Topferova - Sueno Verde (2000) [FLAC|Lossless]<Vocal Jazz, Latin>
@@ -775,6 +742,40 @@ Demetrius Nabors - A Journey Within Part 1 (2011) [FLAC|Lossless]<Smooth Jazz>
 08. Just When I Thought
 09. So Into You
 10. Strollin' Down Blaine(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593315   (135437) от 23.12.2012
+
+Dado Moroni Trio - Shapes (2011) [FLAC|Lossless]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade Pour Gianni
+02. Brother Alfred
+03. Desafinado
+04. The Duck And The Duchess
+05. Love Dance
+06. F.B.S.
+07. For The Time Being
+08. Shark Attack
+09. Here's To LifeЖанр: Post-BopПродолжительность: 01:04:14
 
 ## Скачать торент
 ```bash

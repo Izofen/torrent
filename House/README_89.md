@@ -1,3 +1,108 @@
+###  Публикация: 477095   (98544) от 04.04.2012
+
+VA - The Digital Age Vol. 8 (2012) [MP3|320 кб/с]<Tech House, Minimal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Kaufmann & Ferdinand - Onion Riders (feat Mr Pong) (08:04)
+02. Marcel Sterling - Butterfly (07:33)
+03. Daniel Steinberg - Bantuma (05:42)
+04. Oliver Klein - Caleno (07:49)
+05. Kolombo pres Kagomba - Kagomba (08:18)
+06. Strict Border - Sugar Foot (UES remix) (07:10)
+07. Dapayk - Nangiria (07:18)
+08. Kamika - Conform (Maksim Dark Remremixix) (06:39)
+09. Sebastian Weiske - Space Vagabond (Sene Ceanes Eternal Return remix) (06:58)
+10. Manuel Turobin - Bummeltaxi (08:45)(   Читать дальше...   )2012Жанр: Tech House, MinimalПродолжительность: 02:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F9CA9A2D5302588A013B9FF86914B83D48DC61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477533   (98535) от 04.04.2012
+
+VA - Re:Define 01 - The Future Sound of House (2012) [MP3|320 кб/с]<House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Solan - Gettin Down (07:42)
+02. Dualton & Wollion - Undisputed (08:52)
+03. Sante - Picadilly Circus (06:36)
+04. Oliver Klein - Hey Baby (07:32)
+05. Butch - Soul Motion (06:25)
+06. Tim Weeks - Feelin' (08:04)
+07. Paul Sparkes & Farshad Kay - Feet R Rocking (06:31)
+08. Mendo & Danny Serrano - Kumbha (07:38)
+09. Steve Lawler - Gimme Some More (feat Roland Clark) (09:19)
+10. Chris Special - Ain't Nobody (07:40)(   Читать дальше...   )2012Жанр: House, Tech House, Deep HouseПродолжительность: 03:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00E2300FBD76424097F264A68B2B5778B3EFC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477076   (98469) от 02.04.2012
+
+VA - Chill House Sensation (2012) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Solanos - Shameless (5:08)
+02. Arrojas - Outer Space (5:31)
+03. Christian Hornbostel - Free Spirit (5:29)
+04. Suntheca Prod - Another Kiss (4:35)
+05. Rey Salinero - Get Together (5:55)
+06. Cane Garden Quartet - Close To You (5:30)
+07. Blue Wave - Heaven (feat. Sarah Chris) (4:40)
+08. DJ Riquo - My Lucky Day (feat. Saba Rock) (5:37)
+09. Enrico Donner invites Theresa Thomason - Something New (4:37)
+10. Remasters Of Love - Riding City Titties (5:50)(   Читать дальше...   )2012Жанр: Deep House, Chill HouseПродолжительность: 01:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C9AC9DD1CE8777ECFE4F1A9C3AA7EB069F073E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477145   (98444) от 02.04.2012
 
 VA - Disco Bombs Vol.1 (2011) [MP3|320 кб/с]<Disco House, Funky House,>
@@ -780,112 +885,6 @@ Ewan Rill - High Voltage Of My Heart (2012) [MP3|320 kbps]<Tech House, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B023A96CCC898658C0ED040348502F62F197040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487228   (90429) от 24.04.2012
-
-Naked Music Recordings - Коллекция (21 диск, 35 винилов) (1999-2010) [MP3|~148-320 кб/с]<Deep House, Downtempo, Future Jazz, Nu Disco, Lounge>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Naked Music– это звукозаписывающий лейбл танцевальной музыки, расположенный в Нью-Йорке и Сан Франциско. Появился в 1992 году как Нью-Йоркская звукозаписывающая компания, когда Дэйв Буншофт (Dave Boonshoft) и Джей Дэйнс (Jay Danes) добились стремительного успеха на андерграунд сцене со своими релизами на таких независимых лейблах как OM, Francois Kevorkian's Wave imprint и UKs XL records. Naked Sound был рожден как пересечение дэнса, соула и электронной музыки. В 1998 году компания стала настоящим звукозаписывающим лейблом.
-Лейбл известен сериями миксов и компиляций Nude Dimensions и Carte Blanche, а также сольными альбомами таких артистов как Blue Six, Miguel Migs и Lisa Shaw01. Blue Six - Luxury (4:09)
-02. Blue Six - You Play Too Rough (4:45)
-03. Blue Six - If You Turn Your Back On Love (4:38)
-04. Blue Six - You Used To Rock (4:33)
-05. Blue Six - C'Mon (4:19)
-06. Blue Six - Noesis (4:50)
-07. Blue Six - I Tried To Tell You (5:08)
-08. Blue Six - Anything Is Possible (3:38)
-09. Blue Six - Bittersweet (4:21)
-10. Blue Six - One More Night (5:48)(   Читать дальше...   )Продолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305E63EE709EF123F52561791F671F8BD417F9EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485835   (89783) от 21.04.2012
-
-VA - Defected In The House Miami '12 (Mixed by Noir, Treasure Fingers & Franky Rizardo) - 2012 [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD1 Mixed By Noir продолжительностью 01:16:55
-01 - Pillow Talk / Roach Motel - Soft (Life & Death Remix) / The Night (Noir Vox Tool)
-02 - Hunter_Game - Touch Me
-03 - Guy Robin feat. Amba ShepherKolombo - Heaven Or Hell (Noir Non-Repeat Shortcut)I'm On Your Side (Noir Vox Tool)
-04 - Tevo Howard feat. Tracey Thorn - Without Me (Noir & Martin Thompson Remix)
-05 - Maceo Plex - Under The Sheets (Original Mix)
-06 - Toky - About You (Hot Since 82 Remix)
-07 - Noir & Haze - Around (Solomon Vox)(The Chorus Tool)
-08 - Dj Ali feat. Tim Fuller - You Don't Know (Matt Tolfrey Remix)
-09 - Dj T feat. Khan - Leaving Me (Clockwork CW Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7BFF36A768831C920FC7BD5808906C7D08D6C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484875   (89373) от 19.04.2012
-
-VA - Workout Stomach Crunch (2012) [MP3|320 кб/с]<Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Nicolai Masur-Hadlek
-02. Shorpi-Feel
-03. Sasha Dith, Sasha Zvereva & Steve Modana-Superboy  (Greysound Remix)
-04. Vincent Dacosta-All The Time
-05. Stereo House-Everyday So Fine (Original Mix)
-06. Nicolai Masur-Window To Another World
-07.  Babe Ruth-Hot Like Paris Hilton (Dr.Jays Pulling It Out Remix)
-08. Aaron Beta-Rave Sleep Repeat
-09. Virus-Mode (Earth Mix)
-10. Houseclashers-Output (Enzio Velli Vs. Balu Da Houseclasher Mix)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DED4A0C4E68F3A8857A95DDE87CBE436A311E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

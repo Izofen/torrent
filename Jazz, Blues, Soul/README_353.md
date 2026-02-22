@@ -1,3 +1,89 @@
+###  Публикация: 949558   (377705) от 23.10.2015
+
+Virgil Gonsalves Sextet & Steve White Quartet / Quintet - Jazz In Hollywood Series (1954) /1997, Nocturne Records/[FLAC|tracks+.cue]<Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bounce [03:18]
+ 02.Out Of Nowhere [02:31]
+ 03.Too Marvelous For Words [04:07]
+ 04.It Might As Well Be Spring [03:57](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229F4C819C4671D729F37E327FDF0ACC06B1E29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949409   (377695) от 23.10.2015
+
+The John Coltrane Quartet - Africa/Brass (1961) /2007, Verve/[FLAC|tracks+.cue]<Hard Bop, Post-Bop, Modal Music>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Africa [16:29]
+ 02.Greensleeves [10:01]
+ 03.Blues Minor [07:23]Жанр: Hard Bop, Post-Bop, Modal MusicПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72478B9FAE4720D99BB6CE943C88A7443DAF7369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254095   (377630) от 12.10.2018
+
+The Four Freshmen - Day By Day (1962) 1994, Hindsight Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day by Day [1:57]
+02. Lulu's Back in Town [2:12]
+03. Polka Dots and Moonbeams [2:41]
+04. Teach Me Tonight [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB89211B1EB43B575D9C63A3A9D609EB2DE258CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254164   (377629) от 12.10.2018
 
 Sainkho / Ned Rothenberg - Amulet (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Free Improvisation>
@@ -660,99 +746,6 @@ VA - Jazz and Classical Playlist (2016) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E3E90B4DE913708C5406B974A9C70866880BAFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069175   (375953) от 03.11.2016
-
-Simone Kopmajer - Moonlight Serenade (2004) Venus Records[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tea For Two [05:56]
- 02.Fragile [04:56]
- 03.L-O-V-E [03:44]
- 04.For No One [03:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666F365EECF7B496B17331D827C9DBCEF4D4D11A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574301   (375443) от 12.11.2012
-
-Amy Winehouse - At The BBC (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_375443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Know You Now (Live At Leicester Summer Sundae 2004)
-02. Fuck Me Pumps (Live At T In The Park 2004)
-03. In My Bed (Live At T In The Park 2004)
-04. October Song (Live At T In The Park 2004)
-05. Rehab (Live At Pete Mitchell 2006)
-06. You Know I'm No Good (Live At Jo Whiley Live Lounge 2007)
-07. Just Friends (Live At Big Band Special 2009)
-08. Love Is A Losing Game (Live At Jools Holland 2009)
-09. Tears Dry On Their Own (Live At Jo Whiley Live Lounge 2007)
-10. Best Friends, Right? (Live At Leicester Summer Sundae 2004)(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575576   (375407) от 10.09.2022
-
-Zachary Breaux - Uptown Groove (1997) Zebra Records [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakfast at the Epiphany [0:16]
-02. Cafe Reggio [6:06]
-03. I Told You [4:30]
-04. Never Can Say Goodbye [5:06](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1C65F12C24033E95D61034F699318654297D11
 ```
 
 https://mybot314.ru/tekegram_catalog/

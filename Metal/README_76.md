@@ -1,3 +1,32 @@
+###  Публикация: 1054892   (492248) от 20.09.2016
+
+Pantera - History Of Hostility (2015) LP [MP3|320 Kbps] <Thrash Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cowboys From Hell
+02. Cemetery Gates (Demon Knight Edit)
+03. Mouth For War
+04. Walk(   Читать дальше...   )Жанр: Thrash Metal, Groove MetalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15707D62CC7A77382FFDF8124DE3F629EFDB19AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544159   (491978) от 07.09.2012
 
 Tantara - Based On Evil (Limited Edition) (2012) [MP3|320 кб/с]<Thrash Metal>
@@ -733,35 +762,6 @@ Luna's Call - 2 Albums (2016-2020) [MP3|320 Kbps] <Progressive Metal, Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F36FAB371B8A823CD7CAFC4ABF7CFD49139F0FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405452   (483676) от 30.08.2020
-
-Motorpsycho - The All Is One (2020) [MP3|320 Kbps] <Psychedelic Rock, Alternative Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The All Is One (8:50)
-02. The Same Old Rock (One Must Imagine Sisyphus Happy) (5:18)
-03. The Magpie (5:36)
-04. Delusion (The Reign of Humbug) (2:44)(   Читать дальше...   )Жанр: Psychedelic rock, alternative rock, progressive rockПродолжительность: 01:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A746F59777ED5F54FA9CD1F1CB455AFF1F8D3AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

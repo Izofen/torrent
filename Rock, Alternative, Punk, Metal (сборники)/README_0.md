@@ -1,3 +1,32 @@
+###  Публикация: 1610383   (1042436) от 07.02.2023
+
+VA - Impressive Sound 2022.2: Volume II (2022) [MP3|320 Kbps] <Technical death metal, progressive black metal, deathcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xenobiotic - The Wretched Strive
+02. Sigh - Shoujahitsumetsu
+03. Psycroptic - Enslavement
+04. Sun Eater - Vermin (feat. Charles Pierron & Daniel Bramley)(   Читать дальше...   )Жанр: Technical death metal, progressive death metal, progressive black metal, deathcoreПродолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EB1E81BD5CCB2E6BBE48C19282BC2A89665176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610389   (1042407) от 07.02.2023
 
 VA - Impressive Sound 2022.2: Volume III (2022) [MP3|320 Kbps] <Post-metal, blackgaze, sludge metal>
@@ -716,35 +745,6 @@ VA - Hammond Organ in ROCK (2021) [MP3|320 Kbps] <Rock, Hammond>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5FCE9F75BF1D4177F9DDA659420105E09AE2AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623263   (1029398) от 01.04.2023
-
-VA - Anos 70 - Internacional (2023) [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029398.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Earth, Wind & Fire - September [03:35]
-002. Michael Jackson - Don't Stop 'Til You Get Enough [05:51]
-003. Elvis Presley - Suspicious Minds [04:29]
-004. Redbone - Come and Get Your Love (Single Version) [03:26](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 07:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AAA42C597DC890CC2DCBD2994E3B71BEB52882
 ```
 
 https://mybot314.ru/tekegram_catalog/

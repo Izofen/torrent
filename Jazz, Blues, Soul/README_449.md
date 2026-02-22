@@ -1,3 +1,32 @@
+###  Публикация: 1513606   (222278) от 30.11.2021
+
+Blues Attack - Bringing Down the House (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once and for All (4:04)
+02. In for the Kill (4:04)
+03. I Need Time (3:47)
+04. Long Gone (5:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66168616D0375997FA5F1876F5339C8B9A9717F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513610   (222114) от 30.11.2021
 
 Joey Landreth - All That You Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
@@ -722,35 +751,6 @@ Alessio Menconi - Standard Trio (2005) Abeat Records [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55CDB5A8DC7E313AEFB75E918CABCFABA9AD4C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651802   (220267) от 08.08.2023
-
-Hampton Hawes - The Sermon (1958) 2002, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down by the Riverside [4:45]
-02. Just a Closer Walk with Thee [5:03]
-03. Swing Low, Sweet Chariot [4:55]
-04. Nobody Knows the Trouble I've Seen [4:55](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C384191AF0A4101B4EFEC55D492727C963568B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

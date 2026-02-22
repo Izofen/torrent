@@ -1,3 +1,32 @@
+###  Публикация: 954543   (340107) от 08.11.2015
+
+VA - Feuerwerk der Schlagerhits (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foxpiraten - Sommer in der Stadt (04:15)
+02. Ben Luca - Weil man dich lieben muss (03:39)
+03. Rene Christian - Manchmal weint auch ein Mann (03:23)
+04. Lea Marie Kaiser - Du hast mein Herz (Heuf Nacht beruhrt) - Radio Mix (03:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAECD8EAED6489E036DEA192E5A4ED45D5214E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180494   (340028) от 04.11.2017
 
 VA - Русская Дискотека ХХ Века от Ovvod7 - 004 (2017) [MP3|320 Kbps]<Pop>
@@ -719,35 +748,6 @@ VA - XXXL Русский  №11 (2010) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C9723060D9FC1A47DC46CCBBD1BF95EA61BB8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331301   (333253) от 14.10.2019
-
-VA - Осень на Love Radio (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333253.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Artik & Asti - Под Гипнозом (3:28)
-2.Billie Eilish - bad guy (3:14)
-3.Cream Soda - Никаких Больше Вечеринок (3:46)
-4.GAMPER & DADONI feat. Emily Roberts - Bittersweet Symphony (feat. Emily Roberts) (3:14)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4295F8A7753AD1468EC7A87DC3529C5FA2115A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

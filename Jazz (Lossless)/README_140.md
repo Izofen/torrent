@@ -1,3 +1,32 @@
+###  Публикация: 904775   (653380) от 04.06.2015
+
+Cherry Poppin' Daddies - Please Return The Evening (2014) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come (2:49)
+02. Come Fly With Me (3:09)
+03. The Lady Is A Tramp (3:27)
+04. Ain't That A Kick In The Head (2:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC908887F5FE6028E6CC97F931120FCB0274B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291754   (652731) от 26.03.2019
 
 Manuel Rocheman - Cactus Dance (2007) Nocturne [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
@@ -716,35 +745,6 @@ Ryan Truesdell Presents - Centennial: Newly Discovered Works of Gil Evans (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6EAA96BADD009B0B8212C07F4B82DA97A80F244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141443   (650559) от 10.06.2017
-
-Paquito D'Rivera - La Habana-Rio Conexion (1992) 2005, Messidor [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Comparsa [03:33]
-02. Cancao De Noite [04:35]
-03. Danzas cubanas: A los tres golpes [01:22]
-04. Danzas cubanas: Invitacion [00:49](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB34369DDE87DB0D50110ABE136148B70EE2629
 ```
 
 https://mybot314.ru/tekegram_catalog/

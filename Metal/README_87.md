@@ -1,3 +1,32 @@
+###  Публикация: 1069933   (371409) от 05.11.2016
+
+Motley Crue - Carnival Of Sins (2006) 2CD, Live [MP3|320 кб/с]<Glam Metal, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371409.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:46] 01. Shout At The Devil
+[04:01] 02. Too Fast For Love
+[05:35] 03. Ten Seconds To Love
+[03:28] 04. Red Hot(   Читать дальше...   )Жанр: Glam Metal, Hard Rock, Heavy MetalПродолжительность: 01:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD31B1B6028B9E91168792CA3F7F60D7FCC5F9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069643   (371308) от 05.11.2016
 
 In Flames - Sounds From The Heart Of Gothenburg (2016) Live [MP3|320 Kbps] <Death Metal>
@@ -716,35 +745,6 @@ Hteththemeth - Best Worst Case Scenario (2016) [MP3|320 Kbps] <Avant-Garde Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD0A671E5EB6ECB8F4AF8EC151DD631F6DF6B4FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071413   (361862) от 09.11.2016
-
-My Dying Bride - Meisterwerk III (2016) [MP3|320 Kbps] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphonaire Infernus Et Spera Empyrium (demo)
-02. The Crown of Sympathy
-03. The Grief of Age (demo)
-04. A Kiss to Remember(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 03:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4DF91372D2C15D1421EE08C3A8466CE92F8B53
 ```
 
 https://mybot314.ru/tekegram_catalog/

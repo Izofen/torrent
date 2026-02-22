@@ -1,3 +1,90 @@
+###  Публикация: 1316360   (506925) от 25.07.2019
+
+Frank Foster - Well Water (1977) 2007, Piadrum Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy Spring [7:19]
+02. Cecilia Is Love [9:51]
+03. Simone [9:11]
+04. There'll Be a Time [6:12](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588468E993BB21C4D4CBF3B2F5D3309B1D6D0CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316362   (506924) от 25.07.2019
+
+Skip Wilkins - Solo: Recorded Live in Concert at Lafayette College (2007) Dreambox Media [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peau Douce [4:03]
+02. It Was Bound to Happen [3:37]
+03. Skylark [5:51]
+04. Nardis [4:39](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64036EA7B1229CA97D5C5975C2668DAE5FB725B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316268   (506922) от 25.07.2019
+
+USA Gospelchor Feat. Joan Orleans - Higher And Higher (1997) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Happy Day (4:22)
+02. You Are The Light (4:23)
+03. Showers Of Blessing (5:27)
+04. We Are The World (5:25)(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC19C3FEDBA8E778F59E576FFE1308AC5B192AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316413   (506913) от 25.07.2019
 
 Jimmy Joe - Rusty Room (2019) [MP3|320 Kbps] <Blues>
@@ -670,93 +757,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5281DADA7EA2041F196A73E7C3FB0E0305D8104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563254   (505391) от 13.07.2022
-
-Vincent Bloyet - Step on Your Groove (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Step on Your Groove (4:46)
-02. Happy Dream (4:18)
-03. Death Valley (4:06)
-04. Hobo Song (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109C2B42A9500587414D186B4E5F8CDAD5106FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563247   (505388) от 13.07.2022
-
-Sam Collie and The Roustabouts - One Eye Open (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roads (6:23)
-02. Whispers in the Dark (4:30)
-03. Fake Smiles (4:44)
-04. Beware Those Eyes (4:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718BDBB2AB31938E1D07A56341B771E14F451F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933711   (505369) от 02.09.2015
-
-VA - Cocktail Hour (Smooth Jazz & Lounge Music) (2015) [MP3|320 кб/с]<Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Keck - Cocktail Hour (02:52)
-02. E.L. Mahon - Feelin Good (03:07)
-03. Curtis S. D. Mac Donald - Sleazy Cheese (06:08)
-04. Richard Freitas - Manhattan Rainbow (03:00)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Jazz, LoungeПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D71938E64757FADE0BD510879AC0C730632FDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

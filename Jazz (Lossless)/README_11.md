@@ -1,3 +1,32 @@
+###  Публикация: 1453251   (1027114) от 10.03.2021
+
+Bud Powell - How High The Moon (1992) Pigeon [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How High the Moon [3:58]
+02. Body and Soul [6:07]
+03. Satin Doll [4:46]
+04. Parisian Thoroughfare [1:58](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A972E8C39EC3A6ACCDDBD3786F4996CD2E589277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453553   (1026977) от 11.03.2021
 
 Willie ''The Lion'' Smith - 1950 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
@@ -716,35 +745,6 @@ Swingrowers - Hybrid (2021) Japan [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A48B603C97A2FCF6C6C8EFDBA94D3463B16C27EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460179   (1022824) от 04.04.2021
-
-Swingrowers - Hits & Remixes (2017) Japan [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pump Up The Jam (feat. The Lost Fingers)
-02. Kiawami (Skeewiff remix)
-03. The Queen of Swing (feat. Gypsy Hill)
-04. Midnight(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EBCFF45817EFAA838ADEE6ED185590BAD203D8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,63 @@
+###  Публикация: 481913   (87978) от 12.04.2012
+
+Deep Purple - Phoenix Rising (2011) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание Deep Purple Phoenix Rising (CD + DVD) - это более двух часов материалов, посвященных Deep Purple периода MK IV (Coverdale-Hughes-Bolin-Paice-Lord), в их числе - 30 минут ранее не демонстрировавшихся (даже на бутлегах!) концертных видео из Японии.
+Материал, представленный на Deep Purple Phoenix Rising, увляется раритетным и уникальным. Релиз Феникса станет (   Читать дальше...   )01. Burn
+02. Love Child
+03. Smoke On The Water
+04. You Keep On Moving(   Читать дальше...   )Формат: DVD VideoПродолжительность: 02:22:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482039   (87965) от 12.04.2012
+
+Сборник клипов - VA - Various Music part. 20 (2012) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Armin van Buuren pres. Gaia - Jai Envie De Toi (by VJ NEWBEST) 720p (5:20)
+2. Big Ali - Bring Me Coconut ft. Gramps, Lucenzo 1080p (4:03)
+3. Camo & Krooked - Watch It Burn (Ft. Ayah Marar) 720p (3:20)
+4. Cedric Gervais - Molly 1080p (4:08)
+5. Darya Zhukova - Dangerously Sexy 1080p (4:03)Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~03:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B8D6B9BC395B7A3DE1BD376BC180FE90315923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481840   (87915) от 12.04.2012
 
 На дне (2 части) (1952) DVDRip
@@ -47,32 +107,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07520B2B8DBDCFF4DF8E7CE969E3F1AF3BCE5E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480651   (87618) от 10.04.2012
-
-Peter Hollens & Lindsey Stirling - Skyrim (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental, PopПродолжительность: 00:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F8298AE605BA5CD2C22D5F728B5E0299EC769A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,32 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9B647FF51EC15CFBE14292B215A0EC9A78974A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478632   (86507) от 05.04.2012
-
-Deepside Deejays, Jus Jack, Dada & Sandy Rivera - Lollipop (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_86507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA85C8410D7E8609FA6298BC4C6CB5536261C638
 ```
 
 https://mybot314.ru/tekegram_catalog/

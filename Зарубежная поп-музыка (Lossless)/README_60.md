@@ -1,3 +1,32 @@
+###  Публикация: 1064478   (426228) от 20.10.2016
+
+Ben Folds - So There (2015) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Chamber Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capable of Anything
+02. Not a Fan
+03. So There
+04. Long Way To Go(   Читать дальше...   )Жанр: Alternative Pop, Chamber PopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94548429848E65EC7C567EBEB08AF9238EBCF4DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064654   (425558) от 20.10.2016
 
 VA - BRAVO Hits 95 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
@@ -716,35 +745,6 @@ VA - Pure... Legends (2013) Box Set, 4 CD [FLAC|Lossless]<Retro, Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97F281764E12B421EA52C3C6C4C63840C5D404A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413080   (411916) от 02.10.2020
-
-VA - Lazy Morning (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America - Ventura Highway (03:31)
-02. Kate Bush - Army Dreamers (02:54)
-03. Tom Petty - Wildflowers (03:10)
-04. Emmylou Harris - Here, There and Everywhere (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22B3608F97FEB13A48FEE64AE3847D56F33BC2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

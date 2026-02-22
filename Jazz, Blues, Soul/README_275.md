@@ -1,3 +1,99 @@
+###  Публикация: 530170   (564965) от 01.08.2012
+
+Artie Kaplan - Confessions of a Male Chauvinist Pig (1997) [FLAC|Lossless]<Blues, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confessions Of A Male Chauvinist Pig
+02. Bensonhurst Blues
+03. Harmony
+04. God Fearin' Man
+05. Stay, Don't Go
+06. Music Is Sweet Music In My Soul
+07. The American DreamЖанр: Blues, JazzПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527239   (564963) от 01.08.2012
+
+Deniece Williams - This Is Niecy (1976) (2012 Remastered) [FLAC|Lossless]<Rhythm & Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открыл миру Денис Уильямс не кто иной, как сам Стиви Уандер (их познакомила кузина Денис, Джоан Харрис). Долгое время после знакомства Уильямс пела в бэк-трио Стиви. В 1975-м Уильямс ушла из трио и стала работать в паре с музыкантом и продюсером Морисом Уайтом, лидером группы Earth, Wind & Fire. В 1976-м на лэйбле Columbia выходит её дебютный альбом «This Is Niecey» и сразу попадает в Top 25 поп-чартов США.01. It's Important To Me :: 04:20
+02. That's What Friends Are For :: 04:26
+03. Slip Away :: 03:49
+04. Cause You Love Me Baby :: 04:07
+05. Free :: 05:58
+06. Watching Over :: 03:51
+07. If You Don't Believe :: 08:00
+08. Free (Short Single Version) (Bonus Track) :: 02:51
+09. That's What Friends Are For (Single Version) (Bonus Track) :: 03:47
+10. Free (Long Single Version) (Bonus Track) :: 03:27Жанр: Rhythm & Blues, SoulФормат: CD, Album, Reissue, RemasteredПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923441   (564633) от 31.07.2015
+
+Ornette Coleman - The Empty Foxhole (1966) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Old Days [06:51]
+02. The Empty Foxhole [03:22]
+03. Sound Gravitation [07:18]
+04. Freeway Express [08:19](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE09DB3B2A950D42C133389D886D8F8B997FF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235124   (564208) от 09.07.2018
 
 Tiny Grimes - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Jump Blues, Guitar Jazz>
@@ -688,93 +784,6 @@ Bobby Bryant - Earth Dance (1969) 2011, EMI Music [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEC7C69E8CF1211B157B71C60252E75CDE1B9632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235299   (562275) от 10.07.2018
-
-Hadley Caliman & Pete Christlieb - Reunion (2010) [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Dex (Anschell) - 6:29
-02. Up Jumped Spring (Hubbard) - 7:31
-03. Comencia (Caliman) - 8:03
-04. Gala (Caliman) - 11:03(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CF7DDAF275537A4D9EA438B2B228EACB9BC5CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235230   (562270) от 10.07.2018
-
-Ray Brown Trio - Live From New York To Tokyo (1987, 1989) 2CD, 2003, Concord Records [APE|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562270.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Red Hot Ray Brown Trio:
-01. Have You Met Miss Jones? [4:20]
-02. Meditation [6:06]
-03. Street of Dreams [5:19](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7BC0D23330F5F65D92E8FEC3CA0AFFD828F1C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235290   (562268) от 10.07.2018
-
-Mike Vax & Ron Romm - Collaboration (2018) [FLAC|Lossless|image + .cue] <Swing, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadow of Your Smile (Mandel) - 7:24
-02. Cornet Chop Suey (Armstrong) - 3:31
-03. My Pal Yachee (Leoncavallo) - 3:11
-04. I Remember Clifford (Golson) - 3:40(   Читать дальше...   )Жанр: Swing, BopПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A9EE11D555E7574F0302FBBC826A8F7D1AD7AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

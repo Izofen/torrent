@@ -1,3 +1,32 @@
+###  Публикация: 1381480   (826249) от 07.05.2020
+
+Stan Getz & Charlie Byrd - Jazz Samba 1962 (2013) Analogue Productions [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desafinado [5:52]
+02. Samba Dees Days [3:36]
+03. O Pato [2:35]
+04. Samba Triste [4:47](   Читать дальше...   )Жанр: Bossa Nova, Latin JazzПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88904C10CA1495E4789E6967BFEAB1AA3B066CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196232   (826034) от 01.01.2018
 
 Maria Jacobs - Lucky Girl (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -716,35 +745,6 @@ VA - All That Jazz Is Back (1999) Original Jazz Classics [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFDD65BB83EB21BC658B2792186D4828B1A3534E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382156   (822662) от 09.05.2020
-
-Low Kick Collective - Exhale (Выдох) (2019) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Halo / Гало (5:59)
-02. Carriage / Экипаж (4:39)
-03. Rhinoceros / Носорог (6:20)
-04. One who seeks an exit / Тот кто ищет выход (7:57)(   Читать дальше...   )Жанр: Dark Jazz, ExperimentalПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8A46E5AF0FA0D6707E28D399F3798E341B75C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

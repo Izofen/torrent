@@ -1,3 +1,30 @@
+###  Публикация: 1410097   (438516) от 20.09.2020
+
+Affinity Publisher Beta 1.9.0.742 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реализуйте свое видение с помощью Affinity Publisher, самого современного профессионального программного обеспечения для публикации от разработчиков отмеченных наградами приложений Affinity Designer и Affinity Photo.
+Это невероятно плавное, интуитивно понятное приложение дает вам возможность комбинировать изображения, графику и текст, чтобы сделать красивые макеты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2020Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AC72AB2869F0257CE193E67D4C09B960251561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410251   (438515) от 20.09.2020
 
 Мировой кубок по мотогонкам среди электробайков 2020. Гран-При Эмильи-Романьи / FIM Enel MotoE World Cup 2020. Emilia-Romagna GP (2020) WEB-DL [H.264/720p-LQ]
@@ -661,35 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F87F736170C5BC3F9944B6172FF9B6AEC4CF75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944579   (438403) от 08.10.2015
-
-VA - Most Uplifting (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BCee - Class of '92
-02. Technimatic - Not Far to Go
-03. Mutated Forms - Smalltalk
-04. LSB - Rolling Sideways(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1DA0C828F2A773CD49F05E7FFA0D37DFBAF4EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

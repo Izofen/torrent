@@ -1,3 +1,32 @@
+###  Публикация: 1827445   (186377) от 21.10.2025
+
+Tom Hambridge - Down The Hatch (2025) [FLAC 24/44.1|Lossless|WEB-DL] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Willie Dixon's Gone (3:13)
+02.  Everytime I Sing The Blues (4:21)
+03.  I Want You Bad (3:14)
+04.  How Blues Is That (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356BB3DD3E5AE693FFB05A79C4688D07A7FD19BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663948   (186296) от 24.09.2023
 
 Roy Eldridge & Coleman Hawkins - Just You, Just Me (1959) 1990, Stash Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -718,35 +747,6 @@ Anat Fort Trio - Colour (2019) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB7F848D0DE8EE23D0F4EE547FDFCC5B505A3DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592197   (184604) от 21.11.2022
-
-Jackie McLean - Eight Classic Albums (1957 - 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184604.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Gone With The Wind [7:28]
-02. Our Love Is Here To Stay [4:17]
-03. Mean To Me [8:46](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 05:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76423E77E97CAA2B44D8085299CE73001CE50ACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

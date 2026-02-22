@@ -1,3 +1,90 @@
+###  Публикация: 1576464   (366489) от 14.09.2022
+
+The C J Smith Band - Coming Home Again (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home Again (3:12)
+02. One Golden Dream (4:43)
+03. Riding That Train (4:40)
+04. Let the River Carry Me Home (5:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179ACA458CE83370C3497D1DDC3F1772E5DC3FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576458   (366488) от 14.09.2022
+
+Stone Free - Stone Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Free (5:15)
+02. Angel (3:58)
+03. Izabella (3:39)
+04. Little Wing (3:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4911886C3FC4BAA9E8932A2563BD942F7DCB9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576465   (366487) от 14.09.2022
+
+The Curve - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sinner (Remastered) (4:50)
+02. Ride My Pony (2022 Radio Edit) (3:09)
+03. I Came Alone (3:37)
+04. Dark Gospel (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95FC70D7F857AF2A142DDCD254A6772D14EB136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576472   (366486) от 14.09.2022
 
 The Peanuts - Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -661,93 +748,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC754BADE4BFD2F3B1C8F6B13CCC3255A0559879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416686   (365399) от 17.10.2020
-
-Donald Byrd - Slow Drag (1967) 1993, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Drag [9:47]
-02. Secret Love [3:59]
-03. Book's Bossa [6:53]
-04. Jelly Roll [5:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:218AD2575CB7B5AE294471A03E5AE3D3414E92C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416548   (365389) от 17.10.2020
-
-Spaza - 3 Albums (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bantu Education (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:02:28]
-02. Sizwile (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:08:28]
-03. Mangaliso Sobukwe (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:01:32]
-04. Solomon, Tsietsi & Khotso (feat. Nonku Phiri, Malcolm (   Читать дальше...   )Жанр: Jazz, ExperimentalПродолжительность: 3 CD, 02:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7441526EA750618A06968DCD1B4AEB896EEC58BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416682   (365387) от 17.10.2020
-
-Tito Puente And His Orchestra - Mambo Macoco (1949 - 1951) 1992, Tumbao Cuban Classics [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mambo, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mambo la Roca [2:37]
-02. Lo Dicen Todos [3:19]
-03. Babaratiri [3:04]
-04. A Burujon Punao [3:14](   Читать дальше...   )Жанр: Latin Jazz, Mambo, Big BandПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B84FB137CB54287BFB052FA5481BB8AEAA7DE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

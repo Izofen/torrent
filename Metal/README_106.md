@@ -1,3 +1,32 @@
+###  Публикация: 1645507   (232837) от 09.07.2023
+
+Collapsed Minds - Dead End Theory (2017) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Revolution
+02. King
+03. Frontiers in the Sky
+04. Behind an Open Window(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4202AD9E46B27033D7B1750BE9FE551F2531F2FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645511   (232805) от 09.07.2023
 
 Collapsed Minds - Abyss (2023) [MP3|320 Kbps] <Melodic Death Metal>
@@ -716,35 +745,6 @@ End of the Dream - Until You Break (2017) [MP3|320 Kbps] <Melodic Symphonic Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C9551558A2EAD8CD883777BE721653FA4766060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644306   (232295) от 05.07.2023
-
-Scaphis - Dissected & Fermented (2022) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gathering
-02. Broken By The Wheel
-03. The Hunt
-04. Let Me Out(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28DBEFC5B50BBCC37B63D64D39D5124BF4EA795
 ```
 
 https://mybot314.ru/tekegram_catalog/

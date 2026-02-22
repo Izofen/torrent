@@ -1,3 +1,90 @@
+###  Публикация: 1287248   (705527) от 06.03.2019
+
+Bernt Rosengren & Claes-Goran Fagerstedt - Jazz Club 57 (1957 - 1962) 2000, Dragon Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Remember April [3:56]
+02. Willow Weep for Me [2:39]
+03. Sputnik [6:07]
+04. Well, You Needn't [5:37](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469456C2F01ED6D19DCA6F841FD415FFC47D0722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287246   (705526) от 06.03.2019
+
+Jimmy Smith - Cherokee (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is This Thing Called Love [7:03]
+02. I'm in the Mood for Love [6:25]
+03. Things Ain't What They Used to Be [5:50]
+04. On the Sunny Side of the Street [5:13](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871683EC9459CAC1A990921228308F548310E048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287251   (705525) от 06.03.2019
+
+Rolf Billberg - Rare Danish Recordings by a Swedish Jazz Legend (1957 - 1966) 2005, Storyville [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Believe That You're in Love with Me [5:59]
+02. Moonlight in Vermont [3:12]
+03. I'm Building Up for a Nervous Breakdown [4:22]
+04. El Domingo [4:35](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233E62498878A92C6111724BBCCC559A8737A055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287255   (705524) от 06.03.2019
 
 Janne Ersson Big Band - Live At The Stockholm Jazz Festival (2004) Sittel Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -658,93 +745,6 @@ Rein de Graaff Trio - Tenor Conclave (1992) Remaster, 2015, Solid Records[FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B12998A562A5685D1CD16C0BF1063982C0982B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026448   (704156) от 15.06.2016
-
-Tom Killner - Hard Road (2015) [FLAC|Lossless|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Home    02:46
-02. Ain't No Rest for the Wicked    04:56
-03. Feeling Good    05:31
-04. Fake It    02:49(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA91D035E56C3968E107315F1EA161A747C46D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402119   (703947) от 13.08.2020
-
-Hampton Hawes - Three Classic Albums Plus (1955 - 1956) 2013, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703947.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jordu [7:10]
-02. Groovin' High [5:48]
-03. Takin' Care [8:09](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7761F3660296ABCA29C8A9F60BAFC7CDC6823F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402125   (703944) от 13.08.2020
-
-Al Basile - B's Hot House (2019) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So-Called Storyteller (04:49)
-02. Five Roads (03:51)
-03. Razor Wire (04:30)
-04. Try One (02:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCE3DC4D1E050CC03EC0078E515EF18F0B62851
 ```
 
 https://mybot314.ru/tekegram_catalog/

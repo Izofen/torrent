@@ -1,3 +1,102 @@
+###  Публикация: 767151   (867610) от 16.03.2014
+
+Brad Mehldau & Mark Guiliana - Mehliana Taming The Dragon (2014) [FLAC|Lossless|WEB-DL]<Fusion, Modern Jazz, Electronics>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Taming the Dragon
+02. Luxe
+03. You Can't Go Back Now
+04. The Dreamer
+05. Elegy for Amelia E.
+06. Sleeping Giant
+07. Hungry Ghost
+08. Gainsbourg
+09. Just Call Me Nige
+10. Sassyassed Sassafrass(   Читать дальше...   )Жанр: Fusion, Modern Jazz, ElectronicsПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB449F5ADC991774472385A7A27D0400BF18FD76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 302416   (867559) от 01.03.2011
+
+Chuck Loeb - All There Is (2002) [APE|Lossless]<Smooth-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. As Is (5:17)
+2. Sierra Nevada (4:22)
+3. True Or False (5:22)
+4. Golden Heart (5:09)
+5. Sarao (5:30)
+6. Fundamentally Sound (4:50)
+7. In The Hands (5:09)
+8. Tenerife Blue (5:19)
+9. Bread & Butter (5:26)
+10. Love Is All There Is (2:59)Жанр: Smooth-JazzПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375227   (867299) от 13.04.2020
+
+Allan Vache and Harry Allen - Allan And Allen (2001) Nagel–Heyer Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Come Back To Me [6:24]
+02. Jive At Five [5:32]
+03. Lake Ponchartrain Blues [5:22]
+04. Allan And Allen [4:31](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981408FB2E785482CC323A98B4C874C1EC307B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375229   (867287) от 13.04.2020
 
 Georgie Auld - Four Classic Albums 1955 - 1959 (2016) 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
@@ -679,102 +778,6 @@ Patrik Jansson Band - 2 Album (2011, 2014) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A73DB0449FBF89FA741DF06B577FFA2C3E7EDFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188577   (866326) от 03.04.2010
-
-Miles Davis - 2 альбома (1999, 2001) [APE, FLAC|Lossless]<Jazz, Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Мягкие, лирические баллады в исполнении трубача Майлза Дэвиса (Miles Davis) и др. музыкантов.
-Можно расслабиться и отдохнуть...01. I Fall In Love Too Easily (6:48)
-02. I Thought About You (4:55)
-03. Summer Night (5:58)
-04. My Ship (4:31)
-05. Someday My Prince Will Come (9:08)
-(   Читать дальше...   )Жанр: Jazz, Hard Bop, CoolПродолжительность: 03:39:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767681   (866310) от 17.03.2014
-
-The Jeff Steinberg Jazz Ensemble - Jazz Blends (2006) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. How About You (3:09)
-02. That Old Black Magic (3:53)
-03. Black Coffee (4:21)
-04. Old Devil Moon (3:21)
-05. But Not for Me (3:44)
-06. A Taste of Honey (4:22)
-07. You're the Cream in My Coffee (4:11)
-08. I'll Never Fall in Love Again (4:35)
-09. The Coffee Song (4:00)
-10. You Stepped Out of a Dream (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317552D257E41F0B968A250885BABEFBDBEFAE56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999293   (866264) от 21.03.2016
-
-VA - Ultimate Smooth Jazz (2009) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы обязательно влюбитесь в этот сборник. Во-первых, потому что все мелодии здесь удивительно узнаваемы  и знакомы. Во-вторых, потому что легкое и непринужденное исполнение создаст такое же легкое настроение. Ну и наконец, потому что завораживающие джазовые интерпретации и расслабляющие ритмы с изяществом плетут кружева мелодий. Слушая эти три диска я представлял себя (   Читать дальше...   )CD1:
-01. Bob James - Angela  (5:44)
-02. Richard 'Groove' Holmes - Moon River  (6:28)
-03. 2Play - Just The Two Of Us  (4:33)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 03:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA18E917E116E56C3705A2D63444398F1F6EAF81
 ```
 
 https://mybot314.ru/tekegram_catalog/

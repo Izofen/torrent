@@ -1,3 +1,90 @@
+###  Публикация: 918838   (586010) от 16.07.2015
+
+Elmore James - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dust My Broom (2:55)
+02.  It Hurts Me Too (3:05)
+03.  Coming Home (2:26)
+04.  Knocking At Your Door (2:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F02C11FFC6624B6E4109E57740ED3A29CE417E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918851   (586006) от 16.07.2015
+
+Ida Sand - Young At Heart (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinnamon Girl
+02. Hey Hey, My My
+03. Don't Let It Bring You Down
+04. Harvest Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2AB8B31729D28662B640CB4B822D2210F09F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918758   (586005) от 16.07.2015
+
+Zoot Sims - And The Gershwin Brothers (1975) /2001, Planet/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man I Love [06:24]
+02. How Long Has This Been Going On [02:14]
+03. Lady Be Good [04:35]
+04. I've Got A Crush On You [02:57](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18EB976FFB4CDA6CC09EDCFB997C4B7134079DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918831   (586003) от 16.07.2015
 
 Billie Holiday - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
@@ -659,93 +746,6 @@ Hampton Hawes - Here And Now (1965) 1991, Original Jazz Classics [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7716DCBBA6309E5852D7904D689DD2BC4C5F572D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552937   (584824) от 23.05.2022
-
-Chico Hamilton - The Complete Pacific Jazz Recordings Of The Chico Hamilton Quintet (1954 - 1959) 6CD, 1997, Mosaic Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584824.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Drums West [4:20]
-02. A Nice Day [2:55]
-03. My Funny Valentine [4:21](   Читать дальше...   )Жанр: West Coast Jazz, Hard BopПродолжительность: 06:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF55CCBEC33DE305169B57A3EE2B432F3B0F1EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552948   (584821) от 23.05.2022
-
-Sarah Vaughan - Ballads (1960 - 1963) 2002, Roulette Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All or Nothing at All [3:14]
-02. Midnight Sun [5:36]
-03. Dreamy [2:58]
-04. You Go to My Head [4:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF3E510950035B2FE2E93E68CDF708B84221820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552978   (584692) от 23.05.2022
-
-Dixie Kings Of Hungary - Still Alive (2018) [FLAC|Lossless|tracks + .cue] <Dixieland, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz me blues (Tom Delaney)
-02. Big butter and egg man (Percy Venable)
-03. Dippermouth blues (K. Oliver / L. Armstrong)
-04. We'll meet again (R. Parker / H. Charles)(   Читать дальше...   )Жанр: Dixieland, Big BandПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A560C89D24C7505C97FB2FB9C3376B4FD48E0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 905800   (641698) от 10.06.2015
+
+Ульяна КаракоZ - New Angels (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Angels
+ 02. Каждый по себе
+ 03. Стефаниада
+ 04. Русалка(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B7196C858F2246EE305EA03CA6A3381677887B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906303   (641623) от 10.06.2015
+
+The Supremes - At The Copa: Expanded Edition (2012) 2CD [FLAC|Lossless]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641623.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ORIGINAL STEREO LP (1965)
+1. Opening Introduction
+2. Put On A Happy Face(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 02:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56DFA77C95BBBED1FCAC309C38D00816C5E7CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907016   (641619) от 10.06.2015
+
+Юлия Ковальчук - JK2015 (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В дым...
+02. Стать чужими
+03. В заметки
+04. Шоколад(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F2FB87FE8B018F19F4A4300CA3706A2D3D13BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905846   (641520) от 10.06.2015
+
+Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delilah
+02. Help Yourself
+03. She's A Lady
+04. What's New Pussycat(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F6BAAF62C249BD93E450365DE54E004D516E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906976   (641476) от 10.06.2015
 
 Rick Astley - The Best Of (2014) [FLAC|Lossless]<Pop>
@@ -637,122 +753,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B03D1E00C7646CD71D85463FD3A03C755E1E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143038   (639221) от 16.06.2017
-
-Estimado - Escape To Heaven (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Dancing on My Own
-02. Faster
-03. Believe in Me
-04. I Want You Heaven(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843ECD339BA90048B779E5876E6C9D304AED01FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542263   (639107) от 06.04.2022
-
-Quango & Sparky - Disco (1980) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Fran Jubilee (3:16)
-02. Do The Boogaloo (3:12)
-03. Do The Boogaloo (Instrumental) (3:13)
-04. The Disco Rock (3:29)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF47EC241FB029882ECE92E9317F962B7278BC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142950   (639083) от 16.06.2017
-
-Виктор Рыбин и Наталья Сенчукова - Замечательно (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639083.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кусочек сладкого пломбира
-2. Битва за любовь
-3. Уезжаю
-4. Несерьёзно(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AF2DB78B379B7E8BE8A8602CD5A1929A47BD2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293232   (638927) от 02.04.2019
-
-Дискотека Авария - Новогодний ТрЭш (2019) Live [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638927.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Х.Х.Х.И.Р.Н.Р. (Live)
-2. Опа! (Live)
-3. Труба зовёт (Live)
-4. Ноги-ноги (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09167726F67F0CAD17B774AB3A493B164D7F5C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1007516   (821621) от 15.04.2016
+
+Art Blakey & The Jazz Messengers - 'S Make It (1964) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Faith [03:47]
+ 02.'S Make It [05:41]
+ 03.Waltz For Ruth [05:47]
+ 04.One For Gamal [03:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724408F09CAABA7CC73BF868DA8F675CDDC1B8E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007549   (821619) от 15.04.2016
+
+Spirit Level - Kolossi Blues (2014) [FLAC|Lossless|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You See Is What You Get    03:47
+02. It's Gone    03:30
+03. It's A Hard Life    04:52
+04. Foolish Pride    03:08(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862A30F6918626DCADCA20DF4ED2C3F738CCE328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007437   (821613) от 15.04.2016
+
+Clube de Patifes - Casa de Marimbondo (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Mama (feat. Luiz Caldas) (04:22)
+02. Radiola (03:59)
+03. Baby Blues (03:55)
+04. O Inquilino (03:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F023BEF4F0A6185D4369E380596076D89B398A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503231   (821341) от 18.10.2021
 
 Sadao Watanabe - Naturally (2016) Red River [FLAC|Lossless|tracks + .cue] <Post-Bop, Crossover Jazz>
@@ -657,93 +744,6 @@ Willie Phoenix & The Soul Underground - Blues My Soul (2016) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E87D624122B24B24E065E87CBF310B4CF9BD0D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503502   (819596) от 19.10.2021
-
-Dinah Shore - Happy In Love (1940 - 1942) 1995, Hallmark Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeysuckle Rose [2:45]
-02. I Do, Do You? [2:37]
-03. Manhattan Serenade [3:11]
-04. If It's You [3:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9CB7DCBAD4F294CF2D68C871AC19206E9014E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382447   (819414) от 11.05.2020
-
-Mark Murphy - Song For The Geese (1997) RCA Victor [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Go to My Head [6:19]
-02. Sugar [3:37]
-03. Baltimore Oriole [4:01]
-04. Do It Again [4:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE823C634946E146DD9D7DCAD0CDFFF61AD754FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196916   (819351) от 05.01.2018
-
-Marcus Roberts Trio - In Honor Of Duke (1999) Columbia [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rickitick Tick [06:03]
-02. There It Is [08:50]
-03. The Feeling Of Something New [09:09]
-04. Take A Chance [05:13](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97171544A3D3A8C28DFD4C839B7D57711B008DB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

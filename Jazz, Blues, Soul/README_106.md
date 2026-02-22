@@ -1,3 +1,90 @@
+###  Публикация: 1104302   (880278) от 15.02.2017
+
+Full Fat - Most of What Follows is True (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Course I'll Miss You (3:16)
+02. Blue (3:32)
+03. Lucie-Lou (2:45)
+04. I'm Talkin' To You (2:38)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E7B81B4E024A884E491B331F75777EEF0B594B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104045   (880275) от 15.02.2017
+
+Bim Bam Baby - Who Am I Gonna Love Tonight (1999) [FLAC|Lossless|image + .cue] <Jump Jive, Neo Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight I'm Gonna Love You
+02. Come Back My Love
+03. Love Roller Coaster
+04. I Gotta Have Your Love(   Читать дальше...   )Жанр: Jump Jive, Neo SwingПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE71CC49A05D69668FE31CBEBE5992E647C63707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104215   (880264) от 15.02.2017
+
+McCoy Tyner Quartet - New York Reunion (1991) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Recorda Me [09:49]
+ 02.Miss Bea [07:10]
+ 03.What Is This Thing Called Love? [08:05]
+ 04.My Romance [06:37](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FDCEE1EB06871FD2BE6E0A96E4AB313596C3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104289   (880263) от 15.02.2017
 
 Elisabeth Melander - Reflections Of A Voice (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
@@ -682,103 +769,6 @@ Blues It Up, Vol. 2Жанр: Blues, Blues RockПродолжительность
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B92A463F6502917AED8EAC9A08D1DC41677AC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373488   (878525) от 07.04.2020
-
-Afro Cuban All Stars - A Toda Cuba Le Gusta (1999) [FLAC|Lossless|image + .cue] <Jazz, Latin>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amor Verdadero
-02. Alto Songo
-03. Habana Del Este
-04. A Toda Cuba Le Gusta(   Читать дальше...   )Жанр: Jazz, LatinПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02ECBE1C82BD0C31B2B5BC8C9D6596E0F4CBC971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764991   (878481) от 10.03.2014
-
-Kathryn Moses - Kathryn Moses (2002) [FLAC|Lossless]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. I Met A Special Man
- 02. Oleo
- 03. My Romance
- 04. Midnight
- 05. Ready Or Not
- 06. Touch Me
- 07. Prince Charming's Brother
- 08. MidmorningЖанр: Post-BopПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C10E616DD75EC5043FCB674D59FF2FC35DECB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764990   (878479) от 10.03.2014
-
-Katharine Whalen - Jazz Squad (1999) [FLAC|Lossless]<Jazz-Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. 'Deed I Do
- 02. No Greater Love
- 03. Sugar
- 04. Yesterdays
- 05. Just You, Just Me
- 06. Now Or Never
- 07. My Old Flame
- 08. That Old Feeling
- 09. Badisma
- 10. All My Life(   Читать дальше...   )Жанр: Jazz-VocalПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74BA7E8B062078A8B4C984A7886E134D34EE9D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

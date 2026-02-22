@@ -1,3 +1,33 @@
+###  Публикация: 550281   (461164) от 21.09.2012
+
+[Wallpapers] HQ Wallpapers №23
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461164.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HQ Wallpapers №23
+Название: HQ Wallpapers №23
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgРелиз от:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D9231B4451386F2C5A77C21D7DDC21F5368800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550263   (461163) от 21.09.2012
 
 [Wallpapers] HQ Wallpapers №21
@@ -667,41 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82210BE043D37DDA73B929A1ADE8641FCA4E6C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549634   (461001) от 21.09.2012
-
-Spectrasoul - Delay No More (2012) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Doubt
-02. Light In The Dark (feat. Terri Walker)
-03. Ish Chat
-04. Sometimes We Lie
-05. The Curb
-06. Knuckle Waltz
-07. Away With Me (feat. Tamara Blessa)
-08. Fool's Paradise
-09. Buggin
-10. SOUR (feat. Echo Park)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E7C324127EAC14D1286A7D94CD6293651AB40E
 ```
 
 https://mybot314.ru/tekegram_catalog/

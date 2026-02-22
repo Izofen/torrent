@@ -1,3 +1,61 @@
+###  Публикация: 1832226   (213484) от 30.10.2025
+
+VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amlex - Be With You 02:40
+02. Tod Allen & Kris Kiss - Feelings 03:33
+03. Francesco Diaz, Radio Killer & Young Rebels - Clothes Off (Jeff Rock Remix) 06:09
+04. Muphus - Mahaba 03:35(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7071191FA515ADFE437A280149DED7B9A3971E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602046   (210982) от 03.01.2023
+
+VA - Beach Lounge Selected, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_210982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Medsound -  Afterlife  (3:44)
+02.  Medsound -  Satellites  (4:16)
+03.  Medsound, Maria Estrella -  Firestorm  (3:45)
+04.  Pavel Svetlove -  Look at Me (Medsound Remix)  (4:38)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Chill HouseПродолжительность: 01:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48722385C51B9F463B9D1DEA8D753D9EAA07AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642234   (210495) от 26.06.2023
 
 Tensnake - Stimulate (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Nu-Disco>
@@ -679,61 +737,6 @@ VA - House Relax 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A1899F9862AEFDD66C3357644D9B74C18A5F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589670   (189758) от 11.11.2022
-
-NOIYSE PROJECT - Path Of The Sun 1 (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive (8:39)
- 02. In a Cloudland (9:01)
- 03. Mindscream (8:23)
- 04. Night Call (8:18)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65758414BD860D1E59F2C3D0A3DF5D68561C3A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662270   (188069) от 17.09.2023
-
-Robert Babicz - Light Of The Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F5EB08C08DE64AF81CD7D72F7C62FF308B4D5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

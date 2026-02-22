@@ -1,3 +1,32 @@
+###  Публикация: 1192997   (262534) от 19.12.2017
+
+Tim Warfield - Tim Warfield's Jazzy Christmas (2012) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Clause Is Coming to Town [08:17]
+02. Let It Snow [09:04]
+03. Joy to the World [06:56]
+04. Little Drummer Boy [08:49](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, ChristmasПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD188AA05703C82F494D309B977FC7BCAB45511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192995   (262528) от 19.12.2017
 
 Toots Thielemans - Collage (1980) 2017, Sony Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -716,35 +745,6 @@ Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone (2001) Cam Jazz [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE96A9F5BE00DC9E7E2A4B425348858C12E6B3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193892   (261807) от 23.12.2017
-
-Anson Funderburgh & The Rockets - Blast Off: The Best Of Anson Funderburgh & The Rockets (2006) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me What Have I Done Wrong? (03:09)
-02. A Man Needs His Loving (03:40)
-03. Come On (02:47)
-04. Rambling Woman (03:03)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33D353D6F44DFD779C521907BB5C51B13AA9F6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

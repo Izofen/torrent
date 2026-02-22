@@ -1,3 +1,32 @@
+###  Публикация: 1844518   (1050425) от 28.12.2025
+
+VA - Best Of Tidy Two 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yusef Kifah - Pumpin' 03:43
+02. Rob Tissera - Uncontrollable Joy 03:57
+03. Technikal & Brad Thatcher - Centauri 04:01
+04. K-Series - Say Goodbye 03:51(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5AE1ACA68CF6CA020F3BED54E2AF1E3A08DD1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844638   (1050424) от 28.12.2025
 
 VA - The Best Releases 2025 of Voice of Our Hearts (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -716,35 +745,6 @@ VA - Uplifting Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53BB9610532547457BAD3579935F684A4C5DE9CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606259   (1044160) от 25.01.2023
-
-VA - Black Hole Trance Music 01-23 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand & Clara Yates - Million Stars (Extended Mix) [07:47]
-02. Fisherman & Nifra - Passion (Extended Mix) [06:32]
-03. Alex Kunnari & AK & Christian Burns - Anywhere With You (Extended Mix) [05:13]
-04. Johan Gielen & Tastexperience - Serenity (Extended Mix) [07:37](   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABE874D347A56199200D4BB19244692B8E556FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

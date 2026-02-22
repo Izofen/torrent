@@ -1,3 +1,32 @@
+###  Публикация: 1669592   (172642) от 17.10.2023
+
+Dominance - Slaughter of Human Offerings in the New Age Of Pan (2023) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battlefield
+02. Blood Countess
+03. Deadly Winter
+04. Ritual(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD92A97B966BE07896B1CA1551B1E47CE3A48CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670084   (172362) от 19.10.2023
 
 Saclas - Achamoth (2023) [MP3|320 Kbps] <Death Metal>
@@ -714,35 +743,6 @@ A Sound of Thunder - Parallel Eternity (2020) [MP3|320 Kbps] <Symphonic-Power-He
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3D328D1EF0BCC1B11E680D3247211DBA3415FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674159   (162547) от 04.11.2023
-
-Asmodean - By a Thread (2023) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Undoing
-02. Below The Line
-03. Defying Truth
-04. Scorned(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA149C4BFD5EA053E1D967D4FE3307D2DB63C20B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,61 +1,3 @@
-###  Публикация: 1793528   (67487) от 25.04.2025
-
-VA - The Best of Classic Jazz 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Lounge, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Cosmic Junk - Day Relax (Original Mix)(03:13)
-02 James Voorn - Soul Terminal (Original Mix)(03:14)
-03 Lofi Shifters - Jazzy Invitation (Original Mix)(03:16)
-04 Code2875 - Da Vinchi (Original Mix)(03:08)(   Читать дальше...   )Жанр: Jazz, Lounge, Bossa NovaПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E70140EE4A6D70B3C882C23B8AA951E9B5D09F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793530   (67461) от 25.04.2025
-
-VA - Smooth Jazz Sounds 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Elegant Moves - Sweet Life (Original Mix)(03:37)
-02 Carter Davids - Sunshine Feelings (Original Mix)(03:22)
-03 John Burtons - Summer Devotion (Original Mix)(04:08)
-04 Marco Bonucci - Summer Garden (Original Mix)(03:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D0E680C585491F37CD27B48757A1AFB528FE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793635   (67449) от 25.04.2025
 
 Terry Smith - Fall Out (1968) 2006, Sunbeam Records [FLAC|Lossless|tracks + .cue] <Big Band, Jazz-Rock>
@@ -745,6 +687,64 @@ Sarah Jane Cion - Moon Song (2000) Naxos Jazz [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC0BC1BDE091D5BEA77BC85FFC9D5C70B3A12302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795772   (67031) от 06.05.2025
+
+Billy Strayhorn's Septet - Cue For Saxophone (1959) 1988, London [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cue's Blue Now [10:07]
+02. Gone with the Wind [4:18]
+03. Cherry [5:55]
+04. Watch Your Cue [3:11](   Читать дальше...   )Жанр: SwingПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980144974277C71360AE0D99D8FC4A5A5E7558D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795769   (67030) от 06.05.2025
+
+Bennie Green - Soul Stirrin' (1958) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Stirrin' [6:53]
+02. We Wanna Cook [6:41]
+03. That's All [6:29]
+04. Lullaby of the Doomed [6:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075506484817A680DA0003A6D0FD3CAC7B7260E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

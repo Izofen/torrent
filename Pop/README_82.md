@@ -1,3 +1,119 @@
+###  Публикация: 1200727   (794970) от 22.01.2018
+
+VA - Euro Disco: The Lost Legends Vol. 14 (2017) [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'I' Featuring Alison Yasou - More Than A Dream (7:43)
+02. Tanay - Just One More Night (5:02)
+03. Double Date - Feel It (7:04)
+04. Kevin Hall - Rocket Man (7:20)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A7745F1E8106FE1480655C859F6BE8C416449F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200724   (794965) от 22.01.2018
+
+VA - Euro Disco: The Lost Legends Vol. 11 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koo De Tah - Too Young For Promises (7:01)
+02. Laurent Voulzy - Les Nuits Sans Kim Wilde (6:39)
+03. Scott Marlowe - Living In Chinatown (7:38)
+04. Telepathic - We Are Telepathique (4:54)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698E30B21EDA7C2284681E36729B5A444F0348D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200823   (794917) от 22.01.2018
+
+Marzio - Smoke On The Volcano (1980) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke On The Water (7:34)
+02. Volcano (5:38)
+03. Jumping (3:38)
+04. The Phantom Of The Opera (6:27)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989E11D5CD52A30515DE4AAE9A8FD9DA42CFBACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200907   (794915) от 22.01.2018
+
+Тина Кароль - Полюс притяжения (2007) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полюс притяжения
+02. Белое небо
+03. Люблю его
+04. Ни к чему(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4EA0FA12BC153A32956C541516962305F68F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200799   (794914) от 22.01.2018
 
 VA - Disco Deutschland Disco (Disco, Funk & Philly Anthems From Germany 1975-1980) (2007) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -626,122 +742,6 @@ Demis Roussos - Forever & Ever (the Best Of) (2013) [APE|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9446A1566CE2AF073884513C8301C9F1A138202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386872   (793552) от 30.05.2020
-
-Apollonia 6 - Apollonia 6 (1984) Reissue CD, 1990, Warner Bros. Records [MP3|320 Kbps] <Electronic, Funk Soul, Synth-pop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Birthday, Mr. Christian (7:09)
-02. Sex Shooter (3:40)
-03. Blue Limousine (6:22)
-04. A Million Miles (I Love You) (5:52)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Synth-pop, PopПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94988961C55CC0B701423B38DB008F819C5E2B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010585   (793551) от 01.05.2016
-
-Ladies Of Soul - Live At The Ziggo Dome (2016)  [FLAC|Lossless|image + .cue] <Pop, RnB, Soul, Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture 2016 1:30
-02. Feel Good 3:39
-03. Night To Remember 2:23
-04. Soul & Supremes Medley 8:46(   Читать дальше...   )Жанр: Pop, RnB, Soul, Disco, FunkПродолжительность: 02:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADF310D0C9D1889C609CAD2100DE12C28A7B027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386734   (793467) от 30.05.2020
-
-VA - New Pop Top Hits 2020 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stargirlz - This Way 3:17
-02. DJ Absinth - Follow My Lead 3:35
-03. Dance Monkey - Dance Monkey 3:31
-04. Ruff Ryder - Freak 6:19(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2D5024A0916D3EFD5CD3BB0AD6165A3916E88A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123016   (793432) от 06.04.2017
-
-VA - Айсберг. Каникулы с Андреем Губиным (2001) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Андрей Губин - Улетает лето
-02. Лето - Позови
-03. Reflex - Моя любовь
-04. Матрикс - Луна (latrack remix lotos)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5017BB9E4F296DA92CAB7C127043E35A9AD2A575
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1399947   (721286) от 04.08.2020
+
+VA - Summer Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa - Don't Start Now (3:03)
+02. Lizzo - Juice (3:15)
+03. Bruno Mars - 24K Magic (3:45)
+04. Iyaz - Replay (3:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A904D9D836F7E81E1FDE0FADDAB7E07C9A708B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285585   (721076) от 26.02.2019
 
 Robyn - Honey (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop>
@@ -716,35 +745,6 @@ Rick Astley - 50 (2016) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FC92EDBA7985142F28E6DC235DAF3FCBBE27F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024908   (713951) от 10.06.2016
-
-Tom Odell - Wrong Crowd (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Indie-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrong Crowd (4:27)
-02. Magnetised (3:55)
-03. Concrete (3:50)
-04. Constellations (4:35)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC0F0EC4D7F86018AF40476737E5E5BDF0DDBFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 977337   (965596) от 21.01.2016
+
+Борис Гребенщиков - Radio Silence (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Silence (3:56)
+02. The Postcard (4:32)
+03. The Wind (4:37)
+04. The Time (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E09EB0EFAC3E5BD1880BA6B95ED47752DFE6EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977385   (965311) от 21.01.2016
 
 БИ-2 - Лучшее (2010) 2CD, Compilation [FLAC|Lossless|image + .cue] <Rock>
@@ -737,35 +766,6 @@ HELENGARD - Helengard (2010) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9D2DBE52FB99F36670AAFDA130946A7BF1AC578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625317   (946782) от 03.03.2013
-
-Земфира - Жить в твоей голове (2013) [FLAC|lossless] <Indie / Rock>
-
->>След.
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жить в твоей голове (05:24)
-02. Без шансов (02:46)
-03. Деньги (03:56)
-04. Кофевино (03:33)(   Читать дальше...   )Жанр: Indie / RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,264 @@
+###  Публикация: 1426918   (185518) от 26.11.2020
+
+Virgin Snatch - In The Name Of Blood (2006) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. State Of Fear
+02. Purge My Stain!
+03. Bred To Kill
+04. IV - Vote Of No Confidence(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40;12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051093CEE088F26ADB48BFCC63BD0CE994BD3DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591593   (185514) от 20.11.2022
+
+Troll - Collection (1995 - 2010) 5 CD [FLAC|Lossless|image + .cue] <Black Metal, Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185514.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Til helvete med alt
+2.	Alt for Satan
+3.	Gå til krig
+4.	Burn the Witch(   Читать дальше...   )Жанр: Black Metal, Symphonic Black MetalПродолжительность: 02:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29CE8386EE73A1EE3C3B3DB5D8E0D37701BD8F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426936   (185512) от 26.11.2020
+
+Symphorce - Godspeed (2005) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forsight [0:33]
+02. Everlasting Life [4:13]
+03. No Shelter [3:55]
+04. Nowhere [4:39](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014118D6C9EA4342067BFCF379694761DCD511B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664578   (185500) от 26.09.2023
+
+Applehead - The Light Side Of The Apple (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raze Hell 05:28
+02. Down 04:29
+03. Worthless Words 04:02
+04. Pretty Creepy 04:25(   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:932E32FCDF647ADB2F1FF077A59D5A6339193103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664516   (185495) от 26.09.2023
+
+Blowmind - 2 Albums (2018-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painbody [00:04:00]
+02. King for a Line [00:03:50]
+03. The Fall [00:04:42]
+04. The Way You Do [00:04:32](   Читать дальше...   )Жанр: Doom, Stoner Metal, Female VocalsПродолжительность: 2 CD, 01:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7F2DECB9C9233E68D470D28BA8DD0089E5E0A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591943   (185481) от 20.11.2022
+
+Wind Rose - Wintersaga (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Iron And Gold
+02. Wintersaga
+03. Drunken Dwarves
+04. Diggy Diggy Hole(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9969909D0DEB4F96B85224A07AFCA04AD79C6089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664450   (185477) от 26.09.2023
+
+Thorium - Empires In The Sun (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams Of Empire (A Pastorale)
+02. Exquisite
+03. Powder And Arms II
+04. Where Do We Go(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD98F51CC8B33884EAF1C1B710742EE4E0B2CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591937   (185455) от 20.11.2022
+
+Moonlight Haze - De Rerum Natura (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Moon and Back 03:39
+02. Ad Astra 03:37
+03. Odi et Amo 04:37
+04. The Butterfly Effect 03:31(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684F1514D23CB75493C3A6C5D9639C7CA80452A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591741   (185436) от 20.11.2022
+
+Candlemass - Sweet Evil Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wizard Of The Vortex 06:02
+02. Sweet Evil Sun 03:40
+03. Angel Battle 06:29
+04. Black Butterfly 05:46(   Читать дальше...   )Жанр: Epic Doom MetalПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8904ED7AD2CCEC5D828A397D295ADC93C2AC0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426766   (185379) от 26.11.2020
 
 Katatonia - Dead Air (2020) 2CD [FLAC|Lossless|image + .cue] <Doom Metal, Progressive Metal, Progressive Rock>
@@ -484,267 +745,6 @@ Kosmik Tomb - Origins of the Horror (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3923DA6ECBF32315A85C7215A1DE3797155E60FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592320   (184549) от 21.11.2022
-
-Toxik - Dis Morta (2022) [FLAC|Lossless|image + .cue] <Technical Speed Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dis Morta
-02. Feeding Frenzy
-03. The Radical
-04. Power(   Читать дальше...   )Жанр: Technical Speed Metal, Thrash MetalПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F227B4C7F19DCB93C6E8A454736BE619537BB81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592150   (184531) от 21.11.2022
-
-Metalite - Biomechanicals (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Modern Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far From The Sanctuary
-02. Apocalypse
-03. Biomechanicals
-04. Warrior(   Читать дальше...   )Жанр: Modern Melodic MetalПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C629D97D36006D93E5481453E9BB048C71EFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592154   (184528) от 21.11.2022
-
-Metalite - A Virtual World (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Modern Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Virtual World
-02. Cloud Connected
-03. Talisman
-04. Beyond The Horizon(   Читать дальше...   )Жанр: Modern Melodic MetalПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69255E2A07100A7D83B2AB54BD10BC35C81ED6B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592142   (184523) от 21.11.2022
-
-Novembers Doom - Nephilim Grove (2019) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184523.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Petrichor 06:12
-2. The Witness Marks 04:45
-3. Nephilim Grove 06:49
-4. What We Become 06:31(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE878073F5464EE98EBD65ED32E3EC426B9F55C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427257   (184514) от 27.11.2020
-
-Them - Return To Hemmersmoor (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diluvium (3:03)
-02. Age of Ascension (3:23)
-03. The Tumultous Voyage to Hemmersmoor (3:47)
-04. Free (5:02)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD34CE8B8735752255102FE68816946E638932A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592137   (184492) от 21.11.2022
-
-Steel Prophet - The God Machine (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The God Machine
-02. Crucify
-03. Thrashed Relentlessly
-04. Dark Mask / Between Love and Hate(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942CBA5528B006C815F80E5F224E5460D2D08073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592016   (184470) от 21.11.2022
-
-Soen - Atlantis (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antagonist [00:06:47]
-02. Lunacy [00:05:52]
-03. Monarch [00:04:32]
-04. Trials [00:05:16](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE1751F110A5AA78D38745405711368B44B698C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592135   (184461) от 21.11.2022
-
-Skeletoon - They Never Say Die (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro / Hell-O
-02. Hoist Our Colors (feat. Ivan Castelli)
-03. The Truffle Shuffle Army: Bizardly Bizarre (feat. Alessandro Conti)
-04. To Leave A Land(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB65210D96061907E8EF0D6B96A4D43A2DC1768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592309   (184428) от 21.11.2022
-
-ANTIKLAN - Under Wetiko (Hymns from Beneath the Veil) (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akasic Skull [00:07:21]
-02. The Other Aeon [00:07:28]
-03. Glitch in the Veil [00:07:20]
-04. Samsara's Sweet Lullaby [00:06:02](   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39D8F6569CE699352BEC1EB6A364958424764A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

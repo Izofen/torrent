@@ -1,3 +1,90 @@
+###  Публикация: 1634259   (233516) от 19.05.2023
+
+VA - Mega Hits Sommer 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Boy - Forget You (2:27)
+02. Felix Jaehn - Call It Love (2:34)
+03. Glockenbach - YEAH (2:38)
+04. badmómzjay - Auf die Party (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 04:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800EE20958AA090381B6673F883E129D233A40A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634234   (233427) от 20.05.2023
+
+Victoria Anthony - New Disaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Disaster [00:03:26]
+02. Can't Hold Back [00:02:50]
+03. Better Boyfriend [00:03:19]
+04. Little Secret [00:02:59](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD0363314C2B9E928FD15D926B82D29449DAAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634496   (233350) от 20.05.2023
+
+Kim Dotcom - Good Times (2014) [MP3|320 Kbps] <Electronic, Dance, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazing (feat. Laughton Kora)
+02. Good Times (feat. llati)
+03. Dance Dance Dance
+04. Keeps Getting Better (feat. llati)(   Читать дальше...   )Жанр: Electronic, Dance, PopПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FD02C486A0748DEBBD5FFA2D04719609078FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634604   (233236) от 21.05.2023
 
 Lana Del Rey - Say Yes To Heaven (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop>
@@ -661,93 +748,6 @@ Duncan Sisters - The Duncan Sisters (1979) [MP3|320 Kbps] <Electronic, Disco, Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:182B88753134D65FD08A003A2126A0D4DBDDC4AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649342   (230474) от 27.07.2023
-
-Pino Daniele - Che Dio Ti Benedica (1993) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Che Dio ti benedica (04:20)
-02. Questa primavera (05:01)
-03. Fatte na pizza (03:27)
-04. Mal di te (04:50)(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2939B46F9A1BD5CB960AACB4B980AB810FA4062A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637860   (230462) от 06.06.2023
-
-VA - Perfect Ballads (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballads>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230462.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ed Sheeran - Perfect
-2. Benson Boone - In the Stars
-3. Coldplay - The Scientist
-4. Omar Apollo - Evergreen (You Didn’t Deserve Me at All)(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 01:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D3A62FFB3DC5A01589D6F62EE1943FDCF829BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832950   (230456) от 31.10.2025
-
-Владимир Пресняков - Счастливчик (2025) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230456.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Выше облаков (Артемий Пресняков)
-3. Выше облаков
-4. Учусь любить (Наталья Подольская)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFAA6AFCE5144413EE73C2BAB1822200574CE3E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

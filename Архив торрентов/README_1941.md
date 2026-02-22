@@ -1,3 +1,32 @@
+###  Публикация: 1202822   (789116) от 31.01.2018
+
+Endurance - Echoic Architecture (2017) Polar Seas Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Towers (12:52)
+02. Varying Distances (03:08)
+03. Twilight Arcade (08:31)
+04. Automata (05:16)(   Читать дальше...   )Жанр: Ambient, MinimalПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF87875573FA94F281CB88D72E50BFE82AF0677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202810   (789113) от 31.01.2018
 
 Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Мужчины. Гонка преследования (27.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -696,35 +725,6 @@ Lyn поддерживает все популярные графические 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1303226B323B54DD7FE25D5B61E77558163480A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202820   (789023) от 31.01.2018
-
-VA - Incendium: Editio Retractata (2013) Loki Foundation [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Ambient, Downtempo, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.E.T.I. - Powder Canyon (06:21)
-02. Circular - Intersection At The Infinite Space (05:00)
-03. Fjernlys - Silence (06:08)
-04. Bad Sector - Cmasa, Pt. III (Excerpt) (03:31)(   Читать дальше...   )Жанр: Dark Ambient, Ambient, Downtempo, ExperimentalПродолжительность: 01:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D161F917F556C8C334704A97BCFF74ADE53D6FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

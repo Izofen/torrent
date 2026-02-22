@@ -1,3 +1,177 @@
+###  Публикация: 1666080   (180116) от 03.10.2023
+
+Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Padam Padam (2:46)
+02. Hold On To Now (3:58)
+03. Things We Do For Love (3:10)
+04. Tension (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050ECBFE7C7D63B3138ABA625EB15FBF32DBA005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666172   (180013) от 03.10.2023
+
+Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, declipped] [FLAC|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Nostalgia (3:04)
+02. Don't Start Now (3:03)
+03. Cool (3:29)
+04. Physical (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36D88635320CD5AD68676CE4356BFD73B4B6FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666440   (179695) от 04.10.2023
+
+October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179695.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 At The Edge Of An Empty Horizon
+A2 Bloodlines
+A3 The Verge Of Oblivion
+B1 Snakes Of The Old World(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D765D4C105AB58FD8FF557E03D6CE5AD277A4F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666478   (179676) от 04.10.2023
+
+Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, Power Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179676.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jerusalem D.C.
+A2 In Eternum
+A3 El Amor Brujo
+B1 Tu Funeral(   Читать дальше...   )Жанр: Celtic, Folk, Power Metal, Hard RockПродолжительность: 01:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A6F5D2E60D625DE094F7B18F2E46DB02F28095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593733   (179548) от 28.11.2022
+
+VA - Superior Audiophile (2022) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Pop, Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elisabeth Karsten - Pardon, Goddess of the Night 6:32
+02. Oslo Gospel Choir - Å Hvor Salig Å Få Vandre 4:40
+03. Kari Brenmes - Coastal Ship 4:26
+04. Ketil Bjørnstad - Molo 5:30(   Читать дальше...   )Жанр: Pop, Jazz, Vocal JazzПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FD09FC4F479C286B468B51C3B77CDE17F8EC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666697   (179068) от 05.10.2023
+
+Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179068.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Chain Gang
+A2 Money Doesn't Count
+A3 Danger Comeback
+A4 Icecold(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FA6A4EB2F2B5EED9F5AE6DAC3534E56D07C001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666711   (179060) от 05.10.2023
 
 Steeler - Undercover Animal (1988) [WavPack|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
@@ -570,182 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1254A68D021771EDD4B767628C7B63A639EA2EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594487   (177838) от 01.12.2022
-
-Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pretty Maids — датская рок-группа, основанная в 1981 году в Хорсенсе, Дания.
-Стиль группы можно определить как достаточно мелодичный, с использованием клавишных, хэви-метал и пауэр-метал, несколько более мягкий, нежели у Running Wild или Helloween, но более жёсткий, чем у Europe.
-Группа была создана гитаристом Кеном Хаммером и вокалистом Ронни Аткинсом в 1981 году (   Читать дальше...   )1983 - Pretty Maids (EP)
-1984 - Red, Hot And Heavy
-1987 - Future World
-1990 - Jump The GunЖанр: Melodic Heavy MetalПродолжительность: 13:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319188   (177798) от 06.10.2023
-
-Игорь Тальков - Навсегда (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнце уходит на Запад
-02. Война
-03. Стоп! Думаю себе
-04. Россия(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA055BF15DF1DD31930B4F60AD90124BCF337410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667196   (177613) от 07.10.2023
-
-Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177613.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Nth
-A2 - Esp Ion Age
-A3 - Husk
-A4 - Phreqs(   Читать дальше...   )Жанр: Experimental Death MetalПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415153   (177080) от 02.12.2022
-
-Strawbs - Ghosts (1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177080.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1a Sweet Dreams (Ghosts)
-A1b Night Light (Ghosts)
-A1c Guardian Angel (Ghosts)
-A2 Lemon Pie(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E3B0F168FE5E6E8835206CDAC244C27EA38642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594850   (177050) от 02.12.2022
-
-VA - The Absolute Sound (TAS) (2012) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Pop, Classical>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Njaalkeme (04:54) - Garmana
-02. Sakura Sakura (03:24) - Nicki Parrott
-03. Down The Years I Travelled (04:02) - Allan Taylor
-04. There You Are (05:44) - Brooke Miller(   Читать дальше...   )Жанр: Jazz, Pop, ClassicalПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFABD737768B2AA99CD20F5C35BE1FF78E246BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667431   (177006) от 08.10.2023
-
-Kate Smith - Today (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177006.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Somewhere, My Love
-A2 Yesterday
-A3 My Best Beau (My Best Girl)
-A4 Daydream(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2A6BDD35F966321D66D3B0DC8487AD783665D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

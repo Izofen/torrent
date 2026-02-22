@@ -1,3 +1,32 @@
+###  Публикация: 1674166   (162599) от 04.11.2023
+
+Compagniet - Juke Joint Sessions '23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Learn To Love The Blues (4:30)
+02. Do You Really Love Me? (3:48)
+03. Got A Hold On Me (4:23)
+04. Not Guilty (3:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623D9463224B541160A0F54C9104B599AC0C9D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674164   (162577) от 04.11.2023
 
 Clayton Doley - Optimistic (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ Philipp Fankhauser - Heebie Jeebies - The Early Songs of Johnny Copeland (2022) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FDAF4A57A121F72918D7B8BF535629FD84E270C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517462   (162082) от 16.12.2021
-
-Reckless and Blue - Can't Give Me the Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Woman Blues (3:06)
-02. Reckless Woman (3:38)
-03. Can't Give Me the Blues (4:15)
-04. Wanna Be Your Man (4:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF064C9296D4C379FC98D6996FA3272429EC302A
 ```
 
 https://mybot314.ru/tekegram_catalog/

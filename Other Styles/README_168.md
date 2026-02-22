@@ -1,3 +1,32 @@
+###  Публикация: 1343156   (217956) от 06.12.2019
+
+Бамблби / Bumblebee (2018) [MP3|320 Kbps] <OST, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hailee Steinfeld - Back To Life
+02. The Smiths - Bigmouth Strikes Again
+03. Howard Jones - Things Can Only Get Better
+04. Bon Jovi - Runaway(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526D54CD891E5896CD3F360AF169EE0EF56CD1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966406   (217776) от 18.12.2015
 
 John Williams - Звёздные войны: Пробуждение силы  / Star Wars: The Force Awakens (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
@@ -754,41 +783,6 @@ Soundcritters - Morrow Forge (2013) [MP3|320 кб/с]<Trailer Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65B854448D0D7A9F07EE3A1399E9F348B8683E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853422   (214876) от 26.12.2014
-
-VA - Энни / Annie (Original Motion Picture Soundtrack) (2014) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (01:39)
-02. Maybe (02:49)
-03. It's The Hard-Knock Life (02:10)
-04. Tomorrow (02:34)
-05. I Think I'm Gonna Like It Here (2014 Film Version) (03:32)
-06. You're Never Fully Dressed Without a Smile (2014 Film Version) (Sia) (03:10)
-07. Moonquake Lake (Sia / Beck) (02:53)
-08. Little Girls (2014 Film Version) (02:18)
-09. The City's Yours (03:12)
-10. Opportunity (03:06)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F580C067D9BD141E33ABFB749BC4ED6093F96B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

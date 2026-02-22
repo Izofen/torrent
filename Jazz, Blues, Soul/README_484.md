@@ -1,3 +1,32 @@
+###  Публикация: 1346126   (164631) от 18.12.2019
+
+Toshiko Akiyoshi And Charlie Mariano - East & West 1963 (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haru-No-Umi [7:17]
+02. Stone Garden of Ryoan Temple [14:27]
+03. Tonight [6:13]
+04. Something's Coming [2:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621C4BFE620095CE8ECD5F1330C0C220E431290A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673708   (164600) от 02.11.2023
 
 Toshiyuki Miyama & The New Herd - Tsuchi No Ne (1973) 2012, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
@@ -717,35 +746,6 @@ Bert Hillesheim - I'm Talking to You (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD0A2AFCB86837843DCD0C841E9DFF592699BBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674166   (162599) от 04.11.2023
-
-Compagniet - Juke Joint Sessions '23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Learn To Love The Blues (4:30)
-02. Do You Really Love Me? (3:48)
-03. Got A Hold On Me (4:23)
-04. Not Guilty (3:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623D9463224B541160A0F54C9104B599AC0C9D35
 ```
 
 https://mybot314.ru/tekegram_catalog/

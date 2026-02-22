@@ -1,3 +1,90 @@
+###  Публикация: 1573362   (412656) от 31.08.2022
+
+Christina Skjolberg - I´m on fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar and love (2:31)
+02. I´m on fire (2:52)
+03. Beautiful (3:32)
+04. Strange man (3:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6F6A430805E65D7FEE10CC986E708E2788B628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573376   (412652) от 31.08.2022
+
+Justine Blazer - Girl Singing the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretend in the Dark (3:33)
+02. Cold Day in Hell (4:20)
+03. Big Bright Beautiful Day (3:04)
+04. Tears of Blue (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD239B5B4976BFDDDA501C98B28FFFF6BDF2884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573357   (412532) от 31.08.2022
+
+Masahiko Satoh featuring Eddie Gomez And Steve Gadd - As If... (1985) Denon [APE|Lossless|image + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cajuput Trip [5:20]
+02. Waltz for Debby [5:04]
+03. Nardis [6:36]
+04. Dead End [3:35](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46648C16B666B133342B3E3FE9CCF8FD3D93B83F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066541   (412403) от 26.10.2016
 
 Duke Ellington - Reminiscing In Tempo (1928-1960) 1991, Columbia[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -656,93 +743,6 @@ Bob Rockwell Quartet - Shades of Blue (1996) SteepleChase [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80E4813E4ABC49240834848002C6AEEA5827F5A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168235   (410613) от 23.09.2017
-
-Sonny Stitt - Mr. Bojangles (1973) 2013, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Bojangles [07:36]
-02. The World Is A Ghetto [06:59]
-03. Killing Me Softly With His Song [04:44]
-04. Blue Monsoon [05:08](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC14D713EF6E3C6308894653596A55AAA71A234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168250   (410612) от 23.09.2017
-
-Rita Reys - Hollands Glorie: The Lady Strikes Again (2005) CNR Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Beginning to See the Light [03:53]
-02. All or Nothing at All [03:57]
-03. Honeysuckle Rose [02:52]
-04. All of You [02:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D91A397D355E26D4F51F955229A1D081659C65D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167967   (410605) от 23.09.2017
-
-The Beat Daddys - 5 Moons (2006) [MP3|320 Kbps] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pale White Circle
-02 - Common Ground
-03 - Been There, Liked That
-04 - Bad Streak(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95511E25FC57E40ECCB302C8612BC8E89E88F479
 ```
 
 https://mybot314.ru/tekegram_catalog/

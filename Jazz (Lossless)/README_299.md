@@ -1,32 +1,3 @@
-###  Публикация: 1596082   (173980) от 08.12.2022
-
-VA - Electro Swing Bass Party (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing House>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_173980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SpekrFreks -- Can't Stop (Extended Mix) (4:41)
-02. Speakeasy Streets -- Our Time (Father Funk Remix) (3:42)
-03. C@ in the H@ -- Cat & Mouse (4:08)
-04. Duke Skellington -- Future Swing Time Machine (4:33)(   Читать дальше...   )Жанр: Jazz, Swing HouseПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246C6A7D60780AB1D597C3047BE3769EF598D7B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430513   (173957) от 10.12.2020
 
 Sammy Davis, Jr. - Starring Sammy Davis, Jr. (1955) 2007, Collectors' Choice Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -741,6 +712,35 @@ Eddie "Lockjaw" Davis & Johnny Griffin Quintet - The Complete Sessions (1960, 19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34DA21B644F811C8D4D5765DB34F4E914B8BE624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669816   (172513) от 18.10.2023
+
+Grant Green - The Holy Barbarian, St. Louis (1959, 1960) 2012, Uptown Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Credits [0:19]
+02. There Will Never Be Another You [12:41]
+03. The Holy Barbarian Blues [10:54]
+04. Caramu (Blue Caribou) [7:46](   Читать дальше...   )Жанр: Hard Bop, Mainstream jazzПродолжительность: 01:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81071E3E46B6451AEE1B78487E205F742152F581
 ```
 
 https://mybot314.ru/tekegram_catalog/

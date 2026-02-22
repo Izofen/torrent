@@ -1,3 +1,32 @@
+###  Публикация: 1059891   (459437) от 05.10.2016
+
+Level 42 - Standing In The Light (1983) [FLAC|Lossless|image + .cue] <Jazz-Rock, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Micro-Kid (4:44)
+02. The Sun Goes Down (Living It Up) (4:15)
+03. Out Of Sight, Out Of Mind (5:12)
+04. Dance On Heavy Weather (4:27)(   Читать дальше...   )Жанр: Jazz-Rock, Jazz-FunkПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246D7A5C35915D2E665539875966F6979DF0F257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162395   (459273) от 01.09.2017
 
 Wayne Shorter - Joy Ryder (1988) [FLAC|Lossless|image + .cue] <Fusion>
@@ -721,35 +750,6 @@ Sidney Bechet, Pee Wee Russell - Soprano And Clarinet (1953 - 1954) 1996, Da Mus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2929CF6EFECD35E004183FA720687605F3EACEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568945   (455800) от 11.08.2022
-
-Donald Fagen - Donald Fagen's The Nightfly Live (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Jazz, Jazz Rock, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I.G.Y. (05:26)
-02. Green Flower Street (04:11)
-03. Ruby Baby (04:48)
-04. Maxine (03:46)(   Читать дальше...   )Жанр: Jazz, Jazz Rock, PopПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDD6FEB387AA7C0144F1CDBA7BC93A3612C0BDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

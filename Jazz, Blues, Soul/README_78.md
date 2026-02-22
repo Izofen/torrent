@@ -1,3 +1,96 @@
+###  Публикация: 862461   (929254) от 24.01.2015
+
+Mudlow - Sawyer's Hope (2012) [MP3|320 кб/с]<Dirty Blues, Swamp, Funky>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Fetlock (04:10)
+02. Catalina and the Cane Toad (04:31)
+03. Dust (03:30)
+04. Damn Your Eyes (04:11)
+05. Phantoms in the Rain (06:25)
+06. Zane Merite (03:41)
+07. The Jester (03:41)
+08. No Use (02:38)
+09. Soil (04:23)
+10. Evol (04:53)Жанр: Dirty Blues, Swamp, FunkyПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3282EF834DE8FC421B08D61FEF715C77A29E6BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986780   (929178) от 15.02.2016
+
+VA - Antologia Polskiego Bluesa Cz.2: Blues z Szuflady (2009) [MP3|128-256 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrzej Zaucha i Dzamble - Blues tego, ktory nie odjechal
+02. Jan Izbinski - Pieniadze albo zycie
+03. Bluestemper & Zbyszek Niedzielski - Walk Around
+04. Nadmiar - Mala uliczka(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EBE466A1808E21587A4A51B21C136F4800C7C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986846   (929164) от 15.02.2016
+
+VA - Antologia polskiego bluesa cz.2: Blues z oklaskami (2009) [MP3|320 кб/с] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lester Kidson Band - Green Onions
+02. Dzem - Poznalem go po czarnym kapeluszu
+03. Elzbieta Mielczarek - Hotel Grand
+04.Жанр: Blues, Blues RockПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:689C0D9F948BF60544CE4AFAE6D55B307A1B100D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365633   (929148) от 08.03.2020
 
 Lambert, Hendricks & Ross - Four Classic Albums 1957 - 1959 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -715,111 +808,6 @@ Dr Ernest Ranglin - Ska Wey Dat (2003) 2 CD, Album [FLAC|Lossless|tracks] <Soul-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8C64818BA24676F427F45A18645561B501705A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 178073   (927954) от 23.02.2010
-
-Robert Lucas - Layaway (1994) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. If You Don't Want Me [04:02]
-02. 300 Pounds Of Joy [05:05]
-03. Baby Please Don't Go [02:27]
-04. Chiropractor Blues [05:14]
-05. Never Trust Your Love Again [02:17]
-06. Long Train Coming [09:21]
-07. Cinderella Blue [03:40]
-08. Trust Me [04:11]
-09. High Priced Baby [03:32]
-10. If You Don't Want Me [04:55]Жанр: BluesПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177448   (927951) от 23.02.2010
-
-Anubian Lights - 2 Albums (2001, 2005) [FLAC|Lossless]<Jazzdance, ElectroJazz, Big Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Winter (3:39)
-02. Bhajan (4:56)
-03. Way Gone Man (3:47)
-04. Andromeda Skin (3:22)
-05. Sargasso Sea (3:51)
-06. New Wildlife (4:13)
-07. Thru the Wire (3:27)
-08. Shine (4:08)
-09. Black Line Station (3:46)
-10. Ultraviolet (3:04)(   Читать дальше...)Жанр: Jazzdance, ElectroJazz, Big Beat
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177315   (927949) от 23.02.2010
-
-Double Trouble - Been A Long Time (2001) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Cry Sky (5:16)
-2. Turn Towards the Mirror (4:25)
-3. Say One Thing (4:05)
-4. Rock and Roll (3:07)
-5. Skyscraper (4:27)
-6. In the Middle of the Night (3:05)
-7. She's All Right (5:22)
-8. Groundhog Day (3:57)
-9. In the Garden (3:43)
-10. Baby, There's No One Like You (5:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

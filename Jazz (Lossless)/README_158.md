@@ -1,3 +1,32 @@
+###  Публикация: 1039752   (594706) от 02.08.2016
+
+Duke Ellington - The Essential (1928-1958) 2CD, 2009, Not Now Music[FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594706.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Black And Tan Fantasy [03:29]
+02.East St Louis Toodle-Oo [03:09]
+03.Hot And Bothered [03:21](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D11D4CC638D4C0FC0B727F2B351B263872432F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233167   (594052) от 28.06.2018
 
 Bill Perkins Quintet featuring Victor Feldman - Quietly There (1966) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
@@ -716,35 +745,6 @@ Jacques Schwarz-Bart Quartet - The Art of Dreaming (2012) [FLAC|tracks+.cue]<Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89A2F24E5ECAE86EC450C45C9403042B49A3750A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551264   (590246) от 15.05.2022
-
-Fausto Ferraiuolo Trio - Il Dono (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Island [4:52]
-02. Three [4:19]
-03. Rue de la Vega [5:26]
-04. O Impro Mio [4:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD29476D132214685030599BA0E30FB9CC7FD01
 ```
 
 https://mybot314.ru/tekegram_catalog/

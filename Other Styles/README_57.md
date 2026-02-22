@@ -1,3 +1,32 @@
+###  Публикация: 1120288   (801195) от 01.04.2017
+
+VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Владимир Трошин - Подмосковные вечера
+02. Краснознамённый им. Александрова Ансамбль песни и пляски Советской Армии - Калинка (солист Алексей Мартынов)
+03. Тамара Синявская - Катюша
+04. Пётр Лещенко - Чубчик(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4CA21831370071CA988322FE9BA4D9EAC68BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199611   (801093) от 16.01.2018
 
 Terry Lee Nichols & Rebekah Eden - We Have Only Come to Dream (2018) [MP3|320 Kbps] <New Age>
@@ -713,35 +742,6 @@ Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03A22C00EF998AA85A4A7FF4EF996D7490D275D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272439   (799394) от 03.01.2019
-
-Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|tracks] <Soundtrack, Epic, Battle>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Main Theme. 2,13
-03. Narrative 02.    9,27
-04. Schindelgeist. 14,5
-05. Campaign 01. 	14,19(   Читать дальше...   )Жанр: Soundtrack, Epic, BattleПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E824BE52A943351233A691CFDE7C4797B8FB2FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

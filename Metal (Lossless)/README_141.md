@@ -1,3 +1,263 @@
+###  Публикация: 1156943   (525872) от 10.08.2017
+
+Down - NOLA (1995)  [FLAC|Lossless|image + .cue] <Stoner, Sludge, Southern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temptation's Wings [04:24]
+02. Lifer [04:36]
+03. Pillars of Eternity [03:57]
+04. Rehab [04:03](   Читать дальше...   )Жанр: Stoner, Sludge, Southern MetalПродолжительность: 0:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3D8F80E0C81C0A4F0648855E664E70495C6B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157482   (525179) от 12.08.2017
+
+Rage - Seasons Of The Black (2017) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Season Of The Black (4:56)
+02. Serpents In Disguise (4:13)
+03. Blackened Karma (4:40)
+04. Time Will Tell (5:05)(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECDFAAC24E5303F45FCBF063327E861C07913B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 371292   (524987) от 03.08.2011
+
+Kauan - 4 albums (2007-2011) [FLAC|Lossless] <Doom Metal, Post-Rock, Neoclassical>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kauan - проект, основанный Антоном Беловым (Helengard, inea) в феврале 2005 года. Само слово Kauan с финского переводится как «долго». Музыкальное направление, в котором проект записал первый альбом, критики назвали folk doom metal. Проект концентрирует внимание на передаче состояния и атмосферы. Каждая песня написана как результат процесса, запечатлевающего и передающего (   Читать дальше...   )01. Tahtien Hiljainen Laulu (14:58)
+02. Kauniin Kuun Savelen (08:23)
+03. Ikuinen Junan Kulku (11:14)
+04. Suora Liila Sydankayra (11:49)Жанр: Doom Metal, Post-Rock, NeoclassicalПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157836   (524769) от 13.08.2017
+
+Masterplan - MK II (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Phoenix Rising (1:18)
+ 02 - Warrior's Cry (5:21)
+ 03 - Lost And Gone (2:59)
+ 04 - Keeps Me Burning (4:01)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396A7D77048632A72EB3DE73F1E634F89E9BDA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559364   (524498) от 25.06.2022
+
+Marianas Rest - Marianas Rest (Demo) (2014) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cut Down in a Wave (7:24)
+02. Down With the Sky (3:56)
+03. River of Dementia (6:40)Жанр: Melodic Doom, Death MetalПродолжительность: 00:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F9ADD864184E7CCD12BEF4C5B89FC11EFD79BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053695   (524441) от 18.09.2016
+
+Aposento - Welcome To Darkness (1997) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Bless Us Satan [4:27]
+02. Discording Blood [5:51]
+03. Serv From Hell [3:35]
+04. Hungry For Flesh [5:19](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C025D5094C4324319FDC60F4D8A05FC24D06D203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559366   (524418) от 25.06.2022
+
+Thunderstick - Something Wicked This Way Comes (2017) [FLAC|Lossless|image + .cue] <NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Dark Night Black Light	04:21
+02.	Don't Touch I'll Scream	03:27
+03.	Go Sleep with the Enemy (I Dare Ya)	03:51
+04.	The Shining	07:13(   Читать дальше...   )Жанр: NWOBHMПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613C003001977EEAFA2376EDB479C4CA160F80F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927752   (523887) от 14.08.2015
+
+Bullet For My Valentine - Venom (2015) Deluxe Edition [FLAC|tracks+.cue]<Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V
+02. No Way Out
+03. Army of Noise
+04. Worthless(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:57:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0CEA698AE11AEA92484649B5090547775FC229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313605   (523786) от 09.07.2019
+
+Sanguis - Ascension (2008) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Intro /00:25/
+02.I Saw The Fall Of Idols /07:24/
+03.Chains /07:21/
+04.I Decline /06:17/(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3320537980BCFEBDA557D8143C09B22C62B2A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313606   (523785) от 09.07.2019
 
 Silent Stream Of Godless Elegy - Behind The Shadows (1998) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal>
@@ -490,294 +750,6 @@ Periphery - 2 альбома - Juggernaut: Alpha\Omega (2015) [FLAC|tracks+.cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B90A3C49D8C060838BAFE8CEE5E0EE2732FB5E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534150   (520434) от 13.08.2012
-
-Hel - Das Atmen der Erde (2012) [FLAC|Lossless]<Progressive Metal/Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wo die Tannen thronen (5:39)
-02. Wagemut (3:58)
-03. Von Reiter und Flutross (4:52)
-04. Wanderer im Nebelmeer (4:09)
-05. Komm zuruck (5:33)
-06. Am Grunde der Unendlichkeit (3:37)
-07. Wyrd (6:54)
-08. So Wahrheit, erkenne mich (4:06)
-09. Jagdnacht (3:19)
-10. Eroberer (6:15)(   Читать дальше...   )Жанр: Progressive Metal/Pagan MetalПродолжительность: 01:05:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534308   (520244) от 13.08.2012
-
-Pathfinder - 2 Albums (2010-2012) [FLAC/WavPack|Lossless]<Symphonic Power Metal/Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот коллектив был образован в 2006 году в Польше басистом Arkadiusz Ruith и гитаристом Karol Mania. Их страна всегда славилась блэк/дэт метал коллективами, такими как Vader и Behemoth. Парни решили не идти по их стопам, а играть нечто другое.01. Ventus Ignis Terra Aqua (2:05)
-02. Fifth Element (8:44)
-03. Ready To Die Between Stars (5:49)
-04. The Day When I Turn Back Time (6:18)
-05. Chronokinesis (5:27)
-06. March To Darkest Horizon (7:50)
-07. Yin Yang (4:03)
-08. Elemental Power (4:34)
-09. Ad Futuram Rei Memoriam (5:04)
-10. When The Sunrise Breaks The Darkness (6:15)(   Читать дальше...   )Жанр: Symphonic Power Metal/Progressive MetalПродолжительность: 01:17:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533839   (520234) от 13.08.2012
-
-Weird Fate - The Collapse Of All That Has Been (2012) [WavPack|Lossless]<Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creeping Corrosion (1:00)
-02. Mirage Of A Star (9:31)
-03. Nacht (8:34)
-04. And Utter Emptiness (2:07)
-05. The Collapse Of All That Has Been (6:52)
-06. Manifest Of The Crestfallen (7:56)
-07. 1709 (1:47)
-08. In Stille (7:30)
-09. Anguish (1:52)
-10. Futile Words (8:18)Жанр: Black MetalПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241456   (520125) от 17.08.2018
-
-Doro - Forever Warriors // Forever United (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All for Metal
-02. Bastardos
-03. If I Can't Have You - No One Will (feat. Johan Hegg)
-04. Soldier of Metal(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CABB453DD30BC0E5EC8535F516C443C69C6151E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560341   (519830) от 30.06.2022
-
-Dark Funeral - We Are the Apocalypse (2022) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightfall 5:13
-02. Let The Devil In 4:40
-03. When Our Vengeance Is Done 4:20
-04. Nosferatu 4:41(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F805DAEF4E7C625811302382EA618D6B51B1D744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534516   (519454) от 14.08.2012
-
-Verdunkeln - Weder Licht Noch Schatten (2012) [WavPack|Lossless]<Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Antlitz Des Himmels (6:57)
-02. Am Ende Des Abgrundes (12:18)
-03. Die Letzte Legion (10:53)
-04. Unsre Richter (6:09)
-05. Weder Licht Noch Schatten (12:41)Жанр: Atmospheric Black MetalПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533870   (519393) от 14.08.2012
-
-Landforge - Servitude To Earth (2012) [WavPack|Lossless]<Atmospheric Doom Metal/Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Watch (7:47)
-02. Enchantress (7:10)
-03. Triquetra (9:53)
-04. God-Figure (7:38)
-05. Pilgrim (5:08)
-06. Phalanx (8:05)Жанр: Atmospheric Doom Metal/Post-MetalПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533406   (519312) от 14.08.2012
-
-Bonded By Blood - The Aftermath (2012) [FLAC|Lossless]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Hear You (3:40)
-02. Shepherds Of Rot (5:05)
-03. The Aftermath (5:13)
-04. Crawling In The Shadows (3:08)
-05. In A Wake (3:28)
-06. Repulsive (3:09)
-07. Among The Vultures (2:11)
-08. Show No Fear (5:19)
-09. Restless Mind (4:10)
-10. Left Behind (5:20)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560564   (518877) от 01.07.2022
-
-Serapis - Vita Et Mors (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Athanasy (00:03:53)
-02 - The Isles of Infinity (00:07:55)
-03 - Morbus Animi (00:04:09)
-04 - Act of Gods (00:03:50)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5F7E91A599D09026BA202388D1CD805DEC047A
 ```
 
 https://mybot314.ru/tekegram_catalog/

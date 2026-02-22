@@ -1,3 +1,38 @@
+###  Публикация: 443014   (64497) от 27.01.2012
+
+Lana Del Rey - Born To Die (2012) [FLAC|Lossless]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Born To Die (4:46)
+ 02. Off To The Races (5:00)
+ 03. Blue Jeans (3:29)
+ 04. Video Games (4:42)
+ 05. Diet Mountain Dew (3:43)
+ 06. National Anthem (3:51)
+ 07. Dark Paradise (4:03)
+ 08. Radio (3:35)
+ 09. Carmen (4:09)
+ 10. Million Dollar Man (3:52)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705529   (63490) от 09.03.2024
 
 Bananarama - Glorious - The Ultimate Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +751,6 @@ VA - 80's Emotion: Electro Pop and Italodisco Collection (2024) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5854F80BAC1F07D2C852CF59ABB41881CE51E846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741891   (47433) от 08.08.2024
-
-George Harrison - The Concert for Bangladesh (1991) 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction by George Harrison & Ravi Shankar (Live) (5:18)
-02. Bangla Dhun (Live) (16:40)
-03. Wah-Wah (Live) (3:30)
-04. My Sweet Lord (Live) (4:36)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64B21F7ED0B261F02FC44AFBBF03A740A215D0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

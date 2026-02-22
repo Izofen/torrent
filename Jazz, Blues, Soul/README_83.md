@@ -1,3 +1,90 @@
+###  Публикация: 1095876   (920983) от 23.01.2017
+
+The Modern Jazz Quartet - Together Again: Echoes (1984) 2005, Pablo Records[FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.That Slavic Smile [08:05]
+ 02.Echoes [07:10]
+ 03.The Watergate Blues [06:09]
+ 04.The Hornpipe [08:20](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9D30F308C006BD37B5209B723327992D2D5C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096141   (920951) от 23.01.2017
+
+Aaron Keylock - Cut Against The Grain (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  All The Right Moves  (03:32) 
+02|  Down  (04:33) 
+03|  Medicine Man  (03:09) 
+04|  Falling Again  (03:25) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE31BB229101093788AFAC29BBAA3BFF79AA71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095874   (920949) от 23.01.2017
+
+The George Lewis Band Of New Orleans - Jazz At Preservation Hall IV (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Salutation March [03:01]
+ 02.Salty Dog [02:52]
+ 03.Winin' Boy Blues [02:50]
+ 04.Pork Chops [03:24](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B041CCCC287D347CA73B862FA2C17EAEFB6BFACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095802   (920947) от 23.01.2017
 
 Z O L B E R T - Inside Out (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Smooth Jazz>
@@ -673,93 +760,6 @@ Duke Ellington - Live In Europe: Guest Star Ella Fitzgerald (1967) 1994, Musica 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C291481893BEF65C29C62FBB516284C1F974950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988879   (919095) от 21.02.2016
-
-Anni Piper - More Guitars Than Friends (2016) [MP3|320 кб/с] <Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonder Woman (02:40)
-02. Just A Little Bit (03:04)
-03. Buckle Bunny (02:39)
-04. More Guitars Than Friends (04:27)(   Читать дальше...   )Жанр: Rockin' BluesПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0473752D2C9F5D41A214B7FBCBFD302B611C17B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988725   (919090) от 21.02.2016
-
-J.J. Cale - Okie (1974) Japan Edition, 2013, Mercury [FLAC|Lossless|tracks + .cue] <Blues, Americana, Tulsa Sound>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crying (02:38)
-02. I'll Be There (If You Ever Want Me) (02:25)
-03. Starbound (02:01)
-04. Rock And Roll Records (02:08)(   Читать дальше...   )Жанр: Blues, Americana, Tulsa SoundПродолжительность: 00:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2173244C49A12D749BFF67DDF076155222FFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367204   (918965) от 14.03.2020
-
-VA - Women Of Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ruth Brown - Takin' Care Of Business (2:19)
-02 Betty Lavette - Here I Am (Single Version) (2:48)
-03 Louise Hoffsten - When It Rains It Really Pours (4:34)
-04 Aretha Franklin - Today I Sing The Blues (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC301434754CE9C0F005E35C05FE1A85DC211CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1640076   (211291) от 16.06.2023
+
+Аркона - Кобь (2023) [FLAC|Lossless|WEB-DL|tracks] <Pagan Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Izrechenie. Nachalo [00:04:19]
+02. Kob' [00:07:14]
+03. Ydi [00:11:48]
+04. Ugasaya [00:09:07](   Читать дальше...   )Жанр: Pagan Folk MetalПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F86C6123305AC8DE7095C607DF370C29B7CA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602039   (210961) от 03.01.2023
 
 АлисА - Дудка (Live, 19.11.2022) (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C6A57082F2287415D58DE4846D9FEAB3E13C74F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829585   (202434) от 26.10.2025
-
-CWT (Clockwork Times) - CWT (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хулиганы низших лиг [00:03:20]
-02. Верни мне мой 2002 [00:02:35]
-03. Замещение [00:02:24]
-04. На концерте [00:03:16](   Читать дальше...   )Жанр: Punk, SkaПродолжительность: 00:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146C3D95D9B61664F98658C2C1CBEA77701AE1CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

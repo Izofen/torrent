@@ -1,3 +1,32 @@
+###  Публикация: 1610800   (244185) от 09.02.2023
+
+VA - Ladies In Blue (1934 - 1954) 2CD, 2005, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244185.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ella Fitzgerald - Preview (3:04)
+02. Peggy Lee - Black Coffee (3:09)
+03. Helen Humes - My Heart Belongs to Daddy (2:56)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127F1F718F9A907A7623F06928AD346B1184B404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625793   (244184) от 12.04.2023
 
 Jason Freeman - Hex & Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ Pasadena Roof Orchestra - Roots Of Swing (2008) [FLAC|Lossless|tracks + .cue] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC68262FC629D70A30EAC47A91E83F562A05D239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076521   (243680) от 26.11.2016
-
-Patti Austin - Havana Candy (1977) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Enough For Me (5:50)
-02. Little Baby (4:15)
-03. I Just Want To Know (4:57)
-04. Havana Candy (4:37)(   Читать дальше...   )Жанр: Vocal Jazz, R&BПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39DB9B7E6E0906E3B3F1304B048480C88D203D86
 ```
 
 https://mybot314.ru/tekegram_catalog/

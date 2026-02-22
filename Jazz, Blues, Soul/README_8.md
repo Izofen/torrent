@@ -1,3 +1,90 @@
+###  Публикация: 1603876   (1045604) от 11.01.2023
+
+Hank Jones, Milt Hinton, Bob Rosengarden - The Trio (1977) 2003, Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'S Wonderful [5:04]
+02. Queen of Hearts [3:58]
+03. Mona's Feeling Lonely [5:24]
+04. Right Here, Right Now [6:00](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3E75C62538B4A4310D3984630835B26CE8BED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603869   (1045599) от 11.01.2023
+
+Scott Hamilton & Karin Krog - The Best Things In Life (2015) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Things in Life Are Free [3:22]
+02. I Must Have That Man [5:24]
+03. Will You Still Be Mine [8:11]
+04. How Am I to Know [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E35DCD2E9AE1DF98D34D0FE7423191C730ED2F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603865   (1045584) от 11.01.2023
+
+Herb Alpert - Sunny Side of the Street (2022) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Childhood
+02. Pata Pata
+03. Goo Goo Eyes
+04. I'll Remember You(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D510111EED05706231C7E16E8C0C89E8F65381B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603932   (1045565) от 11.01.2023
 
 TNYFBB - Rocking Horse (2023) [FLAC 2.0|48/24|tracks|WEB-DL] <Blues Rock>
@@ -658,93 +745,6 @@ Old Man Blues - Ready for Fun (2023) [FLAC 2.0|48/24|tracks|WEB-DL] <Rock, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDC2073FDE2C00BA3E03881F5888B4C6659BFF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605223   (1044993) от 17.01.2023
-
-Stanley Turrentine - That's Where It's At (1962) 2021, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smile, Stacey [8:06]
-02. Soft Pedal Blues [7:27]
-03. Pia [5:31]
-04. We'll See Yaw'll After While, Ya Heah [7:25](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E719BA40679C639140CAB6104DBF91F71DA52B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605219   (1044990) от 17.01.2023
-
-Paul Chambers - The Complete Albums Collection (1956 - 1960) 4CD, 2016, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044990.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Afternoon in Paris [5:58]
-02. You Turned the Tables on Me [4:46]
-03. Apothegm [5:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 04:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008C17AFC891A10D411EE78DB035AC22A3FE6883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605226   (1044987) от 17.01.2023
-
-Lee Morgan - Candy (1957) 2012, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candy [7:04]
-02. Since I Fell for You [5:38]
-03. C.T.A. [5:10]
-04. All the Way [7:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65575D00551D1D1A66B32450A374D10FE6949851
 ```
 
 https://mybot314.ru/tekegram_catalog/

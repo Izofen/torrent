@@ -1,3 +1,178 @@
+###  Публикация: 1784801   (69469) от 13.03.2025
+
+Saraya - When The Blackbird Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Queen of Sheba (6:19)
+02.  Bring Back the Light (6:03)
+03.  Hitchin' a Ride (5:48)
+04.  When You See Me Again (4:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF007D69534C566201AE41340F762269766AD2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785049   (69424) от 14.03.2025
+
+Zventa Sventana - коллекция (4 издания) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic, Folk, World & Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zventa Sventana — российский музыкальный проект Тины Кузнецовой и Юрия Усачёва.
+Команда переосмысляет фольклор и адаптирует его для современного слушателя. Треки Zventa Sventana основаны на архивных народных песнях, собранных российскими фольклористами в период с конца XIX века по конец 1970-х. Группа работает со множеством жанров и смешивает фольклор с электронной (   Читать дальше...   )2006 - Страдания
+2019 - Мужа дома нету (EP)
+2021 - На горе мак
+2023 - Звента СвентанаЖанр: Electronic, Folk, World & CountryПродолжительность: 02:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F554CE61C1C80EC79F605881517A0D81C07CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785080   (69418) от 14.03.2025
+
+Coolio - Greatest Hits (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gangsta's Paradise (feat. L.V.) [4:02]
+02 - Ooh La La [4:06]
+03 - County Line [2:58]
+04 - Rollin' with My Homies [4:07](   Читать дальше...   )Жанр: Hip-Hop, Rap, DanceПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7069C1E5F3FD335F29E109E70D0BFD95E7B09F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784951   (69412) от 14.03.2025
+
+Legion of the Damned - The Poison Chalice (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69412.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Saints In Torment
+A2 - Contamination
+A3 - Progressive Destructor
+A4 - Skulls Adorn The Traitor's Gate(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA06595D62FEB50298EBC18DE98F4753D2661B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785098   (69410) от 14.03.2025
+
+Sentenced - Shadows of the Past (1991) Released, 2011, Century Media [FLAC|24/96|tracks|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69410.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 When The Moment Of Death Arrives
+A2 Rot To Dead
+A3 Disengagement
+A4 Rotting Ways To Misery(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690D9CAE2362CA0706FB1A876132B21D6AF33BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784921   (69406) от 14.03.2025
+
+Seventh Storm - Maledictus (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69406.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Pirate's Curse
+A2 - Saudade (English Version)
+A3 - Sarpanit
+B1 - Gods of Babylon(   Читать дальше...   )Жанр: Progressive, Gothic MetalПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11AE5B0D3663E69980224660A739910366C09EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785065   (69402) от 14.03.2025
 
 Wrath of the Machines - Blood and Oil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
@@ -571,180 +746,6 @@ Steve Postell - Walking Through These Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:493C5C90F1115B178C61F9890CFF13BE3ECCF679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785287   (69307) от 15.03.2025
-
-Temperance - From Hermitage To Europe (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live) [00:01:24]
-02. Daruma (Live) [00:04:25]
-03. The Last Hope in a World of Hopes (Live) [00:04:54]
-04. No Return (Live) [00:03:42](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B78CCB2F488432064ED199190AB64CF2352BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785404   (69305) от 15.03.2025
-
-Nomy - House of Diane (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  House of Diane (4:22)
-02.  Scream (3:23)
-03.  A Lifetime in Pain (3:08)
-04.  Everybody Hates Me (3:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE14B69615BC8E19241277B1F224AA9BD9BF7A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785360   (69303) от 15.03.2025
-
-Bluesadelix - Neptune Beach (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blues to the Bone (2:53)
-02.  Dead Presidents (3:21)
-03.  Say the Word (9:27)
-04.  Slipping and Sliding (2:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A416D7520D95D70DAA849BA589AFF753710809B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784964   (69299) от 15.03.2025
-
-Motorizer - Lemmyversary Markthalle Hamburg '23 (Live at Markthalle Hamburg '23) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live at Markthalle Hamburg '23) [00:00:32]
-02. Doctor Rock (Live at Markthalle Hamburg '23) [00:03:28]
-03. Stay Clean (Live at Markthalle Hamburg '23) [00:03:10]
-04. Damage Case (Live at Markthalle Hamburg '23) [00:03:21](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07700FD3CA8B8D9A3BBA6BED042D6E04D182B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784956   (69298) от 15.03.2025
-
-The Wise - Wisdom Lost (Remastered) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synthetic (Remastered) [00:05:34]
-02. Clarice (Remastered) [00:04:04]
-03. Kumdan Kaleler (Remastered) [00:04:51]
-04. Distorted Realms (Remastered) [00:05:06](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA9748FB4F4B1BA6BB228AD7E421B7F5182D9AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785284   (69295) от 15.03.2025
-
-Tiktaalika (Charlie Griffiths) - Gods of Pangaea (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyrannicide [00:04:00]
-02. Gods of Pangaea [00:08:43]
-03. The Forbidden Zone [00:05:57]
-04. Mesozoic Mantras [00:06:36](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0017AE35C3FC8C9FB30D0730D59C07EF6FE941
 ```
 
 https://mybot314.ru/tekegram_catalog/

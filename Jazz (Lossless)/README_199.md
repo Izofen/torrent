@@ -1,3 +1,32 @@
+###  Публикация: 1322017   (452596) от 27.08.2019
+
+Charles Mingus - Mingus Ah Um (1959) 2019, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Hard Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Git It in Your Soul [7:29]
+02. Goodbye Pork Pie Hat [4:54]
+03. Boogie Stop Shuffle [3:48]
+04. Self-Portrait in Three Colors [3:12](   Читать дальше...   )Жанр: Hard Bop, Avant-Garde JazzПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BFB0D6F621979A6D05D2CC957D5E729B4C8695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 705193   (452011) от 29.09.2013
 
 VA - Party Jazz (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Swing, Easy Listening>
@@ -717,35 +746,6 @@ Edward Simon - Edward Simon (1995) Kokopelli Records [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:054BB44FD665127FAFFA07B61AEA39FAA74114A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247944   (448809) от 17.09.2018
-
-Harold Lopez-Nussa - El Viaje (2016) Mack Avenue [FLAC|Lossless|tracks + .cue] <Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me voy pa' Cuba [5:37]
-02. Africa [5:09]
-03. Feria [3:57]
-04. Lobo's Cha [5:26](   Читать дальше...   )Жанр: Cuban JazzПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBF8900B49D84644FE0895A6FD82D1877A01A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

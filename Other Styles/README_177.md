@@ -1,3 +1,32 @@
+###  Публикация: 1085913   (154584) от 23.12.2016
+
+Ветер всем - Колыбель (2010) [FLAC|Lossless|tracks] <Folk-Rock, World Music, Ethno>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. У Егорья
+02. Полно
+03. Девушка
+04. Ходом водом(   Читать дальше...   )Жанр: Folk-Rock, World Music, EthnoПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C8077C76C9F68E474B621F402C08027EC1889A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270982   (154231) от 21.12.2018
 
 Laura Sullivan - Healing Music for Meditation and Well Being (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
@@ -752,41 +781,6 @@ Dolly Parton - Rockstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE13C0369448F58880DF95D3DF8AB0CC0324C452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588849   (150433) от 14.12.2012
-
-Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150433.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Far Cry 3 (5:35)
-2. Heat (3:33)
-3. The Rakyat (3:55)
-4. Monsoon (2:53)
-5. Falling Into a Dream (2:20)
-6. Journey Into Madness (2:56)
-7. Rook Island (5:21)
-8. We Are Watching You (3:34)
-9. Treasure of Zhang He (3:35)
-10. Fever Dream (4:10)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E2C6D9AC5808B42990C1B782BCDA01CF9DD094
 ```
 
 https://mybot314.ru/tekegram_catalog/

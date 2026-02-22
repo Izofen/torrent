@@ -1,3 +1,32 @@
+###  Публикация: 1627165   (199392) от 22.04.2023
+
+Ricardo - Klangschalen-Musik (2009) [FLAC|Lossless|tracks + .cue] <Meditative, Tibetan Bowls>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loslassen vom Alltag
+02. Die Entspannung genieben
+03. Sich rundherum Wohlfuhlen
+04. Die innere Ruhe genieben(   Читать дальше...   )Жанр: Meditative, Tibetan BowlsПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CE5CE60AA9CBF2991DD54FD22C1BE1E0DFA3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629310   (199323) от 26.04.2023
 
 The Church Organ All Stars - Best of the Church Pipe Organ and the Hammond B-3 Organ for Christmas, Halloween and More! (2008) [MP3|320 Kbps] <Hammond, Instrumental, Jazz>
@@ -712,35 +741,6 @@ VA - Ambient for Relaxation & Meditation Vol. 2 (2022) [MP3|320 Kbps] < Meditati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85235082E5D274F0ED26F89021D386E9EC64EACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588100   (191048) от 06.11.2022
-
-James Last - Ocean Drive (Easy Living) (2001) [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crocketts Theme
-02. Ocean Drive
-03. Wo die Sonne scheint
-04. Orange Blossom Special(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3172019C98896181DCB48F576BED5D1A4CC76596
 ```
 
 https://mybot314.ru/tekegram_catalog/

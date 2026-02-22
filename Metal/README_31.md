@@ -1,3 +1,32 @@
+###  Публикация: 997781   (872091) от 18.03.2016
+
+Deos - .​.​.​To Depart (2015) [MP3|320 кб/с] <Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872091.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I The Vigil
+2. II The Last Journey
+3. III The Silence
+4. IV The EmptinessЖанр: Funeral Doom MetalПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0669B81938F824320CF1A16696356A8A1F93D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997784   (872087) от 18.03.2016
 
 Toxic Waltz - From A Distant View (2016) [MP3|320 кб/с] <Thrash Metal>
@@ -760,41 +789,6 @@ Danger Zone - Line Of Fire (2011) [MP3|320 kbps]<Heavy metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E879D34B5D21B2B35E7C431767F75942516727E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301407   (869343) от 28.02.2011
-
-Nasty Tendency - Hello Suckers (2011) [MP3|192 kbps]<Heavy metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Stay Heavy 2:46
-2. Jailbreaker 3:34
-3. Rocket Woman 3:19
-4. Love Is Over 3:28
-5. Gimme The Nite 3:15
-6. Switchblade Serenade 5:28
-7. Burn Baby Burn 4:01
-8. Metal Strikes Again 3:31
-9. Play It Loud 4:17
-10. One More Round 3:46(   Читать дальше...)Жанр: Heavy metalПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A366279ABD274D7365D6A8CC54B06571A53572
 ```
 
 https://mybot314.ru/tekegram_catalog/

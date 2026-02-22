@@ -1,3 +1,29 @@
+###  Публикация: 434939   (985006) от 11.01.2012
+
+BooRadio (+TV) 3.3.0.2 + Portable [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+BooRadio - это удобный  интернет-радиоприемник и онлайн телевизор, позволяющий слушать на компьютере интернет радио и смотреть телевидение. Вы можете составить из предустановленных каналов собственный плейлист или же добавить свои ТВ каналы.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 434702   (985000) от 11.01.2012
 
 Треугольник / Triangle (2009) [1080p] BDRemux
@@ -702,39 +728,6 @@ Zar - The Holy Rhythm Of Nature (1995) [MP3|320 кб/с]<Hard rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23C70F0EBD3149EAD3B61172FC7A4B43806F0D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741030   (984951) от 02.01.2014
-
-VA - SuperBomb Club Music Pack 2 (3013) [MP3|320 кб/с]<Club, Electro House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Antillas & Vitodito feat. Fiora - Disconnected (Original Mix) (5:26)
-02. Bart Claessen - Chimaera (Original Mix) (5:32)
-03. Brass Knuckles feat. John Ryan - As Long As I'm Alive (Starkillers Remix) (5:26)
-04. Damien Le Roy & Richard Vission - Wonderland (Original Mix) (4:31)
-05. Dennis Von Dutch - Strobist (Original Mix) (5:23)
-06. EDX - Hazed (Extended Mix) (5:16)
-07. Iggy Azalea - Work (Gregor Salto Remix) (5:13)
-08. Jack Holiday & Dany Lorence - Only Girl (Original Mix) (5:11)(   Читать дальше...   )Жанр: Club, Electro House, Progressive HouseПродолжительность: 01:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162A6EC7E558A56BB6B8690F8FE9F018FA2033F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

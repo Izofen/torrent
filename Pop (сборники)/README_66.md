@@ -1,3 +1,29 @@
+###  Публикация: 361357   (577432) от 10.07.2011
+
+VA - Летний попсовый рай (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BBF7554CC82D7E7494734FB870A60BE4310465F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361354   (577430) от 10.07.2011
 
 VA - Музыкальные Новости Русского Радио (2011) [MP3|256 kbps]<Pop>
@@ -707,35 +733,6 @@ VA - Super Dance Party Vol.4 (2016) [MP3|320 Kbps] <Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B56A2A13A62527C6E3C873283344AE9508E0B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043315   (572695) от 16.08.2016
-
-VA - 100 Хитов Любимой Музыки (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medina - Good Enough
-02. Константин Меладзе - Кораблики
-03. Parson James - Slow Dance With The Devil
-04. Rabih - Habibi Hayati(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700CA6F401D12D34B64B9CE619F4A68B7A65201D
 ```
 
 https://mybot314.ru/tekegram_catalog/

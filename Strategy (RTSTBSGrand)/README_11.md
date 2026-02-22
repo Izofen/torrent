@@ -1,3 +1,29 @@
+###  Публикация: 1070325   (368243) от 06.11.2016
+
+Myth Anthology (1997-2001) [Ru/En] (1.5/1.8/1.3.1/dlc) Repack R.G. Catalyst
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Myth III (разработчик Mumbo Jumbo) представляет собой предысторию нашумевших RTS Myth и Myth II. События игры начинаются за 1000 лет до периода, охваченного Myth:The Fallen Lords, в 1421 году. Вместе с легендарным героем по имени Коннахт вам предстоит пройти через множество напряженных сражений с враждебными расами миркридиа, огров и троу.Тип издания: RepackРазработчик: MumboJumboЖанр: Strategy (Real-time, Tactical), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A7881D8DCB634B0BA440C60215E24B3662598D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416440   (366840) от 16.10.2020
 
 Gears Tactics (2020) [Ru/Multi] (1.0/dlc) Repack R.G. Механики
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F30A0D9671110DA0619BEA1B3E9074F450E9903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 240268   (275931) от 26.11.2018
-
-Sid Meier's Civilization III (2001) [Ru] (1.22) Repack
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sid Meier's Civilization III: Complete — это самое последнее предложение в серии Sid Meier's Civilization III, предоставляющее фанатам возможность играть в игру Sid Meier's Civilization III, затягивающее исследовательское путешествие в сочетании с обновленным и улучшенным многопользовательским дополнением Sid Meier's Civilization III: Play the WorldТип издания: RepackРазработчик: Firaxis GamesЖанр: Strategy (Turn-based, Grand strategy), IsometricЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5880B217918FEBABA532D57E52973A9B2CE0DA10
 ```
 
 https://mybot314.ru/tekegram_catalog/

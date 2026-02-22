@@ -1,3 +1,32 @@
+###  Публикация: 1555559   (568733) от 04.06.2022
+
+Blue Flower - Songs Celestial (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amar Ashru Hasi
+02. Maner Jatana
+03. Mangal Hok
+04. Shunite Chahina(   Читать дальше...   )Жанр: World, Mantras, MeditativeПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2067B101F7C821A390A80C23889646F3F82FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529177   (568236) от 30.07.2012
 
 Ennio Morricone - The Best World Instrumental Hits (2CD) (2009) [MP3|320 кб/с]<soundtrack>
@@ -749,35 +778,6 @@ Alan Menken & VA  - Aladdin / Аладдин (Original Motion Picture Soundtrack
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE81FDA6275B3682A45FF6B262A71F5AF2D44A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304604   (561714) от 27.05.2019
-
-Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godzilla (feat. Serj Tankian) (03:10)
-02. Godzilla Main Title (02:35)
-03. Memories of San Francisco (02:11)
-04. The Larva (04:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C1A4BF0786161C111D3173B2AA96D130020939
 ```
 
 https://mybot314.ru/tekegram_catalog/

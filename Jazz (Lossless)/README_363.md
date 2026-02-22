@@ -1,32 +1,3 @@
-###  Публикация: 1765153   (101461) от 11.12.2024
-
-Teddy Wilson And His Orchestra - 1934 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody Loves Me [3:07]
-02. Sweet And Simple [3:23]
-03. Liza [3:08]
-04. Rosetta [3:09](   Читать дальше...   )Жанр: Swing, Big Band, Piano JazzПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48627818452AED9DFBB640E90B7416BAD5B60E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765374   (101400) от 13.12.2024
 
 Shelly Manne & Bill Russo - Deep People (1951, 1952) 1992, Savoy Jazz [FLAC|Lossless|image + .cue] <Cool, Bop, West Coast Jazz>
@@ -745,6 +716,35 @@ Art Blakey - In This Korner (1978) 1992, Concord Jazz [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B40DBF9C821435F27C5BE584DEF5C7801DABFB9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770243   (100554) от 31.12.2024
+
+John Di Martino - Passion Flower: The Music Of Billy Strayhorn (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Come Lately [5:17]
+02. Lush Life [4:20]
+03. Rain Check [4:19]
+04. Star-Crossed Lovers (Pretty Girl) [4:38](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B243C797D5D8582D9059798EBDE17E453154A56
 ```
 
 https://mybot314.ru/tekegram_catalog/

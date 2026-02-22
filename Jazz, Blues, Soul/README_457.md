@@ -1,3 +1,32 @@
+###  Публикация: 1638893   (211747) от 11.06.2023
+
+VA - That's What We Call SMOOTH JAZZ (33 Tunes) (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean -- Shine (4:13)
+02. eJazz Artistry -- Real Love (4:16)
+03. Chillaxing Jazz Kollektion -- Summer Wind (5:08)
+04. Love Suggestions -- Little Talks (4:59)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D50B8C8A516141C29EDA8A1E786C9DA2D92A555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638880   (211734) от 11.06.2023
 
 VA - Hit - List Vol 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -714,35 +743,6 @@ Rory Gallagher «All Around Man: Live In London» — это 23-трековый
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:591D3EA98D4360421F371A5E413729D062A7368F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707609   (207963) от 26.07.2023
-
-Daniel Zimmermann - Bone Machine (2013) [FLAC (tracks+.cue)]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying pachydermes
-02. Regatta de Bones
-03. Open letter to Charles
-04. Schizophrenia(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E6A4CBC3883A0D552157F047C5DE4142223705
 ```
 
 https://mybot314.ru/tekegram_catalog/

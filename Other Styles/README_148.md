@@ -1,3 +1,32 @@
+###  Публикация: 1332992   (307488) от 23.10.2019
+
+Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy (01:29)
+02. 29 (02:44)
+03. Rising Star (02:05)
+04. From the Bottom (01:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DB4A7488C9F62C18DEFD0B92947ED27F4A7467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333011   (307337) от 23.10.2019
 
 Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
@@ -728,35 +757,6 @@ VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Sound
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E58A7A69521ABB59350F3F15EB7BEAFBF71D437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077697   (302838) от 30.11.2016
-
-VA - Spa Relaxation Ambient Music, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Balearic, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manifestation - Chillout Piano [00:04:21]
-02. Wolfgang Ohmer - Vanya Sulie [00:04:46]
-03. Rocco Muller - Victim's Song [00:08:00]
-04. Niefelsen - Deep in the Space [00:08:22](   Читать дальше...   )Жанр: Downtempo, Balearic, MeditationПродолжительность: 04:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323FE427DA5059EC055DA1A14A43FC27D192D8E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

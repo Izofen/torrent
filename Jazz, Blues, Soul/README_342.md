@@ -1,3 +1,90 @@
+###  Публикация: 1168235   (410613) от 23.09.2017
+
+Sonny Stitt - Mr. Bojangles (1973) 2013, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Bojangles [07:36]
+02. The World Is A Ghetto [06:59]
+03. Killing Me Softly With His Song [04:44]
+04. Blue Monsoon [05:08](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC14D713EF6E3C6308894653596A55AAA71A234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168250   (410612) от 23.09.2017
+
+Rita Reys - Hollands Glorie: The Lady Strikes Again (2005) CNR Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Beginning to See the Light [03:53]
+02. All or Nothing at All [03:57]
+03. Honeysuckle Rose [02:52]
+04. All of You [02:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D91A397D355E26D4F51F955229A1D081659C65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167967   (410605) от 23.09.2017
+
+The Beat Daddys - 5 Moons (2006) [MP3|320 Kbps] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pale White Circle
+02 - Common Ground
+03 - Been There, Liked That
+04 - Bad Streak(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95511E25FC57E40ECCB302C8612BC8E89E88F479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168185   (410558) от 23.09.2017
 
 Val Starr & The Blues Rocket - I Always Turn The Blues On (2017) [MP3|320 Kbps] <Blues Rock>
@@ -658,93 +745,6 @@ Jeff Lorber & Chuck Loeb - Bop (2015) /Agate/[FLAC|tracks+.cue]<Bop, Mainstream 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91501D550EDFA82746318A862B39FEB92D538147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252530   (409436) от 05.10.2018
-
-The Four Freshmen - Greatest Hits (1993) Curb Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graduation Day [3:06]
-02. Day by Day [1:59]
-03. It's a Blue World [2:58]
-04. Charmaine [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC217A6CF2B5F20BBA59D907F181B11FE116EF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252527   (409431) от 05.10.2018
-
-John Scofield - Bar Talk (1980) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beckon Call [7:03]
-02. New Strings Attached [6:12]
-03. Never [6:49]
-04. How to Marry a Millionaire [6:37](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6E7D4C43CA27ECB80B636F6597CB5FF3F91F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252464   (409088) от 05.10.2018
-
-Scott Bradlee's Postmodern Jukebox - Blue Mirror (2018) [FLAC|Lossless|WEB-DL|tracks] <Swing, Vocal Jazz, Covers>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Wants to Live Forever (feat. Morgan James)
-02. Africa (feat. Casey Abrams & Snuffy Walden)
-03. Life on Mars? (feat. Olivia Kuper Harris)
-04. High & Dry (feat. Carrie Manolakos)(   Читать дальше...   )Жанр: Swing, Vocal Jazz, CoversПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44413CF13DD8A444170FA37E43C25DD16B6466B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

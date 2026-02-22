@@ -1,3 +1,90 @@
+###  Публикация: 978432   (963719) от 23.01.2016
+
+Anandi - Anandi (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchained Melody
+02. Night & Day
+03. Perennial
+04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E1789C43AA0675E026511355EB831AC03DFF59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978314   (963717) от 23.01.2016
+
+Wes Montgomery & The Billy Taylor Trio (1963/1965) 2005, Lonehill[FLAC|tracks+.cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.There Will Never Be Another You [03:07]
+ 02.The More I See You [02:09]
+ 03.A Night For Swinging [02:25]
+ 04.A Bientot [02:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2401C91F9758FE30FAB2654079B436753388E37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978300   (963704) от 23.01.2016
+
+Quincy Jones - The Big Sound Of Quincy Jones (1956/1957/1960) 2CD, 2011, Not Now Music[FLAC|tracks+.cue] <Big Band, Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963704.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Go West, Man!:
+01.Dancin' Pants [03:51]
+02.Blues Day [04:44]
+03.Bright Moon [05:21](   Читать дальше...   )Жанр: Big Band, Swing, Mainstream JazzПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537C512CD658CCC4B23895EF6C0763E1888EE155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978450   (963643) от 23.01.2016
 
 Anna Farrow - Days & Moods (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -664,93 +751,6 @@ CD1 - Golden Earrings:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1958ADF2183176CE20E7F1A9E114A0CCB78341F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979295   (959784) от 26.01.2016
-
-George Thorogood & The Destroyers - 2120 South Michigan Ave. (2011) [MP3|320 кб/с] <Blues Rock, Rockabilly>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Back (03:25)
-02. Hi-Heel Sneakers (03:30)
-03. Seventh Son (03:07)
-04. Spoonful (04:14)(   Читать дальше...   )Жанр: Blues Rock, RockabillyПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21C1BCED61C500A49393303999E0A3F879D0AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360669   (959480) от 16.02.2020
-
-Ted Curson - Pop Wine 1971 (2013) Futura Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quartier Latin [13:18]
-02. Flip Top [6:33]
-03. Pop Wine [5:09]
-04. L.S.D. Takes A Holiday [12:43](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7195223FA199EC4C29DBECEE800C5F89F8D0ECA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978956   (959439) от 26.01.2016
-
-VA - Ken Burns Jazz: The Story of American Music (22 CD) (2000) [MP3|320 кб/с] <Hard Bop, Big Band, Vocal Jazz, Swing, Avant-Garde Jazz, Saxophone Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art Blakey
- Benny Goodman
- Billie Holiday
- Charles Mingus(   Читать дальше...   )Жанр: Hard Bop, Big Band, Vocal Jazz, Swing, Avant-Garde Jazz, Saxophone JazzПродолжительность: 26:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77DB5DA749D22BA542375AE381F21641A3F0492
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1719686   (110493) от 30.04.2024
+
+Preacher Stone - V (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hard Life Phd (00:04:19)
+02 - My, My, My (00:04:18)
+03 - It Ain't as Easy as It Looks (00:03:08)
+04 - 'Til We Meet Again (00:04:31)(   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7BEAAC185B303F3D2E0AF6DF1B4667CF2DC714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719892   (110483) от 01.05.2024
+
+Moonsorrow - Studio Albums (8 releases) (2001-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Pagan/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moonsorrow — финская фолк/викинг/блэк-метал-группа, основанная в 1995 году.2001 - Suden Uni
+2001 - Voimasta Ja Kunniasta
+2003 - Kivenkantaja
+2005 - VerisakeetЖанр: Folk/Pagan/Black MetalПродолжительность: 08:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4943BF7775ED7E8BBE971F7A3D7A92CA996D19FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719836   (110462) от 01.05.2024
+
+Emitt Rhodes - Rainbow Ends (2016) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dog on a Chain (3:44)
+02. If I Knew Then (3:59)
+03. Isn't It So (2:26)
+04. This Wall Between Us (2:49)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9281AD167A19FABA1F8BAF7FD4D529D1F1F5B9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719823   (110461) от 01.05.2024
+
+In Search Of Sun - Lemon Amigos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Electric (3:56)
+02. Contagious (4:26)
+03. Lemon Amigos (4:12)
+04. The Fire I Play With (4:23)(   Читать дальше...   )Жанр: Alternative Metal, Progressive RockПродолжительность: 00:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0033BA4217A6F1B57D56DF6813853CB4A15273F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719825   (110454) от 01.05.2024
+
+U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110454.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tongue Reaper
+A2 Make The Move
+A3 Keeper Of My Soul
+A4 In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177683999F4E23A3BBA4A2F864FB76812DEAF171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720250   (110428) от 02.05.2024
+
+Severed Angel - Skyward (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-Melodic Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Inside (3:18)
+02. Live Your Imagination (3:44)
+03. A Perfect Disaster (5:42)
+04. Skyward (4:10)(   Читать дальше...   )Жанр: Symphonic-Melodic Heavy MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66A94E3ADF537E26F8CA420F416C22154BA4445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720238   (110425) от 02.05.2024
 
 Smash Into Pieces - Ghost Code (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Metal>
@@ -569,180 +743,6 @@ Rudi Tuesday Band - Before The Petrichor (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51628A464D2B744403BF6CFC6154A70F365040C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720497   (110302) от 03.05.2024
-
-V.A. - Best Sound of Chill & Lounge 2024 - Summer Edition (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundset City - Keep on Moving
-02. Jean Mare - Kling Klang
-03. Audiozoom - Happy Smile
-04. Dave Neville - Rapture(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2B48BB586A1F9EA44F6B8CB9FCF1E4CDA9907E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720690   (110264) от 04.05.2024
-
-Garbage - Lie To Me (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Not Lie To Me (3:34)
-02. Revenge and Hurt (5:45)
-03. Song to the Siren (4:16)
-04. Bad Boyfriend ('23 Remix) (3:49)Жанр: AlternativeПродолжительность: 00:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF0BEDF49509CFAD54090C260DC25789B43A215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720538   (110246) от 04.05.2024
-
-U.D.O. - We Are One (2020) Collaboration[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110246.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Pandemonium
-A2 We Are One
-A3 Love And Sin
-A4 Future Is The Reason Why(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86529A13DDBC643461F0CB523B436A114F32D560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720686   (110244) от 04.05.2024
-
-P.O.D. - Veritas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal / Rapcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - DROP (feat. Randy Blythe) [00:03:11]
-02. I GOT THAT [00:03:19]
-03 - AFRAID TO DIE (feat. Tatiana Shmayluk from Jinjer) [00:03:04]
-04. DEAD RIGHT [00:02:09](   Читать дальше...   )Жанр: Alt.Metal / RapcoreПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982CC80466079745403E895A476EDA00047C7931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720697   (110228) от 04.05.2024
-
-Mekong Delta - Studio Albums (6 releases) (1996-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mekong Delta — немецкая группа, играющая прогрессивный трэш-метал, образованная в середине 80-х годов из участников других групп. Некоторые имена, использованные в их релизах, были псевдонимами, чтобы защитить их настоящую личность. Основатель группы - владелец звукозаписывающей компании AAAARRG, басист Ральф Хуберт, он же «Бьёрн Эклунд». Остальные музыканты пришли (   Читать дальше...   )1996 - Pictures At An Exhibition
-2007 - Lurking Fear
-2010 - Wanderer On The Edge Of Time
-2012 - IntersectionsЖанр: Progressive Thrash MetalПродолжительность: 05:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AE7492408E445D7280CF7B12FBDC01224062A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720619   (110227) от 04.05.2024
-
-Raff Ranieri - Flows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through Your Eyes (5:40)
-02. Still Remember (7:28)
-03. Galaxias I (2:22)
-04. Galaxias II (2:54)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999C20D12C713D754863DA751FD77E506CDB80C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

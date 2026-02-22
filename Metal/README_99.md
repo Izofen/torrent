@@ -1,3 +1,32 @@
+###  Публикация: 491971   (247840) от 05.05.2012
+
+De Lirium’s Order - Veniversum (2012) [MP3|320 кб/с]<Technical Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autistic Savant (06:38)
+02. 44 (06:41)
+03. Maximum Sentence (05:39)
+04. Seppuku (04:20)Жанр: Technical DeathПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BBEE5EF92EB9DFA63FCF9C6CD519A1BF0E486B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304303   (247441) от 21.06.2023
 
 Rammstein - 8 Albums + 36 (45) Single's + 4 Live's + 4 Compilation + 1 Box Set (1995-2023) [MP3|320 kbps] <Industrial Metal, Neue Deutsche Härte>
@@ -719,35 +748,6 @@ Noctem - Credo certe ne cras (2022) [MP3|320 Kbps] <Black, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F55ADC79FCA1DA11E1EC76F416FD44E0AB5B2677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625868   (244250) от 12.04.2023
-
-Silhouette - Les retranchements (2022) [MP3|320 Kbps] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascension (01:59)
-02. La Première Neige (06:21)
-03. Au Seuil De L'Oubli (05:36)
-04. Interlude (02:25)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592BEC9B5487E5243B77EC4E700E8558147A99A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

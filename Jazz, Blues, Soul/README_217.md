@@ -1,3 +1,96 @@
+###  Публикация: 509289   (675310) от 12.06.2012
+
+The Bill Holman Band - Brilliant Corners: The Music of Thelonious Monk (1997) [FLAC|Lossless]<Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight, No Chaser
+02. Bemsha Swing
+03. Thelonious
+04. 'Round Midnight
+05. Bye-Ya
+06. Misterioso
+07. Friday the 13th
+08. Rhythm-A-Ning
+09. Ruby, My Dear
+10. Brilliant Corners1997Жанр: Hard Bop, Post-BopПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536518   (675127) от 12.03.2022
+
+Papik - Cocktail Mina Vol.2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Soul, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Se Telefonando (feat. Alessandro Pitoni)
+02. Acqua e Sale (feat. Frankie Lovecchio, Claudia Arvati)
+03. Volami Nel Cuore (feat. Stefy Gamboni)
+04. L'Amore Forse (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Nu Jazz, Soul, PopПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34745883B23F599242D188204AABB9F79C4EF7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136409   (675075) от 22.05.2017
+
+Mads Vinding Trio - The Kingdom (Where Nobody Dies) (1998) Stunt Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alba Prima [06:11]
+02. Lover [04:13]
+03. The Kongdom (Where Nobody Dies) [07:19]
+04. Someday My Prince Will Come [07:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:933B38785839A50F4771A8E0D21C3D354A3577D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135999   (675074) от 22.05.2017
 
 VA - Azure Ellington: Blue Note Plays the Duke (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -658,93 +751,6 @@ Gerry Mulligan - Midas Touch: Live in Berlin (1995) 2003, Concord Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D258A2D34570969F826191DD739E27B8069856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136392   (673335) от 23.05.2017
-
-Duke Ellington - Splendeurs du grand orchestre (1959, 1961, 1966) 3CD, 2009, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673335.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Blues in Orbit:
-01. Three J's Blues [02:55]
-02. Smada [02:39]
-03. Pie Eye's Blues [03:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5463CDE0AE49ED2BDF09778EA21859DE31E9C59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136643   (673333) от 23.05.2017
-
-Alice Babs & Duke Ellington - Serenade To Sweden (1963) 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade to Sweden [03:23]
-02. The Boy in My Dreams [02:39]
-03. Stoona [03:02]
-04. La De Doody Doo [02:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC9D80DFE5B621D48E7793B0BF8FA4969A73134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136385   (673331) от 23.05.2017
-
-Duke Ellington - Blue Note Jazz Inspiration (1953 - 1969) 2012, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll [03:00]
-02. Flamingo [03:42]
-03. Prelude to a Kiss [03:04]
-04. Just A Sittin' and A Rockin' [03:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A7110FF702FBB11310FFE5145FE01E348D9FBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,270 @@
+###  Публикация: 1536961   (670979) от 14.03.2022
+
+Wings Of Steel - Wings Of Steel (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stormchild
+02. Wings Of Steel
+03. Rhythm Of Desire
+04. Khamsin Riders(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:22:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:054EF53D0E34423522BF025DC800E6F0A339227F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030739   (670477) от 02.07.2016
+
+Glaciation - Sur Les Falaises De Marbre (2015) [FLAC|Lossless|image + .cue] <Depressive, Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Fiancées Sont Froides
+02. La Mer, Les Ruines
+03. Le Soleil Et l'Acier
+04. Kaputt(   Читать дальше...   )Жанр: Depressive, Post-Black MetalПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F5409BA81BE3DD2807AF59796639FF6D063C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137153   (669412) от 25.05.2017
+
+Foscor - Groans to the Guilty (2009) Digipack [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groans to the Guilty 04:19
+02. In Case the Seasons Break 04:48
+03. Melangia 06:26
+04. Raids To Punishment 04:33(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E8861223E6372EDAF66D3825FC36D9618EDC52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291377   (668905) от 25.03.2019
+
+Melted Space - Darkening Light (2018) [FLAC|lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Void Before (01:31)
+02. Newborns (05:05)
+03. The Meaning Of This Place (04:45)
+04. From The Beginning To The End (05:17)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91970B429D70B0317166F5028656BC5C9D92E69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290786   (668902) от 25.03.2019
+
+Embellish - Black Tears And Deep Songs For Lost Lovers (2005) [FLAC|Lossless|tracks + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Romeo's Death
+02 - This Wind
+03 - Falling
+04 - I Don't Believe In You(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF480045F48FDBC12C419B1BD22D30E39DA271D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290910   (668900) от 25.03.2019
+
+Soilwork - Verkligheten (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Verkligheten (1:44)
+02. Arrival (3:47)
+03. Bleeder Despoiler (3:37)
+04. Full Moon Shoals (4:47)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47845B90DB710856C1880ECCC0B522662B22F7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291468   (668798) от 25.03.2019
+
+Destroyer 666 - Call Of The Wild (2018) EP [FLAC|Lossless|tracks] <Black Metal, Thrash>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Violence Is Golden (4:30)
+2. Stone By Stone (3:37)
+3. Call Of The Wild (4:46)
+4. Trialed By Fire (7:02)Жанр: Black Metal, ThrashПродолжительность: 00:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691389A6417D50B684FD749D252ADAE8715121CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290882   (668789) от 25.03.2019
+
+Delain - Hunter's Moon (2019) EP [FLAC|Lossless|image + .cue] <Gothic Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masters Of Destiny (4:55)
+02. Hunter's Moon (4:30)
+03. The Silence Is Mine (2:38)
+04. Art KIlls (4:00)(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68040E2E35367F2C407360A7A09E0423189975C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510703   (668552) от 15.06.2012
+
+Cult of Luna - 5 albums (2001-2008) [FLAC/APE|Lossless] <Post-Metal, Sludge, Progressive / Doom Metal, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_668552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owlwood (07:39)
+02. Eternal Kingdom (06:41)
+03. Ghost Trail (11:50)
+04. The Lure (Interlude) (02:33)
+05. Mire Deep (05:10)
+06. The Great Migration (06:32)
+07. Osterbotten (02:19)
+08. Curse (06:30)
+09. Ugin (02:44)
+10. Following Betulas (08:56)2001-2008Жанр: Post-Metal, Sludge, Progressive / Doom Metal, Post-RockПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537180   (667897) от 16.03.2022
 
 Ramihrdus - The Sorrow of the Evergreens (2021) [FLAC|Lossless|image + .cue] <Black Metal, Atmospheric Black Metal>
@@ -490,269 +757,6 @@ Helker - Firesoul (2017) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Heavy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B05751CC306DC4E2577E9310BE661611BB46232A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137873   (664389) от 29.05.2017
-
-Vampire - With Primeval Force (2017) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knights of the Burning Crypt 04:49
-02. He Who Speaks 03:26
-03. Metamorphosis 03:53
-04. Skull Prayer 02:20(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69842545E5DDE6BC7B596EB9FEE3236D73AAFFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137862   (664382) от 29.05.2017
-
-Ascended Dead - Abhorrent Manifestation (2017) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Promised Time 04:42
-02. Blood Thirst 04:07
-03. Perdition 02:58
-04. Ensnared for Eternity 03:38(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022F261B709B89CD4B9C2615FF82049434019BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138476   (664325) от 29.05.2017
-
-StormHammer - Welcome To The End (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning of the End  (01:10) 
-02. Northman  (05:03) 
-03. Welcome to the End  (05:42) 
-04. The Heritage  (05:03) (   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F5F28FAF238C17CF152783C78B8EF48593ADA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137953   (664264) от 29.05.2017
-
-Angel Vivaldi - Away With Words Pt.1 (2014) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angel Vivaldi - американский гитарист-виртуоз исполняет мелодик металкор\прогрессивный металкор, в последние годы набирающий всё большую и большую популярность. Играет он в прогрессив-метал-группе имени самого себя. Кроме гитары Энджел неплохо управляется с басом и клавишными, по крайней мере все клавишные партии для своего последнего мини-альбома он сыграл сам. (   Читать дальше...   )01. · - - - - (5:13)
-02. · · - - - (4:37)
-03. · · · - - (4:29)
-04. · · · · - (3:41)(   Читать дальше...   )Жанр: Progressive Metal, InstrumentalПродолжительность: 00:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376A4B427982157860BB7A8DE4AF0F67D00A102B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138329   (664256) от 29.05.2017
-
-Angel Vivaldi - Universal Language (2011) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Venutian Spring (3:50)
-02. A Mercurian Summer (4:35)
-03. An Erisian Autumn (4:55)
-04. A Martian Winter (3:43)Жанр: Progressive Metal, InstrumentalПродолжительность: 00:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CD5F1A31BDD3F46B5213CBADDE2DCD1EF5FC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538342   (663359) от 20.03.2022
-
-Arjen Anthony Lucassen's Star One - Revel In Time (2022) [FLAC|Lossless|image + .cue] <Progressive Metal, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лидер прогрессив-металлического проекта AYREON Arjen Lucassen вернул к жизни свой параллельный проект STAR ONE.
-Третий диск данного проекта, выходящий после более чем десятилетней паузы, получил название “Revel In Time” и увидел свет 18 февраля 2022 года на лейбле InsideOut Music.01. Fate Of Man
-02. 28 Days (Till The End Of Time)
-03. Prescient
-04. Back From The Past(   Читать дальше...   )Жанр: Progressive Metal, Space RockПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983C619D9DD2439D7424CCB8B29174F6B12121F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538242   (663283) от 20.03.2022
-
-Napalm Death - Resentment Is Always Seismic – A Final Throw Of Throes (2022) EP [FLAC|Lossless|image + .cue] <Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британские первопроходцы грайндкора NAPALM DEATH выпустили новый EP "Resentment Is Always Seismic - A Final Throw Of Throes" 11 февраля 2022 года на лейбле Century Media.
-Он послужил дополнением к последнему полноформатному альбому NAPALM DEATH "Throes Of Joy In The Jaws Of Defeatism" (2020), подводя итог затронутым темам с помощью актуального (   Читать дальше...   )1. Narcissus
-2. Resentment Always Simmers
-3. By Proxy
-4. People Pie(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC5125F196EE35E5CEFD97E928807696877DB85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538479   (662458) от 21.03.2022
-
-Poisonfog - Spellcaster's Revenge (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Mighty Wizard (00:06:51)
-02 - Void Bringer (00:07:47)
-03 - Astral Ride (00:05:37)
-04 - Oath of the Druids (00:05:01)(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D70D3A06A4D0EEFD2D3BC57C91ACADD37BCC466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224992   (661892) от 14.05.2018
-
-Lechery - We Are All Born Evil (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Metal Invasion
-02. Let It Out
-03. We're All Born Evil
-04. Rule the World(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06440F329A137EB071A5E9D62828FAB178F12458
 ```
 
 https://mybot314.ru/tekegram_catalog/

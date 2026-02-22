@@ -1,3 +1,91 @@
+###  Публикация: 873138   (870294) от 27.02.2015
+
+The Bluesbones - Saved By The Blues (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Find Me A Woman (03:45)
+02. I'm On The Road Again (04:23)
+03. I Try (06:11)
+04. Devil's Bride (06:56)
+05. I'm Still Your Man (05:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF763372371723E4711D31D588E6AFD5CF4AB9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107121   (870162) от 21.02.2017
+
+Mike Mainieri - An American Diary (1995) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere
+02. King Kong
+03. Piano Sonata (Vivace)
+04. Piano Sonata No. 1(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:67:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F60022936EE2404DF19BB73BF6F20E3F55FA21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107008   (870154) от 21.02.2017
+
+Cyrus Chestnut - Natural Essence (2016) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mamacita [05:34]
+ 02.It Could Happen To You [07:13]
+ 03.Faith Amongst The Unknown [06:16]
+ 04.I Cover The Waterfront [06:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD1ED7DCDFAC8DCAB2A26CD998A0F978AC591FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107103   (870148) от 21.02.2017
 
 Teddy Wilson Trio & Gerry Mulligan Quartet - At Newport (1957) Remaster, 2016, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -727,94 +815,6 @@ Gugun Power Trio - Far East Blues Experience (2011) [APE|Lossless]<Blues, Blues-
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644367   (869063) от 16.04.2013
-
-Duke Ellington - 15 альбомов (1968-2013) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duke Ellington - пианист, аранжировщик, композитор, руководитель оркестра, яркий представитель джазового искусства.
-Его творческий путь был полон открытий. Он создает то стиль джунглей, то стиль настроения, то обращается к академическим европейским музыкальным формам - сюитам, рапсодиям, балету и опере. Его оригинальные оркестровые произведения оказали большое эстетическое (   Читать дальше...   )1. Satin Doll (3:51)
-2. Don't Get Around Much Anymore (3:06)
-3. Do Nothing Till Your Head From Me (3:04)
-4. Take The "A" Train (8:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D878C9E0802FF926E110FCC2ABD7C92FB653F1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374979   (868995) от 12.04.2020
-
-Harry Allen & Randy Sandke witn The Rias Big Band - Turnstile: Music Of The Trumpet Kings (1997) Nagel–Heyer Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love Louis [5:17]
-02. Cloudy [5:25]
-03. Echoes of Harlem [4:25]
-04. Little Jazz Boogie [3:31](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42869398EBD442F95225D3B06B90A1381C449C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374984   (868977) от 12.04.2020
-
-VA - Top of the World: Modern R&B Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <RnB, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868977.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Brandy - Top of the World (feat. Mase)
-2. Lil' Kim - Lighters Up
-3. Adina Howard - Freak Like Me
-4. Iyaz - Replay(   Читать дальше...   )Жанр: RnB, Soul, FunkПродолжительность: 02:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5F38F6BEB4F11D7E56D3F55C9926BF157F62FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

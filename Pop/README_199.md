@@ -1,3 +1,116 @@
+###  Публикация: 1162826   (454981) от 03.09.2017
+
+Bardeux - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Dance-pop, Synth-pop, Hi NRG>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bardeux - американский танцевальный дуэт 80-х годов, выпустивший достаточное количество хитов за свое недолгое существование. Исполнительницы: Acacia (Stacy Smith) - постоянно, Jaz (Lisa Teaney) - первый альбом, Melanie Taylor - второй.01. Magic Carpet Ride (3:24)
+02. Three Time Lover (3:31)
+03. Caution (3:38)
+04. Bleeding Heart (3:55)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Synth-pop, Hi NRGПродолжительность: 01:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEEC950523BA2E69CD9B09FF684022D7D59FECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247132   (454931) от 14.09.2018
+
+Liquid Gold - Liquid Gold (1981) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Panic (2:58)
+02. Substitute (4:29)
+03. The Night The Wine The Roses (4:26)
+04. Mr. Groovy (5:45)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EFDA8CEFAD38424A53D81230B12A440AF47AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550055   (454885) от 23.09.2012
+
+Carly Rae Jepsen - Kiss (Deluxe Edition) (2012) [FLAC (tracks+cue)|Lossless]<Pop, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321702   (454696) от 26.08.2019
+
+Сергей Лазарев - Я не боюсь (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лови
+02. Я не боюсь
+03. Близко
+04. Может(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B00823B4503542028FA23F7DB188FD1A55BDC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060624   (454613) от 07.10.2016
 
 Макс Барских - Туманы (2016) [MP3|320 Kbps] <Pop>
@@ -632,122 +745,6 @@ Sarah Brightman - Dive (1993) [FLAC|Lossless|image + .cue] <Pop, Classical Cross
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC9DF38EE1EE446541512F97D3025C33D62756F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163018   (452714) от 04.09.2017
-
-VA - The Sweet Sound of Bossanova (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seby Burgio – Corcovado.mp3
-02. Seby Burgio – Shimbalaie.mp3
-03. Bruno Patinho – Pra Machucar Meu Coracao.mp3
-04. Giacomo Bondi – Moonlight Bossa.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC4C1270E15DD3B80BA18DDB5E751D7006B6D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163078   (452708) от 04.09.2017
-
-The Players Association - Born To Dance (1977) LP [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goin' To The Disco (4:29)
-02. Make It Last All Night (4:55)
-03. Disco Inferno (5:39)
-04. We Were Born To Dance (4:21)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1952E4DF87604CAC04C9DB33F677A109E55E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163086   (452623) от 04.09.2017
-
-Kiki Gyan - 24 Hours In A Disco 1978-82 (2012) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Dancer (6:57)
-02. 24 Hours in a Disco (7:20)
-03. Keep On Dancing (6:30)
-04. Disco Train (10:20)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8CC244E50D059C7E83122A3F1DC55CEE17D84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163026   (452508) от 04.09.2017
-
-Charles Aznavour - Bon Anniversaire Charles (Levon Sayan Presente) (2005) 2CD [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Autobiographie
-02. La Critique
-03. Lisboa(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9411E570997C6158EDDA3387FDAB6F12CF23B5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

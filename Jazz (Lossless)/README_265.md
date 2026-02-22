@@ -1,32 +1,3 @@
-###  Публикация: 1633560   (243363) от 15.05.2023
-
-Kei Marimura - P.S. I Love You (1983) 1986, Teichiku Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Leaves [3:35]
-02. You'd Be So Nice to Come Home To [2:36]
-03. Day by Day [4:09]
-04. Cheek to Cheek [3:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A5FD52DDA63F4B05261DDA0CA37A314FAC6887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456188   (243360) от 21.03.2021
 
 VA - Quarantine Doom Jazz vol. 4 (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
@@ -745,6 +716,35 @@ Guy Barker - Timeswing (1996) 2000, Universal[FLAC|Lossless|tracks + .cue] <Main
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8031FDF864A8FFD57A9312F8DFCCBC385182F523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098182   (242796) от 29.01.2017
+
+Sonny Fortune - From Now On (1996) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Glue Fingers [09:55]
+ 02.This Side Of Infinity [06:30]
+ 03.From Now On [07:26]
+ 04.Come In Out Of The Rain [10:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E8ADBA477E8554163C73D152F4C5D6AF97534B
 ```
 
 https://mybot314.ru/tekegram_catalog/

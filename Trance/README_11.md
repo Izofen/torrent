@@ -1,3 +1,32 @@
+###  Публикация: 1204117   (785384) от 04.02.2018
+
+Aelyn - Voice Of Suanda Vol. 5 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aelyn & Feel - If You Feel Love (Original Mix)
+02.Aelyn - Game Over (Ruslan Radriges Remix)
+03.Aelyn & Universal Sense - Be Where You Are (Vocal Mix)
+04.Aelyn - Water & Fire (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234A16E83E38ABC99EE3CD08C14C7FC54E194598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277757   (785026) от 21.01.2019
 
 VA - Nothing But... The Future Of Trance Vol.11 (2019) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Best Of Trance 2018 Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13040E548EEC5C6A029C9EA5D0A9F05372D47DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209013   (779533) от 25.02.2018
-
-VA - Subculture (Mixed By John O'Callaghan & Cold Blue) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  John O'Callaghan  -  Permutations (Intro Mix Edit)  1:58
-02.  Liam Wilson  -  Always With Me (Edit)  5:37
-03.  Temple One feat. Deidre Mclaughlin  -  Reaching For A Dream (Edit)  3:33
-04.  John O'Callaghan  -  Choice Of The Angels (Edit)  5:34(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7790F72E6D0E0362B308D64C4ECE14D126F3904
 ```
 
 https://mybot314.ru/tekegram_catalog/

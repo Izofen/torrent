@@ -549,35 +549,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668424   (173849) от 12.10.2023
-
-Kings Crown - Closer To The Truth (2023) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - It's Too Late (03:31)
- 02 - Servant (04:58)
- 03 - Still Alive (03:43)
- 04 - Standing On My Own (05:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1DAFA24429376017AD7F708231D0D045E979C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596704   (169219) от 11.12.2022
 
 Amon Acid - 5 Albums (2019-2022) [MP3|320 Kbps] <Psych, Doom, Stoner>
@@ -745,6 +716,35 @@ Messenger - In To Win (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0F92E5411F46FE78B86A7F7D487D9EECFE7DF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432482   (162885) от 18.12.2020
+
+Sweet - Isolation Boulevard (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fox on the Run [00:03:42]
+02 - Still Got the Rock [00:03:40]
+03 - Action [00:03:42]
+04 - Love Is Like Oxygen [00:04:24](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A656996ABACA69F595203FFE46E33E869A0C3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

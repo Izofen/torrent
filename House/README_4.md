@@ -1,3 +1,102 @@
+###  Публикация: 612061   (987426) от 01.02.2013
+
+Markojux - Impossible Objects EP (2008) [MP3|320 кб/с]<Deep House, Minimal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Verdade que e (07:38)
+02. Babelfiche (06:32)
+03. Ionenalter (07:04)
+04. Out On A Limb (06:21)Жанр: Deep House, Minimal HouseПродолжительность: 00:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3EE74C991628A9D43D2F41C6FA27686595A0C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611717   (987263) от 01.02.2013
+
+VA - Keep Movin: Late Nite House Grooves Vol.1 (2013) [MP3|320 кб/с]<Deep House, Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefan Mallmann - Night Drive - Drahosh Remix
+02. Marlose - Hey Na.. - Mollono.Bass Remix
+03. Christopher Wilde - Bitter Sweet Feelings (Feat. Lu Chase) - Motorcitysoul Basic Remix
+04. Alex Niggemann - Everybodys Darling
+05. Sebastian Davidson - Sunday Morning - BarBQ Remix
+06. Aquarell - Trumpet Lesson
+07. Kollektiv Turmstrasse - Altona Connection
+08. SIS - Janet
+09. The Messenger - Sense of Tomorrow - Arhitekt Remix
+10. Jaxson - Now You're Gone(   Читать дальше...   )Жанр: Deep House, Minimal, Tech HouseПродолжительность: 03:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB62355CECF739A10FB59506581210D3BE33F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612318   (987163) от 01.02.2013
+
+VA - Bigroom Party Shakers (2013) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Burnz - Closing Sun - Alex Del La South Remix
+02. Mykel Mars - Keep On Rockin' - Concert Mix
+03. Claudio Viti Feat Frankie D - The Sunrise - Ciccio Colonna Remix
+04. Maurizio Inzaghi - My Island - Mark Alvarado Remix
+05. Eav Kay - Help Me - Original
+06. Benny White - Simplicity
+07. Bernd Hall & Marco Zanfardino Feat. Gosia - Summer Music - Adam M & Luca Etb Remix
+08. B Van E - I Need You - Original Mix
+09. Christopher Felix Feat. Pamela - Enjoy Your Life - Like Never Before - Club Mix
+10. Davie Terry - Vibe - Radio Edit(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96AA5FEAF682F610EAE0F31C20DC58080FCD72D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354655   (987044) от 23.01.2020
 
 VA - Valentine's Day House (2020) [MP3|320 Kbps] <House>
@@ -735,105 +834,6 @@ VA - Progressive House The Annual 2014 (2013) [MP3|320 кб/с]<Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FA0EE219A20CFCA148AB5928F9C04EA587192C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742630   (979151) от 06.01.2014
-
-VA - Sexy House Tunes (Deep Funky & Delicious) Vol.1 (2014) [MP3|320 кб/с]<Deep House / Club House / Funky House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Beach Lovers - Lemon Soda (06:20)
-02. Juicy Lotta - Get Down (06:47)
-03. Alan Palmieri - Catarroia (04:42)
-04. Piccadilly Groove Ensemble - Baby, Baby (04:49)
-05. Frank & Gee - New York Sensation (04:23)
-06. Gonzales Casal - Ritmo Tranquilo (06:10)
-07. Matteo Vanetti - Free Your Mind (05:46)
-08. Martinez - Creaming (06:10)
-09. Roger Vega - Rostos (04:25)
-10. Chill Vortex - Barita (06:20)(   Читать дальше...   )Жанр: Deep House / Club House / Funky HouseПродолжительность: 03:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B80C069A61D91A3FE4674C568854EB7730B33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356466   (979118) от 30.01.2020
-
-VA - Chic & Shock (House Music Selection 2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979118.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. House Boyzz - Now Baby Com (Boyzz Mix) 3:03
-2. Carl Carlton - I'll Wait Here (Deep Cut Mix) 3:07
-3. Piet Lorrigan - Baja Buggys (Root Mix) 2:59
-4. Paul Sandemann - Do It Yourself (Diy Edit) 2:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1F2571268888711DCBDEF986A6D9C234EA816F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742625   (979094) от 06.01.2014
-
-VA - Ministry Of Sound: Running Trax Summer 2014 (2014) [MP3|320 кб/с]<House, Club, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Disclosure - When A Fire Starts To Burn (04:38)
-02. Lana Del Rey vs. Cedric Gervais - Young And Beautiful (Cedric Gervais Remix) (03:40)
-03. Avicii - Wake Me Up (04:00)
-04. Alesso vs. OneRepublic - If I Lose Myself (03:37)
-05. Calvin Harris feat. Ayah Marar - Thinking About You (04:03)
-06. John Newman - Love Me Again (Gemini Remix) (04:05)
-07. The Aston Shuffle feat. Will Heard - Comfortable (04:15)
-08. Federico Scavo - Funky Nassau (03:56)
-09. Mark Knight feat. Sway - Alright (03:02)
-10. Elen Levon - Wild Child (DJ Ross & Alessandro Viale Remix) (03:56)(   Читать дальше...   )Жанр: House, Club, FunkyПродолжительность: 03:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9863F906289254786F570E36BC9BCB9964089D93
 ```
 
 https://mybot314.ru/tekegram_catalog/

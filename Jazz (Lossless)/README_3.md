@@ -1,3 +1,32 @@
+###  Публикация: 1610562   (1042195) от 08.02.2023
+
+Charles Lloyd - Trios: Ocean (2022) Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lonely One [12:19]
+02. Hagar of the Inuits [8:53]
+03. Jaramillo Blues (For Virginia Jaramillo and Danny Johnson) [10:03]
+04. Kuan Yin [10:08]Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29792C634CDBCE490D42949F791AF03FFC7DD96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437513   (1042036) от 05.01.2021
 
 Mark Maxwell - Oddz 'n Endz (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -715,35 +744,6 @@ Alvin Batiste - Marsalis Music Honors Series (2007) Marsalis Music [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A282525342A70F3256770DE491405771BA4025C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439150   (1040147) от 12.01.2021
-
-VA - Hit The Rhodes, Jack (2005) [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul, Funk, Rare Grooves>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit The Road, Jack (01:02)
-02. Hampton Hawes – Web (03:29)
-03. David Axelrod – Mucho Chupar (feat. George Duke) (03:13)
-04. João Donato – Nana Das Águas (02:21)(   Читать дальше...   )Жанр: Jazz-Funk, Soul, Funk, Rare GroovesПродолжительность: 01:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8155EA49C68B7B15A89C88B1FF8D777C0F1C878
 ```
 
 https://mybot314.ru/tekegram_catalog/

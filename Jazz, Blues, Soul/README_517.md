@@ -1,3 +1,32 @@
+###  Публикация: 1687373   (125424) от 27.12.2023
+
+VA - It's a Groovy Thing! Vol. 4 (The Amazing Jazz Funk Instrumental Sound) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Smoke Orchestra - No Way (5:08)
+02. Vito Lalinga (Vi Mode Inc. Project) - Express Yourself (4:50)
+03. Fusion Funk Foundation - Warm Floor (5:50)
+04. The Soultrend Orchestra - Speed Date (3:28)(   Читать дальше...   )Жанр: Jazz, Funk, Acid JazzПродолжительность: 01:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687BE8DBE98008EDF11F6EBEA1367297C9C6F6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687776   (125416) от 27.12.2023
 
 John Hicks - Inc. 1 (1985) 2008, DIW Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Roadhouse Redeemers - From Gospel to Grit (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33428C8D5344158C633C03F81095014FF9C2A04E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689532   (124529) от 03.01.2024
-
-Otilia Donaire - Bluesin' It Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrong Side Of 45 (2:47)
-02. Without You (3:23)
-03. The Queen Bee (3:16)
-04. Love Sick Blues (2:44)(   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B11AAB09253D5299465C60FF629414E33E7CDBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

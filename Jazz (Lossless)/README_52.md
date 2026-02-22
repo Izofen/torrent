@@ -1,3 +1,38 @@
+###  Публикация: 638540   (895241) от 03.04.2013
+
+VA - Bluenight - Jazz Mood for Lovers (CD 2 SET) (2003) [APE|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Till Bronner - Just the way you are
+02. Gerald Albright, Will Downing - The Look of love
+03. Chris Botti - When rain falls
+04. Lizz Wright - Fire
+05. Will Downing - Maybe
+06. David Sanborn - Isn't she lovely
+07. Natalie Cole - So many Stars
+08. Till Bronner - When I fall in love
+09. Nicoletta -Ou es tu passe mon Saint-Germain des Pres
+10. Ronny Jordan - After hour (The antidote)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:14:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637551   (895117) от 03.04.2013
 
 Andy McKee - 4 Альбома (2004-2008) [FLAC|Lossless]<Jazz, Acoustic Guitar>
@@ -765,36 +800,6 @@ Next Order - Live-Refined (2009) [FLAC|Lossless]<Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B414B06452603BDF4BA6700849573346858FC43E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869111   (893123) от 14.02.2015
-
-The New York Hardbop Quintet - A Mere Bag Of Shells (2001) [FLAC|Lossless]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Leevin Von Cleefe - 5:22
-02. A Sunny Valentine - 7:00
-03. Cliff's Edge - 6:03
-04. Time Waits - 6:19
-05. Hells Bells - 7:56(   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66CFAE1D660D5F70490E9121A956D3E297F116FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

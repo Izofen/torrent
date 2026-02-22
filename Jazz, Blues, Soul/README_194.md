@@ -1,3 +1,90 @@
+###  Публикация: 1022793   (727862) от 03.06.2016
+
+The Modern Jazz Disciples (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.After You've Gone [06:05]
+ 02.Disciples Blues [07:16]
+ 03.Slippin' & Slidin' [05:10]
+ 04.Little Taste [06:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9FCCD708C9973C323D1F19EBD088BAAA4EA952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022798   (727856) от 03.06.2016
+
+Jay McShann - The Last Of The Blue Devils (1977) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Piano Jazz, Jump Blues, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Confessin' The Blues [04:46]
+ 02.'Tain't Nobody's Bizness If I Do [07:03]
+ 03.Hootie Blues [04:33]
+ 04.Blue Devil Jump [03:29](   Читать дальше...   )Жанр: Piano Jazz, Jump Blues, Mainstream JazzПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DEA9AB810403BD04BD5824E9070AAC5F559B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022786   (727855) от 03.06.2016
+
+Hank Mobley - Workout (1961) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Workout [10:01]
+ 02.Uh Huh [10:44]
+ 03.Smokin' [07:31]
+ 04.The Best Things In Life Are Free [05:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F3090854E1929D203C26857E2E0E235F396CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022941   (727849) от 03.06.2016
 
 Debbie Bond - Enjoy the Ride (Shoals Sessions) (2016) [FLAC|Lossless|image + .cue] <Blues>
@@ -655,93 +742,6 @@ June Christy - Complete Capitol Small Group Transcriptions (1945, 1946) 2001, Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:031C31889EDF87CAFB1C037653DDB35383E41EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128787   (724975) от 27.04.2017
-
-Sidney Bechet - Jazz Anthology (1952) 2007, Promo Sound [FLAC|Lossless|image + .cue] <Dixieland, Revival>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amarican Rhythm [00:47]
-02. Muskrat Ramble [05:37]
-03. Frankie an Johnny [05:48]
-04. Petite Fleur [03:20](   Читать дальше...   )Жанр: Dixieland, RevivalПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896A7CF9B5461B5A6A37EA3E9616D9D4E1777645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128790   (724843) от 27.04.2017
-
-Laurindo Almeida - Chamber Jazz (1978) 2000,	Concord Jazz [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Latin Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dingue le Bangue [04:21]
-02. Unaccistomed Bach [07:24]
-03. Odeon [02:08]
-04. Bourree and Double [04:02](   Читать дальше...   )Жанр: Brazilian Jazz, Latin Jazz, Guitar JazzПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3DCDB02DCEE133AFFC043630F47374B9054BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129124   (724834) от 27.04.2017
-
-Frank McComb - The Truth, Volume One (2003) Expansion [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine [07:02]
-02. Watcha Gonna Do [04:28]
-03. Never Letting Go [05:29]
-04. Do You Remember Love [04:22](   Читать дальше...   )Жанр: Jazz-Funk, SoulПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0394B86CE29DECD344F3AD70E991D0A7B66EB92
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1069469   (373862) от 04.11.2016
+
+Rebekka Bakken - Most Personal (2016) 2CD, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373862.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.A Whole Lot Of Angels [03:34]
+02.No Easy Way [04:46]
+03.Cover Me With Snow [03:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A505E8972704B58525F49D0776C7C9A0973B42D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069322   (373775) от 04.11.2016
+
+Optimystica Orchestra - Солёный Как Солнце (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Easy Listening, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пустяк (1:15)
+02. Долго До Праздника (4:33)
+03. Мафия (5:33)
+04. Дело В Этих Звёздах (5:21)(   Читать дальше...   )Производство: Zapal RecordsЖанр: Jazz, Easy Listening, Smooth Jazz, Brass BandПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C254CA6B7E0DE8D4C8304BC43A169D5275441CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575749   (373368) от 11.09.2022
+
+Ray Bryant - Sound Ray (1969) 1999, Cadet [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for My Father [5:27]
+02. Con Alma [4:13]
+03. Scarborough Fair [3:41]
+04. Stick with It [5:12](   Читать дальше...   )Жанр: Hard Bop, Piano Jazz, Soul-JazzПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859CC45041ACD3E00B33A54DC8306C4C5F510820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575746   (373367) от 11.09.2022
 
 Eddie Daniels - Night Kisses: A Tribute To Ivan Lins (2020) Resonance Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Latin Jazz>
@@ -663,93 +750,6 @@ John Scofield - Country For Old Men (2016) [MP3|320 Kbps] <Contemporary Jazz, Gu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A88B17918500E90E66A3C421140DAEF49DFD344A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575991   (370946) от 12.09.2022
-
-Drew Foust - Good Thing (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After the Rain (2:50)
-02. What's Real (4:08)
-03. These Days (3:36)
-04. Good Thing (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF8C81454623583EBE214277EBE724C3763DC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576011   (370945) от 12.09.2022
-
-Nicholas Payton - Smoke Sessions (2021) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hangin' In and Jivin' [7:43]
-02. Big George [7:03]
-03. Levin's Lope [6:48]
-04. No Lonely Nights [6:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A3B6B7BF55D59FF4BDA005E960EC6FEAABA568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575997   (370943) от 12.09.2022
-
-Liam St. John - stripped back (deluxe) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where The Pines Meet The Palms (Stripped Back) (3:00)
-02. Decanter (Stripped Back) (2:34)
-03. forefathers (Stripped Back) (2:44)
-04. Dipped In Bleach (Stripped Back) (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D09B447121AC2A53C8E0EE5C4C3D9C097E9728
 ```
 
 https://mybot314.ru/tekegram_catalog/

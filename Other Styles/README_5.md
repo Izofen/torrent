@@ -1,3 +1,32 @@
+###  Публикация: 1464189   (1019973) от 21.04.2021
+
+Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Native American, Didgeridoo, Trance>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragrance
+02. Himba
+03. Mother Earth
+04. Heartlight(   Читать дальше...   )Жанр: Native American, Didgeridoo, TranceПродолжительность: 02:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20123B4A8EF806953E85CC84CE81728825BCF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464431   (1019728) от 22.04.2021
 
 OST - Вампиры средней полосы (2020) [MP3|320 Kbps] <Саундтрек>
@@ -718,35 +747,6 @@ Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1A6CF360DBA71150556CD85C8842DBF09C3AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476023   (1011928) от 09.06.2021
-
-ДиДюЛя - 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Еду-доеду
-02. Две сестры
-03. Танго добрых ветров
-04. Схватка(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2EFE8EA09BFFC631EB13E0FFC05FC51686BDEAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

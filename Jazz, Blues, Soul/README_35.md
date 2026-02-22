@@ -1,3 +1,90 @@
+###  Публикация: 1467305   (1017693) от 04.05.2021
+
+Bobby Hunt - Random Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headin' Down to Georgia (2:37)
+02. Breakin' in My New Shoes (4:52)
+03. The Prodigal (2:53)
+04. The Valley (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC358FCED1B7ADF02551F0750747FE4F371EA367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467310   (1017692) от 04.05.2021
+
+Jean-Jacques Milteau - Lost Highway (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues  Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Help If I'm Still in Love with You (3:28)
+02. She Thinks I Still Care (4:56)
+03. My Bucket's Got a Hole in It (3:00)
+04. Mr Bojangles (5:24)(   Читать дальше...   )Жанр: Blues  CountryПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F993AA77BD9DC080F713600F388E217635091539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467307   (1017690) от 04.05.2021
+
+Dani Bischoff - That's Where It Comes From (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easily Without You (3:51)
+02. Blues for Life (3:34)
+03. Not the Same but Equally (7:28)
+04. Morning Sun (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8B756598DD7CF5441989947EE0DEAF05051D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467314   (1017689) от 04.05.2021
 
 Leo Zanco - A Gentleman (Most of the Time) (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -654,93 +741,6 @@ Ella Fitzgerald & Louis Armstrong - Oldies Selection: Gold Records (2021) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D926A7DE2376ABD9B30986D38465EACC845C80F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469630   (1016305) от 13.05.2021
-
-Emmet Cohen - Future Stride (2021) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphonic Raps [3:08]
-02. Reflections at Dusk [5:12]
-03. Toast to Lo [6:42]
-04. Future Stride [5:54](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D177C0FAB1FC72C53ED7EB117EFF563D7B7AE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469832   (1016150) от 14.05.2021
-
-Bill Evans - The Secret Sessions: Recorded At The Village Vanguard (1966 - 1975) 8CD, 1996, Milestone [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016150.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Very Early [5:21]
-02. 'Round Midnight [7:59]
-03. One for Helen [6:20](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 09:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A50618CE85CCA64DB6C5BD27A0873D22B7C8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469950   (1016057) от 14.05.2021
-
-Frank Sinatra - Reprise Rarities - Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Dance
-02. The Second Time Around
-03. Moment To Moment
-04. In The Shadow Of The Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F28918974856DBA3AC8A0968EEE1B8FC432C57A
 ```
 
 https://mybot314.ru/tekegram_catalog/

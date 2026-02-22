@@ -1,220 +1,22 @@
-###  Публикация: 1680053   (134885) от 27.11.2023
+###  Публикация: 593160   (135392) от 23.12.2012
 
-Smart Launcher 6.3 build 036 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Launcher - лаунчер являющийся одним из самых лучших в своём сегменте за счёт качеств, возможностей и функционала, и как следствие, очень популярным у пользователей мобильных устройств, что предпочитают искать и находить альтернативы стандартному и далеко не идеальному варианту. Людям предлагается максимальное удобство управления, что выливается в возможность (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 14.11.2023Разработчик: Smart Launcher TeamПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED7CDA126095F56C5B6050CD56AB96538984F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679812   (134883) от 27.11.2023
-
-WPS Office + PDF 18.4.1 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134883.jpg" />
-</div>
-
-
-###  Подробнее
-
-WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25.11.2023Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1962715EDCD298ADE94AF00D2BD3A1036B24DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679984   (134881) от 27.11.2023
-
-Chicago - Chicago at Carnegie Hall - Complete (2021) Live [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Scott Muni Intro (Live at Carnegie Hall, New York, NY, 4/5/1971) [3:36]
-02 - Someday (August 29, 1968) (Live at Carnegie Hall, New York, NY, 4/5/1971) [4:35]
-03 - Loneliness Is Just A Word (Live at Carnegie Hall, New York, NY, 4/5/1971) [2:39]
-04 - South California Purples (Live at Carnegie Hall, New York, NY, 4/5/1971) [13:23](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 14:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35965F821F49827389FA58D24C801500A6D66C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593609   (134880) от 24.12.2012
-
-VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Лазарев - Слезы В Моём Сердце
-02. Anastacia - One
-03. 5sta Family - Пуэрто Рико
-04. August Rush feat. Natalie Voice - So Many Times
-05. Светлана Светикова - Буду
-06. Lovers vs. Lanfranchi & Farina - Think
-07. Размер Project - Водка Стайл
-08. Manian feat. Carlprit - Don't Stop The Dance (Video Edit)
-09. Нюша - Queen Of The Night
-10. Medina - Fool (I Feel Bad For You)Жанр: РорПродолжительность: 05:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D499074BF3FCB9AE0F3552C7B28F371EBE117923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680052   (134879) от 27.11.2023
-
-Readiris Pro 17.1.9 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Readiris  — сканирует, распознает, конвертирует.
-Readiris выполняет всю утомительную для вас работу по перепечатыванию текстов в мгновение ока. Просто переконвертируйте ваши документы с помощью Readiris и в течение нескольких секунд вы получите их редактируемую копию. Readiris Pro перекодирует просмотренные бумажные документы, файлы PDF и все популярные форматы изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 I.R.I.S. IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30EFF0C90EAD29B7C5AE7D83FA7AC6D8BAEB7DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593641   (134878) от 24.12.2012
-
-Sunrises and sunsets Wallpapers (22.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98704404CBB1626A919D136BE756AB8B68D84E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679874   (134877) от 27.11.2023
-
-VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134877.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scott Sawyer - Passing By [07:45]
-002. Brass Energy - A Walk In The Park [02:55]
-003. Jonah Yano - Always [05:23]
-004. Carlos Camilo - Trust The Moment [04:11](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FEF2B1C1E7331CD7362A98E62C2E46C190041F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593852   (134876) от 24.12.2012
-
-Журнал | Allure №1 (Россия) [январь 2013] [PDF]
+Газета | Компьютер для начинающих №12 [декабрь 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134876.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Основные темы журнала: мода, красота, украшения, здоровье, диеты, интервью с известными женщинами, гороскоп.Формат: PDF
+Компьютер для начинающих рассказывает о самых азах работы с компьютером, различными программами, сетью Интернет. В номере: видео на компьютере; что такое кодеки и для чего они требуются; чем смотреть видео; как выбрать монитор и видеокарту.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13E5F5BFD818B9E437DF36F796F9B9E207A2B889
+magnet:?xt=urn:btih:C2070C374CFAB4CACEC216064D389E099F0BD9EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680037   (134875) от 27.11.2023
+###  Публикация: 593110   (135391) от 23.12.2012
 
-Square Home Launcher 3.0.5 Mod by derrin [Ru/Multi]
+Журнал | Tattoo Collection №54 (UK) [2012] [PDF] [En]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134875.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Square Home - красивый, стильный и функциональный лаунчер для мобильных работающих на Android-е. Им предлагается вариация оболочки выполненной в стиле Metro UI от Windows 10. Это очень понравится всем, кто постоянно использует данную операционную систему на других гаджетах. И считает, что подобная механика удобна и понятна для него и для его работы. Красивое исполнение (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.11.2023Разработчик: ChYK the devПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+"Tattoo Collection" является идеальным журналом для тех, кто ищет татуировки или просто хочет увидеть самые последние работы лучших международных мастеров. В журнале представлено более 300 татуировок, которые являются лучшими на момент выхода журнала.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A94571C5A4B705E54DECD21AD0C03856E41FC8E8
+magnet:?xt=urn:btih:1F5F89338544B860A5518F604109F38931ABDDAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,25 +50,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594001   (134874) от 24.12.2012
+###  Публикация: 593076   (135390) от 23.12.2012
 
-Waterfalls Wallpapers (24.12.12) [Wallpapers]
+VA - Rocks Off - 16 Tracks Of The Best New Music (2012) [FLAC|Lossless]<Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134874.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. King Tuff - Bad Thing [02:21]
+02. The Mountain Goats - Harlem Roulette [03:22]
+03. The Jim Jones Revue - Times Around The Sun [03:41]
+04. The Fresh And Only - Dream Girls [02:51]
+05. John Hiatt - It All Comes Back Someday [03:40]
+06. The Cairo Gang - Now You Are One Of Us [03:39]
+07. Two Gallants - Song Of Songs [02:45]
+08. Martin Rossiter - Sing It Loud [02:25]
+09. Ian Hunter & The Rant Band - Saint [03:35]
+10. The Wooden Sky - Child Of The Valley [03:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:57:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FA0F18812620AAF5AD7DFD55D9EC2603DF73A25
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,161 +85,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679924   (134873) от 27.11.2023
+###  Публикация: 593226   (135386) от 23.12.2012
 
-FX Player Pro 3.7.2 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134873.jpg" />
-</div>
-
-
-###  Подробнее
-
-FX Player Pro - универсальный медиаплеер который станет весьма полезным на любом мобильном устройстве. Поддержка огромного количества форматов аудио и видео (MKV, RM, ACC PLUS, FLAC и прочие), определение субтитров, высокое качество выведения на экран, а так же удобное управление (возможность настройки действий, жестов и так далее присутствует в полном объёме) понравится (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.11.2023Разработчик: FIPE LabsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F78E9D5928C58C6D7DC277E0ECF7A6BFD28E91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593639   (134872) от 24.12.2012
-
-New year wallpapers 2013 (22.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD76C4C8BA87BB9BF6FB4F2115C0B941496C0D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680056   (134871) от 27.11.2023
-
-Duolingo: изучай языки 5.129.5 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенствуйте свои знания английского на практике - чтение, разговорную речь, письмо и восприятие на слух. Играйте, отвечайте на вопросы и выполняйте задания, увеличивая словарный запас и улучшая знания грамматики. Начните с простейших глаголов, фраз и предложений, узнавая новые английские слова каждый день. 34 часа, проведённых с Duolingo, равны по эффективности (   Читать дальше...   )Тип издания: Premium (Mod)Разработчик: DuolingoПоддерживаемая ОС: Android 10+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0494B32DF8F96CAA333714E3115ECB7594352DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679873   (134869) от 27.11.2023
-
-Э. Ферми | Лекции по атомной физике (1952) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга выдающегося итальянского физика Энрико Ферми (1901—1954) представляет собой обработку стенограмм лекций Ферми, прочитанных им в 1949 г. в Италии. Эта книга занимает особое место в современной физической литературе. В своих лекциях Ферми главное внимание уделил проблемам, которые даже в монографиях по ядерной физике занимают очень мало места. По существу настоящая (   Читать дальше...   )Жанр: ФизикаИздательство: Издательство иностранной литературыФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0C7B7E9B6852A28EEADDB29DDCE374D9C1F261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679826   (134867) от 27.11.2023
-
-VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albin Lee Meldau Feat. & Jack Savoretti - Hold Your Head Up (03:08)
-02. Omer Balik - You Lost Me (04:05)
-03. Matvey Emerson Feat. & Able Faces - Speed of Light (03:00)
-04. Карина Догова - К Чёрту Love Story (03:56)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9119311E8978F47340D4833399E7D3E67D979802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679972   (134865) от 27.11.2023
-
-Tears For Fears - Songs From The Big Chair (1985) Super Deluxe, 2014, UMC (Universal Music Catalogue) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth-Pop>
+VA - Cafe La Guitarra Vol.1 (La Seleccion Musica Balearica - The Best In Guitar Lounge & Chill Out) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134865.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Head Over Heels (Richard Skinner BBC Session / London / 1984) [00:04:14]
-02. The Working Hour (Richard Skinner BBC Session / London / 1984) [00:06:08]
-03. Broken (Richard Skinner BBC Session / London / 1984) [00:03:19]
-04. Mothers Talk (Live) [00:04:04](   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-PopПродолжительность: 4 CD, 05:04:37
+01. Guenter Haas - Cienfuegos
+02. Jeff Aug - Mountain Pass
+03. Weathertunes - Passion
+04. Marga Sol - Call of an Angel
+05. Taco-Town - El Platano
+06. Anthya - Patience and Love
+07. Fenena Garcia Mijas - Way Beyond
+08. Jeff Aug - Bird Watcher's Dirge
+09. Pnfa - Salt
+10. Xemplify - Sober Eyes(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 00:59:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC5A22E98687FF7E6818E77B6EFD7519ED77B544
+magnet:?xt=urn:btih:EDFE9BCBFF97553B6883A16B8BA153C110875418
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,34 +120,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593960   (134864) от 24.12.2012
+###  Публикация: 593276   (135384) от 23.12.2012
 
-VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+Артур Беркут - Рождественская песня (2012) [MP3|320 кб/с]<Heavy Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134864.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Control 98 - Super Sax
-02. Francesco Demegni - Don't Forget
-03. Continental Groove - Bawls of Prayer
-04. Montecarlo Dream - Del
-05. P Project - Modart
-06. Paul V - Cutdown
-07. Double T Project - Behind the Mirror
-08. Shin Elto - Deep Mundo
-09. Lounge Dam - Cap
-10. DJ Ambient P - Sweet and Sexy(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:36
+01 - Рождественская песняЖанр: Heavy MetalПродолжительность: 00:04:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4F3A09A5DB8AB46FE73C23CF5CF05B2308B56AC
+magnet:?xt=urn:btih:8C4A7CE13AF4042CD9E6939C3BF0985F4D6A7685
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,25 +146,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679878   (134863) от 27.11.2023
+###  Публикация: 593186   (135379) от 23.12.2012
 
-Э. Ферми | Термодинамика (1973) [PDF]
+Особо опасны / Savages (2012) [MP3|320 кб/с]<Soundtrack>
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134863.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Термодинамика» Энрико Ферми — одного из величайших физиков современности — представляет собой исключительно интересно построенный и глубоко оригинальный курс этой науки. Отличающаяся высокими методическими достоинствами книга хорошо передает творческую индивидуальность Ферми — теоретика, экспериментатора, лектора. Она несомненно привлечет внимание не только специалистов, (   Читать дальше...   )Жанр: ФизикаИздательство: Издательство Харьковского университетаФормат: PDFКачество: Обработанный скан
+01.Neptune's Net
+02.Cartel Theme
+03.Where I'm Going
+04.Romantic Theme
+05.Legalize It
+06.Mandala (feat. Anoushka Shankar)
+07.Hijack In The Desert
+08.Quien Es El Patron
+09.Romance In Durango
+10.Whipping(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39A94E6FA26D977297D9F765D39AEFE19B2E7627
+magnet:?xt=urn:btih:8AAA8D6E96789388F4530E0E633F8916789E9567
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,15 +181,44 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593498   (134862) от 24.12.2012
+###  Публикация: 1679723   (135375) от 26.11.2023
 
-Robin Rogers - 2 альбома (2008, 2010) [MP3|320 кб/с]<Blues>
+Memorial Day - Embark Hades (1995) [FLAC|Lossless|tracks] <Gothic, Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carnifex
+02. Phobia
+03. Embark Hades
+04. Salve Caput Cruentatum(   Читать дальше...   )Жанр: Gothic, Doom, Death MetalПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009ED584D7CB230E755BF3EED1DB0B392B97A27A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593020   (135374) от 23.12.2012
+
+Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134862.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135374.jpg" />
 </div>
 
 
@@ -513,13 +226,14 @@ Robin Rogers - 2 альбома (2008, 2010) [MP3|320 кб/с]<Blues>
 
 Список альбомов:
 
-2008 - Treat Me Right
-
-2010 - Back In The FireЖанр: BluesПродолжительность: 01:29:03
+2000 - Learned My Lesson
+2005 - Tore Up from the Floor Up
+2009 - The French Connection
+2009 - SunnylandЖанр: Blues |Продолжительность: 04:22:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5FECB5D06A42F0486BD83DFA636E7EC2C3C7598
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -527,25 +241,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593655   (134861) от 24.12.2012
+###  Публикация: 1679792   (135373) от 26.11.2023
 
-Best HD Wallpapers Pack (23.12.12) [Wallpapers]
+PrintLab Studio 3.0.2 [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134861.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+PrintLab Studio - это легкое и простое в использовании приложение для создания векторных иллюстраций для Mac OS X. PrintLab Studio содержит инструменты, необходимые для создания базовых фигур. Быстро создавайте рисунки и легко меняйте стили.Тип издания: macOS SoftwareРелиз состоялся: 08.05.2018Разработчик: © 2021 Bluetail TeamПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:316CDB639EE2CF893ADFFB2315328305B8D9C45E
+magnet:?xt=urn:btih:7B03E3DFE8545F74AFAF8607801CA5200FDFA8C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,173 +267,474 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593994   (134858) от 24.12.2012
+###  Публикация: 591856   (135372) от 23.12.2012
 
-Computer Desktop Wallpapers Collection (24.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527DED530DC8ACC27C6D289CA0281BFD66924E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593454   (134857) от 24.12.2012
-
-Pride Of Lions - Immortal (2012) [MP3|320 кб/с]<Melodic Rock | AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immortal
-02. Delusional
-03. Tie Down The Wind
-04. Shine On
-05. Everything That Money Can't Buy
-06. Coin Of The Realm
-07. Sending My Love
-08. Vital Signs
-09. If It Doesn't Kill Me
-10. Are You The Same Girl(   Читать дальше...   )Жанр: Melodic Rock | AORПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083A02A423E832B3B6591BE8FF027D23255C48C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593633   (134856) от 24.12.2012
-
-50 HQ Wallpapers (22.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA71EF5DF784E59E9C1D8EAAECDFC83361A4EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679951   (134855) от 27.11.2023
-
-Извещение о смерти / Ikigami (2008) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134855.jpg" />
-</div>
-
-
-###  Подробнее
-
-По oднoимённoй мaнгe Moтopo Macэ... B нeдaлёкoм бyдyщeм пpaвитeльcтвo Япoнии, в пoпыткe иcключить cyицидaльныe нaклoннocти y мoлoдыx людeй и пoвыcить иx coзнaтeльнocть, ввoдит пpaктикy 'икигaми'. Смepтнoй кaзни пoдлeжит кaждый тыcячный гpaждaнин в вoзpacтe oт 18-x дo 24-x лeт. Приговорённый определяется случайным образом на всеобщей вакцинации в младшей школе, но (   Читать дальше...   )Производство: Япония / CBC, IMJ Entertainment, Mainichi Broadcasting System, K.K.Жанр: драмаРежиссер: Томоюки ТакимотоВ ролях: Сёта Мацуда, Такаси Цукамото, Рико Наруми, Такаюки Ямада, Акира Эмото, Рёхеи Абе, Исеки Тин, Денден, Норико Егути, Дзян ФубукиПеревод: любительский одноголосыйЯзык озвучки: русский (VO den904), японскийСубтитры: русские, английскиеПродолжительность: 02:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07F6C277E46112EEFF3171197F211F37FB350CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679625   (134854) от 27.11.2023
-
-Уильям Бернстайн | Манифест инвестора (2017) [MP3, Андрей Барабанщиков]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об основах инвестирования и планирования портфеля. Главное, что пытается донести автор до читателей, заключается в рекомендации никогда не забывать о том, что обвалы рынка случаются. Именно поэтому важно выстраивать долгосрочную (да что там греха таить – и краткосрочную) стратегию таким образом, чтобы они не стали неожиданностью.Жанр: БизнесИздательство: АльпинаПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C451CCB36538AEB4EE4D6A9050FDCCB7126A3A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592721   (134853) от 24.12.2012
-
-VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134853.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marga Sol - Since Yesterday
-02. Lazy Hammock - Was I Anyone to You
-03. Lemongrass - Ton Parfum
-04. Michiko - Fly Away With You
-05. Viv de la Rosa - Andalucia - Sunny Del Mar Mix
-06. Albert St.Barth - Cafe Au Lait - Gigolo Edition
-07. Claude Chagall - Balearic Waves - Christmas Attack
-08. Martinique le Souffleur - ST.Tropez - 100% Deluxe Edit
-09. Marga Sol - Tocca Me
-10. DJ MNX - Chill Out Rock N Rolla(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:06:31
+01. Degrees Of Motion & North Base - Shine On (Dubstep Mix)
+02. Other Echoes feat. Julian Huggins - Free Running
+03. Delerium feat. Michael Logen - Days Turn Into Nights (Seven Lions Remix)
+04. Waverokr - Gravity Switch
+05. Dubba Jonny - Smack It!
+06. Molecule - Ghetto Superstar
+07. DKS - Can't Get Enough (Original Mix)
+08. Hardwell feat. Amba Shepherd - Apollo (3rd Prototype Bootleg)
+09. TS7 - Struggle (DJ Q Remix)
+10. Smooth feat. Tasha Baxter - Nowhere(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:26:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:751AF8DD1369DAE8862E789367DAE10AFD05F16C
+magnet:?xt=urn:btih:BE01CE8DE485381BFF5BAC1C0EDFCA34F86E334C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679846   (135371) от 26.11.2023
+
+iCompta 6.1.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135371.jpg" />
+</div>
+
+
+###  Подробнее
+
+iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2006-2022 SAS LyricAppsПоддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3D670245E27F469EB3E497A907C7683D6E574B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592231   (135370) от 23.12.2012
+
+Plies - Hunna (2012) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F3107DC72C81785EC63F27D00C336F9D12268D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679717   (135369) от 26.11.2023
+
+Журнал | Сваты №21 (255) (ноябрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135369.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сват плохого не посоветует» — говорят в народе. В каждом номере журнала «Сваты» вы найдете: проверенные советы от читателей, экспертов, юристов, медиков, психологов, кулинарные рецепты, секреты здоровья, помощь в воспитании детей разного возраста, песни, байки, анекдоты. И все это в ярком, красочном оформлении.Жанр: Популярный журналИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADC770C47D50E9C0F8878186279D5B1B32ADB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679760   (135367) от 26.11.2023
+
+Борис Житков | Рассказы о животных (2012) [MP3, Леонид Бородин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Степанович Житков (1882–1938), известный русский советский писатель-путешественник, автор приключенческих рассказов и путевых заметок.
+Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра.
+В сборник вошли рассказы о животных Бориса Житкова. Яркие, увлекательные - они (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: Нигде не купишьПродолжительность: 03:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E8F1AB188BE0346E28F657FA510BB0B92EA4D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679711   (135365) от 26.11.2023
+
+Журнал | Сваты №22 (256) (ноябрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135365.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сват плохого не посоветует» — говорят в народе. В каждом номере журнала «Сваты» вы найдете: проверенные советы от читателей, экспертов, юристов, медиков, психологов, кулинарные рецепты, секреты здоровья, помощь в воспитании детей разного возраста, песни, байки, анекдоты. И все это в ярком, красочном оформлении.Жанр: Популярный журналИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095C160CE02D0BF10663BD888BDD92A51012BAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679500   (135363) от 26.11.2023
+
+Just Before Dawn - Tides of Blood (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When The Iron Shield Falls
+02.Day Of Days
+03.Market Garden
+04.Formations At The Rising Dawn(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBD16DC7DF6CFCF7C5EE75AC2793CC93CD8C745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592387   (135362) от 23.12.2012
+
+Дума о Ковпаке. Буран (1975) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о рейде партизанского соединения С.А.Ковпака во вражеский тыл в 1941-1942 годах, боях на Сумщине при форсировании Днепра и Припяти, знаменитой операции под Саранами, вошедшей в историю второй мировой войны под названием "Саранский крест".Жанр: Военный, ДрамаРежиссер: Тимофей ЛевчукАктеры: Константин Степанков, Валентин Белохвостик, Михаил Голубович, Юрий Саранцев, Виктор Пивненко, Зураб Капианидзе, Иван Гаврилюк, Аркадий Трощановский, Николай Мерзликин, Юрий Демич, Михаил Кокшенов, Наталья Гвоздикова, Валерия Заклунная, Александр ГайПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:801DC52FDF93189B09D75E3917704F4907E1A000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679790   (135359) от 26.11.2023
+
+Борис Житков | Семь огней (2012) [MP3, Вячеслав Герасимов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Степанович Житков (1882–1938), известный русский советский писатель-путешественник, автор приключенческих рассказов и путевых заметок.
+Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра. В сборник вошли рассказы, повести, пьесы и очерки для детей старшего школьного (   Читать дальше...   )Жанр: Русская литература для детей, классика, повесть, очерк, рассказИздательство: Нигде не купишьПродолжительность: 11:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175E7E187AABF9BF5CD44DB42074259FD969164C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593274   (135358) от 23.12.2012
+
+Deborah Coleman - 7 Альбомов (1997-2007) [MP3|320 кб/с]<Blues>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1997 - I Can't Lose
+1998 - Where Blue Begins
+2000 - Soft Place To Fall
+2001 - Livin On Love
+2002 - Soul Be It!
+2004 - What About Love?
+2007 - Stop The GameЖанр: Blues |Продолжительность: 05:25:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679688   (135357) от 26.11.2023
+
+Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impressions [4:38]
+02. Consciousness [11:56]
+03. Passata on Guitar [2:52]
+04. Along Came Betty [5:24](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369AE7301F921E6A0A277A5E764B68003B48B713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679747   (135355) от 26.11.2023
+
+Борис Житков | Что я видел (2011) [MP3, Татьяна Телегина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный российский патриот ни дня не может прожить без мысли о СССР. Уже час за часом прослежены и перелицованы биографии почти всех советских политиков, не выходят из моды советские фильмы, мультфильмы, стихи, песни и их исполнители...
+Дети в школах с открытым ртом слушают о временах, когда квартиры просто давали, а за здоровье и науку не драли три шкуры. И (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: МедиаКнигаПродолжительность: 08:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D77EBAFD0760B542761F86CC01ECD3695824A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593465   (135354) от 23.12.2012
+
+Берег (2 серии) (1983) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский писатель Вадим Никитин приезжает в Гамбург, где недавно был издан его роман. В памяти Никитина воскресает Германия последних отчаянных боев за победу в 1945 году, когда был короткий отдых в немецком городке и была Эмма, молодая немка, в которую он был влюблен. Спустя сорок лет, они встречаются вновь.Производство: СССР, Германия (ФРГ)Жанр: МелодрамаРежиссер: Александр Алов, Владимир НаумовАктеры: Борис Щербаков, Наталья Белохвостикова, Бернхард Викки, Владимир Гостюхин, Валерий Сторожик, Михаил Голубович, Владимир Заманский, Андрей Гусев, Армен Джигарханян, Корнелия Бойе, Бруно Дитрих, Наталья Наумова, Альбина Матвеева...Продолжительность: 1 серия 01:06:07, 2 серия 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93B6F3638ABA8C3A726B0D0188D42C762FF57D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679551   (135353) от 26.11.2023
+
+Silent Angel - Unyielding, Unrelenting (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Unyielding Spirit
+02 – Against The Tides
+03 – A Destiny In Shadows
+04 – Through Selene’s Eyes(   Читать дальше...   )Жанр: Power Metal, Melodic RockПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0097EFAFE8A073ADA1EB1A0A28173876D8123D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679714   (135351) от 26.11.2023
+
+Wet Cactus - Magma Tres (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock, Heavy Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barren Landscape [00:03:21]
+02. Profound Dream [00:04:17]
+03. Mirage [00:06:14]
+04. My Gaze Is Fixed Ahead [00:05:04](   Читать дальше...   )Жанр: Desert-Rock, Heavy-Rock, StonerПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE417D7DB11FAAC1056D621346DEAC2E9D14618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679793   (135349) от 26.11.2023
+
+Наша банда. На собственном заднем дворе / Our Gang. Your Own Back Yard (1925) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Была когда-то в ихней Америке песня с таким названием. Общий смысл таков - если не хочешь неприятностей, оставайся на своем дворе. Может и скучновато, но безопасно. По-русски сказать - "сиди дома, не гуляй". И вот главный герой этого ролика, Фарина, иллюстрирует эту здравую мысль. Жаль, что качество фильма ниже всякой критики.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Джонни Даунс, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Гарри Бауэн, Уильям Гиллеспи, Charles Oelze, Фэй РэйПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F978749AC62A36FDC14DA7D4231EB3ECE3E7DAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679762   (135347) от 26.11.2023
+
+Борис Житков | Чёрные паруса (2008) [MP3, Алексей Морозов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Степанович Житков (1882–1938), русский советский писатель. Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра.
+В состав диска вошли: повесть «Чёрные паруса» о приключениях плененного турками и проданного венецианцам в галерники казака, рассказы «Ураган» (о злоключениях (   Читать дальше...   )Жанр: Русская литература для детей, классика, приключения, повесть, рассказИздательство: Вира-МПродолжительность: 04:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77331EA4F3F5011A20BB46E6F5340C23E78F3CA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

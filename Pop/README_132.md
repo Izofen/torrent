@@ -1,3 +1,119 @@
+###  Публикация: 515491   (654657) от 27.06.2012
+
+Glenn Frey - After Hours (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, Piano, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Piano, VocalПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEC40D8FD878D2A112CAA02F9302519DA9FFF91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226483   (654546) от 21.05.2018
+
+Ленинград feat. Глюк’oZa & ST - Жу-жу (2018) Single [MP3|320 Kbps] <Рор>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жу-жуЖанр: РорПродолжительность: 00:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22AC181FDA671D521B3194DCAEADB9414236F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515934   (654407) от 27.06.2012
+
+Алиса Мон - Мои любимые песни (2005) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654407.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Обещаю (3:33)
+ 2. Стань моим (4:06)
+ 3. Долюби (3:38)
+ 4. День вдвоём (3:49)
+ 5. Мокрый март (3:40)
+ 6. Бабочка (4:31)
+ 7. Алмаз (3:36)
+ 8. Синий дирижабль (3:39)
+ 9. Ты (4:00)
+ 10. Он и она (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E071AB1B5E75902333EF616B1FFE40545C231CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904416   (654256) от 03.06.2015
+
+Мохито - Слёзы Солнца (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Слёзы Солнца
+ 02. Разбежаться
+ 03. Love
+ 04. Она(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0364DB5016FDE13D17E74E8CFAE96C2105E97DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904575   (654131) от 03.06.2015
 
 Toto Cutugno - Toto Cutugno - The Very Best Of (2015) [MP3|320 кб/с]<Pop>
@@ -635,119 +751,6 @@ Alex Christensen & The Berlin Orchestra - Classical 90s Dance 2 (2018) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35DDE50DAB476E72C7F355DBFACDD32E325E407C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141194   (652128) от 09.06.2017
-
-Katy Perry - Witness (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/15. Witness (4:11)
- 02/15. Hey Hey Hey (3:35)
- 03/15. Roulette (3:19)
- 04/15. Swish Swish (feat. Nicki Minaj) (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D644671AEA8EAEB4B545731ED6863B103BDDB2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226837   (652025) от 23.05.2018
-
-VA - 90s Dance Chart Hits (2018) 2CD [MP3|320 Kbps] <Dance, Eurodance, Funk>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armand Van Helden - The Funk Phenomena (12" Original Version)
-02. Fatboy Slim - Praise You (Full Version)
-03. Gigi D'agostino - L'amour Toujours
-04. Rmb - Redemption (12" Version)(   Читать дальше...   )Жанр: Dance, Eurodance, FunkПродолжительность: 02:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C61FA0AC33640F0C1980DE7BFED9FBA4F9171AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678580   (651750) от 12.07.2013
-
-Dido - 3 альбома (2001-2005) [FLAC|Lossless]<Pop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_651750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Vocal, BalladФормат: track + cueПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905145   (651743) от 05.06.2015
-
-Will Young - 85% Proof (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651743.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Brave Man (4:02)
-2. Promise Me (3:35)
-3. Love Revolution (2:58)
-4. U Think I'm Sexy (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CBEF1F52BBEF98B57A4884D397EC2E864B96E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

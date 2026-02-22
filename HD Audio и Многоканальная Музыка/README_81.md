@@ -1,3 +1,177 @@
+###  Публикация: 1684929   (127260) от 18.12.2023
+
+Переучёт (Oxxxymiron) - Семейный альбом (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Hip-Hop, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Заходи скорее
+02 Всё сразу
+03 Макдональдс
+04 Семейный альбом(   Читать дальше...   )Жанр: Alternative, Hip-Hop, ExperimentalПродолжительность: 00:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130E144465BE6D2E947250D8165ADC52A727B5D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685387   (127033) от 19.12.2023
+
+Lunacy - Disconnection (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove, Death, Progressive-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127033.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blood
+2. Childs Play
+3. Mince Machine
+4. Deviant Fetish(   Читать дальше...   )Жанр: Groove, Death, Progressive-MetalПродолжительность: 00:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC333DCE0AA7439A504415F9E7F0583D5F9B8E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685658   (126908) от 20.12.2023
+
+Serj Tankian - Invocations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Mountain (Live) [00:04:45]
+02. Free The Piano (Live) [00:03:49]
+03. Der Voghormia (Live) [00:04:08]
+04. Aurora's Dream (Live) [00:06:54](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC79343EA811D867AD7198F45AD690581B2DFA3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685858   (126881) от 20.12.2023
+
+Electus - Episode IV (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More More More [00:05:54]
+02. All the Way [00:06:00]
+03. Got the Time [00:03:13]
+04. If I Stay [00:04:51](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E11E911D3726B1E5B8EA24E3F4BB5288D35E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685655   (126880) от 20.12.2023
+
+Stilz - Vision (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darksynth>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Initiate [00:03:22]
+02. Vertical Drop [00:03:37]
+03. Sideswipe [00:02:23]
+04. Vision [00:02:22](   Читать дальше...   )Жанр: Synthwave, Retrowave, DarksynthПродолжительность: 00:24:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A154B7B78C4E5479BA71044E2B0765D5932073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685955   (126869) от 20.12.2023
+
+Atomkraft - Atomkraft (1987) Compilation [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126869.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Queen Of Death
+A2 Protector
+A3 Demolition
+A4 Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36728EE6E92CB9444221B4731F58A1793CA2FDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685908   (126863) от 20.12.2023
 
 Atomkraft - Future Warriors (1985) [FLAC|24/96|tracks|Vinyl-Rip]<NWOBHM, Heavy Metal, Speed Metal>
@@ -571,180 +745,6 @@ Golden Earring - The Hole (1986) Remastered & Expanded Edition, 2023, Red Bullet
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CF06F42BC208187BE6804096D6BCF6C2FA059EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686755   (126208) от 24.12.2023
-
-Goat - Levitation Sessions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Tarot Will Teach You (Live)
-02 – Golden Dawn (Live)
-03 – Under No Nation (Live)
-04 – Behind the Plank (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE805B6CD0FAD9A78D328A2C3AFD21694EA1AEC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686655   (126203) от 24.12.2023
-
-Phil Seymour - Live On The Sunset Strip (Live) (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Love You So Much (00:02:36)
-02 - I Found A Love (00:03:31)
-03 - Then We Go Up (00:03:20)
-04 - If You Don't Want My Love (00:04:05)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237661A17388EF135CE2FABDA6E8195C9E194CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686903   (126201) от 24.12.2023
-
-Assemblage - Album (1970) Remastered, 2023, Janus Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic Rock, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Satisfaction (00:05:31)
-02 - It's Not Easy (00:06:35)
-03 - Dirty Gurty (00:04:40)
-04 - Drink Deep (00:05:19)(   Читать дальше...   )Жанр: Psychedelic Rock, FunkПродолжительность: 00:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C511A8DBF38A06F0E8E97CC40E5F8E319CBDDBE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686629   (126198) от 24.12.2023
-
-Neon Fields - Neon Fields (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Paths (00:02:47)
-02 - Rituals (00:04:30)
-03 - Bleak (00:04:48)
-04 - Meant To Be (00:04:27)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417BED38F603D60F5C513A45D289C9BF70DFFA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686523   (126196) от 24.12.2023
-
-Elisa - Intimate - Recordings at Abbey Road Studios (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Overture Un Filo Di Seta Negli Abissi
-02 – Quando Nevica
-03 – L’Anima Vola
-04 – Luce (Tramonti A Nord Est)(   Читать дальше...   )Жанр: Alternative, Pop RockПродолжительность: 01:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F85A5CB7A455FE31EB641D459FF04CEC499B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686533   (126195) от 24.12.2023
-
-Sefirot - The Mystical Lybrary (2023) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Don't Give Up (00:04:13)
-02 - Son of Ice and Fire (00:05:51)
-03 - My Moonlight (00:05:04)
-04 - Secret of the Forest (00:04:39)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335F49E154DB4524D7D6EE30CE459B7C295BDC9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

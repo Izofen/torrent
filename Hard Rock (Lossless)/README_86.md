@@ -1,3 +1,32 @@
+###  Публикация: 1589564   (190059) от 10.11.2022
+
+96 Bitter Beings - Synergy Restored (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vaudeville's Revenge [00:04:56]
+02. Wish Me Dead [00:04:42]
+03. Fire Skyline [00:03:22]
+04. Throw Yourself Inside [00:03:36](   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F1C1A06E82A998F5F3E7A30BDD02B596920551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660354   (189811) от 12.09.2023
 
 Mats Karlsson - Mood Elevator (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
@@ -716,35 +745,6 @@ Karthago - A Rock Tribute to Mate Peter (2022) [FLAC|Lossless|WEB-DL|tracks] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7EAB72EED05226627132624DE8A12279FCB2CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662946   (187508) от 19.09.2023
-
-Kill Devil Hill - Seas Of Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post-grunge, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood In The Water (3:28)
-02. Before The Devil Knows (3:58)
-03. Playing With FIre (4:48)
-04. Undertow (3:28)(   Читать дальше...   )Жанр: Hard Rock, Post-grunge, Heavy MetalПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CBD509FCCB5B74278033BED33C07601CE39379
 ```
 
 https://mybot314.ru/tekegram_catalog/

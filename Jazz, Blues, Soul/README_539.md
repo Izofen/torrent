@@ -1,3 +1,32 @@
+###  Публикация: 1714892   (111584) от 11.04.2024
+
+Leif De Leeuw Band - Mighty Fine (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rosalie (5:23)
+02. Hard to Hold (3:51)
+03. Southern Man (feat. Berget Lewis) (4:37)
+04. Lone Star (5:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9EB477B6889E4C451D2D712D163D15991668481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714890   (111582) от 11.04.2024
 
 Jimi Fiano - Sweat and Pray (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -716,35 +745,6 @@ Joel Ross - Nublues (2024) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47EE75C67B34795C5FD309074166DFBA9D4DFE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715771   (111434) от 13.04.2024
-
-Jo Stafford - It Had to Be You: Lost Radio Recordings (1950 - 1951) 2017, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Had to Be You [2:47]
-02. Nevertheless (I'm in Love with You) [2:51]
-03. Ain't Misbehavin' [2:37]
-04. I'll Get By (As Long as I Have You) [2:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C3D4091F83C380E653DD1B929785F08C145DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

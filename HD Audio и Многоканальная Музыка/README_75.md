@@ -1,3 +1,177 @@
+###  Публикация: 1678328   (145599) от 21.11.2023
+
+Trans-Siberian Orchestra - The Ghosts of Christmas Eve (2013) The Complete Narrated Version, 2023, Rhino Atlantic [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Rock, New Age, Christmas Music>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O' Come All Ye Faithful / O Holy Night (Narrated Version) [00:07:02]
+02. Good King Joy (Narrated Version) [00:06:30]
+03. Christmas Dreams (Narrated Version) [00:04:21]
+04. Christmas Eve / Sarajevo 12/24 (Narrated Version) [00:04:18](   Читать дальше...   )Жанр: Prog Rock, New Age, Christmas MusicПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA6864C4BABA6F2303BEBED2D28409BB2E887EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969121   (145212) от 28.12.2015
+
+Группа Диалог - Просто (1985) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поймем Потом • We'll Understand One Day	3:35
+02. Свет в Окне • Light In The Window	3:20
+03. Маргарита • Margarita	1:40
+04. Любил Тебя • I Loved You	3:05(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6E780DD19E0C0090CA31C0C0B25A0E4F67B65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519884   (144831) от 26.12.2021
+
+Gregorian - Pure Chants (2021) [DTS-ES Discrete 6.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio] <New Age, Choral>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 My Little Welsh Home
+02 Kyrie Victoria
+03 Waiting For Life
+04 Pie Jesu Featuring – Narcis(   Читать дальше...   )Жанр: New Age, ChoralПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59554D6A882EF8710AA8B52D363DFE3C57D7F3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087703   (144425) от 28.12.2016
+
+П. Чайковский - Сюита из балета Лебединое озеро, Увертюра до минор (Е. Светланов) (1991) [WavPack2.0|192/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Сюита из балета Лебединое озеро
+01. Сцена 3:22
+02. Вальс 7:24(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46E827C6AD0E40FC2A61D1F1F05CA9090CBB33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271896   (144407) от 27.12.2018
+
+VA - The Civil War - Original Soundtrack Recording. Traditional American Songs And Instrumental Music Featured In The Film By Ken Burns (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144407.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Old Bethpage Brass Band - Drums Of War"
+A2 Paul Roebling - Oliver Wendell Holmes (Quote)
+A3 Evan Stover, Jay Ungar, Matt Glaser (Fiddle) and Molly Mason, Russ Barenberg (Guitar) - Ashokan Farewell
+A4 Jacqueline Schwab (Piano) - Battle Cry Of Freedom(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678630   (143963) от 22.11.2023
+
+Dogma - Dogma (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard N' Heavy / Female Vocals>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forbidden Zone [00:04:49]
+02. Feel The Zeal [00:03:57]
+03. My First Peak [00:03:57]
+04. Made Her Mine [00:03:04](   Читать дальше...   )Жанр: Hard N' Heavy / Female VocalsПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D27C33D36654BFD45BF7D5E5ACF6BBB44C14413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678969   (142499) от 23.11.2023
 
 Mono Inc. - Mono Inc. (Live in Hamburg) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Rock, Gothic Metal, Industrial>
@@ -577,179 +751,6 @@ Absurd Minds - Gravitas (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B972888759BEE32F730C158F5DD81CAFD1834335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679135   (139951) от 24.11.2023
-
-Yes - The Yes Album (1971) Super Deluxe Edition, Remaster, Steven Wilson Remix, 2023, Rhino [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Original Album (2023 Remaster)
-Disc 2: Steven Wilson 2014 Remix and Instrumentals
-Disc 3: Rarities (2023 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F9AD47B6ED88A35E001557C3660E848EFD9591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678561   (139726) от 24.11.2023
-
-КИНО - Атаман (1990 / 2012) hand made, remastered [FLAC|16/44.1|tracks|CD-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139726.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:16] 1. Атаман
-[4:16] 2. Атаман (Karaoke)
-[3:01] 3. Атаман (Acoustic version 1990)Жанр: RockПродолжительность: 00:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B270A962F96D1E5B86AD73E708F79046F07FECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679208   (139716) от 24.11.2023
-
-Atlanta Rhythm Section - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Southern Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Up Against The Wall (Live in Atlanta, 1978) [00:04:49]
-02. Sky High (Live In Pittsburgh, 1977) [00:05:20]
-03. Homesick (Live in New York City, 1971) [00:04:50]
-04. Champagne Jam (Live in Tokyo, 1978) [00:04:44](   Читать дальше...   )Жанр: Southern RockПродолжительность: 2 CD, 02:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD5717D7CC5E21D05CC939CF58B6603AC86E38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436084   (139412) от 30.12.2020
-
-Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий джазовый музыкант, саксофонист, руководитель оркестра и дирижер. Родился 2 апреля 1926 года в Мюнхене-Гизинге, Германия, умер 15 августа 2015 года в Мюнхене, Германия. Отец Макса Грегера-младшего.Seite 1:
-A1 Girls, Girls, Girls
-A2 Save Your Kisses For Me
-A3 The Song Is You(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B3AA6E7A62379B1211A40C3788E8C030AB90C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273047   (138945) от 30.12.2018
-
-VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Хоралов - А снег рисует...
-02. Л. Долина - Страна Лимония
-03. И. Саруханов - Падал снег
-04. Группа "НРГ" - Время зовет меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3DE25AFA03C429A843CCE9D2E9A08D81E04FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436103   (138880) от 30.12.2020
-
-VA - The Greatest Old Traditional Christmas Songs 1942-2017 (2020) Unofficial Release [FLAC 2.0|44.1/24|image+m3u|MC-Rip] <Pop, Traditional>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Gene Autry - Rudolph the Red-Nosed Reindeer
-Ultimate Christmas, Vol. 1
-1994 compilation - Collectables - Marks(   Читать дальше...   )Жанр: Pop, TraditionalПродолжительность: 01:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE42AAD15DE06B40A307BB5F86301B14A7F2561
 ```
 
 https://mybot314.ru/tekegram_catalog/

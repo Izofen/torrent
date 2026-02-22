@@ -1,3 +1,67 @@
+###  Публикация: 1061421   (446000) от 11.10.2016
+
+Александр Новиков - Блатной (2016) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446000.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:53] 01. Блатной
+[3:18] 02. Девушка с плаката
+[2:42] 03. Виолетта
+[2:53] 04. Суки заловили(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8700B89E8564D873D974B4AF1422C2AE56433A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552900   (445523) от 27.09.2012
+
+Patricia Kaas - 6 Студийных альбомов (1988 - 2002) /Japan/ [FLAC|Lossless]<Shanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_445523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Man (Mon Homme)
+02. If You Go Away (Ne Me Quitte Pas)
+03. What Now My Love (Et Maintenant)
+04. Un Homme Et Une Femme
+05. The Summer Knows (Un Ete 42)
+06. I Wish You Love (Que Reste-t-il De Nos Amours)
+07. Yesterday When I Was Young (Hier Encore)
+08. Les Moulins De Mon Coeur (The Windmills Of Your Mind)
+09. Autumn Leaves (Les Feuilles Mortes)
+10. Where Do I Begin (Love Story)(   Читать дальше...   )Жанр: Shanson, PopПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409461   (444989) от 17.09.2020
 
 Михаил Гулько - Песни из нашей жизни (2002) [FLAC|Lossless|tracks + .cue]<Шансон>
@@ -699,64 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C43BCED9B51051254B5C8B16D74B8827F4E13EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252721   (407665) от 06.10.2018
-
-Александр Новиков - Девочка-огонь (2018) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Девочка-огонь (2:52)
-02. Вдоль по памяти (3:22)
-03. Три девушки (3:16)
-04. Любимая моя (3:24)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC5052514AA654256F652A487E7BBAC0CFF1ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560783   (406262) от 16.10.2012
-
-VA - 3D коллекция Бутырка, Иван Кучин, Сергей Наговицын (2012) 3CD [MP3|320 кб/с]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Запахло весной (04:08)
-02. По этапу (03:24)
-03. Не трогай осень (05:41)
-04. Весточка (05:29)(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B42866CECC64F16103BA98492EE18EB01474E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

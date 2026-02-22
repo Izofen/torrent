@@ -1,3 +1,90 @@
+###  Публикация: 1503794   (817634) от 20.10.2021
+
+Black Cherry Perry's Mississippi Medicine Show - Where There's Smoke (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where There's Smoke (5:27)
+02. Desperate People (3:36)
+03. Southern Cross the Dog (3:25)
+04. The Mojo Man (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484AB3CC571B560F2D777AC221B661FAB5B9F928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197305   (817578) от 06.01.2018
+
+Louis Armstrong - The Silver Collection (1984) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top Hat, White Tie And Tails
+02. Have You Met Miss Jones
+03. I Only Have Eyes For You
+04. Stormy Weather(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1275ECD5C0156A7D266D53A1BE8CB44A61D67A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382684   (817545) от 12.05.2020
+
+Zoot Sims - The Modern Art Of Jazz 1956 (1998) Dawn [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September in the Rain [5:09]
+02. Down at the Loft [4:30]
+03. Ghost of a Chance [6:39]
+04. Not So Deep [7:04](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05679A05A511198DC116FC82ED2FFAD41E4D904B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117678   (817347) от 23.03.2017
 
 Dave Brubeck - S' Wonderful (2003) Tyrolis Musik [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
@@ -658,94 +745,6 @@ Art Pepper - The Intimate Art Pepper (1996) Analogue Productions [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5354952B79CFF3B38A134F0F9CCE466D99F731E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117991   (815493) от 24.03.2017
-
-Green - Waltz-N-All (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock, Rock, Rock'n'Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Girls (4:22)
-02. Heading Down (4:40)
-03. The Letter (5:04)
-04. My Whole World (6:02)(   Читать дальше...   )Жанр: Blues-Rock, Rock, Rock'n'RollПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F815E0223F3DD48A17563675E36ED7E291B1471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117733   (815492) от 24.03.2017
-
-Julian Sas - Feelin' Alive (2016) Live, 2017, Cavalier Recordings [FLAC|Lossless|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Jump For Joy  (04:48) 
-02| High And Low  (06:26) 
-03| Did You Ever Wonder  (04:04) 
-04| Fear Of Falling  (08:00) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96C3EDF27136966C9AA9C6AC92B9F56D57CF839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117875   (815484) от 24.03.2017
-
-Quinn Sullivan - Midnight Highway (2017) [FLAC|Lossless|tracks + .cue] <Blues-Rock, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой американский музыкант, гитарист и блюзмен, которым по-настоящему восхищается Бадди Гай. Сегодня даже матерые музыканты, глядя на гитариста-подростка, удивлены – он слишком хорошо, совсем 'не по возрасту' играет блюз. При этом сам Куинн говорит, что он вовсе не сводит свою жизнь к игре на гитаре – он ведет обычную жизнь обычного американского подростка.
-American (   Читать дальше...   )01. Something For Me (4:53)
-02. Tell Me I'm Not Dreaming (3:52)
-03. Midnight Highway (5:56)
-04. Crazy Into You (4:02)(   Читать дальше...   )Жанр: Blues-Rock, Electric BluesПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1ECADA4B98D82A883F0A471702BBDCB3828A502
 ```
 
 https://mybot314.ru/tekegram_catalog/

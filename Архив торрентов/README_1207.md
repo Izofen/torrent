@@ -1,3 +1,38 @@
+###  Публикация: 639657   (890766) от 05.04.2013
+
+VA - Танцевальный Рай 30 (2012) [FLAC|Lossless]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Alex Ferrari - Guere Guere
+2. Otto Knows - Million Voices
+3. Gotye Feat. Kimbra - Somebody That I Used To Know (Tiesto Remix)
+4. Movetown Feat. R. Horton - Here Comes The Sun (Radio Edit)
+5. Godlike Music Port - Jambo Jambo Jambo (Radio Edit)
+6. Dj Taz & Highlander Dj Feat. Denis Swing - Pika Pika
+7. Carlprit - Fiesta (Michael Mind Project Radio Edit)
+8. Jack Holiday & Mike Candys - The Riddle Anthem (Radio Mix)
+9. Michael Mind Project Feat. Dante Thomas - Nothing Lasts Forever (Radio Edit)
+10. Livin R & Pink Noisy Feat Marilena Animado - Secret Sin!(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994371   (890765) от 07.03.2016
 
 В центре внимания / Spotlight (2015) BDRip [H.264/1080p]
@@ -700,32 +735,6 @@ Casting Crowns - Thrive (2014) [FLAC|Lossless]<Christian Rock, Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3AB2B6E3F8D5CDFB71D4C804BDB89AE8530C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184412   (890661) от 19.03.2010
-
-Dvj Bazuka - Богиня Электро (Новый видеоальбом) (2009-2010) [1080i] HD
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-DVJ BAZUKA † Episode 25 Mega Hits - Богиня Электро [1080i] HDЖанр: МузыкаПродолжительность: 00:33:36 (Общая продолжительность клипов)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

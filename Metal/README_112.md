@@ -1,3 +1,32 @@
+###  Публикация: 1651251   (222537) от 06.08.2023
+
+Brutally Deceased - Black Infernal Vortex (2014) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divinity And Decay
+02. Devil's Tarn
+03. Day Of Darkness
+04. Black Hammer Of Satan(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884BB00D93B2F88FEDEDBE2C4083C76E029616B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651195   (222525) от 06.08.2023
 
 Mracnij Znec - 8 Albums (2022-2023) [MP3|320 Kbps] <Epic Doom Metal>
@@ -722,36 +751,6 @@ Nightwish - Decades: Live in Buenos Aires (2019) Live [MP3|320 Kbps] <Symphonic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECE7A5E17AE6EA172E574F89C1CE458ACEFA0A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852783   (219804) от 23.12.2014
-
-Sister Sin - The Very Best Of (2014) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Beat The Street
- 02. Dance Of The Wicked
- 03. Better Than Them
- 04. 24-7
- 05. Heading For Hell(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD373FC818135974C7212638FC219D545D68678
 ```
 
 https://mybot314.ru/tekegram_catalog/

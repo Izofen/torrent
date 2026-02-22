@@ -1,3 +1,32 @@
+###  Публикация: 1127618   (730981) от 22.04.2017
+
+VA - Los clasicos argentinos - Tango - Vol.14 - Eladia Blazquez: La cuidad y su gente (1996) [MP3|192 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troilo y su orquesta - Inspiracion
+02. Charlo - Las cuarente
+03. Jorge Vidal - Tres esperanzas
+04. Demare y su orquesta (canta Horacio Quintana) - Manana zarpa un barco(   Читать дальше...   )Жанр: TangoПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79532E43745F432E3CA02F0AEFCF903A4FAEA7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021993   (730976) от 31.05.2016
 
 Tanya Tucker - 16 Biggest Hits (2006) [MP3|320 кб/с] <Country>
@@ -713,40 +742,6 @@ Antoinette Ventura & The London Starlight Orchestra - Unforgettable (1992) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E5D09B3176D9BA736FCA3808260B85DA3F5A476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 324223   (728137) от 19.04.2011
-
-Ari Pulkkinen - Trine (2009) [FLAC|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_728137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astral Academy  (4:04)
-02. Academy Hallways (4:15)
-03. Wolvercote Catacombs  (5:00)
-04. Dragon Graveyard (4:01)
-05. Crystal Caverns (4:30)
-06. Crypt Of The Damned(3:38)
-07. Forsaken Dungeons  (4:05)
-08. Throne Of The Lost King (4:36)
-09. Fangle Forest  (4:19) (   Читать дальше...   )Жанр: OSTПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

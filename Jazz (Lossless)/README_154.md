@@ -1,3 +1,32 @@
+###  Публикация: 1231648   (604153) от 19.06.2018
+
+Larry Vuckovich Trio - Street Scene (2006) Tetrachord Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dexter's Mode [5:58]
+02. Street Scene [6:43]
+03. News For Lulu [6:07]
+04. As Time Goes By Mambo [4:43](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5B3AB3FC39141AA7090E32FE61AFF49D833571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231642   (604152) от 19.06.2018
 
 The Modern Jazz Quartet - Modern Jazz Quartet (1957) 2013, Warner [FLAC|Lossless|image + .cue] <Cool>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44521A5BD064A25DC52D047AB0BA2B1FD2E82A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297721   (603143) от 24.04.2019
-
-Louis Hayes - Return Of The Jazz Communicators (2014) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul-Leo [8:08]
-02. Shape Shifting [6:58]
-03. Lush Life (Intro) [2:27]
-04. Lush Life [6:30](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F71CA1F8AC2C7FFF6F11FC1BE9FBB510770C72
 ```
 
 https://mybot314.ru/tekegram_catalog/

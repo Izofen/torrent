@@ -1,3 +1,29 @@
+###  Публикация: 1197227   (817131) от 06.01.2018
+
+Anvir Task Manager 9.2.1 Final RePack (& Portable) by elchupacabra [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817131.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnVir Task Manager предоставляет подробную информацию о работе системы и, в то же время, предоставляет большое количество инструментов для управления Windows. Для того, чтобы заменить все функции AnVir Task Manager, придется установить около 10 разных программ.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63182076D58AAAFB013AC0AB5AAACBB5DB9FEF22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197123   (817115) от 06.01.2018
 
 Владимир Кощеев | Битва за Эдем (2017) [FB2]
@@ -664,34 +690,6 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:727FA5CF8716AF22A77271ED4892D59717310116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 315484   (816832) от 29.03.2011
-
-[Трейлер] Мушкетеры / The Three Musketeers (2011) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816832.jpg" />
-</div>
-
-
-###  Подробнее
-
-новая экранизация Пола Андерсона старого романа Дюма. Остальное, можно не обсуждать
-Выход в прокат летом 2011
-The hot-headed young D'Artagnan along with three former legendary but now down on their luck Musketeers must unite and defeat a beautiful double agent and her villainous employer from seizing the French throne and engulfing Europe in war.Жанр: Боевик, Мелодрама, ПриключенияРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Орландо Блум, Джуно Темпл, Логан Лерман, Мэтью Макфейден, Кристоф Вальц, Рэй Стивенсон, Мадс Миккельсен, Люк Эванс, Тиль Швайгер ...Перевод: ОтсутствуетПродолжительность: 00:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1A774F91386DCAA5967AC8BC44DECB6B7B1572
 ```
 
 https://mybot314.ru/tekegram_catalog/

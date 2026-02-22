@@ -1,3 +1,177 @@
+###  Публикация: 1751628   (104051) от 26.09.2024
+
+Shrinking Mode - Choices of Passion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coffee High (2:43)
+02. Mix of Passion (2:19)
+03. Don't Drink Coffee Too Much (2:29)
+04. Midnight Sugar (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943825E82BFD5906788608338581F43AEAF239C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751523   (104050) от 26.09.2024
+
+Arma - Brazilian Genocide (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe in Nothing [00:04:23]
+02. Those Who Died [00:04:27]
+03. Brazilian Genocide [00:04:23]
+04. Things That Cannot Be [00:03:25](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358AA21296772A9734371C1875E54FD9CEBE9105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751635   (104048) от 26.09.2024
+
+The Cold Stares - The Southern (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Alt Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horse To Water (3:59)
+02. Coming Home (3:09)
+03. Looking for a Fight (3:24)
+04. Blow Wind Blow (3:29)(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Alt RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340A107248C9765979F54DC86E94D0998EDAE6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751727   (104047) от 26.09.2024
+
+Richie Kotzen - Nomad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheap Shots (3:24)
+02. These Doors (4:23)
+03. Insomnia (4:47)
+04. Nomad (6:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ACBE8FDC581FD08B0A61EBEDD0E0D14C8420323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751926   (104042) от 27.09.2024
+
+Whisky of Blood - Diablesse Of Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Rock 'N' Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing More (4:03)
+02. Baby Revolution (4:33)
+03. Crazy Zone (4:36)
+04. Diablesse Of Love (3:46)(   Читать дальше...   )Жанр: Hard Rock, Rock 'N' RollПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D444BDEA9EF7BD5D79EC7E7E52998B6D382381F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751836   (104040) от 27.09.2024
+
+Armored Saint - Studio Albums (4 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armored Saint — американская хэви-метал-группа, наиболее известная вокальными стилями певца Джона Буша, который в течение нескольких лет работал также с группой Anthrax.2000 - Revelation
+2010 - La Raza
+2015 - Win Hands Down
+2020 - Punching The SkyЖанр: Heavy MetalПродолжительность: 04:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E482D559D5DA2FFC0EA4EFEE5BA407F8087C021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752003   (104017) от 28.09.2024
 
 Babbba - Perfect moment (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Fusion, Swing>
@@ -571,180 +745,6 @@ Helloween - Metal Jukebox (1999) Remastered, 2024, Sanctuary Records [FLAC 24/44
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2980CB5CB13F213BC374A9C96CBF74E478612D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752605   (103907) от 01.10.2024
-
-Helloween - The Time of the Oath (1996) Remastered, 2024, Sanctuary Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Power metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Burn (3:06)
-02. Steel Tormentor (5:42)
-03. Wake Up the Mountain (5:05)
-04. Power (3:32)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Power metalПродолжительность: 01:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426411A990DB7F5C3F3190355EF83CD355802D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752991   (103900) от 03.10.2024
-
-Bad Love Junkie - The Fool Is On The Ledge (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fool Is On The Ledge (3:11)
-02. Let The Monkey Talk (3:29)
-03. The Cosmic Comedian (2:51)
-04. She Dog Kills Beauty Queen (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292EE378E183FA1744B7A4E9B0C6102DFEFC795C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753001   (103894) от 03.10.2024
-
-Heart 2 Heart - Alley of Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Arrival (0:22)
-02. Alley of Dreams (4:06)
-03. Carles Salse - 2.000 Miles (3:53)
-04. Stay (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5C92839C451374F1E9C84E7C71A13189B4C3A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753149   (103889) от 03.10.2024
-
-Walter Smith III - three of us are from Houston and Reuben is not (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. seesaw (6:09)
-02. Gangsterism on Moranish (4:03)
-03. 24 (2:40)
-04. Misanthrope's Hymn (6:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C1CEB95A3C222941FDFEF1FE48DDBDDEBACB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753131   (103887) от 03.10.2024
-
-Sleeper's Keep - Tales Beyond the Past (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing the Dream (3:53)
-02. Ascension (4:10)
-03. Ghost Harmony (3:44)
-04. Winter's Call (3:04)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15219A4E248DF15B684B0A693BDA5C33D328FE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753030   (103886) от 03.10.2024
-
-Morgana Lefay (a.k.a. Lefay) - Studio Albums (10 releases) (1993-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Morgana Lefay - шведская трэш/пауэр-метал-группа из Боллнеса. В 1986 году была образована группа "Damage", которая в 1989 сменила название на "Morgana Lefay". В 1997 году группа разделилась, причём право на оригинальное название осталось у одной части, а желание исполнять музыку — у другой. В результате новая группа получила название "Lefay" (   Читать дальше...   )1993 - Knowing Just as I
-1993 - The Secret Doctrine
-1995 - Sanctified
-1996 - Maleficium(   Читать дальше...   )Жанр: Power/Thrash/Groove MetalПродолжительность: 09:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23A1FF9892AF579EFB3DC2FE988F2AC4B90003B
 ```
 
 https://mybot314.ru/tekegram_catalog/

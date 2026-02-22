@@ -1,3 +1,90 @@
+###  Публикация: 1058787   (466445) от 02.10.2016
+
+Johnny Smith Trio - Easy Listening (1958) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When I Fall In Love [02:50]
+ 02.It Might As Well Be Spring [02:51]
+ 03.I Didn't Know What Time It Was [02:23]
+ 04.Black Is The Color (Of My True Love's Hair) [02:35](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6973698EA26091312CC88A5B809D86F899CE7FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058937   (466443) от 02.10.2016
+
+Paul Wood - Blues Is My Business (2001) [FLAC|Lossless|image + .cue] <Blues, Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Don't Play By The Rules   (04:58)
+02. Blues Guitar   (03:57)
+03. Cryin' Won't Help Ya   (04:44)
+04. Blues Is My Business   (03:37)(   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1C9EC40B117C94933587572C3F01A3EBD71E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058721   (466442) от 02.10.2016
+
+Clifton Chenier - In New Orleans (1988) Crescendo Records[FLAC|Lossless|tracks + .cue] <Blues, Zydeco>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Boogie Louisiane [03:14]
+ 02.Cotton-picker Blues [05:10]
+ 03.J'aime Pain de Mais (I Love Corn Bread) [02:50]
+ 04.Pousse Cafe Waltz [03:49](   Читать дальше...   )Жанр: Blues, ZydecoПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA9ACA438481636D4653D12A4F4F853C8129AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058944   (466432) от 02.10.2016
 
 Jean-Luc Ponty - Fables (1985) [WavPack|Lossless|image + .cue] <Jazz Fusion>
@@ -670,94 +757,6 @@ The Geoff Everett Band - The Quick And The Dead (2012) [MP3|320 Kbps] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E5D7A85F10085483FCA530C6F2D42C90242D161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059288   (464157) от 03.10.2016
-
-Neal Black & The Healers - Before Daylight (2014) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus & Johnny Walker   (05:35)
-02. Hangman's Tree   (04:48)
-03. The Peace Of Darkness   (03:55)
-04. Mama's Baby   (04:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EECB44F0935862E51DC4D284B02BEC1A02253C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407508   (464116) от 08.09.2020
-
-Muddy Waters & Rory Gallagher - The London Muddy Waters Sessions (1996) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Man Blues
-02. Key To The Highway
-03. Young Fashioned Ways
-04. I'm Gonna Move To The Outskirts Of Town(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454C0111FD403A38AA35C82AFF032B9A06931AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059022   (463876) от 03.10.2016
-
-Scott Henderson (Tribal Tech, Vital Tech Tones, HBC) - 20 альбомов (1985-2015) 21 CD [WavPack|Lossless|image + .cue] <Jazz-Rock, Fusion, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя Скотта Хендерсона стоит отдельно в списке самых влиятельных и талантливых гитаристов мира.
- Его внушительный вклад в развитие джаза и блюза, работы с Чиком Кориа, Жаном-Люком Понти и Джо Завинулом, создали Хендерсону славу одного из авторитетнейших представителей этих направлений...1994 - Dog Party (Mesa Recordings 79073)
-1997 - Tore Down House (Mesa Recordings 7567-92722-2)
-2002 - Well to the Bone (Blues Bureau International BB-2045 2)
-2005 - Live! 2CD (Tone Center TC 4037 2)(   Читать дальше...   )Жанр: Jazz-Rock, Fusion, Blues-RockПродолжительность: 20:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28B129FC1E4F80A634091100C5E65E0AA65BC04
 ```
 
 https://mybot314.ru/tekegram_catalog/

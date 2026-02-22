@@ -1,3 +1,119 @@
+###  Публикация: 1048895   (544854) от 04.09.2016
+
+Musique - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Disco, Funk-Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Musique (Музыка) - диско проект американского продюсера Боби Бланка, нашумевший из-за откровенных текстов песен, что не помешало  занять высокие места в диско чартах.01. Keep On Jumpin' (5:43)
+02. Summer Love (7:55)
+03. In the Bush (8:12)
+04. Summer Love Theme (8:05)(   Читать дальше...   )Жанр: Disco, Funk-SoulПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4D99D85F5F84F6241F0D8098A07875D794C868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049155   (544798) от 04.09.2016
+
+VA - Extended Version & Remix, Vol. 2 The Sound of Italo Disco (2016) [MP3|320 Kbps] <Disco, Dance, Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jam Crew - Walking on Music (DJ Promo Mix) (09:08)
+02. Zinc - Pretty Face (12" Version) (06:08)
+03. Presence - Main Attraction (The Finest Remix) (06:39)
+04. Beat Dance - Got to Get Up (Extended Version) (06:13)(   Читать дальше...   )Жанр: Disco, Dance, Italo DiscoПродолжительность: 03:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D87B7AF5EE3C1BFD85ADF9A5C9F59054436ABF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049257   (544797) от 04.09.2016
+
+VA - Italo Dance Rimini (2016) [MP3|320 Kbps] <Disco, Italo Dance, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cazintel - Over the Sea [00:03:55]
+02. Jimmy & Wenzel - Dreamer [00:04:56]
+03. Cheese & Nuts - All Be One [00:05:39]
+04. Tom la Mer - Drauen [00:06:49](   Читать дальше...   )Жанр: Disco, Italo Dance, HouseПродолжительность: 02:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B594BA824D04010E6A38D8157C595514A689E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049247   (544791) от 04.09.2016
+
+VA - Extended Version & Remix, Vol. 3 - The Sound of Italo Disco (2016) [MP3|320 Kbps] <Disco,Dance,Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Macho - I'm a Man (17:40)
+02. Firefly - Do It Dancing (07:11)
+03. Game - Gotta Take Your Love (07:18)
+04. B.B. & Q. Band - Time for Love (Long Version) (07:01)(   Читать дальше...   )Жанр: Disco,Dance,Italo DiscoПродолжительность: 03:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA739CD51BD5759F15B2D0EF14DB6F97302F04F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049277   (544785) от 04.09.2016
 
 Mariah Carey - Music Box (1993) [FLAC|Lossless|image + .cue] <Pop, R&B>
@@ -631,122 +747,6 @@ VC-People - один из студийный проектов от Klaus Netzle.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59919613E40E4D6DD4B0D46EDC37E4D0704CE266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154305   (542778) от 29.07.2017
-
-Den Harrow - ForeveR (The Album) By Eurokrimen (2017) [MP3|256 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Taste Of Love (Krimen Project Scratch)
-02. Memories Of Mad Desire (Krimen Project Version)
-03. Day By Day (The Other Day Re-Mix)
-04. Bad Boy (The Ultimatum Re-miX)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA301B203A0BA2CF5088033768527E05084C6FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557272   (542687) от 14.06.2022
-
-Elton John - Madman Across The Water (2022) 3xCD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542687.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01 - Tiny Dancer (Remastered 2016)
-02 - Levon (Remastered 2016)
-03 - Razor Face (Remastered 2016)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213F001A1D10CCAD98E5D05BE01A7E916D836CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239100   (542433) от 03.08.2018
-
-Time - Prime Time (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Stop (5:39)
-02. Selling Song (4:45)
-03. Prime Time (6:18)
-04. Shaker Shake (3:26)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7719C8F32311B5711BD1B9D03CFE0039B33BB29D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239071   (542432) от 03.08.2018
-
-Tove Styrke - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Electronic, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sway
-02. Say My Name
-03. On the Low
-04. Mistakes(   Читать дальше...   )Жанр: Indie Pop, Electronic, Female VocalПродолжительность: 00:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6BC7E15844A3BF0946CC5E309CC10E71F98515
 ```
 
 https://mybot314.ru/tekegram_catalog/

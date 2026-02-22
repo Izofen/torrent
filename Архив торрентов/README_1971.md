@@ -1,3 +1,32 @@
+###  Публикация: 1205052   (784096) от 08.02.2018
+
+VA - The Silence Was Warm Vol. 1-5 (2007-2014) Symbolic Interaction [FLAC|Lossless|tracks+.cue] <Ambient, Abstract, IDM, Modern Classical, Leftfield>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_784096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mullr - Nine Particles (06:01)
+ 02. Summer Night Air - 4.3 (07:50)
+ 03. Ard Bit - Hum Score (03:59)
+ 04. Cyan341 - Postdigital Love (06:02)(   Читать дальше...   )Тип издания: CDЖанр: Ambient/IDM/ExperimentalПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFE6227D36502CF67C5B6FB0CB7584E35B960BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204965   (784094) от 08.02.2018
 
 Macgo Mac Blu-ray Player Pro 3.2.19 [En]
@@ -674,32 +703,6 @@ CrossOver 17.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48C68EE70142731AAE98E69C6EBB8776A773C8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204958   (784000) от 08.02.2018
-
-Wondershare Filmora 8.5.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5001436B4F751A7CCDE725CBB42A2FB611CFB41D
 ```
 
 https://mybot314.ru/tekegram_catalog/

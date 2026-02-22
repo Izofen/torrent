@@ -1,3 +1,344 @@
+###  Публикация: 595757   (1000460) от 02.01.2013
+
+VA - Дискотека 2013 Dance Club Vol. 98 (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Jim & Greysound - Песенка деда мороза и снегурочки 2013 (Radio Edit) [03:48]
+ 02. 5sta Family - Без Ума (prod. by Speen Beatz & BeatMagik) [03:28]
+ 03. Damon Paul feat. Patricia Banks - Last Christmas (Radio Edit) [03:46]
+ 04. Бьянка - Заснеженные [02:53]
+ 05. Kindervater - Heartbeat (Radio Edit) [03:14]
+ 06. DJ Smash feat. Asti - Атом [03:40]
+ 07. Manuel Lauren - DJ Aflame (Radio Edit) [04:07]
+ 08. Niloo - Ola Ola (LaTrack Radio Mix) [03:28]
+ 09. L.A.R.5 feat. Jai Matt - All The Girls (Radio Edit) [03:11]
+ 10. Лера Туманова (Электра) - Новогодняя [03:06](   Читать дальше...   )Жанр: PopПродолжительность: 04:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AD70716829AA9BECB735210539094BE5E15F51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597126   (1000335) от 02.01.2013
+
+VA - Happy New Year! Инструментальная музыка 2013 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анс. Мелодия - День добрый!
+02. Per Gessle - Ett Perfekt Agg
+03. Manuel Granada - Las Hojas Muertas
+04. The Romantic Accordeon - Hooked On Country
+05. The Daydream - Ocean And D Major
+06. F.Papetti - Caruso
+07. 101 Strings Orchestra - The Blue Danube
+08. B.Malgo - Du Bist Mein Zufluchtsort
+09. Bahramji & Maneesh De Moor - Return Of The Nightingale
+10. Chip Davis & CPO - Hark! The Herald Angels Sing (christmas theme)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 07:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807B7304C24797B81A625E286905069E1C78D51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598681   (1000044) от 04.01.2013
+
+VA - Euphoric Emotions Vol.41 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000044.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Orjan Nilsen - Between The Rays (Original Mix)
+002. Markus Schulz feat. Jennifer Rene - Not The Same (Eelke Kleijn Remix)
+003. Mario Hammer feat. Asheni - Life Before The Earthquake (Original Mix)
+004. Moonbeam feat. Avis Vox - Star Way (Big Room Original Mix)
+005. M.I.K.E. - Massive Motion (Original Mix)
+006. Mark Otten - So Serene (Original Mix)
+007. Kyau & Albert - A Night Like This (Original Mix)
+008. Majai - Emotion Flash (Elevation Big Room Remix)
+009. Kirsty Hawkshaw feat. Tenishia - Reasons To Forgive (Original Mix)
+010. John O'Callaghan feat. Betsie Larkin - Save This Moment (Gareth Emery Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD48D4287AD8292DD27A6C00D23487D7B576A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597714   (999976) от 04.01.2013
+
+VA - Модный Зимний Выпуск (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9D53EF16B2A07877BB097C2233812353C1230D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597920   (999931) от 04.01.2013
+
+VA - Aqua Trance Volume #01 - #31 (2012-2013) (Обновляемая) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 03:03:49
+
+01. Cathy Burton & Omnia - Hearts Connected (Skytech Remix) [07:53]
+ 02. Ana Criado & Ronski Speed - Afterglow (Ronski Speed Remix) [08:32]
+ 03. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase (Original) [11:01]
+ 04. Daniel Wanrooy - Dog Day Afternoon [06:01]
+ 05. Dash Berlin feat. Emma Hewitt - Like Spinning Plates (Club Mix) [05:39]
+ 06. Dub Effect feat. Mix Usha - Perfect Love [05:40]
+ 07. Kenneth Thomas feat. Colleen Riley - The Heart Speaks (Damian William Remix) [06:31]
+ 08. Ian Betts - Under Below (Original Mix) [08:06](   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:16:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596318   (999652) от 05.01.2013
+
+DJ Smash - Новый мир (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Новый Мир feat. Наталья Подольская
+02. Любовь На Расстоянии feat. Вера Брежнева
+03. Москва feat. Винтаж
+04. Rendez-Vous feat. Mauri
+05. Магнит feat. T-Killah & Los Devchatos
+06. Young Hearts
+07. Together feat. Mauri
+08. Мерси Баку feat. Достучаться До Небес
+09. Jump feat. Тимур Родригез
+10.Атом feat. Асти(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15FBEB94D693EB2D64D1641C4D202FBC740F4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598302   (999485) от 05.01.2013
+
+VA - Дискотека 80-х. Лучшее (2013) [MP3|320 кб/с]<Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999485.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Facts & Fiction - Love Game (feat.Jerome)
+002.Michael Jackson - Pretty Young Thing
+003.Hank Shostak - Don'T Tell Me
+004.Curacao - You
+005.Stage - Can't Get You Out Of My Mind
+006.Jessica - Chinese Magic
+007.Boney M - Let It All Be Music
+008.Thomas Anders - Soldier
+009.Fancy - Fools Cry
+010.Ricchi E Poveri - Malinteso(   Читать дальше...   )Жанр: DiscoПродолжительность: 08:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2715D1FB34AC72196F9005EA5DEB6C290FACAC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599549   (999360) от 06.01.2013
+
+VA - Понты дороже денег (2013) [MP3|128 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999360.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Ильдар Южный - Сатирические куплеты!
+002 Стас Михайлов - Свет звезды
+003 Михаил Шуфутинский - Не печальтесь обо мне
+004 Семен Канада - Я выбираю тебя
+005 Елена Ваенга - Больно
+006 Ольга Ильч - Воровское счастье
+007 Жека - ПМЖ
+008 Леонид Телешев - Закусив удила
+009 Александр Ломинский - Я просто без ума от тебя
+010 Валерий Курас и Катерина Голицына - Ты один и я одна(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E35B3CB24D15A67C4EFA6EC0374E32CE3D6BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599580   (999187) от 07.01.2013
+
+VA - Trance. Vocal Fascination 42 (2013) MP3 (2013) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light On - Waterfall (Original Mix)
+ 02. Maksim Palmaxs feat. Simon Latham - Falling (Original Mix)
+ 03. Marcel Woods - Everything (Marcel Woods Treatment)
+ 04. MaRLo - Megalodon (Original Mix)
+ 05. Mike Shiver feat. Bo Bruce - Still Here
+ 06. Moonbeam feat. Avis Vox - Disappearance (Dis Play Remix)
+ 07. Moonbeam feat. Blackfeel Wite - In Your Eyes (Original Mix)
+ 08. Neev Kennedy - The Unknown (DNS Project Extended)
+ 09. Nuera feat. Szen - Stuck
+ 10. Ralphie B - IcarusЖанр: TranceПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B7F15982CEBFAFECA8E7AB5A1C0514751164E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599958   (999147) от 07.01.2013
+
+VA - Союз 51 (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Михаил Бублик - Будет Светло
+ 02. Dj Smash feat. Вера Брежнева - Любовь на расстоянии
+ 03. Группа «Руки вверх» - Я тебя люблю
+ 04. Ева Польна - Весь мир на ладони
+ 05. Группа "Достучаться До Небес" - Отпусти меня
+ 06. Елка – Хочу
+ 07. Dan Balan– Люби
+ 08. "Винтаж" & ChinKong - Свежая вода
+ 09. Нюша – Воспоминание
+ 10. Иван Дорн - Бигуди(   Читать дальше...   )Жанр: PopПродолжительность: 1:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9BD3D17692A41A5202EEF9BEC735F9DB02E653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598867   (999064) от 07.01.2013
 
 VA - Итоговый Независимый Хит–Парад - «Чартова Дюжина 2012» (2012) [MP3|128-320 кб/с]<Rock, Punk-Rock, Folk-Rock>
@@ -550,356 +891,6 @@ VA - Ambient Elect (2013) [MP3|320 кб/с]<Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC62AE05FC67FFCD0946FD04DD0C02F2ED4D9225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602693   (997582) от 13.01.2013
-
-VA - Muz Эйфория Зимы (2013) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997582.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dmitriy Gordov Feat. Maryana Dan - Love Station (Radio Edit)
-002. Cara Lee - The Sax Man (Radio Edit)
-003. Linda Jo Rizzo - You're My First, You're My Last 2k13 (New Radio Edit)
-004. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Sensetive5 Radio Edit)
-005. Modana & Carlprit - Hot Spot (Radio Edit)
-006. Gummibar - Gummy Style
-007. Kelly Clarkson - Catch My Breath
-008. Shockolady Feat. Mr. Smith - I Like It Like That
-009. Basto - I Rave You (Original Mix)
-010. Christopher S Feat. Max Urban - Star (Radio Edit)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3E6050BB4951D9009ECF8C7BCC8D92E55AFE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602777   (997579) от 13.01.2013
-
-VA-Зимняя русская best-of-ка (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997579.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Electrofashion Feat. Mc Жан - Пришелец
- 002. Вне Времени - Не Звони Мне
- 003. В Двух Шагах - Сердце
- 004. Elvira T - Одержима
- 005. Макс Барских - Supermassive Black Hole
- 006. Ранетки - Ревность
- 007. Ирина Кулькова - Я Искала Тебя
- 008. Натаника - Налетели
- 009. Светлана Разина - Радио НАХ
- 010. Isamin - О Тебе(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07DF64F905CC6395D62160E861DDABEDD8E48CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602670   (997576) от 13.01.2013
-
-VA - Voices in my Head Volume 53 (2013) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997576.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Serge Devant feat. Emma Hewitt - Take Me With You
-002. Gareth Emery - The Saga (Original Mix)
-003. Headstrong feat. Shelley Harland - Here in the Dark (Aurosonic Progressive Mix)
-004. Masoud feat. Nicole McKenna - Fix The Broken (Original Mix)
-005. Nash & Pepper pres. Ostrega - First Scream (Mike Foyle Remix)
-006. Max Graham & Susana - Down To Nothing (Original Mix)
-007. Ronski Speed & Ana Criado - Afterglow (Ronski Speed Remix)
-008. Faruk Sabanci - Oriental Sentiment (Nurettin Colak Remix)
-009. Miroslav Vrlik - See The Sun (Pierre In The Air Remix)
-010. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE37CCDC3F13D641E5C850120ABBAEAE8217C897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602763   (997547) от 13.01.2013
-
-VA-Зажигательные Зимние Хиты (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Yolanda Be Cool - Before Midnight (Yolanda Be Cool's Mentalmen Mix)
-002 Milk & Sugar - Let the Sun Shine 2012 (Tocadisco Radio Edit)
-003 Tom Pulse feat. Fit4Funk - Flying Through The Air (Original Edit)
-004 Carlprit - Fiesta (Michael Mind Project Radio Edit)
-005 Far East Movement feat. Flo Rida & Sidney Sampson - Change Your Life
-006 Alex Clare - Too Close (DJ Yonce Radio Remix)
-007 DJ Stretch feat. Di Land - I Need You (Radio Edit)
-008 Miami Club feat. Nicci - Supernova (R.I.O. Radio Edit)
-009 Owl City feat. Carly Rae Jepsen - Good Time
-010 Sisi - Never Bye Bye (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4756D1D9F294F5C45EC90770E936908F2584B84A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602807   (997526) от 13.01.2013
-
-VA-New Age Style - Erotic Lounge 5 (2013) [MP3|320 кб/с]<New Age,Chillout, Downtempo, Erotic, Relax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloomfield - Love me please love me (4:02)
-02. Aandra feat. Soul Sista Shakti - Songs of the Sea (5:08)
-03. Bloomfield - Love you (4:50)
-04. No Noise - Expand your mind (5:12)
-05. Aqualise - Lost in the Sea - Chill Mix (7:18)
-06. Diario - Love Directions (5:25)
-07. Riccardo Eberspacher Feat. Oda - Time (4:08)
-08. Aiemo feat. Kristina Frazzitta - I Need You (vocal mix) (4:07)
-09. El Rubello - And I Love Her (4:13)
-10. Miraflores - Waves Of Love (5:23)(   Читать дальше...   )Жанр: New Age,Chillout, Downtempo, Erotic, RelaxПродолжительность: 02:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD3B71D8722E6C0ACDB05C7EF40C1B37CA8263C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602050   (997498) от 13.01.2013
-
-VA - Dubstep Collection (2013) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J.O.B & MadV & 12th Planet ft. Anjulie - Warrior
-02. Kaskade ft. Mindy Gledhill - Eyes (Alvin Risk Remix)
-03. Katy Perry - Wide Awake (Xilent Remix)
-04. Maria Maria - Ты Обо Мне Не Вспоминай (Dj Bengalsky Popstep Remix)
-05. Nero - Must Be The Feeling (Kill The Noise Remix)
-06. Sub Focus ft. Kenzie May - Falling Down (xKore Remix)
-07. Алина Артц - Со Мной По-другому Нельзя (Stilet Remix)
-08. Sub Focus ft. Kenzie May - Falling Down (Original Mix)
-09. Nero - Promises (Skrillex & Nero Remix)
-10. Т.А.Т.У. - Нас Не Догонят (LoadedFist Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8D41D00B8E20A2221BC43B7A8810196199512B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600154   (997493) от 13.01.2013
-
-Relaxing Instrumental Jazz Ensemble - Chill Music (2012) [MP3|320 кб/с]<Instrumental \ Sensual Guitar>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landslide
-02. Hotel California
-03. Desperado
-04. Tears in Heaven
-05. Knockin' On Heaven's Door
-06. San Francisco (If You're Going To)
-07. The Sound of Silence
-08. Bridge Over Troubled Water
-09. Layla
-10. Little Wing(   Читать дальше...   )Жанр: Instrumental \ Sensual Guitar \ ChilloutПродолжительность: 01:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0174DD7E1C6AC8C88830AF919ADF87CF592A07B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602589   (997492) от 13.01.2013
-
-VA - Русская музыка о любви (2013) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лера Кондра - Без Тебя
-02. Татьяна Чубарова - Белые Вьюги
-03. Земфира - Блюз
-04. Кристина Межинская - Буду Жить
-05. Чичерина - В лунном сиянии
-06. Найк Борзов - Верхом На Звезде
-07. Тайм-Аут - Дым
-08. Наутилус Помпилиус - Дыхание
-09. Афродита - Желаю Счастья
-10. K-Rim - Забытая История(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323650230888E0EAFBCEB648856704ADC9F033C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602939   (997229) от 14.01.2013
-
-VA-200 Хитов зимы (2013) [MP3|192 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997229.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Рыжов Feat. E-Not & Nookie - Музыка Электро (Radio Mix)
-002. Daddy Yankee Feat. Emelee - Lose Control (Prestige)
-003. Matreshka Girls Feat. Mc Zali - Наша Ночь
-004. Meital De Razon Feat. Tom Boxer - Pu Pu Pu
-005. Жека Баянист - Bara Bara Bere Bere (Russian Version Radio Edition)
-006. Loreen - My Heart Is Refusing Me
-007. Доминик Джокер - Если Ты Со Мной (Dj Kostas & Dj Max-More Radio Remix)
-008. Kesha - Die Young
-009. Би-2 - Как Все
-010. Fly Project - Back In My Life (Radio Edit )(   Читать дальше...   )Жанр: PopПродолжительность: 12:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9F0F7C3273D5ED43BEF4D9A517155175675F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603410   (997064) от 15.01.2013
-
-VA - OE3 Greatest Hits Vol. 59 (2012) [MP3|320 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triggerfinger - I Follow Rivers (Radio Mix) (03:36)
-02. Asaf Avidan, The Mojos - One Day / Reckoning Song (Wankelmut Remix Radio Edit) (03:32)
-03. Katy Perry - Wide Awake (03:39)
-04. Chris Brown - Don't Wake Me Up (03:41)
-05. Gossip - Move in the Right Direction (Album Version) (03:30)
-06. P!nk - Blow Me (One Last Kiss) (Explicit Radio Edit) (03:50)
-07. Olly Murs - Oh My Goodness (03:03)
-08. Alanis Morissette - Guardian (04:16)
-09. Carly Rae Jepsen, Owl City - Good Time (03:23)
-10. Dante Thomas, KRIS - Diese Tage (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCAA3BC573BB09197A31603FC8B4892FBBB91C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

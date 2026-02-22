@@ -1,3 +1,178 @@
+###  Публикация: 1810345   (9258) от 05.08.2025
+
+Frank Sinatra - The Collection 1953-1962, Original Master Recording, MFSL Box (1983) [DSD 128|tracks|Vinyl-Rip] <Jazz, Vocal, Ballad, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнк Синатра (Frank Sinatra) - легендарный американский певец, актёр и одна из наиболее выдающихся фигур в музыкальной индустрии 20 века. Родился 12 декабря 1915 года в Хобокене, Нью-Джерси, и ушёл из жизни 14 мая 1998 года в Лос-Анджелесе, Калифорния. Синатра стал известным благодаря своему потрясающему голосу, уникальному стилю исполнения и широкому музыкальному (   Читать дальше...   )LP1, Swing Easy/ Songs for Young Lovers, MFSL 1-130, (mono)
+LP2, In The Wee Small Hours, MFSL 1-131, (mono)
+LP3, Songs For Swingin' Lovers, MFSL 1-146, (mono)
+LP4, Close To You, MFSL 1-132, (mono)Жанр: Vocal, Ballad, SwingПродолжительность: 00:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0EFF431D62180F064DFD29AFE03DE9621067AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741971   (8892) от 08.08.2025
+
+Chaos Magic (Caterina Nix & Timo Tolkki project) - Studio Albums (4 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chaos Magic - хэви-метал проект, созданный Катериной Никс и Тимо Толкки.2015 - Chaos Magic
+2019 - Furyborn
+2020 - Desert Rose (EP)
+2022 - EmergeЖанр: Symphonic MetalПродолжительность: 03:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30181E5CEE86954F23E78EEFACCC9106E424D2D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515607   (8865) от 09.08.2025
+
+Evanescence - Дискография (11 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Nu Metal, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Evanescence («исчезание», «мимолётность») — американская рок-группа, основанная в г. Литл-Рок, штат Арканзас, в 1995 году.1998/1999 - Evanescence/Sound Asleep (EP)
+2000 - Origin
+2003 - Fallen
+2006 - The Open DoorЖанр: Gothic Rock, Nu Metal, Symphonic MetalПродолжительность: 11:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F98183A290A7421AFFC6F6F64DC463CAE7B4F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643464   (8784) от 09.08.2025
+
+Presto Ballet - Studio Albums (7 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover Progressive>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Presto Ballet — прогрессив-рок-группа, основанная гитаристом Metal Church Курдтом Вандерхофом.2005 - Peace Among The Ruins
+2008 - The Lost Art of Time Travel
+2011 - Invisible Places
+2012 - Relic of the Modern World(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 06:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA23955C9229958F8F94D6C8E3BB1722BC335FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518693   (8707) от 10.08.2025
+
+Motograter - Studio Albums (4 releases) (2000-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motograter — американская метал-группа, образована в 1995 году Брюсом Батлером (известным как Grater), в Санта Барбаре, Калифорния.
+Основное отличие Motograter от других групп в том, что они используют так называемый «мотогрэйтер» — инструмент собственного производства, составленный из промышленного кабеля и частей электрогитары, выдающий очень глубокие басовые звуки. (   Читать дальше...   )2000 - Indy
+2003 - Motograter
+2009 - Pre-Release (EP)
+2017 - DesolationЖанр: Nu Metal, Industrial MetalПродолжительность: 02:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8FAE7F357EBC168F1DF10B2D5702C6196A815F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626818   (8517) от 30.09.2025
+
+Livin' Blues - Blue Breeze (1976) 1978 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8517.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Shylina
+A2 Back Stage
+A3 Midnight Blues
+A4 Pisces(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C00C372180E6E3E917A5629FBEF4DFACD0D3B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811675   (8441) от 11.08.2025
 
 Leah - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
@@ -567,178 +742,6 @@ Rain Of Acid - метал-группа из Финляндии, основана
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B76AB46AF03FC0BC1CC7E8051F7E26B0FFCADDE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813406   (6893) от 19.08.2025
-
-AmongRuins - Studio Albums (3 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6893.jpg" />
-</div>
-
-
-###  Подробнее
-
-AmongRuins — греческая мелодик-дэт-метал группа, образованная в 2012 году.2013 - Bring out Your Dead
-2016 - No Light
-2023 - Land of the Black SunЖанр: Melodic Death MetalПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D2C27212EAF0CA0660DF775DCD36E62E3FAC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813608   (6771) от 20.08.2025
-
-Guns•N•Roses - Greatest Hits (2024) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Welcome To The Jungle
-02. Sweet Child 0' More
-03. Patience (Album Version)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0161D7EE083F232AC27327375794B1EE9DC0C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813776   (6584) от 21.08.2025
-
-Heaven Shall Burn - Studio Albums (11 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heaven Shall Burn - метал-группа из Тюрингии, Германия, образованная в 1996 году.1998 - In Battle... There Is No Law
-2000 - Asunder
-2002 - Whatever It May Take
-2004 - AntigoneЖанр: Melodic Death Metal, MetalcoreПродолжительность: 13:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2A44239342F9A3F054D3F7B44BC05A1FB0357C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582401   (6505) от 22.08.2025
-
-Deftones - Studio Albums (12 releases) (1995-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deftones — рок-группа из Сакраменто, Калифорния, США. Первый их альбом «Adrenaline» вышел в 1995 году, на год позже дебютного диска Korn. Эти группы считаются основателями жанра «нью-метал», но Deftones играли намного раньше Korn, в конце 80-ых — андерграундные странствия без издателя. Хотя Korn и остаются куда более коммерчески выгодным проектом, однако стилистика (   Читать дальше...   )1995 - Adrenaline
-1997 - Around The Fur
-2000 - White Pony
-2003 - DeftonesЖанр: Nu Metal, Alternative MetalПродолжительность: 10:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A4775F3E5855982F91B52D7CA83A426C8AED52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704390   (6498) от 22.08.2025
-
-Burning Witches - Studio Albums (6 releases) (2017-2025) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burning Witches — метал-группа, основанная гитаристкой Романой Калкуль в Бругге, Аргау, Швейцария.2017 - Burning Witches
-2018 - Hexenhammer
-2020 - Dance With The Devil
-2021 - The Witch Of The NorthЖанр: Heavy/Power MetalПродолжительность: 05:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A45862329C724F1E269750EF7A5A238494E397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615148   (6484) от 22.08.2025
-
-Meshuggah - Studio Albums (15 releases) (1991-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Groove/Thrash Metal, Djent, Math Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Meshúggah — шведская метал-группа, играющая в направлении мат-метал и являющаяся основателем этого жанра. Образована в 1987 году в городе Умео. Название группы являет собой вошедшее в английский язык из идиша слово משוגע (сумасшедший)1991 - Contradictions Collapse
-1995 - Destroy Erase Improve
-1998 - ChaosphereЖанр: Technical Groove/Thrash Metal, Djent, Math MetalПродолжительность: 14:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758FE6A67DB2A881237F6EA2FEF344DB89A233FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

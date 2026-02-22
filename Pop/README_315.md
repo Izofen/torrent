@@ -1,3 +1,96 @@
+###  Публикация: 1824726   (136758) от 17.10.2025
+
+Duffy - Rockferry (2008) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Neo Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockferry [00:04:12]
+02. Warwick Avenue [00:03:46]
+03. Serious [00:04:10]
+04. Stepping Stone [00:03:29](   Читать дальше...   )Жанр: Neo SoulПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411DE8F297D0E955C78DF819851F9168813DEEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825196   (136757) от 17.10.2025
+
+Yellow Claw - Blood For Mercy (2015) 10th Anniversary,  Remaster, 2025, Mad Decent [FLAC|Lossless|WEB-DL|tracks] <trap music, hip hop, dubstep, hardstyle and moombahton>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roller (2025 Remaster) [00:03:17]
+02. Higher (feat. Lil Eddie) (2025 Remaster) [00:03:36]
+03. For The Thrill (feat. Becky G) (2025 Remaster) [00:04:16]
+04. Nightmare (feat. Pusha T & Barrington Levy) (2025 Remaster) [00:04:06](   Читать дальше...   )Жанр: trap-music, hip-hop, dubstep, hardstyle, moombahtonПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5C5C91C6EEA34AAE91D9413DE77CC7706A0563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591190   (136383) от 19.12.2012
+
+Белый орел - The Best (2010) [MP3|256 кб/с]<Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Я по тебе скучаю [04:32]
+02.Говори мне, говори [04:49]
+03.Крик на морском берегу [03:55]
+04.Я бы умер молодым [04:10]
+05.Я не хочу тебя ни с кем делить [03:35]
+06.Другая [03:38]
+07.Моя любовь-воздушный шар [05:47]
+08.Три гвоздики [04:19]
+09.Я объявляю вам любовь [05:05]
+10.Рулетка [04:52](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147BFF291953EBC0A304ECE4C1A91DC8FBCAD3B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679558   (135200) от 26.11.2023
 
 VA - Hit News Vol. 7 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
@@ -682,93 +775,6 @@ Giorgio Moroder - The Best Of (2001) [FLAC|Lossless]<Pop, Disco>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524779   (130378) от 18.01.2022
-
-Molly Nilsson - Extreme (2022) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolute Power (03:49)
- 02. Earth Girls (04:11)
- 03. Fearless Like A Child (04:03)
- 04. Kids Today (04:05)(   Читать дальше...   )Жанр: Dream PopПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938E3E603B696ACF6E34F9526BE29425A0211AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525181   (130095) от 19.01.2022
-
-Tony Valor Sounds Orchestra - 2 Albums (1976, 1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первой песней, выпущенной под управлением оркестра Tony Valor Sounds из США, была "Ma-Mo-Ah" на 7-дюймовом сингле и пластинке "Gotta Get it", став мировым хитом в 1977 году и с тех пор несколько раз переиздавалась.01. A Little Thing (3:02)
-02. Don't Forget (2:40)
-03. Girl (3:03)
-04. Give Me Some More (2:52)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7569E21CC44B71D57DBFE92391F1C306667672E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525129   (130036) от 19.01.2022
-
-Beach House - Once Twice Melody (2022) 3[EP] [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Rock, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset (04:00)
- 02. Only You Know (04:50)
- 03. Another Go Around (03:42)
- 04. Masquerade (04:42)(   Читать дальше...   )Жанр: Dream Pop, Indie Rock, Indie PopПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A51A5457A39D18F5DCED5C879890FD0622C3A52
 ```
 
 https://mybot314.ru/tekegram_catalog/

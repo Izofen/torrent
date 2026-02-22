@@ -1,3 +1,37 @@
+###  Публикация: 453718   (93763) от 18.02.2012
+
+Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Rain (7:38)
+02. Blue Moon (9:55)
+03. Gypsy (5:14)
+04. Invitation (13:13)
+05. I Remember Italy (13:08)
+06. Laura (6:30)
+07. Morning Mist (8:20)
+08. This is the Life (7:09)
+09. Woody'n You (4:57)2012Жанр: Post-Bop, Piano JazzПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454064   (93755) от 18.02.2012
 
 Back To Blue - The 13th Day (2007) [MP3|320 kbps]<Blues-Rock>
@@ -852,41 +886,6 @@ Bob Wilber & Kenny Davern - Soprano Summit (1993) [FLAC|Lossless]<Bop, Swing>
 07. Brother, Can You Spare A Dime (2:54)
 08. All By Myself (4:04)
 09. Swing That Music (10:061993Жанр: Bop, SwingПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449431   (92992) от 11.02.2012
-
-Walter Beasley - Go With The Flow (2003) [APE|Lossless]<Smooth Jazz, Crossover Jazz, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Go With Flow :: 05:22
-02. West Hamilton Groove :: 04:41
-03. Precious Moments :: 04:11
-04. Suddenly :: 03:36
-05. All I Want :: 04:47
-06. My Pleasure :: 04:29
-07. Brother :: 04:51
-08. (Do I Ever) Cross Your Mind :: 04:50
-09. Let Me Watch You :: 05:18
-10. Don't Know Why :: 03:08(   Читать дальше...   )2003Жанр: Smooth Jazz, Crossover Jazz, R&BПродолжительность: 00:49:32
 
 ## Скачать торент
 ```bash

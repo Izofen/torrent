@@ -1,3 +1,38 @@
+###  Публикация: 430247   (994232) от 01.01.2012
+
+Pink Martini - A Retrospective (2011) [FLAC|Lossless]<Pop, World, Latin, Pop-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Una Notte A Napoli (First Recording) (2:27)
+02. Hang On Little Tomato (3:18)
+03. Donde Estas Yolanda? (China Forbes Vocals Version) (3:26)
+04. Hey Eugene (3:09)
+05. La Soledad (5:38)
+06. Splendor In the Grass (3:38)
+07. Kikuchiyo To Mohshimasu (The Hiroshi Wada Mix) (4:32)
+08. Anna (El Negro Zumbon) (2:38)
+09. Ma Solitude (feat. Georges Moustaki) (3:27)
+10. Mas Que Nada (feat. Saori Yuki) (2:36)(   Читать дальше...   )2011Жанр: Pop, World, Latin, Pop-JazzПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608370   (993668) от 25.01.2013
 
 Akiko - Greatest HIts (2011) [FLAC|Lossless]<Vocal Jazz>
@@ -840,41 +875,6 @@ Tina May - More Than You Know (2004) [FLAC|Lossless]<Jazz, Vocal>
 08. What Kind of Fool Am I?
 09. My Man's Gone Now
 10. So Long Big Time(   Читать дальше...   )2004Жанр: Jazz, VocalПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432453   (990966) от 06.01.2012
-
-Dean Martin - Cool Then, Cool Now (2011) [FLAC|Lossless]<Vocal Jazz, Swing, Easy Listening, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't That a Kick in the Head (2:38)
-02. Sway (2:43)
-03. Mambo Italiano (2:20)
-04. Volare (3:00)
-05. Little Ole Wine Drinker Me (2:48)
-06. Please Don't Talk About Me When I'm Gone (2:32)
-07. I'm Sitting on the Top of the World (2:12)
-08. Bumming Around (2:43)
-09. (Open Up the Door) Let the Good Times In (3:20)
-10. L.A. Is My Home (3:04)(   Читать дальше...   )2011Жанр: Vocal Jazz, Swing, Easy Listening, LoungeПродолжительность: 01:09:59
 
 ## Скачать торент
 ```bash

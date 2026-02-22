@@ -1,3 +1,90 @@
+###  Публикация: 1165522   (433049) от 13.09.2017
+
+Rembrandt Frerichs - Ordem e Progresso (2009) 2CD, Rembrandt Frerichs [FLAC|Lossless|tracks + .cue] <Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433049.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dastagh [04:20]
+02. Ordem e Progresso [04:25]
+03. Rosenthalia [03:57](   Читать дальше...   )Жанр: Modern CreativeПродолжительность: 01:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64257DA87B3FF8DF9B6BF4993ACBC70ACFF4A017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165530   (432944) от 13.09.2017
+
+Don Redman And His Orchestra - 1931-1933 (1990) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble, Why Pick On Me? [02:51]
+02. Shakin' The African [02:53]
+03. Chant Of The Weed [03:17]
+04. Shakin' The African [02:43](   Читать дальше...   )Жанр: Early Jazz, Swing, Big BandПродолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF8F3F584B28A8E06E3C4C154A9D002B8E68EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063722   (432854) от 17.10.2016
+
+Duke Ellington And His Orchestra - Such Sweet Thunder (1957) 1991, Columbia[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Such Sweet Thunder [03:26]
+ 02.Sonnet For Caesar [03:03]
+ 03.Sonnet To Hank Cinq [01:24]
+ 04.Lady Mac [03:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3616FB68BF527A91DD76C6844A52EEA7AFC6F6EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063704   (432703) от 17.10.2016
 
 Janet Klein And Her Parlor Boys - Oh! (2006) Not On Label[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
@@ -661,98 +748,6 @@ VA - Explorations Into Dancefloor Jazz Vol. 1-3 (1994-95) [FLAC|Lossless]<Acid J
 7. Negrocan - Aquela Esquina (Snowboy Remix)
 8. A.P.E. - Fallen
 9. Silent Majority - Still Water (Horny Mix)Жанр: Acid Jazz, JazzdanceПродолжительность: 02:10:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571526   (431775) от 22.08.2022
-
-Al Jarreau - Tomorrow Today (1999) Verve Music [FLAC|Lossless|image + .cue] <Vocal Jazz, Smooth Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just To Be Loved [4:19]
-02. Let Me Love You [4:42]
-03. In My Music [4:05]
-04. Through It All [4:30](   Читать дальше...   )Жанр: Vocal Jazz, Smooth Jazz, SoulПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F93D42E305B72DE32E3BE2D33D307ACCF5F03C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945693   (431745) от 11.10.2015
-
-Omar Hakim - Rhythm Deep (1989) [FLAC|tracks+cue]<Smooth Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crucial 2 Groove
-02. Rhythm Deep
-03. Take My Heart
-04. Amethyst Secrets(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2AADBCECB60E3BDEE7662AD7A930B5A44BCEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553743   (431709) от 03.10.2012
-
-Dave Douglas Quintet - Be Still (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_431709.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Be Still My Soul (05:01)
-2. High On A Mountain (02:37)
-3. God Be With You (05:00)
-4. Barbara Allen (04:22)
-5. This Is My Father's World (03:43)
-6. Going Somewhere With You (05:23)
-7. Middle March (05:46)
-8. Living Streams (05:02)
-9. Whither Must I Wander? (05:59)Жанр: JazzПродолжительность: 00:42:56
 
 ## Скачать торент
 ```bash

@@ -1,32 +1,3 @@
-###  Публикация: 1640745   (232290) от 19.06.2023
-
-Joe Wilder - Softly With Feeling (1956) 1989, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherokee [10:44]
-02. Prelude To A Kiss [5:06]
-03. My Heart Stood Still [4:33]
-04. Six Bit Blues [8:30](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327FA395E5B699451B1BCA53D6FBF97937EEACB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641835   (232240) от 25.06.2023
 
 Yusef Lateef - The Centaur And The Phoenix (1960, 1961) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, World Fusion>
@@ -746,6 +717,35 @@ Peter Beets - Our Love Is Here to Stay: Gershwin Reimagined (2019) Magic Ball Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB0E94DE546B4C29EF7A2263B88E1CE6F37A1D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424265   (229596) от 16.11.2020
+
+Helmut Zacharias und sein Orchester (1948 - 1959) 2011, 2CD, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Violin Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229596.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Schoner Gigolo:
+01. Swing 48 [2:48]
+02. Helmy's Be Bop # 1 [1:48]
+03. St. Louis Blues [2:51](   Читать дальше...   )Жанр: Mainstream Jazz, Violin Jazz, InstrumentalПродолжительность: 02:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D5759004BEE246A7A2F20347F49E30596C8522
 ```
 
 https://mybot314.ru/tekegram_catalog/

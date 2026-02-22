@@ -1,3 +1,32 @@
+###  Публикация: 1666210   (179382) от 04.10.2023
+
+Красная плесень - Баллады 90-х (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белокурая девчонка (Original Version of the 90s) [00:02:42]
+02. Я бы хотел... (Original Version of the 90s) [00:02:33]
+03. Ночной экспресс (Original Version of the 90s) [00:04:16]
+04. Сон моей мечты (Original Version of the 90s) [00:04:12](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3F8F3E7E16038CCE120A1C3137653F28D0BEF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593928   (179088) от 29.11.2022
 
 Пикник - Весёлый и злой (2022) [FLAC|Lossless|image + .cue] <Rock>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF7889ABD11D801A5E1EBAF089C5271CC6B9BDF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595397   (175626) от 05.12.2022
-
-Крики Бабочек - Последний полёт Джао Да (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Заполошная [00:04:03]
-02. Жизнь за триста [00:03:51]
-03. Крот [00:04:23]
-04. Татарин [00:03:35](   Читать дальше...   )Жанр: RockПродолжительность: 00:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9DBFC6F9C1577C02972B0DD836FAE87C63F688
 ```
 
 https://mybot314.ru/tekegram_catalog/

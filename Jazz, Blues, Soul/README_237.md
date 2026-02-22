@@ -1,3 +1,90 @@
+###  Публикация: 907568   (638269) от 12.06.2015
+
+Jeff Richman - Like That (2010) [FLAC|Lossless]<Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like That [05:42]
+02. In Spirited [05:32]
+03. Small Kid Time [05:42]
+04. Awful Pretty [06:31](   Читать дальше...   )Жанр: Jazz, Jazz FusionПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BCD30F220881A5F7FDD30F9809D0C4D031C995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033514   (638242) от 11.07.2016
+
+Omar Hakim & Rachel Z - The Trio Of Oz (2010) Ozmosis Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Angry Chair [06:09]
+ 02.Sour Girl [05:08]
+ 03.Det Tar Tid [04:09]
+ 04.I Will Possess Your Heart [06:38](   Читать дальше...   )Жанр: Post-Bop, Smooth JazzПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FBD31859DBEB625E1BEF295636AF2EBA7AA902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907591   (638204) от 12.06.2015
+
+Johnny Tanner - Juke Joint Rambler (2015) [MP3|320 кб/с]<Chicago Blues, Harmonica Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got To Go (Feat. Rusty Zinn) (3:15)
+02. Lovey Dovey (Feat. Jr. Watson) (2:41)
+03. Searchin' The World Over (Feat. Jr. Watson) (3:48)
+04. Bring Her Back To Me (Feat. Jr. Watson) (3:11)(   Читать дальше...   )Жанр: Chicago Blues, Harmonica BluesПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD604A8D1055CCF02D79F8F95DAD9F7BAE26B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907376   (638203) от 12.06.2015
 
 Crazy Hambones - 45 (Live) (2015) [MP3|320 кб/с]<Harmonica Blues, Boogie, Rockin' Blues>
@@ -660,93 +747,6 @@ Merline Johnson - The Yas Yas Girl (1937-1940) 3CD /1994/ [MP3|320 кб/с]<Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D3845DF72D641DB2026B12CAFE2DFB08D93EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143094   (637576) от 17.06.2017
-
-Shorty Rogers - The Wizard of Oz & Other Harold Arlen Songs (1959) 2005, DRG Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Off to See the Wizard [01:21]
-02. Over the Rainbow [03:02]
-03. The Jitterbug [03:18]
-04. The Merry Old Land of Oz [05:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005A5AC9AB0922604813DF992B41EB2138FAA3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293305   (637574) от 03.04.2019
-
-Lee Fields & The Expressions - It Rains Love (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Rains Love (03:55)
-02. Blessed with the Best (03:49)
-03. Two Faces (03:43)
-04. You’re What’s Needed in My Life (03:38)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12C0E61979FD104B0D6E5E50DF512EE95FBFB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228323   (637529) от 31.05.2018
-
-McCoy Tyner Trio - Live at Sweet Basil, Vol. 1 (1989) King [WavPack|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crescent [10:32]
-02. Monk's Dream [9:35]
-03. Darn That Dream [8:18]
-04. Sweet Basil Swing [6:31](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC71609F65CA850DB25C49BCC6E1CCF3FC4AA48
 ```
 
 https://mybot314.ru/tekegram_catalog/

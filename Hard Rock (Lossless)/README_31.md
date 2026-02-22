@@ -1,3 +1,32 @@
+###  Публикация: 1210673   (778500) от 04.03.2018
+
+Arcade - 3 альбома (1993 - 2001) [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arcade была супергруппой glam metal, созданной в 1992 году бывшим вокалистом "Ratt" Stephen Pearcy и барабанщиком "Cinderella" Fred Coury, а также известным гитаристом ex-"Sea Hags" Frankie Wilsex, ex-"Gypsy Rose" гитаристом Donny Syracuse и басистом ex-"9.0" Michael Andrews. Arcade выпустили два официальных студийных (   Читать дальше...   )Список альбомов:
+1993 - Arcade
+1994 - A/2
+2001 - A/3: Live And UnreleasedЖанр: Hard Rock, GlamПродолжительность: 02:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFCF0705B3031867266C956FF95F80E0E3D2D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210595   (778482) от 04.03.2018
 
 Greta Van Fleet - From The Fires (2017) mini-album [FLAC|Lossless|tracks + .cue] <Hard Rock, Rock>
@@ -716,36 +745,6 @@ Land Of Gypsies - Land Of Gypsies (2021) [FLAC|Lossless|image + .cue] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25489C1FCEF1E54521C6D3F4039636CEECD52CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523846   (748081) от 13.01.2022
-
-Magnum - The Monster Roars (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magnum в 2022 году отпразднует свое 50-летие. Как и следовало ожидать, титаны английского хард-рока пробудили монстра, и теперь он рычит.
-"The Monster Roars" - так называется их новый альбом, которым они показывают, что ничего не потеряли в своем качестве, энергии и объеме. Совсем наоборот.01. The Monster Roars
-02. Remember
-03. All You Believe In
-04. I Won't Let You Down(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D224A63AFE9058B809C77F478E17348A01613C
 ```
 
 https://mybot314.ru/tekegram_catalog/

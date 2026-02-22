@@ -1,3 +1,172 @@
+###  Публикация: 1664049   (186223) от 24.09.2023
+
+Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster Edition, A Steven Wilson stereo remix, 2023, Chrysalis [FLAC 24/96|Lossless|tracks] <hard rock, art rock, folk ro ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Game (demo, instrumental)Жанр: Progressive rock, hard rock, art rock, folk rock, electronic rockПродолжительность: 00:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83508DF59A7474A11DEBBBB4CD611833BE312D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827377   (186102) от 21.10.2025
+
+Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfheart - метал-группа из Лахти, Финляндия, основанная в 2013 году Туомасом Саукконеном.2013 - Winterborn
+2015 - Shadow World
+2017 - Tyhjyys
+2018 - Constellation Of The Black LightЖанр: Melodic Death MetalПродолжительность: 05:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98483922B70E817E9F7AE204A2AA39AC55E0ED7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664424   (185442) от 26.09.2023
+
+Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185442.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Wired For Sound
+A2 Once In A While
+A3 Better Than I Know Myself
+A4 Oh No, Don't Let Go(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FA0771DEE15908CA0EE4D13BCEC5D787A9288F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664746   (184834) от 27.09.2023
+
+Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adrenaline Mob — американская грув-метал супергруппа из Centereach, Long Island, New York, основанная Майком Портным (экс-Dream Theater), Расселом Алленом (Symphony X), Ричи Уордом (Stuck Mojo), Майком Орландо и Полом Ди Лео в начале 2011 года.2012 - Omerta
+2013 - Coverta (EP)
+2014 - Men Of Honor
+2017 - We The PeopleЖанр: Hard Rock, Groove MetalПродолжительность: 03:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD2E74B1B1559DC85FF52FB184AB90888821C0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664670   (184797) от 27.09.2023
+
+Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] Heavy/Power/Symphonic Metal
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассел Аллен (англ. Russell Allen; родился 19 июля 1971 года в Лонг Бич) — американский певец, вокалист прогрессив-метал группы Symphony X, а также грув-метал супер-группы Adrenaline Mob.2005 - The Battle
+2007 - The Revenge
+2010 - The Showdown
+2014 - The Great DivideЖанр: Melodic Heavy Metal, Symphonic/Power MetalПродолжительность: 06:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE33D38FE0C4657501A4F9D5C808A0FAECA230E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665006   (183997) от 28.09.2023
+
+Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lost Horizon - пауэр-метал группа из Гетеборга, Швеция.2001 - Awakening The World
+2003 - A Flame To The Ground BeneathЖанр: Power MetalПродолжительность: 01:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C6AE0A14B08B4DD6B01EE17E315418169EB977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664893   (183669) от 28.09.2023
 
 Secret Service/Сикрет Сервис - Two Albums: When The Night Closes In/Greatest Hits (1986, 1987) (Melodia, USSR/Wifon, Poland) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Electronic, Synth-pop>
@@ -569,181 +738,6 @@ B1 Tu Funeral(   Читать дальше...   )Жанр: Celtic, Folk, Power M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5A6F5D2E60D625DE094F7B18F2E46DB02F28095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666697   (179068) от 05.10.2023
-
-Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179068.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Chain Gang
-A2 Money Doesn't Count
-A3 Danger Comeback
-A4 Icecold(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FA6A4EB2F2B5EED9F5AE6DAC3534E56D07C001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666711   (179060) от 05.10.2023
-
-Steeler - Undercover Animal (1988) [WavPack|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179060.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 (I'll Be) Hunter Or Hunted
-A2 Undercover Animal
-A3 Shadow In The Redlight
-A4 Hardbreaks(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D5BDD0DA815AC715F26E84E79DD415E55EFE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666668   (179036) от 05.10.2023
-
-Steeler - Rulin' The Earth (1985) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179036.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. The Resolution 1:06
-A2. Rulin' The Earth 4:38
-A3. Shellshock 5:12
-A4. Let The Blood Run Red 5:06(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2ED574EB85A1560D48D08734A701FEA3560729B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666746   (178953) от 05.10.2023
-
-Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scar Symmetry — шведская мелодик дэт-метал группа из Авесты, сформирована в 2004 году.
-Своеобразной «визитной карточкой» группы является очень широкое использование клавишных и синтезаторов вкупе с тяжёлыми гитарами и мощной ритм-секцией.2005 - Symmetric in Design
-2006 - Pitch Black Progress
-2008 - Holographic Universe
-2009 - Dark Matter DimensionsЖанр: Melodic Death/Groove MetalПродолжительность: 06:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB566CF7549519A280FE23102EB2B5BF8698DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666844   (178416) от 06.10.2023
-
-The Riverboat Minstrels - Stereo Minstrel Show (1971) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178416.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Want To Be Happy
-A2 Ole Man River
-A3 The Best Things In Life Are Free
-A4 Roll Away, Clouds(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3514335938754EA527CE7B81CE607123CA7589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666645   (178333) от 06.10.2023
-
-Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178333.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Cold Day In Hell 04:17
-2 Backseat Driver 03:24
-3 No Way Out 05:18
-4 Hot On Your Heels 06:35(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1697AEC700640E6967033856FCEB69F1998CA32
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,42 @@
+###  Публикация: 472729   (84378) от 25.03.2012
+
+VA - I Love ZYX Italo Disco Collection Vol.1-13 (2002-2012) [MP3|320 кб/с]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84378.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cyber People - Polaris (Club Mix) (6:30)
+2. Ken Laszlo - Hey Hey Guy (US Remix) (5:46)
+3. Brian Ice - Tokyo (DJ Version) (6:37)
+4. Hypnosis - Droid (Automatic Piano) (5:08)
+5. Patrick Colby - Mandrill (Extended Version) (6:10)2002-2012Жанр: Disco, Dance, PopПродолжительность: 01:12:50
+
+1. Trixie - When Everybody's Dancin' (Voca (5:20)
+2. Ursula - Young People (Extended Version (7:04)
+3. Venus - Caballeros (Vocal) (5:51)
+4. Yan-Guru - Won't You Help Me (Vocal) (5:59)
+5. Jasmine - Runaway (Extended Mix) (5:26)
+6. Joe Yellow - Lover To Lover (For Sale) (8:00)
+7. M And G - When I Let You Down (Extended (5:59)
+8. Rose - Memories (Vocal Version) (6:16)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05D74473EE1D4761D96D0C8667C00864590FDE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472318   (83856) от 23.03.2012
 
 VA - Убойные весенние хиты (2012) [MP3|256кб/с]<Pop>
@@ -785,35 +824,6 @@ VA - Весна на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B985A2640962E339D22D4CE367D494E31C9272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718951   (58273) от 28.04.2024
-
-C.C. Catch - Collection (2024) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58273.jpg" />
-</div>
-
-
-###  Подробнее
-
-В моём детстве, в 80х, творчество C.C. Catch, почему то прошло мимо. А в 90х я уже был ярым металюгой и кроме тяжеляка не замечал ничего. Впервые, осознанно увидел и услышал, уже с появлением инета. Это был клип Strangers By Night. Понравилась сразу и внешне и голос. Певица обладает сильной притягательностью и фишкой в манере исполнения. С тех пор и люблю её клипы (   Читать дальше...   )01. Cause You Are Young
-02. Can Lose My Heart Tonight
-03. You Shot A Hole In My Soul
-04. One Night's Not Enough(   Читать дальше...   )Жанр: DiscoПродолжительность: 03:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF200B305907236A04000DD16ABD6DAE167DD56C
 ```
 
 https://mybot314.ru/tekegram_catalog/

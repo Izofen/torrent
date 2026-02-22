@@ -1,3 +1,87 @@
+###  Публикация: 1212437   (775822) от 12.03.2018
+
+VA - Marathon 2018: 50 Great Running Tracks (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bob Lee  -  Enhance  3:09
+02.  Ben Billson  -  Advise  3:09
+03.  Artur May  -  Logic  3:09
+04.  Apollo Twin  -  Chest  3:09(   Читать дальше...   )Жанр: HouseПродолжительность: 02:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F79BEEB46EECBD1725A1DD5C3A5D888D953550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212514   (775816) от 12.03.2018
+
+VA - JOOF Editions Vol.4 (Mixed by John 00 Fleming) (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John 00 Fleming  -  JOOF Editions Vol.4 (Continuous DJ Mix)  4:36:19
+02.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 1 - Continuous DJ Mix)  1:13:05
+03.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 2 - Continuous DJ Mix)  1:13:05
+04.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 3 - Continuous DJ Mix)  1:13:05(   Читать дальше...   )Жанр: Progressive House, Progressive Trance, Techno, Psy-Trance, BreaksПродолжительность: 15:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF028FD7209162396883842A12551E35E8FDF7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483836   (775743) от 12.03.2018
+
+SCSI-9 - Metamorphosis (2012) [MP3|320 кб/с]<Tech  Deep House  Minimal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech  Deep House  MinimalПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D6AC68C6A647255D7BE9718C603C01E94F1FBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212809   (775219) от 13.03.2018
 
 VA - Sensitive Recollection Vol 1: Slow Deep House Grooves (2018) [MP3|320 Kbps] <Deep House>
@@ -658,93 +742,6 @@ VA - Funky Disco House Grooves Vol.09 (2018) [MP3|320 Kbps] <House, Indie-Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0213CDFAE63E302F2CFA16F93B9AD6D0E32C93B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213582   (768183) от 17.03.2018
-
-VA - Wake Your Mind Sessions 003 (Mixed by Cosmic Gate) (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cosmic Gate & JES  -  Fall Into You (Eskai Intro Remix)  3:25
-02.  Di Rugerio  -  Aeternis (Original Mix)  7:24
-03.  Max Freegrant & Slow Fish  -  Sweet Lies (Original Mix)  3:50
-04.  Tinlicker feat. Thomas Oliver  -  Nothing Without You (Extended Mix)  7:22(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 05:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196F26713A3EFFC23007F25C6F710B3BDDC41E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125582   (768103) от 15.04.2017
-
-VA - Sirup Deep Anthems Mykonos (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Croatia Squad - The Best 03:25
-02. Sir Felix - Hope (Nora En Pure Radio Mix) 03:27
-03. Edx - Goombah (Radio Mix) 03:07
-04. Sons Of Maria - Surrender (Radio Mix) 04:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C5A5ADED71F27418AA37DEEAA04713D480B581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125587   (768068) от 15.04.2017
-
-VA - Special Sport Songs 7 (2017) [MP3|320 Kbps] <House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hr Troels - Chameleon (Radio Edit)  3:37
-02.  Dave Gate - I Can't Get You (Radio Edit)  2:56
-03.  Phun & Key - System Crash (Radio Edit)  3:05
-04.  Sequence 2 - Crazy (Radio Edit)  4:16(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC00DBE832F2856ACADBBBEF728B7142EB320362
 ```
 
 https://mybot314.ru/tekegram_catalog/

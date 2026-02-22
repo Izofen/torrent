@@ -1,32 +1,3 @@
-###  Публикация: 1660384   (189371) от 13.09.2023
-
-VA - Jazz music to concentrate (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles Davis - Générique (Bande originale du film "Ascenseur pour l'échafaud") (2:49)
-02. Tommy Flanagan Trio - In The Blue Of The Evening (3:42)
-03. Wes Montgomery - Days Of Wine And Roses (3:48)
-04. Wayne Shorter - Footprints (Remastered) (7:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF278BAEA733617C38985A6769B4C89C7B9C01D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660381   (189362) от 13.09.2023
 
 VA - Bar Lounge Costes, Vol. 6 Lounge & Smooth Jazz Flavors (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -744,6 +715,35 @@ Renee Rosnes - And The Danish Radio Big Band (2001) 2003, Blue Note Records [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACCE1E68B59D56DF7677BB7697D7936A729AC0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663730   (186490) от 23.09.2023
+
+Sahib Shihab - Summer Dawn (1963) 2008, Rearward [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lillemor [7:59]
+02. Please Don't Leave Me [9:47]
+03. Waltz for Seth [6:20]
+04. Campi's Idea [8:27](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30AA929E44AD1D3C4CA85114EE8F1FE72F4416D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

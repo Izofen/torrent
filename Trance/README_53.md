@@ -1,3 +1,32 @@
+###  Публикация: 1195373   (144400) от 28.12.2017
+
+VA - Mondo Records: The Best Of (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Hawcroft - Your Eyes (Original Mix)
+02. Credland - Photosphere (Original Mix)
+03. Manda Dex - Dream Beat (Original Mix)
+04. Like It Lite - Sometimes Ibiza (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1F41E955DF0D0F98D0EE05120C061BCBAD97AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195357   (144387) от 28.12.2017
 
 VA - Suanda Music Radio Top 20 2017 [MP3|320 Kbps] <Uplifting Trance>
@@ -710,35 +739,6 @@ VA - In Search Of Sunrise 19 (Mixed by Markus Schulz, Ilan Bluestone & Daniel Wa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53D45ADC5B39039775391CADB4DE21B16AC3C7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682555   (131430) от 07.12.2023
-
-VA - Armada Music - Trance Legacy II (2023) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - 9 PM (Till I Come) (Extended Mix) (5:28)
-02. Chicane - Offshore (Original Mix) (6:57)
-03. Paul van Dyk - For An Angel (PVD Angel In Heaven Edit) (3:53)
-04. Age Of Love - The Age Of Love (Jam & Spoon Watch Out For Stella Mix) (6:48)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1221626DF5859C2852D1062829C5E2F1953F6DB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

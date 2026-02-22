@@ -1,3 +1,29 @@
+###  Публикация: 1037422   (613427) от 24.07.2016
+
+Шаблоны - GraphicRiver - Glitch Effect Photo Template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glitch Effect - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2000x3000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B714975E3F4F6D541F27B54DD910985A5D86767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037594   (613424) от 24.07.2016
 
 Шаблоны - GraphicRiver - Photo Effect - Photo Template [PSD]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A36E17AA881008ECC0BD1BA3B484C11CC300167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043600   (571982) от 16.08.2016
-
-Шаблоны - Photography & Photo Studio Flyer Bundle [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photography & Photo Studio Flyer Bundle - шаблон флаера фотостудии.Формат: PSDРазрешение файлов: 2551x3579 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984F9145849B355C4E046B5ABA3347ED0134536F
 ```
 
 https://mybot314.ru/tekegram_catalog/

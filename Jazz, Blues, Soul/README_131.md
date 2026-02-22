@@ -1,3 +1,90 @@
+###  Публикация: 1499673   (846322) от 03.10.2021
+
+Marcos Valle & Victor Biglione - Live In Montreal (2007) [FLAC|Lossless|tracks + .cue] <MPB>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azimuth 3:20
+02. Preciso Aprender A Ser Só 4:11
+03. Samba De Verão 4:02
+04. Terra De Ninguém 3:11(   Читать дальше...   )Жанр: MPBПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5360177E0D5B550764FB1B5C0001A8B023612F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499758   (846320) от 03.10.2021
+
+Ella Fitzgerald - The Irving Berlin Songbook, Vols. 1-2 (1958) 2CD, 1986, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846320.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Let's Face the Music and Dance [2:58]
+02. You're Laughing at Me [3:17]
+03. Let Yourself Go [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A26CB44A1D5E179B95E7FE7D92FEA3B06B4D781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 877809   (845941) от 13.03.2015
+
+VA - Living The Blues: The 70s Blues Classics (1997) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby “Blue” Bland - I Wouldn't Treat a Dog (The Way You Treated Me) (3:16)
+02. Ted Taylor - Something Strange Is Goin' on in My House (2:54)
+03. Ann Peebles - (I Feel Like) Breaking Up Somebody's Home (2:29)
+04. Albert King - I'll Play the Blues for You, Part 1 (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B72787DBE53C60ADAFEF611DCEC8D71739BB1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 877654   (845847) от 13.03.2015
 
 Gary Eisenbraun - Ghost Notes (2015) Expanded Edition [MP3|320 кб/с]<Blues Rock>
@@ -657,93 +744,6 @@ Tuba Skinny - Blue Chime Stomp (2016) [FLAC|Lossless|WEB-DL|tracks] <New Orleans
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30D9DEE854A26A92359525312E31D782218E900E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002977   (845184) от 02.04.2016
-
-Two Timer - The Big Ass Beer To Go (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hank
-02. Some New Boogie, Right?
-03. Stick to C.
-04. New Cocaine(   Читать дальше...   )Жанр: Heavy Blues RockПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE52793C487A35662F1DB3EAEEB8705372998B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112070   (845044) от 07.03.2017
-
-Rick Braun - Around The Horn (2017) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Strong
-02. Pool Dancer
-03. Love Take Me (feat. Lindsey Webster)
-04. We Don't Talk Anymore (feat. Peter White)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF55355CA1BE62AFEB9427EFB223BED04B556D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378711   (844876) от 26.04.2020
-
-Oscar Peterson - Somebody Loves Me 1950 - 1954 (2004) 4CD, Membran Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844876.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Oscar's Blues [3:11]
-02. For You [2:06]
-03. Pennies From Heaven [2:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 03:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6DDAEEBC1090D56B0618EDD76E75F0D5532C15
 ```
 
 https://mybot314.ru/tekegram_catalog/

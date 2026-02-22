@@ -1,3 +1,177 @@
+###  Публикация: 1048502   (546298) от 02.09.2016
+
+Виктор Цой - Печаль (2000/2015) [WavPack 2.0 32/192|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона A
+A1. Война
+A2. Спокойная ночь
+A3. В наших глазах(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B7650CFAA018C694EB8D91386250A82C52352F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048861   (545605) от 03.09.2016
+
+Def Leppard - Pyromania (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Rock (Till You Drop) (3:57)
+02. Photograph (4:06)
+03. Stagefright (3:46)
+04. Too Late For Love (4:26)(   Читать дальше...   )Производство: Mercury Records - 810 308-1Жанр: Hard RockПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F94159702996FFB78062811CA47C100AA28371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048341   (544718) от 04.09.2016
+
+Alan Parsons - A Valid Path (2006) [FLAC 2.0|48/24|image+.cue|Audio-DVD] <Progressive Rock, Art-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Return to Tunguska
+ 02 - More Lost Without You
+ 03 - Mammagamma '04
+ 04 - We Play The Game(   Читать дальше...   )Жанр: Progressive Rock, Art-RockПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2B2B0337101128C04100750DB08F197FD5D7AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 695492   (544636) от 31.08.2013
+
+Pussycat - Blue Lights (1981) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rio
+02. Blue Lights In My Eyes
+03. Then The Music Stopped
+04. Rain(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD00B4E3451E7B707AE6C11C5E51559980D5E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311165   (543687) от 28.06.2019
+
+Harry Secombe - At Your Request (1958) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening, Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543687.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Song Of Songs
+A2 At The Balalaika
+A3 Granada
+A4 Shine Through My Dreams(   Читать дальше...   )Жанр: Pop, Easy Listening, VocalПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27BF96131A3EEC9E00077F216931169E6E8BE90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153806   (542648) от 29.07.2017
+
+ВИА ''Ритм'' - Дискотека «А». Из Репертуара Аллы Пугачевой (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542648.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Все Силы Даже Прилагая · Exerting All Powers
+A2 Улетай, Туча · Fly Away, Cloud
+A3 Женщина, Которая Поет · The Woman Who Sings
+A4 Три Желанья · Three Wishes(   Читать дальше...   )Жанр: Pop, Disco, FunkПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0011E5CC6EB1A6F6C9E8F2F162A92F7ED6E6E1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 661593   (542556) от 05.08.2015
 
 Джо Дассен - Поет Джо Дассен (1980) [FLAC 2.0 96/24|traks(Vinil-Rip)]<Pop, Chanson>
@@ -569,180 +743,6 @@ A4 Nessun Dorma(   Читать дальше...   )Жанр: Classical, OperaП�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:293F2FF3BA36F246BFDCA9242A86B9E2C6EFBB59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930968   (514025) от 24.08.2015
-
-Roger Hodgson - Hai Hai (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514025.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Right Place (4:05)
-A2. My Magazine (4:41)
-A3. London (4:12)
-A4. You Make Me Love You (5:10)(   Читать дальше...   )Производство: A&M RecordsЖанр: Pop RockПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40E82248AF276620639AF249BD1BBEFAF7F3002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931025   (512811) от 25.08.2015
-
-Vangelis - Spiral (1977) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<New Age>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512811.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Spiral
-A2 Ballad
-A3 Dervish D.
-B1 To The Unknown Man(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10969C4F1F95E26EBFF2388AF0F51039C120C967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315486   (512612) от 20.07.2019
-
-В. С. Высоцкий - Лучшие песни 3 (1980/1996) [FLAC 2.0|44,1/24|image+.cue|MC-Rip] <Chansone>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня о погибшем лётчике
-02. Мой друг уехал в Магадан
-03. ''Гололёд на земле, гололёд...''
-04. Прерванный полёт(   Читать дальше...   )Жанр: ChansoneПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1BF96D00DE9F5E9CDD3449344D853F184B62BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932372   (508167) от 30.08.2015
-
-С. Рахманинов - Симфонические танцы, соч. 45 (Е. Светланов, ГАСО СССР) (1973) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-С. Рахманинов - Симфонические танцы, соч. 45
-01. I - Non allegro
-02. II - Andante con moto (Tempo di valse)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA39587AED78E12860FA0A7BF1BCE6710E2E3842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932775   (508163) от 30.08.2015
-
-Francoise Hardy - Star (1977) [FLAC 2.0 24/96 | image+.cue|(Vinyl Rip)]<Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508163.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Star
-Lyrics By (Adaptation) – F. Hardy
-Written-By – J. Ian
-A2	Chanson Sur Toi Et Nous(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D97A9DE8AC54A9F4CDA30F63A87D4A3FFF4350E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932885   (507968) от 30.08.2015
-
-Electric Light Orchestra - Time (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507968.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Prologue (1:15)
-A2. Twilight (3:38)
-A3. Yours Truly, 2095 (3:16)
-A4. Ticket to the Moon (4:07)(   Читать дальше...   )Производство: Jet RecordsЖанр: Progressive RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4EDA75A73593D727ECC5A0C8403C68FA1D9CA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

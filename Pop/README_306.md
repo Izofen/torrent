@@ -1,3 +1,89 @@
+###  Публикация: 1676920   (154721) от 15.11.2023
+
+VA - Hit News Vol. 3/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2 Unlimited - Here I Go
+02.  Sabrina - Angel Boy
+03.  Masterjam - I Wanna Know
+04.  Hyena - Naked In The Rain(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C3FAE67723BC99A15796A31F30CAA92A64097A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676954   (154654) от 15.11.2023
+
+VA - Hit News Vol. 4/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cartouche - Touch The Sky (Remix)
+02.  Osmania - Face Of A Stranger
+03.  Moratto - Warriors
+04.  Laurae - Vita Spericolata(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD70E5FE7CCBBC2A83D85AAC669902E22B23FDFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271017   (154538) от 21.12.2018
+
+Run 4 Fun - Please Don't Talk To Jessica (1994) Maxi-Single [APE|Lossless|image + .cue] <Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Don't Talk To Jessica (3:43)
+02. Please Don't Talk To Jessica (Remix) (5:45)
+03. Dancing With Somebody (4:15)Жанр: Pop, EurodanceПродолжительность: 00:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6402C45945644A363B0566FAE15E5AF4BB824B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194657   (154351) от 26.12.2017
 
 Magnus - Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -656,93 +742,6 @@ Sarah McLachlan - Wonderland (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9864AE4E9E90914AB353AE67EA58D0039A0F1BF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085897   (152548) от 24.12.2016
-
-VA - Christmas Pop (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas, Funk & Soul, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meghan Trainor - I'll Be Home (3:39)
-02. Little Mix - Love Me Like You (Christmas Mix) (3:29)
-03. Kelly Clarkson - Underneath The Tree (3:50)
-04. Mariah Carey - Christmas (Baby Please Come Home) (2:34)(   Читать дальше...   )Жанр: Pop, Holiday, Christmas, Funk & Soul, Pop RockПродолжительность: 02:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FDD4CB2F88F1D51E5650D75C087CC83EB599436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086135   (152543) от 24.12.2016
-
-Thomas Anders - Christmas For You (2012) Deluxe Edition [APE|Lossless|image + .cue] <Pop, Holiday, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Must Have Been The Mistletoe (3:04)
-02. Christmas Is Just Around The Corner (from "Cranberry Christmas") (2:43)
-03. Sleigh Ride (2:41)
-04. The Christmas Song (3:13)(   Читать дальше...   )Жанр: Pop, Europop, Holiday, Christmas, Vocal, Spoken WordПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6324DC15277BDEEB8E6E0CD46D4CA1D6A2B633F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086302   (152526) от 24.12.2016
-
-Laura Pausini - Laura Xmas (2016) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop, Jazz, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Beginning To Look A Lot Like Christmas (3:57)
-02. Let It Snow! Let It Snow! Let It Snow! (3:01)
-03. Santa Claus Is Coming To Town (2:07)
-04. Jingle Bell Rock (3:47)(   Читать дальше...   )Жанр: Pop, Jazz, Holiday, Christmas, Swing, Easy Listening, VocalПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858D7FCED3F761CA8834A5C5605F2FBE1F85E77A
 ```
 
 https://mybot314.ru/tekegram_catalog/

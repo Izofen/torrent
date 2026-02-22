@@ -1,32 +1,3 @@
-###  Публикация: 1516656   (165480) от 12.12.2021
-
-Stephane Grappelli - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djangology [3:25]
-02. I'm Coming Virginia [3:03]
-03. Misty [3:46]
-04. Shine [3:37](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Violin JazzПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303FC41317923FE7B1338BB98DB29FA75A25DF9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432047   (165373) от 16.12.2020
 
 Jimmy Greene - While Looking Up (2020) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -745,6 +716,35 @@ Pasquale Grasso - Pasquale Plays Duke (2021) Sony Music [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA05C0F50CDD173B0BC9742E6B3CE1ACFBC0CFF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598254   (163427) от 18.12.2022
+
+Django Reinhardt - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome (2e partie) [2:21]
+02. I Can't Give You Anything But Love [2:23]
+03. Artillerie lourde [4:18]
+04. How High the Moon [2:21](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769411F72C5AF0CDD620754E01FA59B164B1D03E
 ```
 
 https://mybot314.ru/tekegram_catalog/

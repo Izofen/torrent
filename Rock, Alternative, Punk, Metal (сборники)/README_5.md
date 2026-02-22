@@ -1,3 +1,32 @@
+###  Публикация: 1095046   (927216) от 19.01.2017
+
+VA - Мой любимый Русский Рок. Коллекция (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927216.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мамульки Bend - Русский Рок
+002. Ария + Гости - Воля и разум
+003. Город 312 - Небо в алмазах
+004. Каскад - Иней на стекле(   Читать дальше...   )Жанр: RockПродолжительность: 11:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0298E7578CFAF0B8727F87FF713F4C82E4459A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365783   (927014) от 09.03.2020
 
 VA - Blues Rock Drive 8  (2020) от DON Music [MP3|320 Kbps] <Rock, Blues Rock, Blues>
@@ -717,35 +746,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DBB22D2799F66CD16C41D731019671AB124601C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369596   (901424) от 24.03.2020
-
-Led Zeppelin - 100% Led Zeppelin (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whole Lotta Love (2012 Remaster)
-02. Rock And Roll (Sunset Sound Mix)
-03. Black Dog
-04. Heartbreaker (2012 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 03:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBBB9B8BCDF09ABD9F2F948E81DFA5DB5C81CE2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

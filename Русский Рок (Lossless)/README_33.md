@@ -1,3 +1,32 @@
+###  Публикация: 1575461   (375404) от 10.09.2022
+
+Miami - Sexy, Wet & Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Радио (Скит) [00:00:17]
+02. Оверсайз [00:02:59]
+03. Домой [00:02:22]
+04. Ведомый [00:02:22](   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF9B8C78D437D976F59F607CFE53F985E6DCA90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327501   (374499) от 25.09.2019
 
 Олег Гаркуша (АукцЫон) - 23 (2019) [FLAC|Lossless|image + .cue] <Rock>
@@ -725,35 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1005465140CFC9EE7AE9150EB2227DBA5EA7CDAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417106   (363201) от 18.10.2020
-
-LosiKenguru - ВЫше норМЫ (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бит [00:03:07]
-02. Ювобль [00:02:38]
-03. Нет [00:02:26]
-04. Золотой парашют [00:02:11](   Читать дальше...   )Жанр: Alternative, Rock, PopПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B09B51996092B5C5F6F28586696E328774201C
 ```
 
 https://mybot314.ru/tekegram_catalog/

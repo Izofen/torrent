@@ -1,3 +1,38 @@
+###  Публикация: 552229   (445773) от 27.09.2012
+
+Chie Ayado - 3 альбома (2000-2007) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_445773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazing Grace [03:05]
+02. A Natural Woman [05:12]
+03. Your Song [05:38]
+04. El Condor Pasa (If I Could) [05:36]
+08. A Time for Love [04:38]
+09. Everything Must Change [04:49]
+07. The Way We Were [04:52]
+08. The Rose [05:25]
+09. Love [03:29]
+10. Wonderful Tonight [04:52](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550583   (445764) от 27.09.2012
 
 George Benson, Joe Pass & Wes Montgomery - Les Incontournables Guitare (2000) [FLAC|Lossless]<Jazz, Instrumental>
@@ -719,35 +754,6 @@ Art Pepper - Gettin' Together! (1960) /1997, Victor/ [FLAC|image+.cue]<Bop, West
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DCA423A1F94C04C90467EFB46E2CE4371FF7FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944282   (443115) от 06.10.2015
-
-Wes Montgomery - In The Beginning (2014) 2CD /2014, Resonance Records/ [FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443115.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.After You've Gone [05:02]
-02.Fascinating Rhythm [04:23]
-03.Brazil [04:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB0C8CD6CC8B17006F74C0DD15D2335549D48EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

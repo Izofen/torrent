@@ -1,3 +1,32 @@
+###  Публикация: 956158   (330979) от 13.11.2015
+
+Ellie Goulding - Delirium (Deluxe Edition) (2015) [FLAC|Image+cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Delirium)
+02. Aftertaste
+03. Something In The Way You Move
+04. Keep On Dancin'(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EEB9CB2422AB13B9C6008554F83F4AB93CFD392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580458   (330726) от 01.10.2022
 
 Richard Marx - Songwriter (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
@@ -716,35 +745,6 @@ Gwen Stefani - You Make It Feel Like Christmas (2017) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:716095D7C749DDEB058FC57C4398BAF670DDDC18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959346   (316814) от 24.11.2015
-
-Julien Dore - Love  Live (2015) [FLAC|tracks|WEB-DL]<Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316814.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Viborg (Live) (07:52)
- 2. hotel Therese (Live) (04:52)
- 3. Habemus papaye (Live) (03:30)
- 4. London nous aime (Live) (03:40)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53C05C36EC88B7F9E8813DA82BFEBDFF64517CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

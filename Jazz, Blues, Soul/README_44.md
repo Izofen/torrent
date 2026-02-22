@@ -1,3 +1,108 @@
+###  Публикация: 598828   (999663) от 05.01.2013
+
+Fiona Apple - 4 альбома (1996-2012) [FLAC|Lossless]<Piano rock, baroque pop, jazz, alternative rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Single Night [03:33]
+02. Daredevil [03:28]
+03. Valentine [03:33]
+04. Jonathan [05:04]
+05. Left Alone [04:51]
+06. Werewolf [03:13]
+07. Periphery [04:58]
+08. Regret [05:17]
+09. Anything We Want [04:41]
+10. Hot Knife [04:02]Жанр: Piano rock, baroque pop, jazz, alternative rockФормат: image+cueПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599219   (999637) от 05.01.2013
+
+Karen Aoki - Jazz After Sunset (2 HDCD) (2012) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Cherie Amour  [03:32]
+02. Girl From Ipanema  [03:02]
+03. In My Life  [03:46]
+04. Cry Me A River  [04:45]
+05. Corcovado  [04:12]
+06. Tea For Two  [04:16]
+07. I've Got A Crush On You  [03:44]
+08. I've Got You Under My Skin  [04:22]
+09. All The Things You Are  [05:11]
+10. Stardust  [03:56](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599687   (999188) от 07.01.2013
+
+Denny Newman - Sleepwalking With You (2007) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin' For the Past
+ 02. Sleepwalking With You
+ 03. This World Keep Turning
+ 04. Burying Ground
+ 05. I'll Get Over You (When You Get Over Getting Over Me)
+ 06. The Case Is Closed
+ 07. Frenchman
+ 08. Potato Boat Blues
+ 09. When the Sun Don't Shine
+ 10. Goin' DownЖанр: BluesПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599693   (999182) от 07.01.2013
 
 Devil's Hollow - Devil's Hollow (2010) [APE|Lossless]<Blues>
@@ -781,110 +886,6 @@ Rebecca Pidgeon - Slingshot (2011) [FLAC|Lossless]<Vocal Jazz, Popular>
 08. Is Anyone?
 09. I Still Feel That
 10. I Loved No-One(   Читать дальше...   )Жанр: Vocal Jazz, PopularПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604014   (996711) от 16.01.2013
-
-VA - The Very Best Of Love Legends (2 CD) (2006) [FLAC|Lossless]<Pop, Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Diana Ross – When You Tell Me That You Love Me 4:13
- 02 The Righteous Brothers – Unchained Melody 3:36
- 03 LeAnn Rimes – How Do I Live 4:09
- 04 Phil Collins – One More Night 4:52
- 05 Daniel Bedingfield – If Youre Not The One 3:40
- 06 Katie Melua – Nine Million Bicycles 3:15
- 07 Brian Kennedy – You Raise Me Up 4:08
- 08 Eva Cassidy – Songbird 3:43
- 09 Dan Hill – Sometimes When We Touch 4:09
- 10 Odyssey – If Youre Lookin For A Way Out 4:28(   Читать дальше...   )Жанр: Pop, RockФормат: 2хCD, CompilationПродолжительность: 01:09:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603698   (996215) от 18.01.2013
-
-Paul Ramirez Band - Sex With A Dragon (2012) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996215.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Right Where I Belong (3:50)
-2.  For Loving You (3:45)
-3.  Down Slow (4:27)
-4.  Gypsy Woman (3:37)
-5.  Sex With A Dragon (4:11)
-6.  Your Time (3:44)
-7.  You Are The Light (5:18)
-8.  Be Free (5:03)
-9.  See That My Grave Is Kept Clean (2:36)Жанр: Blues RockПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D2B94A49F4E3B5805226C970CCA1C8B95D19E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605124   (995940) от 19.01.2013
-
-Kalorin Nemayothin - Feel by Kal (2009) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Till  [03:28]
-02. Night And Day  [03:29]
-03. As Time Goes By  [02:57]
-04. Tea For Two  [03:12]
-05. For Sentimental Reason  [04:02]
-06. Stranger In Paradise  [04:25]
-07. Where Or When  [03:45]
-08. I Get A Kick Out Of You  [03:46]
-09. Dream  [02:32]
-10. It's Magic  [03:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:42
 
 ## Скачать торент
 ```bash

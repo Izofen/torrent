@@ -1,3 +1,32 @@
+###  Публикация: 1300794   (587150) от 09.05.2019
+
+Kayo Konishi & Yukio Kondo - Elfen Lied Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Classical, Contemporary>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lilium (Opening version) (1:34)
+02.Longing (2:12)
+03.Deep Sea (2:56)
+04.Flower-like (1:08)(   Читать дальше...   )Жанр: Electronic, Classical, ContemporaryПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE27D8C544503B0812F2D0BBE4C0EDFE800A36FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300947   (587143) от 09.05.2019
 
 Kenio Fuke - Piano e Natureza, Vol. 1-5 (2005-2018) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
@@ -724,32 +753,6 @@ VA - Cab Canavaral - Electro Swingster (2015) [MP3|320 кб/с]<Electro Swing, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52856031F7F6A4B619E0AA1E36F8226EC55B2553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357764   (582664) от 05.07.2011
-
-Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 05:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCCF0FB945BA482625C8DBB21FFEC05A544BAC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

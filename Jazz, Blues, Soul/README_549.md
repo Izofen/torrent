@@ -1,3 +1,32 @@
+###  Публикация: 1726559   (108692) от 29.05.2024
+
+Mary Lou Williams - Mary Lou's Mass (1975) 2005, Smithsonian Folkways [FLAC|Lossless|tracks + .cue] <Bop, Soul-Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willis [3:41]
+02. O.W. [2:20]
+03. Praise the Lord [2:13]
+04. Old Time Spiritual [1:14](   Читать дальше...   )Жанр: Bop, Soul-Jazz, Piano JazzПродолжительность: 01:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0D1949839B3075BD84B6570CFD40156F08EFBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726393   (108689) от 29.05.2024
 
 VA - Enjoyable Easy Listening Alluring Chill Jazz Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -716,35 +745,6 @@ Mary Lou Williams, Jutta Hipp, Beryl Booker - First Ladies Of Jazz (1940 - 1954)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A71C2072DAE5AFBAE2C3402A8D0F09DA06CEA441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727382   (108475) от 02.06.2024
-
-Wilbur Ware - Super Bass (1968) 2012, Wilbur Ware Institute [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mod House [5:46]
-02. Symphony for Jr. [10:11]
-03. Wilbur's Red Cross [8:18]
-04. A Real Nice Lady [7:32](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00CF9FA171E585793EC895E9C3BF84881281E5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

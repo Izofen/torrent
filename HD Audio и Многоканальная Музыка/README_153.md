@@ -1,3 +1,177 @@
+###  Публикация: 1748550   (104553) от 10.09.2024
+
+Aircoach - Prism (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can’t Find A Place (4:19)
+02. Dear Conrad (5:01)
+03. The Man Who Walked Softly (5:24)
+04. Wake Up (4:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDD6402B5B3A1280839AB92FCAB9172EB032091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748549   (104552) от 10.09.2024
+
+Lenny Kravitz - Human (Paul Woolford Remix) (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Human (Paul Woolford Edit) [3:36]
+02 - Human (Paul Woolford Classic Edit) [3:37]
+03 - Human (Paul Woolford Remix) [6:36]
+04 - Human (Paul Woolford Classic Club Mix) [5:35](   Читать дальше...   )Жанр: Electronic, Pop, DanceПродолжительность: 00:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD753CF5629CAAD78702502EDBE5323445361831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748553   (104551) от 10.09.2024
+
+Lenny Kravitz - Human (Remixes Edits) (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Human (LF SYSTEM Remix Edit) [2:35]
+02 - Human (Paul Woolford Edit) [3:36]
+03 - Human (Paul Woolford Classic Edit) [3:37]
+04 - Human (Dave Audé Remix edit) [3:53](   Читать дальше...   )Жанр: Electronic, Pop, DanceПродолжительность: 00:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A7BA068A9E3E596B34FC9808CA586DA6B213C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749181   (104534) от 13.09.2024
+
+Big Big Train - A Flare On The Lens (Live in London 2023) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Crossover Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Folklore (7:23)
+02. The Connection Plan (4:15)
+03. Curator of Butterflies (8:22)
+04. Summoned by Bells (10:25)(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 02:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A077439CB9D76AFB13E1AE68DBD3905DAE335822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749075   (104533) от 13.09.2024
+
+Witchz - Drugz2feel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Drugz2feel [2:44]
+02 - Zen !!! [2:56]
+03 - The Algorithm [3:25]
+04 - The Simulation [2:10](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2BE758A6B1E84D320ADC4FFA63972C1A3D3EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749168   (104531) от 13.09.2024
+
+London Grammar - The Greatest Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - House [3:11]
+02 - Fakest Bitch [4:20]
+03 - You And I [5:01]
+04 - LA [4:32](   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B59F755EE55F7541A1AB4B5C41BB51CFE3F435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749302   (104524) от 13.09.2024
 
 Velvet Revolver - Contraband (2024 Deluxe Edition) (2004) Reissue, 2024, RCA - Legacy [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -568,180 +742,6 @@ Fatigue Force - Wandering Blues T (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDE96B863A87807A48EE400FC10B8557A7327B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749723   (104265) от 16.09.2024
-
-80 Hundred Miles - Divergent Tales (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay Human - Part I (3:28)
-02. Gift Of God (5:08)
-03. Across The Waves (4:26)
-04. Coffee Break (3:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1D1188128180A8571CFF8DE49FDDD62B5A3CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750039   (104260) от 17.09.2024
-
-Francesco Bearzatti and Federico - And Then Winter Came Again (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Blossom (5:48)
-02. Nightwalker (6:45)
-03. Orchidée (3:30)
-04. And Then Winter Came Again (6:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C13651C2FCB701479841C08436681778F1E8F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750131   (104255) от 18.09.2024
-
-Earth Lux - Earth Lux (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On Me (3:50)
-02. Soul Stalker (5:28)
-03. In Your Heart (3:52)
-04. Back Stage Business (4:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED0AB1FD3412E55410BB008581263A0F685DF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750135   (104251) от 18.09.2024
-
-Miseration - Studio Albums (4 releases) (2006-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Technical Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Miseration — шведская дэт-метал-группа, организованная в 2006-м году. Коллектив является одним из многих проектов Яни Стефановича и бывшего вокалиста Scar Symmetry Кристиана Альвестама.2006 - Your Demons - Their Angels
-2009 - The Mirroring Shadow
-2012 - Tragedy Has Spoken
-2022 - Black Miracles And Dark WondersЖанр: Melodic/Technical Death MetalПродолжительность: 02:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D98CA2F86CF4B4186141BB5BE9EA92C99D17C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750180   (104244) от 19.09.2024
-
-Bones Uk - Soft (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Imdustrial Rock, Garage Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bikinis [00:03:15]
-02. Me [00:02:42]
-03. Dopamine [00:04:32]
-04. Won't Settle [00:04:06](   Читать дальше...   )Жанр: Imdustrial Rock, Garage Rock, Blues RockПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90EC73E724AE8D487E4C965AC49D73C80879D746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750427   (104237) от 19.09.2024
-
-Fleetwood Mac - Mirage Tour '82 (1982) Remaster, 2024,  Rhino - Warner Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Hand News (4:06)
-02. The Chain (6:38)
-03. Don't Stop (3:48)
-04. Dreams (4:13)(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34EA7777E5D4D0DD024A2F9FA677BB5B38EBA83F
 ```
 
 https://mybot314.ru/tekegram_catalog/

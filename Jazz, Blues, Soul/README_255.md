@@ -1,3 +1,90 @@
+###  Публикация: 1148808   (603002) от 08.07.2017
+
+Don Braden - Workin' (2006) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spoken Introduction by Cecil Brooks III [00:52]
+02. You Can't Hide love [07:28]
+03. Spoken Introduction by Don Braden [00:34]
+04. Looking for Her [01:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2C001D1E840FD2F99FD7E28DB1680FC0610667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148805   (603001) от 08.07.2017
+
+David Grisman Quintet featuring Svend Asmussen - Svingin' With Svend (1988) Zebra Acoustic [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svingin' With Svend [04:04]
+02. Nadja [06:24]
+03. Lap-Nils Polska [08:25]
+04. It Don't Mean A Thing [06:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DDB709A4423D88FF86650C7A309CC98F89745FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148661   (602999) от 08.07.2017
+
+Stan Kenton - Summer Of '51 (1987) Garland [FLAC|Lossless|tracks + .cue] <Big Band, Progressive Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artistry In Rhythm [00:45]
+02. Machito [02:24]
+03. Stardust [03:18]
+04. Gone With the Wind [02:46](   Читать дальше...   )Жанр: Big Band, Progressive JazzПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9149BF086B6F56D4804254BB6C65DE095540DDA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547409   (602996) от 28.04.2022
 
 Tim Garland - ReFocus (2020) Edition Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -658,93 +745,6 @@ J.J. Cale - Stay Around (2019) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF2DF41E03D5D348851580A8C306E2253B9F8343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298927   (601638) от 29.04.2019
-
-Tia Fuller - Healing Space (2007) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakthrough [6:14]
-02. Just A Journey [5:12]
-03. Ebonics [5:49]
-04. Katrina's Prayer [1:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63DE8E11B05EAF53ABA93BA67065F765F82306F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913841   (601361) от 30.06.2015
-
-Howlin' Wolf - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  California Boogie (3:01)
-02.  Look A Here Baby (2:12)
-03.  Everybody's In The Mood (3:01)
-04.  Color And Kind (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8F620CDFCD4D1AAF15C207D39932CF96E43EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913833   (601359) от 30.06.2015
-
-Fats Domino - Jazz & Blues collection (1995) [MP3|320 кб/с]<Rhythm & Blues, Rock & Roll, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'm Gonna Be A Wheel Someday (2:20)
-02.  I Want To Walk You Home (2:32)
-03.  Whole Lotta Lovin' (1:09)
-04.  The Fat Man (2:33)(   Читать дальше...   )Жанр: Rhythm & Blues, Rock & Roll, Blues RockПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C976E01DFBB40F5088B33FCDDA2844C08699EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

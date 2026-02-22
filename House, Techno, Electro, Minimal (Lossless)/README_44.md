@@ -1,3 +1,61 @@
+###  Публикация: 1251264   (417847) от 01.10.2018
+
+VA - Mega Power Lifting 70S Hits Workout Compilation (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Dance, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Mama - Get Down on It (Fitness Version)
+02. Don Pablo's Animals - Give Me the Night (Fitness Version)
+03. Thomas - Kung Fu Fighting (Fitness Version)
+04. Steve - Sir Duke (Fitness Version)(   Читать дальше...   )Жанр: House, Dance, DiscoПродолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4FB2F0642428225142A6D4BDE387E122D7E3C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180438   (417760) от 01.10.2018
+
+Nomenklatür (Nomenklatur) - Discography 13 Releases (2005-2018) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Electro, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fullness Of Emptyness (01:51)
+ 02. Lektrovision (05:00)
+ 03. Ransom For A Dead Man (04:13)
+ 04. She Likes Dark Hair (06:02)(   Читать дальше...   )Тип издания: CD, WebЖанр: Electro/TechnoПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A528ADA72F8AB0E21B7F29FF4495E1FBE84B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947492   (417739) от 17.10.2015
 
 Faithless - 2.0 (Remixes & Hits) (2015) 2CD [FLAC|image+.cue]<House, Trance>
@@ -683,64 +741,6 @@ Nils Hoffmann - A Radiant Sign (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:262D11826A5D9087651A24FF3B71D86FE7F2B8F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326625   (383510) от 21.09.2019
-
-Second Tension - Assembly Point (2017) Monolith Rec [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ally (07:26)
- 02. Assembly Point (06:56)
- 03. Esoteric Flame (07:22)
- 04. Kinetic (09:01)Жанр: Techno, IndustrialПродолжительность: 00:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECCB22CC72A9F441B76623AF981E2FEED4872A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253502   (381700) от 10.10.2018
-
-Maribou State - Kingdoms In Colour (2018) Japan Edition [FLAC|Lossless|tracks + .cue] <Leftfield, Downtempo, Post Rock>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beginner's Luck (4:28)
-02. Kingdom (4:10)
-03. Turnmills (5:04)
-04. Nervous Tics (feat. Holly Walker) (4:14)(   Читать дальше...   )Жанр: Leftfield, Downtempo, Post RockПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5AD22BFBCA21B27D7FB9C5EF7860BC2F26C5AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

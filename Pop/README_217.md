@@ -1,3 +1,122 @@
+###  Публикация: 572475   (380859) от 10.11.2012
+
+Весёлые ребята - Эх, напрасно, тётя... (2002) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не волнуйтесь, тётя
+02. Чашка чая
+03. Школьная пора
+04. Ни минуты покоя
+05. Бологое
+06. Уходило лето
+07. На земле живет любовь
+08. Когда молчим вдвоём
+09. Встречи
+10. Люди встречаются(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB6F00BBF22165998F588723B5165D4CA18501C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572913   (380857) от 10.11.2012
+
+Адреналин - Лучшие песни 2CD (1998-2005) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6D48A0EDCA8F04A280224AE5B16CD3BBD5F9BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068462   (380612) от 01.11.2016
+
+VA - Underground Nu-Disco Sessions Vol.7 (2016) [MP3|320 Kbps] <Soulful, Nu Disco, Indie Dance,>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Aristocrat - Miami
+02. Lo-Koality – Fading
+03. Alan De Laniere - It's The Beat (Docolv Mix)
+04. Turntable Actor Chloroform - Junatik Tracker(   Читать дальше...   )Жанр: Soulful, Nu Disco, Indie Dance,Продолжительность: 02:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3BC55809CBF723946633462F1C0F3F58570C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834262   (380528) от 24.10.2014
+
+VA - 1980 The Collection (Time Life) (1994) 2CD[FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стоят на полочке несколько дисков из серии Time Life Music. Решил поделиться. Может кто молодость вспомнит.01. Queen - Another One Bites the Dust  (3:38)
+02. Blondie - Call Me  (3:28)
+03. Dr. Hook - Sexy Eyes  (2:58)
+04. KC and The Sunshine Band - Please Don't Go  (3:51)(   Читать дальше...   )Жанр: Pop, Rock, Jazz, ElectronicПродолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62386A6E0EDA77AE362F3C43CEF063D76EC1CBEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068676   (380447) от 01.11.2016
 
 Вадим Козин - Последний концерт (1995) [MP3|320 Kbps] <Ретро>
@@ -637,122 +756,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949286   (377585) от 23.10.2015
-
-The Beloved - The Sun Rising (2005) [FLAC|image+.cue]<House, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sun Rising
- 02. Your Love Takes Me Higher
- 03. Wake Up Soon
- 04. Up, Up and Away(   Читать дальше...   )Жанр: House, PopПродолжительность: 1:03'00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E24D3F0A46DB1BDB50CE84F125482904FF9176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949509   (377575) от 23.10.2015
-
-The Beloved - Conscience (1993) [FLAC|image+.cue]<House,Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit (4:46)
-02. Sweet Harmony (5:04)
-03. Outerspace Girl (4:49)
-04. Lose Yourself In Me (4:33)(   Читать дальше...   )Жанр: House,PopПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E5877CE01DEFD888CC9E514F3DDF072FB64771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254146   (377520) от 12.10.2018
-
-General Lafayette - Jester (1993) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377520.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Oh My Beloved Father
-2.	The Power Of Music
-3.	Love In The Eyes Of A Child
-4.	Blow The Trumpet At The New Moon(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7F5807719B1A47C4AD26CD25B25B9DC036607D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254165   (377519) от 12.10.2018
-
-General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377519.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	King Of The Broken Hearts
-2.	True Love Will Never Die
-3.	Like A Story You Read In A Book
-4.	Country Blues(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48020EDF4B913031BE0477200569577599BBFE24
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1372346   (885362) от 03.04.2020
+
+Dropout Kings - GlitchGang (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PitUp [03:30]
+02. GlitchGang [02:25]
+03. Virus [03:04]
+04. Devil'sPlayground [03:46](   Читать дальше...   )Жанр: Rap, Rapcore, Nu MetalПродолжительность: 00:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B379A4057B98A04256629ADF79A14F0BB6AA580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372341   (885357) от 03.04.2020
+
+Enemy Radio - Loud Is Not Enough (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2020 [02:46]
+02. STD (Slavery Transmitted Disease) [02:26]
+03. Born Woke [02:46]
+04. Food As A Machine Gun (feat. Public Enemy) [03:55](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F245AC270DC68B36729ECE4D30879E7024A2CC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372254   (885210) от 03.04.2020
 
 Красное дерево - 31FM, Vol. 1 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -703,64 +761,6 @@ Jonny Craig - Find Your Home (2020) [MP3|320 Kbps] <R&B, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24EE8C5C10DF8637847FE95490B6012CABC08CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998286   (869812) от 19.03.2016
-
-CENTR - Качели (2007) [FLAC|Lossless|tracks + .cue] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:20)
-02. Качели (4:57)
-03. Исповедь (4:25)
-04. Жара 77 (4:11)(   Читать дальше...   )Жанр: RapПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C19B5DC26A0946755571835B49A3693750BFBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998275   (869552) от 19.03.2016
-
-Centr - Система (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Порося
-03. Не на рингтоны
-04. Сирены(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A166E79AE9FE3A9B938FCE7885E20F4327B08AF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

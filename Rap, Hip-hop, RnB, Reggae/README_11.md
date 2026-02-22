@@ -1,3 +1,61 @@
+###  Публикация: 1116873   (820441) от 21.03.2017
+
+Drake - More Life (2017) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820441.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Free Smoke [3:39]
+2. No Long Talk (feat. Giggs) [2:30]
+3. Passionfruit [4:59]
+4. Jorja Interlude [1:48](   Читать дальше...   )Жанр: Hip-Hop/RapПродолжительность: 01:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FDB1691122EC4EB004105B54BE192EFDE30711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503536   (819489) от 19.10.2021
+
+Atmosphere - WORD? (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood (3:30)
+02. Something (3:12)
+03. Crumbs (feat. Evidence & Muja Messiah) (4:04)
+04. Woes (3:27)(   Читать дальше...   )Производство: Rhymesayers Entertainment – RSE0330-2Жанр: Hip-HopПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A02AC624985A35C67389A09BE883C3A737A88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503545   (819399) от 19.10.2021
 
 Lil Nas X - Montero (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Pop Rap, Trap>
@@ -688,64 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4C155F96B947D8278BAABE19194829D0F6575FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509704   (793860) от 13.11.2021
-
-Oxxxymiron - miXXXtape III: Смутное Время (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793860.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мох
-2. Погружение
-3. Flashback
-4. Reality(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687E7CEA448887E0A00CE16BAC7C9DD2BE825F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509819   (792844) от 14.11.2021
-
-B.o.B - Murd & Mercy (2021) Deluxe [MP3|320 Kbps|Web-DL] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Loves Violence (3:10)
- 02. Built Like This (3:18)
- 03. DoGG feat. Sonny Digital (2:57)
- 04. OTS (3:28)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAB8AE6381EEDFEFAE7265BFCFE8E81DB688408
 ```
 
 https://mybot314.ru/tekegram_catalog/

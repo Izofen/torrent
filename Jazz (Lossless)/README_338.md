@@ -1,32 +1,3 @@
-###  Публикация: 1705837   (113747) от 10.03.2024
-
-Curtis Fuller - The Complete Blue Note / UA Sessions (1957 - 1962) 3CD, 1996, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuss Budget [7:46]
-02. Oatmeal Cookie [4:39]
-03. Da-Baby [7:33]
-04. Down Home [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 03:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C7F9DA17CD70C29CEFE637E44BA2946ED991F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705847   (113746) от 10.03.2024
 
 Ellis Marsalis - Ruminations In New York (2004) ESP-Disk' [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -745,6 +716,35 @@ Gene Harris Quartet - Another Night In London (1996) 2010, Resonance Records [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8C515C50A50851CFF122EC0EC85C116340947D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706764   (113517) от 14.03.2024
+
+Sexy Lovers Music Collection, Smooth Jazz Sax Instrumentals - Saxophone Intimate Moments: Sexy Jazz for Erotic Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saxual Healing (Sex Saxophone & Piano) (3:49)
+02. Saxual Jazz Lounge (Sexy Sax & Piano) (3:36)
+03. Now Again (Sensual Instrumental Background) (2:37)
+04. Feel Like Making Love (3:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4460256A49F7C3AFB6AA660160795FB9F0AB825A
 ```
 
 https://mybot314.ru/tekegram_catalog/

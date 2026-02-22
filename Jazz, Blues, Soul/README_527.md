@@ -1,3 +1,32 @@
+###  Публикация: 1700199   (117146) от 16.02.2024
+
+Ray Drummond - Excursion (1993) Arabesque Jazz [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Susanita [8:53]
+02. Penta-Major [4:22]
+03. Prelude [1:45]
+04. Quads [9:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6FB9E550E50CCAA9C2CD5212FFEF914D15F33F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700204   (117145) от 16.02.2024
 
 Donald Byrd & Kenny Burrell - All Night Long (1956) 2003, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -716,35 +745,6 @@ Svend Asmussen - Still Fiddling (1999) 2002, Storyville [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:204CB12C8470E84EC0D97C2E5D362C5AC0EBCABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701302   (116543) от 20.02.2024
-
-VA - Jazz - The Best - Standards and Rarities (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Bublé - Come Fly with Me (3:19)
-02. Maynard Ferguson - Sunny (3:50)
-03. Duke Ellington - Minnie the Moocher (2:51)
-04. John Coltrane - Summertime (11:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6336333A0515EB572B3F26BC35428C0E35A85E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

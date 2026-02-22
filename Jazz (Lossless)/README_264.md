@@ -1,32 +1,3 @@
-###  Публикация: 1333699   (243621) от 26.10.2019
-
-Oscar Brown, Jr. - Between Heaven and Hell 1962 (2010) SuperBird [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Kicks [2:22]
-02. Hazel's Hips [3:12]
-03. Excuse Me for Livin' [2:59]
-04. Lucky Guy [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30268186CC475103517C60AA34A7356EFA2D83A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455746   (243604) от 20.03.2021
 
 June Christy - June's Got Rhythm (1958 - 1960) 2005, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -745,6 +716,35 @@ National Youth Jazz Orchestra - Portraits (1990) [FLAC|Lossless|image + .cue] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70C38B9F29EFFED64853428140E57E7F7B87B807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633560   (243363) от 15.05.2023
+
+Kei Marimura - P.S. I Love You (1983) 1986, Teichiku Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_243363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Leaves [3:35]
+02. You'd Be So Nice to Come Home To [2:36]
+03. Day by Day [4:09]
+04. Cheek to Cheek [3:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A5FD52DDA63F4B05261DDA0CA37A314FAC6887
 ```
 
 https://mybot314.ru/tekegram_catalog/

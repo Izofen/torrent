@@ -1,3 +1,32 @@
+###  Публикация: 1722851   (109616) от 13.05.2024
+
+Al Lerman - Country-Fried Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Backbug Song (3:57)
+02. Big Bill’s Blues (3:27)
+03. How High Is Up (3:53)
+04. How Much Longer Can A Broken Heart Last (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEA18F7DDB9F030671510943B05EB8D91E4FC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722855   (109615) от 13.05.2024
 
 Alex Voysey - Blues In Isolation (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -716,35 +745,6 @@ Ricky Ford - Saxotic Stomp (1988) Muse Records [FLAC|Lossless|tracks + .cue] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52145172E85AC936FF9992C17107B68501CE844C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723892   (109368) от 17.05.2024
-
-The Barney Kessel Trio - Jellybeans (1981) 1996, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jellybeans [4:15]
-02. Stella by Starlight [5:53]
-03. Mermaid [4:32]
-04. My Foolish Heart [4:40](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0870E1303AA83D79A3A3AB45F8142446B99DB8AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

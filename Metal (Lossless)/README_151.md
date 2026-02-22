@@ -1,3 +1,264 @@
+###  Публикация: 1566128   (486516) от 27.07.2022
+
+Snake Eyes - No One Left To Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Masque Of The Red Death (00:05:05)
+02 - No One Left To Die (00:05:10)
+03 - Roi De Rats (00:04:00)
+04 - Underdog (00:03:59)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575E3DD88EEFDE840E5C284D277BF78B1400D0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566047   (486394) от 27.07.2022
+
+Sacral Night - Le Diademe D'argent (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Les miroirs de la lune (00:03:59)
+02 - Par dela les lueurs sepulcrales (00:01:26)
+03 - L'archange aux yeux de feu (00:03:57)
+04 - Conquerant des lumieres (00:04:21)(   Читать дальше...   )Жанр: Heavy, Death MetalПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5CA94BDE7446071D4DF3FDE43DF456AA629126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566042   (486390) от 27.07.2022
+
+Riptide - Masters of the Apocalypse (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Smoke (00:04:51)
+02 - Masters of the Apocalypse (00:06:33)
+03 - Fatal Retribution (00:06:04)
+04 - Cage of Regret (00:07:25)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227A69C18C11C23262D6556101FA9495E11AA835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319167   (486342) от 10.08.2019
+
+Slipknot - We Are Not Your Kind (2019) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insert Coin (01:40)
+02. Unsainted (04:21)
+03. Birth of the Cruel (04:36)
+04. Death Because of Death (01:20)(   Читать дальше...   )Жанр: Heavy Metal, Nu MetalПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0F780070E5BBC4EDE7B7524FA1E77F294DE904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159050   (486255) от 19.08.2017
+
+Сryоniс Теmple - In Thу Роwer (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Sleep Of The Innocent (Instrumental) (1:23)
+ 02 - When Hell Freezes Over (5:41)
+ 03 - In Thy Power (5:38)
+ 04 - Travellers In Time (5:15)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3463918F922C90EDD7D66548F46264A78FC11848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405178   (485836) от 29.08.2020
+
+Fleshcrawl - Into the Catacombs of Flesh (2019) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Catacombs of Flesh
+02. Mass Obliteration
+03. Ossuary Rituals
+04. Funeral Storm(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C8717EE6BF5D39275B82A7327E54134B639387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405157   (485833) от 29.08.2020
+
+Akiavel - V (2020) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Witness
+02.Rest In Reject
+03.Addicted to You Father
+04.Huntington(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C5A25FBF813F02FF64FA952DEFEF245512844A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405161   (485731) от 29.08.2020
+
+The Agonist - Orphans (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In Vertigo
+02.As One We Survive
+03.The Gift of Silence
+04.Blood As My Guide(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7B1D8C242BF0B309F70DDA9FD3FD9335510CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405269   (485462) от 29.08.2020
+
+John Petrucci - Terminal Velocity (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terminal Velocity [00:06:07]
+02. The Oddfather [00:06:25]
+03. Happy Song [00:06:01]
+04. Gemini [00:06:05](   Читать дальше...   )Жанр: Progressive Metal, Prog RockПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68CD12CD291CED3560FF3612055C519E56816E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405131   (485460) от 29.08.2020
 
 Crematory - Unbroken (2020) 2xCD [FLAC|Lossless|image + .cue] <Gothic Metal>
@@ -484,261 +745,6 @@ Heathen - Breaking the Silence (1987) Remaster, 1999, Century Media [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:814584F888D8905AFAC47B1C70C953C9346A0FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244270   (482037) от 01.09.2018
-
-U.D.O. - Steelfactory (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482037.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tongue Reaper (4:26)
-2. Make The Move (4:04)
-3. Keeper Of My Soul (4:02)
-4. In The Heat Of The Night (4:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCBE0F8D01EF09D3475C5E3E6113F77D188EDE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244425   (482034) от 01.09.2018
-
-U.D.O. - Stееlfасtоrу (2018) Limited Editiоn [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tongue Reaper
-02. Make The Move
-03. Keeper Of My Soul
-04. In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70E866860E6A9DF6FC3D87C3864008D84BF7A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938361   (481952) от 18.09.2015
-
-Leaves' Eyes - King Of Kings (2015) Deluxe Edition [FLAC|image+.cue]<Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweven
-02. King of Kings
-03. Halvdan the Black
-04. The Waking Eye(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288D774395C9E3CC24504357FCD56B9282534758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938412   (481825) от 18.09.2015
-
-Crossfaith – XENO (2015) Deluxe Edition [FLAC|Lossless]<Alt. Metal | Metalcore | Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Xeno
-03. Raise Your Voice
-04. Devil's Party(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Metalcore | ElectronicПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2EC4EE4230F1A32D66B328392299388996B42E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319623   (481221) от 13.08.2019
-
-Ihlo - Union (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Union (06:08)
-02. Reanimate (05:31)
-03. Starseeker (07:33)
-04. Hollow (06:59)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2AA791B747F79AC6D59908B4CC5850369DC769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319618   (481211) от 13.08.2019
-
-Legend - From the Fjords (1979) 40th Anniversary Edition (2019) Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Destroyer (05:08)
-02. The Wizard's Vengeance (03:25)
-03. The Golden Bell (07:13)
-04. The Confrontation (03:26)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB3E8D698F085B6373E95E47B38165186FEA097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566624   (480567) от 30.07.2022
-
-Adversor - Rise to Survive (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Echoes from the UprisingЖанр: Thrash MetalПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D65BA86BB23F36992D82D1668F80236850F95D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566698   (480566) от 30.07.2022
-
-Whipstriker - Troopers of Mayhem (2013) Reissue, 2015, PRC Music [FLAC|Lossless|image + .cue] <Heavy, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troopers of Mayhem (04:31)
-02. We Came from the Wild Lands (04:55)
-03. Lucifer Set Me Free (04:14)
-04. Genocide Now! (02:26)(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B9D15DCAC94A2C22BD42C6379D60CB6B1BB77B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566622   (480565) от 30.07.2022
-
-Acid Age - Drone Shark Ethics (2014) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knight of the Living ShredЖанр: Thrash MetalПродолжительность: 00:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885FDF001EF3E2E6219111721BCCCFEB08FB531C
 ```
 
 https://mybot314.ru/tekegram_catalog/

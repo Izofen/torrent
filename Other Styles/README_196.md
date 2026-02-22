@@ -1,3 +1,32 @@
+###  Публикация: 1764212   (34410) от 12.12.2024
+
+Andrés Segovia - The Segovia Collection (Vol. 9): The Romantic Guitar (1991) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Classical guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chant du Paysan, Op. 62, No. 2 (2:34)
+02. Waltz, Op. 12, No. 2 (2:06)
+03. Song Without Words, Op. 30, No. 3 (2:21)
+04. Canzonetta (4:32)(   Читать дальше...   )Жанр: Classical guitarПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83814E612EE5159ED003BEBDA5FB696BD5C85236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765000   (34392) от 12.12.2024
 
 The Chieftains - Tears of Stone (1999) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
@@ -716,35 +745,6 @@ VA - Emmanuelle - Instrumental Collection (2004) [FLAC|Lossless|image + .cue] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:441746F6F244231C2E6561275E981DE903DE86AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780247   (27316) от 17.02.2025
-
-Stive Morgan - Serenity (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above the Heavens, Pt. 1
-02. Sky Energy
-03. The Blue Sky in Your Eyes
-04. Serenity(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13244FF8ED4AFFABC099B308D36D0AEC07410375
 ```
 
 https://mybot314.ru/tekegram_catalog/

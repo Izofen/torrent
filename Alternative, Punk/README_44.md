@@ -1,73 +1,3 @@
-###  Публикация: 463309   (96199) от 10.03.2012
-
-Mim - Illegal Cure (2012) [MP3|320 кб/с]<Indie|Alternative|Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Check your progress [01:32]
-02 Euphoria theory [02:05]
-03 Choice [03:04]
-04 Interpretation [02:07]
-05 Alone [02:46]
-06 Rain [02:04]
-07 Reflex [02:54]
-08 Give me freedom [02:08]
-09 Like a joke [02:30]
-10 Stay positive [01:09](   Читать дальше...   )2012Жанр: Indie,  Alternative, ElectronicПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2663DE7CAB2C3C09DCBE2B6A2974AA0A15249902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463932   (95876) от 07.03.2012
-
-Elissa P. - Quickie Calendar (2010) [MP3|320 kbps]<Alternative Rock / Indie / Lo-Fi>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Good Egg/Bad Seed (4:10)
-02. The Ink Grows Cold (4:29)
-03. Good Comics (5:13)
-04. Bully Waltz (4:35)
-05. Color Therapy (3:49)
-06. Ode To Margot (4:10)
-07. Paintbrush (4:19)
-08. City Kids (4:02)
-09. I'd Get To Know You/Bobo Brazil (5:54)
-10. It's Not It! (4:07)(   Читать дальше...   )Жанр: Alternative Rock, Indie & Lo-FiПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE22B7F9A4098B3EDA497A3E7B10B26D2EFB52BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462923   (95699) от 05.03.2012
 
 Kaiser Chiefs - Start The Revolution Without Me (2012) [MP3|~245 кб/с (V0)]<Indie Rock, Britpop>
@@ -840,6 +770,68 @@ Smashing Pumpkins - 8 альбомов ,28 Синглов(1991-2008) [MP3|320 kb
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454198   (76892) от 18.02.2012
+
+Sinead O'Connor - How About I Be Me (And You Be You)? (2012) [MP3|320 kbps]<Indi Pop, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. 4th And Vine
+02. Reason With mé
+03. Old Lady
+04. Take Off Your Shoes
+05. Back Where You Belong
+06. The Wolf Is Getting Married
+07. Queen Of Denmark
+08. Very Far From Home
+09. I Had A Baby
+10. V.I.P.Жанр: Indi Pop, Folk RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D837D2F3D744A74661368DA208538436C2BA8566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448121   (75219) от 10.02.2012
+
+Katharina Nuttall -3 альбома (2007-2011) [MP3|320 kbps]<Indie Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Катарин Нутталл (Katharina Nuttall) - норвежская певица, композитор и продюсер. Родилась 14 июля 1972 года в Драммене, Норвегия. Nuttall живет в Стокгольме, Швеция.
+Элегантная, красивая, с потрясающим загадочно-ночным вокалом женщина. Все, что она творит вместе с музыкантами, это ее стиль - самобытный и неповторимый. И трудно поддающийся точной классификации.Жанр: Indie, Electronic, RockПродолжительность: 01:56:93
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196A7BDA4B7AE3B00A6D6E298FB750233B13875B
 ```
 
 https://mybot314.ru/tekegram_catalog/

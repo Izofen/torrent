@@ -1,3 +1,32 @@
+###  Публикация: 1602044   (1046255) от 03.01.2023
+
+N.Y. Fury - I Want It All (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play The Game [00:03:25]
+02. I Want It All [00:03:32]
+03. Danger I Face [00:03:39]
+04. Dance [00:03:06](   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB03B9633D91297036B912DF4B3DF131E6AEC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602136   (1046223) от 04.01.2023
 
 Loud House - Tonight Only (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -716,35 +745,6 @@ Driptorch - Deadrock City Nights (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:828317251FFEAC5FE3B971E1E681BFDB54DB73BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606930   (1044257) от 24.01.2023
-
-Padre Cuervo - Padre Cuervo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Soga [00:03:17]
-02. Chacal [00:03:37]
-03. The Cookbook for the Destruction [00:03:16]
-04. You Can't Escape from Hell [00:03:11](   Читать дальше...   )Жанр: Heavy Rock, Stoner MetalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9368E973AB691E6B68FA9AD5FBC5C92F775B4A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

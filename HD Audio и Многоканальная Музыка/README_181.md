@@ -1,3 +1,177 @@
+###  Публикация: 1781038   (70329) от 21.02.2025
+
+The Last Sentinel - Testament of the Tiamat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] < Power Metal, Sympho Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dawn of Creation (04:00)
+ 02. Breath of the Primordial (03:21)
+ 03. The Rise of Mortals (04:00)
+ 04. Age of Titans (04:00)(   Читать дальше...   )Жанр: Power Metal, Sympho MetalПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8F8F1B44BC56958C27034FAC94F2D301F37C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780960   (70317) от 21.02.2025
+
+King Gizzard & The Lizard Wizard - Live In Adelaide '19 (2023) (Live) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psychedelic Rock, Alternative Rock, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Evil Star (Live in Adelaide ’19) [2:35]
+02 - Planet B (Live in Adelaide ’19) [4:18]
+03 - Mars for the Rich (Live in Adelaide ’19) [4:14]
+04 - Venusian 1 (Live in Adelaide ’19) [4:48](   Читать дальше...   )Жанр: Psychedelic Rock, Alternative Rock, ElectronicПродолжительность: 01:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06C07CDBC8C4F8F4EE9D3E9A37F44886071E998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781289   (70307) от 22.02.2025
+
+Cerrone - Disco Symphony (Symphonic Version) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love in C Minor (Symphonic Version)
+02. Look For Love (Symphonic Version)
+03. Cerrone's Paradise (Symphonic Version)
+04. You Are the One (Symphonic Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699FBC1DAE118BFE5EED7608548722DDB0CDC275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780969   (70255) от 22.02.2025
+
+Valempar - Taboo Stories (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwave / Synthpop / Gothic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dance for Two [00:03:57]
+02. Children of The Sun [00:06:03]
+03. Take it Slow [00:03:32]
+04. Queen of My Pillow [00:03:06](   Читать дальше...   )Жанр: Darkwave / Synthpop / GothicПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124DAA82B85DBC3BADB6009A43E27B1138BCD2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781287   (70250) от 22.02.2025
+
+Greta Van Fleet - Studio Albums (4 releases) (2017-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard rock, Blues rock, Progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Greta Van Fleet - хард-рок -группа из Франкенмута, Мичиган (США)2017 - From The Fires (EP)
+2018 - Anthem Of The Peaceful Army
+2021 - The Battle At Garden's Gate
+2023 - StarcatcherЖанр: Hard rock, Blues rock, Progressive rockПродолжительность: 03:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE654F16C7372F156FBF78A93C82F53AAD4533F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781193   (70235) от 22.02.2025
+
+Von Hertzen Brothers - Studio Albums (9 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Von Hertzen Brothers - финская рок-группа, сформированная в 2000 году тремя братьями.2001 - Experience
+2006 - Approach
+2008 - Love Remains the Same
+2011 - Stars AlignedЖанр: Progressive RockПродолжительность: 08:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796CC5343902C10793666EE3898A6BE37C1AC58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781374   (70214) от 23.02.2025
 
 Starset - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic rock, Progressive rock>
@@ -570,180 +744,6 @@ Saliva & Judge & Jury - Revelation: Retold (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:972DA8D8EBC1907BE20DF235217E2D929FC677A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782169   (70055) от 27.02.2025
-
-Roni Lee - Feels Good 2 Be Bad (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Back From Hell (3:14)
-02.  Better Run (4:24)
-03.  Dirty Diana (4:46)
-04.  Good To Be Bad (6:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0785B9873152E3B0D9A6AF19715791D1A660AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782225   (70053) от 27.02.2025
-
-Arion - Like The Phoenix I Will Rise (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Darkest Day (1:54)
-02. The Light That Burns The Sky (3:42)
-03. Like The Phoenix I Will Rise (4:16)
-04. Wings Of Twilight (feat. Melissa Bonny) (4:31)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CE52685BB64BF429D2262D0B96633E1CB286A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782218   (70045) от 27.02.2025
-
-Brainstorm - Plague Of Rats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy-Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:17)
-02. Beyond Enemy Lines (5:21)
-03. Garuda (Eater Of Snakes) (4:17)
-04. False Memories (4:19)(   Читать дальше...   )Жанр: Heavy-Power MetalПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265AED870E39A3F5B9EA58F04404D618F44271E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782182   (70043) от 27.02.2025
-
-Slowman - The Invisible Son (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Invisible Son (4:18)
-02.  Restless (3:11)
-03.  Big Fat City Blues (2:48)
-04.  On Off (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6F8190CDCCF97E865CF87D4BA80CB2F29DAFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782372   (70027) от 28.02.2025
-
-Avantasia - Here Be Dragons (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Creepshow (Instrumental) [3:10]
-02 - Here Be Dragons (Instrumental) [8:54]
-03 - The Moorland At Twilight (Instrumental) [5:10]
-04 - The Witch (Instrumental) [4:16](   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E5DBEC267362D757D35F96AD16473D05A60A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782311   (70020) от 28.02.2025
-
-Sirrah (Poland) - Studio Albums (3 releases) (1996-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Death/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sirrah - польская метал-группа, играющая в стиле дум\дэт-метал, образовавшаяся в городе Ополе в 1992 году1996 - Acme
-1997 - Did Tomorrow Come
-2013 - Thrill You (Single)
-.Жанр: Gothic/Death/Doom MetalПродолжительность: 01:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827837427EC9DB8514073186E00439577922ABC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

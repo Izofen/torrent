@@ -1,110 +1,22 @@
-###  Публикация: 1036337   (621173) от 20.07.2016
+###  Публикация: 1229738   (622276) от 08.06.2018
 
-HoudahGeo 5.0.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621173.jpg" />
-</div>
-
-
-###  Подробнее
-
-HoudahGeo – программа для размещения географических координат в EXIF-тегах цифровых фотографий.
-HoudahGeo поддерживает множество методов геокодирования, начиная с автоматического до ручного. Используйте журнал GPS трека, справочные фотографий, сделанных с iPhone или выберите места на встроенных картах. HoudahGeo пишет метаданные EXIF, XMP, IPTC и в JPEG и RAW изображениях. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 июля 2016Разработчик: Houdah SoftwareПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22BB7C163F3D3AF83A431CFDDE3D5C3905E83B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036335   (621172) от 20.07.2016
-
-Stephane Grappelli - Jazz Collection (1973, 1974, 1989) 1989, Object Enterprises[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.More than you Know [04:15]
- 02.Et Maintenant [03:46]
- 03.I Found a New Baby [06:01]
- 04.It's Only Paper Moon [03:44](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDFF7F518B3A04A291E79FC15968179AD41A215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036412   (621171) от 20.07.2016
-
-Pebbles - Straight From My Heart (1995) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Club Laid Back (Intro) (2:53)
-02.Like The Last Time (4:07)
-03.'Are You Ready?' (4:36)
-04.I Can't Help It (5:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115EFF9BDC979BC8AF0B265DBDD65A6EADAC03AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035795   (621170) от 20.07.2016
-
-Волейбол. Гран-при 2016. Финал 6-ти. Бангкок(Таиланд). Матч за 3-е место. Нидерланды – Россия (10.07.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+SamDrivers 18.6 - Сборник драйверов для Windows [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621170.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 июля 2016, воскресенье. 11:00 МСК
-Финальный этап. 1-й дивизион. Матч за 3-е место. 5-й игровой день
-
-Стадион:  Хуамарк Индор Стэдиум (Бангкок, Таиланд), вместимость: 15000(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Татьяна Грачёва, Владимир Стецко)Продолжительность: 02:31:18
+Сборник драйверов от SamLab для всех 32-х и 64-битных операционных систем Windows, начиная от Windows 2000 и до Windows 10 RS3 включая серверные платформы.В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специализированные утилиты:DriverPack Solution 16.19 / Drivers Installer Assistant (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:921E9D6DC148697B5541646C546E1D0DB20C863E
+magnet:?xt=urn:btih:5709866C78847148E74DB889D8AA78BE4763A9A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,523 +24,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036458   (621169) от 20.07.2016
+###  Публикация: 1229828   (622275) от 08.06.2018
 
-VA - House EDM Witness Tech (2016) [MP3|~249 - 320 Kbps] <House, Funky, Progressive, Tribal House>
+MAGIX Vegas Pro 15.0 Build 361 [Multi/Ru]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621169.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alessandro - Awake (Original Mix) 07:13
-02. 2Groove And Disord3r - Ready Or Not 05:05
-03. Loverdose - My Point Of View (Original Mix) 06:53
-04. Barry Obzee - Beat Da System 05:57(   Читать дальше...   )Жанр: House, Funky, Progressive, Tribal HouseПродолжительность: 07:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63339CA2DAE73B38FF44FF988260F8460D5310F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036498   (621168) от 20.07.2016
-
-В теме. Бомба для СМИ (20.07.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621168.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В теме» - информационно-аналитическая программа. Известные политологи - о самых актуальных событиях и тенденциях в мире.Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7424F791D83E6DDD13552F14777B22F3F695840E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036443   (621167) от 20.07.2016
-
-VA - Terry Da Libra Presents Best Of Trance Vol.01 (2016) [MP3|320 Kbps] <Trance, Progressive Trance, Melodic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terry Da Libra - Best Of Trance 2016 (Continuous Mix) 00:59:26
-02. Terry Da Libra - Moonspell (Original Mix) 08:41
-03. Jacob Henry & Coastal - Serengeti (Original Mix) 08:07
-04. Schodt - White Tiger Feat. Aida Fenhel (Matt Lange 2012 Re-Master) 08:41(   Читать дальше...   )Жанр: Trance, Progressive Trance, MelodicПродолжительность: 02:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1668EBA95C1BC2F97FA5BAA78F0B5692F238E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035997   (621166) от 20.07.2016
-
-Игорь Ефимов | В Новом Свете (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бродский считал, что Игорь Ефимов «продолжает великую традицию русских писателей-философов, ведущую свое начало от Герцена». И вот теперь, опубликовав дюжину романов и полдюжины философских книг, Ефимов написал свой вариант «Былого и дум».
-«Связь времен. В Новом Свете» представляет развернутое описание жизни российской литературной эмиграции в конце ХХ века.
-За тридцать (   Читать дальше...   )Жанр: РоманПродолжительность: 19:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD26EB1474D47D921E4AE09E3DDF193A0D0C7A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036317   (621165) от 20.07.2016
-
-VA - Best Cocktail Party Music: Lounge and Jazzy Moods Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonic Elements - Until The Morning
-02. Flip Segers - Tumbao
-03. One Groove - Your Turn
-04. Port Grimaud Project - Think To A Girl(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAD70314AD48E564F38FC9EBA93986BB03AD53B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036455   (621164) от 20.07.2016
-
-VA - Works Receptor Liquid Body (2016) [MP3|243-320 Kbps] <Club, Soulful, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Kane - Echoes 07:00
-02. Nick Holder - Black Jazz #4 08:00
-03. Kush - Drive 07:09
-04. Askery Ft. Jax - Castle (Extended Mix) 04:52(   Читать дальше...   )Жанр: Club, Soulful, Nu DiscoПродолжительность: 08:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E765F5180831DF1246900059EDE8AF735B9A8B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036272   (621163) от 20.07.2016
-
-Dust Bolt - Mass Confusion (2016) Japanese Edition [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SickxBrain
-02. Mass Confusion
-03. Allergy
-04. Turned to Grey(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271A041F4FA6A15327CCCEC4CC249477D3560ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036500   (621162) от 20.07.2016
-
-Fields - Fields (1969) [MP3|320 Kbps] <Heavy Psych>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621162.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Elysian Fields
-2. Bide My Time
-3. Take You Home
-4. Jump On You(   Читать дальше...   )Жанр: Heavy PsychПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9E92E23F51703AD74CEF17BEA2DE6556167628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036114   (621161) от 20.07.2016
-
-Orden Ogan - Vale (2007) Reissue, Remastered, 2015 [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Graves Bay    01:16
-02.  To New Shores Of Sadness    06:14
-03.  Winds Of Vale    03:27
-04.  Farewell    03:50(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A0A20ABAB631A916248EFBA822F552719F457C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036169   (621160) от 20.07.2016
-
-Diana Rein - Long Road (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621160.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Long Road (6:36)
-2. Wild One (4:46)
-3. Livin' Loud (4:59)
-4. Green Light (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 0:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BC72744641B25182E76CF1278E0348A06D5BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036256   (621159) от 20.07.2016
-
-Together 3.5.14 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Together - Программа для хранения и организации файлов.
-Благодаря поддержке функции drag-and-drop, Together позволяет собирать изображения, текст, закладки и другие файлы, и хранить их в порядке. Все файлы можно делить на группы и папки, добавлять теги и ярлыки. А встроенная функция поиска поможет быстрой найти нужный файл.
-
-Приложение может хранить в своей базе (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 июля 2016Разработчик: ReinventedSoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A73215EE7B861226EA724ABC9CC1D062C8C2F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036394   (621158) от 20.07.2016
-
-VA - Top Radio Charts Sublime Multigenre (2016) [MP3|320 Kbps] <Trance, House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren -  Eiforya (Talla 2xlc 140 Radio Edit) 2:45
-002. Talla 2XLC pres. Alan Walker -  Faded (DJ Aleksard Mashup) 6:35
-003. W&W -  Lift Off! (Radio Edit) 3:04
-004. Photographer -  Airport (Radio Edit) 4:43(   Читать дальше...   )Жанр: Trance, House, ProgressiveПродолжительность: 09:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991D8E84C97AAD7096B78155E4282E541577C117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036334   (621157) от 20.07.2016
-
-VA - Clubbing Designer Long Days (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621157.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Headhunterz & KSHMR -  Dharma (Extended Mix) 3:56
-002. Cosmo & Skoro feat. Nathan Brumley -  Feel So Deep (Radio Edit) 2:56
-003. Bassjackers & Jay Hardway -  El Mariachi (Extended Mix) 4:26
-004. Sander Van Doorn -  Not Alone (Extended Mix) 4:57(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C90E39FE158FB4253BE61D1DE818A7F9D7180E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522876   (621155) от 14.07.2012
-
-VA - Русский Avto Club Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Sandro Escobar & Katrin Queen vs. Reflex - Non Stop (extended mix)
-02. A-Lika & Korol Lir - Любовь подставила (DJ Pomeha mix)
-03. Вера Брежнева - Реальная жизнь (DJ Vengerov remix)
-04. MaXimA - Так тихо (Fidel Wicked radio edit)
-05. Иракли vs. Бьянка - Белый пляж (DJ Kirill Clash & DJ Dmitriy Nema remix)
-06. Shyma - Ветрами (Flashtronica remix)
-07. Makhno Project - De Janeiro (extended mix)
-08. Lika Star - Точка росы (Tone Project club mix)
-09. Карина Крит feat. Chris Parker - Мое сердце (Radio edit)
-10. KOLA Project - Время (original mix)Жанр: Dance, ClubПродолжительность: 04:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0D65910A5A194A82E9FDED7D7D0419CCF1B8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522661   (621154) от 14.07.2012
-
-[Wallpapers 16+] Beautiful Girls Wallpapers (14.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 11680х1050 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E0BD5E432A8AF0FA7CED8930D0A14B119C39F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522207   (621152) от 14.07.2012
-
-[Wallpapers] HD Nature Wallpapers (13.07.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111966AF22F87228B15A49A25FE2F3ED1EA47F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519896   (621151) от 14.07.2012
-
-VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621151.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Supermodels - Sumasutra (3:52)
-2. Skyline - Sky L (4:25)
-3. New Deep Room (Night mix) - Alexis Montgomery (5:39)
-4. Black Diamond (deep progression mix) - Bass O' Matik (5:39)
-5. Mexico (feat Enjoy - Da vocal mix) - Karl Van Dee (5:42)
-6. Heaven & Paradise - K & C (3:59)
-7. Improbality (feat Voiceen - Phunkadeep mix) - Black Jag (5:39)
-8. We Can Dance (feat Barra Lopez - Modell & Mercier mix) - Caesar Anthony (5:44)Жанр: Deep HouseПродолжительность: 02:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD440D247F42CBA6639FB3D3C018130BC99DD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521959   (621150) от 14.07.2012
-
-Reverence - When Darkness Calls (2012) [WavPack|Lossless]<Heavy Metal/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Darkness Calls (5:01)
-02. Bleed For Me (4:11)
-03. Phantom Road (3:47)
-04. Devil In Disguise (4:31)
-05. Too Late (5:17)
-06. Gatekeeper (3:55)
-07. The Price You Pay (4:19)
-08. Monster (4:54)
-09. Revolution Rising (5:33)
-10. After The Leaves Have Fallen (3:36)(   Читать дальше...   )Жанр: Heavy Metal/Power MetalПродолжительность: 00:49:09
+MAGIX Vegas PRO — профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray (   Читать дальше...   )Язык интерфейса: Английский, испанский, немецкий, французский + русский
 
 ## Скачать торент
 ```bash
@@ -640,34 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 522827   (621149) от 14.07.2012
+###  Публикация: 1229771   (622274) от 08.06.2018
 
-VA - Club In Car Summer Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
+Драка в блоке 99 / Brawl in Cell Block 99 (2017) UHD BDRemux [H.265/2160p] [4K, SDR, 10-bit]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621149.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cathy Burton & Omnia - Hearts Connected (Skytech Remix)
-02. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
-03. Bartlett Bros & Matt Loki feat. Tiff Lacey - Sweet Child (Fabio XB Rework)
-04. Julian Vincent and Shannon Hurley - Lost In Space (DoubleV Remix)
-05. Andy Duguid feat. Shannon Hurley - I Want To Believe (Original Mix)
-06. S.K.A.M. - Outside The Box (Original Mix)
-07. David Amo, Julio Navas - I Can (Original Mix)
-08. Toni Braxton - I Heart You (Mark Picchiotti Re-Imagined Vocal Mix)
-09. Nicologik and Zephyr vs Tiff Lacey - Lost for Words (Extended Mix)
-10. Solarstone feat. Clare Stagg - The Spell (Pulser Mix)Жанр: Dance, ClubПродолжительность: 05:06:24
+Бывший боксер и наркодилер Брэдли Томас пытался завязать с преступным прошлым, но оно затащило его обратно. Он с подельниками попался с поличным и отправился в тюрьму на 7 лет. И всё это так не вовремя, жена беременна долгожданной дочкой, а тут ещё на свиданку заявляется непонятный тип и, шантажируя нерожденным ребенком, велит Брэдли убить заключённого в блоке 99 (   Читать дальше...   )Производство: США / Assemble MediaЖанр: драма, криминалРежиссер: С. Крэйг ЗалерАктеры: Винс Вон, Дженнифер Карпентер, Дон Джонсон, Удо Кир, Уилли С. Карпентер, Марк Блукас, Дион Муччиачито, Кларк Джонсон, Гено Седжерс, Фред МеламедПеревод: Дублированный (Лицензия R5), любительский двухголосый (RecentFilms), авторский (Дохалов)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 02:12:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6017EF703ED780771F5984B78D44D5A4DA338810
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,34 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 522261   (621148) от 14.07.2012
+###  Публикация: 1229784   (622273) от 08.06.2018
 
-Reverence - When Darkness Calls (2012) [MP3|320 кб/с]<Heavy/Power Metal>
+Не в себе / Unsane (2018) HDRip [MVO]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621148.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When Darkness Calls (5:00)
- 02. Bleed For Me (4:11)
- 03. Phantom Road (3:47)
- 04. Devil In Disguise (4:31)
- 05. Too Late (5:17)
- 06. Gatekeeper (3:55)
- 07. The Price You Pay (4:19)
- 08. Monster (4:54)
- 09. Revolution Rising (5:33)
- 10. After The Leaves Have Fallen (3:36)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:49:14
+Девушка покидает родной город, чтобы сбежать от проблемного прошлого и найти новую работу. Но когда она не по своей воле оказывается в психиатрическом учреждении, ей приходится столкнуться со своим самым большим страхом. Но реален ли он, или это - просто плод ее воображения? Героине кажется, что никто не верит ей, а власти не могут или не хотят помочь, поэтому она (   Читать дальше...   )Производство: США / Extension 765, New Regency PicturesЖанр: Ужасы, триллерРежиссер: Стивен СодербергАктеры: Джошуа Леонард, Клер Фой, Сара Стайлс, Марк Кадиш, Эми Ирвинг, Колин Вуделл, Мира Лукреция Тейлор, Линда Моз, Зак Черри, Полли МакКиПеревод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:38:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9C956D86962F05008B962756B9BDD053437E180
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,25 +102,512 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 522443   (621147) от 14.07.2012
+###  Публикация: 1229721   (622272) от 08.06.2018
 
-[картинки] Native American Art
+ProDAD Mercalli V4 SAL+ 4.0.458.1 [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mercalli 4 - интуитивный и простой инструмент для программной стабилизации видео, теперь с коррекцией Rolling Shutter и CMOS! SAL - самостоятельное приложение (не плагин). Mercalli обнаруживает и различает тряску между движениями (панорамирование и увеличение снимка, случайные удары или тряску). Программа Mercalli стабилизирует кадр, изменяя позицию всего изображения (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229295   (622271) от 08.06.2018
+
+Близкие контакты третьей степени / Close Encounters of the Third Kind (1977) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбои в подаче электроэнергии, возвращение из ниоткуда самолетов, исчезнувших в 1945 году, обескураживают ученых. Наименее скептичные люди науки расценивают эти явления, как прямое доказательство существования разумной инопланетной формы жизни. Рой Неари едет в пустыню, где были найдены самолеты, чтобы провести собственное расследование. Ночью его автомобиль застревает (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: фантастика, драмаРежиссер: Стивен СпилбергАктеры: Ричард Дрейфусс, Терри Гар, Франсуа Трюффо, Мелинда Диллон, Боб Бэлабан, Лэнс Хенриксен, Дж. Патрик Мак НамараПеревод: Профессиональный многоголосый, авторский.Субтитры: Русские, английские, испанские, французские, немецкие, португальские, арабские, китайские, хорватские, чешские, датские, голландские, финские, греческие, венгерские, исландские, итальянские, японские, корейские, норвежские, румынские, шведские, тайские, турецкиеПродолжительность: 02:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A79C64C40EBD3089F02D4EFC4EDFF817A438123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229821   (622270) от 08.06.2018
+
+Акт мести / Акты насилия / Acts of Violence (2018) BDRip [H.264/1080p-LQ] [MVO] [Extended Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы спасти свою невесту, которая попала в лапы торговцев людьми Роман должен вспомнить свои военные навыки и объединить усилия с бывшими сослуживцами и жестким полицейским, расследующим подобные дела.Производство: Великобритания, США / Colecar Productions, Emmett/Furla/Oasis Films (EFO Films), River Bay FilmsЖанр: Боевик, драмаРежиссер: Бретт ДонохуАктеры: Брюс Уиллис, Коул Хаузер, Шон Эшмор, Эштон Холмс, Мелисса Болона, Шон Броснан, София Буш, Майк Эппс, Тиффани Броувер, Дженна Б. КеллиПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73E6A297DA41C59C4774DF811F548C523325C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057127   (622269) от 08.06.2018
+
+EARTHLOCK: Festival of Magic (2016) [En] (1.2) License CODEX
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Earthlock: Festival of Magic — это ролевая игра, действие которой разворачивается в мире, переставшем вращаться вокруг своей оси из-за вмешательства темных сил. Главному герою по имени Амон предстоит разгадать тайну планеты и остановить культ тьмы, противостоящий ему.Тип издания: LicenseРазработчик: Thomas French, Snowcastle GamesЖанр: Adventure, RPG, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227953   (622268) от 08.06.2018
+
+Мельник (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-16 из 16)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622268.jpg" />
+</div>
+
+
+###  Подробнее
+
+После тяжелого ранения, бывший майор Роман Мельник дослуживает «выслугу» до пенсии в конвойных войсках ФСИН в должности начальника выездного караула. В одну из смен он сопровождает партию особо опасных преступников в специальном вагоне поезда. Остановившись на одной из станций, Мельник по служебной необходимости отлучается. В это время в вагон проникает неизвестный (   Читать дальше...   )Производство: Россия / Компания "Платформа кино", Киностудия "МИМ" по заказу телеканала НТВЖанр: детективРежиссер: Станислав МареевАктеры: Сергей Шнырев, Сергей Паршин, Александр Константинов, Роман Грибков, Игорь Черневич, Наталья Высочанская, Вячеслав Гасай, Юрий Ковалев, Антон Чернов, Сергей ВоробьёвПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BD372E9A27C323580A53C7B6D6BF9DDDB94559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229849   (622267) от 08.06.2018
+
+Movavi Video Suite 17.5.0 RePack by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Suite – это пакет программ на русском языке, который поможет вам без труда смонтировать отличный фильм, музыкальный клип или слайд-шоу, даже если вы совсем новичок в создании видеороликов. Накладывайте музыку, применяйте визуальные эффекты, добавляйте титры и стильные переходы – обрабатывайте видео на свой вкус! Также в Movavi Video Suite входит набор (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A06191D818917C66EB64DE3C317AA3F41D3066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105094   (622266) от 08.06.2018
+
+Шрифты - NNM-Club - Astakhov Dished - 1105094 [OTF, TTF, EOT, WOFF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное семейство шрифтов (в т.ч. OFL)
+Количество / Штук: 75
+Разработчик: D. Astakhov
+(   Читать дальше...   )Формат: OTF, TTF, EOT, WOFF, SVG
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229799   (622265) от 08.06.2018
+
+Тихоокеанский рубеж 2 / Pacific Rim: Uprising (2018) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда пилотируемых роботов-защитников остановила вторжение гигантских инопланетных монстров. Великая битва за Тихоокеанский рубеж ознаменовала новую главу в истории человечества. Однако война только начинается…Производство: США, Китай, Великобритания, Double Dare You (DDY), Double Negative, Legendary Pictures, Perfect World (Beijing) Pictures Co., Twisted Media, Universal PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Стивен С. ДеНайтАктеры: Джон Бойега, Скотт Иствуд, Кэйли Спэни, Берн Горман, Чарли Дэй, Цзин Тянь, Макс Чжан, Адриа Архона, Ринко Кикути, Каран БрэрПеревод: Дублированный (iTunes)Субтитры: Русский (Forced, Full), английский (Full)Продолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A875C50EB57B4AA5661FAEB26B5FA6D21C5A2C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229747   (622264) от 08.06.2018
+
+GROUND a.k.a Gr◯un土 - WAKUSEI -惑星- (2018) Chill Mountain Rec [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Abstract>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WAKUSEI -α- (07:39)
+ 02. WAKUSEI -β- (07:50)
+ 03. WAKUSEI -γ- (09:25)
+ 04. WAKUSEI -2095- (15:39)(   Читать дальше...   )Жанр: Experimental, Techno, AbstractПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C69728E8F9F59EEEA99EB832F63F061C6C3298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229825   (622263) от 08.06.2018
+
+Sasha - Scene Delete & Remixes (2016-2017) LateNightTales [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Experimental, IDM, Tech House, Deep House>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detour (Eat Lights Become Lights Remix) (06:59)
+ 02. Shelter (Christian Loffler Remix) (06:08)
+ 03. Bring On The Night-time (Stet Remix) (04:31)
+ 04. Channel Deq (Max Cooper Remix) (06:59)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo, Ambient, Experimental, IDM, Tech House, Deep House •Продолжительность: 01:12:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229802   (622262) от 08.06.2018
+
+Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь небесных добродетелей [2018, TV, 10+2  из 10+2] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает о жизни в Небесном Царстве семи хранительниц добродетелей: Михаил (хранительницы Веры), Уриэль (хранительницы Терпения), Сариэль (хранительницы Смирения), Сандалфон (хранительницы Усердия), Метатрон (хранительницы Любви), Рафаил (хранительницы Умеренности) и Гавриил (хранительницы Целомудрия). Семь смертных грехов — демоны из ада — начали распространять (   Читать дальше...   )Производство: студияЖанр: приключения, фэнтези, эттиРежиссер: Исихира Синдзи / Ishihira Shinji / 石平信司Перевод: русский: (Risens Team), (Jenia aka Zub); английский: (Scum)Язык озвучки: Русский
+TV-1 (Anilibria) - внутри контейнераЯзык субтитров: Русский, АнглийскийПродолжительность: 10 эпизодов по 5 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931FBB7EB564F1B409E8D7A70EE67ED7B9014374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229811   (622261) от 08.06.2018
+
+Акт мести / Акты насилия / Acts of Violence (2018) BDRip [Extended Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы спасти свою невесту, которая попала в лапы торговцев людьми Роман должен вспомнить свои военные навыки и объединить усилия с бывшими сослуживцами и жестким полицейским, расследующим подобные дела.Производство: Великобритания, США / Colecar Productions, Emmett/Furla/Oasis Films (EFO Films), River Bay FilmsЖанр: Боевик, драмаРежиссер: Бретт ДонохуАктеры: Брюс Уиллис, Коул Хаузер, Шон Эшмор, Эштон Холмс, Мелисса Болона, Шон Броснан, София Буш, Майк Эппс, Тиффани Броувер, Дженна Б. КеллиПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D295C99189D494791BA40E149E2C8624A423C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229839   (622260) от 08.06.2018
+
+Акт мести / Акты насилия / Acts of Violence (2018) BDRemux [H.264/1080p] [Extended Cut]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы спасти свою невесту, которая попала в лапы торговцев людьми Роман должен вспомнить свои военные навыки и объединить усилия с бывшими сослуживцами и жестким полицейским, расследующим подобные дела.Производство: Великобритания, США / Colecar Productions, Emmett/Furla/Oasis Films (EFO Films), River Bay FilmsЖанр: Боевик, драмаРежиссер: Бретт ДонохуАктеры: Брюс Уиллис, Коул Хаузер, Шон Эшмор, Эштон Холмс, Мелисса Болона, Шон Броснан, София Буш, Майк Эппс, Тиффани Броувер, Дженна Б. КеллиПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229789   (622259) от 08.06.2018
+
+Zомбоящик (2018) WEB-DL [H.264/1080p-LQ]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во времена Шекспира весь мир был театром, в наши же дни его захватил зомбоящик. 30 звезд ТНТ. Все жанры: драма, комедия, боевик, триллер, научная фантастика, байопик, эротика и экспериментальное кино. От бессмысленного и беспощадного стеба не скроется никто: ни футболисты, ни геи, ни чиновники, ни священники, ни расисты, ни онанисты! Герои «Zомбоящика» интригуют, (   Читать дальше...   )Производство: Россия / Comedy Club Production, ТНТЖанр: КомедияРежиссер: Константин СмирновАктеры: Гарик Харламов, Гарик Мартиросян, Тимур Батрутдинов, Александр Ревва, Павел Воля, Екатерина Варнава, Андрей Скороход, Роман Юнусов, Ольга Бузова, Анна ХилькевичПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229690   (622258) от 08.06.2018
+
+Мир Юрского периода 2 / Jurassic World: Fallen Kingdom (2018) TS [H.264/720p-LQ] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622258.jpg" />
+</div>
+
+
+###  Подробнее
+
+На острове Исла-Нублар, где не так давно располагался парк развлечений с динозаврами, правит бал дикая природа. Но без людей все далеко не так спокойно, как могло бы показаться. Основатели парка приняли решение построить его, несмотря на активный вулкан, расположенный в сердце острова. Вулкан пробудился и рискует потопить остров в лаве. Управляющая парка Клэр Дэринг (   Читать дальше...   )Производство: США, Испания, Amblin Entertainment, Apaches Entertainment, Legendary Pictures, Perfect World Pictures, Universal PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Хуан Антонио БайонаАктеры: Брайс Даллас Ховард, Крис Пратт, Джефф Голдблюм, Тед Левайн, Джеймс Кромуэлл, Тоби Джонс, Б.Д. Вонг, Рейф Сполл, Даниэлла Пинеда, Джеральдин ЧаплинПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:58:01Реклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083447   (622257) от 08.06.2018
+
+Space Hulk: Deathwing (2018) [Ru/Multi] (2.39/dlc) Repack =nemos= [Enhanced Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Space Hulk: Deathwing – игра в жанре шутер от первого лица (FPS), основанная на классической настольной игре Space Hulk от Games Workshop. Действие игры происходит во вселенной Warhammer 40000. Проект Space Hulk: Deathwing разработан на технологии Unreal Engine 4 и дает вам шанс вступить в яростную схватку с Генокрадами в тесных коридорах Космического скитальца в (   Читать дальше...   )Тип издания: RepackРазработчик: Streum On StudioЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FA6E2B0DE68E309A3D34DD2754EBE659C9990A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520574   (622253) от 13.07.2012
+
+Shank - Дилогия [Ru/En] (RePack) 2010-2012 l R.G. Механики
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шанк возвращается в новом экшен-платформере Shank 2. Близкие ему люди оказались в беде, и теперь нашему герою предстоит защитить их. Для этого в арсенале у Шанка имеются пистолеты, ружья, бензопилы, мачете, гранаты, а также новые виды оружия.
+В Shank 2 присутствует кооперативный режим Survival Mode, который позволяет вместе с друзьями в онлайне или локально истреблять врагов, а также обновленная боевая система, позволяющая использовать более обширный арсенал и даже применять оружие боссов против них же.(   Читать дальше...   )Тип издания: RePackРазработчик: Klei EntertainmentЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867F623F349F575CCA7537AB6C94F7C3E702E755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522358   (622245) от 13.07.2012
+
+Blades of Time / Клинки Времени [Ru/En/Multi7] (RePack/u5) 2012 | R.G. Catalyst
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аюми — бесстрашная охотница за сокровищами. Она великолепно вооружена и необычайно прекрасна. В поисках ценных трофеев девушка отправляется на таинственный и, конечно же, полный опасностей остров. Как выяснилось, это место богато не только сокровищами — оно буквально пропитано гнетущей магией Хаоса. А очень скоро Аюми поймет, что остров скрывает множество древних тайн и может подарить немало полезных навыков и способностей.
+Используя все, что подвернется под руку: мечи, ружья, а главное, революционно новую игровую механику «Перемотка времени» - способность поворачивать время вспять - Аюми изящно и зрелищно расправится с полчищам врагов и разгадает десятки удивительных головоломок, избежит хитроумных смертельных ловушек и вырвется из цепких объятий мистического острова.
+Колоритные персонажи, сногсшибательные визуальные спецэффекты, горы сокровищ, огромное разнообразие боевых умений — Blades of Time оставит незабываемые впечатления не только у начинающих геймеров, но и у самых взыскательных поклонников приключенческих экшенов.(   Читать дальше...   )Тип издания: Repack (Лицензии)Разработчик: Gaijin EntertainmentЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: Русский, Английский, Multi7Язык интерфейса: Русский, Английский, Multi7
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8106A4E180F087C67B3CBFD694A1E29B4545F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522302   (622244) от 13.07.2012
+
+Напролом / Lockout [UNRATED] (2012) HDRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621147.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На мой взгляд довольно интересные художники пишущие картины с индейцами.
+Орбитальная станция MS1 — крупнейшая космическая тюрьма, где в анабиозе содержатся тысячи опасных преступников.
+Ходят слухи, что над погруженными в искусственный сон узниками проводятся противозаконные эксперименты.
+С расследованием на станцию отправлена комиссия во главе с Эмили Уорнок, дочерью президента США.
+Неожиданно ситуация выходит из-под контроля, и вся станция оказывается захвачена уголовниками.
+Спецагент Сноу, несправедливо обвиненный в государственной измене,
+получает задание проникнуть в самую неприступную тюрьму во Вселенной и спасти Эмили.
+Это его единственный шанс вернуть себе доброе имя и получить свободу.Жанр: Фантастика, Боевик, ТриллерРежиссер: Джеймс Мэтер, Стивен Ст. ЛеджерПродюсер: Марк Либерт, Лейла Смит, Люк БессонАктеры: Гай Пирс, Мэгги Грэйс, Винсент Риган, Джозеф Гилган, Ленни Джеймс, Петер Стормаре, Джеки Идо, Тим Плестер, Энн-Соленн ХаттеПеревод: ДублированныйПродолжительность: 01:35:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:061A3E7AC2546D336BA408B6DB2E9973B48D6921
+magnet:?xt=urn:btih:59837A6B2C08AA5F63CFEFB96652FBEBD9D568C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -736,25 +615,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 522243   (621145) от 14.07.2012
+###  Публикация: 522662   (622242) от 13.07.2012
 
-[Wallpapers]Cool Mixed HQ Colorful Wallpapers 06
+Военная разведка. Западный фронт (2010) DVB (сезон 1, серии 1-8 из 8)
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621145.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_622242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+Военно-приключенческий телефильм о работе военных разведчиков в годы Великой Отечественной войны.В центре повествования – секретная группа разведчиков (будущее ГРУ, а в то время – 5-е управление РККА), военных диверсантов, которые выполняют особо опасные, секретные и «деликатные» задания.
+
+Каждый фильм (две серии) – законченное дело. Простых заданий группа не получает, (   Читать дальше...   )Производство: Россия, Никола ФильмЖанр: приключения, военныйРежиссер: Алексей ПраздниковАктеры: Филипп Азаров, Степан Бекетов, Павел Трубинер, Борис Щербаков, Сергей Кошонин, Евгений Ганелин, Лев Дуров, Владимир Гостюхин, Лянка Грыу, Андрей ИльинПродолжительность: 8 х ~ 00:52:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17EBC007A9253403526FF48F8E71D54CC13F74C5
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521148   (622241) от 13.07.2012
+
+Гнев Титанов / Wrath of the Titans (2012) [H.264/1080p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя десятилетие после героической победы над чудовищным Кракеном Персей пытается жить спокойной жизнью деревенского рыбака и отца-одиночки. В то же время между титанами и богами начинается борьба за власть. Олимпийцы, утратившие былую преданность людей, теряют контроль над тюрьмой, в которой заключены титаны и их глава Кронос. Сила титанов растет, в то время как (   Читать дальше...   )Производство: США, Warner Bros. Pictures, Legendary Pictures, Cott ProductionsЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Джонатан ЛибесманАктеры: Сэм Уортингтон, Лиам Нисон, Рэйф Файнс, Эдгар Рамирез, Тоби Кеббелл, Розамунд Пайк, Билл Найи, Дэнни Хьюстон, Джон Белл, Лили ДжеймсПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7DB53DA7D0355777CDCE66B2E88D3D611D2B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521276   (622239) от 13.07.2012
+
+Ice Age: Continental Drift - Arctic Games / Ледниковый период 4: Континентальный дрейф - Арктические Игры [Ru/En] (RePack/1.0) 2012 l R.G. ReCoding
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятные арктические приключения доисторических друзей!
+После того как земная суша раскололась на множество материков (не без помощи одной не в меру любопытной крысобелки), началось самое захватывающее приключение величайших героев доисторического мира. И однажды оно привело их в одно из самых загадочных мест Земли – в Арктику!
+Могучий и угрюмый мамонт, безудержно болтливый ленивец, гордый и преданный саблезубый тигр, та самая крысобелка, одержимая страстью к желудям, и другие любимые персонажи ждут вас в игре по мотивам анимационного фильма «Ледниковый период 4: Континентальный дрейф». Присоединяйтесь к героям ледникового периода в этом потрясающем мультиплатформенном экшене. (   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Adventure / For KidsЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9A6F80E2F9210281A3262E16A49505EABB7B29
 ```
 
 https://mybot314.ru/tekegram_catalog/

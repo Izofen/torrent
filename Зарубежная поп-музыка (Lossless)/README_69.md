@@ -1,3 +1,32 @@
+###  Публикация: 1423206   (295570) от 15.11.2020
+
+VA - Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Disco Explosion - I Love You (3:12)
+02. The Starlite Singers - South of the Border (Down Mexico Way) (3:04)
+03. Countdown Nashville - That's the Way Love Goes (3:05)
+04. The New Broadway Players - Hello Young Lovers (3:18)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 05:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5357F9D32360F6C7C65D4C585E8F03C8C4C9364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 732149   (295533) от 08.12.2013
 
 Air Supply - Greatest Hits (1984) [FLAC|Lossless]<Pop, Rock, Soft-Rock, Adult Contemporary>
@@ -718,35 +747,6 @@ Demis Roussos - Attitudes + Bonus tracks from Reflection (1995) [FLAC|image+.cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EB0DBB04E1F493C61C986259DB2F76AFF8ACAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963885   (285504) от 09.12.2015
-
-Demis Roussos - The Singles+ (2003) 2CD [FLAC|image+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Shall Dance 3:33
-02. Fire And Ice 4:33
-03. No Way Out 3:10
-04. My Reason 3:58(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C79EAFC44F9E7B1099D4068516415160C76222
 ```
 
 https://mybot314.ru/tekegram_catalog/

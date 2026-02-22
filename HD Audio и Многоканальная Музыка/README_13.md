@@ -1,3 +1,177 @@
+###  Публикация: 1381521   (826134) от 07.05.2020
+
+Andy Williams - The Andy Williams Sound of Music (1968) 2xLP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826134.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Sound of Music
+A2 That Old Feeling
+A3 Quiet Nights of Quiet Stars (Corcovado)
+A4 Let It Be Me(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 01:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BBDA74124C619F8598F4FDA3F70CE3B441445B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196121   (825797) от 01.01.2018
+
+VA - Песни Виктора Дорохина и Любови Воропаевой - Девочка Моя Синеглазая (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Vinyl-Rip] <Pop, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825797.jpg" />
+</div>
+
+
+###  Подробнее
+
+[6:18] 01. Евгений Белоусов - Девочка моя синеглазая
+[4:55] 02. Екатерина Семенова - Мужчина, который спешит
+[4:00] 03. Евгений Белоусов - Алушта
+[4:11] 04. Екатерина Семенова - На минутку(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA940BC928DDC3F906FF8072977DFBCCC6CAFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 654327   (824907) от 10.05.2013
+
+Ambra – Child Of The Universe (2003) [DSD 5.1, 2.0 1bit/2822,4kHz | SACD-R] <New Age, Electronic, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.    Infinite Space (Part 1)    01:49
+02.    Infinite Space (Part 2)    01:39
+03.    The Rebirth Of The Sun    04:01
+04.    La Renaissance Du Soleil    05:20(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738A09E46FB9421A80006CEED6FB34A1EFA57D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006983   (824796) от 13.04.2016
+
+Fiona Joy Hawkins - 600 Years in a Moment (2013) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    600 Years    06:25
+2.    Naked Love    05:36
+3.    The Journey    05:55
+4.    Earthbound    04:06(   Читать дальше...   )Жанр: new ageПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA554F97074C6D2723914B3346F7036251221D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116120   (824358) от 19.03.2017
+
+Bonnie Tyler - Natural Force (1978) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Pop Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824358.jpg" />
+</div>
+
+
+###  Подробнее
+
+side A
+A1 It's A Heartache
+A2 Blame Me
+A3 Living For The City(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2906884ADBF37668CA2AD34CEE6069019342E8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116642   (822065) от 20.03.2017
+
+Depeche Mode - Spirit (2017) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822065.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Going Backwards (5:43)
+ A2. Where's The Revolution (4:59)
+ A3. The Worst Crime (3:48)
+ A4. Scum (3:14)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CEC420DC3E5414FF59DA2B5823983FE25E3B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007631   (820896) от 15.04.2016
 
 AIX Records - A Demonstration and Test Disc (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <sampler, classic, jazz>
@@ -576,183 +750,6 @@ Felix Slovacek - Феликс Словачек (1984) [FLAC 2.0|96/24|image+.cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC28C996ED3D7DC1867ABCC338DA2C793D59903C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010747   (802031) от 25.04.2016
-
-Inside The Music: New Wave (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <new wave>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802031.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Way or Another / Blondie 03:45
-2. My Sharona / Knack 04:56
-3. Destination Unknown / Missing Persons 03:14
-4. Eyes Without a Face / Billy Idol 05:08(   Читать дальше...   )Жанр: new waveПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CF04395C9007A460321D0B22D38B9F6198E358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120592   (801927) от 31.03.2017
-
-VA - RETROспектива, часть XV. Мелодии и песни из кинофильмов IV (1937-1965) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ефим Нейд - Песенка (из к.ф. ''Антон Иванович сердится'')
-02. Даниил Демьянов - Песня о Родине (из к.ф. ''Цирк'')
-03. Николай Рогатин - Песня о Каховке (из к.ф. ''Три товарища'')
-04. Глеб Романов - Песня Раджа (из к.ф. ''Бродяга'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A630B7E99141755C404C61C6BD7EC9978C1935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120932   (801204) от 01.04.2017
-
-VA - Мелодии экрана, 6 серия (1961) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вокальный ансамбль - Дружные ребята (из к/ф «Песня зовёт»)
-02. Аби Зейдер (труба) - Ноктюрн (из к/ф «Озорные повороты»)
-03. Батыр Закиров - Песня (из к/ф «Служба»)
-04. Лили Гегелия - Романс (из к/ф «Заноза»)(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:25:42
-Издатель (лейбл): ВФГ "Мелодия", Рижский завод (USSR)
-Номер по каталогу: Д - 8849-50
-Кодек: FLAC (tracks)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5AD1D070CCD149F1F40C9547AC5231C3580B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121148   (801075) от 01.04.2017
-
-Freddie Mercury - Mr. Bad Guy (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801075.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Let's Turn It On (3:40)
-A2. Made In Heaven (4:07)
-A3. I Was Born To Love You (3:39)
-A4. Foolin' Around (3:30)(   Читать дальше...   )Производство: CBS/Sony - 28AP 3030Жанр: RockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B451868567EF8C47C915D57443E5C0D140A860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199003   (800961) от 16.01.2018
-
-Органическая Леди - Белый Город (1993) [DSD2.0|5,64MHz/1bit|image+.cue|МС-Rip] <Techno-Pop, Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Роза ветров
-02. Женщина ниоткуда
-03. Наш путь
-04. Звёздный бал(   Читать дальше...   )Жанр: Techno-Pop, SynthpopПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C929F8D586642B3088BBEB05B4F7D31590C7A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506326   (799933) от 31.10.2021
-
-U2 - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799933.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Discotheque
-A2 Hold Me, Thrill Me, Kiss Me, Kill Me
-A3 Stay (Far Away, So Close)
-A4 One(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369927D69F9F18DA4081556D83D864D7B84E64F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

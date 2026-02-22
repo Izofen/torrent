@@ -1,3 +1,177 @@
+###  Публикация: 1567863   (451350) от 13.08.2022
+
+Sixx: A.M. (58, Brides Of Destruction) - Дискография (2007 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sixx:A.M. — американская супергруппа, основанная в 2007 году бас-гитаристом Mötley Crüe Никки Сиксом как сторонний проект. Для записи материала был приглашен гитарист Диджей Ашба и Джеймс Майкл на роль вокалиста. Название группы происходит от фамилий участников (Sixx, Ashba, Michael).2007 (2017) - The Heroin Diaries Soundtrack (10th Anniversary Edition)
+2011 - This Is Gonna Hurt
+2014 - Modern Vintage
+2016 - Prayers For The DamnedЖанр: Hard RockПродолжительность: 07:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0666DEDB59D17C5D16E425DC31F60F687E27FE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061186   (448348) от 10.10.2016
+
+Московский Камерный оркестр - В. А. Моцарт – Симфонии №40, №24 (1975) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Симфония № 40 Соль Минор, К.550
+1. Molto Allegro  8:40
+2. Andante  15:30(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C790170D765C41EFDF499BE435AB0C27DB8B2FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061105   (448338) от 10.10.2016
+
+Enigma Club - Амазония (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <World Music, Ethnic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ancestor
+02. Black Elk
+03. Raben's Light
+04. Craftsman's Prelude(   Читать дальше...   )Жанр: World Music, Ethnic
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EB5B761C0D0747A2090124554332430BB0AFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061148   (448105) от 10.10.2016
+
+Эмиль Гилельс - Л. Бетховен (Сонаты "Патетическая" и "Лунная") (1979) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Соната №8 до минор "Патетическая", соч. 13
+1. Grave. Allegro Molto E Con Brio  8:22
+2. Adagio Cantabile  5:42(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D66340AFB8ECE3EEBBF8E2625F9AF15A40949EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943330   (446906) от 04.10.2015
+
+Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(Vinyl-Rip)]<Industrial, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Strangers [5:36]
+02. Deep Six [5:02]
+03. Third Day Of A Seven Day Binge [4:30]
+04. The Mephistopheles Of Los Angeles [5:01](   Читать дальше...   )Жанр: Industrial, Alternative RockПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA99CAB69897FAB4510C74E7EB34D623F0042E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570206   (444820) от 16.08.2022
+
+David Crosby - If I Could Only Remember My Name (1971) Reissue, 2022, Mobile Fidelity Sound Lab [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music Is Love
+02. Cowboy Movie
+03. Tamalpais High (At About 3)
+04. Laughing(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FC23E0C52ACD0F0356C7D7C0D12C86993D2A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248291   (444513) от 19.09.2018
 
 Алексей Покровский - Русские Народные Песни И Романсы (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Poetry, Folk>
@@ -579,179 +753,6 @@ Incubus — американская альтернативная рок-гру�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:498D7C5238B757291021C5700507A34100F0873D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708265   (430462) от 08.10.2013
-
-Boston Symphony Orchestra, Erich Leinsdorf - Prokofieff - Romeo And Juliet (1968) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical, Romantic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1  28:07
-Einleitung - Das Madchen Julia - Masken - Tanz Der Ritter - Gavotte Der Aufbrechenden Gaste - Romeo - Liebestanz - Tanz Fur Funf Paare Der Festgesellschaft
-Сторона 2  23:53
-Das Duell Und Der Tod Tybalts (Romeo Beschliet, Mercutios Tod Zu Rachen) - Finale Des II. Aktes - Zwischenspiel - Julia (In Ihrem Hause) - Morgendstandchen - Tanz Der Madchen - Zwischenspiel (Einleitung Des III. Aktes) - Julias Totenfeier - Der Tod Der LiebendenЖанр: Classical, RomanticПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5A6FB86C5870DDFD5B8BD06CA43BF65D2AC474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165567   (430305) от 14.09.2017
-
-Glenn Miller - World Music Collection (2002) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Big Band>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. In The Mood
-02. Sunrise Serenade
-03. Astring Of Pears(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961134FFE7F4A0D7C3B9758766A179722CC0CDBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946192   (429327) от 12.10.2015
-
-Cutting Crew - Broadcast (1986) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429327.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Any Colour (4:42)
-A2. One For The Mockingbird (4:27)
-A3. I've Been In Love Before (5:12)
-A4. Life In A Dangerous Time (4:33)(   Читать дальше...   )Производство: Siren Records (Virgin) / Toshiba EMIЖанр: Pop RockПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F2DF981A73F72A2F0EC219A70B65D12AE6CB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571801   (427511) от 24.08.2022
-
-The Post Scriptum group - Post Scriptum (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427511.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A Song For You
-A2 Fall Is At Your Door
-A3 A Song That's Always New
-A4 Shadow On My Wall(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD1BE2956AA503135084D0027CAC3006092CDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571844   (427510) от 24.08.2022
-
-Tempest - Дискография (2018 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tempest - немецкая трэш-метал группа из Аахена, основана в 2013 году Филом Пирисом и Марко Шефером.
-Tempest поставили перед собой задачу донести свою современную и зрелую интерпретацию трэш-метала до поклонников и тех, кто хочет им стать. С одной стороны, влияние великих трэшевых икон вообще невозможно скрыть, поэтому велосипед вообще не стоит изобретать, а с другой (   Читать дальше...   )2018 - When Hate Has Dominion
-2022 - Point of No ReturnЖанр: Thrash MetalПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E947E88F3B70B38407E60B17E797932E3A969BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709191   (426034) от 10.10.2013
-
-Аквариум - История Аквариума: Архив Том III (1991) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426034.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Диплом (4:01)
-A2. 15 голых баб (Увы) (2:20)
-A3. Среди миров (1:23)
-A4. Трудовая пчела (6:12)(   Читать дальше...   )Жанр: РокПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

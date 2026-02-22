@@ -1,3 +1,32 @@
+###  Публикация: 941665   (460049) от 28.09.2015
+
+Children Of Bodom & Amorphis - Tales From Lake Bodom (2015) Split [FLAC|image+.cue]<Melodic Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Children Of Bodom:
+01. Suicide Bomber
+02. Halo Of Blood (Live at Summer Breeze 2014)
+03. Black Winter Day (Amorphis Cover)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D6FB5CC4FC135FD99C20B6A7C6A8E553234F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941801   (460048) от 28.09.2015
 
 VA - Chilling About Us (Royalties Free Chill Music Selection) (2015) [FLAC|tracks]<Lounge, Chill Out>
@@ -656,35 +685,6 @@ VeraCrypt 1.15 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8412EC59C31EEAFEABDC191F8AF68F118E469742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059830   (459864) от 05.10.2016
-
-SnapNDrag Pro 4.1.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459864.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapNDrag - органайзер, нарезка скриншотов, редактирование, шаринг.
-SnapNDrag - Небольшая утилита для создания скриншотов. SnapNDrag позволяет делать снимок экрана всего одним нажатием кнопки, и сразу перетащить готовый результат в другое приложение для дальнейшей работы с ним.
-
-SnapNDrag поддерживает PNG, JPEG и TIFF форматы, если на первом месте стоит качество, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 октября 2016Разработчик: Yellow Mug SoftwarПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1882B1430253FBCD9C70C95672536D6ED6B5A96
 ```
 
 https://mybot314.ru/tekegram_catalog/

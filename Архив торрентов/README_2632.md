@@ -1,3 +1,29 @@
+###  Публикация: 1143412   (633010) от 19.06.2017
+
+Фейри Тейл OVA | Fairy Tail OVA | Хвост Феи ОВА [2011, OVA, 9 эп.] DVDRip raw
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ответвления от сюжета основного сериал, подробнее см. под спойлером.Производство: ЯпонияЖанр: приключения, фэнтези, комедия, эттиРежиссер: Исихира СиндзиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (9 эп.), 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F7EFA9DEC18E8DEF7D4C9A78B8470C993E9EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520332   (632965) от 08.07.2012
 
 Бокс. Владимир Кличко - Тони Томпсон (2012) HDTVRip [H.264/720p]
@@ -688,35 +714,6 @@ Alice Francis - Gangsterlove (2013) [MP3|320 кб/с]<Nu Swing, Nu Jazz, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F0055D6002942DAD9E83475BAF55D1669C6D22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034788   (632515) от 14.07.2016
-
-Benny Benassi - Danceaholic (2016) [MP3|192 Kbps] <House, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benny Benassi -  Danceaholic 3:35
-02. Benny Benassi & Chris Brown -  Paradise (Radio Edit) 3:53
-03. Benny Benassi & MOGUAI -  Gangsta (Radio Edit) 3:21
-04. Benny Benassi -  Universe (feat. BullySongs) 3:21(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88264035D728B9C15CEE38020FD2715784F6AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

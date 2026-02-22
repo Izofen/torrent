@@ -1,3 +1,90 @@
+###  Публикация: 1652861   (216219) от 13.08.2023
+
+Nel Oliver - Nel Oliver (1980) LP [MP3|320 Kbps] <Disco, Reggae, Funk/Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Heart Of The Ghetto (5:16)
+02. I Have A Good Job (5:39)
+03. On The Boulevard (4:49)
+04. Funny Love (4:44)(   Читать дальше...   )Жанр: Disco, Reggae, Funk/SoulПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07EA126D657A7391E3BDCC8E730E2AC4916A01A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084876   (216189) от 20.12.2016
+
+A La Carte - MusicBox (2003) [FLAC|Lossless|tracks + .cue] <Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doctor, Doctor (Help Me Please) [5:40]
+02. Ring Me, Honey [4:06]
+03. You Get Me On The Run [3:23]
+04. When The Boys Come Home [4:07](   Читать дальше...   )Жанр: Disco, Euro-DiscoПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDF925A1922869027286832BBF77BE05B776B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425742   (216170) от 23.11.2020
+
+Vanessa Daou - Songs for Solace (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chilled Jazz, Soul, Downtempo, Delta Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Near the Black Forest 2.0 (Animal Feelings Rework) (5:10)
+ 02. Little Black Dress (3:15)
+ 03. How Do You Feel (3:51)
+ 04. I Cry For You (3:24)(   Читать дальше...   )Жанр: Electronic, Chilled Jazz, Soul, Downtempo, Delta BluesПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABA8E9824907C405389595F7552AFD7BF99EC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343616   (216144) от 07.12.2019
 
 Blue System - Maxi & Singles Collection (2019) Dieter Bohlen Edition, 3CD [MP3|320 Kbps] <Pop, Euro-Disco>
@@ -656,93 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC0EEBBCA9B605954199892E85AA766010CC4475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193900   (213767) от 23.12.2017
-
-Давид Тухманов - Мой адрес - Советский Союз (1998) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чистые пруды
-02. Восточная песня
-03. Мой адрес - Советский Союз
-04. Жил - был я(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D304BDABAE67967D080C7BBFC82982BDFCDC3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344129   (213721) от 09.12.2019
-
-VA - Qua La Mano (1980) Musica Di Detto Mariano, LP [MP3|320 Kbps] <Electronic, Funk Soul, Instrumental, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка композитора Detto Mariano связанная с одноименным кинофильмом "Qua La Mano", где в главных ролях снимались: Adriano Celentano & Enrico Montesano.01. Angella Dean - Mad (5:29)
-02. Buz Butler - His Majesty (6:03)
-03. Moonalisa - Get Ready (3:58)
-04. Detto Mariano - Gocce D'Acqua (Strumentale) (2:50)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Instrumental, DiscoПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E949CDD42D45CD65890B719D58A35B3BAB9D514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344111   (213621) от 09.12.2019
-
-Vanessa Paradis - Best Of & Variations (2019) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <French Pop, Pop-Rock, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angora (2:08)
-02. Dans l'univers (4:07)
-03. Le baiser (4:10)
-04. Tu me manques (pourtant tu es là) (4:15)(   Читать дальше...   )Жанр: French Pop, Pop-Rock, Chanson |Продолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92DE99B0ABD151B0A68076A195926BA7C4382F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

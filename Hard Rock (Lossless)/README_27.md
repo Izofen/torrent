@@ -1,3 +1,32 @@
+###  Публикация: 1116818   (821044) от 21.03.2017
+
+Eclipse - Monumentum (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Vertigo  (03:23) 
+02| Never Look Back  (03:20) 
+03| Killing Me  (03:46) 
+04| The Downfall Of Eden  (04:21) (   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B302CC6D1F0C5A3DF92CA352375425889A88AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196830   (820521) от 04.01.2018
 
 David Coverdale & Whitesnake - Best Ballads (2018) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
@@ -721,35 +750,6 @@ Marshall - Old Rockers Never Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F5A2DA6E5113A05E8F3BC750197BA25BC5D6986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198265   (802716) от 14.01.2018
-
-Sweet - The Lost Singles (2017) [FLAC|Lossless|image + .cue] <Rock, Glam-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stairway To The Stars (3:04)
-02. Why Don't You Do It To Me (3:12)
-03. Funk It Up (Disco Mix) (5:28)
-04. A Distinct Lack Of Ancient (4:06)(   Читать дальше...   )Жанр: Rock, Glam-RockПродолжительность: 01:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3A090B22833D2C6ACC6AC26AB7A730DEE38ED0
 ```
 
 https://mybot314.ru/tekegram_catalog/

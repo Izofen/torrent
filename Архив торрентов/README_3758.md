@@ -1,3 +1,31 @@
+###  Публикация: 1326270   (387441) от 19.09.2019
+
+MetaImage 1.6.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387441.jpg" />
+</div>
+
+
+###  Подробнее
+
+MetaImage - это идеальный инструмент для чтения, записи и редактирования метаданных изображений. Это первый редактор, который позволяет редактировать теги EXIF, IPTC и XMP, а также MakerNotes в красивом и знакомом интерфейсе.
+
+Приложение разработано для улучшения вашего рабочего процесса. Пользователи могут создавать и управлять пресетами. Кроме того, для географических (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.09.2019Разработчик: NeededAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B92D751D3ECF5A8B6B083791FFCC02516E2BCFAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326220   (387437) от 19.09.2019
 
 RightFont 5 v5.6.0 [En]
@@ -653,41 +681,6 @@ xrecode II – уникальный конвертер аудио , снабже
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571488   (387355) от 07.11.2012
-
-Henry Jackman - Ральф / Wreck-It Ralph (2012) [MP3|320 кб/с]<OST>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Owl City - When Can I See You Again? [03:40]
-02. Buckner & Garcia - Wreck-It, Wreck-It Ralph [03:01]
-03. kool & The Gang - Celebration [03:43]
-04. AKB48 - Sugar Rush [03:17]
-05. Skrillex - Bug Hunt (Noisia Remix) [07:05]
-06. Rihanna - Shut Up And Drive [03:35]
-07. Wreck-It Ralph [01:33]
-08. Life In the Arcade [00:45]
-09. Jumping Ship [01:06]
-10. Rocket Fiasco [05:49](   Читать дальше...   )Жанр: OSTПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B345AE5C1A72AB797ECB8C655580618A3E1A7AF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

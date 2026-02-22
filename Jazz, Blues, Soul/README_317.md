@@ -1,3 +1,90 @@
+###  Публикация: 940468   (469350) от 24.09.2015
+
+Анатолий Берестов (Anatoli Berestov) - Незатейливые фантазии на темы И.С. Баха (1996) /GEL/[FLAC|tracks+.cue]<Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sarabanda from Partita N 2 c-moll [02:16]
+02.Invention 2-voc N 4 d-moll [03:04]
+03.Invention 2-voc N 6  E-dur [05:18]
+04.Invention 2-voc N 15 H-moll [04:55](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 00:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5A322CEF80D66355C484F891F5280387C0D727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940467   (469340) от 24.09.2015
+
+Kathy Sanborn - Lights Of Laniakea (2015) [FLAC|image+.cue]<Vocal Jazz, World>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star Catcher
+02. Follow The Light
+03. Soul Dancing
+04. Someday(   Читать дальше...   )Жанр: Vocal Jazz, WorldПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D9699C4D2A4191F779093E02A15A599764A5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940388   (469321) от 24.09.2015
+
+The Alan Broadbent Trio - Pacific Standard Time (1995) /PAR Media Music/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Summer Night [06:15]
+02.This One's for Bud [06:02]
+03.Easy Living [07:30]
+04.Easy to Love [04:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C344F517D9B3796FDA1C7071A4B3EF9884EF566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058396   (469197) от 01.10.2016
 
 Robert Cray - I Was Warned (1992) [WavPack|Lossless|image + .cue] <Blues, Electric Blues>
@@ -677,93 +764,6 @@ Susan Wong - 8 Альбомов (2002-2011) [FLAC/APE|Lossless]<Jazz, Vocal, Jaz
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058787   (466445) от 02.10.2016
-
-Johnny Smith Trio - Easy Listening (1958) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When I Fall In Love [02:50]
- 02.It Might As Well Be Spring [02:51]
- 03.I Didn't Know What Time It Was [02:23]
- 04.Black Is The Color (Of My True Love's Hair) [02:35](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6973698EA26091312CC88A5B809D86F899CE7FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058937   (466443) от 02.10.2016
-
-Paul Wood - Blues Is My Business (2001) [FLAC|Lossless|image + .cue] <Blues, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Don't Play By The Rules   (04:58)
-02. Blues Guitar   (03:57)
-03. Cryin' Won't Help Ya   (04:44)
-04. Blues Is My Business   (03:37)(   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1C9EC40B117C94933587572C3F01A3EBD71E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058721   (466442) от 02.10.2016
-
-Clifton Chenier - In New Orleans (1988) Crescendo Records[FLAC|Lossless|tracks + .cue] <Blues, Zydeco>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Boogie Louisiane [03:14]
- 02.Cotton-picker Blues [05:10]
- 03.J'aime Pain de Mais (I Love Corn Bread) [02:50]
- 04.Pousse Cafe Waltz [03:49](   Читать дальше...   )Жанр: Blues, ZydecoПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA9ACA438481636D4653D12A4F4F853C8129AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1274257   (794170) от 06.01.2019
+
+Paquito D'Rivera special guest artist Arturo Sandoval - Reunion (1990) 2006, Landy Star Music [FLAC|Lossless|image + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologo: Mambo Influenciado [0:26]
+02. Reunion [5:01]
+03. Tanga [9:22]
+04. Claudia [7:16](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1587219CF77AB35E916D1C5ED20D6DBE0C12665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274256   (794168) от 06.01.2019
+
+Jimmy Smith - Organ Grinder Swing (1965) 2018, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Organ Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Organ Grinder's Swing [2:16]
+02. Oh, No, Babe [9:04]
+03. Blues For J [5:18]
+04. Greensleeves [8:55](   Читать дальше...   )Жанр: Hard Bop, Organ JazzПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB352EE56CBCB20C51FEB962FD27D1F8082322B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012536   (793831) от 01.05.2016
+
+McCoy Tyner - Atlantis (1974) 2CD, 1989, Victor[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793831.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Atlantis [18:04]
+02.In A Sentimental Mood [05:39]
+03.Makin' Out [13:05]Жанр: Post-BopПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6076D60F5A18C1DEBEB33A456E1610494387FB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012700   (793828) от 01.05.2016
 
 Jimmy McGriff - Black Pearl (1971) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -657,93 +744,6 @@ Stephanie Nakasian - Lullaby In Rhythm: A Tribute To June Christy (2002) V.S.O.P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E82A621396EE471875AEE068204979E3638D52DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509864   (792930) от 14.11.2021
-
-Melanie Mason - Bendin' The Blues (2001) [FLAC|Lossless|image + .cue] <Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mississippi Blues [3:56]
-02. The Devil Chose Me [5:03]
-03. Give In [3:18]
-04. Work Your Magic [3:31](   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DEC155EBC86C5B8C18055837354420CB8B475AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201319   (792883) от 24.01.2018
-
-Jens Sondergaard Quartet & Bob Rockwell - More Golson (2012) Stunt Records [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Blues House [04:58]
-02. Whisper Not [05:36]
-03. Brielle Samba [05:38]
-04. Dear Kathy [05:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D868D3690B89B45D5A61DEF8B5ACE66048EA128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201315   (792882) от 24.01.2018
-
-Elsie Bianchi Trio - Atlantis Blues (1962) 2004, Sonorama [FLAC|Lossless|image + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Moon at All [03:26]
-02. Baron Lazar [02:50]
-03. Imagination [03:23]
-04. After You've Gone [01:58](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F4C33AA1E4156873C4C0FAF4F57CA45886E1BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1789516   (68269) от 05.04.2025
+
+Etienne Daho - Pop Satori (серия "Другие восьмидесятые") (1986) CD, Album, Reissue, Remastered, Repress, 2006, Parlophone, Warner Music France [MP3|320 Kbps] <French Pop, Synthpop, Cha ...
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satori theme
+02. Epaule tattoo
+03. Paris Le Flore
+04. Pop egerie O. (En duo avec Elie Medeiros)(   Читать дальше...   )Жанр: French Pop, Synthpop, ChansonПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670FDD7F500A2C0FA7607F83D6BB1BCFB39AC094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790002   (68175) от 07.04.2025
+
+VA - Grammy 2017 Nominees (2017) [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Funk / Soul, Pop, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyonce Feat. Jack White - Don't Hurt Yourself
+02. Twenty One Pilots - Stressed Out
+03. Sia Feat. Sean Paul - Cheap Thrills
+04. Drake - Hotline Bling(   Читать дальше...   )Жанр: Hip Hop, Rock, Funk / Soul, Pop, Folk, World, & CountryПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FB1739E7D9D48C78BEB987062A1E4581ADC205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790359   (68125) от 08.04.2025
+
+VA - The Best Of Italo Disco - Unreleased Tracks (2008) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claudio Mingardi - Forever Mine (Versione Mix)
+02. Alan Ross - Valentino Mon Amour (Vox Mix)
+03. Cyber People - Dr. Faustus (Razzmatazz Version)
+04. Baby's Gang - My Little Japanese Boy(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E475C4DE17C764BE95B2F731213DD0FC448F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790217   (68108) от 08.04.2025
 
 VA - Platin Vol. 7 (1999) 2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Pop>
@@ -658,93 +745,6 @@ Sarah Connor - Freigeistin (2025) [MP3|320 Kbps] <Pop, Rhythm and Blues, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7541C0F8AA0216966561AC55081DC52EF126248B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799661   (66406) от 29.05.2025
-
-VA - Soulmates (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Teddy Swims - Are You Even Real (feat. Givēon) [00:02:27]
-02 - Bruno Mars - Love’s Train [00:05:07]
-03 - Aretha Franklin - (You Make Me Feel Like) A Natural Woman [00:02:39]
-04 - Mary J. Blige - Good Morning Gorgeous (feat. H.E.R.) [00:02:54](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 02:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A811E8BF8921AD142BDE07487BFA1A08F200B5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799658   (66404) от 29.05.2025
-
-Юлия Проскурякова - 7 Albums (2023-2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2023 - Жизнь прекрасна!
-2023 - Лучшие хиты
-2023 - Романтика зимы(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 7CD, 06:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FD7441055E9B8558FA67CB434EEAD5F67892B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799915   (66373) от 30.05.2025
-
-Spencer Sutherland - The Drama Deluxe (The Encore!) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Show! [00:01:22]
-02. Alive [00:02:49]
-03. Let Me Loose [00:02:25]
-04. Drama [00:02:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754CB3D040904D6C49C5C3D9DA7C0487CF0F1B94
 ```
 
 https://mybot314.ru/tekegram_catalog/

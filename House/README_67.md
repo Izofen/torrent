@@ -1,3 +1,90 @@
+###  Публикация: 1081953   (281040) от 11.12.2016
+
+VA - Vocal House Dance Music Experience 2016 Vol.01 (Mixed By Jora Mihail) (2016) [MP3|320 Kbps] <House, Vocal House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benny Camaro - Soft 4:35
+02. Gaab - Way Back 4:58
+03. KVSH - Seekin' (Feat. Erinio) 5:41
+04. Paul Jacobson - Spend My Time (Radio Edit) 2:32(   Читать дальше...   )Жанр: House, Vocal House, ProgressiveПродолжительность: 02:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55647CDD81DB2EC6F9AD36389C6670FF18A4D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081934   (280905) от 11.12.2016
+
+VA - Armada Music: Best Of (2016) [MP3|320 Kbps] <House, Trance, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies - Beautiful Life (feat. Sandro Cavazza) 2:42
+02. Major Lazer & Showtek - Believer 3:44
+03. Armin van Buuren - Heading Up High (feat. Kensington) 3:53
+04. Gareth Emery - Reckless (feat. Wayward Daughter) 3:22(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 02:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3B9038C4113575474604791231A1261200C825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964581   (280792) от 12.12.2015
+
+VA - Armada Deep Best Of (2015) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robosonic feat. STAG - WURD (Radio Edit) (02:41)
+02. Autoerotique - Count On You (Radio Edit) (02:52)
+03. Lonely Boy - Everything (Radio Edit) (02:29)
+04. Low Steppa - Take Me Up (Radio Edit) (03:27)(   Читать дальше...   )Производство: Armada DeepЖанр: Deep HouseПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F4A679E5716E7F9A167A9057FA78499B9CE0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187499   (280768) от 28.11.2017
 
 VA - Soulful Ibiza Sound (2017) [MP3|320 Kbps] <House>
@@ -658,93 +745,6 @@ Grum - Deep State (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC67EA75DE6D885EDE1B53C09ABFD89CDE91CFC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188882   (273671) от 03.12.2017
-
-VA - Ibiza House Fillers (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slam Duck - Cortege (Original Mix) 06:46
-02. Ticon - Nefertiti (Original Mix) 07:53
-03. Futurefunk - The Choir (Original Mix) 06:40
-04. Hansgod - Vida (Original Mix) 07:50(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A580BF97ED5EF147FFA7BF291FE6734522724F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083735   (273065) от 16.12.2016
-
-VA - Best Of Deep House (Deluxe Version) (2016) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clark Morrison - Space Rift (Original Mix) 6:53
-02. Ricky Rough - The Way It Is (Original Mix) 9:11
-03. Francesco Chianese - Adday (Original Mix) 6:52
-04. Bess - New Face (Original Mix) 6:15(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063AEA85CAA6D9EEBDDE97A22034A65D0032E416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083881   (272644) от 17.12.2016
-
-VA - Xmax Deephouse Hot Traxx (2016) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azeotrop - Aftermath [00:05:56]
-02. Najwars - Deep Trading [00:06:54]
-03. Simplex Sensus - Up & Away [00:06:02]
-04. Chillelektro - Eggum [00:06:42](   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectronicПродолжительность: 02:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C624DDE2FECBAD3BCBB7BC9B7016BAD32128F88
 ```
 
 https://mybot314.ru/tekegram_catalog/

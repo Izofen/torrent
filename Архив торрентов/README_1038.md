@@ -1,3 +1,38 @@
+###  Публикация: 289126   (916877) от 01.02.2011
+
+Third Realm - Romantic Death (2011) [MP3|256 kbps]<EBM / Industrial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kiss of the Scorpion	(5:57)
+02 Burnt Offerings	(5:21)
+03 Bullet Proof Soul	(4:44)
+04 Epidemic	(5:32)
+05 Romantic Death	(5:08)
+06 Her Rosary	(5:23)
+07 Beyond Temptation	(5:33)
+08 Whispers of Heavenly Sorrow	(4:30)
+09 This Mortal Coil	(6:26)
+10 September Ashes	(5:19)(   Читать дальше...   )Жанр: EBM / IndustrialПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08BB1DE6AE4459D6E452C561D3D50201A96CDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288310   (916845) от 01.02.2011
 
 Кто здесь звезда? Идеальное интервью (2011) IPTVRip
@@ -655,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289894   (916603) от 01.02.2011
-
-Идеальная жена / Dream Wife (1953) DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой фильма собирается жениться на богатой и знатной девушке. Однако его бывшая возлюбленная не собирается с этим мириться….…Жанр: мелодрама, комедияРежиссер: Сидни ШелдонПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFE8618C755DA65A353C782142DD3FE06F0EA63
 ```
 
 https://mybot314.ru/tekegram_catalog/

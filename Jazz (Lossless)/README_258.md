@@ -1,29 +1,3 @@
-###  Публикация: 499690   (256454) от 21.05.2012
-
-Jazzamor - Lucent Touch (2011) [FLAC (tracks+cue)|Lossless]<Acid Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acid Jazz, LoungeПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498490   (256408) от 21.05.2012
 
 Fats Waller - Fats Waller (1935) (1994) [FLAC|Lossless]<New Orleans Jazz, Stride>
@@ -812,6 +786,41 @@ Patricia Barber - Companion (1999) [FLAC|Lossless]<Lazz>
 6 - If this isn't jazz  -  05:13
 7 - Black magic woman  -  09:51
 8 - Club noise  -  01:141999Жанр: LazzПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496146   (252620) от 13.05.2012
+
+Various Artists - Burlesque Swing [Selected by Bart & Baker] (2011) [FLAC|Lossless]<Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Rip Van Winkle - Lily Wilde
+02. Peroxide Swing - Michael Buble
+03. Why Don't You Do Right ? - Della Reese
+04. Fee Fee Fi Fo Fum - LaVern Baker
+05. We Have No Bananas - Frank Reefer
+06. Mariguana Cha Cha Cha - Stefi Akos
+07. Strip Polka - The Andrew Sisters
+08. Frenesi - The Four Freshmen
+09. 39 De Fievre - Caterina Valente
+10. Juke Box - Sugar Ray(   Читать дальше...   )2011Жанр: SwingПродолжительность: 01:16:10
 
 ## Скачать торент
 ```bash

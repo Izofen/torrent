@@ -1,3 +1,29 @@
+###  Публикация: 1167786   (415008) от 21.09.2017
+
+Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.09.21) SATRip (сезон 3, выпуск 12)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415008.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:45:44Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178BA31D58D2FAD68508A941AF37A6F80B566671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251733   (414985) от 02.10.2018
 
 WinRAR 5.61 Final RePack (& Portable) by elchupacabra [Ru/En]
@@ -657,35 +683,6 @@ RadioMaximus 2.25.8 RePack (& Portable) by TryRooM [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8C354283CCA625E8C7FE11857E0EB86E57D27D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325417   (414678) от 14.09.2019
-
-Giuseppe Ottaviani - Live @ Seal Pit Stage, Captured Festival, Spain 2019-09-07 [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nu NRG - Butterfly
-02. Sunblind - Believe (Nu NRG Remix)
-03. Giuseppe Ottaviani & Marc Van Linden - Until Monday
-04. Giuseppe Ottaviani ft. Stephen Pickup - No More Alone(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39050B3D606C3A0289BAEA38A735FDC1652BAB92
 ```
 
 https://mybot314.ru/tekegram_catalog/

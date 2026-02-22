@@ -1,3 +1,32 @@
+###  Публикация: 1782143   (26275) от 27.02.2025
+
+Axel Rudi Pell - The Ballads Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Say Goodbye [05:42]
+02. Where the Wild Waters Flow [05:35]
+03. You Want Love [04:34]
+04. Forever Angel (Acoustic) [04:33](   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 09:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A812F25E2A89C2DEBF0128E20400187BE8F464DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782937   (25873) от 03.03.2025
 
 VA - Masters of Rock & Metal - The Best Rock & Metal Tracks ever... (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
@@ -716,35 +745,6 @@ Imagine Dragons - Compilation (2009-2024) [MP3|320 Kbps] <Alternative rock, Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0030ED341368BD9881B7674069395EE7B70316B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796372   (18318) от 14.05.2025
-
-KISS - Compilation (2025) [MP3|320 Kbps] <Rock, Glam>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18318.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. My Way [04:00]
-002. Psycho Circus [05:34]
-003. Crazy Crazy Nights [03:48]
-004. Shout It Out Loud [03:17](   Читать дальше...   )Жанр: Rock, GlamПродолжительность: 07:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49E6AB54912649149D8A5AAA0286502A21FCE1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

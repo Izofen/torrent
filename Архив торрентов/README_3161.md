@@ -1,3 +1,29 @@
+###  Публикация: 929893   (517112) от 21.08.2015
+
+Trine 3: The Artifact of Power (2015) [Ru/Multi] (1.01) Repack U4enik_77
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517112.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Trine 3: Артефакты могущества» — это динамическая платформенная игра, полная головоломок и приключений, продолжение известных игр «Trine» и «Trine 2». Присоединяйтесь к героической троице — рыцарю Понтию, волшебнику Амадею и воровке Зое — в новом путешествии. Исследуйте сказочный мир с захватывающими дух пейзажами, с многочисленными головоломками, основанными на (   Читать дальше...   )Тип издания: RepackРазработчик: FrozenbyteЖанр: Arcade (Platform), Logic, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7B7C97FC8FDEA95D6CD39C27819951A1B904BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242073   (517100) от 20.08.2018
 
 Glary Utilities Pro 5.104.0.128 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -652,41 +678,6 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41BDAEAF7A5379A5E86C21B37F68AB0C334436CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535386   (516979) от 16.08.2012
-
-DJ Kocmoc - Russian Dance vol.10 (2012) [MP3|320 кб/с]<Club House, Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516979.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. H2o - Но не я (Alchet House Remix)
- 2. Инфинити - Ты мой герой (Danny Rockin & DJ Sedate official remix)
- 3. Dante - Моя Любовь Онлайн (Icebird remix)
- 4. 23-45 & 5Ivesta Family - Я Буду (Dj Fisun Extended Mix One)
- 5. Elvira T - Все решено (Fresh Tunes official remix)
- 6. Demo - Солнышко В Руках (Free Djs Rework)
- 7. DJ Vitalik Vitamin ft Lantra - I Love You (MMx Studio Remix)
- 8. DJ Fisun pres. Allysia - Я не забыла (extended mix)
- 9. Вечеслав Лопаков - Карнизы (DJ Denis Rublev & DJ Natasha Baccardi Remix)
- 10. Пропаганда - Знаешь (DJ VAL club rmx )Жанр: Club House, Electro HouseПродолжительность: 01:29:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBDA5F1D135520753FB88354E4DF0DA0DD2A068D
 ```
 
 https://mybot314.ru/tekegram_catalog/

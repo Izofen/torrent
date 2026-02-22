@@ -1,3 +1,61 @@
+###  Публикация: 1077996   (300873) от 01.12.2016
+
+George Lewis and His Ragtime Band - Jazz At Vespers (1954) 1992, OJC[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Just A Little While To Stay Here [05:16]
+ 02.Bye And Bye [07:13]
+ 03.The Old Rugged Cross [05:00]
+ 04.Sometimes My Burden Is Hard To Bear [02:22](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF40E405F83BF988BA289B0CC745D8FA3D79217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423474   (300753) от 13.11.2020
+
+VA - One More: The Summary Music of Thad Jones, Vol.2 (2006) IPO Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Pixie [5:43]
+02. Let's [6:21]
+03. Don't Ever Leave Me [5:13]
+04. Groove Merchant [6:45](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EF72BF979943CE84C690B691E2887470F62CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078526   (300693) от 01.12.2016
 
 Tony Anderson's Muskat Ramblers - Most Wanted Dixieland (2005) [FLAC|Lossless|image + .cue] <Dixieland>
@@ -699,64 +757,6 @@ Paris Jazz Big Band - Mediterraneo (2002) Cristal Production[FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76909E3CD5C2FFB559A9B0C117A1BE08BAC9486F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078605   (298217) от 02.12.2016
-
-Mel Torme and The Marty Paich Dek-Tette - The 1956 Torme-Paich Legendary Sessions (2006) Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lulu's Back In Town [03:09]
- 02.I Love To Watch The Moonlight [02:55]
- 03.When April Comes Again [03:01]
- 04.The Carioca [03:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134B3593802B957C02791AE36766B52B3EE3AFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078653   (298216) от 02.12.2016
-
-Mongo Santamaria - Mongo At Montreux (1971) 2012, Atlantic/Warner Japan/WEA/Rhino [FLAC|Lossless|tracks + .cue] <Afro-Cuban, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Candela (3:55)
-02. Climax (4:53)
-03. Disappear (4:59)
-04. Marty's Tune (4:44)(   Читать дальше...   )Жанр: Afro-Cuban, Latin JazzПродолжительность: 00: 37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739DEBB340B291CA2C7BBE80AED815C84518A9BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

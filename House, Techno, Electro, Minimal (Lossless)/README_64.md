@@ -1,3 +1,61 @@
+###  Публикация: 1758478   (103354) от 03.11.2024
+
+Hayla - Dusk (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only I [00:03:48]
+02. Alone [00:03:47]
+03. Freefall [00:03:39]
+04. Visions Of You [00:03:57](   Читать дальше...   )Жанр: DanceПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D978F47AA67CA76CFCBD802C1BEFBB5F027BC731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759540   (103274) от 09.11.2024
+
+VA - Sun Sand & Spirit, Vol. 2 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Breath of Desert (Original Mix) (6:48)
+02. Tibetania - Healing Winds (Original Mix) (7:08)
+03. Tamer ElDerini - Heaven (Original Mix) (5:29)
+04. Leon Music - Sultana (Original Mix) (8:55)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8342F8C68280A9C240C413C63ABB262E449DBB05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760806   (103158) от 16.11.2024
 
 Marshmello - The Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Riddim Dubstep, Electronic, Dubstep, House>
@@ -719,64 +777,6 @@ djdtime - Vocal Progressive House & Melodic Techno, Vol. 2 (2025) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82249DBFC81FBC5FBA2E62BDC0A9C94CC14FEA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780414   (70448) от 18.02.2025
-
-djdtime - Relaxing Deep House & Tech House Mix Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Breeze (5:37)
-02. Starlit Nights (5:50)
-03. Velvet Horizon (5:52)
-04. Crystal Flow (5:51)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296454BF8BE9787A6B994723E01F26EDB4D39F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780611   (70384) от 19.02.2025
-
-djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake up, the world is calling (4:53)
-02. Close your eyes, leave the fear behind (3:54)
-03. I'm chasing you, through the night (3:44)
-04. Every heartbeat, I'm closer still (4:29)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C737B307015A1289D26D8028EF85F0C909FCCFFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

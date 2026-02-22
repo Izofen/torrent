@@ -1,3 +1,29 @@
+###  Публикация: 1198200   (810113) от 10.01.2018
+
+Slimjet 17.0.4.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8CE80969C9A4D55B5E1702A0CCEA54DC0B52F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198232   (810109) от 10.01.2018
 
 4K Video Downloader 4.4.2 [Multi/Ru]
@@ -659,35 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A445EF033CC93EEE1159A92F23B32E8EA9AD82D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948646   (809783) от 21.04.2016
-
-DJ JIM - Electrospeed Special (2015-2016) (Обновляемая) [MP3|320 kbps]<Electro House, Big Room House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axwell & Ingrosso vs. Alex Van Diel & Arias - Synergy On My Way (DJ JIM Mash-Up Mix)
-02. Rob Thomas - Trust You (Bottai Remix)
-03. Faithless - Insomnia 2.0 (Avicii Remix)
-04. Naza Brothers & Braudt ft. Mr.Shammi - Cmon Everybody!(   Читать дальше...   )Жанр: Electro House, Big Room House, HouseПродолжительность: 07:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA36A55F86A9D84F63CCCDCF4790E6148A1BD56
 ```
 
 https://mybot314.ru/tekegram_catalog/

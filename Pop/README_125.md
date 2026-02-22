@@ -1,3 +1,119 @@
+###  Публикация: 1290075   (682082) от 18.03.2019
+
+Valverde Brothers - After Midnight (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Midnight (7:51)
+02. Standing In The Shadow Of Love (6:06)
+03. Living A Lie (6:03)
+04. Mexican Taxi Man (4:34)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BAB83B1F6EC00A7D727F475237E2396556DD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290114   (682081) от 18.03.2019
+
+VA - Schlager Total - Die Hits aus den Discotheken 2019 DJ Dance Mixe (2019) [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682081.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelique - Lieder der Nacht (Price Tunes Extended DJ Mix)
+002. Pat - Dieser eine Augenblick (DJ Tanz Mix)
+003. Lyane Hegemann - Halt mich fest (Wetcat EDM Mix)
+004. Connor Meister - Liebesvisionen (Price Tunes DJ Mix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 06:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FF211D33A0E3ADC7E599011103D2A854E8ED08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135366   (681188) от 19.05.2017
+
+Boogymann - Delight (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar 05:31
+02. Love 05:14
+03. Take a Chance to Dance 05:42
+04. Come on Back 04:31(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAD5E6A956601595FD4FBDC4A6E04F853497589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796802   (681176) от 16.06.2014
+
+Lana Del Rey - Ultraviolence [Deluxe Edition] (2014) [FLAC|Lossless]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cruel World
+02. Ultraviolence
+03. Shades Of Cool
+04. Brooklyn Baby(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C192EFA692DFB5304E7E8E0BE051E55B2B01FE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135591   (681103) от 19.05.2017
 
 Persia - Persia (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -626,122 +742,6 @@ Maren Morris - Girl (2019) [FLAC|Lossless|tracks + .cue] <Pop, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2C37ABB7AF9265267C8271352FD3569AEEB0251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290673   (676580) от 21.03.2019
-
-VA - Turbo Disco International Vol. 1-2 (2004) [MP3|320 Kbps] <Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gibson Brothers - Cue Sera Mi Vida (2:54)
-02. Jairo Pereira - Pais Tropical (3:00)
-03. Supermax - African Blood (5:45)
-04. Ricchi & Poveri - Acapulco (3:43)(   Читать дальше...   )Жанр: Pop, Dance, Pop RockПродолжительность: 02:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072BF0212090A1425A16A55DB032855A0750FA45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290553   (676460) от 21.03.2019
-
-Dennis Parker - Like An Eagle (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like An Eagle (6:26)
-02. New York By Night (5:04)
-03. High Life (6:25)
-04. Why Don't You Boogie / I'm A Dancer (9:53)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4556034FCAD5DEBEFF5D03D8AE9FCDA1B3467705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290531   (676459) от 21.03.2019
-
-VA - Canzoni - 48 Canti D'Emotioni (Unknown) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Piccola E Fragile / Drupi (4:02)
-02. Angelo Blu / Gepy & Gepy (3:20)
-03. Ma Che Bella Storia D´ Amore / Jo Chiarello (5:01)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 03:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C0C8D55C19D7CACF8DD8B93C7EAE6D379C7D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029671   (676407) от 29.06.2016
-
-VA - Super Eurobeat Vol.239 - Extended Version (2016) [MP3|320 Kbps] <Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Rodgers - Restarted Tonight
-02. Lolita - Made for Love
-03. Dejo & Chai - We Rock'em All
-04. Seastar - Made out of Fire(   Читать дальше...   )Жанр: EurobeatПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F55870D7D4893D8659A991B69EE73EEA1250064
 ```
 
 https://mybot314.ru/tekegram_catalog/

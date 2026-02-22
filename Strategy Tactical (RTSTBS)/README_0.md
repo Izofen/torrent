@@ -1,3 +1,29 @@
+###  Публикация: 1338337   (1033346) от 06.02.2021
+
+Age of Empires II: Definitive Edition (2019) [Ru/Multi] (Build 44725) License CODEX
+
+>>След.
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отпразднуйте 20-летие одной из самых популярных стратегических игр! Встречайте Age of Empires II: Definitive Edition — с потрясающим разрешением Ultra HD 4K, новым саундтреком после цифрового ремастеринга, а также расширением «Последние ханы» с 3 кампаниями и 4 новыми цивилизациями. Насладитесь новым оформлением всех оригинальных кампаний и дополнений, которые занимают (   Читать дальше...   )Тип издания: LicenseРазработчик: Forgotten Empires, Tantalus Media, Wicked WitchЖанр: Strategy (RTS)Язык озвучки: Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A7494DD62B8799F830D0C50FCFD45CCD0C5A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492337   (1032634) от 17.03.2023
 
 Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.10.0/dlc) License GOG [Omnissiah Edition]
@@ -663,33 +689,6 @@ Desperados Anthology / Антология Desperados [Ru] (RePack) 2001-2009 | a
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:919B0E0BEC869DEB952ECABCD45D333208521F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609356   (991554) от 27.01.2013
-
-Warlock: Master of the Arcane [Ru] (RePack/1.4.1.56) 2012 | Audioslave
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warlock: Master of the Arcane - это новая стратегическая игра в фантастическом мире Ардания.
- Игроку предстоит взять на себя роль Великого Волшебника и построить могущественную волшебную империю, собрать армию и сразиться за Арданию от имени одного из восьми божеств.(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Turn-based) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A529476614347EB52EC88597AB732CC8452EE107
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 973670   (978936) от 09.01.2016
+
+Lemmy & Motorhead - Leaving Here - Second Hand Songs (2016) Bootleg [MP3|320 кб/с] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakin' All Over (Johnny Kidd & The Pirates)
+02. Train Kept-A-Rollin' (The Johnny Burnette Trio)Жанр: Hard Rock, Heavy MetalПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903981AC6797F9E59A68C0C81C27D139A3280444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356487   (978902) от 30.01.2020
 
 Amberian Dawn - Looking for You (2020) [MP3|320 Kbps] <Symphonic Power Metal>
@@ -781,35 +808,6 @@ Everything In Slow Motion - Phoenix (2013) [MP3|320 кб/с]<Post-Metal / Post-H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F0CA82CAA02D3A04F1166176C9139BD9AC63E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974916   (974475) от 13.01.2016
-
-My Dear Addiction - Kill the Silence (2016) [MP3|320 кб/с] <Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kill the Silence
-02. A Promise
-03. Winners
-04. Beautiful(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783CB8199EC04D186ADB7551AEB0F7AD17A00D16
 ```
 
 https://mybot314.ru/tekegram_catalog/

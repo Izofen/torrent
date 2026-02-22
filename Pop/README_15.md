@@ -1,3 +1,119 @@
+###  Публикация: 1450279   (1029194) от 25.02.2021
+
+Modern Boots - Garden of Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe Tonight (5:29)
+02. Angel's Heart (6:33)
+03. Give Me Your Heart Again (5:08)
+04. I Couldn't Love You (5:46)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC341DCF6BBDA4A567B119D57EADB986B6294FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450128   (1029189) от 25.02.2021
+
+Bonnie Tyler - The Best Is yet to Come (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come
+02. Dreams Are Not Enough
+03. Hungry Hearts
+04. Stuck To My Guns(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54488F3BC4A9C61F5BEF63A96F907BBEFAB41CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623872   (1029099) от 03.04.2023
+
+DJ Ryloff (Remixed Ru) - Трава у дома (2023) [WavPack|Lossless|image + .cue] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Нил & Гелена - Звездное лето (Refuse Breaks Vocal Remix Intro)
+02 Земляне feat. Дима Билан - Трава у дома (Dj Martinr Remix)
+03 Zivert - Я. Т. Л. (DJ Zhuk Remix)
+04 Лолита & Коста Лакоста - По-другому (Roman Max & Nicky One Extended Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064894DBCE2BAD61750633AE6DD9BD262DB367E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450562   (1029019) от 26.02.2021
+
+VA - Italo Made In Spain 4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Italo Made In Spain 4 (Edicion Mexico) (16:15)
+02. Various - Italo Made In Spain 4 (Summer Session) (28:49)
+03. Francesco Napoli - Lady Fantasy 2018 (Italo New Extended Mix) (6:54)
+04. Naoky feat. Stylove - Cybernetic Love (Extended Mix) (6:13)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B42741A4A931A8A57BC9D6FDDA0E005343BE0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450603   (1028863) от 27.02.2021
 
 VA - Disco Deluxe - Disco Classics (2005) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Disco, Funk Soul>
@@ -629,122 +745,6 @@ Amadeus Liszt - La Donna (Original Mike Mareen Master Tape Series) (2019) Expand
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E91BB36A08ADC84D391BCFE8C91936FD4BFE0850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453033   (1027212) от 09.03.2021
-
-Amadeus Liszt - Win the Race (1987) Singles Collection [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Win the Race (4:05)
-02. La Donna (4:49)
-03. The Devil Wins (3:06)
-04. Sprint (2:25)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987F4D2433E2ABE46109D5F41D1D0DB16D958C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453077   (1027209) от 09.03.2021
-
-Lida - Музло из гаражей (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Али Ули (feat. S3RL) [02:58]
-02 - Анапа (feat. DK) [03:45]
-03 - Герда [02:49]
-04 - Евробит (feat. GSPD) [02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A68C73B9E4DAD27ED4E6014E6B4A62F12CB1A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453163   (1027186) от 09.03.2021
-
-Lana Del Rey - Chemtrails Over the Country Club (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027186.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. White Dress
-2. Chemtrails Over The Country Club
-3. Tulsa Jesus Freak
-4. Let Me Love You Like A Woman(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AE5674C7F4D29256A907C9D4713EDAC0AF0BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453167   (1027180) от 09.03.2021
-
-Lana Del Rey - Chemtrails Over The Country Club (2021) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Dress [00:05:33]
-02. Chemtrails Over The Country Club [00:04:31]
-03. Tulsa Jesus Freak [00:03:35]
-04. Let Me Love You Like A Woman [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AA95887E026D359C3FF6FC254F67AFAB884F45
 ```
 
 https://mybot314.ru/tekegram_catalog/

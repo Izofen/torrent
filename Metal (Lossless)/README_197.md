@@ -1,3 +1,264 @@
+###  Публикация: 1264726   (277766) от 25.11.2018
+
+Accept - Symphonic Terror: Live at Wacken 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01.Die by the Sword (Live in Wacken 2017) 5:32
+02.Final Journey (Live in Wacken 2017) 5:18
+03.Restless and Wild (Live in Wacken 2017) 4:31(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7A25DE8D6FDDCB8732884D85F44ABCB3E8D50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337091   (276212) от 09.11.2019
+
+The Dark Element - Songs the Night Sings (2019) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276212.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Not Your Monster [6:24]
+ 2 - Songs the Night Sings [5:10]
+ 3 - When It All Comes Down [5:59]
+ 4 - Silence Between the Words [4:35](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E57EB69FCF210A5CF7EB30A9F94F1D943E4C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337009   (276174) от 09.11.2019
+
+Jinjer - Macro (2019) [FLAC|Lossless|tracks + .cue] <Metalcore, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Top (5:28)
+02. Pit Of Consciousness (4:12)
+03. Judgement (& Punishment) (4:20)
+04. Retrospection (4:24)(   Читать дальше...   )Производство: Napalm Records - NPR818JCЖанр: Metalcore, Groove MetalПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D50D20840827DF22F7C3C5B2CAB76ABC0AB389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188293   (275076) от 02.12.2017
+
+Blodulv - Wehrkraft (2009) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crusher ov Covens
+02. Grimness
+03. Svart mark
+04. The Harshest Poison(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8EAF5CD6071560AE15EB5615DB2A23D624EB99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188284   (275075) от 02.12.2017
+
+Blodulv - Diatribe (2005) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grim Disturbance
+02. Divine Perversion
+03. Famine Pulse
+04. Poison TraitЖанр: Black MetalПродолжительность: 00:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF67CCA33E064A8B9800E5331901EC4ED81C9228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188282   (275074) от 02.12.2017
+
+Blodulv - Blodulv (2003) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Regulus - Peaceraper
+02. Legion Murdergoat
+03. Jormungrund
+04. Odium(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA83F232BD0E2D5546B4531999BA0C68A8099AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188287   (275027) от 02.12.2017
+
+Blodulv - III - Burial (2005) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Burial
+03. Imperium Sanctum (Bleeding Mercury)
+04. Tank Warfare(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34FC1C21AFEFCA23A094D1855649F7FC8D7554A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188421   (275025) от 02.12.2017
+
+Thormenthor - Abstract Divinity (1994) [APE|Lossless|image + .cue] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract divinity
+02. The proportional dream
+03. Encircled by aura sphere
+04. Nothing expanded(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC95211B58C382D9FA7EBED4479CAF97E7573F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188457   (275023) от 02.12.2017
+
+Nepal - Ideologia (1995) [APE|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Escenio
+02. Realidades
+03. Ideologia
+04. Guerra sucia(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D98B6B121206D1D787831DF2937E02CAB25C673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188463   (275022) от 02.12.2017
 
 Master's Hammer - Ritual (1991) [APE|Lossless|image + .cue] <Black Metal>
@@ -483,267 +744,6 @@ Panphage - Jord (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C341813AA96ED3C47688412A286CFC28E11DD06A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188605   (272540) от 04.12.2017
-
-Cirith Gorgor - Cirith Gorgor (2007) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Total Annihilation		06:10
-02.	The Black Hordes		08:54
-03.	Demonic Incarnation		06:22
-04.	Ritual				07:26(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458C616E97BBE5CACADE258E2894E077C654CF10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188574   (272539) от 04.12.2017
-
-Elite - Bifrost (2006) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Æreløs 03:35
-02. Tåke 04:11
-03. Vikingfjord 05:32
-04. Vinterlåst 04:58(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD236D4E518D4F2548C7629AC428213DE6C524CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188575   (272538) от 04.12.2017
-
-Elite - Kampen (2004) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Berserkerens Manifest 06:22
-02.Tusen ar i Lysets Vold 08:48
-03.Brent av Liset 09:40
-04.Kampen for Vart Norroene Rike 08:34(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BDE6FBC6BCC81E99FC8BC000044D351D8CE0E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188602   (272537) от 04.12.2017
-
-Cirith Gorgor - Der Untergang (2014) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Der Untergang, Pt. I
-03. Der Untergang, Pt. II (Intro)
-04. Der Untergang, Pt. II(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F404A1BF08FC20748E9C0B1D80DEE8C8BA06DC5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188540   (272534) от 04.12.2017
-
-God Forbid - Earthsblood (2009) [FLAC|Lossless|image + .cue] <Thrash Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Force Fed
-02. Chains Of Humanity
-03. Divide My Destiny
-04. Go Your Own Way(   Читать дальше...   )Жанр: Thrash Metal, MetalcoreПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15503C107B3B691FAC7F01B116D0B20AC9C71EFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188607   (272532) от 04.12.2017
-
-Cirith Gorgor - Firestorm Apocalypse (2003) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The gates of hell
-02. Degeneration of mankind
-03. Arcane illusion
-04. Prelude to the final holocaust(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFB757F0962287775A0D72CE09B9EA72CFF4C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188572   (272478) от 04.12.2017
-
-Elite - We Own The Mountains (2008) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volvens Vinterseid
-02. Amanita Muscaria
-03. Winter Moon King
-04. Likmyren(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B36D78C3DFC0999EF6CDBEA23CAEBDB57358F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188546   (272472) от 04.12.2017
-
-Elm Street - Barbed Wire Metal (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barbed Wire Metal (03:44)
-02. The Devil's Servants (03:59)
-03. Elm St's Children (05:40)
-04. Heavy Metal Power (05:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9887DA8D977B1BD38E09CB05F7BF329B6515D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188591   (272462) от 04.12.2017
-
-Der Weg einer Freiheit - Finisterre (2017) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aufbruch
-02. Ein letzter Tanz
-03. Skepsis Part I
-04. Skepsis Part II(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58A2CC9B77F7FBDF5221595D6ECCA8A36B2629AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

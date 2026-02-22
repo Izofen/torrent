@@ -1,3 +1,32 @@
+###  Публикация: 1708063   (113121) от 19.03.2024
+
+The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Announcements by Willis Conover and Art Farmer [1:16]
+02. It Ain't Necessarily So [7:25]
+03. The Portrait [4:28]
+04. Bean Bag [9:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09003E02F7F3C65F7C60DEC4D1512F513D3CCE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708093   (113097) от 20.03.2024
 
 Hugo Schettino Blues Trio - Find Yourself (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -714,35 +743,6 @@ Sidney Bechet - Hold Tight (1938 - 1946) 1989, Jazz & Jazz [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDA547C10AD63F993F7E9DEDEC79EAB627C8A2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708930   (112857) от 23.03.2024
-
-VA - Just Jazz! & The Complete Triple Play Stereo Sessions (1962) 2009, Jazz Beat [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moten Swing [4:16]
-02. Out of Nowhere [4:05]
-03. Groovin' High [3:15]
-04. Autumn Leaves [4:37](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B25C6E996911C22F30F00BCA4127DE8C5D5000
 ```
 
 https://mybot314.ru/tekegram_catalog/

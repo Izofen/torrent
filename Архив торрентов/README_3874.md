@@ -1,3 +1,29 @@
+###  Публикация: 575522   (361688) от 18.11.2012
+
+Nature HD Wallpapers (13.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3181B15C5706A775C7782874EC22C00B436319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576849   (361686) от 18.11.2012
 
 Водолей/ Deliria (1987) DVDRip
@@ -676,41 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4B591447D32A5E56E7262C9C764906E3090D9A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577131   (361520) от 18.11.2012
-
-VA - Trance In Motion: Sensual Breath 020 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Platinum Monkeys Feat. Ange - Why (Original Mix)
-02. Velvetine - The Great Divide (Soundprank Remix)
-03. Chris Montana & Chris Bekker - Me & Me (Original Mix)
-04. The Noise Feat. Adele Yeoman - The Game (John Chamberlain Remix)
-05. Heavyfeet & Nate James - Back Foot (Stonebridge Classic Mix)
-06. Mykleby - Three Days Ago (Original Mix)
-07. dBerrie - Aquarius (Original Mix)
-08. Shanghai - Smoke & Mirrors (Michael Cassette Remix)
-09. Calvin Harris Feat. Ellie Goulding - I Need Your Love
-10. Walden - Ciaco (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 02:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B35F2941770F0B5EF68E8DA5D7EF36D5157CF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

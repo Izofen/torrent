@@ -1,3 +1,32 @@
+###  Публикация: 1433163   (162298) от 19.12.2020
+
+Ramon Roselly - Herzenssache (Platin Edition) (2020) [FLAC|Lossless|image + .cue] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162298.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nachts, wenn ich so alleine bin
+2. Wenn du gehst
+3. Es gibt kein Wort dafür
+4. Eine Nacht(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5371AEDCF67FCE0F7CD56E10DCE5645F3D321B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432704   (162230) от 19.12.2020
 
 VA - Mellow Easy Chilled Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -727,33 +756,6 @@ Run 4 Fun - Please Don't Talk To Jessica (1994) Maxi-Single [APE|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC6402C45945644A363B0566FAE15E5AF4BB824B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194657   (154351) от 26.12.2017
-
-Magnus - Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer's Here
-02. PuppyЖанр: PopПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52D372E6EC232CB6B36F1F872C8CFFD2B80AC39
 ```
 
 https://mybot314.ru/tekegram_catalog/

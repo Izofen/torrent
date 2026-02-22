@@ -1,3 +1,32 @@
+###  Публикация: 912313   (610984) от 26.06.2015
+
+Hellmotz - South Born (2015) [MP3|320 кб/с]<Southern / Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Phillips (The Formidable Bastard)
+02. Wielding the Axe
+03. Defiance
+04. Booze & Girls(   Читать дальше...   )Жанр: Southern / Thrash MetalПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E571595358ACA91B914F1BAE4F06FBFB612DE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912587   (610872) от 26.06.2015
 
 Exarsis - The Human Project (2015) [MP3|320 кб/с]<Thrash Metal>
@@ -730,32 +759,6 @@ Thy Art Is Murder - 3 Albums, 2 EP (2007-2015) [MP3|167-175, 320 кб/с]<Techni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:488FCFB9CD60C8771E79C5B3A6FA594FBCA88419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232347   (599924) от 24.06.2018
-
-Powerwolf - Demons Are a Girl‘s Best Friend (2018) Single [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demons Are a Girl‘s Best FriendЖанр: Power MetalПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687D75CD9DAE5C2D06DFBC1EFA5C8883016288D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

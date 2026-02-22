@@ -1,3 +1,90 @@
+###  Публикация: 1007197   (823640) от 14.04.2016
+
+Milt Jackson - Bags & Flutes (1957) Remaster, 2012, Warner[FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bags' New Groove [06:03]
+ 02.Sandy [03:57]
+ 03.Midget Rod [05:47]
+ 04.I'm Afraid the Masquerade Is Over [03:47](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74015DA9FEEE563A394181A37266EA5F10B4E2BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007149   (823562) от 14.04.2016
+
+Louis Armstrong - Louis Armstrong (1987) Series Compact Jazz, Compilation [APE|Lossless|image + .cue] <Jazz,  Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Gotta Right To Sing The Blues
+02. Moon Song
+03. Don't Get Around Much Anymore
+04. Let's Fall In Love(   Читать дальше...   )Жанр: Jazz,  DixielandПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F97FD521B50B4376607BD9F41EAFC12880BC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007333   (823556) от 14.04.2016
+
+Malaya Blue - Heartsick (2016) [FLAC|Lossless|image + .cue] <Blues, Jazzy Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823556.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Heartsick (03:21)
+2. Hunny Little Day Dream (04:02)
+3. Colourblind (04:42)
+4. Let's Reinvent (Love) (07:12)(   Читать дальше...   )Жанр: Blues, Jazzy Blues, Blues RockПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80D59738C35B77CAE1518E08DF39BB98BA4755E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502875   (823166) от 17.10.2021
 
 Les McCann & Eddie Harris - Swiss Movement (1969) 1990, Atlantic [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
@@ -655,93 +742,6 @@ The Buddy DeFranco (De Franco) Quintet - Cooking The Blues (1955) Remaster, 2013
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DF2798782F6243E0C4FBAA25FFF641498CADF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007516   (821621) от 15.04.2016
-
-Art Blakey & The Jazz Messengers - 'S Make It (1964) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Faith [03:47]
- 02.'S Make It [05:41]
- 03.Waltz For Ruth [05:47]
- 04.One For Gamal [03:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724408F09CAABA7CC73BF868DA8F675CDDC1B8E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007549   (821619) от 15.04.2016
-
-Spirit Level - Kolossi Blues (2014) [FLAC|Lossless|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What You See Is What You Get    03:47
-02. It's Gone    03:30
-03. It's A Hard Life    04:52
-04. Foolish Pride    03:08(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862A30F6918626DCADCA20DF4ED2C3F738CCE328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007437   (821613) от 15.04.2016
-
-Clube de Patifes - Casa de Marimbondo (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Mama (feat. Luiz Caldas) (04:22)
-02. Radiola (03:59)
-03. Baby Blues (03:55)
-04. O Inquilino (03:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F023BEF4F0A6185D4369E380596076D89B398A16
 ```
 
 https://mybot314.ru/tekegram_catalog/

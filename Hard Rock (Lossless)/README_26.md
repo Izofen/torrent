@@ -1,3 +1,32 @@
+###  Публикация: 1500934   (838235) от 08.10.2021
+
+Cormada - Music For Generations To Com (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakout 03:56
+02. I Got You 03:26
+03. I Will Not (Wait To See You Fall) 04:00
+04. Dancing All Over My Heart 05:01(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4520D76A6E4A168AA4F7EEE2B15541FBC60C8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501100   (838232) от 08.10.2021
 
 Station - Perspective (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -719,35 +748,6 @@ Bangkok Dollars - Lost Souls (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, He
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4373B8B4F6E86F138DA5AEA575A0CA6C48F98300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116818   (821044) от 21.03.2017
-
-Eclipse - Monumentum (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Vertigo  (03:23) 
-02| Never Look Back  (03:20) 
-03| Killing Me  (03:46) 
-04| The Downfall Of Eden  (04:21) (   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B302CC6D1F0C5A3DF92CA352375425889A88AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

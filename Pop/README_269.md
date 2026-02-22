@@ -1,3 +1,90 @@
+###  Публикация: 1631969   (235924) от 08.05.2023
+
+Linda Jo Rizzo - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now
+02. Can't Escape From You
+03. Angel Of Love
+04. I Love Fashion(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F1CF6DACD3AED0642B2A7D6AEB957947313D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458102   (235913) от 28.03.2021
+
+Annette Humpe - Solo (серия "Другие восьмидесятые") (1990) [MP3|320 Kbps] <German Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_235913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Macht nichts
+02. Ich kusse Ihren Mann
+03. Warten auf ein Telegramm von Gott
+04. Nur zu Gast(   Читать дальше...   )Жанр: German Pop, ElectronicПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC836E86623901511284A77489D57B669C5CB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458084   (235905) от 28.03.2021
+
+Chicasss - 2 Albums (1989, 1990) Collection [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_235905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manana (3:48)
+02. Your Memory (4:35)
+03. Te Quiero (3:20)
+04. Noches De Acapulco (3:45)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EDA9A05AA7B26D7046A7FCB0A02C1834F07B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642032   (235779) от 26.06.2023
 
 Marshmello - Mellokillaz (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronique, Dance>
@@ -656,93 +743,6 @@ Donna Summer - Another Place and Time (1989) Deluxe, 2023, Driven By The Music [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EE56B7FBD7DD6E4B4B87EE9BBF04BF75240FDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634259   (233516) от 19.05.2023
-
-VA - Mega Hits Sommer 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast Boy - Forget You (2:27)
-02. Felix Jaehn - Call It Love (2:34)
-03. Glockenbach - YEAH (2:38)
-04. badmómzjay - Auf die Party (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 04:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800EE20958AA090381B6673F883E129D233A40A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634234   (233427) от 20.05.2023
-
-Victoria Anthony - New Disaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Disaster [00:03:26]
-02. Can't Hold Back [00:02:50]
-03. Better Boyfriend [00:03:19]
-04. Little Secret [00:02:59](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD0363314C2B9E928FD15D926B82D29449DAAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634496   (233350) от 20.05.2023
-
-Kim Dotcom - Good Times (2014) [MP3|320 Kbps] <Electronic, Dance, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazing (feat. Laughton Kora)
-02. Good Times (feat. llati)
-03. Dance Dance Dance
-04. Keeps Getting Better (feat. llati)(   Читать дальше...   )Жанр: Electronic, Dance, PopПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FD02C486A0748DEBBD5FFA2D04719609078FE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

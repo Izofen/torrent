@@ -1,3 +1,32 @@
+###  Публикация: 1732453   (52029) от 25.06.2024
+
+Tom Holkenborg (Junkie XL) - Furiosa A Mad Max Saga OST (2024) OST [MP3|320 Kbps] <Techno,Ambient>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 the-pole-of-inaccessibility
+02 dementus
+03 the-promise
+04 you-are-awaited(   Читать дальше...   )Жанр: Techno,AmbientПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF75EF4CCB65EA72282792B8CCD09562D8DD63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731023   (51697) от 28.06.2024
 
 London Music Works - The Story of Wick: Music From the John Wick Movies (2024) OST [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Film Soundtracks, Soundtrack>
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAC67DFC8655B2BBAE75364A4D5F936F05C2AF88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759383   (37919) от 08.11.2024
-
-Комбинация - Комбинация (2024) [FLAC|Lossless|WEB-DL|tracks] <OST, Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Russian Girls (Radio Edit)
-2. Хэй, мама
-3. Echoes across the sea (Кирилл Бородулев)
-4. Пойдем со мной(   Читать дальше...   )Жанр: OST, PopПродолжительность: 01:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A383786756C1C4F41C53B556F47B561669E94EC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

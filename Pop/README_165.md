@@ -1,3 +1,125 @@
+###  Публикация: 1043197   (574421) от 15.08.2016
+
+VA - Take On Me: 80's the Collection (2012) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Ha - Take On Me [00:03:39]
+02. New Order - Blue Monday '88 [00:03:49]
+03. Bananarama - Venus [00:03:48]
+04. Communards - Don't Leave Me This Way (with Sarah Jane Morris) [00:04:50](   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 03:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEC0F882D7F739AFAE6DDE4261F5A64CE08CE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043294   (574418) от 15.08.2016
+
+Radiorama - The Second (1987) Reissue, Deluxe Edition, 2016, Deluxe CD Music [FLAC|Lossless|image + .cue] <Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yeti (5:44)
+ 02. Aliens (5:50)
+ 03. Woman (4:54)
+ 04. Warrior (4:16)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31ACAF7FACB0F8B04E6C6E13D5E2AC04FF299D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812261   (574388) от 12.08.2014
+
+VA - I Love Italo Disco Legends Vol.1-5 (2011) 5CD [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Project - Amama 5:32
+02. Fun Fun - Happy Station (Scratch Remix) 6:49
+03. Doctor's Cat - Feel The Drive (Remix) 5:51
+04. Time - Shaker Shake (Dub) 5:00
+05. Ken Laszlo - Hey Hey Guy (Swedish Mega-Mix) 7:48
+06. Max Him - No Escape (Remix) 6:10
+07. Kano - Another Life (Instrumental) 5:40
+08. Amnesie - Turas 6:55
+09. B.W.H. - Livin' Up 4:48
+10. Mr.Flagio - Take A Chance (Instrumental) 7:44(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 06:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54DC6978DE2AD115DC7F95F2EF1C870D8C39018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151357   (574353) от 18.07.2017
+
+Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover To Lover (For Sale) (AV Version) (08:10)
+02. Take My Heart (Vocal Version) (05:13)
+03. Recollection (Vocal Version) (07:03)
+04. I'm Your Lover (Vocal) (05:30)(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A78AA099E889FADE054B84C50A5FE9F01FA367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151098   (574341) от 18.07.2017
 
 John Paul Young - Greatest Hits (1997) CD [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
@@ -652,122 +774,6 @@ Sandra - Medley - Non-Stop Hit Mix 2020 (2020) [FLAC 2.0|48/24|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4FB2FE3B8CCC1EAAC12A63A6E659705AE82D977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922088   (571691) от 27.07.2015
-
-Sophie Marceau - Certitude (1985) [MP3|192 кб/с]<French Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bérézina
-02. Formose Tripper
-03. Vive la Mariée Señor
-04. L’hirondelle Dans le Sel(   Читать дальше...   )Жанр: French Pop, ChansonПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD02AC5CB18DFA40042EE003287CF0A9BA2CDDA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922248   (571591) от 27.07.2015
-
-Город 312 - Star-Hit - Звёздная коллекция (2010) [FLAC|image + .cue]<Pop Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 213 дорог [2:50]
-02. Останусь [3:41]
-03. Вне зоны доступа [3:32]
-04. Весна [2:58](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B170FB4CAEE5ADD139BD28CCFC0DC250A9FE49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234498   (571024) от 05.07.2018
-
-VA - 40 Tubes Ete (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571024.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Aya Nakamura - Djadja
-02. Maitre Gims, Vianney, Maitre Gims en duo avec Vianney - La meme
-03. El Profesor, Hugel - Bella ciao (HUGEL Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9CE0B6A9EF1F7D0E93E376335D2E3504C037EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234435   (571019) от 05.07.2018
-
-Planet Earth - Planet Earth (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocket Man (5:04)
-02. Space Boogie (4:33)
-03. Across The Universe (4:06)
-04. Telstar (4:24)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EC91631D2ADB91E383887230E2D8B5A5028A8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

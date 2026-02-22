@@ -1,3 +1,32 @@
+###  Публикация: 1607025   (1044223) от 24.01.2023
+
+VA - Hits Nu Disco Views 003 (2023) [MP3|320 Kbps] <Indie Dance, Nu Disco, Deep Groove, Soulful>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MR Werback - I'm So Sorry (Instrumental Mix)
+02. Harry Borg - I'll Be Waiting (Original Mix)
+03. Idos - Dance Like You're Alone (Rina & Tom Antopolsky Remix)
+04. NAASA, Margaryan, Shan Tazh - Alone In The Desert (Original Mix)(   Читать дальше...   )Жанр: Indie Dance, Nu Disco, Deep Groove, SoulfulПродолжительность: 02:11:11 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943396468988B91CD8A22AE6B0A2239345F9CE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436338   (1042979) от 01.01.2021
 
 VA - Shazam Хит-парад World Top 200 Декабрь (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - National Pop Dance Vol.12 (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B9FD442158033B49AC8A8FE7C71A3C9E3D99074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449186   (1030012) от 21.02.2021
-
-VA - German Top 100 Single Charts 19.02.2021[MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Evans 220 KID Billen Ted - Wellerman (Sea Shanty 220 KID x Billen Ted Remix)
-02. Kasimir1441 badmmzjay WILDBWOYS - Ohne Dich
-03. Jamule Capital Bra - No Comprendo
-04. Tiеsto - The Business(   Читать дальше...   )Жанр: PopПродолжительность: 04:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D465FD7198A1C23291BF95D28534FA3B72152078
 ```
 
 https://mybot314.ru/tekegram_catalog/

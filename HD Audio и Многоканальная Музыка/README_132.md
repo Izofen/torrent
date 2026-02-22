@@ -1,3 +1,177 @@
+###  Публикация: 1729154   (108110) от 10.06.2024
+
+Mighty Joe Belson - The Doodle Cats: 2020 Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2020 Blues (5:48)
+02. Spring Swing (3:50)
+03. Candlelight Memories (4:38)
+04. Bel-Stones (Doodle Cats Theme Song) (3:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E27E423DDDA8CDCAA497BD5E50D802D2E727272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729150   (108109) от 10.06.2024
+
+Bob Recchione - Bellissima (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I See Your Face (5:00)
+02. Summer Blues (5:00)
+03. It Seems to be the End (5:00)
+04. Sneaking Around (5:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0441FFD2FB6D2955920FA922CCCE7411CAF616A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729292   (108108) от 10.06.2024
+
+Strange Fruit - Once So High (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely-Lonely (6:47)
+02. Ragged Soul (7:16)
+03. Once So High (4:22)
+04. Driving Me Mad (7:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13042C4FA5EB599F7AD2AFF4B180565D1D91EB53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729288   (108107) от 10.06.2024
+
+Freak Kitchen - Everyone Gets Bloody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everyone Gets Bloody (3:16)
+02. Medal (4:36)
+03. Slip (3:17)
+04. Small Acts Of Rebellion (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C4D5EC7EDA9240EB206EB6DDDE680CD7859A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729284   (108106) от 10.06.2024
+
+Collateral - Should've Known Better (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Sky (3:53)
+02. Original Criminal (3:56)
+03. Just One Of Those Days (3:18)
+04. Teenage Dreams (4:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B8A6F5872FD33271A349851EE563C17B9E1FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729157   (108105) от 10.06.2024
+
+Scott Gilman - So Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Night At The York (4:52)
+02. When I See You (4:45)
+03. Almost Home (5:35)
+04. Ensenada (6:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A220CD7FCDA512939012185AFE7EB6BED7FB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729152   (108104) от 10.06.2024
 
 Frunkyman - The Frunk Is Real (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Funk>
@@ -567,180 +741,6 @@ Mortician - австрийская хэви-метал группа из Сат�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A30FF7E4D978422842777F0D8494B9A369EA02B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729733   (108001) от 12.06.2024
-
-Xaon - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xaon — швейцарская метал-группа, образованная в 2014 году.2016 - Face of Balaam (EP)
-2017 - The Drift
-2019 - Solipsis
-2022 - The LetheanЖанр: Symphonic Death MetalПродолжительность: 02:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394D61CC015C19CB232D84A4F13B65C5D0B08831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729408   (108000) от 12.06.2024
-
-Libra - Follow The Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journeying [00:03:39]
-02. Live Yourself [00:04:22]
-03. My Shining Soul [00:03:35]
-04. I'll Breathe For Me [00:04:24](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CE32EEE15B4D7AD3CA5C4EF59E11200AD17B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729588   (107999) от 12.06.2024
-
-When Nothing Remains - Studio Albums (3 releases) (2012-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107999.jpg" />
-</div>
-
-
-###  Подробнее
-
-When Nothing Remains - шведская дум/дэт-метал группа, в которую входят участники таких групп, как Nox Aurea, The Cold Existence, Rimfrost, Draconian, Doom: VS.
-Идея When Nothing Remains родилась в конце 2010 года, когда Питер Лаустсен «Rimfrost, Nox aurea, The Cold Existence» и Ян Салландер «The Cold Existence» захотели создать что-то очень мрачное и эмоциональное. (   Читать дальше...   )2012 - As All Torn Asunder
-2013 - Thy Dark Serenity
-2016 - In MemoriamЖанр: Gothic/Doom/Death MetalПродолжительность: 03:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88278C64D1AB5C7A3E29DF0125E67A0C6DC749A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729921   (107998) от 13.06.2024
-
-Shred - What They Say (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What They Say (4:51)
-02. Nobody Knows Me (4:29)
-03. The Ride (3:39)
-04. Monster (4:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3B7A544944D849486552D933115989F56D7DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729933   (107997) от 13.06.2024
-
-Ensiferum - Iron (2004) Remastered, 2014, Blood Music[FLAC|24/192|image + .cue|Vinyl-Rip]  <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107997.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ferrum Aeternum
-A2 Iron
-A3 Sword Chant
-A4 Mourning Heart - Interlude(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7454BBFA23C158F5DA11FF22A25A741672747478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729741   (107996) от 13.06.2024
-
-Kickhunter - Greatest Kicks (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Emotions (Remix 2024) (3:31)
-02. Mine All Mine (Remastered 2024) (4:00)
-03. This Summer (3:48)
-04. To Hell and Back Again (Remix 2024) (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08C4DA14E0D6EE5FD8C42D876271004C4CC5487
 ```
 
 https://mybot314.ru/tekegram_catalog/

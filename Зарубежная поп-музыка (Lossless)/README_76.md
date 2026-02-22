@@ -1,3 +1,32 @@
+###  Публикация: 1645663   (233106) от 10.07.2023
+
+Christopher Romberg - Stanna hos mig! (1992) [FLAC|Lossless|WEB-DL|tracks] <Pop, Schlager, Stage & Screen, Musical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skona manniskor - (Ingemar Olsson) - [02:24]
+02. Mitt sommarlov - (Britt Lindeborg) - [02:50]
+03. Musik ska byggas utav gladje - (Lill Lindfors) - [02:43]
+04. Jag skall mala hela varlden, lilla mamma - (Joss Toje) - [03:02](   Читать дальше...   )Жанр: Pop, Schlager, Stage & Screen, MusicalПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A7D7023F0452F193B9609699FF56CC32303289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643434   (232655) от 01.07.2023
 
 Sam Brown - The A&M Years 1988-1990 (2016) 4 x CD, Compilation, Remastered, Caroline International [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
@@ -727,41 +756,6 @@ Party Poppers - Sing-Along Christmas Party (1997) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:985F33E57FAD40CD675B496025AF9446E2E3A478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587074   (225888) от 09.12.2012
-
-V.A. - Суперхиты дискотеки 90-х - Золотые баллады (2011) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haddaway - I Miss You
-02. East 17 - Thunder
-03. Seal - Crazy
-04. Simply Red - Stars
-05. Rialto - Monday Morning
-06. Chris Rea - The Road To Hell (Part II)
-07. Coolio - Gangsta's Paradise
-08. Sarah Brightman - Eden
-09. Shakespears Sister - Stay
-10. East 17 ft. Gabrielle - If You Ever(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

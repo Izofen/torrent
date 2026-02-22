@@ -1,3 +1,174 @@
+###  Публикация: 1799335   (16752) от 07.08.2025
+
+Shadecrown - Studio Albums (4 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadecrown - метал-группа из Финляндии, основанная в 2012 году.2016 - Agonia
+2019 - Riven
+2021 - Solitarian
+2025 - 0Жанр: Melodic Death/Doom MetalПродолжительность: 03:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82230B47378BF6291E4641FF5FB1D8BA9B6F7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810983   (16721) от 07.08.2025
+
+Ozzy Osbourne - Blizzard of Ozz (1980) Released, 2011, Sony Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16721.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Don't Know
+A2 Crazy Train
+A3 Goodbye To Romance
+A4 Dee(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39B4A6ED79763CE398388FF508A571147FAA1A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550333   (16454) от 29.05.2025
+
+Slayer (& Kerry King) - Studio Albums (15 releases) (1983-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slayer  — американская метал группа. Коллектив был основан в 1981 году.
+Вместе с группами Metallica, Megadeth и Anthrax, Slayer входит в «большую четвёрку трэш-метала».1983 - Show No Mercy
+1985 - Hell Awaits
+1986 - Reign in Blood
+1988 - South of HeavenЖанр: Thrash MetalПродолжительность: 11:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B376C4729165FA697E8B5322EE2C49EC2831A1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811401   (16229) от 09.08.2025
+
+Bonded - Studio Albums (2 releases) (2020-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bonded - немецкая метал-группа из Дортмунда, Северный Рейн-Вестфалия, сформирована в 2018 году.2020 - Rest In Violence
+2021 - Into BlacknessЖанр: Thrash MetalПродолжительность: 01:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73773B32AB16A077DC84A707CF3750363C1C2149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724128   (16201) от 09.08.2025
+
+Wolfskull - Studio Albums (3 releases) (2019-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfskull - хард-рок-группа из Северного Рейна-Вестфалии, сформированная весной 2018 года.2019 - Hexum (EP)
+2022 - Ave GoddessЖанр: Hard RockПродолжительность: 01:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD04781FE46BD68CA7DEC272EDFF82485174D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811355   (16200) от 09.08.2025
+
+Andreas Vollenweider - The Best Of Vol. 1 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Modern Classical, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Behind The Gardens-Behind The Wall-Under The Tree
+A2 Pyramid-In The Wood-In The Bright Light
+A3 Skin And Skin(   Читать дальше...   )Жанр: Electronic, Modern Classical, AmbientПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:022CEA5D698CE1AB9AAF68EB1E312349BB0DC206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811442   (16142) от 10.08.2025
 
 Peter Bjargo (Bjärgö, Arcana, Onus) - Studio Albums (10 releases) (2005-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Dark Ambient, Modern Classical>
@@ -567,181 +738,6 @@ Sodom — немецкая трэш-метал-группа из Гельзен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2CCC08F48EB63226F419B6061A47285E48372F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551410   (12565) от 04.07.2025
-
-Pop Evil - Studio Albums (8 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative metal, post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pop Evil — американская рок-группа, основанная в 2001 году в Северном Маскегоне, штат Мичиган.2009 - Lipstick On The Mirror
-2011 - War Of Angels
-2013 - Onyx
-2015 - UpЖанр: Alternative metal, post-grungeПродолжительность: 06:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF4F3DB26B4C3F7460DBC43AABCE3E7E42683BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641923   (12546) от 04.07.2025
-
-Coheed And Cambria - Studio Albums (11 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coheed And Cambria — американская прогрессив рок (нью-прог) команда со всех уголков штата Нью-Йорк, США. Группа образовалась в 1995 году, под именем Beautiful Loser, с 1996 года стали называться Shabutie, с 2001 года называются Coheed And Cambria. Пишут композиции по мотивам историй, написанных фронтменом группы Клаудио Санчесом, и с 2006 года издающихся в виде комиксов.2002 - The Second Stage Turbine Blade
-2003 - In Keeping Secrets Of Silent Earth: 3
-2005 - Good Apollo, I'm Burning Star IV, Volume One: From Fear Through the Eyes of Madness
-2007 - Good Apollo, I'm Burning Star IV, Volume Two: No World for TomorrowЖанр: Progressive RockПродолжительность: 11:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D85613A83D7B137D82F85CDED1252C4737C551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695379   (12519) от 04.07.2025
-
-Warkings - Studio Albums (5 releases) (2018-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warkings - австрийская пауэр-метал/хэви-метал группа. Основана в 2018 году.2018 - Reborn
-2020 - Revenge
-2021 - Revolution
-2022 - MorganaЖанр: Power MetalПродолжительность: 03:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC843D52C0EFCBF0CFBE4110AC37BE23A0C64BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805150   (12438) от 05.07.2025
-
-Night Tempo - Showa Idol's Groove. Rare Groove From 80's (2019) (Night Tempo Self-released) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Vaporwave, Nu-Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Intro
-02. Iyo
-03. Akemi(   Читать дальше...   )Жанр: Electronic, Vaporwave, Nu-DiscoПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455290FFBE9DA7993E990CDA59335B32BD3D213E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804961   (12418) от 05.07.2025
-
-Studio Ghibli - Studio Ghibli Songs (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. My Neighbor Totoro (Captured Near Me 1988 Kazuto)
-02. Carrying You: A Fatty Call (Azure Sky Castle - 1986)
-03. Valley of the Wind Oinoya (Iriinoya - 1984)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F131B968D96B719760A18DCDED3DE1FC0687B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723409   (12236) от 07.07.2025
-
-Big Wreck (& Thornley) - Studio Albums (11 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Wreck — канадско-американская рок-группа, созданная Яном Торнли в Бостоне, штат Массачусетс, в 1994 году. Группа распалась в 2002 году, и Ян Торнли продолжил сольную карьеру в своей собственной группе Thornley. В 2010 году Ян Торнли и Брайан Доэрти воссоединились для тура по Канаде, исполнив песни Big Wreck и Thornley.
-Big Wreck снова начали выпускать новую музыку (   Читать дальше...   )1997 - In Loving Memory Of...
-2001 - The Pleasure and the Greed
-2012 - Albatross
-2014 - GhostsЖанр: Progressive RockПродолжительность: 11:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1DB891FAFCBDBF5BB5438068941DB9FC9B593D
 ```
 
 https://mybot314.ru/tekegram_catalog/

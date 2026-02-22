@@ -1,3 +1,29 @@
+###  Публикация: 1226494   (655553) от 20.05.2018
+
+SpeedCommander Pro 17 (17.40.9000) [En/De]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655553.jpg" />
+</div>
+
+
+###  Подробнее
+
+SpeedCommander - файловый менеджер с многочисленными, в том числе и уникальными, возможностями для работы с файлами. Из непривычных для файловых менеджеров функций можно обратить внимание на мощную систему шифрования файлов (файлы сжимаются (внутренняя поддержка ARJ, ZIP, LHA, RAR, CAB, ACE, GZIP, TAR и UUE), затем шифруются с помощью стойкого алгоритма DES, а потом (   Читать дальше...   )Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BDF278710BAEC1FA27B87B1E98F2B9F566C0C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226380   (655551) от 20.05.2018
 
 Viber 8.8.0.6 [Multi/Ru]
@@ -671,32 +697,6 @@ UsbTreeView маленькая утилита, реализующая больш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32DDAB2A34CB535B25C08C9EBD73C67EE1A36820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226477   (655370) от 20.05.2018
-
-All in One Runtimes 2.4.6 Portable [De]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655370.jpg" />
-</div>
-
-
-###  Подробнее
-
-All in One Runtimes - пакет приложений, необходимый для запуска и автономной работы большинства современных программ и игр, содержащий в себе .NET Framework (включая hotfixes), DirectX 9.0c, Adobe Flash Player, Microsoft Silverlight, Shockwave Player, Java Runtime Environment, Microsoft Visual C++ Runtimes и Microsoft Visual J# SE. После запуска программа автоматически (   Читать дальше...   )Язык интерфейса: Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070F65CCE1F8A5F7086028A2A49FE5911E7D49BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

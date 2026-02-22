@@ -1,3 +1,29 @@
+###  Публикация: 177712   (929463) от 22.02.2010
+
+Win7codecs 2.4.0 & x64 Components addon 2.4.4 Final / Eng
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Win7codecs - пакет представляет собой автоматизированное средство, предназначенное для установки основных кодеков и декодеров. Он не содержит никаких дополнительных проигрывателей и не меняет системные ассоциации файлов по умолчанию. Кроме того, при установке он автоматически удалить популярные кодеки и заменит их собственными из комплекта для обеспечения лучшей совместимости.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 177306   (929462) от 22.02.2010
 
 Журнал | Страна игр №4 [2010] [PDF]
@@ -717,41 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3FBEA09DB141462F9FDCD23C6F07EC476A2858F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177416   (929425) от 22.02.2010
-
-Cheryl Porter - What's Going On (2001) [FLAC|Lossless]<Soul / Blues / Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. It Takes Better (Bonivento, Andriolo)
-02. Route 66 (Bobby Troup)
-03. Ain't No Sunshine (Bill Withers)
-04. You've Got a Friend (Carol King)
-05. Hit the Road Jack (Ray Charles)
-06. Summertime (George Gershwin)
-07. Imagine (John Lennon)
-08. Dock of the Bay (Otis Redding)
-09. Mustang Sally (Wilson Pickett)
-10. Rainy Blues (Porter, Bonivento, Andriolo)(   Читать дальше...   )Жанр: Soul / Blues / JazzПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

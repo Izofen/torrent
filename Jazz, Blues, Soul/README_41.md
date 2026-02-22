@@ -1,3 +1,90 @@
+###  Публикация: 1483842   (1006534) от 16.07.2021
+
+Lena Horne - Love Songs (50-e - 60-e) 2005, Legacy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me or Leave Me [3:12]
+02. The Man I Love (Live) [4:29]
+03. What Is This Thing Called Love? [2:42]
+04. At Long Last Love [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99D4E6330D8F7073A6871ED0D4A80BB714D50A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483893   (1006516) от 16.07.2021
+
+Ben Jud - Hope (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope (Intro) (1:36)
+02. Glad You Made It (3:43)
+03. In My Chest (3:48)
+04. Believe in Myself (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE390F5F5E4C562AA328AC7E9B1F8860F57751D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483906   (1006507) от 16.07.2021
+
+Chris King Robinson - Chris King Robinson (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Track You Down (3:31)
+02. Why Don't You Give Me Your Love? (4:41)
+03. Million Miles Away (4:21)
+04. Going My Own Way (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F0994829D0F46931BB3E71D19BA11E817A89AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483901   (1006501) от 16.07.2021
 
 Brian Walton - Still Got My Mojo (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -658,93 +745,6 @@ Larry Burton - 500 Miles Of Highway (2011) [FLAC|Lossless|tracks + .cue] <Blues,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D9F31B620EB6D705BE332997C0EF8923EBC795D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486930   (1004333) от 02.08.2021
-
-Polly O'keary And The Rhythm Method - 50 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brand New Day (4:10)
-02. Too Much Like I Care (4:33)
-03. Can't Catch Me (4:16)
-04. Smiling (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E9F6B4AAB76B1D0EBF684638B19086242F7108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349618   (1004274) от 02.01.2020
-
-Charles Aznavour & The Clayton-Hamilton Jazz Orchestra (2009) EMI [FLAC|Lossless|image + .cue] <Big Band, Vocal Jazz, Shanson>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viens Fais-Moi Rever [4:19]
-02. Fier De Nous (Duet with Rachelle Ferrell) [4:27]
-03. Comme Ils Disent [3:48]
-04. Des Amis Des Deux Cotes [3:43](   Читать дальше...   )Жанр: Big Band, Vocal Jazz, ShansonПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5C9659838A0209249FFA369FCF2A2418446DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349818   (1004112) от 03.01.2020
-
-Edgar Hayes And His Orchestra - 1938 - 1948 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help Me [3:17]
-02. Without You [3:04]
-03. You're My First Thought Every Morning [2:43]
-04. In The Mood [3:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1624A4808432449BE9F3D48DD428999C67833B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

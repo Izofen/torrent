@@ -1,3 +1,38 @@
+###  Публикация: 166030   (978790) от 13.01.2010
+
+Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, плохой, злой (Digitally Remastered) (2004) [MP3|320 kbps]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978790.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Il Buono, Il Cattivo, Il Brutto (The Good, The Bad And The Ugly) (Main Title) (2:42)
+2. Il Tramonto (The Sundown) (1:15)
+3. Sentenza (1:41)
+4. Fuga A Cavallo (1:07)
+5. Il Ponte Di Corde (1:52)
+6. Il Forte (The Strong) (2:22)
+7. Inseguimento (2:25)
+8. Il Deserto (The Desert) (5:17)
+9. La Carrozzo Dei Fantasmi (The Carriage Of The Spirits) (2:09)
+10. La Missione San Antonio (2:15)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356230   (978728) от 30.01.2020
 
 Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [FLAC|Lossless|tracks] <Soundtrack, Score>
@@ -764,41 +799,6 @@ Dynaudio - Accentuations Guitar Impressions (2007) [FLAC|Lossless]<Audiofile, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13EF887D7DABACD625F4590A1D6515ED3F930355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743118   (975596) от 08.01.2014
-
-VA - Alle 40 Goed: Easy Listening (2013) 2CD /EMI/ [FLAC|Lossless]<Easy Listening, Oldies, Vocal Jazz>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Tom Jones - It's Not Unusual
-02. Engelbert Humperdinck - Quando Quando Quando
-03. Al Martino - Spanish Eyes
-04. Bobbie Gentry - Son Of A Preacher Man
-05. Nancy Wilson - Spinning Wheel
-06. Andy Williams - Music To Watch Girls By
-07. Helen Shapiro - Walkin' Back To Happiness
-08. Chris Montez - The More I See You
-09. Eartha Kitt - The Girl From Ipanema(   Читать дальше...   )Жанр: Easy Listening, Oldies, Vocal JazzПродолжительность: 01:50:13 (00:56:19 + 00:53:54)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D5571019C184CF517C8609ABE39524BF3FC0BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

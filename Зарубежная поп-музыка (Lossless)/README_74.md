@@ -1,3 +1,32 @@
+###  Публикация: 1621437   (245036) от 25.03.2023
+
+Lana Del Rey - Did you know that there's a tunnel under Ocean Blvd (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Grants (00:04:55)
+02 - Did you know that there's a tunnel under Ocean Blvd (00:04:45)
+03 - Sweet (00:03:35)
+04 - A&W (00:07:13)(   Читать дальше...   )Жанр: Pop, AlternativeПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51D7ABC6F12FC365993FF695D0EFBB96C108F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452756   (244473) от 07.03.2021
 
 tobyMac - Portable Sounds (2007) [FLAC|Lossless|image + .cue] <Pop, Hip-Hop>
@@ -710,39 +739,6 @@ VA - 00's Super Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90C4595A5F51FC882575A82E63545E02F0DFF65E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507881   (240626) от 18.08.2022
-
-Sophie B. Hawkins - 7 альбомов (1992 - 2006) [FLAC|Lossless]<Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Свой дебютный альбом «Tongues And Tails» («Языки и хвосты») Хокинс записала в 1992 году. Колоритный дэнс–поп с хитом–выскочкой «Damn, I Wish I Was Your Lover», которому покорились многие хит–парады, доставил ее мысли и убеждения в каждую мятежную душу и вызвал много откликов.Список альбомов:
-1992 Tongues and Tails
-1994 - Whaler
-1999 - Timbre
-2001 - Timbre with Bonus Disk
-2004 - Beautiful Girl (Single)
-2004 - Wilderness
-2006 - Bad Kitty Board MixЖанр: Rock, PopПродолжительность: 07:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C385E7C3B7FE3BB476B683B0516C5327EFACA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

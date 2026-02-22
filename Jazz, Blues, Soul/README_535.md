@@ -1,3 +1,32 @@
+###  Публикация: 1707343   (113370) от 16.03.2024
+
+Papik & Laura Lanzillo - 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abitudini
+02. Che Ore So'
+03. Nu' Pensiero Felice
+04. Se Mi Vuoi (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Pop Jazz, Nu Jazz, FunkПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB7CCB820FA7767FA4FCA1E796E8B5E9F1E576A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706295   (113347) от 16.03.2024
 
 Naoya Matsuoka - Watermelon Dandies (1985) [FLAC|Lossless|tracks + .cue] <Fusion, Latin Jazz, Disco>
@@ -716,35 +745,6 @@ Charlie Watts - Anthology (2023) 2CD, BMG [FLAC|Lossless|tracks + .cue] <Bop, Bi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54E6C664F2FCBC5EBD9BC71FB9E99C581542D45B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708063   (113121) от 19.03.2024
-
-The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Announcements by Willis Conover and Art Farmer [1:16]
-02. It Ain't Necessarily So [7:25]
-03. The Portrait [4:28]
-04. Bean Bag [9:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09003E02F7F3C65F7C60DEC4D1512F513D3CCE8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

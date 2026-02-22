@@ -1,3 +1,119 @@
+###  Публикация: 975661   (972099) от 15.01.2016
+
+VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiziano Ferro - Xdono (4:02)
+02. Tiromancino - Due destini (4:37)
+03. Lunapop - Resta con me (2001 version) (4:14)
+04. Velvet - Boyband (3:37)(   Читать дальше...   )Жанр: Italian PopПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CAC25B9A6F561D5EAC0D2E96D7F8B6362ED0E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975364   (972028) от 15.01.2016
+
+Julio Iglesias - A Mis 33 Anos (1978) [FLAC|Lossless|tracks + .cue] <Ballad, Chanson, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soy un truhan, soy un senor (3:05)
+02. Sono io (4:21)
+03. Si me dejas no vale (2:19)
+04. Por un poco de tu amor (2:58)(   Читать дальше...   )Жанр: Ballad, Chanson, VocalПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A193680EB1F8F5D85482DAED1E01EBFD105E8461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439576   (971974) от 21.01.2012
+
+Masterboy - Коллекция (7 Альбомов, 27 Синглов) (1990-2006) [FLAC|Lossless]<Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Euro-HouseПродолжительность: 00:11:46
+
+01. Megamix (Single Edit) [4:17]
+02. Megamix (Maxi Version) [7:29]
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975622   (971938) от 15.01.2016
+
+Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor [FLAC|Lossless|tracks + .cue] <Pop, Rock, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Amour A Deux [04:55]
+ 02. Dis Lui Toi Que Je T'Aime [03:58]
+ 03. L'Amour En Soi [05:07]
+ 04. La Vague A Lames [03:21](   Читать дальше...   )Жанр: Pop, Rock, ChansonПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975495   (971936) от 15.01.2016
 
 Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
@@ -635,122 +751,6 @@ Asgeir - Bury The Moon (2020) Ásgeir [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2B2CE6A62C1F542DC2C000EE036756E833B2524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358498   (968751) от 08.02.2020
-
-VA - Композитор Юрий Эрикона-Женщине... (1999) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Малинин - Ты такая красивая
-02. Азиза - Заблудилась вдалеке мечта моя
-03. И. Кобзон - Колыбельная
-04. И. Резник - Вдовушка(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA462482A9D9BC7BA0D632EBFB2E49EC628CC8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358497   (968684) от 08.02.2020
-
-Надежда Чепрага - 3 Альбома (1998 - 2004) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мне приснился шум дождя
-02. Амор ( До встречи )
-03. Записная книжка
-04. Нанэ Цоха ( из к/ф Табор уходит в небо )(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 02:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1989DEEE6CB7A116F70465D91775F50F96B6413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358505   (968681) от 08.02.2020
-
-VA - 100 Greatest Number Ones (The Best No.1s Ever) (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968681.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lukas Graham - 7 Years 3:57
-002. Dua Lipa - New Rules 3:29
-003. Tones and I - Dance Monkey 3:30
-004. Tinie Tempah feat. Jess Glynne - Not Letting Go (XYconstant Remix) 4:49(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1549949892909DD1091F8C9F8EE8B3E117E1D725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358451   (968569) от 08.02.2020
-
-Roxette - The Ballad Hits (2002) Limited Edition, 2xCD [FLAC|Lossless|tracks + .cue] <Synth-pop, Ballad, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968569.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD1:
-01.A Thing About You (3:49)
-02.It Must Have Been Love (4:19)
-03.Listen to Your Heart (5:14)(   Читать дальше...   )Жанр: Synth-pop, Ballad, Pop RockПродолжительность: 01:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76A88CEFC93B302AD84E8DED74123B8562A9B53
 ```
 
 https://mybot314.ru/tekegram_catalog/

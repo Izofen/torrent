@@ -1,3 +1,90 @@
+###  Публикация: 1627757   (239571) от 20.04.2023
+
+VA - ZYX Italo Disco New Generation Vol. 5 (2014) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miko Mission - Universal Feeling (Vocal Version)
+02. Boris Zhivago - Love In Russia (ZYX Extended Mix)
+03. Siberian Heat - Pick Up The Phone (ZYX Summer Mix)
+04. TQ  Feat. Ken Laszlo & Fred Ventura - In The Night (Extended)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE504609573E8B54CC3F30F2DCE720BA34958AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635864   (239492) от 27.05.2023
+
+GSPD - СПОРТ РЕЖИМ: КРАСНЫЙ СВЕТ (2023) [MP3|320 Kbps] <Pop, Rave, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239492.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ПЕСЕНКА ДЛЯ СЛЭМА
+2. ПОСЛЕДНИЙ ГЕРОЙ
+3. RUSSIAN MAFIA
+4. SAY NO MORE(   Читать дальше...   )Жанр: Pop, Rave, DanceПродолжительность: 00:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB82323C30384BB2343EB6E9042A6518226FC7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627409   (239412) от 19.04.2023
+
+VA - Bravo Hits 80's (2021) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Disco, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239412.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Queen - Radio Ga Ga
+02. Irene Cara - Flashdance... What A Feeling
+03. Culture Club - Do You Really Want To Hurt Me(   Читать дальше...   )Жанр: Synthpop, Dance, Disco, RockПродолжительность: 01:18:22 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53CEC7CC3F3511D4FBC0CDA8BF1387FB2038DAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065528   (239403) от 25.04.2022
 
 Валерий Меладзе - Последний Романтик (1996) Maxi-Single [APE|Lossless|image + .cue] <Pop>
@@ -657,93 +744,6 @@ VA - Keep It Disco Vol. 10 (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20E9FA69696E6321F8F4E83FED7B87B07A12EE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623882   (238301) от 03.04.2023
-
-VA - Mega Hits 2013 (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Wake Me Up (Radio Edit)
-02. Imagine Dragons - Radioactive
-03. OneRepublic - Counting Stars
-04. Katy Perry - Roar(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1812BBAC2DD0286A2B340EDC691AE5E80432F416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629299   (238293) от 26.04.2023
-
-VA - New Disco House Lights (2023) [MP3|320 Kbps] <Nu Disco, Soulful, Dance, Funky House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Von Paramus - Party Sweet  (Radio Edit)
-02. Middlestones - Talk to You
-03. Arisia - Cocaina
-04. Another Nelson - Mr. Undercover(   Читать дальше...   )Жанр: Nu Disco, Soulful, Dance, Funky HouseПродолжительность: 02:46:07 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6F2E6F00B753E622476DCAA54F52E0615DE62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629326   (237998) от 26.04.2023
-
-VA - Venti Compilation 8 (2023) 2CD, Compilation [MP3|255-277 kbps VBR] <Italo-Disco, Hi NRG, Electro, Eurodisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237998.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Fun Fun - No More Tears
-02. Koto - Tron
-03. Den Harrow - Always (Eddy Mi Ami Remix)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Electro, EurodiscoПродолжительность: 01:12:45 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2313A1E2663833227F6D742FFCF402873BC8A842
 ```
 
 https://mybot314.ru/tekegram_catalog/

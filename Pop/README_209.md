@@ -1,3 +1,116 @@
+###  Публикация: 396102   (415438) от 05.10.2011
+
+Леонид Агутин - Коллекция легендарных песен (2011) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 03:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0000A4C6C38C218F02C07D0BC6980CC2F77D7730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251139   (415240) от 02.10.2018
+
+Nile Rodgers & Chic - It’s About Time (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Till The World Falls (5:18)
+ 02/10. Boogie All Night (3:30)
+ 03/10. Sober (3:08)
+ 04/10. Do You Wanna Party (3:22)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C2E355D21B3B2FB532366F6642A58B6BFB9A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 248646   (415191) от 22.10.2010
+
+Arabesque - II, III - Japan (1979, 1980) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_415191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peppermint Jack
+02. In The Heat Of A Disco Night
+03. Rock Me After Midnight
+04. Lucifer's Lover(   Читать дальше...   )Жанр: Disco |Продолжительность: 01:10:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167600   (415077) от 21.09.2017
+
+VA - Retro Futurism - Italo Is Still Alive (2017) [MP3|320 Kbps] <Italo-Disco, Synthwave, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Emotion - Full Control (Original Mix) 06:07
+02. Maxthor - Hunters (Extended Edit) 05:30
+03. Italoconnection - Neon Disco (Also Playable Mono Remix) 07:00
+04. Magic System DJ - Frozen Hearts (Extended Version) 06:22(   Читать дальше...   )Жанр: Italo-Disco, Synthwave, Nu-DiscoПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0B02B88183C62F89D37044D4363C9A44F47BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167890   (414870) от 21.09.2017
 
 VA - Bravo Hits Vol. 99 (2CD) (2017) [MP3|320 Kbps] <Pop, Dance>
@@ -629,119 +742,6 @@ VA - Latin Party Hits 2018 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Latin>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530CF13AD5DADF40C2415D6EFD752D7BFD4785C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563170   (410800) от 20.10.2015
-
-Ace Of Base - 25 Best Songs (2012) [MP3|320 кб/с]<Pop,Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop,EurodanceПродолжительность: 01:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F96B1D8829D5F31A7B6F37F627EACF3A1114BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168263   (410353) от 23.09.2017
-
-Fergie - Double Dutchess (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hungry (feat. Rick Ross)
-02. Like It Ain't Nuttin'
-03. You Already Know (feat. Nicki Minaj) (Interlude Version)
-04. Just Like You(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA49AA2576545E221EF97FD7B31F7F194301B47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573766   (410329) от 01.09.2022
-
-Modern Talking - In The Middle Of Nowhere - The 4th Album (1986) [OGG Vorbis|485 Kbps] <Electronic, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geronimo's Cadillac	3:16
-02. Riding On A White Swan	3:52
-03. Give Me Peace On Earth	4:11
-04. Sweet Little Sheila	3:03(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522C021F848BB4C14D8E3AAB6AE6DEDC3A01E647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066702   (410177) от 27.10.2016
-
-Buck Lucky - The American Way (2015) [MP3|320 Kbps] <Traditional American Pop, Country Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The American Way
-02. Crown the K1ng (feat. Boots)
-03. College Girls
-04. Interlude (feat. Yung Peavy)(   Читать дальше...   )Жанр: Traditional American Pop, Country PopПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE53776A715B9C8191A2861959B3EF93A1AC150
 ```
 
 https://mybot314.ru/tekegram_catalog/

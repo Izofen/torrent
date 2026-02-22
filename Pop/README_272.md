@@ -1,3 +1,90 @@
+###  Публикация: 1423676   (229009) от 16.11.2020
+
+VA - 100 Hits Winter 2021 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229009.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 GIMS - YOLO
+02 OBOY - Cabeza
+03 PLK Feat. Niska - On Sait Jamais(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF989FED423BE9C0E61E709FC7CCE78E2401BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341754   (228989) от 29.11.2019
+
+Евгения Смольянинова - Чудное мгновенье (2009) [FLAC|Lossless|image + .cue] <романс>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_228989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Воспоминание
+02. Певец
+03. Заздравный кубок
+04. Про Ваню-Разбойника(   Читать дальше...   )Жанр: романсПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F83DFB765FBB62A48EFA25DDFC10AD417FC7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424186   (228894) от 16.11.2020
+
+Bad Boys Blue - Around the World (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Euro-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_228894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Around the World (3:53)
+ 02. Cold as Ice (4:19)
+ 03. Baby Come Home (3:08)
+ 04. Think About You (4:16)(   Читать дальше...   )Жанр: Euro-Disco, Euro-PopПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F44FC888600538B01B13309D0C102156B41FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268092   (228876) от 09.12.2018
 
 Андрей Державин и группа Сталкер - Новости из первых рук (Revival) (2018) [MP3|320 Kbps] <Pop>
@@ -664,93 +751,6 @@ Fun Girl - The Album (2022) [FLAC|Lossless|image + .cue] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3735B8EFF3826820D83C2E2B0947C22789A407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584188   (226624) от 17.10.2022
-
-Mylène Farmer - Désobéissance (2018) [OGG Vorbis|480 Kbps] <Electronic, Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rolling Stone
-02. Sentimentale
-03. Desobeissance
-04. N'oublie pas(   Читать дальше...   )Жанр: Electronic, Pop, BalladПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B024630FC77D7F7641B77F154D02720494B3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268520   (226523) от 11.12.2018
-
-VA - Dance Hits 2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosima Frehta - Never Felt Like This
-02. Riha - One Day
-03. BR!GHT feat. Jim Paxton - Let Me
-04. R3Wind - If You Be Mine(   Читать дальше...   )Жанр: DanceПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311851DD068CE8AE5E0711454752D6AA59A19480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584138   (226477) от 17.10.2022
-
-Sade - The Best Of Sade (1994) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Love Is King
-02. Hang On To Your Love
-03. Smooth Operator
-04. Jezebel(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40ACD38EF22178233878E2446E8B4666297DD0E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

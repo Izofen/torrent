@@ -1,3 +1,90 @@
+###  Публикация: 1106485   (871660) от 20.02.2017
+
+Billie Holiday - The Real... Billie Holiday (2011) 3CD [FLAC|Lossless|tracks + .cue] <Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Easy Living
+2. All Of Me
+3. God Bless The Child(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 03:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86F91E21D8E364B4BDBD5019C06F18F0308DDE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496640   (871657) от 18.09.2021
+
+Roland Kirk - Roland Kirk's Finest Hour (2001) Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stompin' Grounds [4:49]
+02. Blue Rol [6:12]
+03. Serenade to a Cuckoo [4:34]
+04. Spring Will Be a Little Late This Year [4:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9868D92F0731B638EC8CC8B5EA326AF717153E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496644   (871655) от 18.09.2021
+
+Duke Ellington - Duke Ellington's Finest Hour (2002) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East St. Louis Toodle-o [2:55]
+02. Black and Tan Fantasy [3:20]
+03. Jubilee Stomp [2:47]
+04. Black Beauty [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BFEB6C646E0DC388095234D8B88900735102A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106855   (871564) от 20.02.2017
 
 Judith Nijland - A Jazz Tribute To ABBA (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
@@ -687,94 +774,6 @@ Nicola Conte - Rituals (Japan Edition) (2008) [FLAC|Lossless]<Contemporary Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C4AC28D1F27DDAD8FE731B26BDBF2F3F3BD314F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873138   (870294) от 27.02.2015
-
-The Bluesbones - Saved By The Blues (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Find Me A Woman (03:45)
-02. I'm On The Road Again (04:23)
-03. I Try (06:11)
-04. Devil's Bride (06:56)
-05. I'm Still Your Man (05:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF763372371723E4711D31D588E6AFD5CF4AB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107121   (870162) от 21.02.2017
-
-Mike Mainieri - An American Diary (1995) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere
-02. King Kong
-03. Piano Sonata (Vivace)
-04. Piano Sonata No. 1(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:67:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F60022936EE2404DF19BB73BF6F20E3F55FA21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107008   (870154) от 21.02.2017
-
-Cyrus Chestnut - Natural Essence (2016) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mamacita [05:34]
- 02.It Could Happen To You [07:13]
- 03.Faith Amongst The Unknown [06:16]
- 04.I Cover The Waterfront [06:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD1ED7DCDFAC8DCAB2A26CD998A0F978AC591FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

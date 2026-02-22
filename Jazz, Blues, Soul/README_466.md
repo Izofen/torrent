@@ -1,3 +1,32 @@
+###  Публикация: 1591115   (187585) от 17.11.2022
+
+Mattias Malm - Electric Avenue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goin' Down South (3:15)
+02. Jumper on the Line (2:44)
+03. Fireman Ring the Bell (3:38)
+04. Someday Baby (2:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16CD9869C2589DB28E1C61EAE422F8F1906E899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591112   (187583) от 17.11.2022
 
 Frances Tease - Paradise Lost (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -715,35 +744,6 @@ Renee Rosnes - As We Are Now (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:101187098566B426493958EF0B77DE6AE63136B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827445   (186377) от 21.10.2025
-
-Tom Hambridge - Down The Hatch (2025) [FLAC 24/44.1|Lossless|WEB-DL] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Willie Dixon's Gone (3:13)
-02.  Everytime I Sing The Blues (4:21)
-03.  I Want You Bad (3:14)
-04.  How Blues Is That (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356BB3DD3E5AE693FFB05A79C4688D07A7FD19BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

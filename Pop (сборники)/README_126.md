@@ -1,3 +1,32 @@
+###  Публикация: 1763991   (35243) от 04.12.2024
+
+VA - US Top 100 – The 00s (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Day - Boulevard of Broken Dreams - (04:22)
+ 02. JAY-Z-Linkin Park - Numb - Encore - (03:25)
+ 03. Coldplay - Viva La Vida - (04:02)
+ 04. Jason Mraz - I’m Yours - (04:02)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC5022AF7417E4190EC7D95045B48B0CC02A428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765598   (34324) от 13.12.2024
 
 VA - Awesome 90's Hits (2024) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ AlimkhanOV A. - Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5F5B295DB83450F0885E489192FD6B8DCC40DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790155   (22178) от 07.04.2025
-
-AlimkhanOV A. - Cover Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlantis Is Calling (SOS For Love) (MT Cover) (3:59)
-02. Do You Wanna (Disco Magic Remix) (4:47)
-03. Doctor For My Heart (Extended MT Version) (5:38)
-04. Don't Break The Heart (BBB Cover) (3:40)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 05:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E1B7F2D71A4E85891CA5F2E8D9F68955151511
 ```
 
 https://mybot314.ru/tekegram_catalog/

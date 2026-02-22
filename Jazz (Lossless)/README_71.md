@@ -1,3 +1,38 @@
+###  Публикация: 769479   (855138) от 23.03.2014
+
+Kiri Te Kanawa - Kiri Sidetracks - The Jazz Album (1999) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. A Sleepin' Bee
+02. Honeysuckle Rose
+03. Cute
+04. It Could Happen to You
+05. Like Someone in Love
+06. Autumn Leaves (Feuilles Mortes)
+07. It Never Was You
+08. The Shadow of Your Smile
+09. Too Marvellous for Words
+10. Angel Eyes(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB346D81C7065186968F65032FE90EDD34624C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 304979   (855051) от 08.03.2011
 
 Ayako Hosokawa - Mr. Wonderful [XRCD] (1988) [APE|Lossless]<Jazz, Smooth Jazz>
@@ -779,41 +814,6 @@ Lori Mechem - Brazilian Christmas (2005) [FLAC|Lossless]<Jazz, Christmas>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD1C8435F08309E40774B118B93D6C57F73F5AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770101   (853187) от 24.03.2014
-
-Oscar Peterson - The Song Is You - Best of the Verve Songbooks (1996) 2CD [FLAC|Lossless]<Bop, Standards, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1 I Only Have Eyes for You (Harry Warren-AI Dubin) 4:07
-2 I Gotta Right to Sing the Blues (Harold Arlen-Theodore 'Ted' Koehler) 5:06
-3 You Must Have Been a Beautiful Baby (Harry Warren-John Herndon "Johnny" Mercer) 4:05
-4 Come Rain or Come Shine (Harold Arlen-Johnny Mercer) 4:27
-5 I Can't Give You Anything but Love (Jimmy McHugh-Dorothy Fields) 5:23
-6 I'm in the Mood for Love (Jimmy McHugh-Dorothy Fields) 3:53
-7. John Hardy's Wife (orig., "John Hardy") (Mercer Kennedy Ellington) 2:32
-8 I Got It Bad (and That Ain't Good) (Duke Ellington-Paul Francis Webster) 3:08
-9 That Old Black Magic (Harold Arlen-Johnny Mercer) 3:03
-10 A Foggy Day (George and Ira Gershwin) 2:51(   Читать дальше...   )Жанр: Bop, Standards, Piano JazzПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF11D70D86DC63AA9399F8E7AFF5E5BF1272B7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

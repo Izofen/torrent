@@ -1,3 +1,29 @@
+###  Публикация: 605544   (995892) от 19.01.2013
+
+Журнал | Вышиваю крестиком № 2(103) [февраль 2013] [JPEG]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите внести новые краски в картину своей жизни, ищете душевного покоя и мечтаете о творчестве - читайте самый популярный в Европе журнал о вышивке крестиком - инновационное в России издание о рукоделии - журнал Вышиваю Крестиком!Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B61F29B64D49806599DB6D3C3E4066AD2E3B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605204   (995888) от 19.01.2013
 
 65daysofstatic - We Were Exploding Anyway (2010) [FLAC|Lossless]<Drum`n`Bass, Post Rock, Glitch, Experimental>
@@ -701,41 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604915   (995836) от 19.01.2013
-
-Mornastra - What Whispered The Stars (2012) [MP3|320 кб/с]<Traditional Electronic, Space,  Spacesynth>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Hole [4:56]
-02. To Unexplored Worlds [4:38]
-03. Interstellar Spaces [3:53]
-04. The Dark Matter [4:08]
-05. Universal Vasts [5:32]
-06. Endless Varieties of Worlds [4:22]
-07. Hundreds of Light Years [4:12]
-08. Comeback to Earth [4:32]
-09. Radio Wave [4:41]
-10. Aether Substance [4:17](   Читать дальше...   )Жанр: Traditional Electronic, Space,  SpacesynthПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DEC3ACF48F14A12F3389DAE5ED0BEB2BF3A4D8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

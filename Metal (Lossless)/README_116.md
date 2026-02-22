@@ -1,3 +1,276 @@
+###  Публикация: 1541876   (643136) от 04.04.2022
+
+Grimorium Verum - Reall (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In The Labyrinth Of The Dead (00:06:03)
+02 - Black Church Eternity (00:04:33)
+03 - The Lamp Of Destiny (00:05:36)
+04 - Hourglass (00:02:16)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C199288E3CCA504D02ECF9094C732D7E8737D015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541689   (643132) от 04.04.2022
+
+Petrification - Hollow Of The Void (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Prelude
+02.Arachne Exsanguine
+03.Technological Assimilation
+04.Summon Horrendous Destruction(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E697CBA0E23F0657FC4A15F2F57AF83DEAA8B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142458   (642982) от 14.06.2017
+
+Tiluland - Axes Of The Universe (2011) [FLAC|Lossless|tracks + .cue] <Power Metal, Shred, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (To the Kings)  (01:22) 
+02. Tilu of the Kings  (04:36) 
+03. March of Immortals  (04:06) 
+04. Heroes  (03:49) (   Читать дальше...   )Жанр: Power Metal, Shred, InstrumentalПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E007C1B6B88DBB9BEC4851CF79DAC54EEE20B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541789   (642617) от 04.04.2022
+
+Cobra Spell - Anthems Of The Night (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addicted To The Night
+02. The Midnight Hour
+03. Steal My Heart Away
+04. AccelerateЖанр: Heavy MetalПродолжительность: 00:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D491342991D45191472F471C992A96AD35EF47F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032775   (642113) от 09.07.2016
+
+Waken Eyes - Exodus (2015) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cognition    04:18
+02.  Aberration    08:07
+03.  Deafening Thoughts    06:36
+04.  Back To Life    05:56(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 01:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14279BAC95B37D3212E59A5269416288DA44963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518789   (641528) от 04.07.2012
+
+Heaven Rain - Second Sun (2012) [FLAC|Lossless]<Symphonic Progressive / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close To Dawn (1:35)
+02. Heaven Rain (3:42)
+03. Dreamless (4:06)
+04. My Only One (4:02)
+05. Second Sun (3:39)
+06. Face Of Misery (4:19)
+07. Nowhere (4:47)
+08. Raven In Heart (4:03)
+09. When Day Fades To Dark (3:58)
+10. At The End Of Time (3:48)(   Читать дальше...   )Жанр: Symphonic Progressive / Power MetalПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518582   (641455) от 04.07.2012
+
+Allele - Next To Parallel (2011) [FLAC|Lossless]<Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641455.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Let It Go
+2. Closure
+3. What I Get
+4. Dead And Cold
+5. Drone
+6. Something Cured
+7. Feed The Wolves
+8. Hurt
+9. Chains Of Alice
+10. Answers(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292934   (641385) от 01.04.2019
+
+Ringarë (Ringare) - Under Pale Moon (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Under Pale Moon (10:16)
+2. Sorrow Under Starry Sky (06:48)
+3. In Nocturnal Agony (03:54)
+4. Through Forest and Fog (18:11)Жанр: Black MetalПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:603C3498B698505233042AAD80F9CAF021FC9A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292925   (641376) от 01.04.2019
+
+Malakhim - II (2019) EP [FLAC|Lossless|tracks + .cue] <Rock, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641376.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In the Rays of a New Sun (05:20)
+2. Triumphant Spears (05:16)
+3. He Who Devours (05:15)
+4. Sworn to Satan’s Fire (04:42)Жанр: Rock, Black MetalПродолжительность: 00:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060AE7BB51BE5B475B38D47B4FBD4CE70485673A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292971   (641363) от 01.04.2019
 
 Pulchra Morte - Divina Autem Et Aniles (2019) [FLAC|Lossless|image + .cue] <Death, Doom Metal>
@@ -490,267 +763,6 @@ Manowar - The Lord Of Steel [Hammer Edition] (2012) [FLAC|Lossless]<Heavy Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033627   (636144) от 12.07.2016
-
-Vinnie Moore - Aerial Visions (2015) [FLAC|Lossless|image + .cue] <Neoclassical, Heavy Metal, Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mustang Shuffle
-02. Now's the Time
-03. Faith
-04. Slam(   Читать дальше...   )Жанр: Neoclassical, Heavy Metal, Instrumental RockПродолжительность: 0:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8B461836D6314D0C4CD411DB2A423260C750AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681575   (636021) от 20.07.2013
-
-Manowar - Warriors of the World (2002) 10th Anniversary Remastered Edition / 2013, Magic Circle Records / [FLAC|Lossless]<Heavy/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_636021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	 Call to Arms
-02.	 The Fight for Freedom
-03.	 Nessun Dorma
-04.	 Valhalla(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143321   (635534) от 18.06.2017
-
-Mood - Volume 1 (1996) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	The Shell 03:28
-02.	Demons from the Inside Pocket 05:12
-03.	Plastic Man 03:04
-04.	Four Winds Are Blowing 06:42(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5001453C58AC4C43CFC8533A07371A62B9B9ADC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143335   (635531) от 18.06.2017
-
-Mood - Wombocosmic (1999) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Intro 01:17
-02.	I the Bloodstained Embyro 03:42
-03.	The Untold 02:04
-04.	Circles 05:39(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6591B6E821D96D17A5D87E0E14A91EAB343F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143347   (635528) от 18.06.2017
-
-Warning - Metamorphose (1984) Reissued-2015 [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Petit peuple
-02 - Star
-03 - Métamorphose
-04 - Rock ball(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:137E4C4BEED75B1EE7D55F130935BFD320814BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143562   (635527) от 18.06.2017
-
-Fleshgrind - Destined For Defilement (1997) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635527.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Whacked
-2. Burning Your World
-3. Chamber Of Obscurity
-4. Sordid Degradation(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155A1E66317B9CB684B3BC9E089948BDBD3244C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143325   (635511) от 18.06.2017
-
-Mallevs Maleficarvm - Homo Homini Lupus (2017) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homo Homini Lupus 06:21
-02. Der Widerchrist 04:55
-03. Under The Red Skies 06:56
-04. A Blaze At Dawn 05:56(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC7401564705EB88753F113B4422CD1A6C12F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143333   (635508) от 18.06.2017
-
-Mood - Slow Down (1997) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	One More Scar (Scars Pt. 2) 05:09
-02.	The Engine Is Burning 04:20
-03.	Through These Eyes 05:21
-04.	Left by the Living, Found by the Dead 06:55(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD900A13942DD43C5C10227388F85F79DCA79E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143384   (635389) от 18.06.2017
-
-Omen - Hammer Damage (2016) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hammer Damage
-02. Chaco Canyon (Sun Dagger)
-03. Cry Havoc
-04. Eulogy for a Warrior(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5836985D037314FDFB2B4DA00EE0FFF58A0DC2BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

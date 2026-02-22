@@ -1,3 +1,30 @@
+###  Публикация: 965591   (225255) от 14.12.2015
+
+Проекты - VideoHive - Freelancer Portfolio - Hi, My Name is... [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания портфолио.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02660C359E63F27E83BAAED36BA9B03039F73BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965559   (224934) от 14.12.2015
 
 Проекты - VideoHive - Fashion Promo 4 - 545315 [AEP]
@@ -649,32 +676,6 @@ Dynamic Fashion Package - пакет анимированных динамиче
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ABC4C3E5C7249DB5543082CE73BCF2916E9A77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087748   (144188) от 28.12.2016
-
-Проекты - Motion Array - Glitch Promo - 22031 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо или презентации с потрясающей и динамической анимацией и эффектом глюка.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88AF44F4DFB192FB7D7A1EA7537A7151C6BE78DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

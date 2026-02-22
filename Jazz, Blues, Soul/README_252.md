@@ -1,3 +1,96 @@
+###  Публикация: 1147695   (607724) от 03.07.2017
+
+Louis Armstrong - Under The Stars (1957) 2009, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top Hat White Tie & Tails [04:14]
+02. Have You Met Miss Jones [04:42]
+03. I Only Have Eyes For You [04:17]
+04. Stormy Weather [04:20](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DD8949DF23A7A81D2A56FEF41F574C44A61768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546272   (607548) от 23.04.2022
+
+Edgar Winter - Brother Johnny (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трибьют-альбомы с участием всех звезд обычно вызывают осторожность у покупателей. Слишком часто они небрежны и не сфокусированы на главном. Brother Johnny, к счастью, редкое исключение. Восемь лет с большой любовью создавалось это музыкальное письмо от Edgar Winter'а его старшему брату Johnny, великому блюз-рокеру, который умер в 2014 году в возрасте 70 лет. И вот, (   Читать дальше...   )01. Mean Town Blues (Featuring Joe Bonamassa) (5:04)
+02. Still Alive And Well (Featuring Kenny Wayne Shepherd) (3:42)
+03. Lone Star Blues (Featuring Keb' Mo') (3:57)
+04. I'm Yours And I'm Hers (Featuring Billy Gibbons & Derek Trucks) (4:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8919D3BDD5DB0AFC14A36FFA59034A6B5E2CB16E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525355   (607495) от 21.07.2012
+
+Bobby Hutcherson - Best of the Blue Note Years (2001) [FLAC|Lossless]<Post-Bop, Hard Bop, Vibraphone>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_607495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Mind Matter
+02. Little B's Poem
+03. Bouquet
+04. Getto Lights
+05. Patterns
+06. 'Til Then
+07. Dave's Chant
+08. Same Shame
+09. Ummh
+10. Houston St Thursday Afternoon(   Читать дальше...   )Жанр: Post-Bop, Hard Bop, VibraphoneПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913407   (607239) от 28.06.2015
 
 Nico Morelli - Nico Morelli (2003) [FLAC|tracks]<Jazz>
@@ -658,93 +751,6 @@ Blue Mitchell - A Sure Thing (1962) 1994, OJC[FLAC|Lossless|tracks + .cue] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F185124F33CEDA70C3028D220E26242C0769A790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913448   (605114) от 29.06.2015
-
-Wee Willie Walker - If Nothing Ever Changes (2015) [MP3|320 кб/с]<Blues Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Read Between The Lines (3:15)
-02. Help! (Feat. Curtis Salgado) (4:50)
-03. Everybody Meets Mr. Blue (3:01)
-04. I've Been Watching You (3:20)(   Читать дальше...   )Жанр: Blues SoulПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B002125C63A6492886221D9C79C3454357C18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038814   (605063) от 29.07.2016
-
-Johnny Hodges Quintet - Buenos Aires Blues & The Eleventh Hour (1962, 1963) 2009, Lone Hill Jazz[FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mama Knows [05:01]
- 02.I'm in Another World [02:50]
- 03.Dreary Days [03:15]
- 04.I Can't Believe That You're in Love With Me [04:59](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F26467304498DDA49F7042BA4C501BA9B365912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038732   (604916) от 29.07.2016
-
-George Thorogood & The Destroyers - Icon (2013) Compilation [MP3|245~289 Kbps (V1)] <Blues Rock, Rock, Classic Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad To The Bone    04:50
-02. I Drink Alone    04:32
-03. Willie And The Hand Jive    04:03
-04. Gear Jammer    04:34(   Читать дальше...   )Жанр: Blues Rock, Rock, Classic RockПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B56DF3B90094A9EE8E57D0255234AE39789EB4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

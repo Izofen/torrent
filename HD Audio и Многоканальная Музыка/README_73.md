@@ -1,3 +1,177 @@
+###  Публикация: 1677142   (153594) от 16.11.2023
+
+Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153594.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. In Mist She Was Standing (14:10)
+A2. Under the Weeping Moon (09:51)
+B1. Silhouette (03:10)
+B2. Forest of October (13:03)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45B9C244FF72A4FA6B123411546ABA46B313364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677163   (153423) от 16.11.2023
+
+DGM - Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unravel The Sorrow (6:53)
+02. To The Core (5:56)
+03. The Calling (6:51)
+04. Second Chance (5:36)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562F19517C0415579EE462BFC053507DA4044E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347227   (153359) от 22.12.2019
+
+Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upconvert]
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Drummer Boy 4:23
+02. White Christmas 3:59
+03. Feliz Navidad 3:07
+04. Jingle Bells 2:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CBEF722B966FB86EDD8764BA3E04922802AD39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968539   (153215) от 24.12.2015
+
+Foreigner - Inside Information (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Turns To Stone (4:34)
+02. Can't Wait (4:32)
+03. Say You Will (4:16)
+04. I Don't Want To Live Without You (4:55)(   Читать дальше...   )Производство: Atlantic Recording - 781 808-1Жанр: RockПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822ECB3340E14E6102E47DF3AA1A5400E5F4E39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677237   (153077) от 16.11.2023
+
+Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Neoclassical Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro To The Mind (1:55)
+02. Deathzone (2:47)
+03. Sacra (3:44)
+04. Kaamos (4:20)(   Читать дальше...   )Жанр: Symphonic Metal, Neoclassical MetalПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96ADF0786A33D6E2D6FE3CD1351C368438587D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854276   (152320) от 28.12.2014
+
+Blue Oyster Cult - The Revolution By Night (1983)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152320.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Take Me Away (4:32)
+A2. Eyes On Fire (3:56)
+A3. Shooting Shark (7:10)
+A4. Veins (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3CE59B9AFAE8E5F77E1AC279E587E1EC22CE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672832   (152209) от 17.10.2025
 
 Carach Angren - Studio Albums (7 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
@@ -574,177 +748,6 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC 24/48|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:938F9EF1BCB35DA2C9EC017E4D8033972169A022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677857   (149296) от 19.11.2023
-
-Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Central Europe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Synth-popПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3E3197B575CF63604EE84E58329E6FD2871570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434719   (149216) от 25.12.2020
-
-VA - Christmas Country By Country Music Stars 1982 - 2016 (2020) Unofficial Release [FLAC 2.0|44.1/24|image+M3U|MC-Rip] <Pop, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martina McBride - The Christmas Song (Chestnuts Roasting on an Open Fire)
-White Christmas
-1999 - RCA - Torme / Wells
-02. Gene Autry - Here Comes Santa Claus(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18222DBA370B7760BEA224CAFAA0BA9818724C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677859   (148767) от 19.11.2023
-
-Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Central Europe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1
-Disc 2
-Disc 3Жанр: Synth-popПродолжительность: 3CD, 03:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6BAE7FA7C23821653652018E86B425C3BB9253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271655   (148732) от 24.12.2018
-
-Veli-Matti Jarvenpaa - Sarkijarven Bolero (1992) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, World & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148732.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Heittopussi
-A2 Sarkijarven Bolero
-A3 Vauhdin Maailma
-A4 Neidot Herkat Hennot(   Читать дальше...   )Жанр: Folk, World & CountryПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCF8BE6C0A182F0FBC27B72FFB7E676A4074B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271697   (148714) от 24.12.2018
-
-Fine Young Cannibals - Fine Young Cannibals (1985) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148714.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Johnny Come Home
-A2 Couldn't Care More
-A3 Don't Ask Me To Choose
-A4 Funny How Love Is(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44B0117C33743844D61B4D9DE77668802CBE965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271681   (148620) от 24.12.2018
-
-Cliff Richard - The Best Of... (unknown) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Rock'n'Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Face A:
-01. Devil Woman
-02. The Young Ones
-03. Do You Wanna Dance(   Читать дальше...   )Жанр: Classic Rock, Rock'n'RollПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F155DD0EA7859AF89AA5E1911297226D24E802
 ```
 
 https://mybot314.ru/tekegram_catalog/

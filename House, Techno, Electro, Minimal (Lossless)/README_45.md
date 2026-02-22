@@ -1,3 +1,61 @@
+###  Публикация: 1326625   (383510) от 21.09.2019
+
+Second Tension - Assembly Point (2017) Monolith Rec [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ally (07:26)
+ 02. Assembly Point (06:56)
+ 03. Esoteric Flame (07:22)
+ 04. Kinetic (09:01)Жанр: Techno, IndustrialПродолжительность: 00:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECCB22CC72A9F441B76623AF981E2FEED4872A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253502   (381700) от 10.10.2018
+
+Maribou State - Kingdoms In Colour (2018) Japan Edition [FLAC|Lossless|tracks + .cue] <Leftfield, Downtempo, Post Rock>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginner's Luck (4:28)
+02. Kingdom (4:10)
+03. Turnmills (5:04)
+04. Nervous Tics (feat. Holly Walker) (4:14)(   Читать дальше...   )Жанр: Leftfield, Downtempo, Post RockПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5AD22BFBCA21B27D7FB9C5EF7860BC2F26C5AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574792   (381540) от 07.09.2022
 
 George Fitzgerald - Stellar Drifting (2022) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Deep House, Electronic>
@@ -686,64 +744,6 @@ Kangding Ray - Cory Arcane (2015) [FLAC|Lossless|WEB-DL]<Techno, IDM, Experiment
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34B3A32CB0A17398524230F8F063A613F07B99F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328902   (359270) от 02.10.2019
-
-Brickman - Collection 6 Releases (2010-2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep Techno, Dub Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seashore (6:02)
-02. Fractal Vision (6:27)
-03. Red Lake District (7:23)
-04. Meditation (7:29)(   Читать дальше...   )Жанр: Electronic, Deep Techno, Dub Techno, Minimal |Продолжительность: 00:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44296C057216B5A1E83DC8AB1B800CCAF8F8C5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256038   (359032) от 20.10.2018
-
-Dirty Vegas - Photograph (2015) D:vision Records [FLAC|Lossless|WEB-DL|tracks] <House, Pop, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/14. Let the Night (3:28)
- 02/14. Setting Sun (3:30)
- 03/14. Do What You Feel (4:01)
- 04/14. Photograph (4:44)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438C132FAE334A4807B7C6CDA2C8BA022CC1FDC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

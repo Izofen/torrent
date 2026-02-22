@@ -1,3 +1,90 @@
+###  Публикация: 985784   (934117) от 12.02.2016
+
+Erik Truffaz Quartet - Doni Doni (2016) Foufino Productions[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Comptine (feat. Rokia Traore) [01:25]
+ 02.Kudu [05:18]
+ 03.Djiki'n (feat. Rokia Traore) [04:22]
+ 04.Pacheco [06:09](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35F9B4A25B23C576A093B859FADB83FA368836F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985804   (934096) от 12.02.2016
+
+Dion - New York Is My Home (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aces Up Your Sleeve (3:04)
+02.  Can't Go Back To Memphis (4:21)
+03.  New York Is My Home (Feat. Paul Simon) (4:27)
+04.  The Apollo King (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A0C6B29328815C5903425CCC413DE856FE3B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093557   (934023) от 15.01.2017
+
+Natalie Cole - Sophisticated Lady (1996) MCPS[APE|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.This will Be [02:52]
+ 02.Good Morning Heartache [04:21]
+ 03.Touch Me [04:15]
+ 04.Unpredictable You [03:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593771DDBA5A0ECD77F5ADB4F6FCB8328C53AF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093561   (934022) от 15.01.2017
 
 VA - Sounds Of ‘94 (1994) GRP Records[FLAC|Lossless|image + .cue] <Post-Bop, Vocal Jazz, Jazz Fusion>
@@ -732,111 +819,6 @@ Diana Ross & the Supremes - Let the Music Play - Supreme Rarities (1960-1969) 2C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78D35B53A2CF6FED4FD82D1EE4001DCAFA50172C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176830   (933439) от 19.02.2010
-
-VA - 100 Hits Only You Love Serenades (100 Хитов Любовных Серенад) (2009) [MP3|160 kbps]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.the platters - only you (and you alone)
-02.aaron neville - tell it like it is
-03.elvis presley - are you lonesome tonight
-04.the beatles - michelle
-05.billy j.kramer with the dakotas - bad to me
-06.johnny mathis - when i fall in love
-07.brenda lee - emotion
-08.czeslaw niemen - wspomnienie
-09.frank & nancy sinatra - somethin' stupid
-10.the scorpions - i've lost you(   Читать дальше...   )Жанр: BluesПродолжительность: 06:26:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861805   (933366) от 21.01.2015
-
-John Lewis - Evolution II (2014) [FLAC|Lossless]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Festivals [04:15]
-02. One! Of Parker's Moods [03:55]
-03. December, Remember [06:59]
-04. That! Afternoon In Paris [06:08]
-05. Cain And Abel [06:53]
-06. Come Rain Or Come Shine [05:03]
-07. Trieste [04:17]
-08. Django [05:25]
-09. Sammy [04:10]
-10. What Is This Thing Called Love? [05:53]Жанр: Jazz, Mainstream JazzПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D048E4FF24C2D756767FF760857C298B489AC25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861777   (933364) от 21.01.2015
-
-Gordon Staples and The String Thing - Strung Out (2009) [FLAC|Lossless]<Jazz,  Funk, Soul, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Strung Out [04:57]
-02. Toonie [04:48]
-03. Sounds Of The Zodiac [05:59]
-04. The Look Of Love [03:42]
-05. Get Down [03:48]
-06. If Your Love Were Mine [03:18]
-07. It's Got To Be Alright [03:30]
-08. From A Heart That's True To Only You [03:29]
-09. Someday We'll Be Together [03:11]
-10. The April Fools [03:25]Жанр: Jazz,  Funk, Soul, Jazz FusionПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6EA7C259BBB8BC013EEC4260E8B9EB447C6D026
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1443256   (1035737) от 28.01.2021
+
+VA - Blue Soho Recordings - Best Of 2020 (2021) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoundLift - Maharaj (Original Mix)
+02. Jon Bourne - Palinka (Original Mix)
+03. Nuera - Revise (Alex Wright's Slow 'N' Funky Remix)
+04. Jon Bourne - Zimbabwe (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A5983C35E35A646F79B726A301D38FD71384B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616767   (1035578) от 05.03.2023
 
 VA - The Sound of 2023 Mix 5: Dubai (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -716,35 +745,6 @@ VA - Global Trance Masters Vol.1 (2021) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D39C7862D00BBF2E643A59C144364A9BF48D649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448896   (1030473) от 19.02.2021
-
-VA - Global Trance Masters Vol.2 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rafael Osmo - Into The Night (Original Mix)
-02. René Ablaze vs. Pluton & Alex Trinnity - Air Tones (Club Mix)
-03. Matt Skyer - Green (Rob Corbo Remix)
-04. André Visior - Moonraker (Alexander Popov & Broning Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9745F55E5364F3FD3726F7D73ADEDF9EA312D92E
 ```
 
 https://mybot314.ru/tekegram_catalog/

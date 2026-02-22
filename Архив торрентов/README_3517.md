@@ -1,3 +1,29 @@
+###  Публикация: 1248521   (441670) от 20.09.2018
+
+O&O Defrag Professional / Server 22.0 Build 2284 RePack by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441670.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O Defrag - одна из самых известных и лучших программ для дефрагментации жёстких дисков на рабочих станциях. Позволит вам вернуть утраченную производительность рабочих станций Windows. Данное решение устранит фрагментацию файлов и расположит их в нужном порядке. Программа предлагает широкий выбор новых и уникальных функциональных возможностей, которые позволяют (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B40C69F84EB1F3FF3DE7C75D3C50A6401017C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323061   (441611) от 01.09.2019
 
 Люди Икс: Тёмный Феникс / Dark Phoenix (2019) BDRemux [H.264/1080p]
@@ -664,41 +690,6 @@ Citron - Full Of Energy (1986) [MP3|320 кб/с]<Hard-n-Heavy, Melodic Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04CBA5A9E3046623A9BC8284DA9DF0C2EE3DD91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552415   (441256) от 29.09.2012
-
-VA - American Anthems (2010) 3CD BoxSet [FLAC|Lossless]<Pop, Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_441256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey - Dont Stop Believin [04:12]
-02. The Cars - Drive [03:55]
-03. Boston - More Than A Feeling [03:23]
-04. Foreigner - I Want To Know What Love Is [05:01]
-05. Heart - Alone [03:39]
-06. Huey Lewis And The News - The Power Of Love [03:53]
-07. Billy Idol - White Wedding [03:33]
-08. Richard Marx - Hazard [04:44]
-09. Toto - Rosanna [04:02]
-10. REO Speedwagon - Keep On Loving You [04:43](   Читать дальше...   )Жанр: Pop, RockФормат: BoxSet 3CDПродолжительность: 03:52:51
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

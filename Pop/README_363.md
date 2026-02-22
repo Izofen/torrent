@@ -1,3 +1,90 @@
+###  Публикация: 1774537   (30219) от 21.01.2025
+
+VA - Top Songs - Hits 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rose - APT. (2:49)
+02. Teddy Swims - Bad Dreams (3:04)
+03. Charli XCX - Apple (2:31)
+04. Benson Boone - Beautiful Things (3:00)(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECC4E5D32B76ACEEA1EF1D001805F055147252B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774088   (30093) от 22.01.2025
+
+Kylie Minogue - Body Language (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Slow [3:18]
+02 - Still Standing [3:43]
+03 - Secret (Take You Home) [3:19]
+04 - Promises [3:20](   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD6701C19A1C013A817ABBE1BA91418E6DA422C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775043   (29905) от 24.01.2025
+
+VA - Dance Classics Gold (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Hartman - Relight My Fire
+02. Chic - Le Freak
+03. Gloria Gaynor - I Will Survive
+04. Earth Wind & Fire - Boogie Wonderland(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F36F6D076FDA73911ABF9AD1417C0ED5DF402D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775046   (29888) от 24.01.2025
 
 VA - Dance Classics Gold (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
@@ -659,93 +746,6 @@ Village People – американская диско-группа, образ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87AB506043A001DD1B51895C6D31435A53B6106A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779637   (27616) от 14.02.2025
-
-Дискотека Авария - The Best, Part 2 (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27616.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Новогодняя
-2. Модный танец Арамзамзам
-3. На острие атаки
-4. Потерявший(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C490D2E059E26F84D1717149669263A81E2154B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779204   (27329) от 17.02.2025
-
-Лицей - Открытый Занавес (1996) [FLAC|Lossless|image + .cue] <Reggae, Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Осень
-02. Я Спешу За Любовью
-03. Душа
-04. Смех Сквозь Слезы(   Читать дальше...   )Жанр: Reggae, PopПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00EA0A2BA122B25BC07BB7FD3B032C85D3ACCBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779513   (27301) от 17.02.2025
-
-VA - Billboard Top Hits 1979 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blondie - Heart Of Glass
-02. Knack - My Sharona
-03. Randy Vanwarmer - Just When I Needed You Most
-04. Rupert Holmes - Escape (The Pina Colada Song)(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C2FF1F91F0D428FE80F0F4A47F95C934A330D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

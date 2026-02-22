@@ -1,3 +1,32 @@
+###  Публикация: 1417106   (363201) от 18.10.2020
+
+LosiKenguru - ВЫше норМЫ (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бит [00:03:07]
+02. Ювобль [00:02:38]
+03. Нет [00:02:26]
+04. Золотой парашют [00:02:11](   Читать дальше...   )Жанр: Alternative, Rock, PopПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B09B51996092B5C5F6F28586696E328774201C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576717   (361892) от 16.09.2022
 
 Scumback - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Southern Metal>
@@ -720,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E793C0D001D675B5B87FEA8D4960A48FADB208C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 233617   (348525) от 24.10.2020
-
-Маргулис, Чиж, Ромарио - Имена (2010) [WavPack|Lossless]<Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Таня - Дура!(2:50)
-02. Пой, Как Маргулис(3:12)
-03. Мой Главный Порок(3:55)
-04. Не Молчи(3:23)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 0:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E43CAAF58611788D9F0BAE443235E07A28BA14
 ```
 
 https://mybot314.ru/tekegram_catalog/

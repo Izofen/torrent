@@ -1,3 +1,32 @@
+###  Публикация: 1694741   (120613) от 27.01.2024
+
+Charles Mingus - Four Classic Albums Plus (1954 - 1959) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nostalgia in Times Square [12:19]
+02. I Can't Get  Started [10:12]
+03. No Private Income Blues [12:51]
+04. Alice's Wonderland [8:58](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C278CBE8E0C9BB02FA1D4281C3811E0BD9A883F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694945   (120602) от 27.01.2024
 
 Soulstance - The Jazz Art Of Relax Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Funk, Soul>
@@ -716,35 +745,6 @@ Grant Clarkson - South West Five (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64E1AC05200D6186620213B3ECE5AA7C5246FA13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695646   (120071) от 30.01.2024
-
-Ante Valcic (Valčić) - Synchronicity (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Work (3:58)
-02. Eternal Love (3:42)
-03. Flower Bloom (4:01)
-04. Memory Burn (3:52)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6600330498EC12F2604F384C26A18057BEF3BB5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1600185   (159043) от 26.12.2022
-
-Toots Thielemans - 100th Birthday Celebration (2022) 2CD, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159043.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Bluesette [2:50]
-02. Stars Fell on Alabama [3:15]
-03. Skylark [2:04](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D551E22310B657DC3C075B8A9FC22E5B1145EC4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676181   (159029) от 12.11.2023
 
 Leroy Vinnegar, Doug Watkins, Paul Chambers, Ron Carter - Jazz Bassists: Four Classic Albums (1957 - 1961) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -756,6 +727,35 @@ The Chico Hamilton Quintet - With Strings Attached (1959) 2007, Collectables[FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:062CCAA9DBA07ACA77313717D50CA70854275EB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085716   (156987) от 22.12.2016
+
+Dalindeo - Kallio (2013) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Rockabilly>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ota linja 8! (3:21)
+02. Karhupuiston kuningatar (3:56)
+03. Pyoraily Hameentiella (3:02)
+04. Ilta Tokoinrannassa (3:09)(   Читать дальше...   )Жанр: Nu Jazz, RockabillyПродолжительность: 00: 41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37BA425ADE780475B4E28320E0CC01D955F6DA23
 ```
 
 https://mybot314.ru/tekegram_catalog/

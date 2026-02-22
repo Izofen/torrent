@@ -1,3 +1,32 @@
+###  Публикация: 1002581   (847104) от 01.04.2016
+
+Aurora & The Betrayers - Vudu (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul-Jazz Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey, Hey!
+02. Voodoo
+03. Pay Me Back
+04. You Can Come Back(   Читать дальше...   )Жанр: Pop, Rock, Soul-Jazz Female VocalПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2085F7708D493BCA58D7BAE2076A6AEC60CCA0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002652   (846931) от 01.04.2016
 
 VA - Super Sanremo (2015) Compilation, 2 CD [FLAC|Lossless|tracks] <Pop>
@@ -714,35 +743,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1E96123D0BC52DB45305273E5FFEDF72042D605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005150   (834369) от 08.04.2016
-
-Sabrina Carpenter - Eyes Wide Open (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes Wide Open (3:13)
-02. Can't Blame a Girl for Trying (2:49)
-03. The Middle of Starting Over (3:33)
-04. We'll Be The Stars (3:07)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A6CFA40982484828D3DEDBFF9C4F1B01DB63D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

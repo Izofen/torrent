@@ -1,3 +1,32 @@
+###  Публикация: 1045742   (556845) от 25.08.2016
+
+Blue Stone - Pandora's Box (2011) [FLAC|Lossless|tracks + .cue] <New Age, Ethnic Fusion, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocence  04:57
+02. Mischief  05:44
+03. Seduction  05:42
+04. Epimetheus  05:47(   Читать дальше...   )Жанр: New Age, Ethnic Fusion, DowntempoПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A9679A16069B8DAC1450BAAA4795CAC3AD6F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045756   (556838) от 25.08.2016
 
 Gomer Edwin Evans - Sensual Moods: Soulful Music for Erotic Moments (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -713,35 +742,6 @@ Olivier Deriviere - A Plague Tale: Innocence (Original Soundtrack) (2019) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA9270C373140AE7D62C6F1F8BCAD9F215B3A6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308112   (554176) от 13.06.2019
-
-Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Alternative>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Ghost I (02:14)
-02. For the Sun (03:29)
-03. Watch the Time (02:17)
-04. Space Ghost II (03:09)(   Читать дальше...   )Жанр: Indie Folk, AlternativeПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF4B27FFB8A818FA7B481A732D2B9B3E618BE97
 ```
 
 https://mybot314.ru/tekegram_catalog/

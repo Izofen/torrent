@@ -1,3 +1,32 @@
+###  Публикация: 1103845   (883642) от 13.02.2017
+
+VA - Снегопад новинок. Часть № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Зара - Забыть О Тебе 3:32
+002. Alex 67 - Сумасшедшая 3:18
+003. Alvarez - Sin Miedo 4:12
+004. Far East Movement Feat. Yoonmirae & Autolaser - Fighter 4:14(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42ED724DB9CDC717AD7B161F983D67A481B2806A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103831   (883640) от 13.02.2017
 
 VA - Музыкальное потрясение зимы от Русского радио выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
@@ -713,35 +742,6 @@ VA - Популярный хитовый музыкайф. 100 хитов (2016)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1544B01EA34948B2B8491060972AE67F5C13EB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373668   (878425) от 07.04.2020
-
-Kenny G - 100% Kenny G (2020) [MP3|320 Kbps] <Pop, Jazz, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Songbird
-02. Silhouette
-03. Forever in Love
-04. Everytime I Close My Eyes(   Читать дальше...   )Жанр: Pop, Jazz, RockПродолжительность: 06:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B551F49B0F7084D09CE36C5C9EA46B9AAE1ADFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

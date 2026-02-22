@@ -1,3 +1,177 @@
+###  Публикация: 1709141   (112852) от 23.03.2024
+
+Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Heavy Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Almanac — неоклассическая метал-группа из Германии, основанная в 2015 году гитаристом, продюсером и композитором белорусского происхождения Виктором Смольским.2016 - Tsar
+2017 - Kingslayer
+2020 - Rush Of Death
+& Victor Smolski solo albumsЖанр: Power/Heavy/Progressive MetalПродолжительность: 05:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9549FC32DFE49AE358E1C6E05C1C2D68031BB00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709374   (112848) от 24.03.2024
+
+Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm a Little Mixed Up (3:18)
+02. 99 1/2 (3:40)
+03. San Francisco (4:12)
+04. Don't Let Me Be Misunderstood (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453C3095B281CE2CA44BD51CB1C2836B714A07B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709396   (112844) от 24.03.2024
+
+Новая коллекция - Край наших надежд (1990) [FLAC 24/192|Lossless|tracks] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Ностальгия
+02. Неизвестная история
+03. Над суетой(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB40223988F5C736D123901D1B04784473E857D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709378   (112836) от 24.03.2024
+
+Stevie & the Blue Flames - Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Flames Bar B Que (2:45)
+02. Every Dog Has His Day (3:34)
+03. First Class Fool (2:56)
+04. Blues Comes A Callin' (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A152DE7543EAB973F113EE908E8D3B6ED8A365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709370   (112835) от 24.03.2024
+
+Sol - Mall Gig (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strong For Today (3:18)
+02. Soul Shade Mechanic (4:03)
+03. Welcome Back Eloise (3:38)
+04. Killing Floor (6:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93597F9E5A7B021B4C52C2AEFFAE379F61E5DDF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709361   (112831) от 24.03.2024
+
+Lorenzo Sanchez Band - Blue Avenida (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Should Be Glad (3:52)
+02. I Need Your Love (3:28)
+03. ¡ Huye ! (4:19)
+04. True Love (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E02A9C286761A9E9140AC5806889340EA52D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709356   (112830) от 24.03.2024
 
 3 Leaks, No Heat - Now and Never (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -571,180 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8BA9135586B9DE5C709E1608D59F656E60E8515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710526   (112656) от 27.03.2024
-
-Тухманов - Памяти гитариста. Памяти поэта (1978) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Памяти гитариста (Д. Тухманов — Р. Рождественский)
-Сторона 2
-2. Памяти поэта (Д. Тухманов — А. Вознесенский)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1128C6886CAC6EB8F03E2F579C2DF180A4FC0DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710541   (112645) от 27.03.2024
-
-Cryptosis - Bionic Swarm (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Overture 2149 [1:07]
-02 - Decypher [3:55]
-03 - Death Technology [3:08]
-04 - Prospect of Immortality [6:22](   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDAAC5AF0D8614C45E7DD005698942921A2BBF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710525   (112643) от 27.03.2024
-
-Стеллинии Эгг, Ванжи Орико (Бразилия) - Бразильские песни (1956) [FLAC 24/96|Lossless|tracks] <Folk, World, & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Д-3110
-Стеллиния ЭГГ
-01 - Бум-ки-ти-бум (нар. танец);
-02 - Негритянский танец (Э. Таварес - сл. нар.);(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF16DE49AA322BC156EEA5DAB873EFACA28C28BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710543   (112639) от 27.03.2024
-
-Cryptosis - The Silent Call (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Silent Call [5:01]
-02 - Master of Life [4:13]
-03 - Prospect of Immortality (Live in Athens) [6:16]
-04 - Transcendence (Live in Athens) [4:06]Жанр: Progressive Thrash MetalПродолжительность: 00:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E43958B5C3DA5C7B71E1143BE30835769B9B084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710946   (112616) от 28.03.2024
-
-Slayer - Reign In Blood (1986) Reissue, 2024, American Recordings Catalog P&D [FLAC 24/192|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Of Death (4:51)
-02. Piece By Piece (2:03)
-03. Necrophobic (1:40)
-04. Altar Of Sacrifice (2:54)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7779567F8DFA422E0C0C0ED08585CF4EF20D914D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710947   (112606) от 28.03.2024
-
-Sum 41 - Heaven :x: Hell (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-punk, punk rock, alternative metal-rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting On A Twist Of Fate (2:47)
-02. Landmines (2:56)
-03. I Can't Wait (2:06)
-04. Time Won't Wait (2:31)(   Читать дальше...   )Жанр: Pop-punk, punk rock, alternative metal-rockПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD06142AF85CD177FC31AA933E4E689D2B0C62E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

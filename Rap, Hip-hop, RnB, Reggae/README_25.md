@@ -1,3 +1,61 @@
+###  Публикация: 1334902   (290970) от 31.10.2019
+
+VA - Boogie Funk Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, RnB>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graham Blvd - Living in America
+02. The Funky Groove Connection - In My House
+03. Chateau Pop - Young Guns (Go for It)
+04. Regina Avenue - Night Birds(   Читать дальше...   )Жанр: Funk, Disco, RnBПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C2859BE7D5D1ADBACF2DA875CB626CA3790A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962869   (290618) от 06.12.2015
+
+The Chemodan - Абсурд и аллегория (2015) [MP3|320 кб/с]<Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый релиз от the Chemodan Clan, а по сути — сольный альбом Грязного Луи. Всю музыку на релиз писал FD Vadim, который так описывает процесс работы над альбомом: "Я поставил себе задачу написать непохожих друг на друга инструменталов, объединенных той же мистикой, магией и мрачной тайной, присущей манере исполнения Луи".01. Абсурд и аллегория
+02. Мы шагаем дальше (feat. Murovei)
+03. Электроник
+04. Каменный лес (feat. Жора Порох & DJ Chinmachine)(   Читать дальше...   )Жанр: RapПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FDEBBA58DBAEE9B56675C2D3F10396709B9F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962873   (290608) от 06.12.2015
 
 Noize MC - *кустик* (2015) Live [MP3|320 кб/с]<Acoustic, Rap, Alternative Hip-Hop>
@@ -687,67 +745,6 @@ VA - The French Touch Connection - Soul Machinist (2016) [FLAC|Lossless|Web-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:770C1096966D7784F06D77460C512ECE411E1485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503043   (260006) от 31.05.2012
-
-Rihanna - Magic (2012) [MP3|320 Kbps] <R&B, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R&B, PopПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB82E56A03616495C5D188DC091A75B99C44810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502284   (259078) от 28.05.2012
-
-Ruben - Огонь и Лед (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Один мы раз живем на свете белом (интро)
-02. Спи ангел (при уч. Daria Danatelli)
-03. Начало света (при уч. Daria Danatelli)
-04. Однажды в Мексике
-06. Скит от Хмурого (Хмурые Лица) (при уч. Daria Danatelli)
-07. No fire (при уч. Хмурые Лица)
-08. Новый день (при уч. Daria Danatelli & Ebraeli)
-09. Летят люди (при уч. Daria Danatelli)
-10. Глупое сердце (при уч. Daria Danatelli)
-11. Память (при уч. Daria Danatelli & Jeen)(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A90C0B5D50DC912840E2E78D4D0C2F5DC63AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

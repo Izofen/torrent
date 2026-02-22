@@ -1,3 +1,29 @@
+###  Публикация: 1415688   (374054) от 13.10.2020
+
+Extreme Picture Finder 3.51.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Extreme Picture Finder - программа для автоматического поиска, загрузки и сохранения любых файлов (картинки, видео, музыка, архивы, флэш и т.д.) с Интернет сайтов, а также для поиска картинок в Интернет по ключевым словам. Extreme Picture Finder позволит Вам автоматически загрузить только нужные Вам файлы, избавив от просмотра назойливой рекламы, всплывающих окон (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EDD9176511731945CBE35BAC4C61E446FDCF701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415731   (374052) от 13.10.2020
 
 Any Video Converter Professional 7.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -671,32 +697,6 @@ Survivor - The Very Best Of Survivor (1986) Compilation [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E82A1B0E6405BC711A55949E798E4CE8E4D49C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415865   (373898) от 13.10.2020
-
-ClipGrab 3.8.14 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373898.jpg" />
-</div>
-
-
-###  Подробнее
-
-ClipGrab - программа для скачивания и конвертирования видео, независимо от браузера, может качать и конвертировать видео практически со всех популярных видео-сервисов: YouTube, Vimeo, Dailymotion, CollegeHumor, MyVideo, Sevenload, Clipfish, MySpass, Tudou... Позволяет полученное видео сразу преобразовать в MPEG4, WMV, OGG Theora, MP3 и OGG Vorbis или оставить в оригинальном (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8752712021776F4A3F3E332C3173A6151D9DF0C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

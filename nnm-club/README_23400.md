@@ -190,35 +190,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703122   (115173) от 28.02.2024
-
-Ace Frehley - 10.000 Volts (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший гитарист Kiss, чей вокальный дебют состоялся в песне Shock Me 1977 года, вернулся с 10,000 Volts, новым (восьмым) сольным альбомом, полным энергии и индивидуальности. Frehley остается одним из пионеров классической хард-рок гитары с мгновенно узнаваемым звучанием вибрато на основе блюза. Новый альбом - это большая, радостная хард-роковая пластинка, подчеркивающая (   Читать дальше...   )01. 10,000 Volts (3:26)
-02. Walkin' On The Moon (3:46)
-03. Cosmic Heart (3:56)
-04. Cherry Medicine (3:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8089B5AA4D0507810E1983DDB50868E91D60C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703352   (115172) от 28.02.2024
 
 Monkey's Audio 10.52 [En]
@@ -322,35 +293,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9405D4D185AAEE17856CFDA31FE9B19B74DFC9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703249   (115168) от 28.02.2024
-
-Detraktor - Full Body Stomp (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115168.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gorilla
-2. Bear Fight
-3. Behave
-4. Evillusion (Undercroft cover)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A93538DBE8F312BF865DD4AA4980E50F7EFE353
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +633,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703176   (115155) от 28.02.2024
+###  Публикация: 1703190   (115154) от 28.02.2024
 
-Traveler - Traveler (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Anaka - The Unwavering (2015) [MP3|320 Kbps] <Heavy, Groove Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115155.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Starbreaker
-02. Street Machine
-03. Behind The Iron
-04. Konamized(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:38
+01. Doomsday Divide
+02. Deathborn
+03. Ominous Visions
+04. Damage(   Читать дальше...   )Жанр: Heavy, Groove MetalПродолжительность: 01:10:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E1F4BDF22D468BAF0E2FFD58E8E774E4FFAC74B
+magnet:?xt=urn:btih:6A56EDE0B32440F68178EB89ED48B47E9B464967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703289   (115153) от 28.02.2024
+
+Маквей из Южных морей / McVeagh of the South Seas (1914) WEBRip [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтически-приключенческая фильма о том как на далеких островах Южных морей американцы добывают жемчуг. Ну, как добывают... Добывают-то конечно туземцы. А белые господа жесткой рукой когда просто отбирают, когда обменивают за "огненную воду". И попутно несут дикарям христианскую веру и прочие блага цивилизации.
+Жаль, что качество копии невысоко.Производство: США, Progressive Motion Picture CompanyЖанр: драма, приключения, немое киноРежиссер: Сирил Брюс, Гарри КэриАктеры: Гарри Кэри, Ферн Фостер, Херберт Расселл, Кэтлин Батлер, Джек ТерриПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C98F147849B04A2A08843058E17204B09CCE0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703188   (115152) от 28.02.2024
+
+Anaka - The Oblivion Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Voice of the Faceless (00:05:09)
+02 - Blood of Leviathan (00:05:38)
+03 - The Oblivion Call (00:04:50)
+04 - Other Side of Nowhere (00:05:58)(   Читать дальше...   )Жанр: Heavy, Groove MetalПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75FD859CBB7CFF651EE3FF1EDC6BDC560139F14
 ```
 
 https://mybot314.ru/tekegram_catalog/

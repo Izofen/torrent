@@ -1,3 +1,29 @@
+###  Публикация: 1317636   (499623) от 02.08.2019
+
+BurnAware Professional 12.5 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499623.jpg" />
+</div>
+
+
+###  Подробнее
+
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD17DDD2368575D73AE756EAC5976BA7E245EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317647   (499622) от 02.08.2019
 
 Tipard Total Media Converter 9.2.20 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -690,32 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EB05F3A5F6ACFE385A50A702123816A8DFCC2CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935303   (499464) от 08.09.2015
-
-Обои - Обои с девушками 1920х1200 (4 часть) [JPG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои с девушками.Формат: JPGРазрешение файлов: 1920х1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7873D8C2CBCFAB4E15BE0DBA3F87655C4BE2219
 ```
 
 https://mybot314.ru/tekegram_catalog/

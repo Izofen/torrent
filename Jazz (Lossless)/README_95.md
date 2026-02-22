@@ -1,3 +1,32 @@
+###  Публикация: 1275980   (788611) от 15.01.2019
+
+Esther Kaiser - Songs of Courage (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masters of War
+02. Earth Song
+03. Open Your Eyes You Can Fly
+04. Where Have All the Flowers Gone(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DACF46D7790377C6703466726271392749CADB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511750   (788415) от 22.11.2021
 
 Dinah Shore - Private Collection (1994) Metacom [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Peters Drury Trio - Backbeat (2001) Self-Released [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D317C3BCB9C1A4DFBA68540D5CB6AEE8A3EBBFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388657   (786604) от 07.06.2020
-
-Dizzy Gillespie Big Band - Showtime at the Spotlite, 52nd Street, New York City, June 1946 (2008) 2CD, Uptown Records [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786604.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Shaw 'Nuff/I Waited for You [1:51]
-02. Our Delight [3:25]
-03. Groovin' High [4:46](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7523009504773F0CCFB686B707E2CC62ACF3664
 ```
 
 https://mybot314.ru/tekegram_catalog/

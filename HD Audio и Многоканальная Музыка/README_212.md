@@ -1,3 +1,177 @@
+###  Публикация: 1808142   (65040) от 22.07.2025
+
+Harem Scarem - Chasing Euphoria (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chasing Euphoria (3:32)
+02.  Better The Devil You Know (3:55)
+03.  Slow Burn (3:45)
+04.  Gotta Keep Your Head Up (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348FD5F8408A895F5735B6672C2B402E857E8EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808140   (65039) от 22.07.2025
+
+Gazzara - Criminal Sounds (A Musical Journey Into 1960_70s Cop and Spy Movies) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hung Up On My Baby (Three Tough Guys OST) (5:51)
+02.  Gotcha! (Theme From Starsky & Hutch) (3:05)
+03.  Three Days Of The Condor (4:47)
+04.  Bullitt Main Theme (2:35)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500B9AB9AD7B692A40266A6880D4CD1760904B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808143   (65038) от 22.07.2025
+
+Harry Newcock - My Unexamined Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stars Misaligned (3:15)
+02.  Akai Ito (The Thread Between Us) (3:15)
+03.  The Rented Room (3:15)
+04.  The Beast Under My Bed (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D4C794A7ABB07FC74F290DCD633830EB839A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808074   (65035) от 22.07.2025
+
+VA - 4-й Альбом Супрафона 2 (1966) Partially Mixed, Sampler [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening, Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65035.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Rudolf Cortés - Tiše Den Zhasíná
+A2 Jana Beláková - Lampy Už Dávno Zhasly
+A3 Jiří Popper - Bílou Tmou
+A4 Yvonne Přenosilová - Mě Se Líbí Bob(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 00:28:5
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6867976673CE29AEC16CC887766E8F41E3CBD73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808052   (65031) от 22.07.2025
+
+Dio - Lock Up The Wolves (1990) Reissue, 2021, Vertigo [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65031.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Wild One
+A2. Born On The Sun
+A3. Hey Angel
+B1. Between Two Hearts(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1714BC883CFB7745D916978CBB72608436C162E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808153   (65028) от 22.07.2025
+
+Christophe Deschamps, Philippe Almosnino - Go Cats Go Rockabilly (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rockabilly>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just A Rose [00:02:13]
+02. Slowly Softly Gently [00:02:38]
+03. La Bamba [00:02:14]
+04. Maggy [00:01:57](   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21EF06A8B2ED29DEABBFB19F67E9476956A323F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808146   (65023) от 22.07.2025
 
 Jawbone - Jawbone II (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -571,180 +745,6 @@ Koko Taylor - Crown Jewels (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E9573A7F027EF4C836AD15E068D99B874663481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808957   (64800) от 27.07.2025
-
-Cyfurcat - 1.0.0 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lodewijk (3:52)
-02.  Cyfurcat (5:47)
-03.  Doom City (4:01)
-04.  New order (4:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEFF1C4E95988065B89D8E853905058F7CC369D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808967   (64799) от 27.07.2025
-
-Pharaoh Rumor - Vintage Blues Express (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vintage Blues Express (3:57)
-02.  The Wanderer (3:06)
-03.  As the Barriers Fall (4:00)
-04.  Treasure Vein (5:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94FA3AB4E1D19D4C919634F378A96FDAACDF474F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808974   (64793) от 27.07.2025
-
-Zayden Fleet - Lone Star Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lone Star Blues (4:56)
-02.  Sonny’s Sorrow (5:15)
-03.  Dark Spell Lady (5:56)
-04.  Aged Lowdown Blues (5:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9ACEA6F615FC696049073A8750CDACD04C5A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808956   (64785) от 27.07.2025
-
-Buddy Reed & Th' Rip It Ups - Tough Enough (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  (Buddy's) Big Legged Woman (4:25)
-02.  Rock Me (3:27)
-03.  Blues for Mud (3:29)
-04.  You're So Fine (3:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6F7A45CB3723D970B3A238C035AA84174F4820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808960   (64784) от 27.07.2025
-
-Daddy Longlegs & the Swamp Donkeys - Mud Bucket (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Be Bop Baby (6:45)
-02.  Possession Over Judgement Day (8:34)
-03.  Diamond Man (3:55)
-04.  Mud Bucket (4:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5548DF80EB3460BB10FB9289F340A8C1C58DB07E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809037   (64770) от 28.07.2025
-
-Night Tempo - Night Tempo Presents The Showa Idol Groove (Rare Groove From 80s) (2021) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop, Synthwave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Deja Vu (Night Tempo Showa Groove Mix)
-A2 Nice-catch! (Night Tempo Showa Groove Mix)
-A3 淋しい熱帯魚 - Glowing tropical fish (Night Tempo Showa Groove Mix)(   Читать дальше...   )Жанр: Electronic, Synth-pop, SynthwaveПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AF4075B841A08C23BD8ECE29C0CE1AF42FD07E
 ```
 
 https://mybot314.ru/tekegram_catalog/

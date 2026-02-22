@@ -1,3 +1,185 @@
+###  Публикация: 1302803   (579324) от 17.05.2019
+
+3D модели - CGTrader - Dosch 3D - Heavy Machines [LWO]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: LWO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449D88003EDF9FD1D598127FECBA04790A4E33C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302819   (579323) от 17.05.2019
+
+3D модели - CGTrader - Dosch 3D - Heavy Machines [LXO]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: LXO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FCB53ACA9A523ACE2D4DF7EFB51F5E65C99F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302807   (579321) от 17.05.2019
+
+3D модели - CGTrader - Dosch 3D - Heavy Machines [ATL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: ATL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91036D31A970151825E4794C6E46F9B2CD08657F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302811   (579318) от 17.05.2019
+
+3D модели - CGTrader - Dosch 3D - Heavy Machines [DAE]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: DAE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD22A46604A54515A9A75351F831D72D0EECA3AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042509   (579310) от 12.08.2016
+
+Текстуры - Wall, gloomy background 2 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры объёмных стен для вашего творчества.Формат: JPGРазрешение файлов: 4500х2000 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF27958D3947390CB03FDA9AD9B496F79A92051A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042492   (579307) от 12.08.2016
+
+Текстуры - Old Urban Street Billboard [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры для вашего творчества.Формат: JPGРазрешение файлов: 3500х3500 - 6000х4000 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E337CEA7D098504A57909EE3767849DF84F3AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302825   (579274) от 17.05.2019
+
+3D модели - CGTrader - Dosch 3D - Heavy Machines [U3D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: U3D
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DB91393F9D2247CD1328A37BD8418EA570F342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302828   (579268) от 17.05.2019
 
 3D модели - CGTrader - Dosch 3D - Heavy Machines [WRL]
@@ -491,192 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500A422F1DAFBF0E0910BCABFF55B6A664DEC3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233659   (578057) от 01.07.2018
-
-Векторный клипарт - Vector Fruits Collection #13 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фруктовая коллекция
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6351C71A2C9EF21E30D497D76B217D156249AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233661   (577951) от 01.07.2018
-
-Векторный клипарт - Vector Kids ClipArt #4 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Детский клипАрт
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D689B93ACF105816FF454435EF773A17BC7E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233781   (577937) от 01.07.2018
-
-Экшены - GraphicRiver - Watercolor Rangoli Dust Photoshop Action - 21513543 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor Rangoli Dust - данный экшен фотошоп превратит ваши фото в полотно акварели. Для достижения наилучших результатов, рекомендуется использовать фотографии с высоким разрешением в диапазоне от 1500px – 6000px. Оптимальный диапазон составляет от 3000px – 4000px.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3A1DF0089275055604ECD6B9C74FEDA505A3C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042879   (576308) от 14.08.2016
-
-Экшены - CreativeMarket - Marble Texture Generator Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Marble Texture Generator - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C989E50F3B6B737B16764662F14FFB9FCEE95A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042884   (576305) от 14.08.2016
-
-Экшены - CreativeMarket - Watercolor Texture Generator [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor Texture Generator - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8FABE22B4B481FE39EAAACC576DAA8B782EA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042881   (576304) от 14.08.2016
-
-Экшены - GraphicRiver - Scatter Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scatter - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F1EB17DCA8308E1D77125CE326441EE29C9820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042907   (576295) от 14.08.2016
-
-Экшены - CreativeMarket - Mystery Light [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mystery Light - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656ADA81004703A5BDF698453FB36B6134251B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

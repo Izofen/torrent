@@ -1,3 +1,90 @@
+###  Публикация: 1342149   (225274) от 01.12.2019
+
+VA - The World's Best Ever Beer Song's 10th Anniversary (2008) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ровно 11 лет тому назад - 1 декабря 2008 года Австралийский дивизион лейбла EMI выпустил этот сборник для людей любящих в компании пропустить кружечку-вторую, а иногда и третью-четвертую. Головы людей, составлявших этот сборник, были явно этим самым пивом не затуманены, потому как он получился на удивление свежим и интересным. Знатоки вряд ли для себя найдут новые (   Читать дальше...   )CD1:
+01. Lynyrd Skynyrd - Sweet Home Alabama  (4:37)
+02. Choirboys - Run To Paradise  (4:05)
+03. Divinyls - Boys In Town  (2:50)(   Читать дальше...   )Релиз состоялся: 01 декабря 2008 годаЖанр: Pop, Rock, DanceПродолжительность: 03:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB7903A784377701AB6069453541FED9A983E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268701   (225154) от 12.12.2018
+
+VA - I Saw You Dancing (2001) Приложение к журналу Stereo & Video [MP3|320 Kbps] <Pop, Euro-Disco, Latin, Euro-House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaft - Mucho Mambo (3:27)
+02. Q-pow! - Summer Holiday (3:18)
+03. Loona - Bailando (3:34)
+04. Crystal Waters - 100% Pure Love (4:39)(   Читать дальше...   )Жанр: Pop, Euro-Disco, Latin, Euro-HouseПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555B70F111FD3A1D06F07BAD7E3BF06CA0400E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268934   (225146) от 12.12.2018
+
+VA - Deep Strips (2018) [MP3|320 Kbps] <Funky, Dance, Nu Disco, Deep House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Hill - You Will See (Chunkee Remix)
+02. Natasha Baccardi - No Sleep (Original Mix)
+03. Alex Dee Gladenko - Beach Party (Original Mix)
+04. Melih Aydogan - You Tell Me (Original Mix)(   Читать дальше...   )Жанр: Funky, Indie-Dance, Nu Disco, Deep HouseПродолжительность: 03:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EA2ABB248FB5C481915CD5C314037E5B43FA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965563   (225126) от 14.12.2015
 
 ВИА Веселые ребята - Перекресток судьбы (2015) [MP3|256 кб/с] <Pop>
@@ -662,93 +749,6 @@ The Beloved - Where It Is (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EA04D5EDC7AE7891A32D1C61BE9D7FD76FBF60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342749   (222757) от 03.12.2019
-
-Sphinx - Sphinx (1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Girl (5:23)
-02. When I'm In Love (5:29)
-03. Collision (5:19)
-04. Love In ''C'' Minor (8:56)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDF0A56EB67C1966465A446268AF69D0E4C7114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342576   (222705) от 03.12.2019
-
-VA - MNM Party 2019 Vol.1 (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta – When Love Takes Over (feat. Kelly Rowland)
-02. Swedish House Mafia & Tinie Tempah – Miami 2 Ibiza
-03. Moby – Disco Lies
-04. Bingo Players – Rattle(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 02:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F56B248E547C7B2ABB5C4D6C0359B12428D2DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585341   (222674) от 21.10.2022
-
-VA - Car Booster Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Electro Pop, Dance, Club, Future House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive With BeatsBasslovers United - Black Bugatti
-02. YunaMartin Van LectroMonroe & MoralezzJetason - Love Like Fire
-03. Patrick MetzkerYuna - In or Out
-04. Drive With BeatsBeachbag - Speed of Light(   Читать дальше...   )Жанр: Electro Pop, Dance, Club, Future HouseПродолжительность: 00:57:22 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE33EA42E6D58B275BCF8C7A89424BE78B2D9D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

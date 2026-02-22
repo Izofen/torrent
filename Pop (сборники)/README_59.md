@@ -1,3 +1,32 @@
+###  Публикация: 1230468   (615415) от 12.06.2018
+
+Ebony - The Singles Collection (2018) [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собраны все синглы этой интересной диско группы, которые были выпущены авторами и продюсерами известных диско-поп исполнителей европы.01.  Don't Boogie Mr. Tango (1976) (4:34)
+02.  Slacker (1976) (4:22)
+03.  You Driving Me Crazy (1977) (4:03)
+04.  Move On Up (1977) (3:39)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78576EACF648D17923F955639B01BCF2BEB5AB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296115   (615238) от 15.04.2019
 
 VA - German Top 50 Party Schlager Charts 15.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
@@ -734,35 +763,6 @@ VA - Relax Mix (2022) [MP3|320 Kbps] <Pop, Easy Listening>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C085758C8313016312EDD5E4C937B9503CF3B3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545564   (607460) от 23.04.2022
-
-VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите окунуться в ретро-атмосферу и на несколько десятков лет перенестись назад в прошлое? В этом вам прекрасно поможет подборка популярнейших песен 70-80х годов. Истерики фанаток и восторженные крики толпы. До отказа заполненные стадионы и концертные залы. Миллионы поклонников по всему миру. Беспрерывные гастроли и несмолкающие овации.001. Patsy Gallant - From New York To L.A.
-002. Soft Cell - Tainted Love
-003. Andrea True Connection - What's Your Name
-004. Siouxsie And The Banshees - The Staircase(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 10:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433A9CDC5B8409E4DF1EB73A2F9A28CE751AE47A
 ```
 
 https://mybot314.ru/tekegram_catalog/

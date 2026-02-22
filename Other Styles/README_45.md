@@ -1,3 +1,32 @@
+###  Публикация: 1109183   (860759) от 26.02.2017
+
+The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [MP3|320 Kbps] <Soundtracks, Classical, Epic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title ("from Game of Thrones")
+02. Goodbye Brother
+03. Season 1 Finale
+04. Warrior of Light(   Читать дальше...   )Жанр: Soundtracks, Classical, EpicПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A8C2670D20363F347BAAE3CA0C40BE4C39AB97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 646757   (860687) от 21.04.2013
 
 Cristina Branco - Fado / Tango (2011) [FLAC|Lossless]<Fado, Tango, Vocal>
@@ -790,35 +819,6 @@ Shinichi Kinoshita & Roby Lakatos - SO GU Kinoshita Meets Lakatos (2002) [APE|Lo
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376714   (856665) от 19.04.2020
-
-Theodor Bastard - Волчья Ягода (2020) [MP3|320 Kbps] <Trip Hop, Folk Rock, Darkwave>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Flute Song [00:02:08]
-02 Шуми [00:04:30]
-03 Skejgored [00:04:43]
-04 Urzala [00:04:04](   Читать дальше...   )Жанр: Trip Hop, Folk Rock, DarkwaveПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F35002D024C76493D311C3D8EA49409E3F8B8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

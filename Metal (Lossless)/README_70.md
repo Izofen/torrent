@@ -1,3 +1,275 @@
+###  Публикация: 1000808   (857644) от 26.03.2016
+
+Gloria Morti - Kuebiko (2016) [FLAC|Lossless|image + .cue] <Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syntymä 03:10
+02. The Foul Stench Of Vomiting Blood 03:39
+03. Josef Fritzl 03:16
+04. Chimeral Form 04:32(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0323877735C86778DBCB630E548670D2606D5607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000811   (857640) от 26.03.2016
+
+Draugnim - Vulturine (2016) [FLAC|Lossless|image + .cue] <Epic Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Name Is Hate 07:43
+02. As In Hunger, So In Demise 07:47
+03. A Passage In Fire 06:31
+04. Grief Unsung 08:04(   Читать дальше...   )Жанр: Epic Pagan Black MetalПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56DDC04EA5DA90C66C6BE834C30764518FC14A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000814   (857572) от 26.03.2016
+
+Cirith Gorgor - Visions of Exalted Lucifer (2016) 2CD Limited Edition [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857572.jpg" />
+</div>
+
+
+###  Подробнее
+
+I - Visions of Exalted Lucifer
+01. Salvator 07:56
+02. A Vision Of Exalted Lucifer 04:48
+03. Of Black Dimensions... 03:21(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DC429D66E811F3AA2223DCD6F536529C77CA2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000818   (857256) от 26.03.2016
+
+Amon Amarth - Jomsviking (2016) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.First Kill
+02.Wanderer
+03.On a Sea of Blood
+04.One Against All(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A40BC48807177B85FA325A1B56460296649C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376761   (857024) от 19.04.2020
+
+Occultus - Cosmos (2002) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyager [01:17]
+02. Luto perpetuo [02:31]
+03. Gloria al Occultismo [06:15]
+04. Chant of the Souls [03:20](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD4F4700131889A4C9A692E2094DA2A3DB7618E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376953   (857022) от 19.04.2020
+
+Talamyus - As Long As It Flows... (2005) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Talamyus (01:03)
+02. Hunger (06:38)
+03. Dark Land (04:22)
+04. In The Name Of Blood (05:21)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BF01C83CA6BB1794E4FFF90386602F6BDCC01E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647580   (856710) от 23.04.2013
+
+36 Crazyfists - 5 Альбомов (2002-2010) Дискография [FLAC|Lossless]<Metalcore | Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+<<<
+----------------------------------------------------------------------------
+01. In The Midnights
+02. Whitewater
+03. Mercy And Grace
+04. Death Renames The Light
+05. Anchors
+06. Long Roads To Late Nights
+07. Trenches
+08. Reviver(   Читать дальше...   )Тип издания: ДискографияЖанр: Metalcore | Nu-MetalПродолжительность: 00:44:55 >>>
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305792   (856537) от 07.03.2011
+
+Children of Bodom - Relentless Reckless Forever (2011) [FLAC|Lossless]<Melodic Death Metal/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Not My Funeral (4:55)
+02. Shovel Knockout (4:03)
+03. Roundtrip to Hell and Back (3:48)
+04. Pussyfoot Miss Suicide (4:10)
+05. Relentless Reckless Forever (4:42)
+06. Ugly (4:13)
+07. Cry of the Nihilist (3:31)
+08. Was It Worth It? (4:06)
+09. Northpole Throwdown (2:55)Жанр: Melodic Death Metal/Power MetalПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498515   (856268) от 27.09.2021
+
+Lethargus - Eclectia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destino Cruel (07:00)
+02. A Vida o Muerte (05:14)
+03. Quiero Odiarte (07:35)
+04. Estrella Fugaz (07:59)(   Читать дальше...   )Жанр: Heavy Metal, Power Progressive MetalПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E466CFE40D004565553AAF6AA90DEA9C339EDEE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498448   (856176) от 27.09.2021
 
 Grafvitnir - Death's Wings Widespread (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
@@ -489,285 +761,6 @@ Immolation - Atonement (2017) [FLAC|lossless|tracks + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:385981694B2BC85B983A57FE9778622C6B5F2314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769997   (853608) от 24.03.2014
-
-Feanor - Hellas (2010) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Hacia El Abismo [03:46]
-02.  Tequila Y Cerveza [04:01]
-03.  Llamas [03:58]
-04.  Bendita Sangre [04:59]
-05.  Las Bolas Suficientes [04:49]
-06.  Noches Duras [04:37]
-07.  Rebelde Sin Cura [03:56]
-08.  Kain [02:12]
-09.  Mis Cristales [02:15]
-10.  Hellas [05:07]Жанр: Heavy MetalПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587C5CC18D920184E8F2DC41AE455B4A7C1BD62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306413   (853438) от 09.03.2011
-
-Serenity - Death & Legacy (2011) [FLAC|Lossless]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Set Sail To… (Intro) (00:30)
-02. New Horizons (06:50)
-03. The Chevalier (feat. Pilar "Ailyn" Gimenez Garcia) (05:33)
-04. Far From Home (04:49)
-05. Heavenly Mission (05:24)
-06. Prayer (Interlude) (feat. Pilar "Ailyn" Gimenez Garcia) (01:23)
-07. State Of Siege (06:48)
-08. Changing Fate (feat. Amanda Somerville) (05:42)
-09. When Canvas Starts To Burn (04:49)
-10. Serenade Of Flames (feat. Charlotte Wessels) (04:56)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306402   (853288) от 09.03.2011
-
-Visions Of Atlantis - Delta (2011) [FLAC|Lossless]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Black River Delta
-02. Memento
-03. New Dawn
-04. Where Daylight Fails
-05. Conquest Of Others
-06. Twist Of Fate
-07. Elegy Of Existence
-08. Reflection
-09. Sonar
-10. Gravitate Towards FatalityЖанр: Symphonic Power MetalПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498897   (853012) от 29.09.2021
-
-Desecrator - Summoning (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raise The Dead
-02. Summoning
-03. Hate At First Sight
-04. Belly Of The Beast(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53158897FE83C923092FE79CB7833349BE7BDB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498951   (852887) от 29.09.2021
-
-Baron Carta - Step Into The Plague / In A Concrete Room (2021) 2EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Step Into The Plague:
-01. Out of Time
-02. Devil to Send
-03. Truth to Power(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDAB5E2800822BBA7EDEB1DD354BF8056945F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498976   (852886) от 29.09.2021
-
-Mental Torment - 2 Albums (2013-2021) [FLAC|Lossless|WEB-DL|image + .cue|tracks] <Death Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acceptance [00:08:15]
-02. New Days Old Wounds [00:07:18]
-03. Untitled [00:07:20]
-04. Conclusion [00:07:34](   Читать дальше...   )Жанр: Death Doom MetalПродолжительность: 2 CD, 01:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5B3464AA82AE87843F59C154FFACA138DF41B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498781   (852883) от 29.09.2021
-
-Alefla - Unbreakable (2021) [FLAC|Lossless|WEB-DL|tracks] <Sympho Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friends
-02. Babies
-03. Sound of Angels
-04. Pray for Your Soul(   Читать дальше...   )Жанр: Sympho Power Metal, Female VocalПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F287AC582F33F8B92A82193BBDE01BBBDD52A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498935   (852732) от 29.09.2021
-
-Brainstorm - 7 Studio Albums (2001-2021) 8xCD [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brainstorm — немецкая пауэр-метал-группа. Создана в 1989 году. Лицом группы является вокалист Энди Б. Франк, также известный участием в Symphorce и прогрессив-группе Ivanhoe. Brainstorm отличается более «тёмным» стилем музыки от большинства пауэр-метал-команд. Немецкие пауэр-металлисты BRAINSTORM выпустили новый студийный альбом "Wall Of Skulls" 20 августа (   Читать дальше...   )2001 - Metus Mortis
-2003 - Soul Temptation
-2005 - Liquid Monster
-2014 - Firesoul(   Читать дальше...   )Жанр: Power MetalПродолжительность: 07:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C6FD1BE877A8B83DFF59BFDB7B8F35B29CFAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498806   (852727) от 29.09.2021
-
-Surturs Lohe - Wielandstahl (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Folk, Viking Folk Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sohn Von Glut Und Stahl (Introduktion) [00:03:54]
-02. Mimes Reigen [00:06:45]
-03. Die Schwanenballade [00:02:29]
-04. Wielandstahl [00:06:58](   Читать дальше...   )Жанр: Epic Folk, Viking Folk Black MetalПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95763F38B6360E528A042F1230A657A4490AFB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

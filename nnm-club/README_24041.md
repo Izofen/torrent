@@ -1,22 +1,31 @@
-###  Публикация: 1822022   (94641) от 05.10.2025
+###  Публикация: 454694   (93845) от 19.02.2012
 
-4 октября 1957 года на орбиту запущен первый искусственный спутник Земли
+VA - Record Super Chart № 228 (18.02.2012) [MP3|~142-320 kbps]<House, Trance, Dance>
 
->>Поговорим
->>Новости
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94641.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Советский Союз открыл космическую эру: 4 октября 1957 года на орбиту запущен первый искусственный спутник ЗемлиВечером 4 октября 1957 года мир впервые услышал сигнал из космоса: «бип-бип-бип». Советский Союз успешно запустил первый в истории искусственный спутник Земли — «Спутник-1».Металлический шар диаметром всего 58 сантиметров и весом 83,6 килограмма с четырьмя (   Читать дальше...   )
+01. Klaas - Changes (Original Mix)
+02. LMFAO - Sexy And You Know It
+03. Niels van Gogh vs. Emilio Verdez - Beatrocker (Original Mix)
+04. Dj Kuba & Ne!tan - Deejay Deejay (Peppermint Remix)
+05. Knife Party - Internet Friends (Original Mix)
+06. DJ SMASH FEAT MAURY - Rendez Vous (Sebastien Lintz Extended Mix)
+07. Roisin Murphy feat. The Crookers - Royal T
+08. Sarvi - Amore (Chuckie Remix)
+09. Dj Antoine vs. Empire Of The Sun - Walking On A Dream (Dj Pitchugin Booty Mix)
+10. Rihanna Feat. Calvin Harris - We Found Love (Chuckie Remix)18.02.2012Жанр: House, Trance, DanceПродолжительность: 02:42:53
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:949BBB3E7E949D069EE0C09BE1893F296608BE1B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,113 +33,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822064   (94639) от 05.10.2025
+###  Публикация: 454329   (93843) от 19.02.2012
 
-JetBrains CLion 2025.2.3 Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94639.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains CLion — интеллектуальная среда разработки, предназначенная для создания программ на языках C и C++ на операционных системах Windows, Linux и macOS. CLion обладает множеством функций, которые облегчают процесс разработки, таких как автодополнение кода, интеграция с системами контроля версий, отладка и многое другое. Это позволяет разработчикам увеличить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF995FDA56AFCCA1D9169F2BEBD5B8535982524B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822065   (94637) от 05.10.2025
-
-Jetbrains WebStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_94637.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains WebStorm — это мощная интегрированная среда для разработки веб-приложений и UI-тестирования на JavaScript, HTML, and CSS. Она предлагает расширенные функции автодополнения, рефакторинга и анализа кода, которые ускоряют разработку и улучшают качество кода. Также WebStorm поддерживает современные технологии, такие как Node.js, Angular, React, и Vue.js, и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6094EDCFFF8EE762561F12EA910246AA06BA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822066   (94635) от 05.10.2025
-
-JetBrains RubyMine 2025.2.3 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94635.jpg" />
-</div>
-
-
-###  Подробнее
-
-RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
-Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5FD8BED15200B1D326B7E997169DBB5BC767F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455347   (94634) от 26.02.2012
-
-Twenty 4 Seven - The Reason (2012) [MP3|320 kbps]<House>
+VA - Psychology Vol.3 (2012) [MP3|320 kbps]<Psychedelic / Ambient, Psy Chill>
 
 >>Electronic
->>House
+>>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94634.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93843.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ruud van Rijen Radio Mix (03:07)
-02. Clubcrew Radio Edit (03:05)
-03. Clubcrew Extended (04:30)
-04. Instatic Remix (05:50)
-05. Clubcrew Rmx (05:37)
-06. DJ E.B. Smallz remix (04:18)
-07. DJ E.B Smallz & Tropic S. Remix (04:18)
-08. DJ Jan Gruijters Remix (05:25)
-09. Pieter Limburg Candlelight (03:22)
-10. Instrumental (03:09)2012Жанр: HouseПродолжительность: 00:42:46
+01. Lauge & Baba Gnohm - Nordlys 13:39
+ 02. Bob Tracker - 17 Grand Way 07:44
+ 03. Bahramji and Mashti - All About You 04:56
+ 04. MIC - Visite Champetre 16:53
+ 05. Nalepa - Snowflakes 06:00
+ 06. Metaphorical Cloud - Substance 06:04
+ 07. E-Mantra - If there is Nothing 07:29
+ 08. Soulalive - Undercurrent 05:10
+ 09. Easily Embarrassed - Blurred Clouds Under The Gloomy Moon 08:02
+ 10. Side Liner - A Hand To Hold 09:02(   Читать дальше...   )2012Жанр: Psychedelic / Ambient, Psy ChillПродолжительность: 01:41:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCB8B3C5EE06C68999E8667AF1F5941816EDC86B
+magnet:?xt=urn:btih:20EFC983498F7E72FA4968BCC5ECD551FAE0A697
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,25 +68,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822067   (94633) от 05.10.2025
+###  Публикация: 455014   (93842) от 19.02.2012
 
-JetBrains PyCharm Professional 2025.2.3 (x64-arm64) Repack by Sitego [En]
+Н.В.Мельникова | Семейный обед [2012] [DJVU]
 
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
+>>Разное (категория книг)
+>>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94633.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93842.jpg" />
 </div>
 
 
 ###  Подробнее
 
-JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
+Предлагаем читателям рецепты для совместных трапез из недорогих и простых в приготовлении продуктов. Соберитесь всей семьей на обед!2012Формат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D580676D7C863F3260C3DBD58EDA170B6657986F
+magnet:?xt=urn:btih:F80CF5E3A22240237880469C61C8260FC80733C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,25 +94,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 457915   (94632) от 26.02.2012
+###  Публикация: 454455   (93832) от 19.02.2012
 
-Ключи для Kaspersky IS & AV 25 февраля 2012 года от 25 февраля
+VA - Derrick & Tonika, Shyma - Remix EP (2012) [MP3|320 kbps]<Drum & Bass>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94632.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93832.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Файлы активации различных программ Лаборатории КасперскогоНазвание программы: Ключи для Kaspersky IS & AV 25 февраля 2012 года
+01. Derrick & Tonika - bird 1 (derrick & tonika remix) (05:18)
+02. Shyma - by the wind (derrick & tonika remix) (05:39)2012Жанр: Drum & BassПродолжительность: 00:10:57
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:451CEEC97E1E446D6402B26E5AB99EE70329FDA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,26 +121,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822068   (94631) от 05.10.2025
+###  Публикация: 454308   (93829) от 19.02.2012
 
-JetBrains PhpStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
+Sanathana - Saraswati (2012) [MP3|192-320 kbps]<Psychedelic / PsyAmbient, Electronika>
 
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
+>>Electronic
+>>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94631.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
-поддерживает PHP 5.3, 5.4, 5.5, 5.6, 7.0, 7.1, 7.2, 7.4, 8.0, 8.1, 8.2, 8.3 и PHP 8.4 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание (   Читать дальше...   )Язык интерфейса: Английский
+01. Into The Land of Nod 7:02
+ 02. Raghupati Raghava Rajaram 9:50
+ 03. Monsoon Dreams 9:43
+ 04. The Tree That Swayed Me 9:47
+ 05. Light Seeking Dancer 8:49
+ 06. The Purpose of Existence 9:12
+ 07. Down The Memory Lane 8:26
+ 08. Dark is So Bright 11:152012Жанр: Psychedelic / PsyAmbient, ElectronikaПродолжительность: 01:14:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:825897A05508CE13197AC3F007B9F4DB42DA4700
+magnet:?xt=urn:btih:4D54CD38EDF12F71D8C065AFA68683E403D25D67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,239 +154,156 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 458042   (94629) от 26.02.2012
+###  Публикация: 454916   (93826) от 19.02.2012
 
-Анжелика Агурбаш - Grand collection (2010) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822069   (94628) от 05.10.2025
-
-Jetbrains IntelliJ IDEA Ultimate 2025.2.3 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94628.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains IntelliJ IDEA Ultimate - это профессиональный инструмент для разработки Java-приложений, который предлагает широкий спектр функций и возможностей для повышения эффективности разработчиков. Эта интегрированная среда разработки (IDE) обеспечивает быструю навигацию, умное автодополнение и рефакторинг кода, а также поддерживает множество технологий и фреймворков. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF026F10025F4775E9E89C2ECE5F295FE231DB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822070   (94627) от 05.10.2025
-
-JetBrains DataGrip 2025.2.4 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94627.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains DataGrip - это инновационное программное обеспечение, специально разработанное для работы с различными базами данных, включая Oracle, SQL Server, MySQL, Sybase, HyperSQL, DB2, SQLite и многие другие. Оно представляет собой полноценный пакет инструментов, который обеспечивает удобство и эффективность при работе с данными.
-Одной из ключевых особенностей является (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177CD56DA7E5E4748270823C0FF15202CE782A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822071   (94626) от 05.10.2025
-
-JetBrains GoLand 2025.2.3 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94626.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoLand - это интегрированная среда разработки (IDE) от компании JetBrains, специально разработанная для работы с языком программирования Go. Она предоставляет разработчикам удобную среду для написания кода, анализа и отладки программ на Go.
-
-IDE GoLand предлагает широкий спектр инструментов, специфичных для языка Go, таких, как автодополнение кода, быструю навигацию (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D269C186B0BD6B5AC3E7F2C51E5FF38FE9F5BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822074   (94625) от 05.10.2025
-
-By Click Downloader Premium 2.4.26 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94625.jpg" />
-</div>
-
-
-###  Подробнее
-
-ByClick Downloader (бывший YouTube By Click) - отличный и удобный в использовании загрузчик видео роликов из популярнейшего портала YouTube. Кроме этого хостингового ресурса, поддерживается также скачивание файлов из Facebook, Vimeo, Dailymotion и других сайтов. Разработчики постарались сделать это приложение максимально комфортным в работе. Для того, чтобы скачать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E1A47CB2DE798083DEC0B2FF2DAEBF7CF8185C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822081   (94623) от 05.10.2025
-
-Calibre 8.12.0 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A1793D7AD0C9259C9CF665437AB37976AC5853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822083   (94621) от 05.10.2025
-
-Perfectly Clear WorkBench 4.8.0.2857 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C8DCFE02E1B9EFAD689A3539DBCE7B16D42B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822085   (94619) от 05.10.2025
-
-Firefox Browser 143.0.4 [Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87B2A1FF775A3A3F8126B5AB219B5CE407773D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458514   (94618) от 26.02.2012
-
-Журнал | Ателье №2 (134) [2012] [PDF]
+Журнал | Conde Nast Traveller [Россия] №4 (февраль 2012) [PDF]
 
 >>Журналы
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94618.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Ателье» — это первый профессиональный журнал о моде в России, ориентированный на владельцев ателье и мастерских по пошиву одежды, дизайн-студии, частных модельеров и дизайнеров.
+«Condé Nast Traveller» — журнал для путешественников, издаваемый международной корпорацией Condé Nast Publications. Издание принято называть библией для туристов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92BBBF14D4A51647E52490D96C4D2067F6AEEB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452554   (93817) от 19.02.2012
+
+VA - The Best Of Trance & Progressive 19 (2011) [MP3|320 kbps]<Trance, Progressive Trance, Uplifting Trance, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93817.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hard Rock Sofa & St. Brothers - Blow Up (Thomas Gold Vs. Axwell Remix) (6:15)
+2. Ferry Corsten - Punk (Arty Rock N Rolla Mix) (6:25)
+3. Ferry Corsten - Feel it (Original Extended Mix) (6:16)
+4. Sander van Doorn - Koko (Original Mix) (5:39)
+5. Orjan Nilsen - Between the Rays (3:56)
+6. leon bolier - cape town
+7. abstract vision and elite electronic - rise again
+8. jaco - excuses (original mix)
+9. John O Callaghan - Ride The Wave (feat. Giuseppe Ottaviani)
+10. juventa - dionysia (original mix)(   Читать дальше...   )Жанр: Продолжительность: 19:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5582C334190A3F7DD03187D299B8B201AAF772E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454378   (93815) от 19.02.2012
+
+VA - Stax Does the Beatles (2008) [APE|Lossless]<Southern Soul, Jazz Soul>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Otis Redding - Day Tripper2008Жанр: Southern Soul, Jazz SoulПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454376   (93810) от 19.02.2012
+
+VA - Stay Alive (Compiled by Wega) (2012) [MP3|192-320 kbps]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wega - Las Wegas 06:38
+ 02. Wrecked Machines & Joti Sidhu & DJ Edoardo - Plastik Devils 07:08
+ 03. Waio & Deeplock - We Are Coming 06:43
+ 04. Poli & Menog - Night Breed 09:16
+ 05. Scrovinsky - Alliance 06:16
+ 06. GMS & Life Style - Scary Ho 07:53
+ 07. Wega - Ruback (Cosmonet Rmx) 07:36
+ 08. 1MG - Leaked Info 07:40
+ 09. Audio-X - 24 Hours 08:47
+ 10. Alternate Control - Haarp 06:582012Жанр: Psychedelic / Full OnПродолжительность: 01:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458F62A31FA07C3C2E39E867F4CDC139D09D033E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454408   (93797) от 19.02.2012
+
+VA - Goa 2012 Vol. 1 (2CD) (2012) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93797.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+Продолжительность: 01:08:13
 
- В каждом номере можно найти массу интересных и профессиональных статей, предназначенных для специалистов швейного бизнеса. Основные материалы журнала посвящены последним новостям моды в (   Читать дальше...   )Формат: PDF
+01. Invisible Reality - Special Feeling 07:57
+ 02. Suntree - Fear And Love 09:01
+ 03. Static Movement vs. Impact - Fairy Tales 07:14
+ 04. Klopfgeister - Laser Achim Strikes Back 06:31
+ 05. Infinity - Pumping Rhythm 08:16
+ 06. Mindwave - Particles 07:28
+ 07. Zyce - Source Code 07:24(   Читать дальше...   )2012Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:29:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74814BFCE2013CBC8D836F8382E69B24A4EBF7F5
+magnet:?xt=urn:btih:292015F04280EA22C6B133099E02950FD12BBEB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,25 +311,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822089   (94617) от 05.10.2025
+###  Публикация: 452772   (93794) от 19.02.2012
 
-Firefox Browser 143.0.4 Portable by PortableApps [Ru]
+IntroWert - Progressive Reason Episode 070 [06.02.2012] (2012) [MP3|192 kbps]<Progressive Trance, Uplifting Trance>
 
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94617.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+01. Javah feat. Mimi Boheme - Waiting (Original Anthem Mix)
+ 02. Jan Martin - Exemption (Abstract Vision & Elite Electronic Remix)
+ 03. Hardwell & Nicky Romero - Beta (Original Mix)
+ 04. Aly & Fila - 200 (FSOE 200 Anthem) (Ummet Ozcan Mix)
+ 05. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix)
+ 06. Odonbat - October Sky (Original Mix)
+ 07. Bobina – Diamond Hell (Original Mix)
+ 08. Orjan Nilsen - Lucky Strike (Original Mix)
+ 09. Daniel Kandi - Sagittarius (Original Mix)
+ 10. Nuera - Imagine (Original Mix)(   Читать дальше...   )2012Жанр: Progressive Trance, Uplifting TranceПродолжительность: 02:00:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC6E4A76E8AD180F27DE4150F8E8AB3E1839BA95
+magnet:?xt=urn:btih:957FAF2E3EEAE493C9CB028AB074D56079EB861C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,25 +346,225 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822094   (94615) от 05.10.2025
+###  Публикация: 454100   (93793) от 19.02.2012
 
-Большой потенциал / High Potential (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-3 из 13) LostFilm, HDRezka, RHS, 1win Studio, LE-Production (обновляемая)
+VA - The Dance Cube XXXI (2011) [MP3|320 kbps]<Trance>
 
->>Зарубежные сериалы
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ian Solano - Eleven (Michael Tsukerman Remix)
+02. Grube & Hovsepian - Pressure (P.A.F.F. Resmash)
+03. Jochen Miller - Bamm
+04. Tigran Organezov - Raptor
+05. Marcel Woods - Black Angus
+06. Ronski Speed feat. Renee Stahl - Out Of Control (Dennis Sheperd Remix)
+07. Erick Strong - Payback (Matthew Nagle Remix)
+08. Michael Jay Parker & Jan Miller - Shinowata (Original Mix)
+09. Rapha - Impressions (MarkEtesonRemix)
+10. Laura Jansen - Use Somebody (Armin van Buuren Rework)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 01:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2007DB91F91EB847386FA45C3E5ED2B119CA51D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454678   (93784) от 19.02.2012
+
+VA - Minimal Art v.5 (13.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acida Corporation - Kick Harder (Dark Acid Remix) (7:07)
+ 02. Artem Abdrakhmanov - Beer & Chips (Original Mix) (6:07)
+ 03. Biohazart - Disco Tron (Original Mix) (7:15)
+ 04. Deep Noiser - Pan (Original Mix) (6:30)
+ 05. Egoism - Cocain (Original Mix) (6:33)
+ 06. Egoism - My Egoism (Original Mix) (8:44)
+ 07. G0rR - Den Vollmond (Original Mix) (6:41)
+ 08. Hells Kitchen - Bedtime Stories (Original Mix) (4:19)
+ 09. Insect Elektrika - Ass Jumping On Ass (Original Mix) (6:58)
+ 10. Joe Maker - Trip From The Crypt (Gaga & Mateo Remix) (6:28)(   Читать дальше...   )13.02.2012Жанр: MinimalПродолжительность: 02:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E524D5FA25AFB867CCCF6044C458466270459980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454682   (93782) от 19.02.2012
+
+VA - Minimal Art v.6 (14.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Mansell - Minimal Business (Original Mix) (5:00)
+ 02. Antoine Brezza - Star Face (6:33)
+ 03. Aquinoise, Josh Bartoli - Wild (Original Mix) (7:52)
+ 04. Dani Sbert - Crush Me (Original Mix) (6:24)
+ 05. Daniel Zuur - Three Days (Original Mix) (6:55)
+ 06. Du Sant - Rebote De Azules (Original Mix) (6:49)
+ 07. Dub Dread - Warped (Ray Keith Remix) (6:06)
+ 08. Giuseppe Visciano - Cocaine (Alessandro Grops Remix) (6:05)
+ 09. Leano - Wtf (Original Mix) (7:46)
+ 10. Lorenzo Damario - The Boat (Original Mix) (6:30)(   Читать дальше...   )14.02.2012Жанр: MinimalПродолжительность: 02:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31A56845F226F0F60CFBF35FF477BAF030B57A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454643   (93780) от 19.02.2012
+
+Soen - Cognitive (2012) [MP3|320 kbps]<Progressive Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fraktal 01:11
+02. Fraccions - 04:56
+03. Delenda - 04:31
+04. Last Light - 04:31
+05. Oscillation - 06:49
+06. Canvas - 06:34
+07. Ideate - 04:02
+08. Purpose - 04:12
+09. Slithering - 05:43
+10. Savia - 05:532012Жанр: Progressive MetalПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C0F76A18A675C440FC8D9B6616652C90282F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453924   (93767) от 18.02.2012
+
+Яна Алексеева | Охотящиеся в ночи [2011] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Господа, рассказать вам сказку? Не добрую и светлую, а настоящую. Про тех, кто скрывается в тени, крадется в ночи, танцует при свете луны? Про берегущих секреты и знания, про стерегущих иные законы? Про Роды и Кланы, про тех, кто нарушает традиции. И про тех, кто следит за порядком в сокрытом от обычных людей мире. Начнем, пожалуй. Однажды поздним вечером по городу кралась волчица…2011Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935D94FE849FE5DA17BB316D690B0E774FED86E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453718   (93763) от 18.02.2012
+
+Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Rain (7:38)
+02. Blue Moon (9:55)
+03. Gypsy (5:14)
+04. Invitation (13:13)
+05. I Remember Italy (13:08)
+06. Laura (6:30)
+07. Morning Mist (8:20)
+08. This is the Life (7:09)
+09. Woody'n You (4:57)2012Жанр: Post-Bop, Piano JazzПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454599   (93762) от 18.02.2012
+
+Журнал | Selbst ist der Mann [май 2011] [PDF]
+
+>>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94615.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Морган, мать-одиночка с тремя детьми, работает уборщицей в полицейском участке. Однажды она становится свидетельницей преступления. В тот же момент она раскрывает в себе исключительный ум, который позволяет ей быстро упорядочивать разные факты. Благодаря этому ее приглашают в качестве консультанта для работы над расследованием.Производство: США / ABC Signature, Goddard Textiles, Itineraire ProductionsЖанр: драма, криминал, детективРежиссер: Ребекка Эшер, Аманда Трейз, Алетеа ДжонсАктеры: Кэйтлин Олсон, Джависия Лесли, Дэниел Сунджата, Дениз Акдениз, Мэттью Лэмб, Джуди Рейес, Гаррет Диллахант, Таран КиллэмПеревод: Многоголосый (LostFilm, HDRezka, RHS, 1win Studio, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: ~00:45:00 серия
+Selbst ist der Mann — немецкий журнал для домашних мастеров: советы по ведению домашнего хозяйства, создание изделий из дерева для дома и сада своими руками, обустройство приусадебного участка, навыки обращения с рабочим инструментом.май 2011Жанр: хоббиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B694B3B16562770F7D379AEB20059C058397248A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,25 +572,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584830   (94613) от 05.10.2025
+###  Публикация: 454395   (93759) от 18.02.2012
 
-Мулен Руж / Moulin Rouge! (2001) BDRip [H.265/1080p] [10-bit]
+VA - New Russian Electro - Vol.16 (2012) (2012) [MP3|320 kbps]<Electro House,House>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94613.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Париж, 1899 год. Знаменитый ночной клуб «Мулен Руж» — это не только дискотека и шикарный бордель, но и место, где, повинуясь неудержимому желанию прочувствовать атмосферу праздника, собираются страждущие приобщиться к красоте, свободе, любви и готовые платить за это наличными. За любовь самой известной куртизанки Парижа, блистательной Сатин, борются двое мужчин, (   Читать дальше...   )Производство: Австралия, США / 20th Century Fox Film Corporation, Angel Studios, Bazmark FilmsЖанр: мьюзикл, мелодрама, драмаРежиссер: Баз ЛурманАктеры: Николь Кидман, Юэн Макгрегор, Джон Легуизамо, Джим Бродбент, Ричард Роксбург, Гарри МакДональд, Яцек Коман, Мэттью Уиттэт, Керри Уокер, Кэролайн О’КоннорПеревод: дублированный, многоголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские (full, forced), английскиеПродолжительность: 02:07:50
+1. Dan Balan - До Утра (DJ Nejtrino & DJ Stranger Remix) (4:03)
+2. Delay Project & Legeza - Чувства (Original Mix) (5:03)
+3. DJ Boyko & Sound Shocking - На Вечеринке (Original Mix) (7:24)
+4. DJ Gold Sky feat. A&K - Rock Star 2012 (Russian Version) (2:58)
+5. DJ Niki & DJ Squeeze feat. Soda - Поезд На Ленинград (Extended Mix) (6:14)
+6. DJ Niki feat. Soda - Красивые Слова (Club Mix) (5:15)
+7. DJ Sandro Escobar & Нюша - Выше (DJ Andy Wait Remix) (5:20)
+8. DJ Smash feat. Винтаж - Москва (Original Mix) (5:46)
+9. Geegun & Жанна Фриске - Ты Рядом (DJ Stylezz Remix) (4:37)
+10. Mike Candys & Eli Wais & Lana B - Если Ты Захочешь (Booty Mix 2012) (5:33)(   Читать дальше...   )2012Жанр: Electro House,HouseПродолжительность: 02:20:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5924F496A1DBED69D26D1A213EB67EDC4566EAD5
+magnet:?xt=urn:btih:D4D125AC18F987E9E41E93F5828C9A1A4FB3893D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,51 +607,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822002   (94611) от 05.10.2025
+###  Публикация: 453730   (93754) от 18.02.2012
 
-Плохие парни 2 / The Bad Guys 2 (2025) UHD BDRemux [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 7.6, 10-bit]
+VA - Ballads in Blue (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, Jazz ballads>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плохие парни пытаются адаптироваться к новой жизни, когда их просят вернуться к криминальной жизни и выполнить последнее задание.Производство: США / Universal Pictures, DreamWorks Animation, Scholastic EntertainmentЖанр: мультфильм, боевик, комедия, криминал, детектив, приключения, семейныйРежиссер: Пьер Перифел, Джейпи СансАктеры: Сэм Рокуэлл, Марк Мэрон, Аквафина, Крэйг Робинсон, Энтони Рамос, Зази Битц, Даниэль Брукс, Наташа Лионн, Мария Бакалова, Алекс Борштейн, Ричард АйоадиПеревод: Дублированный (Продубляж)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7C13BC5E6B792D2CA9957276FEAF0813898D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822054   (94609) от 05.10.2025
-
-Список смертников: Тёмный волк / The Terminal List: Dark Wolf (2025) WEB-DL [H.264/720p] (сезон 1, серии 1-7 из 7) TVShows, LostFilm, Red Head Sound
-
->>Зарубежные сериалы
+>>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94609.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бен Эдвардс, элитный «морской котик», сталкивается с переломным моментом в своей карьере. После роковой операции он теряет статус в SEAL и вынужден стать оперативником теневого подразделения ЦРУ.Производство: США / Amazon Studios, Civic Center Media, Fuqua FilmsЖанр: боевик, триллер, драмаРежиссер: Пол Кэмерон, Фред Туа, Лиз ФридлендерАктеры: Тейлор Китч, Том Хоппер, Дар Салим, Джаред Шоу, Люк Хемсворт, Джай Кортни, Джинн Трипплхорн, Райли Кио, Патрик Шварценеггер, Констанс ВуПеревод: Многоголосый (TVShows, LostFilm, Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (forced, full, SDH)Продолжительность: ~00:56:00 серия
+01.Melissa Walker - A Time for Love (4:48)
+02.Dusko Goykovich - No Love Without Tears (6:48)
+03.Gust William Tsilis - Evening in Paris (6:40)
+04.Kevin Mahogany - Here's That Rainy Day (5:35)
+05.Bennie Wallace - It's the Talk of the Town (6:21)
+06.Ferenc Snetberger - Szivarvany (4:27)
+07.Jenny Evans - You Go to My Head (5:23)
+08.Karl Ratzer - Farmer's Charm (6:09)
+09.Abdullah Ibrahim - Eleventh Hour (4:22)
+10.Chet Baker - I Fall in Love Too Easily (6:46)1999Жанр: Jazz, Vocal Jazz, Jazz balladsПродолжительность: 00:57:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48AF6A919F24677C93A0A916E5799162A0B5EF76
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,51 +642,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822100   (94607) от 05.10.2025
+###  Публикация: 454494   (93752) от 18.02.2012
 
-Шрифты - YouWorkForThem - Sans Beam [OTF]
+Журнал | Selber Machen [Август 2007] [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шрифт был разработан в соответствии с простой идеей «Выбирай. Играй. Повторяй». Он предназначен для ограниченного пространства типографской верстки, где часто возникает проблема выбора оптимальной насыщенности шрифта, отвечающей поставленной задаче. Этот шрифт призван устранить эти проблемы, предотвращая невозможные дизайнерские решения как для основного текста, (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA77FDEB19CE948E4432EFBC0B092EB04345B5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822038   (94605) от 05.10.2025
-
-Ледяная бездна / Hautalehto: Kylma syli (2024) WEB-DL [H.264/1080p] (сезон 2, серии 1-6 из 6)
-
->>Зарубежные сериалы
+>>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94605.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несколько молодых людей утонули в местной реке, и детектив полиции Антти начинает расследовать эти загадочные смерти. Вскоре он приходит к выводу, что в городке орудует серийный убийца. Чем больше Антти углубляется в изучение дел, тем больше страшных тайн ему открывается. Мужчина начинает подозревать, что все преступления имеют отношение к его ближайшему окружению.Производство: Финляндия / Solar FilmsЖанр: боевик, триллер, драма, криминалРежиссер: Петри КотвицаАктеры: Микко Леппилампи, Онни Парвиайнен, Иикка Форсс, Антти Рейни, Тейо Элоранта, Уна Айрола, Мария Сало, Инка Каллен, Пихла Маалисмаа, Конста ЛааксоПеревод: ДублированныйЯзык озвучки: Русский, финскийСубтитры: РусскиеПродолжительность: ~00:45:00 серия
+Selber Machen - немецкий журнал для домашних мастеров: советы по ведению домашнего хозяйства, создание изделий из дерева для дома и сада своими руками, обустройство приусадебного участка, навыки обращения с рабочим инструментом, мелкий ремонт, идеи по оформлению интерьераАвгуст 2007Жанр: хоббиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7DFA551E42D781E0B3031FFA0B7DE2226BEA969
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,25 +668,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 458002   (94604) от 26.02.2012
+###  Публикация: 452795   (93751) от 18.02.2012
 
-Растровый клипарт - Цветы-3 [JPG]
+Tony Bennett & K.D.Lang - A Wonderful World (2002) [FLAC|Lossless]<Vocal Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94604.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цветы, композиции со цветами и др.Разрешение файлов: 1737x2610 - 2043x3071Формат: JPG
+01. Exactly Like You (3:18)
+02. La Vie En Rose (3:24)
+03. I'm Confessin' (That I Love You) (4:46)
+04. You Can Depend On Me (3:01)
+05. What A Wonderful World (3:23)
+06. That's My Home (3:05)
+07. A Kiss To Build A Dream On (3:26)
+08. I Wonder (3:49)
+09. Dream A Little Dream Of Me (3:53)
+10. You Can't Lose A Broken Heart (3:14)(   Читать дальше...   )2002Жанр: Vocal JazzПродолжительность: 00:43:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3158DD93FCE2D94BA3FA21E3AD85F0D4848D04C4
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,25 +703,121 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822102   (94603) от 05.10.2025
+###  Публикация: 454651   (93741) от 18.02.2012
 
-Пресеты - Soul Mate - MELO PRESETS [XMP]
+UFO - Seven Deadly (2012) [FLAC|Lossless]<Hard Rock>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94603.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93741.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MELO — это потрясающий, реалистичный набор пресетов. Он невероятно универсален и подходит для работы, неподвластной времени. Это самый естественный набор из всех, который придаст вашим фотографиям профессиональный, изысканный вид. Благодаря естественной тональности вы можете легко персонализировать их и работать с любыми эффектами, изменяя контрастность и насыщенность. (   Читать дальше...   )Формат: XMP
+01. Fight Night - 04:34
+02. Wonderland - 05:08
+03. Mojo Town - 03:56
+04. Angel Station - 06:23
+05. Year Of The Gun - 04:07
+06. The Last Stone Rider - 03:52
+07. Steal Yourself - 04:46
+08. Burn Your House Down - 04:58
+09. The Fear - 03:44
+10. Waving Good Bye - 05:11(   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:53:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6700D009133ADD7526D9C5DDD06FBA9E48972D5
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454355   (93740) от 18.02.2012
+
+Seven Seals - ... of Contradictions (2012) [MP3|320 kbps]<Heavy/Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro
+02 - Dreams Collide
+03 - The Better Days
+04 - Vicious Circle
+05 - Come Clraity
+06 - Still Small Voice
+07 - Crestfallen
+08 - Deliver Us
+09 - Endearment
+10 - Mother Earth(   Читать дальше...   )2012Жанр: Heavy/Power MetalПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68B8095C5548FD51A1AD494D83C997BEA751F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453928   (93729) от 18.02.2012
+
+Наталия Курсанина | Игра не на жизнь. Проходная пешка [2011] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93729.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Когда вглядываешься в бездну — бездна заглядывает в тебя». Если рискнули играть в магию — магия может запросто сыграть вами, словно разменной пешкой. И тогда невинная «ролевая игра» по мотивам «Властелина Колец» обернется кровавым кошмаром, провалом в бездну, беспощадной войной миров. Потому что реальные эльфы ничуть не похожи на те прекрасные создания, что воспевал Толкин, — для настоящих эльфов, возомнивших себя высшей расой и кичащихся собственным первородством, человеческая жизнь не стоит ни гроша, мы для них — низшие существа, которых следует истреблять, не щадя ни женщин, ни детей. А гномы и орки еще хуже эльфов… Новый роман от автора бестселлера «Попаданцы» Карибского моря»! Наш человек в мире жестокой магии. Люди против «старших рас», мечи против колдовства, любовь против адской бездны! В этой беспощадной игре не на жизнь, а на смерть, где все средства хороши, кровь дешевле воды и геноцид давно вошел в привычку, существует лишь одно правило: проходная пешка становится ферзем!2011Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD4FEE1999A78EBFB3789F2EEE821DBB4CA41C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453974   (93724) от 18.02.2012
+
+[EN] 13 часов / 13Hrs (2010) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время сильной ночной бури, Сара Тайлер возвращается домой загород к своему семейству. Буря усиливается, и Сара с семьей и друзьями остаются на ночь в доме, отрезанные от внешнего мира. Но что-то появляется из проливного дождя и мрака. Что-то, что владеет такой ужасной тайной, что за одну ночь может истребить всю семью. Пойманным в ловушку, Саре, ее братьям и друзьям придется приложить максимум усилий, чтобы спастись от ужасного существа. Смогут ли они остаться в живых в течение 13 часов?Жанр: Ужасы, БоевикРежиссер: Джонатан ГленденингАктеры: Изабелла Кэлторп, Том Фелтон, Джемма Эткинсон, Джошуа Боуман, Гэбриел ТомсонПеревод: ОтсутствуетПродолжительность: 01:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6C66547B104A88D7BA6E8CAA3FF8F74504AAB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1644391   (234021) от 05.07.2023
+
+Louis Armstrong - Louis on Broadway (2023) [FLAC|Lossless|WEB-DL|tracks] <Early Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, Dolly!
+02. Cabaret (Single Version)
+03. A Lot Of Livin' To Do
+04. You're The Top(   Читать дальше...   )Жанр: Early Jazz, SwingПродолжительность: 01:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B10D4087832F0C6520818B0FCC02F8ADBD4FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623302   (233974) от 01.04.2023
 
 Dinah Washington - Gold (1943 - 1961) 2CD, 2007, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Jacques Loussier - Four Classic Albums (1960 - 1962) 2CD, 2013, Avid Jazz [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1939BE20772001BB653E2016194AD127C9541B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627962   (233330) от 22.04.2023
-
-Richie Cole With Phil Woods - Side By Side (1980) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Your Love for Me [8:50]
-02. Naugahyde Reality [2:27]
-03. Scrapple from the Apple [8:14]
-04. Rain Go Away [8:07](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDBF329738EE78E5396E86D161DCB8689687180
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1383803   (808277) от 17.05.2020
+
+Miles Davis - Filles de Kilimanjaro 1968 (1990) Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frelon Brun (Brown Hornet) [5:43]
+02. Tout de Suite [14:10]
+03. Petits Machins (Little Stuff) [8:12]
+04. Filles de Kilimanjaro (Girls of Kilimanjaro) [12:06](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6F59BFB53A33C48D817CAF9ACF2696D4B4ECA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009676   (808243) от 22.04.2016
+
+Phil Woods, Gene Quill, Jackie McLean, John Jenkins, Hal McKusick - Bird Feathers (1957) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Solar [05:53]
+ 02.Bird Feathers [10:26]
+ 03.Interim [05:52]
+ 04.Airegin [06:28](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B96BCB984A4A6A368CE5C99F0913806B608F2BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383794   (808140) от 17.05.2020
+
+VA - Quarantine Doom Jazz vol. 2 (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Finger - Das Zeit (10:43)
+02. Gamardah Fungus - Opium (8:32)
+03. Misantronics -  Tilting (10:39)
+04. Shadowed Silhouette - Just A Passerby (5:01)(   Читать дальше...   )Производство: Signora Ward RecordsЖанр: Dark Jazz, Doom Jazz, Jazz Noir, ExperimentalПродолжительность: 01:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974CA0CFD1A7C724C233FB9CF2AF26325B98B5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009851   (808108) от 22.04.2016
 
 72Blues - Said I Would (2004) [MP3|320 кб/с] <Heavy Blues Rock>
@@ -658,90 +745,6 @@ Moacir Santos - Carnival of the Spirits (1975) Remaster, 2012, EMI Music[FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56830B144025CBDA0F641B6D87969BEFAAC56606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010084   (804388) от 24.04.2016
-
-Jan Lundgren Trio - Svenska landskap (2003) Sittel Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Slangpolska efter Byss-Kalle [04:42]
- 02.Allt under himmelens faste [04:09]
- 03.Medley [06:48]
- 04.Brannvin ar mitt enda gull [04:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22263B2B31CEBEA4A6EC8C32712AA4BDC9306D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384240   (804382) от 19.05.2020
-
-Miles Davis - Miles in St. Louis 1963 (1981) Soulard Intertainment Co. [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Thought About You [8:03]
-02. All Blues [12:46]
-03. Seven Steps to Heaven [10:36]
-04. St. Louis Interview [17:16](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61ED7D6803833421F99F9A555E5E987978A66CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778574   (804339) от 19.04.2014
-
-VA - Pure... Jazz (2010) Box Set, 4 CD [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие из джазистов, представленных здесь, уже побывали в нашем клубе в различных релизах. Но, если вы хотите получить представление о всех стилях  джаза что называется "в одном флаконе", то обязательно послушайте эти 4 диска. Фирма Sony, продолжая свою серию Pure... (см. под спойлером остальные части), знакомит любителей музыки с самыми знаменитыми джазовыми (   Читать дальше...   )Жанр: Jazz (стили см. под спойлером)Продолжительность: 04:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6F1F0FC4A9C2521346356AAD7B1ACB84E1EFD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

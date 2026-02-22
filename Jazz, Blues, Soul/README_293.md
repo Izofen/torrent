@@ -1,3 +1,90 @@
+###  Публикация: 1313448   (523755) от 09.07.2019
+
+Matthieu Bore - Fats Domino's True Spirit (2001) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be My Guest [02:28]
+02. Blue Monday [03:01]
+03. I'm Gonna Be A Wheel Someday [02:34]
+04. I'm In Love Again [02:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB825E238CEBFD96116311C0E065F13C53689AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240614   (523705) от 13.08.2018
+
+Illinois Jacquet - The Illinois Jacquet Story: Groovin' (1944 - 1951) 2002, Proper Records [FLAC|Lossless|image + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B-Yot [2:20]
+02. Adams' Alley [2:12]
+03. Blue Satin [2:37]
+04. Stay Away [3:05](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E99251AD381A8369631C4D097DD09E35BA44168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240823   (523702) от 13.08.2018
+
+Romain Pilon - Copper (2018) [FLAC|Lossless|tracks + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bibou (5:57)
+02. Trippin' (5:09)
+03. Four Moons (7:25)
+04. Laniakea (5:09)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFA38FE5685D02079376F7C197AC5CF774E0482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559649   (523543) от 26.06.2022
 
 Jimmy Smith - The Classic Verve Albums Collection (1962 - 1964) 4CD, 2019, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Organ Jazz>
@@ -659,93 +746,6 @@ Steve Smith & Vital Information - Fiafiaga (Celebration) (1988) /Columbia/ [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFCBF476CCB9D69F14976592AF7F8E65F92057F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928453   (522574) от 16.08.2015
-
-Gabriele Mirabassi, Nando Di Modugno, Pierluigi Balducci - Amori Sospesi (2015) [FLAC|Lossless|WEB-DL]<World Fusion, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gli Amori Sospesi
-02. Minuano
-03. Fryderyk
-04. En La Orilla Del Mundo(   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C1F3C41181F1C539C04F36383E6BF431EAC7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928430   (522550) от 16.08.2015
-
-Peter Erskine - Peter Erskine (1982) /1988, Contemporary Records/ [FLAC|image+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leroy Street [07:50]
-02. In Statu Nascendi [01:31]
-03. E.S.P. [02:57]
-04. Change of Mind [07:28](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C79ED1BB893766831F10DDE4B311DD030818CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928504   (522548) от 16.08.2015
-
-Fortadelis - The New Batch (2015) [FLAC|Lossless|WEB-DL]<Nu Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bossa (03:54)
- 02. Chillin In The Club (03:44)
- 03. Urban Vibe (05:18)
- 04. Unfolding Into Vastness (05:11)(   Читать дальше...   )Жанр: Nu Jazz, Jazz-FunkПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B686A5D40FA5266513C12CF782A28DA5014ABB
 ```
 
 https://mybot314.ru/tekegram_catalog/

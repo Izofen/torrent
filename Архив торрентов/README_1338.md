@@ -1,3 +1,29 @@
+###  Публикация: 186823   (878644) от 27.03.2010
+
+VA-All That Music-My Favourite Nu Jazz Sessions Vol.1  2CD (2009) [FLAC|Lossless]<Nu Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Nu Jazz
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 187037   (878643) от 27.03.2010
 
 Печальные ужасы / Sentimental horror stories that makes you cry (Setsunaku Nakeru Kowai Hanashi) (2004) DVDRip
@@ -704,32 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373864   (878550) от 07.04.2020
-
-SQLPro Studio 2020.35 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878550.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 06.04.2020Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9E2C8E7FEDF433FF46690E9264628D7F3D7531
 ```
 
 https://mybot314.ru/tekegram_catalog/

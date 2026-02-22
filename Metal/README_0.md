@@ -1,3 +1,32 @@
+###  Публикация: 1601698   (1046345) от 02.01.2023
+
+Katatonia - Sky Void of Stars (2022) EP [MP3|320 Kbps] <Doom Metal, Depressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atrium (4:11)
+02. Austerity (3:43)
+03. Night Comes Down (Judas Priest Cover) (4:20)
+04. Fighters (Enter the Hunt Cover) (3:40)(   Читать дальше...   )Жанр: Doom Metal, Depressive RockПродолжительность: 00:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0127CC87F135772DDBBA2365E6B9BB72C642286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602505   (1046140) от 05.01.2023
 
 Frostbitt - Machine Destroy (2023) [MP3|320 Kbps] <Nu-Metal, Math Metal, Progressive Metal, Djent>
@@ -717,35 +746,6 @@ Octavision - Coexist (2020) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B494F19E21B8C0A941CCB28AC5620B20AD93D5C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437026   (1042562) от 03.01.2021
-
-Tar Hag - Bestial (2021) [MP3|320 Kbps] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Frozen Prayer [00:06:36]
-02 - Cu Sith [00:06:17]
-03 - Fathoms [00:08:19]
-04 - The Mare [00:08:22](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E8FE059ACA3B831691C698AB0BC7C750EAC707
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1313076   (528178) от 07.07.2019
+
+Mats Gustafsson / Barry Guy / Paul Lovens - Mouth Eating Trees And Related Activities (1996) [FLAC|Lossless|tracks + .cue] <Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part I (4:25)
+ 02. Part II (12:31)
+ 03. Part III (6:46)
+ 04. Part IV (27:14)(   Читать дальше...   )Жанр: Free ImprovisationПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB3017E159E98CE0BA13CC3E7DB107F76860F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156398   (527786) от 07.08.2017
 
 Tom Harrell - Prana Dance (2009) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ Ronnie Magri And His New Orleans Jazz Band - Shim Sham Revue (2001) Jubilee Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E639F60356EF7EE3F0E9A2FF88AEEFAB88A28D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240534   (524473) от 12.08.2018
-
-Kool&Klean - Best of so Far (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away
-02. Sail
-03. I Can Only Imagine
-04. Feel the Light(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EAFE3CAA4FE73EA6AEC86FADBB14889BD271645
 ```
 
 https://mybot314.ru/tekegram_catalog/

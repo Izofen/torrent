@@ -1,3 +1,119 @@
+###  Публикация: 1257395   (345200) от 26.10.2018
+
+Леонид Агутин - 50 (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345200.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я тебя не вижу
+2. Самба
+3. Две минуты жизни
+4. Она не вернётся(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D28C85C06F50A152716A890D3F5C504C5920B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 725129   (344973) от 22.11.2013
+
+Тату - 200 По Встречной (2001) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Зачем Я   (4:09)
+02.  Я Сошла С Ума   (3:33)
+03.  Нас Не Догонят   (4:38)
+04.  Досчитай До Ста   (4:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC20C56E17028C0E091AC6F72CD9FBC8FACF6976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 155084   (344859) от 01.12.2009
+
+Леонид Агутин - Босоногий мальчик (1994) [APE|lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_344859.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Босоногий мальчик
+2. За счастьем
+3. Разговор о дожде
+4. Девочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073473   (344796) от 16.11.2016
+
+Fleurie - Love and War (2016) [FLAC|Lossless|tracks] <Alternative Pop, Ethereal, Singer-Songwriter>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love and War
+02. Soldier
+03. Can You Hear Me?
+04. Breathe(   Читать дальше...   )Жанр: Alternative Pop, Ethereal, Singer-SongwriterПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB2A6FD5AD4FF8A87506E5F92CACDB2F8D75A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954039   (344647) от 06.11.2015
 
 Sara Bareilles - What's Inside: Songs From Waitress (2015) [MP3|320 кб/с]<Pop Rock, Soul>
@@ -629,122 +745,6 @@ Amadeus Liszt - Win The Race (2020) Unofficial [MP3|320 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3A0244D15891CFD4EFB9AFE619C13062FC460F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419359   (342054) от 27.10.2020
-
-Wonder - Up & Down (1980) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up And Down  (8:38)
-02. I Have Pushed  (7:21)
-03. My Trip  (7:27)
-04. O.K.  (4:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E686D6F46D4283F4BA9EE712D1BD433BFE0F3C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419178   (342052) от 27.10.2020
-
-VA - Fly To Moscow (2018) Unofficial [MP3|320 Kbps] <Italo-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Trouble - Fly To Moscow (12'' Version) (5:45)
-02. Carl Max (12 - Bolschevita (12'' Version) (5:30)
-03. Laser Cowboys - Radioactivity (From The Ucraine) (12'' Version) (6:44)
-04. Hectic Electric - Glasnost (The Ultimate Monster Mix) (6:28)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C07D805820F8663475E75AE2A7942975AE12E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419175   (342051) от 27.10.2020
-
-Piano Fantasia & Beautiful Ballet - Song For Denise / Energy (2020) Unofficial [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piano Fantasia - Song For Denise (Audiophile Dance-Mix) (6:53)
-02. Piano Fantasia - Walkman (12'' Version) (7:23)
-03. Piano Fantasia - Playing (12'' Version) (5:12)
-04. Piano Fantasia - Sidewalk (12'' Version) (4:59)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58F0FD7266A070F596BACB4DA71ED0B84DCAA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419058   (342048) от 27.10.2020
-
-VA - Dance Club 2020.03 (2020) [MP3|320 Kbps] <Dance, Pop, Deep House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn feat. Nea & Bryn Christopher - No Therapy [2:52]
-02. twocolors - Lovefool [3:10]
-03. VIZE & Tom Gregory - Never Let Me Down [2:33]
-04. Tujamo x VIZE & MAJAN - Lonely [2:49](   Читать дальше...   )Жанр: Dance, Pop, Deep HouseПродолжительность: 01:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F006FAB4F05B66D2384B3393B7553A42986BF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

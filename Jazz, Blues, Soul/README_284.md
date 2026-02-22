@@ -1,3 +1,90 @@
+###  Публикация: 1238859   (544656) от 01.08.2018
+
+Deb Rhymer - Don't Wait Up (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartache and trouble (03:50)
+02. Let your heart decide (04:37)
+03. Cry for me (03:31)
+04. Don't wait up (04:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25AEE61B2E873C815673DDF242CE221C87DF4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310937   (544455) от 27.06.2019
+
+Tullie Brae - Revelation (2019) [FLAC|Lossless|WEB-DL|tracks] < Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Price of the Blues (4:42)
+02. Seven Bridges (3:19)
+03. Mississippi Rain (5:04)
+04. Break These Chains (4:03)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3856D91AAEDB1DEB66D8AFD1A6D78C6F729BE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310932   (544222) от 27.06.2019
+
+Rory Gallagher - Blues (2019) 3CD Deluxe [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544222.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Don't Start Me Talkin' (Jinx Session / 1982)
+02. Nothin' But The Devil (Against The Grain Session / 1975)
+03. Tore Down (Blueprint Session / 1973)(   Читать дальше...   )Жанр: BluesПродолжительность: 3:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0FDB1BD5195524AC010FAC46050F23450B635E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238951   (543841) от 02.08.2018
 
 Joe Sullivan - 1945 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
@@ -676,93 +763,6 @@ Keith Jarrett - Backhand (1974) /2013, Universal/[FLAC|tracks+.cue]<Jazz, Post-B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A645FC059C3F6EFF40B1790CB06C19A1A09EC17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925390   (541491) от 06.08.2015
-
-Curtis Fuller Quintet - South American Cookin' (1961) /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Young Lovers [05:24]
-02. Besame Mucho [09:20]
-03. Willow Weep For Me [06:45]
-04. One Note Samba [04:16](   Читать дальше...   )Жанр: Jazz, Hard Bop, Mainstream JazzПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1726BA6A674DA27364352CE0D2E261A63B6C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925369   (541411) от 06.08.2015
-
-VA - Electro Jazz (2015) [FLAC|tracks|WEB-DL]<Electro Jazz, Nu Jazz, Broken Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interpretes Divers - Rhodes Club (03:41)
-02. Interpretes Divers - Hot Times (03:20)
-03. Interpretes Divers - Urban Trumpet (03:31)
-04. Gregory Toucas - Miles from Dream (04:08)(   Читать дальше...   )Производство: Justement MusicЖанр: Electro Jazz, Nu Jazz, Broken BeatПродолжительность: 01:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18381AC79BAFE37658D060A05BE731EB7AE7740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925454   (541401) от 06.08.2015
-
-Phantom Blues Band - Inside Out (2011) [MP3|320 кб/с]<Funky Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Stand It (02:50)
-02. A Good Time For The Blues (03:16)
-03. Boogah Man (03:28)
-04. So Far From Heaven (06:01)(   Читать дальше...   )Жанр: Funky BluesПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D09433F1C30463883032CED10757551D74A684B
 ```
 
 https://mybot314.ru/tekegram_catalog/

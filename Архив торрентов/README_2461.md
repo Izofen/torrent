@@ -1,3 +1,32 @@
+###  Публикация: 1031216   (668898) от 03.07.2016
+
+VA - Nothing But... Pure Trance Vol.15 (2016) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Van Reeve -  Firestorm (Radio Edit) 4:20
+02. Rodrigo Deem -  Anything (Extended Mix) (feat. Emily Harder) 5:45
+03. DJ Dani -  Beautiful Angels (Original Mix) 7:39
+04. Alex Ender -  KSU (Radio Edit) 3:51(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4371AC0E7293805518CAC9966C23B94EE8BE6EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031405   (668896) от 03.07.2016
 
 VA - Uplifting Trance Vol. 6 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -672,34 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537330   (668720) от 15.03.2022
-
-Microsoft Office 2021 for Mac LTSC v16.59 VL [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко узнаваемый Office, разработанный для Mac
-Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, которые сочетающими в себе знакомый интерфейс Office и уникальные возможности Mac, какие успели вам полюбиться.
-Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2022Разработчик: © 2022 Microsoft CorporationПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74012D165C1D397EE4AC4C012518A90F9D83FC27
 ```
 
 https://mybot314.ru/tekegram_catalog/

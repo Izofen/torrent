@@ -1,3 +1,29 @@
+###  Публикация: 1068517   (380293) от 01.11.2016
+
+Metallica - Hardwired (2016) Single [MP3|320 Kbps] <Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HardwiredЖанр: Thrash MetalПродолжительность: 00:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0624FA36B91EC6400F6D339CB17A4DE65637D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068660   (380291) от 01.11.2016
 
 NirLauncher Package 1.19.109 Portable [Ru/En]
@@ -651,39 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573089   (379959) от 10.11.2012
-
-Mentallo & The Fixer - 19 Albums (1992-2012) [MP3|155-320 kbps] <EBM, Electro-Industrial, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 1992-201201. Legion Of Lepers (09:15)
-02. Decomposed (Trampled) (06:35)
-03. Sacrilege (Angel Of Death Mix) (07:05)
-04. Scum Of The Earth (Bloody) (03:30)
-05. Lunatik (04:17)
-06. Inhumanities (04:56)
-07. Grim Reality (08:13)
-08. Atom Smasher (06:21)(   Читать дальше...   )Жанр: EBM, Electro-Industrial, ExperimentalПродолжительность: 25:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEAE8300C0E18EEB38B97F9DD31CD318E71D3DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

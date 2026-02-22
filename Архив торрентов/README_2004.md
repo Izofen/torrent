@@ -1,3 +1,32 @@
+###  Публикация: 1211267   (777862) от 06.03.2018
+
+Youginia - The Awakening (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo , Ambient , Psychill>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777862.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sadness (Original Mix)4:15
+2. Messier 82 (Original Mix)5:31
+3. Flashback (Original Mix)5:19
+4. Dance Of Love (Original Mix)4:00(   Читать дальше...   )Жанр: Downtempo , Ambient , PsychillПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32723ADC39EDED4027DD8E28C7FAC1A9FBDEA562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211282   (777860) от 06.03.2018
 
 Pale Moon 27.8.1 + Portable [Ru/En]
@@ -665,32 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E40560251D1AC3EF7C6AAA22F5F04349F1763A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211184   (777712) от 06.03.2018
-
-Serif Affinity Photo 1.6.4.104 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Photo — обеспечивает более высокую скорость, стабильность и эффективность работы и расширяет границы профессионального редактирования фотографий. Редактируете ли вы изображения, ретушируете их или создаете полномасштабные многослойные композиции, это приложение с обширным набором инструментов, специально разработанных для специалистов творческих профессий (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47CAB3A27FE8B7A2B3DCE5AB142335CBEA3BC0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

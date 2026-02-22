@@ -1,3 +1,61 @@
+###  Публикация: 996956   (877318) от 15.03.2016
+
+VA - Ultra Music Festival 2016 (2016) Compilation [FLAC|Lossless|tracks] <Progressive House, Electro House, EDM>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Kygo Ft Maty Noyes - Stay [3:59]
+02.Carnage Ft Tomas Barfod & Nina Kinert - November Skies (Radio Edit) [3:22]
+03.Deorro Ft I-Ez - Haters [4:08]
+04.Louis The Child Ft K.Flay - It's Strange [4:06](   Читать дальше...   )Жанр: Progressive House, Electro House, EDMПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A398DE00C298FCA231A7942346609578EEC8B2C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373687   (876904) от 08.04.2020
+
+Amtrac - Oddyssey (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Deep House, Dancefloor>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethel (4:28)
+ 02. Accountable (3:52)
+ 03. Between The Lines (4:38)
+ 04. Replica (5:22)(   Читать дальше...   )Жанр: EDM, Electro, Deep House, DancefloorПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C772578124CD08DC2DCB5A3F0BBA0DF654A525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496215   (874633) от 16.09.2021
 
 VA - Erotic Piano Music (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -687,61 +745,6 @@ VA - Gabriel Ananda - Selected Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BD1C3EE97A616F648B65D8AD819A484412D87ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034805   (856674) от 19.04.2020
-
-Justin Gain - Techno Ebola (2016) [FLAC|Lossless|image + .cue] <Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aney F. - Something In The Room With Me
-02. E.T.H (Italy) - Reesha
-03. Orlando Tosi, Niccolo Borgi - Bilaterale
-04. Aney F. - Turn It On(   Читать дальше...   )Жанр: Techno, Deep HouseПродолжительность: 01:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5312019892D891D25AECB2E5EE1108DC78FEBD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850633   (856567) от 19.04.2020
-
-Natalia Zamilska - Discography 10 Releases (2014-2020) Mik.Musik.!., Untuned Records [FLAC|Lossless|WEB-DL|tracks]<Techno, Industrial, Glitch, Tribal, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue Live (03:25)Тип издания: WEBЖанр: Techno/IndustrialПродолжительность: 00:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019D7D224F22F65C753E2D3EF7709F7E2046CD76
 ```
 
 https://mybot314.ru/tekegram_catalog/

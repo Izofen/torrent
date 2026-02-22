@@ -1,3 +1,90 @@
+###  Публикация: 941018   (462717) от 27.09.2015
+
+Mindi Abair And The Boneshakers - Live In Seattle (2015) Live [MP3|320 кб/с]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here She Comes (Live) (01:09)
+02. Wild Heart (Live) (04:38)
+03. Haute Sauce (Live) (07:51)
+04. I Can't Lose (Live) (04:12)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983739638A7A76A30D58C7C9F055532449BFD4D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941041   (462709) от 27.09.2015
+
+Thorbjorn Risager & The Black Tornado - Songs From The Road (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Wanna Leave (04:49)
+02. Paradise (04:59)
+03. Drowning (04:16)
+04. Baby Please Don't Go (03:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76104E923219D49EF7557C1DBE16BC6EF005194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407710   (462595) от 09.09.2020
+
+Freddie Fox - Limitless (2020) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top It Off (05:41)
+02. Too Tuff (03:49)
+03. Lets Dance (04:14)
+04. Sweet Kisses (04:56)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE9584F409984451BA7AB58D36753ADF7B5E1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941519   (462508) от 27.09.2015
 
 VA - Soul Moods: Contemporary Soul Classics (1994) 2CD [APE|image+.cue]<Funk, Soul, Rhythm & Blues>
@@ -654,93 +741,6 @@ Elvin Jones - In Europe (1991) /2005, Enja/ [FLAC|tracks+.cue]<Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE298CFEE9BD6EA8E8C0C475BEEB83E8DC5492C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941469   (460288) от 28.09.2015
-
-Karin & Mike Kelleher - Melange (2015) [FLAC|image+.cue]<Vocal Jazz, Classical>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Pain
-02. Jeannot
-03. Ancka's Dolphin Dance
-04. Black Is The Color(   Читать дальше...   )Жанр: Vocal Jazz, ClassicalПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7533EEE9E8047EF7B6FCB35814BA55081AD24ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408043   (460230) от 10.09.2020
-
-VA - Signora Ward Records - Doom Jazz/Dark Jazz/Funeral Jazz vol. 1 (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Funeral Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bebopovsky And The Orkestry Podyezdov - Malkavian (13:29)
-02. Vainoras and the altar of the drill - Attempting to outwalk a troubled mind 2 (3:55)
-03. Lowering - Father (3:44)
-04. The Orchestra Of Mirrored Reflections - Sax For Ms. Mojito (7:07)(   Читать дальше...   )Жанр: Doom Jazz, Dark Jazz, Funeral Jazz, Experimental, NoiseПродолжительность: 01:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E1E78912B819D82B6F9B0DB04B018DE49B02E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568625   (459927) от 09.08.2022
-
-Patti Austin And James Morrison - Ella & Louis (2017) 2CD, ABC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459927.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Hello, Dolly! [4:32]
-02. (Up A) Lazy River [6:12]
-03. Too Close for Comfort [3:28](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 01:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783EE4E82C84407440BD1B0796FACC23B7282A83
 ```
 
 https://mybot314.ru/tekegram_catalog/

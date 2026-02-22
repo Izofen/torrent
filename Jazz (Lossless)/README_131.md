@@ -1,3 +1,32 @@
+###  Публикация: 1135578   (679511) от 20.05.2017
+
+Duke Ellington - Jazz Profile (1953, 1954, 1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satin Doll [03:00]
+02. Star Dust [02:30]
+03. One O'Clock Jump [05:16]
+04. Stormy Weather [03:13](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5441C457FA8921AD172D7D088A531DBF5F39A6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135587   (679507) от 20.05.2017
 
 Duke Ellington - Original Jazz Classics Collection (1997) OJC [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ Duke Ellington - Paris Jazz Concert: The Champs-Elysees Theater, Jan 29-30th 196
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF2581B0E7EE42BB1BA6B73B96990A091070981F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135994   (677293) от 21.05.2017
-
-Duke Ellington - The Popular Duke Ellington (1966) 2017, Sony Music [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [04:41]
-02. I Got It Bad (And That Ain't Good) [02:37]
-03. Perdido  [03:15]
-04. Mood Indigo  [05:11](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1537C8DF0871CF091ACF230FAADD6343A8D66AD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

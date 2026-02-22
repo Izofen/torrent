@@ -1,3 +1,90 @@
+###  Публикация: 1799196   (66516) от 26.05.2025
+
+VA - Takeover IBIZA 2025 (The Deep-House Files) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup & Kaia Mainz - Dreamers (daZZla Deep Remix) (06:14)
+02. Living Room - Fisheye (Pearldiver Deep Edit) (03:29)
+03. Calmabohain - Never Forget (03:25)
+04. Mia Lemar - Squire Of Desire (HerbLF Close To Dub Mix) (06:34)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5587E455E80CD7194B7A4B0F031C264054A105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799348   (66485) от 27.05.2025
+
+VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V-Sta - Highend Fashion (Original Mix) [5:20]
+02. Filizola - Get Me (Original Mix) [5:47]
+03. Goodman & T-Mark - Fading Lights (Original Mix) [4:31]
+04. Mike D' Jais - We Touch The Sky (Original Mix) [3:09](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731986B96C9D924B930AA865E7DFBD07BF505EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799693   (66402) от 29.05.2025
+
+VA - Best Dance Music Summer 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jose Correa - Happy Cosmonaut (03:13)
+02. Dżeju - Breaking Grounds (04:21)
+03. SAMMY & LESEN - Moonlight (Radio Edit) (01:58)
+04. Lost House Rhythms & Falcos Deejay - A Sad Story (03:21)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B111367A30EA5A5A8FFB5C898E6B9E9BEC82E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800210   (66285) от 01.06.2025
 
 VA - Sounds Like Summer, Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -658,93 +745,6 @@ VA - The Dreamers, Vol. 01 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:520058384410E4EDAD9455B1A2B91BC111979823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725607   (55472) от 25.05.2024
-
-VA - Best Of the Spring 2024 [MP3|320 Kbps] <Progressive House, Melodic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasha Sound - Deliverance (Original Mix) (6:32)
-02. Invisible Signs - Astrasia (Original Mix) (8:42)
-03. ppdee & Asida Aya - Bubbles (Extended Mix) (7:56)
-04. Asida Aya - Variation (Original Mix) (5:58)(   Читать дальше...   )Жанр: Progressive House, Melodic HouseПродолжительность: 01:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8742BFD93515EF28662DDD5EE57A12BDE147CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725652   (55434) от 25.05.2024
-
-VA - YHV Organic House (Summer Sampler 2024) [MP3|320 Kbps] <Organic House, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Mortel - Desert Rhythm (Original Mix) (5:09)
-02. Hansonic - Zuri Kwame (Original Mix) (7:39)
-03. K'you - Daima (fishplant Remix) (8:03)
-04. Wavemod - The Lion Gate (Original Mix) (5:16)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 03:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EA78C0D9D42698F95C62CE7D543D9CAC8EBF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728313   (54136) от 06.06.2024
-
-VA - Fly Summer Hits (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FLY - Call You (05:14)
-02. FLY - Don't Give Up (05:15)
-03. FLY - Get It Right (04:54)
-04. FLY - Heaven (05:09)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA2EA555267689C60C667F818C18BF6253C9B10
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1529095   (733120) от 05.02.2022
+
+VA - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Edit) (3:46)
+02. Talla 2XLC & Naama Hillman - No Inbetween (John O'Callaghan Edit) (3:45)
+03. Ronski Speed & Sir Adrian - The Space We Are (John O'Callaghan Edit) (3:40)
+04. Jared Knapp & Patrick De Vere with Neev Kennedy - Night Moves (Daniel Kandi's Emotional Edit) (3:11)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04DA4FC8CEBF4FD4A2D3DA824793FA062305273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283886   (732141) от 18.02.2019
 
 Key4050 (Bryan Kearney & John O'callaghan) - Tales From The Temple (2019) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Nitrous Oxide - Avalon (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA6211E45A6A2E87236A91ABC6A47AF2956B56ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286042   (716939) от 28.02.2019
-
-VA - Driftmoon - Remember the Night (Live at Epic Prague, December 2018) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driftmoon & Geert Huinink – The Creation (Intro Mix)(Live)
-02. Astrosphere – Zephyr (Live)
-03. Astrosphere & Re:Locate – Crown Royal (Live)
-04. Driftmoon – Odyssey (Epic Mix) (Live)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AADBEEC58569BE40EE5532374921AE1A75B4D08
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 301296   (871744) от 27.02.2011
+
+VA - Dj Exklusive 05 (26.02.2011) [MP3|320 kbps]<Dance /  House/Disco House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Tube & Berger – Free Tribe (Original Mix)
+02. Kings Of Tomorrow Feat. April – Take Me Back (Virus J Remix)
+03. Studio Apartment Feat. Rae – Your Words (Original Mix)
+04. Olav Basoski – New Day (Original Mix)
+05. David Herrero – Spanish Lick (Original Mix)
+06. Abel Ramos Feat. Erire – Dream Come True (Dj Chus & David Penn Liberican Remix)
+07. Eddie Thoneick & Eric Morillo Feat. Shena – Nothing Better (An21 Max Vangeli Remix)
+08. Richard Grey Feat. Robin S – Bang (Dirty Secrets Grey Boom Mix)
+09. Dj Chus Feat. Mikel Curcio – La Samba (Original Mix)
+10. Tensnake – Coma Cat (Mark Knight\’s Karma Cat Remix)Жанр: Dance /  House/Disco HouseПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29566646917AECFF862F27342FC035BE9DA880B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 301637   (871743) от 27.02.2011
 
 Jey and Ex - Temptation EP (2011) [MP3|320 kbps] <Psytrance, Progressive>
@@ -710,33 +745,6 @@ NETGATE Registry Cleaner - это обновлённая версия мощно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC79935A2986C431554001A5617FA737AD1B9048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106753   (871670) от 20.02.2017
-
-Soulver 2.6.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего экселя много, а калькулятора мало или неудобно.
-Для пользователей интересным в Soulver может оказаться то, что в самой программе можно задавать числа не только используя цифры, но и их словесные обозначения, Soulver прекрасно понимает оба варианта записи даже вперемешку. Например, можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 февраля 2017Разработчик: AcqualiaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6D1DC99EEA8B867046790206AC9B91F39CC8A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

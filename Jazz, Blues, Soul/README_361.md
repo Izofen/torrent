@@ -1,3 +1,90 @@
+###  Публикация: 1328508   (363121) от 30.09.2019
+
+Paul Gabriel - Man Of Many Blues (2019) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Good 04:32
+02. Maybe We Can Talk Awhile 04:27
+03. Cold, Cold, Cold 06:06
+04. It Be That Way Sometimes 06:10(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBB60F784A89FC219DCD2F4454182C97DFB8DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177635   (362834) от 25.10.2017
+
+Билли Новик (Billy's Band) - Джазовые стандарты. Часть 1 (2016) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foggy Day
+02. From This Moment On
+03. April In Paris
+04. I Thought About You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B112BC1DDC86FC756C402AD0B5F7572BA5A5A383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177616   (362832) от 25.10.2017
+
+Билли Новик (Billy's Band) - Джазовые стандарты. Часть 2 (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Get A Kick Out Of You
+02. Alone Together
+03. Get Out Of Town
+04. It Could Happen To You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6A4DD3D5D8164BB52F815F8351DD8D744D83BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071299   (362131) от 09.11.2016
 
 Wynton Kelly - Kelly Blue (1959) 1986,  Riverside, Japan 1st press  [FLAC|Lossless|image + .cue] <Bop>
@@ -659,93 +746,6 @@ VA - Happy Blues Classics (2022) [MP3|320 Kbps] <Blues, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BDA248BB6687D0F1406D07A30F26C6090586FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256032   (359278) от 20.10.2018
-
-Don Byas - Complete American Small Group Recordings (1944 - 1946) 4CD, 2001, Definitive Records [APE|Lossless|image + .cue] <Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359278.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Riffin' and Jivin' [2:57]
-02. Free and Easy [2:52]
-03. Worried 'N Blue [3:15](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 04:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F42E94EC9137C85FEB203F287FA0520A60BF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255920   (359277) от 20.10.2018
-
-Trilok Gurtu - "Usfret" (1988) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shobharock (7:37)
- 02. Shangri La / Usfret (13:02)
- 03. Om (7:12)
- 04. Deep Tri (7:03)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2028744CAE8415F625F48EDD10672FE1865A740D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255925   (359273) от 20.10.2018
-
-Evan Parker Electro-Acoustic Ensemble - The Eleventh Hour (2005) [FLAC|Lossless|tracks + .cue] <Jazz, Experimental, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Play (17:29)
- 02. The Eleventh Hour, Part 1 (12:52)
- 03. The Eleventh Hour, Part 2 (9:33)
- 04. The Eleventh Hour, Part 3 (12:03)(   Читать дальше...   )Жанр: Jazz, Experimental, Free ImprovisationПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024CE657311C4D0E32B643B608AA0BE40E77856E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,35 @@
+###  Публикация: 430662   (993811) от 02.01.2012
+
+Donna de Lory - Sanctuary (2009) [MP3|320 кб/с]<New Age, World, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(07:11) 1. Aham Prema
+(06:30) 2. Sanctuary
+(07:11) 3. Guru Om
+(06:27) 4. Jai Ma
+(06:41) 5. Bathe In These Waters
+(10:10) 6. Lokah Samasta Sukhino Bhavantu
+(09:31) 7. Om Namah Shivaya (Thy Will Be Done)Жанр: New Age, World, MantrasПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0F97266A333ABE84CDD6F1956A7115D737229A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 430921   (993567) от 02.01.2012
 
 Eion Alea - 6 альбомов  (2011) [MP3|160-320 kbps]<Instrumental, Classical, New age>
@@ -797,41 +829,6 @@ Quincy Jones / Ray Brown Orchestra - Music From The Adventurers /OST/ (1970) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90637152FADAE04E9ECEB52914D3513A06CE23CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163002   (989361) от 04.01.2010
-
-VA - Tangos de Amor (2002) [FLAC|Lossless]<Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Que me van a hablar de Amor - H.Exposito, H.Stamponi (2:34)
-02. Malena - H.Manzi, L.Demare (3:12)
-03. Esta noche me emborracho - E.Santos Discepolo (2:35)
-04. Ninguna - H.Manzi, R.Fernandez Siro (3:41)
-05. Pequena - H.Exposito, O.Maderna (3:42)
-06. Pasional - J.Caldara, M.Soto (3:32)
-07. La Mariposa - P.Maffia, E.Caledonio Flores (4:01)
-08. El corazon al sur - E.Blazquez (3:24)
-09. Che Bandoneon - H.Manzi, A.Trollo (3:55)
-10. Cafe la Humedad - C.Castana (3:27)(   Читать дальше...   )Жанр: TangoПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

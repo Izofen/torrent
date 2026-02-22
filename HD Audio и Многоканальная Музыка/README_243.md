@@ -1,3 +1,177 @@
+###  Публикация: 1797190   (18083) от 16.05.2025
+
+Сергей Лемешев - Концерт. Русские песни (1956) [FLAC|Lossless|image + .cue] <Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18083.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Лучинушка
+А2 Эх Ты, Ваня
+А3 У Ворот, Ворот
+А4 Не Одна Во Поле Дороженька(   Читать дальше...   )Жанр: FolkПродолжительность: 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD334B6E2FD61E022688C8968F04F3540EC0A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797965   (17794) от 19.05.2025
+
+Morgenshtern (Моргенштерн) - Alisher (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Красный Флаг [00:02:26]
+02 - Дом (Лондон, Прага, Ницца) [00:02:33]
+03 - Повод [00:02:33]
+04 - Антидепрессанты [00:02:33](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0BC02385965D4DAAA077FCA76B14EBBEC12CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798047   (17669) от 20.05.2025
+
+Rodmir - Родмир (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17669.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Тебе • To You
+A2 Инквизитор • Inquisitor
+A3 Посвящение • Dedication
+A4 Русская Рулетка • Russian Roulette(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D23E69C54D65E0269803C37953A0DA104B129D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810140   (17657) от 02.08.2025
+
+Professor Emeritus - A Land Long Gone (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Epic Doom, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_17657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Corpse's Dream [00:07:53]
+02. Zosimos [00:07:13]
+03. Passage [00:05:42]
+04. Pragmatic Occlusion [00:07:39](   Читать дальше...   )Жанр: Epic Doom, Heavy MetalПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9949538A6EB63E47C820EE40C21BF79AA4B93EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798068   (17558) от 21.05.2025
+
+Orchestral Manoeuvres in the dark - Bauhaus Staircase (2023) The Complete Edition, 2025, White Noise[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bauahus Staircase (Instrumental) (3:57)
+02. Anthropocene (Instrumental) (5:52)
+03. Look At You Now (Instrumental) (3:21)
+04. G.E.M. (Instrumental) (3:00)(   Читать дальше...   )Жанр: Synthpop, New-WaveПродолжительность: 3CD, 02:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478B0DFD616C99764916D205C1FE9B2BC1FADAFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798283   (17536) от 21.05.2025
+
+Mississippi Shakedown - Play You Now, Dig You Later (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Gotta Make a Whole Lotta Money (4:10)
+02.  Mississippi Boogie (4:17)
+03.  Dyin' Dyin' Dyin' (3:50)
+04.  Ask Me No Questions (And I'll Tell You No Lies) (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F8AE157376781C43277315860A23B45633675A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798076   (17535) от 21.05.2025
 
 Omegaman - Pillow Talk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Trip Hop, Nu-Soul, Chill>
@@ -572,180 +746,6 @@ Morcheeba - Escape The Chaos (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C258F7621D3AC9A687041A566075BEA184A3C9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798692   (17239) от 23.05.2025
-
-Леонид Агутин - Н.В.Л. (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17239.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пойдём домой
-2. Н.В.Л. (Из сериала "Разочарованные")
-3. Золото
-4. Добрый вечер(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA0DD3251228BB19B56C811AF7AFB653A72F24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798694   (17114) от 24.05.2025
-
-Sparks - MAD! (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do Things My Own Way [00:03:40]
-02. JanSport Backpack [00:04:13]
-03. Hit Me, Baby [00:03:44]
-04. Running Up A Tab At The Hotel For The Fab [00:04:21](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B29B3B40577F10F810E5B39BF5F180197B9DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798910   (17094) от 24.05.2025
-
-Joe Bonamassa - Drive By The Exit Sign (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive By The Exit Sign
-02. Shake This Ground
-03. Breakthrough
-04. Still Walking With MeЖанр: Blues RockПродолжительность: 00:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DEC5872DF179CD6A1A169DA5D9B7D96C9C24B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810648   (17087) от 05.08.2025
-
-Abrania - Back To Our Sleazy Roots (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Back To Our Sleazy Roots (3:48)
-02.  Born In The Streets (3:58)
-03.  Too Bad So Sad (3:40)
-04.  Lost In The Dark (3:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73A6DF666ED2F7FF6AE7F6A770D17E70C1AD2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810652   (17086) от 05.08.2025
-
-Ash Lambe & The 32-20's - Ash Lambe & the 32-20's (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sight for Sore Eyes (3:24)
-02.  Loaded Dice (3:59)
-03.  All My Love (3:00)
-04.  Hangin Round No More (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F9F3265E2DE9E7090E8C31AAD12DEC46D07E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810655   (17085) от 05.08.2025
-
-Big A Sherrod - Torchbearer Of The Clarksdale Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Baby That Hurt (6:11)
-02.  Don't Make Me Pay (3:55)
-03.  Good Woman (5:34)
-04.  My Life (7:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F0C8E5EBDECB7D02710E515F25B7E7BE4D078F
 ```
 
 https://mybot314.ru/tekegram_catalog/

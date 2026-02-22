@@ -1,3 +1,96 @@
+###  Публикация: 1094186   (930930) от 17.01.2017
+
+Miles Davis - Sketches Of Spain / And The Modern Jazz Giants (1954, 1956, 1959) 2CD, 2011, Not Now Music[FLAC|Lossless|image + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_930930.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Sketches Of Spain:
+01.Concierto De Aranjuez (Adagio) [16:25]
+02.Will O' The Wisp [03:52]
+03.The Pan Piper [03:59](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604FE3607575D73BED3A32C7DA8B0ED536E93149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094078   (930924) от 17.01.2017
+
+Eliana Cargnelutti - Electric Woman (2015) [FLAC|Lossless|image + .cue] <Modern Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Why Do I Sing The Blues  (03:47) 
+02|  Just For Me  (04:14) 
+03|  Street Corner Talking  (03:48) 
+04|  Soulshine  (05:09) (   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22D45D9AF5BBDBC2227ADFE29A0DC43AE390C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177300   (930877) от 21.02.2010
+
+George Thorogood & The Destroyers - The Dirty Dozen (2009) [FLAC|Lossless]<Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Tail Dragger (3:41)
+2. Drop Down Mama (4:20)
+3. Run Myself Out Of Town (3:02)
+4. Born Lover (4:13)
+5. Twenty Dollar Gig (3:16)
+6. Let Me Pass (3:39)
+7. Howlin' For My Baby (5:13)
+8. Highway 49 (5:48)
+9. Six Days On The Road (4:23)
+10. Treat Her Right (2:59)(   Читать дальше...   )2009Жанр: Blues, Blues-RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986489   (930843) от 14.02.2016
 
 Hiromi Uehara - Spark (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Progressive Jazz, Piano>
@@ -725,99 +818,6 @@ Jimmy Rogers - Jimmy Rogers with Ronnie Earl and the Broadcasters (1993) [FLAC|L
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862461   (929254) от 24.01.2015
-
-Mudlow - Sawyer's Hope (2012) [MP3|320 кб/с]<Dirty Blues, Swamp, Funky>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Fetlock (04:10)
-02. Catalina and the Cane Toad (04:31)
-03. Dust (03:30)
-04. Damn Your Eyes (04:11)
-05. Phantoms in the Rain (06:25)
-06. Zane Merite (03:41)
-07. The Jester (03:41)
-08. No Use (02:38)
-09. Soil (04:23)
-10. Evol (04:53)Жанр: Dirty Blues, Swamp, FunkyПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3282EF834DE8FC421B08D61FEF715C77A29E6BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986780   (929178) от 15.02.2016
-
-VA - Antologia Polskiego Bluesa Cz.2: Blues z Szuflady (2009) [MP3|128-256 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrzej Zaucha i Dzamble - Blues tego, ktory nie odjechal
-02. Jan Izbinski - Pieniadze albo zycie
-03. Bluestemper & Zbyszek Niedzielski - Walk Around
-04. Nadmiar - Mala uliczka(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EBE466A1808E21587A4A51B21C136F4800C7C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986846   (929164) от 15.02.2016
-
-VA - Antologia polskiego bluesa cz.2: Blues z oklaskami (2009) [MP3|320 кб/с] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lester Kidson Band - Green Onions
-02. Dzem - Poznalem go po czarnym kapeluszu
-03. Elzbieta Mielczarek - Hotel Grand
-04.Жанр: Blues, Blues RockПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689C0D9F948BF60544CE4AFAE6D55B307A1B100D
 ```
 
 https://mybot314.ru/tekegram_catalog/

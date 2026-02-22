@@ -1,3 +1,174 @@
+###  Публикация: 1761445   (36723) от 20.11.2024
+
+VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Ballad, Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Soft Rock, Ballad, Hard Rock, Blues RockПродолжительность: 01:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1610288ECB9F0CB78BCAFDC715F00A68E87B0581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761527   (36683) от 20.11.2024
+
+Luke Watt - Luke Watt (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paddy (3:13)
+02. In Plain Sight (4:25)
+03. The Creek (5:56)
+04. Liza Jean (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01932BCCB9607F5EC6FC443117CFCE05E0FDA42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761459   (36659) от 20.11.2024
+
+Sandy Hall - Full Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock, Singer-Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Feeble Words (03:59)
+02. Love Still Remains (03:35)
+03. The River Calls Me Home (03:51)
+04. Break The Cycle (03:57)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Singer-SongwriterПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D56C58F8B5A6911D46D16ACF6E2B429505CF3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761526   (36657) от 20.11.2024
+
+Dan T. and the Crew - LEGACY (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MIGHTY LONG TIME (4:55)
+02. TEARS (3:28)
+03. MY BLUES (3:33)
+04. BRAND NEW DAY (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9367CFFC58DD59873D1C6A9A710E3D7B0AAA055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761711   (36589) от 21.11.2024
+
+Jazz Romantica, Sexual Music Collection - Jazz Room of Seduction (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Romantica - All of You (3:38)
+02. Jazz Romantica - Chill Lounge (4:05)
+03. Jazz Romantica - Touch of Jazz (3:43)
+04. Jazz Romantica - Coffee (4:11)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8A73578E94610AD9CC2CDA45B7430058CEA348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761679   (36581) от 21.11.2024
+
+Marilyn Manson - One Assassination Under God - Chapter 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Industrial metal, gothic rock, alternative metal, shock rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Assassination Under God (5:28)
+02. No Funeral Without Applause (4:07)
+03. Nod If You Understand (4:05)
+04. As Sick As The Secrets Within (5:36)(   Читать дальше...   )Жанр: Industrial metal, gothic rock, alternative metal, shock rockПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0196A7E1E1BA53562A4C0490FD8EEAE00EBB7984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761596   (36576) от 21.11.2024
 
 Straviado - Weird (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -571,180 +742,6 @@ Van Zant - Always Look Up (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C18F6EB4AAAE79B7A5155DE708DF215244EE2389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761868   (36464) от 22.11.2024
-
-Viktoria Tolstoy - Stealing Moments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Love Song (2:27)
-02. Good and Proper End (4:43)
-03. Wherever You're Going (4:08)
-04. Hands Off (4:24)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B33866885584658166657BEEE8676190405ADBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761865   (36463) от 22.11.2024
-
-Ancient - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ancient — норвежская блэк-метал-группа из Бергена, образованная в 1992 году.1994 - Svartalvheim
-1995 - Trolltaar (EP)
-1996 - The Cainian Chronicle
-1997 - Mad Grandiose Bloodfiends(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 07:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EFEA486C8A12D06E97629472130E5B6657367E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761663   (36461) от 22.11.2024
-
-Storace - Crossfire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Screaming Demon (3:43)
-02. A New Unity (0:49)
-03. Rock This City (3:55)
-04. Adrenaline (4:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7656623FE9B8C4CF1401FB5083A029EBADD96415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761774   (36459) от 22.11.2024
-
-Sunstorm - Restless Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Stand For You (3:29)
-02. Love's Not Gone (4:26)
-03. Hope's Last Stand (3:32)
-04. Shot In The Dark (4:16)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAF8815E2A23546DA892B9B85469339C2E5B785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761793   (36457) от 22.11.2024
-
-Tygers Of Pan Tang - Animal Instinct (2008) Reissue, 2024, Mighty Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Candy (4:22)
-02. Cry Sweet Freedom (4:19)
-03. Live For The Day (4:32)
-04. Let It Burn (4:07)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32319A0D8D7EF055FEECAFF780C2C51EC4024E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761920   (36456) от 22.11.2024
-
-Black Pumas - Live from Brooklyn Paramount (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic, Alternative Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fire (Live from Brooklyn Paramount) [4:41]
-02 - I'm Ready (Live from Brooklyn Paramount) [4:54]
-03 - Gemini Sun (Live from Brooklyn Paramount) [5:28]
-04 - Know You Better (Live from Brooklyn Paramount) [7:56](   Читать дальше...   )Жанр: Psychedelic, Alternative Rock, Indie RockПродолжительность: 01:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E84A560C80334AB48B6EEA46AFEE24855DF03D
 ```
 
 https://mybot314.ru/tekegram_catalog/

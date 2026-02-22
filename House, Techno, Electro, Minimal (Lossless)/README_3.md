@@ -1,3 +1,61 @@
+###  Публикация: 1455236   (1025821) от 18.03.2021
+
+Tin Man - Tin Man Remixes (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recondite - Petrichor (Tin Man Remix) (08:00)
+ 02. Palm Trax - Houses in Motion (Tin Man Remix) (07:24)
+ 03. Tin Man - Sexy (Igor Vicente Remix) (11:45)
+ 04. Erol Alkan - Subconcious (Tin Man Remix) (05:57)(   Читать дальше...   )Жанр: Techno, AcidПродолжительность: 01:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4FCECF543F0E9F9846BD7364731E3555F5EB839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202479   (1025738) от 18.03.2021
+
+Docetism - Discography 39 Releases (2012-2021) Nichts [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Field Recording, Dub, Drone>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Woods (03:41)
+ 02. Putrefactio (04:49)
+ 03. Heart Of The Wilderness (08:15)
+ 04. There Is Nothing Left (06:00)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Dub Techno, Field Recording, Dub, Drone •Продолжительность: 21:37:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44F189709009BC9D215BF477571EA9B372E6F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456262   (1025310) от 21.03.2021
 
 Marsh - Lailonie (The Remixes: Part 1-2) (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
@@ -682,64 +740,6 @@ Felix Raphael - Innersense (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B1D1C2BA5B5BF4A1A3FCD0F426AE01E6164F227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973538   (1014647) от 23.05.2021
-
-Dave Gahan - Hourglass Remixes (2008) [FLAC|Lossless|tracks + .cue] <EBM, Synthpop, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deeper And Deeper (The Juan MacLean Club Mix) (5:08)
- 02. Kingdom (Booka Shade Club Remix) (5:36)
- 03. Love Will Leave (Kap10kurt Mix) (3:43)
- 04. Use You (Maps Remix) (3:38)(   Читать дальше...   )Жанр: EBM, Synthpop, Techno, MinimalПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D692E0696AA594A041F7E591B44C468F039C439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473227   (1013825) от 28.05.2021
-
-Solomun - Nobody Is Not Loved (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean (feat. Jamie Foxx) (3:38)
- 02. Home (3:41)
- 03. Your Love Gives Me Gravity (feat. Planningtorock) (4:40)
- 04. The Center Will Not Hold (3:50)(   Читать дальше...   )Жанр: EDM, Tech House, Deep HouseПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE39FB11307E6B0DD9FC35474BAEC7F4DEA9A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

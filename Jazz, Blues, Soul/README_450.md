@@ -1,3 +1,32 @@
+###  Публикация: 1651802   (220267) от 08.08.2023
+
+Hampton Hawes - The Sermon (1958) 2002, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_220267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down by the Riverside [4:45]
+02. Just a Closer Walk with Thee [5:03]
+03. Swing Low, Sweet Chariot [4:55]
+04. Nobody Knows the Trouble I've Seen [4:55](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C384191AF0A4101B4EFEC55D492727C963568B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587966   (220148) от 11.12.2012
 
 Beth Hart - Bang Bang Boom Boom (2012) [WavPack|Lossless]<Blues Rock>
@@ -757,35 +786,6 @@ The Good Dudes - Where Are You Going (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C145F48A4D4FC2C068561CB526F606D45B853D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585820   (219187) от 24.10.2022
-
-Zach Ryan - Wanderer (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In My Arms (3:30)
-02. Drown Me In Your Love (3:46)
-03. Endless Blue (3:44)
-04. Forever Tonite (3:56)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17058EB3A2CCED510E9557D2F12727EA9111164
 ```
 
 https://mybot314.ru/tekegram_catalog/

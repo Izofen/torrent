@@ -1,3 +1,90 @@
+###  Публикация: 1326686   (383389) от 21.09.2019
+
+Janiva Magness - Janiva Magness Sings John Fogerty: Change in the Weather (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change in the Weather
+02. Lodi
+03. Someday Never Comes
+04. Wrote a Song for Everyone(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E07F76B4674B39D5FE0BE6D65E164A10EB9ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326635   (383382) от 21.09.2019
+
+Herbie Mann - Live At The Whisky (1969) 2CD, 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383382.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Untitled Jam [7:22]
+02. Tangier/If I Were a Carpenter [24:21]
+03. Memphis Underground [10:38](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-Funk, World FusionПродолжительность: 02:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949C526CCF4EB5D9C92A1BE05E3CAD650B763016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068052   (382943) от 31.10.2016
+
+Kurt Elling - The Beautiful Day: Kurt Elling Sings Christmas (2016) [MP3|320 Kbps] <Jazz Vocals, Xmas>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sing A Christmas Carol (4:33)
+02. Wenceslaus (Image I) (1:27)
+ 03. Star Of Wonder (2:04)
+ 04. We Three Kings (6:31)(   Читать дальше...   )Жанр: Jazz Vocals, XmasПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2BBF9979CC9A33363704E3B08FC6BDDCAFD45DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232618   (382849) от 09.10.2020
 
 Zoot Sims - 12 Classic Albums 1956-1962 (2015) 6CD, Enlightenment [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Bossa Nova>
@@ -668,94 +755,6 @@ Victor Wooten - Sword and Stone & Words and Tones (2012) [FLAC|Lossless]<Jazz, F
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068552   (380735) от 01.11.2016
-
-VA - Fireplace Cozy Jazz Moments Vol.1 (2016) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Set Music - Gebenedeit
-02. Piet Gorecki - Anna
-03. The Pry Ministers - The European's Lament
-04. Jose Rodriguez - New York, New York - Live(   Читать дальше...   )Жанр: JazzПродолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8662D978975DB0A17D3207A9FBB3160269FEA763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410231   (380472) от 10.10.2020
-
-Glenn Miller - The Missing Chapters. Vol. 1 – 9 (1995 - 1998) [FLAC|Lossless|tracks + .cue] <Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гленн Миллер (англ. Alton Glenn Miller; 01.03.1904 - 15.12.1944) - американский тромбонист, аранжировщик, лидер биг-бэндов.
-Создал собственный коллектив в 1937 году. Новый биг-бэнд Гленна Миллера, созданный в 1938 году, достиг значительного успеха - с этим оркестром он записал музыку к фильмам «Серенада Солнечной долины» (Sun Valley Serenade) и «Жены оркестра» (англ. (   Читать дальше...   )Список альбомов:
-Volume 1. American Patrol (1995)
-Volume 2. Keep 'Em Flying (1995)
-Volume 3. All's Well Mademoiselle (1995)(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 14:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B2172CF6757DC1E63B12A89C14833333C3522C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253837   (379632) от 11.10.2018
-
-Clifford Brown with Strings (1955) 2011, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterdays [3:05]
-02. Laura [3:31]
-03. What's New? [3:29]
-04. Blue Moon [3:19](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93A2C648D6FDF5B186853E1BB3630CA5F926CEA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

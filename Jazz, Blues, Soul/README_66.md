@@ -1,3 +1,90 @@
+###  Публикация: 971587   (947592) от 06.01.2017
+
+McCoy Tyner Trio - Infinity (1995) 2004, Impulse![FLAC|tracks+.cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Flying High [10:16]
+ 02.I Mean You (Monk) [07:19]
+ 03.Where Is Love [05:32]
+ 04.Changes [09:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB39F383A8B7D5A797D108748F733C9475BD332E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090370   (947588) от 06.01.2017
+
+Jordan Officer - I'm Free (2014) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  At Least I've Got the Blues  (03:58) 
+02|  A Night of Fun  (03:39) 
+03|  I'm Free  (05:16) 
+04|  When We Were Just Two  (05:02) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9183398C9E95FFD163B5844103FA027CF8C8B392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090311   (947489) от 06.01.2017
+
+72Blues - Said I Would (2004) [FLAC|Lossless|tracks + .cue] <Blues Rock, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Said I Would  (03:27) 
+02|  Supper Is Waiting  (03:25) 
+03|  My Name  (05:24) 
+04|  That Just Happened  (01:09) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6DD3CEA35EC4A913D1A8E9773B3FECDA7BBC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089898   (947429) от 06.01.2017
 
 Joe Elliott - Truth Serum (2017) [MP3|320 Kbps] <Jazz>
@@ -655,111 +742,6 @@ Duke Jordan - Flight to Denmark (1973) 2008, SteepleChase[FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D85373727A1845EC5AC2DF3C085DEC02B51847F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857672   (944668) от 14.01.2015
-
-Charlie Ventura & Flip Phillips - Studio Sessions (1947-1957) 6CD Set /1998-Mosaic MD6-182, The Complete Verve/Clef/[FLAC|Lossless]<Bop, Swing, Saxophone Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Avalon [00:02:51]
-02. I'm Confessin' [00:03:05]
-03. Bugle Call Rag [00:02:49]
-04. Rose Room [00:02:48]
-05. That Old Feeling [00:03:03]
-06. After You've Gone [00:02:47]
-07. There's No You [00:03:10]
-08. Perdido [00:03:10]
-09. Can't Get You Out Of My Mind [00:02:49](   Читать дальше...   )Жанр: Bop, Swing, Jazz Instrument, Saxophone JazzПродолжительность: 06:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3EAF27C8E1909EF3508A2257C17279F607A2CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626147   (944542) от 05.03.2013
-
-Jazz Lounge - Best Of Jazz Lounge (2013) [MP3|320 кб/с]<Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Primavera
-02. Relaxin' With Sandra
-03. Painter
-04. Easy
-05. Afternoon
-06. Chillin
-07. Summer Breeze
-08. Rain Over Me
-09. Cafe Barcelona
-10. LaraЖанр: Jazz, LoungeПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC0455A43FE4F97C345A62026DD3074268E95B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625849   (944472) от 05.03.2013
-
-Beegie Adair - Save The Last Dance For Me (2012) [FLAC|Lossless]<Instrumental Jazz, Piano>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01, Watch What Happens [03:49]
-02. For Once In My Life [03:38]
-03. The Girl From Ipanema [04:13]
-04. Will You Love Me Tomorrow [03:55]
-05. Say a Little Prayer [03:53]
-06. If Ever I Would Leave You [03:34]
-07. Up On the Roof [04:14]
-08. On a Clear Day (You Can See Forever) [03:40]
-09. Who Can I Turn To (When Nobody Needs Me) [04:10]
-10. People [04:20](   Читать дальше...   )Жанр: Instrumental Jazz, PianoПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 1085096   (216052) от 20.12.2016
+
+Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) Blu-ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск записан в известном клубе Joint в Лас-Вегасе в честь 25-летия выпуска аудио-диска "Pornograffitti".01. Decadence Dance
+02. Li'l Jack Horny
+03. When I'm President
+04. Get the Funk Out(   Читать дальше...   )Производство: США | Loud & Proud RecordsЖанр: Rock, Hard Rock, Glam MetalПеревод: ОтсутствуетПродолжительность: 01:29:24 + 01:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FF1A1E6338C64D5AAF3B47C65703F86103333E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737640   (215566) от 23.12.2013
+
+VA - The Best Sound N 1 (2013) HDRemux [H.264,1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1.Smiley - Dead Man Walking (2012), 00:04:18
+2.Antonia - Marabou (2013), 00:03:35
+3.Avicii - Wake Me Up (2013), 00:04:32
+4.Calvin Harris & Alesso ft Hurts - Under Control (2013), 00:03:30
+5.Cezar - Painful Love (2013), 00:03:32Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D116899C93430C7DE27C5B53A573EC6EB24341B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270070   (215436) от 17.12.2018
+
+Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления Accept с симфоническим оркестром, состоявшегося 3 августа 2017 года на фестивале “Wacken Open Air” перед самой большой за всю карьеру группы аудиторией – 80 тыс. человек.Производство: Германия, Nuclear BlastЖанр: Heavy MetalСубтитры: отсутствуютПродолжительность: 02:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B87AA94EDB18539E1103C3654BC616D55F83ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588353   (215228) от 13.12.2012
 
 Saturnus - Live at Loppen, Copenhagen (2012) WEB-DLRip [H.264]
@@ -637,90 +722,6 @@ Eminem & Snoop Dogg - From The D 2 The LBC (2022) WEB-DL [H.264/1080p] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:620EA253FB3828E6FEC38DF5C3B0424DB883640C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333590   (212838) от 05.07.2022
-
-Gary Moore. Live at Monsters of Rock (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Shapes Of Things
-02. Wishing Well
-03. Rectify(   Читать дальше...   )Жанр: МузыкаПеревод: оригинальныйПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ABA7EA8CB5ADDC826CB12BAC04AA0079772FBDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 66739   (212788) от 07.07.2022
-
-THE JEFF HEALEY BAND «SEE THE LIGHT» (1989) DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джефф Хили ворвался на сцену современного блюза в 1988 году, когда Arista Records выпустила дебютный альбом группы. «Вижу свет» - в этом названии воплотилось многое: и естественный порыв новичков, и надежды продюсеров, и несбыточная мечта слепого Джеффа видеть. Именно альбом See The Light стал навсегда визитной карточкой группы, вершиной, повторно взойти на которую (   Читать дальше...   )Жанр: Блюз\РокПеревод: ОригинальныйПродолжительность: 01:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBAD445AFD799B10566F3E669E0CFF9BA547B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785801   (212763) от 08.07.2022
-
-Bonnie Tyler - Live In Germany (1993/2011) DVD5 <Pop Rock>
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертное выступление по туру Angel Heart. Запись проходила в Франкфурте и первоначально транслировался по немецкому телевидению в 1993 году.1. Hide Your Heart
-2. Race To The Fire
-3. To Love Somebody
-4. Lost In France(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3771428156CE16E80DCA0515E85836901F9C0AF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

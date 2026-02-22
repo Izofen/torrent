@@ -1,3 +1,177 @@
+###  Публикация: 1726217   (108797) от 27.05.2024
+
+Pau Casares - Sobretaula a casa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Grow Too Old To Dream (5:17)
+02. Status Quo (5:19)
+03. Goin' On (4:48)
+04. Ain't Misbehavin' (4:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D394E5CEB235576D8F3C362E943592496FBA320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726021   (108796) от 27.05.2024
+
+VA - Metal Massacre 07 (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Speed Metal, Heavy Metal, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108796.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Heretic - Impulse
+A2 - Sentinel Beast - Sentinel Beast
+A3 - Flotsam And Jetsam - I Live, You Die
+A4 - Krank - Rented Heat(   Читать дальше...   )Жанр: Thrash, Speed Metal, Heavy Metal, HardcoreПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9002D80ECC9982273D32EE09C88DE0632ED5102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726185   (108793) от 27.05.2024
+
+The Boxx Orchestra - The Horn of Plenty (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock / Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daybreak (07:30)
+02. Message at the Bleep (07:18)
+03. Go for the Night (04:44)
+04. Simple Love Songs (05:13)(   Читать дальше...   )Жанр: Progressive Rock / Female VocalПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFC923CCAE2BDF03E08DA0C0EAE239575F30E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726211   (108792) от 27.05.2024
+
+Jeffrey Stevenson - Hypsometric (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit Me Up (6:16)
+02. Despite the Circumstances (6:59)
+03. After Hours (6:54)
+04. Hypsometric (9:15)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28A96D8E5E2EB898029EA14C532896DA3D7AC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726271   (108789) от 27.05.2024
+
+VA - Metal Massacre 08 (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Thrash>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108789.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Sacred Reich - Ignorance
+A2 - Viking - Hellbound
+A3 - Overlorde - Keeper Of The Flame
+A4 - Fatal Violence - Violence Is Golden(   Читать дальше...   )Жанр: Heavy Metal, ThrashПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36F4B727F418FDC3BC9C4B9D35C444900863152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726180   (108787) от 27.05.2024
+
+Pacifico - Success, Luck and Happiness (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autocontrol
+02. Digital Slaves
+03. Horizons
+04. Love Screens(   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DDC04D2A0DF5800C701C05BDD847141E3057E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726098   (108786) от 27.05.2024
 
 Ilan Kunik - The Casino Club - Positive & Funky Comedy Grooves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -568,180 +742,6 @@ Rhapsody Of Fire - Challenge the Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12790A4324505CC9670E1358A1497CCE33A287BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726864   (108609) от 31.05.2024
-
-Lucius - Wildewoman - The New Recordings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wildewoman (00:04:12)
-02 - Turn It Around (00:03:29)
-03 - Go Home (feat. Marcus Mumford) (00:03:28)
-04 - Hey, Doreen (00:04:37)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB4AF29AB0577D10275F207096DA3E33F9BD1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727276   (108607) от 01.06.2024
-
-Bad Omens - Concrete Jungle (2024) The OST [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C:\Projects\CJOST\BEATDEATH
-02. V.A.N
-03. THE DRAIN
-04. TERMS & CONDITIONS(   Читать дальше...   )Жанр: Metalcore, Alternative Metal, Alternative RockПродолжительность: 01:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D93C6468550E3069C33E8A78BA04518DCA1001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549201   (108594) от 01.06.2024
-
-Silverstein - A Beautiful Place To Drown (2020) [FLAC 2.0|96/24|WEB-DL|tracks] <Post-Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Habits (feat. Intervals)
-02. Burn It Down (feat. Caleb Shomo)
-03. Where Are You
-04. Infinite (feat. Aaron Gillespie)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC598591F380B50515DACC3E9E09AD18CA76545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727094   (108590) от 01.06.2024
-
-P.O.D. (Payable On Death) - Studio Albums (14 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108590.jpg" />
-</div>
-
-
-###  Подробнее
-
-P.O.D. (сокращение от Payable on Death) — американская рок-группа из города Сан-Диего, Калифорния. Работает в стилях ню-метал, альтернативный метал, христианский метал, добавляя элементы рэгги.1994 - Snuff The Punk
-1996 - Brown
-1999 - The Fundamental Elements Of Southtown
-2001 - Satellite(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 11:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3674AFD02131E9454ACC28B6741FC99BBF13D2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727093   (108573) от 01.06.2024
-
-VA - Metal Massacre 15 (2021)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal, Death Metal, Thrash, Speed Metal, Doom Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108573.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Midnight - Masked And Deadly
-A2 - Poison Ruin - Demon Wind
-A3 - Fuming Mouth - Master Of Extremity
-A4 - Many Suffer - The Trees Die Standing(   Читать дальше...   )Жанр: Heavy Metal, Death Metal, Thrash, Speed Metal, Doom Metal, Black MetalПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD170013916B7E70821EA3EE61234EA8B7377925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727087   (108557) от 01.06.2024
-
-Beak> - >>>> (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strawberry Line [00:08:00]
-02. The Seal [00:06:10]
-03. Windmill Hill [00:02:25]
-04. Denim [00:05:44](   Читать дальше...   )Жанр: Trip-Hop, Experimental rockПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0C0430E2D01AB7C1E663CA997957C38079FE57
 ```
 
 https://mybot314.ru/tekegram_catalog/

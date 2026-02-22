@@ -1,3 +1,277 @@
+###  Публикация: 1352042   (1001723) от 12.01.2020
+
+Darkology - Altered Reflections (2009) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microcozm ....00:26
+02. Violent Vertigo ....05:55
+03. I Bleed ....06:05
+04. Dark Energy ....07:02(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F622C80F274DCD67DBBC399A1E6728D411C6ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488841   (1001470) от 13.08.2021
+
+Hordak - The Last European Wolves (2006) Reissue, 2014, GS Productions [FLAC|Lossless|image + .cue] <Celtiberian Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For a New Pagan Age to Come(01:38)
+02. Silvano, senor de los bosques (05:19)
+03. The Last European Wolves (04:24)
+04. Son of the Fatherland (06:40)(   Читать дальше...   )Жанр: Celtiberian Pagan MetalПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB7E034E29BBE89DB00B90E21F9F3897EFA36E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352330   (1001349) от 13.01.2020
+
+Concerto Moon - Ouroboros (2019) [WavPack|Lossless|image + .cue] <Neoclassical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Change My Heart
+02 Dream Chaser
+03 Surrender
+04 Holy Child(   Читать дальше...   )Жанр: Neoclassical MetalПродолжительность: 01:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC51BD54951B127619B1779B985C8F0888E3EDF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488979   (1001190) от 14.08.2021
+
+Nawather - Kenz Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Oriental Metal, Male Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Treasure Chest
+02. Breath of Jasmin
+03. Money Slave
+04. Falleg(   Читать дальше...   )Жанр: Heavy Oriental Metal, Male Female VocalПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAC10742A52E2D887D87327D0F2F0739E8E380D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352696   (1000888) от 15.01.2020
+
+Rage - Wings of Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000888.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - True [5:02]
+2 - Let Them Rest in Peace [4:31]
+3 - Chasing the Twilight Zone [4:30]
+4 - Tomorrow [5:02](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD14794B6C8166B47ECCCB157E8DFC616180725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352720   (1000864) от 15.01.2020
+
+Nightwish - Decades: Live in Buenos Aires (2019) 2CD [FLAC|Lossless|tracks + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Swanheart [2:50]
+ 02 - End Of All Hope [4:01]
+ 03 - Wish I Had An Angel [4:20]
+ 04 - 10th Man Down [5:28](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 02:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C5C723F4F18E357D068557811290810C9B1408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597274   (1000543) от 02.01.2013
+
+Compos Mentis - Fragments Of A Withered Dream (2003) [WavPack|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drained [05:17]
+02. Temptation [04:04]
+03. My Inner Beast [05:18]
+04. Within Me [03:51]
+05. Dead Among The Dead [04:15]
+06. The Prophecy [04:23]
+07. Black Clouds Gather [03:32]
+08. The Innate God [06:23]Жанр: Melodic Death MetalПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597503   (1000473) от 02.01.2013
+
+Seventh Wonder - The Great Escape  (2011) / Japanese Edition / [FLAC|Lossless]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wiseman  (05:43)
+02. Alley Cat  (06:08)
+03. The Angelmaker  (08:31)
+04. King Of Whitewater (07:37)
+05. Long Way Home (04:26)
+06. Move On Through (05:06)
+07. The Great Escape (30:12)Жанр: Progressive MetalПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597568   (999983) от 04.01.2013
+
+Mors Principium Est - ...and Death Said Live (2012) [FLAC|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Awakening (0:56)
+02. Departure (5:44)
+03. I Will Return (4:29)
+04. Birth Of The Starchild (4:12)
+05. Bringer Of Light (4:16)
+06. Ascension  (4:30)
+07. ...and Death Said Live (2:02)
+08. Destroyer Of All (3:56)
+09. What The Future Holds? (5:28)
+10. The Meadows Of Asphodel (4:24)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599198   (999428) от 06.01.2013
 
 Sothis - De Opresso Liber (2008) [WavPack|Lossless]<Symphonic Black Metal>
@@ -560,306 +834,6 @@ System Shock - 2 альбома (2004-2006) [FLAC|Lossless]<Doom Metal,Melodic D
 07. Bleed 03:45
 08. Mountains of Madness 04:17
 09. Salvation In Stone 06:342004-2006Жанр: Doom Metal,Melodic DeathПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430569   (993739) от 02.01.2012
-
-Septem Voices - Колдовство (2011) [FLAC|Lossless]<Gothic Metal/Symphonic Metal/Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Касание
-Septem Voices
-Душа
-Колдовство
-Сквозь Стекло
-Тишина
-XXI
-Стаи Птиц (Акустика)Жанр: Gothic Metal/Symphonic Metal/Female VocalПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608405   (993677) от 25.01.2013
-
-A Loathing Requiem - Psalms of Misanthropy (2010) [WavPack|Lossless]<Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annihilation Induced By The Luminous Firestorm [04:46]
-02. Rapturous Euphoria [03:32]
-03. False Gods Render Death [03:21]
-04. Enhanced Sinister Corruption (F/Matt Brown) [03:16]
-05. Ecliptic Realm [03:07]
-06. And Darkness Was Cast [02:24]
-07. Architect Or Arsonist (F/ Christian Mьenzner) [03:17]
-08. The Carnage Of Infinite Black [03:44]
-09. Purged And Forgotten [03:59]Жанр: Technical Death MetalПродолжительность: 00:31:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608404   (993595) от 25.01.2013
-
-Forgotten Tales - All The Sinners (Japan Edition) (2004) [WavPack|Lossless]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pagan Chronicles Part I - The Hideaway [01:53]
-02. Pagan Chronicles Part Ii - Lady Of The Forest [05:01]
-03. Pagan Chronicles Part Iii - All The Sinners [04:03]
-04. Pagan Chronicles Part Iv - Wind Oh Wind [06:09]
-05. Pagan Chronicles Part V - The Message [04:45]
-06. Pagan Chronicles Part Vi - March For Freedom [04:25]
-07. Three Wishes [08:49]
-08. Fairytales [05:12]
-09. Magic Fountain (Bonus Track) [06:42]
-10. My Soul [04:30](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608494   (993516) от 25.01.2013
-
-Love And Death - Between Here & Lost (2013) [FLAC|Lossless]<Nu Metal | Alt. Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993516.jpg" />
-</div>
-
-
-###  Подробнее
-
-<<<
-------------------------------------------------------------------------
-01. The Abandoning
-02. Whip It
-03. Watching The Bottom Fall
-04. By The Way...
-05. Meltdown
-06. My Disaster
-07. I W8 4 U (Feat. Mattie Montgomery)
-08. Fading Away(   Читать дальше...   )Тип издания: АльбомЖанр: Nu Metal | Alt. MetalПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353107   (993334) от 16.01.2020
-
-Aspid - Musa (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	La hora suprema	04:05
-02.	Sueña por mí	04:00
-03.	Que el fuego hable	03:39
-04.	Musa	05:19(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAC94469D5203C87C0C04AEDE6997E0A28C3582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353128   (993332) от 16.01.2020
-
-Envenomed - Evil Unseen (2014) [FLAC|Lossless|image + .cue] <Melodic Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evil Unseen (instrumental)
-02. Will of Man
-03. Spoils of Victory
-04. Burn the Sun(   Читать дальше...   )Жанр: Melodic Thrash MetalПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99D3954FA1798352080F8E3FEC2BF9F90256AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608823   (992937) от 26.01.2013
-
-Dysentery - Internal Devastation (2011) [FLAC|Lossless]<Slamming Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epilogue (01:09)
-02. Beyond Light, Amongst the Shadows (02:47)
-03. Pernicious Passing (02:11)
-04. Entropic Putrefaction (01:34)
-05. Internal Devastation (02:19)
-06. A World Apart (03:22)
-07. In Rememberance of the Lifeless (02:32)
-08. From Creation to Dust (02:30)
-09. Forsaken Memories (02:14)
-10. Scars of Suffering (01:52)(   Читать дальше...   )Жанр: Slamming Brutal Death MetalПродолжительность: 00:31:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608247   (992936) от 26.01.2013
-
-nuERA - Dialysis (2012) [FLAC|Lossless]<Nu Metal | Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992936.jpg" />
-</div>
-
-
-###  Подробнее
-
-<<<
-------------------------------------------------------------------------
-01. unDONE
-02. Dialysis
-03. Circle the Drain
-04. End Transmission
-05. Own Up
-06. Head of State
-07. 90ten
-08. Because of You(   Читать дальше...   )Тип издания: АльбомЖанр: Nu Metal | RapcoreПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431381   (992580) от 04.01.2012
-
-Firebird - Double Diamond (2011) [FLAC|Lossless]<Hard Rock, Heavy Blues, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Saviour (4:24)
-02. Ruined (3:26)
-03. Bright Lights (3:57)
-04. For Crying Out Loud (2:33)
-05. Farewell (3:54)
-06. A Wing & A Prayer (2:57)
-07. Pound Of Flesh (2:45)
-08. Arabesque (3:15)
-09. Lose Your Delusions (3:22)
-10. Pantomime (5:12)2011Жанр: Hard Rock, Heavy Blues, Stoner RockПродолжительность: 00:35:45
 
 ## Скачать торент
 ```bash

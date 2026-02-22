@@ -1,3 +1,38 @@
+###  Публикация: 613576   (982794) от 04.02.2013
+
+John Pizzarelli - 5 альбомов (1995-2010) [FLAC|Lossless]<Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In A Mellow Tone [04:12]
+02. East St. Louis Toodle-oo - Don't Get Around Much Anymore [03:41]
+03. Satin Doll [03:39]
+04. C Jam Blues [07:59]
+05. In My Solitude [03:52]
+06. Just Squeeze Me [03:22]
+07. Perdido [04:11]
+08. All Too Soon [03:10]
+09. I'm Beginning To See The Light [04:07]
+10. Love Scene [03:48](   Читать дальше...   )Жанр: Jazz, SwingФормат: image+cueПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 435509   (982729) от 13.01.2012
 
 Kim Waters - This Heart Of Mine (2011) [FLAC|Lossless]<Smooth Jazz, Jazz Funk>
@@ -779,35 +814,6 @@ Leon Thomas With Oliver Nelson - In Berlin 1970 (2002) BMG [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECEF959E4D6626BC391629A978F0D47D5E1A66C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355835   (981154) от 28.01.2020
-
-Louis Armstrong - African Dreams 1960 - 1962 (2000) 2CD, Milan [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981154.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - African Dreams:
-01. That's My Home [4:58]
-02. Struttin' with Some Barbecue [5:52]
-03. Jazz Me Blues [5:23](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, Vocal JazzПродолжительность: 01:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E6F7986F14CD505DC1CC4DDDC8B2C3E40B05EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1369596   (901424) от 24.03.2020
+
+Led Zeppelin - 100% Led Zeppelin (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole Lotta Love (2012 Remaster)
+02. Rock And Roll (Sunset Sound Mix)
+03. Black Dog
+04. Heartbreaker (2012 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 03:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBB9B8BCDF09ABD9F2F948E81DFA5DB5C81CE2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369667   (901285) от 24.03.2020
 
 Pink Floyd - 100% Pink Floyd (2020) 2CD [MP3|320 Kbps] <Progressive Rock, Psychedelic Rock, Art Rock>
@@ -716,35 +745,6 @@ Carlos Santana - 100% Carlos Santana (2020) [MP3|320 Kbps] <Pop, Rock, Latin>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C37B9FD8BD716E1791A40D03C389A6731223FB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994885   (888196) от 09.03.2016
-
-Mark Mikel - Collection (1993-2007) [MP3|192 - 320 кб/с] <Classic Rock, Power Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избранное Марка - бальзам на душу для тех, кто знает и помнит 60-70-ые!01. Holy Roly
-02. Deliver My Love
-03. Come Tomorrow Feel Alright
-04. Right Now(   Читать дальше...   )Жанр: Classic Rock, Power PopПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7858EDDF049B8278E3FDF9B1E5163CEC1DB3A7CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

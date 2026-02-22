@@ -1,3 +1,32 @@
+###  Публикация: 1475926   (1012027) от 09.06.2021
+
+Chico Hamilton - Believe (2006) Joyous Shout! [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evan's-ville [6:28]
+02. Love Me a Long, Long Time [2:51]
+03. My Brother Don [5:50]
+04. Christina [7:44](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374CCBC6FDA35072E2C5F2AEDD7FE9BCD34625EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475929   (1012025) от 09.06.2021
 
 Rodney Whitaker - Outrospection: The Music of Gregg Hill (2021) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ Swingrowers - лучший экспортный продукт из Италии
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B1389EF9081C968760D6BFC0D6FC6D0539FAA04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482350   (1007620) от 08.07.2021
-
-Frank Marocco Groups - Brazilian Waltz (1988) Discovery Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Accordion Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Gorgeous George [3:51]
-02. Brazilian Waltz [4:40]
-03. Ecaroh [5:03]
-04. Spring Is Here [5:03](   Читать дальше...   )Жанр: Mainstream Jazz, Accordion JazzПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1601680134E06B70E9DA9E38F81A0D5525845814
 ```
 
 https://mybot314.ru/tekegram_catalog/

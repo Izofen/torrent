@@ -1,3 +1,270 @@
+###  Публикация: 1071164   (361954) от 09.11.2016
+
+Paul Di'Anno's Battlezone - Children Of Madness (1987) 2016 Japan Remaster [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rip It Up 02:54
+02. I Don't Wanna Know 03:28
+03. Nuclear Breakdown 05:01
+04. Torch Of Hate 03:04(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48C51C69499420725307F975B9C624680EE687F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576780   (361895) от 16.09.2022
+
+Spiral Wounds - Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Beneath the Mud (03:11)
+02 - Dreaming Fears (04:22)
+03 - Death Painted in the Face (03:16)
+04 - Declino (04:30)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68EB479D857BFD529F9B1BEEB7250216634425E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576815   (361894) от 16.09.2022
+
+Stench of Death - Aeternum Ater (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (01:27)
+02 - Spectral Horde (03:05)
+03 - Eons Nestled in a Black Obsidian Obelisk (04:26)
+04 - Pillars Drenched in Gore (04:22)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE7EB4A297130AF5E14D752CCAF51AF92993EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576802   (361893) от 16.09.2022
+
+Stallion - From The Dead (2017) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Underground Society
+02. Down and Out
+03. Hold the Line
+04. Waiting for a Sign(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE08DC5A146FF865D295B686589132C38285918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576755   (361891) от 16.09.2022
+
+Silentend - Neverending War (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - M.A.D (05:23)
+02 - The Sacred Defiled (05:36)
+03 - Massive Oppression (06:10)
+04 - Rage Arise (06:31)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EC23DB7D743233F548AA1681061124096E4B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576799   (361890) от 16.09.2022
+
+Demonical - Mass Destroyer (2022) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361890.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. We Conquer the Throne 03:13
+2. Sun Blackened 03:40
+3. Fallen Mountain 05:04
+4. Wrathspawn 03:45(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0EAC081F7DC682788A52A61381C561D878E476F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255619   (361836) от 19.10.2018
+
+House Vs. Hurricane - Perspectives (2010) [FLAC|Lossless|tracks + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaps & Bounds (4:40)
+ 02. We, The Reserveless (3:54)
+ 03. Lesson Learnt (2:48)
+ 04. Off The Wall (3:20)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69144835D525CBFF41211459963FA4E4B308C03A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070929   (361825) от 09.11.2016
+
+Sirenia - Dim Days Of Dolor (2016) Limited Edition [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goddess Of The Sea (04:41)
+02. Dim Days Of Dolor (04:40)
+03. The 12th Hour (06:36)
+04. Treasure N' Treason (04:54)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDC50DA9F78BD29D097576E777850D1A1C74EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577021   (361547) от 18.11.2012
+
+Coma Divine - Dead End Circle (Digipak) (2011) [FLAC|Lossless]<Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_361547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Burn, Sister 4:55
+02 Rotten World 4:56
+03 The Odd One Out 4:45
+04 I Remember 3:29
+05 From Time To Time 3:28
+06 Praise The Fallen 3:55
+07 Reason To Live 3:57
+08 Secret Lover 3:54
+09 Fast Lane 2:37
+10 About A Girl 4:08(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328594   (361041) от 01.10.2019
 
 Sonata Arctica - Talviyo (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -495,267 +762,6 @@ Apocalyptica - Metal Classic, Classic Metal (2022) EP [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73730A5596EAF92783852E042D32E74D26149418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256377   (356787) от 21.10.2018
-
-Bring Me the Horizon - Suicide Season (2008) [FLAC|Lossless|tracks + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Comedown (4:09)
- 02. Chelsea Smile (5:03)
- 03. It Was Written In Blood (4:03)
- 04. Death Breath (4:21)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399EBCF5AD99B5181F012FE87AEEC9643D8DD37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329069   (356514) от 03.10.2019
-
-Insomnium - Heart Like A Grave (Deluxe Editioin) (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wail of the North
-02 - Valediction
-03 - Neverlast
-04 - Pale Morning Star(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A3EE2C0D3C887B7F79A81863F1841D315CFA73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952489   (356338) от 01.11.2015
-
-Broken Glazz - Divine (1991) [FLAC|image +.cue]<Heavy Metal / Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faces on the Floor
-02. Divine
-03. Someday
-04. Electronic Brain(   Читать дальше...   )Жанр: Heavy Metal / Thrash MetalПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14C134022E3B50EF481829A334ACB5A65C4754C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952467   (356329) от 01.11.2015
-
-Dream Evil - Evilized (2003) Japanese Edition / King Record /[FLAC|image +.cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break The Chains 3:32
-02. By My Side 3:37
-03. Fight You 'Till The End 3:53
-04. Evilized 4:43(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62D66C302C2963775D3A237334DC546E7B0AD4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256220   (356325) от 21.10.2018
-
-Disturbed - Evolution (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Ready
-02. No More
-03. A Reason to Fight
-04. In Another Time(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144AA94543B77953DD31FF6FBC3120F49FFC8338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417606   (355907) от 21.10.2020
-
-Mega Colossus - HyperGlaive (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunsword
-02. Sea Of Stars
-03. Gods And Demons
-04. The Judge(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC26CCFCB9D0ED34CE644EE9B5A6255FAA7A895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417550   (355901) от 21.10.2020
-
-Lancelot - But I Just Can't Stay Behind (1983) Reissue, Remastered, 2015, Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop Man
-02. Home Again
-03. Struck Down
-04. Stargazer(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBC711B20297A405C0E6B05C518D66BF60687CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417664   (355899) от 21.10.2020
-
-Vengeance - Piece Of Cake (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Arena 04:39
-02. Tears From The Moon 03:40
-03. Raintime Preload 00:36
-04. Raintime 03:31(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB67957B30B52591FEC4EC9C1A89D96B9A9CCAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417667   (355896) от 21.10.2020
-
-Paradise Lost - In Requiem (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Goth Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never for the Damned (5:02)
-02. Ash & Debris (4:16)
-03. The Enemy (3:39)
-04. Praise Lamented Shade (4:03)(   Читать дальше...   )Жанр: Goth Rock, Heavy MetalПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1430279EC66825377966B1C290CF2263F23A06
 ```
 
 https://mybot314.ru/tekegram_catalog/

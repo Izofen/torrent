@@ -1,3 +1,38 @@
+###  Публикация: 501074   (258359) от 25.05.2012
+
+Joe Bonamassa - Driving Towards The Daylight (2012) [MP3|320 кб/с]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+"Driving Toward the Daylight" - одиннадцатый студийный альбом Joe Bonamassa, продюсировал который Kevin "Caveman" Shirley (BLACK CROWES, AEROSMITH, LED ZEPPELIN). В альбом вошли пять собственных композиций Бонамассы, а также целый ряд каверов(   Читать дальше...   )1. Dislocated Boy (6:38)
+2. Stones In My Passway (3:58)
+3. Driving Towards The Daylight (4:50)
+4. Who's Been Talking? (3:28)
+5. I Got All You Need (3:03)
+6. A Place In My Heart (6:47)
+7. Lonely Town Lonely Street (7:07)
+8. Heavenly Soul (5:55)
+9. New Coat Of Paint (4:06)
+10. Somewhere Trouble Don't Go (4:58)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C7D6931BBA9F8106383D598C499AA6A63D3509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837614   (257949) от 17.11.2025
 
 Joe Bonamassa - B.B. King's Blues Summit 100, Vol. III (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -734,41 +769,6 @@ Marcel Loeffler - Images (2012) [MP3|320 кб/с]<Swing, Jazz Manouche, Accordio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8385F1E8F5227B76BDA1B726F0DDE07D0427066D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500574   (257194) от 23.05.2012
-
-Ethel Waters - Ethel Waters (1921-1923) (1994) [FLAC|Lossless]<Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New York Glide
-02. At the New Jump Steady Ball
-03. Oh Daddy
-04. Down Home Blues
-05. One Man Nan
-06. There'll Be Some Changes Made
-07. Dying With the Blues
-08. Kiss Your Pretty Baby Nice
-09. Frisco Jazz Band Blues
-10. Royal Garden Blues(   Читать дальше...   )1994Жанр: Vocal Jazz, SwingПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

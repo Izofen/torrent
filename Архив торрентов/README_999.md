@@ -1,3 +1,29 @@
+###  Публикация: 1366262   (925060) от 10.03.2020
+
+Movavi Video Converter 20 Premium 20.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Converter - конвертер видео и аудио файлов. Конвертируйте видео и аудио на вашем Mac. Сохраняйте видео для просмотра на портативном устройстве. Извлечение саундтреков из видео. И многое другое…Тип издания: macOS SoftwareРелиз состоялся: 10.03.2020Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD4256E43906C234F1A0064C5E5237EC0C1AB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365924   (925058) от 10.03.2020
 
 10-Strike LANState Pro 9.31 [Ru/En]
@@ -679,33 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3789A826AFDC0B79B4060F62AD048FA262EA06E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095476   (924554) от 21.01.2017
-
-William Basinski - A Shadow in Time (2017) [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For David Robert Jones (20:26)
- 02. A Shadow In Time (23:01)Жанр: Ambient, Modern Classical, MinimalПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D598BC9AD9AEF81E2CDD6E3FF4C135173DC25870
 ```
 
 https://mybot314.ru/tekegram_catalog/

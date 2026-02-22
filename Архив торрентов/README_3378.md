@@ -1,3 +1,32 @@
+###  Публикация: 1057745   (473171) от 29.09.2016
+
+Blue Rodeo - Greatest Hits Vol. 1 (2001) Compilation [FLAC|Lossless|tracks + .cue] <Country Rock, Folk, World>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Love Somebody   (05:48)
+02. Rose-Coloured Glasses   (04:28)
+03. Try   (04:00)
+04. Diamond Mine   (08:08)(   Читать дальше...   )Жанр: Country Rock, Folk, WorldПродолжительность: 01:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAF5A4D461E7CBB29573CB755E3C1EAD4D487E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320287   (473164) от 17.08.2019
 
 Internet Download Manager 6.35 Build 1 RePack by elchupacabra [Multi/Ru]
@@ -660,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F4CF0619488D8A0519B084814610F9669B38A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406709   (472941) от 04.09.2020
-
-BurnAware Professional / Premium 13.7 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472941.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A527B67BFF16622D4624AAC13FCB2702DCEA7260
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1096428   (920932) от 23.01.2017
+
+VA - Motivation Training Music 2016 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Qamil Stello — Gonet 02:52
+02. Saber Wolf — Hong Kong 02:37
+03. Sofia Morales — Macsound 04:01
+04. Jeff Haymaker — Elec 04:40(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817EF78BF0F3DED7A754C72371BD022E3902EEF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096478   (919308) от 24.01.2017
+
+VA - Deephouse Night Beats (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Performative Mode — First Mode (Original Mix) 05:48
+02. Mighty Real — Remote Viewing (Original Mix) 06:43
+03. Circuito Zeta — Step Down (Original Mix) 07:17
+04. Stube — Calling Dingo (Original Mix) 06:30(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B73650F921E9DD2A7E3AE39EBBE9DF0A021E171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096748   (917785) от 25.01.2017
+
+VA - Vocal House on Ice Lech 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack & Jones - Lift Me Up (Outro) [00:01:23]
+02. Mr. Leading - One More Time [00:03:21]
+03. Massimo Vanoni - I See You (Fingerman's Disco Odyssey edit) [00:09:20]
+04. Re-Tide - Try This [00:06:35](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531287E590A6AD80108C469537947E4AEACCF8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367283   (917471) от 15.03.2020
 
 VA - Revealed Recordings presents Miami Festival 2020 (2020) [MP3|320 Kbps] <House, Big Room, Dance>
@@ -650,93 +737,6 @@ Kirill Doomsky - Housemission II - Only One In The World (2004) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86DA8A124A1A50822CBA8CF4A56AAF06D57A3A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369205   (905703) от 22.03.2020
-
-VA - Resonance Vol.2 (Mixed By DJ Arseniy) (2005) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm Code Hypnotic Influence (Always Listen) (The McKenn-apella) (6:47)
-02. D:Facto - PDG (4:31)
-03. Bill Payer And Fat Hippy - Moon Musik (Kingkade vs. Bpfh Remix) (Guitar From H.C.B. - Hard Club Band (Bolls Mix) (3:05)
-04. Deepgroove - Electricity (5:15)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4D36305F8CB516BCE0316ABD8B3C2F12A302C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369137   (905702) от 22.03.2020
-
-Dj Бинокль - Tribalhouse 1 (2003) [MP3|256 Kbps] <House, Disco, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Despina Vandi - Gia (Milk & Sugar Dub Mix) (5:42)
-02. Bocagrande - Push (Main Mix) (4:51)
-03. Tanja Monies - It's Only A Test (Andrea T. Mendoza vs. Tibet Tribal Mix) (4:36)
-04. Global Brothers - Clap Your Hands (Main Mix) (5:59)(   Читать дальше...   )Жанр: House, Disco, Progressive HouseПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006B6C13FB1D6AF25CD6A795C38A6AB54526CD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369135   (905646) от 22.03.2020
-
-VA - Kontor Festival Sounds 2020.01: The Beginning (2020) [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerome - Take My Hand (Extended Mix) 3:33
-02. Dimitri Vegas & Like Mike vs. Timmy Trumpet - The Anthem (Der Alte) (Extended Mix) 3:50
-03. W&W x Timmy Trumpet & Will Sparks feat. Sequenza - Tricky Tricky (Extended Mix) 3:37
-04. Armin van Buuren feat. Ne-Yo - Unlove You (Nicky Romero Extended Remix) 4:22(   Читать дальше...   )Жанр: House, Club House, Progressive, Hardstyle, ElectronicПродолжительность: 07:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38F271A98F0789AED0B8B953FC80C097EA36EB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

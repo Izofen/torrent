@@ -1,3 +1,32 @@
+###  Публикация: 1627962   (233330) от 22.04.2023
+
+Richie Cole With Phil Woods - Side By Side (1980) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Your Love for Me [8:50]
+02. Naugahyde Reality [2:27]
+03. Scrapple from the Apple [8:14]
+04. Rain Go Away [8:07](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDBF329738EE78E5396E86D161DCB8689687180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644688   (233327) от 06.07.2023
 
 Lucky Thompson - I Offer You (1973) 2018, Solid Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -716,35 +745,6 @@ T.G. Copperfield - Out In The Desert (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BA1ECD8F7FC817E8C1B743D069FA84C028BD3BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605739   (232916) от 19.01.2023
-
-Tri-Fi - 3 (2010) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clipped Wings [9:46]
-02. Take What You Want But Don't Touch My Herring Shoes [6:26]
-03. The Long Journey Home [6:06]
-04. Repercussions [7:53](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E6607A8C1875F1B61E5009C1EC0F8E90A5E61C
 ```
 
 https://mybot314.ru/tekegram_catalog/

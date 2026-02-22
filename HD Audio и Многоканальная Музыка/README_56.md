@@ -1,3 +1,176 @@
+###  Публикация: 1655086   (204616) от 24.08.2023
+
+Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crusher Destroyer
+02. March Of The Fire Ants
+03. Where Strides The Behemoth
+04. Workhorse(   Читать дальше...   )Жанр: Progressive, Sludge MetalПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3B124811987B455D7D1285CC972C8BE9AD3F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655257   (204462) от 25.08.2023
+
+Игорь Романов и группа «Союз» - Красный Свет (1990) [FLAC|24/192|image + .cue|VinylRip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204462.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Осторожней, Сталкер
+A2 Стрелы
+A3 Диктатор
+B1 Племена(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3AE30BC92F8C225A78AD535510DB0078DB00FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655200   (204452) от 25.08.2023
+
+Felix Jaehn - Happy Rave (2023) [FLAC|24/44.1|tracks|WEB-DL] <Electronic, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn - Nonstop (3:03)
+02. Felix Jaehn - Wishlist (2:23)
+03. Jonas Blue - Weekends (2:07)
+04. Butschi - Atme Ein (Atme Rauch Aus) (5:52)(   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18ECAA31302DF0803FC9012257FD1F4A7AF7E578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655501   (204295) от 26.08.2023
+
+SPAN - Studio Albums (2 releases) (2004-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204295.jpg" />
+</div>
+
+
+###  Подробнее
+
+SPAN — норвежская рок-группа, образованная в 2000 году.
+Расформирована в 2005 году.2004 - Mass Distraction
+2005 - Vs. TimeЖанр: Hard RockПродолжительность: 02:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56AD5AE651BFC5D0ACB821AB4293C61D6AE00683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603557   (204287) от 09.01.2023
+
+The Cars - The Cars (1978) Remastered, 2015, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <New Wave, Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times Roll 03:46
+02. My Best Friend’s Girl 03:44
+03. Just What I Needed 03:44
+04. I’m In Touch With Your World 03:32(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-popПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5D862F2C07004B63653D2418040F5EF13C0ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655542   (204266) от 26.08.2023
+
+Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204266.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Sergio Corbucci Is Dead
+A2 - Hate Uber Alles
+A3 - Killer Of Jesus
+A4 - Crush The Tyrants(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8A925B03EC6C3823AA02235C891C97B281DC8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604059   (204160) от 12.01.2023
 
 Мираж - МИРАЖ-III (оригинал) (1991) [FLAC 2.0|48/24|tracks|MB-Rip] <Pop, Dance, Disco>
@@ -576,177 +749,6 @@ In Flames — шведская музыкальная группа, играющ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28E212FBF43AC8B9EA9521815678762830BA9F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172695   (201399) от 11.03.2023
-
-VA - Звёзды шансона (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Таня Тишинская - Золотая ручка
-02. Иван Кучин - Жиганская душа
-03. Слава Исетский мл. - От бухты Цемесской... (Сон жигана)
-04. Михаил Круг - Ярославская(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59F93A57D00DBF3E160F82898F2EDB6649956B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622796   (200557) от 30.03.2023
-
-Eagles - The Long Run (1979) SACD, Reissue, Remastered, 2023, Mobile Fidelity Sound Lab, Special Edition  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic Rock, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Run
-Lead Vocals - Don Henley / Organ - Don Felder
-Slide Guitar - Joe Walsh / Written-By - Don Henley, Glenn Frey
-02. I Can't Tell You Why(   Читать дальше...   )Жанр: Classic Rock, Country RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8C9E13A0AE6F446FA87FD7EEE5C5C065CE956B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623371   (200488) от 02.04.2023
-
-Various - Flashdance - Original Soundtrack From The Motion Picture (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05919032C3DCDB93C8E83D52C977783D806CC3DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624200   (200378) от 04.04.2023
-
-Bad Boys Blue - Heart Beat (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200378.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Wanna Hear Your Heartbeat (Sunday Girl) 3:50
-A2 Mon Amie 4:35
-A3 One Night In Heaven 4:45
-A4 Baby I Love You 4:05(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0516415DA150824AE74BA119DF738D99981E4E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624989   (200228) от 08.04.2023
-
-Sandra - The Long Play (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200228.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		In The Heat Of The Night	5:20
-A2		On The Tray (Seven Years)	3:45
-A3		Little Girl	3:11
-A4		You And I	6:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1658B77489D61A9EB9B53A0D0B3571339125FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626106   (199996) от 13.04.2023
-
-Roma Trio - The Four Seasons (2008) Reissue, 2016, Venus Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199996.jpg" />
-</div>
-
-
-###  Подробнее
-
-～ Concerto No.1 in E major, Op.8, RV269 ～ Spring ～
-01. “Alleglo”
-02. 2nd Movemnet “Largo e Pianissimo”
-03. 3rd Movement “Alleglo Pastorale”(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05296AF3E2EE1AFC45FA2F288B800C9735475D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

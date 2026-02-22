@@ -1,3 +1,32 @@
+###  Публикация: 1507611   (798298) от 05.11.2021
+
+Djs From Mars - Swiss Virtual Nights, Summer Festival 2021, Switzerland (2021-08-20) [MP3|320 Kbps] <House, Electro House, Electro Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic One - Punk! (TWOLOUD Remix) (Intro) w/Fedde Le Grand Put Your Hands Up For Detroit (Acappella)
+02. Riton & Nightcrawlers & Mufasa & Hypeman vs. Storm - Friday Storm (Djs From Mars Bootleg)
+03. Masked Wolf vs. Hardwell - Spaceman In The Ocean (Djs From Mars & Mo27Da Bootleg)
+04. Joel Corry X MNEK vs. Alice Deejay - Head & Heart vs. Better (   Читать дальше...   )Жанр: House, Electro House, Electro PopПродолжительность: 00:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B49E8146E0F1386DEAAAB3F7BC1BAF5F425C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507838   (798288) от 05.11.2021
 
 Geekbench 5 v5.4.3 [En]
@@ -664,34 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E89C87362C02D13C729B0A6D9EF9E1731615E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508010   (798152) от 06.11.2021
-
-Invisor - Media File Inspector 3.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Invisor – Инспектор файлов мультимедиа
-Отображает техническую информацию о вашем видео и аудио файлов с возможностью сравнения собранных данных.
-Invisor основан на хорошо известной библиотеке MediaInfo и показывает подробную информацию о контейнере файла и потоков данных, включая видео, аудио, субтитры и главы. Поддерживает большинство форматов видео и аудио файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: © 2021 Maxim PozdeevПоддерживаемая ОС: macOS 10.7.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40373F65CBD1AED73DD4DCA5F561CA2D7B2C1654
 ```
 
 https://mybot314.ru/tekegram_catalog/

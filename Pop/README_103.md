@@ -1,3 +1,116 @@
+###  Публикация: 664067   (748912) от 03.06.2013
+
+Вячеслав Малежик - 36 альбомов (1993-2013) [FLAC|Lossless]<Pop, Blues, Rock, Авторская песня>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Blues, Rock, Авторская песняПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396361   (748682) от 14.07.2020
+
+Perry Rosewood - Citroen Melodie (1979) LP [MP3|320 Kbps] <Disco, Easy Listening, Jazz-Funk, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Citroen-Melodie (Deux Chevaux) (4:09)
+02. Santa Ponsa (4:14)
+03. Black Magic Ladies (5:09)
+04. My Way To Laredo (5:21)(   Читать дальше...   )Жанр: Disco, Easy Listening, Jazz-Funk, InstrumentalПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FED26770A132BF5565D935A6047A103CC39938E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281931   (748513) от 10.02.2019
+
+The Dip - The Dip Delivers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sure Don't Miss You (02:54)
+02. Best Believe (03:56)
+03. Advertising (feat. Jimmy James & Delvon Lamarr) (03:00)
+04. Adeline (03:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0989A55AFA39B31B353513864933B9072A837BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282027   (748427) от 10.02.2019
+
+VA - Euphoric Hard Dance Floorfillers (2019) [MP3|320 Kbps] <Hard Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starman feat. Nikki - Waiting (Poomstyles Radio Edit) 03:38
+02. Unit 13 - A Little Party (Radio Edit) 03:38
+03. S5 - Groove Theory (SystemShock Radio Edit) 03:57
+04. Beat Dynamix - Hypnotized (Radio Edit) 03:59(   Читать дальше...   )Жанр: Hard DanceПродолжительность: 01:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8491CF1B56C4E67FB7B3E6C9B81E669CA55F39A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281988   (748419) от 10.02.2019
 
 Meghan Trainor - The Love Train (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Blue-Eyed Soul>
@@ -629,122 +742,6 @@ Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282353   (745321) от 12.02.2019
-
-Michael Bolton - A Symphony Of Hits (2019) [MP3|320 Kbps] <Pop, Soul, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Said I Loved You...But I Lied (4:43)
-02. When A Man Loves A Woman (3:59)
-03. Soul Provider (5:07)
-04. Time, Love Tenderness (4:21)(   Читать дальше...   )Жанр: Pop, Soul, Pop-RockПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9AFC41C247464E940751A4B14DBC8FEF41F1842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282409   (745313) от 12.02.2019
-
-Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|tracks + .cue] <Electronic, Pop, RnB, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Like A Bird (4:04)
- 02. Turn Off The Light (4:36)
- 03. Shit On The Radio (Remember The Days) (3:55)
- 04. Fotografia (Duet with Juanes) (4:01)(   Читать дальше...   )Жанр: Electronic, Pop, RnB, LatinПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E2830D38029B2D85427AE890679B20A1B295DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376260   (745278) от 16.07.2020
-
-София Ротару - 9 Альбомов (1995 - 2010) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я не оглянусь
-02. Время подождет
-03. Забирай ( дуэт с О. Газмановым )
-05. Цветы сирени(   Читать дальше...   )Жанр: PopПродолжительность: 07:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8045CE5E124E841A9B2623159837B1703708E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282494   (745255) от 12.02.2019
-
-Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Souvenirs to Souvenirs
-02. Goodbye My Love Goodbye
-03. My Friend the Wind
-04. Rain and Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6C92E0EE8F88D5033BFE004CC510540848BF3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

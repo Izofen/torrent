@@ -1,3 +1,38 @@
+###  Публикация: 598828   (999663) от 05.01.2013
+
+Fiona Apple - 4 альбома (1996-2012) [FLAC|Lossless]<Piano rock, baroque pop, jazz, alternative rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Single Night [03:33]
+02. Daredevil [03:28]
+03. Valentine [03:33]
+04. Jonathan [05:04]
+05. Left Alone [04:51]
+06. Werewolf [03:13]
+07. Periphery [04:58]
+08. Regret [05:17]
+09. Anything We Want [04:41]
+10. Hot Knife [04:02]Жанр: Piano rock, baroque pop, jazz, alternative rockФормат: image+cueПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599219   (999637) от 05.01.2013
 
 Karen Aoki - Jazz After Sunset (2 HDCD) (2012) [FLAC|Lossless]<Jazz Vocal>
@@ -849,41 +884,6 @@ Herbie Hancock & Friends - Possibilities (2005) [FLAC|Lossless]<Jazz, Vocal>
 08. Don't Explain  (feat. Damien Rice & Lisa Hannigan) (4:51)
 09. I Just Called To Say I Love You  (feat. Raul Midуn) (5:24)
 10. Gelo Na Montanha (feat. Trey Anastasio) (3:50)2005Жанр: Jazz, VocalПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430247   (994232) от 01.01.2012
-
-Pink Martini - A Retrospective (2011) [FLAC|Lossless]<Pop, World, Latin, Pop-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Una Notte A Napoli (First Recording) (2:27)
-02. Hang On Little Tomato (3:18)
-03. Donde Estas Yolanda? (China Forbes Vocals Version) (3:26)
-04. Hey Eugene (3:09)
-05. La Soledad (5:38)
-06. Splendor In the Grass (3:38)
-07. Kikuchiyo To Mohshimasu (The Hiroshi Wada Mix) (4:32)
-08. Anna (El Negro Zumbon) (2:38)
-09. Ma Solitude (feat. Georges Moustaki) (3:27)
-10. Mas Que Nada (feat. Saori Yuki) (2:36)(   Читать дальше...   )2011Жанр: Pop, World, Latin, Pop-JazzПродолжительность: 01:12:14
 
 ## Скачать торент
 ```bash

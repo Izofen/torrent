@@ -1,3 +1,90 @@
+###  Публикация: 1127991   (730101) от 23.04.2017
+
+The Duke Edward Kennedy Ellington - I'm Checkin' Out, Goom Bye (1939) 2CD, 2004, Membran Music [APE|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730101.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dance Of The Goon [02:37]
+02. Good Gal Blues [03:00]
+03. Finesse [02:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50441524EDCF4DC32A1BD160F34D80C1426BE3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284116   (730090) от 20.02.2019
+
+Radare - Im Argen (2015) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Let Me Come into the Storm / Luke (10:06)
+02. Das einsame Grab des Detlef Sammer (4:09)
+03. Burroughs (6:36)
+04. The Queue (4:22)(   Читать дальше...   )Производство: Golden Antenna Records - GOLDEN-034Жанр: Doom Jazz, Dark Jazz, Experimental, RockПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8F360CAF4F2E96D5AAE98CF1B611A34FAB5494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127986   (730084) от 23.04.2017
+
+Luke Sellick - Alchemist (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:01)
+02. Q-Tippin (6:45)
+03. Brothers (4:48)
+04. Hymn (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEF24C15CC2EC89FF23C65CAB99F4690D4D1B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128065   (730081) от 23.04.2017
 
 Bert Wray Blues - Gut Bucket Radio (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
@@ -657,93 +744,6 @@ John Pizzarelli Trio - For Centennial Reasons: 100 Year Salute to Nat King Cole 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BC6869FE57F6F30175BDCA86B2546AE67DB755C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022793   (727862) от 03.06.2016
-
-The Modern Jazz Disciples (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.After You've Gone [06:05]
- 02.Disciples Blues [07:16]
- 03.Slippin' & Slidin' [05:10]
- 04.Little Taste [06:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9FCCD708C9973C323D1F19EBD088BAAA4EA952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022798   (727856) от 03.06.2016
-
-Jay McShann - The Last Of The Blue Devils (1977) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Piano Jazz, Jump Blues, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Confessin' The Blues [04:46]
- 02.'Tain't Nobody's Bizness If I Do [07:03]
- 03.Hootie Blues [04:33]
- 04.Blue Devil Jump [03:29](   Читать дальше...   )Жанр: Piano Jazz, Jump Blues, Mainstream JazzПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DEA9AB810403BD04BD5824E9070AAC5F559B0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022786   (727855) от 03.06.2016
-
-Hank Mobley - Workout (1961) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Workout [10:01]
- 02.Uh Huh [10:44]
- 03.Smokin' [07:31]
- 04.The Best Things In Life Are Free [05:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F3090854E1929D203C26857E2E0E235F396CF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

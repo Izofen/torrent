@@ -1,3 +1,32 @@
+###  Публикация: 909769   (626410) от 18.06.2015
+
+Antagoniste - The Myth of Mankind (2015) [MP3|320 кб/с]<Avant-Garde Black / Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rise of the Lightbringer
+02. The Barren Lands
+03. The Demiruge
+04. The Fall of Man(   Читать дальше...   )Жанр: Avant-Garde Black / Sludge MetalПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890AC4AEB350C9B26A46EA774DBF80F5254A44B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909638   (626409) от 18.06.2015
 
 Bone Gnawer - Cannibal Crematorium (2015) [MP3|320 кб/с]<Death Metal>
@@ -722,35 +751,6 @@ Ignition - A New Conspiracy (2015) [MP3|320 кб/с]<Heavy / Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A90DF0F1A7328D76DF768076189A19BE97C3795F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911021   (620804) от 21.06.2015
-
-Anuryzm - All Is Not For All (2015) [MP3|320 кб/с]<Power / Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mineral
-02. Full Agonist
-03. Humanoid
-04. Depolarized(   Читать дальше...   )Жанр: Power / Progressive MetalПродолжительность: 01:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734351DBCD14429902691300B2FCEC735F51E966
 ```
 
 https://mybot314.ru/tekegram_catalog/

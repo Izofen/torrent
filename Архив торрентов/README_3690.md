@@ -1,3 +1,29 @@
+###  Публикация: 562815   (405323) от 20.10.2012
+
+Журнал | Жилье мое №5 [май 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специализированный архитектурно-строительный журнал. Включает в себя информацию по строительству, архитектуре, дизайну, мебели, сферам банковского кредитования, законодательству и др.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD9AC88AA1D226643223409C65C36E1167FBB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562734   (405322) от 20.10.2012
 
 Andrew Lu - Club Universe Radioshow 046 (2012) [MP3|320 кб/с]<Trance, Progressive Trance>
@@ -704,35 +730,6 @@ FontExpert может обнаруживать дубликаты шрифтов
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563046   (405263) от 20.10.2012
-
-Intelligent Manners - The Movement (2012) [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All By Myself
-02. Brand New Day
-03. Nothing Less
-04. Do It All Night (feat. Command Strange & Pouyah)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4A93C6CD37921D029AB0333E5A4C50C54E2E68
 ```
 
 https://mybot314.ru/tekegram_catalog/

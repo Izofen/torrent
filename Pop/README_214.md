@@ -1,3 +1,116 @@
+###  Публикация: 1173449   (389768) от 12.10.2017
+
+Super Value - Super Manifesto (2009) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянский Mixed сборник произведений эпохи Disco. Из-за авторских прав - исполнители не указаны в издании, поэтому сборник признан как Unofficial Release, но все-же есть на Discogs и продажах в сети на CD.01. Pleasure (5:56)
+02. Piece Of My Love (6:56)
+03. Passion (5:39)
+04. Tasty (4:20)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE85A3695ABB1BB415DCA972B08BAB68B61D061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173721   (389599) от 12.10.2017
+
+Pink (P!nk) - Beautiful Trauma (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389599.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beautiful Trauma (4:10)
+ 2. Revenge (3:46)
+ 3. Whatever You Want (4:03)
+ 4. What About Us (4:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64684939283AB801BC611BCD8E4F40A3C339F8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 718401   (389260) от 03.11.2013
+
+Katy Perry - Prism (Deluxe Edition) (2013) Capitol Records [FLAC 2.0 44.1/24|WEB-DL]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roar (03:43)
+ 02. Legendary Lovers (03:44)
+ 03. Birthday (03:35)
+ 04. Walking on Air (03:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2235A9C1DE285870F81937B58BD892B2FA3E1F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571108   (388899) от 06.11.2012
+
+Юлия Савичева - Сердцебиение (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_388899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174063   (388808) от 13.10.2017
 
 Елена Темникова - TEMNIKOVA II (2017) [MP3|320 Kbps] <Pop>
@@ -641,122 +754,6 @@ Ruelle - Collection (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Electro-Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C5E7A7DFF4A13C44DE8CB3E26851ED03842D3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414352   (385304) от 08.10.2020
-
-Billie Eilish - No Time To Die (2020) Single [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Time To Die (04:02)Жанр: PopПродолжительность: 00:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACE70503A808288145F83EAFFC9A3C519F44513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414353   (385302) от 08.10.2020
-
-Billie Eilish - No Time To Die (2020) Single [FLAC|Lossless|WEB-DL|tracks]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Time To Die (04:02)Жанр: PopПродолжительность: 00:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184928427D1897E1E93424E7C7E706E595A2A285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571404   (385276) от 08.11.2012
-
-Christina Aguilera - Lotus (Deluxe Version) (2012) [mp3|320 кб/с ]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lotus Intro
- 02. Army Of Me
- 03. Red Hot Kinda Love
- 04. Make The World Move (feat. CeeLo Green)
- 05. Your Body
- 06. Let There Be Love
- 07. Sing For Me
- 08. Blank Page
- 09. Cease Fire
- 10. Around The World(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DB2C0AA32280F8B013B9940BEB7B0750235C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174512   (385227) от 15.10.2017
-
-Mireille Mathieu – Ennio Morricone (2016) [MP3|320 Kbps] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un jour tu reviendras 05:09
-02. J’oublie la pluie et le soleil 03:54
-03. La Califfa 02:34
-04. L’eblouissante lumiere 04:38(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0830DC7CA31C564E1F25634F0F06D436EFCB0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

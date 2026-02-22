@@ -1,3 +1,90 @@
+###  Публикация: 1166703   (424576) от 17.09.2017
+
+Jake Green Band - Live @ Malmo festival (2011) Live [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bad Bad Feeling   (07:50) 
+02.  Blues Don't Bother Me   (03:18) 
+03.  When The Morning Comes   (05:49) 
+04.  Borderline   (05:22) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59EB931F45A6330199C720988A7CBFAACB33C5EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166499   (424436) от 17.09.2017
+
+John Mayall And The Bluesbreakers - A Hard Road (1967) Reissue, 1987, London Records [MP3|320 Kbps] <British Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hard Road
+02. It's Over
+03. You Don't Love Me
+04. The Stumble(   Читать дальше...   )Жанр: British Blues, Blues RockПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EECAC6CC166FE4590DA1B820C2892B3F602479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166745   (424260) от 17.09.2017
+
+The Willows - Tea for Three (2017) [MP3|320 Kbps] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakfast in Bed
+02. Fuddy Duddy
+03. Wishing Well
+04. What Are You Waiting For(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C0FE04AE82E99647901C74343E033BBBFC5804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 709388   (424193) от 11.10.2013
 
 Lee Ritenour - Masterpieces: Best Of The GRP Years (2012) Jazzclub [FLAC|Lossless]<Jazz, Contemporary Jazz>
@@ -659,93 +746,6 @@ Amy Arlo & Almost Blue - Deeper Shade of Blue (2016) [MP3|320 Kbps] <Electric Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0591F21170F33D04FBD139927618B0811CD9BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324749   (421501) от 11.09.2019
-
-Pearl Bailey - The Best of Pearl Bailey (1950-e) 2012, Hallmark [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takes Two to Tango [2:43]
-02. That's Good Enough for Me [2:56]
-03. Row, Row, Row [2:12]
-04. Legalize My Name [3:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A4ABD429496D7CC716981A52188E01E58A336D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324748   (421499) от 11.09.2019
-
-Katie Thiroux - Off Beat (2017) Capri Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off Beat [3:15]
-02. When Lights Are Low [5:24]
-03. Why Did I Choose You? [5:09]
-04. Slow Dance with Me [5:59](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB849933B6446A68958E404702D8D288165D199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324752   (421498) от 11.09.2019
-
-Chet Baker With The Per Husby Trio - The Improviser (1983) 1995, Cadence Jazz Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Margarine [9:37]
-02. Polka Dots and Moonbeams [8:15]
-03. Beatrice [9:04]
-04. Gnid [10:26](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93468F02D5B1526864D07ACD73326136848F135F
 ```
 
 https://mybot314.ru/tekegram_catalog/

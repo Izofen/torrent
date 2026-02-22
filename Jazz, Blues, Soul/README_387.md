@@ -1,3 +1,61 @@
+###  Публикация: 1079358   (295858) от 03.12.2016
+
+VA - Romantic Lovers Music Song - Erotic Jazz Session (2016) [MP3|320 Kbps] <Jazz,Instrumental,Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Romantic Dinner (03:36)
+02.  Music for Love (02:55)
+03.  Romantic Morning (03:01)
+04.  Love Thoughts (03:00)(   Читать дальше...   )Жанр: Jazz,Instrumental,PianoПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9E2E32AE7E8C3431C505EB28DCB0236D8BF298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962273   (295356) от 04.12.2015
+
+Earl Coleman - Earl Coleman Returns (1956) 2013, Universal[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Say It Isn't So [05:43]
+ 02.Reminiscing [05:54]
+ 03.Social Call [06:32]
+ 04.It's You Or No One [05:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C02C94E1954D08C1D17EC778341D903693AE35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962279   (295355) от 04.12.2015
 
 David Liebman Quintet - Doin' It Again (1979) 2015, Timeless Records[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion>
@@ -687,64 +745,6 @@ Eddie Daniels - Memos From Paradise (1988) GRP Records [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E87769AFCC50066425447E44B88EB58F4323FAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334677   (293373) от 30.10.2019
-
-Silent Way - Standby - (B&P Production) (1996) [FLAC|Lossless|tracks + .cue] <Fusion, Cool Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P.S. (08:23)
-02. Standby (11:23)
-03. September (08:49)
-04. Pearls (07:46)(   Читать дальше...   )Жанр: Fusion, Cool JazzПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BDFC676965EF96DB65C0579EC6AC1FAB321F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262662   (292985) от 16.11.2018
-
-ZAZ - Effet Miroir (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Chanson, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demain c'est toi
-02. Qué vendrá
-03. On s'en remet jamais
-04. J'aime j'aime(   Читать дальше...   )Жанр: Nu Jazz, Chanson, SoulПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DE2184EBF637C00DAE561F48B9B38EEAF06114
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,266 @@
+###  Публикация: 1845925   (1051105) от 04.01.2026
+
+Tailgunner - Guns For Hire (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как часто вы помните по-настоящему поражённый альбомом NWOTHM (новая волна традиционного хэви-метала) в наши дни? Для меня — не очень часто. Но это как раз один из тех редких случаев, когда альбом такого рода просто так и делает.
+
+Впечатляющий дебютный альбом, который у нас перед нами, — Guns For Hire, выпущенный недавно образованным британским хэви-металлистом Tailgunner (   Читать дальше...   )01. Shadows Of War 4:12
+02. Guns For Hire 3:25
+03. White Death 4:02
+04. Revolution Scream 3:43(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BBEA0CA6DBA55D6E164C21AF01131D677ACE3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845736   (1050924) от 03.01.2026
+
+Rage - A New World Rising (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несомненно, это отличный год для пауэр-метал групп. У нас были Helloween, Primal Fear и теперь Rage со всей их мощью и металом 1990-х. С альбомом «A New World Rising» группа пишет новую главу своей великой карьеры, доказывая фанатам и другим, что группе не нужно меняться ради перемен, чтобы выжить. С головы до ног «A New World Rising» — это дань мощному звучанию (   Читать дальше...   )01. A New World Rising 1:20
+02. Innovation 3:17
+03. Against The Machine 4:11
+04. Freedom 3:11(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Speed MetalПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62454206621AB6DADEB46C6E1B1A0C5666D73F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845770   (1050883) от 03.01.2026
+
+The Halo Effect - We Are Shadows - The Covers EP (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Death Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Be Somebody 4:16
+02. Dance With The Devil 4:25
+03. If You Where Here 3:59
+04. Shoreline 3:37(   Читать дальше...   )Жанр: Death Metal, Melodic Death MetalПродолжительность: 00:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD447E1BCF08C04F31211066EE3DCA140071064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845779   (1050875) от 03.01.2026
+
+Warbringer - Wrath And Ruin (2025) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050875.jpg" />
+</div>
+
+
+###  Подробнее
+
+I The Sword And The Cross 6:07
+II A Better World 3:46
+III Neuromancer 5:27
+IV The Jackhammer 3:15(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004697B85AF7D30DA8E041EA2F67221095B1D561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845799   (1050847) от 03.01.2026
+
+Various - No Life 'Til Leather - A Tribute To Metallica's Kill 'Em All (2025) Japanese Edition, Compilation [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tailgunner – Hit The Lights 4:15
+02. The Almighty– The Four Horsemen 5:44
+03. Soen– Motorbreath 3:02
+04. Tygers Of Pan Tang– Jump In The Fire 4:29(   Читать дальше...   )Жанр: Heavy Metal, ThrashПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBD5E477BB5044DF842844D8B62136A1D70D364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845662   (1050765) от 02.01.2026
+
+Outrage - Brutal Human Bastard (2013) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brutal Human Bastard
+02. Cryptic Time
+03. Addiction
+04. Days of Disorder(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875DB2CC814A9588878BC61384CE6B3A1278B9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844948   (1050398) от 28.12.2025
+
+Till Lindemann - Zunge 2025 (2023) 2 x CD, Reissue, 2025, Out Of Line [FLAC|Lossless|image + .cue] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050398.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Zunge 04:47
+02. Sport frei 04:13
+03. Altes Fleisch 04:25(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAEF9532E153F30DA0BDA2272A267A3F2E471ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844740   (1050246) от 27.12.2025
+
+Midnight Driver - Dance of the undead (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In vain (04:11)
+02. Born again (04:05)
+03. Take me home (04:32)
+04. One love (04:09)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C993C103C0F59668BE5DF947046327A6E19A5F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844629   (1050044) от 27.12.2025
+
+Bardo Thodol - Sumerian Tragedy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen of the Nile (3:24)
+02. The False Prophet (3:36)
+03. Book of the Dead (5:49)
+04. Visions of the Void (3:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD78CB5BCD5A2593D1E0A404101DB10B15EC565A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844338   (1050024) от 25.12.2025
 
 Cuervo - Abismo Y Ascensión (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -484,269 +747,6 @@ Sacred Leather - Keep The Fire Burning (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43EF1063EC85634CD2510EE79771668A93B48BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840231   (1047283) от 04.12.2025
-
-Hellixxir - Beyond The Frame (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis [00:00:28]
-02. The Sun Will No Longer Rise [00:05:55]
-03. An Overview Of The Great Beyond [00:06:15]
-04. Far Away From My Previous Life [00:04:37](   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F28C1DF5F6716CAFA70B5FDB51CE35124729F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840236   (1047165) от 03.12.2025
-
-Dream Theater - Quarantième: Live À Paris (2025) Box Set, 3 x CD, Special Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энди
-Торли
-В Dream Theater есть ощущение зрелищности, которое мало кто из групп по-настоящему передаёт — внутреннюю грандиозность, ощущение, что каждое шоу — это событие. А в Quarantième: Live À Paris, записанном во время аншлагового европейского тура в честь 40-летия в Adidas Arena, они подчёркивают, почему так происходит. Почти три часа — это, конечно, (   Читать дальше...   )CD1:
-CD1-1 Metropolis Pt. 1 10:14
-CD1-2 Overture 1928 3:25
-CD1-3 Strange Déjà Vu 5:08(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE44622E3238EB2B93AE592D24F283D283EF6C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840221   (1047118) от 04.12.2025
-
-Path Of Sorrow - Horror Museum (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inauguration [00:02:05]
-02. Horror Museum [00:04:57]
-03. Feral Hunt [00:04:38]
-04. Elegy of the Fallen [00:05:49](   Читать дальше...   )Жанр: Melodic Death Metal, Thrash MetalПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0667C0FA96E677E3E49C9E8E0A064E156BB9B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840230   (1047116) от 04.12.2025
-
-Kaunis Kuolematon - Kun Valo Minussa Kuoli (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaiku [00:04:38]
-02. Merta [00:05:30]
-03. Kun Kyynelistä Muodostuu Meri [00:05:57]
-04. Rauniot [00:06:05](   Читать дальше...   )Жанр: Doom Metal, Gothic Metal, Melodic Death MetalПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F44932D78ABFA5F96BDB38AE01E426933137DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840112   (1047001) от 02.12.2025
-
-1914 - Viribus Unitis (2025) [FLAC|Lossless|image + .cue] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War In (The Beginning Of The Fall) 1:30
-02. 1914 (The Siege Of Przemyśl) 4:48
-03. 1915 (Easter Battle For The Zwinin Ridge) 9:14
-04. 1916 (The Südtirol Offensive) 6:11(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7D8663182B57C8B720C87E5C1A081F1BDDAA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839927   (1046981) от 01.12.2025
-
-Mad Max - Heavy Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Will (03:43)
-02. Night Train To Paris (03:19)
-03. Can't Live Without You (03:10)
-04. Hard Days, Lonely Nights (03:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D351D112626DB8A2CD50B13D648D4EFBB62795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839886   (1046893) от 01.12.2025
-
-Feuerschwanz - Knightclub (2025) [APE|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knightclub
-02. Valhalla
-03. Gangnam Style (Psy cover)
-04. Name der Rose(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BDDEC15D7186E454361DF2656B2F8B2DC4A416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839631   (1046703) от 29.11.2025
-
-Iron Brigade - Ill Fated Voyage (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deus Vult (1:57)
-02. Crusader (6:00)
-03. Afterlife Confessions (5:41)
-04. Ill Fated Voyage (6:40)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703ABABABFEF9CDC1F3DBE064CB37C179A3FBEED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839430   (1046560) от 28.11.2025
-
-Dream Theater - Quarantième: Live à Paris (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metropolis Pt. 1 (Live à Paris 2024)
-02. Overture 1928 (Live à Paris 2024)
-03. Strange Déjà Vu (Live à Paris 2024)
-04. The Mirror (Live à Paris 2024)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FA660E655ADDDD72B5CB15725F7FBF827D8E7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

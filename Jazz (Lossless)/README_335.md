@@ -1,32 +1,3 @@
-###  Публикация: 1702350   (115832) от 24.02.2024
-
-Трио - 22 (2023) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мистер Браун
-02. А вы не были на Таити?
-03. Ноябрь
-04. Ром-баба(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45621430F6CB9143FD2D8D17B84876AF5FE1B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702335   (115818) от 24.02.2024
 
 Sullivan Fortner - Aria (2015) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -745,6 +716,35 @@ Lars Gullin - Portrait of the Legendary Baritone Saxophonist: Complete 1951-1955
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F0C31C4F493C314C79B028398CFA76CD5D71D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703876   (114620) от 02.03.2024
+
+Avi Yifrah, Asher Fedi - The Avi Yifrah / Asher Fedi Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chik Chok (3:54)
+02. Buleria (4:02)
+03. Old Song (3:52)
+04. Funk Market (4:48)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FD3528180142170394918C91E9554AD6A07A87
 ```
 
 https://mybot314.ru/tekegram_catalog/

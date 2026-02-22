@@ -1,3 +1,32 @@
+###  Публикация: 990843   (909992) от 26.02.2016
+
+VA - World Dance Music (2004) [FLAC|Lossless|tracks + .cue] <Trance, World & Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rahmaj - Fly to India (1:59)
+02. Gitan Suite - Spanish Dream (1:54)
+03. Lya Cannes - Vuela Vuela (3:00)
+04. Kariber - Mueve (3:29)(   Читать дальше...   )Жанр: Trance, Folk, World, & Country, PopПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4105AE9EFD27D4F3362A1B4929BC9A23598CB5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368674   (909199) от 20.03.2020
 
 VA - FETENFETZER Oldies Party (2002) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
@@ -726,35 +755,6 @@ VA - Radio 538: Hitzone 80 (2017) 2CD [FLAC|Lossless|image + .cue] <Dance, pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE67CCBE9B33D426F5D6E7485430266DB7ADCAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370486   (896915) от 27.03.2020
-
-Little Dragon - New Me, Same Us (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On (03:30)
-02. Rush (03:29)
-03. Another Lover (04:26)
-04. Kids (04:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D66D75B8CF5369C8DEABA8B2646D258F6EBE89E
 ```
 
 https://mybot314.ru/tekegram_catalog/

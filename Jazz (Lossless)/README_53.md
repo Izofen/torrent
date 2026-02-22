@@ -1,3 +1,33 @@
+###  Публикация: 869111   (893123) от 14.02.2015
+
+The New York Hardbop Quintet - A Mere Bag Of Shells (2001) [FLAC|Lossless]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Leevin Von Cleefe - 5:22
+02. A Sunny Valentine - 7:00
+03. Cliff's Edge - 6:03
+04. Time Waits - 6:19
+05. Hells Bells - 7:56(   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CFAE1D660D5F70490E9121A956D3E297F116FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869161   (893122) от 14.02.2015
 
 N-Groove - It's Who We Are (2007) [WavPack|Lossless]<Smooth Jazz>
@@ -772,35 +802,6 @@ Nicki Parrott - Sentimental Journey (2015) [FLAC|Lossless|image + .cue] <Contemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AEDCDBC428E37C81813CBE9C9D8010F60CE666B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994119   (891571) от 07.03.2016
-
-Nicki Parrott - Angel Eyes (2014) [FLAC|Lossless|image + .cue] <Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Be Around
-02. You Make Me Feel So Young
-03. The Nearness Of You
-04. I'll Never Be The Same(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795E8A9FF44C1DAEB8F1E024102A06FB8B2114A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

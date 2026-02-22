@@ -1,3 +1,32 @@
+###  Публикация: 1337965   (270688) от 14.11.2019
+
+James Williams, Richard Davis, Ronnie Burrage - I Remember Clifford (1990) DIW [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As I Live and Breathe [9:01]
+02. I Remember Clifford [6:29]
+03. Take the Coltrane [5:29]
+04. Simone [7:48](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B13233326B077226E9DBC44DB61E6EEA904D1B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338216   (270682) от 14.11.2019
 
 Jay Thomas With The Oliver Groenewald Newnet - I Always Knew (2018) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -716,35 +745,6 @@ Harry Connick, Jr. & Kelli O'Hara - Songs From Thou Shalt Not (2006) Columbia Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C85D94D32771232C05F1E2A0A0C6F94B0FC7F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338632   (269015) от 16.11.2019
-
-Junior Mance - Three Classic Albums Plus 1959 - 1961 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269015.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. A Smooth One [3:31]
-02. Miss Jackie's Delight [3:56]
-03. Whisper Not [4:23](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 02:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40F4E29FBBDAD21785989856B40A129BFD2C969
 ```
 
 https://mybot314.ru/tekegram_catalog/

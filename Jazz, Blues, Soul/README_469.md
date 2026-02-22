@@ -1,3 +1,32 @@
+###  Публикация: 1665360   (182535) от 30.09.2023
+
+Paul Coombs - Paul's Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Higher Power (2:56)
+02. Work That Thing (3:50)
+03. Paul's Blues (4:03)
+04. Devil's Daughter (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38A36963D6D72735AC910EAED8CC36913BAB807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665353   (182531) от 30.09.2023
 
 Michael Wolff - Portraiture, The Blues Period (1998) Fuel 2000 [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ The Thelonious Monk Quartet - Monk's Dream (1962) 2014, Original Recordings Grou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9816086175E6C1999A59572D710957123E3F7459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665619   (181574) от 01.10.2023
-
-Kaoru Nakasone - Fragrance (2000) M&I [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy [5:20]
-02. I Didn't Know What Time It Was [3:51]
-03. Fever [5:04]
-04. Love Is Like That [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C100BB8A4DDB67AB5D8D8FBA6608AE98BAC8BEF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

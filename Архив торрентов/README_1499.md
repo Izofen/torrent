@@ -1,3 +1,32 @@
+###  Публикация: 1108288   (864631) от 24.02.2017
+
+Thorbjorn Risager & The Black Tornado - Change My Game (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Used To Love You (3:51)
+02. Dreamland (5:52)
+03. Change My Game (5:00)
+04. Holler 'N' Moan (4:44)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16D33F2FA4E9AFBCB86AB2F9F22E936C1D3FAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999224   (864624) от 22.03.2016
 
 xrecode II 1.0.0.230 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -656,32 +685,6 @@ VA - Future Trance 79 (Mixed by Alex Megane) (2017) [MP3|320 Kbps] <House, Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DF8385B8DD27B0CDFD77375DAEAE30EAC38A010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108165   (864531) от 24.02.2017
-
-Wise Program Uninstaller 1.99.108 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита для удаления установленных в системе программ. Позволяет воспользоваться для удаления как стандартными средствами системы, так и собственными инструментами. Имеется инструмент удаления записей об уже деинсталлированных программах, возможность быстрого доступа к записи выбранной программы в реестре, а также поиск подробностей о приложении в Google.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06BBBA533625E09BE98EE1647E1A5B226D9104B
 ```
 
 https://mybot314.ru/tekegram_catalog/

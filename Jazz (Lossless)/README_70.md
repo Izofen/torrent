@@ -1,3 +1,38 @@
+###  Публикация: 305283   (857111) от 07.03.2011
+
+Tony Monaco - A New Generation (2003) [FLAC|Lossless]<Jazz, Hammond B-3>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Pasta Faggioli (Monaco) [6:27]
+02. Homily (Monaco) [6:24]
+03. Katarina's Prayer (Monaco) [5:58]
+04. Flat Tire (Monaco) [6:13]
+05. Mona Lisa (Evans, Livingson) [5:34]
+06. Mozzarella (Monaco) [6:52]
+07. Aglio E Olio (Monaco) [4:01]
+08. Oh Marie (DiCapua, Prima) [5:02]
+09. Waltz of the Angels (Monaco) [2:20]
+10. Interview With Pete Fallico's Doodlin LoungeЖанр: Jazz, Hammond B-3Продолжительность: 00:50:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 769326   (857102) от 22.03.2014
 
 Erroll Garner - Contrasts (1998) [FLAC|Lossless]<Bop, Swing, Piano Jazz>
@@ -791,41 +826,6 @@ Erroll Garner - Compact Jazz (1987) [APE|Lossless]<Bop, Swing, Piano Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52C4FEF23D6765AFFA23454BE6C0659A70101A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769479   (855138) от 23.03.2014
-
-Kiri Te Kanawa - Kiri Sidetracks - The Jazz Album (1999) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. A Sleepin' Bee
-02. Honeysuckle Rose
-03. Cute
-04. It Could Happen to You
-05. Like Someone in Love
-06. Autumn Leaves (Feuilles Mortes)
-07. It Never Was You
-08. The Shadow of Your Smile
-09. Too Marvellous for Words
-10. Angel Eyes(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB346D81C7065186968F65032FE90EDD34624C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

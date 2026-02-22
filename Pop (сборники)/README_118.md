@@ -1,3 +1,32 @@
+###  Публикация: 1684173   (127799) от 15.12.2023
+
+VA - Музыка для машины Vol.52 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2xa - In Love (00:02:23)
+02. Ofenbach Feat. & Norma Jean Martine  - Overdrive (Extended Mix) (00:03:40)
+03. Sam Wick - Облаком (00:02:51)
+04. Aquaneon - Эта Любовь (00:01:57)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B49E8366E176ACAB44549115404E3729D00ED07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684709   (127478) от 17.12.2023
 
 VA - Музыка для машины Vol.54 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -716,35 +745,6 @@ Mode - One  Compilation (2024) [MP3|320 Kbps] <Euro Disco /Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BC85A90834731F87453E6E8B6111058325979FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738763   (106065) от 28.07.2024
-
-VA - National Pop Dance Music Vol.79 (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106065.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beyonce - Texas Hold 'em
-002. Flo Milli Feat. Sza - Never Lose Me
-003. Annalisa - Sinceramente
-004. Ariana Grande - We Can't Be Friends(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11CEA6FF7301FF73997D3BDE84B0E1DF962FA91
 ```
 
 https://mybot314.ru/tekegram_catalog/

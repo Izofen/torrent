@@ -1,3 +1,32 @@
+###  Публикация: 1190842   (265990) от 11.12.2017
+
+Аспид - Extravasation (1992) Limited Digipak Edition, Reissue, Remaster, 2015, Metal Race [FLAC|Lossless|image + .cue] <Technical Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [02:32]
+02. It Came (Aspid) [07:40]
+03. Towards One Goal [05:59]
+04. Give Me (Play for a Ballet) [08:40](   Читать дальше...   )Жанр: Technical Thrash MetalПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDBF270D76FCA677FC31DE40E263BF743BEE321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191068   (265112) от 12.12.2017
 
 Ольга Кормухина - Неизданное (2015) [APE|Lossless|WEB-DL|tracks] <Rock>
@@ -738,35 +767,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09EF858C005EACA73B71C86D615A32E15ABF54E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836428   (252523) от 10.11.2025
-
-Various Artists - Любэ 35. Всё опять начинается. Трибьют. Часть 1-2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252523.jpg" />
-</div>
-
-
-###  Подробнее
-
-В честь 35-летия группы «Любэ» был запланирован выход трибьют-альбома «Всё опять начинается», где известные артисты российской эстрады исполняют культовые песни группы в новом звучании. «Любэ» ворвались на эстраду в начале 1990-х. Творчество выходит за рамки одного жанра, в репертуаре — произведения на все случаи жизни. Уже 35 лет композиции группы в лидерах хит-парадов, (   Читать дальше...   )CD1 - Любэ 35. Всё опять начинается. Трибьют. Часть 1:
-01. Александр Маршал - Комбат (00:05:04)
-02. Гарик Сукачёв - Станция ''Таганская'' (00:03:35)
-03. Калинов Мост - Не губите, мужики (00:03:22)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32216BC268F62215ADDFC4AD5B1D42B02C2D3F58
 ```
 
 https://mybot314.ru/tekegram_catalog/

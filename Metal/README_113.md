@@ -1,3 +1,33 @@
+###  Публикация: 852783   (219804) от 23.12.2014
+
+Sister Sin - The Very Best Of (2014) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Beat The Street
+ 02. Dance Of The Wicked
+ 03. Better Than Them
+ 04. 24-7
+ 05. Heading For Hell(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD373FC818135974C7212638FC219D545D68678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651925   (219751) от 09.08.2023
 
 Coffin Hag - Prairie Tyrant (2023) [MP3|320 Kbps] <Psych Stoner Doom>
@@ -749,35 +779,6 @@ Shores of Null - The Loss of Beauty (2023) [MP3|320 Kbps] <Melodic Black, Doom M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57A669C998AA01B4F950343128DBE97996F2BB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654051   (213705) от 18.08.2023
-
-Skinher - Heartstruck (2023) [MP3|320 Kbps] <Heavy Metalб Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are Next! (03:58)
-02. The Maniac is Back (05:42)
-03. Interstellar Love Hysteria (04:30)
-04. Night Cull (05:48)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7343983F09984A8315DF12294EC69E1C610D90
 ```
 
 https://mybot314.ru/tekegram_catalog/

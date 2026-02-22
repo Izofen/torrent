@@ -1,3 +1,119 @@
+###  Публикация: 1046217   (552779) от 26.08.2016
+
+Britney Spears - Glory (2016) Deluxe Edition (Explicit) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Electro, Vocal, Ballad, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation (3:19)
+02. Make Me... (feat. G-Eazy) (3:51)
+03. Private Show (3:55)
+04. Man On The Moon (3:46)(   Читать дальше...   )Жанр: Pop, Electronic, Electro, Vocal, Ballad, SynthpopПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91754673CBD01BBA73CFE480A2BBD462264E0353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237370   (552473) от 23.07.2018
+
+Gayalaxy - EP & Album (2017, 2018) [MP3|320 Kbps] <Electronic, Ambient, Downtempo, Progressive Trance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Португальский композитор и музыкант. Настоящее имя Hélder José Martins. Мастеринг Дмитрия Редько в студии Astropilot Mastering.01. Ashes Of Time (11:50)
+02. Hang On The Moon (10:22)
+03. Duduk Spell (10:18)
+04. Triskel Gateway (Feat. Joyfull Natives) (6:56)(   Читать дальше...   )Жанр: Electronic, Ambient, Downtempo, Progressive TranceПродолжительность: 01:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D613A39A2FA05E93DBB8329EF14B37EC3A5349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046609   (551858) от 27.08.2016
+
+VA - Unclassics: Obscure Electronic Funk & Disco 1978-1985 (2004) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Deep House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untro -  Untro (0:07)
+02. Discotheque -  Disco Special (4:54)
+03. Zodiac -  Pacific (3:49)
+04. Pluton & Humanoids -  World Invaders (4:46)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Deep House, DiscoПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78441F2EE157C72E74E3C9A898D279AE855327B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046468   (551847) от 27.08.2016
+
+Moon Birds - 2 Albums (1977, 1978) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский студийный проект в стиле "спейс-диско" композитора, продюсера и режиссера Гумберта Ибахе (Humbert Ibach, настоящее имя Умберто Петруччи) с привлечением сессионных музыкантов.01. Cosmos No. 1 (2:20)
+02. Fly In The Night (3:08)
+03. Safari Rock 1 (2:17)
+04. Safari Rock 2 (2:20)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A0C5FD5E3C4E5E08FAC1DBB3C0BC6CC1D1BDD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046567   (551787) от 27.08.2016
 
 VA - I-Robots - Italo Electro Disco Underground Classics (2004) CD [MP3|320 Kbps] <Electronic, Italo-Disco>
@@ -629,122 +745,6 @@ VA - Global (2016) [MP3|192 Kbps] <Indie Pop, Dream Pop, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47BA18FE9BA80CC40D970CBE92456BAD3E3BA73C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047708   (549173) от 30.08.2016
-
-Hospital - Uncommon Sense (2015) [MP3|320 Kbps] <Indie Pop, Brit Pop, Dream Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelation
-02. Gift
-03. Honestly
-04. Lost(   Читать дальше...   )Жанр: Indie Pop, Brit Pop, Dream PopПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D5647D063115AA8FE537C5DF94ADD7F9F553FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047587   (549095) от 30.08.2016
-
-Saragossa Band - Saragossa (1980) Ariola, 1993 [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rasta Man
-02. Chico Cipito
-03. Samba Olé, Rumba Ok (Making Bum Bum All Night)
-04. Going Up, Going Down(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B98DB20A1E79B57CE8D2EB21DFAB3B65A2A8F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047691   (549056) от 30.08.2016
-
-Modern Talking - Remixes 2 (2007) [FLAC|Lossless|tracks + .cue] <Euro Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geronimo's Cadillac (Long Vocal Version) (5:06)
-02. Brother Louie (Instrumental Version) (4:02)
-03. TV Makes The Superstar (Extended Version) (5:04)
-04. You Are Not Alone (Extended Version) (4:55)(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BF411988709E093BB37E407C5B014FE92A8F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310049   (548853) от 22.06.2019
-
-The Drums - Brutalism (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Cloud (03:28)
-02. Body Chemistry (04:47)
-03. 626 Bedford Avenue (03:22)
-04. Brutalism (03:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F06142DD537233115ACEE8850A4626913160483
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,54 @@
-###  Публикация: 1509366   (795004) от 12.11.2021
+###  Публикация: 1200553   (795735) от 21.01.2018
 
-Wonders - The Fragments Of Wonder (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+Горные лыжи. Кубок мира 2017–2018. Венген (Швейцария). Мужчины. Скоростной спуск (13.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795735.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 января 2018 года, суббота.14:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Венген (Швейцария).
+Мужчины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64FBDE138C19C48092AB0676D8C0953F8825CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200230   (795734) от 21.01.2018
+
+Mortes Saltantes - Yomi Kafeli (2013) [FLAC|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795004.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795734.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Good & Bad
-02. Pretender
-03. Losing The Dream
-04. Beyond Redemption(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:44:07
+Call From Yomi (Demo 1998)
+01 - Izanafi
+02 - Tsavulafi
+03 - Tofulafi(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:03:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDC141F58EFB7B85B7C2DB1868E93B059C42FED6
+magnet:?xt=urn:btih:1D51C81A9E2A1A884A4FF3FEF852985B2E8898A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,137 +56,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509383   (795003) от 12.11.2021
+###  Публикация: 1200570   (795733) от 21.01.2018
 
-Keyboard Maestro 10 v10.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Keyboard Maestro - мультифункциональная утилита, которая может создавать макросы, для автоматизации каких-либо повторяющихся действий, вызываемых с помощью клавиатурных сочетаний, для приложений, окон, документов, буфера обмена и т.д.
-А что если вам нужно отправить картинку в определенную папку Dropbox или залить на хостинг изображений? В этих случаях цепочка действий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: Stairways Software Pty Ltd.Поддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839CE4FAE0F99AC220ABED7DC69B56FC7D6B5918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509367   (795002) от 12.11.2021
-
-Indecent Noise - Everything Is Connected (Expanded & Extended) (2021) [MP3|320 Kbps] <Trance, Tech Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indecent Noise - Brightest Day (Original Mix) (02:13)
-02. Indecent Noise - White Lotus (Original Mix) (04:32)
-03. Indecent Noise & Noire Lee - Sunglasses At Night (Extended Original Vision) (07:17)
-04. Indecent Noise & OnTune - Visions Of The Dreamer (Extended Mix) (08:12)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C108B7FDB2C1419983F1CA432CFB7E3662CED40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509381   (795001) от 12.11.2021
-
-OCRKit Pro 21.11 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное распознавание текста для «безбумажного» офиса. Архивирование, поиск, редактирование и перевод, для Mac
-Конвертирование любых файлов формата PDF и графических файлов в файлы формата PDF с возможностью поиска по тексту или в файлы форматов RTF, HTML и TXT.
-OCRKit представляет собой простое и рациональное приложение для конвертирования файлов формата (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2012Разработчик: © 2021 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89EB433125BFF5B6955DB6621EA45C1BFF743B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509376   (795000) от 12.11.2021
-
-Recompress 21.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Re/compress - это мощная утилита сжатия PDF, которая позволяет изменять размеры существующих PDF-файлов для архивирования или распространения в Интернете или по электронной почте.
-Многие производители PDF, например. Например, многофункциональные принтеры или другие простые приложения используют самые современные формы сжатия при создании ваших PDF-документов (или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2021 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B63D68ECA6D7A3F4F4A786872CD3774523B8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273929   (794999) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019 (U-20). 1/4 финала. Россия — Словакия (03.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Биатлон. Кубок Мира 2017-2018. 6-й Этап. Антхольц-Антерсельва (Италия). Женщины. Гонка преследования (20.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794999.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3 января 2018 г., стадион «Роджерс-арена» (Ванкувер, Канада)
-1/4 финала. Россия — СловакияТелекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:05:26
+20 января 2018 года, суббота. 15:15 МСК
+6-й этап Кубка Мира по биатлону 2017-2018. Антхольц-Антерсельва (Италия)
+Женщины. Гонка преследования 10 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:39:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D384877487EFF4C1676FAF644EBBD5C0834E6FAD
+magnet:?xt=urn:btih:798842B7AEF82857E25443231FE22E95EB193CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -165,55 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274105   (794998) от 05.01.2019
+###  Публикация: 1200220   (795732) от 21.01.2018
 
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа A. Россия — Канада (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 января 2019, вторник. 04:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа A.
-Россия — Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86360B274784FF29E34EF3201197AA6B1B290443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274134   (794997) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019 (U-20). 1/2 финала. Россия — США (05.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Imperador Belial - Morbid Rites (2013) [FLAC|Lossless|image + .cue] <Black Metal>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794997.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795732.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 января 2018 г., стадион «Роджерс-арена» (Ванкувер, Канада)
-1/2 финала. Россия — СШАТелекомпания: Матч! ИграЖанр: СпортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:19
+01 - Lustful Sin
+02 - Black Alcoholic Vomit
+03 - Tales From Beyond The Grave
+04 - Visions Of A Dark Age(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:30:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55C648E25832F99FB991B143917E0662CB2CC09C
+magnet:?xt=urn:btih:FE2D5B32F5EF2D54820273570352898FF69015C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,196 +113,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274122   (794996) от 05.01.2019
+###  Публикация: 1200390   (795731) от 21.01.2018
 
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа B. США — Финляндия (2018) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 января 2019, вторник. 06:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа B.
-США — Финляндия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11F129D94B86D27A291498A686886538A2D7BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274170   (794995) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. 1/4 Финала. Швеция — Швейцария (02.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794995.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 января 2019, четверг. 00:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-1/4 Финала.
-Швеция — Швейцария(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BA0427258E1DAA8A668FBB71CAF297D0E078A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274181   (794994) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. 1/4 Финала. США — Чехия (02.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794994.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 января 2019, четверг. 04:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-1/4 Финала.
-США — Чехия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAAA5CA1F63178871522FC739E03E6F2D541ABE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274175   (794993) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. 1/4 Финала. Канада — Финляндия (02.01.2019) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794993.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 января 2019, четверг. 02:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-1/4 Финала.
-Канада — Финляндия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410BE55C46D88030ED3581B1BF021E870E93B983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274074   (794992) от 05.01.2019
-
-Brave Browser 0.58.18 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFCA3A6FBED546FE545168716EE08C28D029540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273864   (794991) от 05.01.2019
-
-Галина Гончарова | Азъ есмь Софья. Крылья Руси (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мало выиграть войну, надо не проиграть мир. А враги не унимаются. Поднимает голову старый противник – Швеция, плетет интриги французский король, бунтует Польша… И разыгрываются многоходовые комбинации, и в ход идут запрещенные приемы, и на кон ставится память о себе и историческая правда. Но у царевны Софьи нет выбора. А есть знания и желание идти вперед. И еще ей (   Читать дальше...   )Жанр: Историческое фэнтези, ПопаданцыПродолжительность: 17:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4A923209CF16B08AD8948DA807C36FD5D38B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274065   (794990) от 05.01.2019
-
-ВИА «Волга-Волга» - Суши за репост (2018) [MP3|320 Kbps] <Rock, SKA>
+Magnesium - Buried 'N' Live (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794990.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Увертюра (01:34)
-02. Волжский рок-н-ролл (03:01)
-03. Гваделупа (03:20)
-04. Ой, лю-ли (03:24)(   Читать дальше...   )Жанр: Rock, SKAПродолжительность: 00:49:34
+Buried Alive (Demo 1994)
+01 - Saxon
+02 - Time Machine
+03 - Metalbringer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:17:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:077FA7B228E91FD30B8645555D8E1FDDA1306579
+magnet:?xt=urn:btih:E8EA92C6292F14F3F60E77ECB6DC5430DC6C8C52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,133 +142,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274126   (794989) от 05.01.2019
+###  Публикация: 1200397   (795730) от 21.01.2018
 
-Wise Memory Optimizer 3.6.4.108 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная утилита для освобождения оперативной памяти, увеличения скорости и улучшения производительности ПК. Позволяет высвободить и настроить оперативную память, занятую бесполезными приложениями. Проста в использовании, подходит как новичкам, так и экспертам.Язык интерфейса: Русский, Английский, Украинский, Белорусский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE28D0940B1DE88528EE7D5049A3228D1A81C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274171   (794988) от 05.01.2019
-
-К.К. Ким (ред.) | Средства электрических измерений и их поверка (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое учебное пособие предназначено по своему содержанию для всех, кто желает познакомиться с принципами действия средств электрических измерений и их поверкой. Авторы имели при этом в виду обучающихся в высших учебных заведениях, но и практических работников электротехники, занятых в лабораториях, на электрических подстанциях, электрическом транспорте и т. (   Читать дальше...   )Жанр: МетрологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B32ADF88FC871E6BCE621B458DBDFCAF6959AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274006   (794987) от 05.01.2019
-
-Wise Registry Cleaner Pro 10.1.4.672 RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, Белорусский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB4E7ADA44949F000D3F97A6495CA0C2A818064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274032   (794986) от 05.01.2019
-
-Пираньи 2: Нерест / Piranha Part Two: The Spawning (1981) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794986.jpg" />
-</div>
-
-
-###  Подробнее
-
-На одном из островов Карибского моря внутри затонувшего судна найдена пара мертвецов. Инструктор по подводному плаванью местного курорта Энн Кимбруг вместе с одним из отдыхающих Тайлером Шерманом проникают в морг с целью выяснить причину смерти одного из аквалангистов, который был другом её сына. Там они обнаруживают, что тела объедены в нескольких местах.
-Тогда (   Читать дальше...   )Производство: США, Италия, Нидерланды / Brouwersgracht Investments, Chako Film CompanyЖанр: Ужасы, ТриллерРежиссер: Джеймс Кэмерон, Овидио Г. Ассонитис, Миллер ДрэйкАктеры: Тришиа О`Нил, Стиви Марачек, Лэнс Хенриксен, Рики Полл Голдин, Тед Рикерт, Лесли Грейвз, Кэрол Дэвис, Конни Лунн Хедден, Арни Росс, Трэйси БергПеревод: Авторский (одноголосый закадровый) Андрей ГавриловСубтитры: английскиеПродолжительность: 01:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B51929024E341AE03EE1F04B285D473E717C2C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274069   (794985) от 05.01.2019
-
-Sweet - The Rainbow - Live In The UK 1973 (2018) [MP3|320 Kbps] <Glam Rock, Rock>
+Maradando Karasodas - Husdaralo (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794985.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Stripper (Intro)
-02. Hell Raiser
-03. Burning / Someone Else Will
-04. Rock’n Roll Disgrace(   Читать дальше...   )Жанр: Glam Rock, RockПродолжительность: 01:12:56
+01 - Egy Perc
+02 - Húsdaráló
+03 - Eltaposnak
+04 - Nyisd Ki A Szemed(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:28:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:895A628A98B9656383DABA9F0A24B25AD06664B5
+magnet:?xt=urn:btih:B33EFC2436CF8B5210666B591F395517DC968055
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,28 +171,482 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274075   (794984) от 05.01.2019
+###  Публикация: 1200387   (795729) от 21.01.2018
 
-VA - Anthology Of Blues (Vol. 01) (2019) [MP3|320 Kbps] <Blues, Rock Blues>
+Deserted Fear - Dead Shores Rising (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:47
+02. The Fall of Leaden Skies 03:58
+03. The Edge of Insanity 04:04
+04. Open Their Gates 03:31(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA71468921E6113567503288FFEF1C34B98A95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200399   (795728) от 21.01.2018
+
+Masacre - Metal Medallo Attack (2012) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ola De Violencia [1991]
+01 - Sangrienta Muerte
+02 - Mórbida Implosión
+03 - DecadenciaЖанр: Death MetalПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:866BF54FD96D8FDA8FFAFD0CADC2D08DB7C5AAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200547   (795727) от 21.01.2018
+
+Global Goon - Rivers (2015) J-HOK records [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boewsdf (02:23)
+ 02. Azztek (04:40)
+ 03. Snaphl (03:12)
+ 04. Starwhas (02:44)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F8F2D2616EA2B8F59327B9C912673E286D9B90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200550   (795726) от 21.01.2018
+
+А. Апухтин и др. | Стихотворения (1910) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник стихов русских поэтов для детей среднего возраста.Жанр: СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C7364D5E62185418DC8CA2EA83604728E71BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200389   (795725) от 21.01.2018
+
+Khaos Order - Hate - Blasphemy - Destruction (2014) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hipocrisy Of Bastards
+02 - Oscuritan Lupus
+03 - Pest
+04 - Winter In The Blood(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3ECAED5BCC72B5B4352D50400706F7AF3B0F6C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200388   (795724) от 21.01.2018
+
+Drunken Bastards - Posercrusher (2007) [FLAC|Lossless|image + .cue] <Black Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bordello Blues
+02 - Posercrusher
+03 - Alcoholic Big Tits
+04 - Drink With Satan!(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E28540803D42138E1A1BEF818C6EBCF8885AA21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509221   (795723) от 11.11.2021
+
+VA - Krafted Chill 2021 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuckoo Hill Orchestra - Driftwood (5:32)
+02. Steen Thottrup, Francesca Faggella - 1991 (5pm - London Love Mix) (4:31)
+03. Kris O'Neil, Waves On Waves - Till You Tell Me (Simon Sinfield Chill Mix) (4:44)
+04. Paul Sawyer, Laura Welle - The Wave (Poolside Mix) (7:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282D4DBF3464DBC356784AE7E4E31CD21F045092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509074   (795722) от 11.11.2021
+
+Feeder 4 v4.3.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes. Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
+С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2021Разработчик: © 2021 ReinventedSoftwareПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B12690CC3008C15461D3DD43AC1319BDC51025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509194   (795721) от 11.11.2021
+
+GoodNotes 5 v5.7.45 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
+Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 11.11.2021Разработчик: © 2021 Time Base Technology LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A66038BAF1661FD69C92E72673DDEBE8F28EBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509155   (795720) от 11.11.2021
+
+VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 4 (2016) [AAC|~293 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. dgn - Put Me Out (Original Mix) (5:29)
+02. Cut Velvet - Hair Look (Original Mix) (7:24)
+03. Soul Fire Ensemble - Just as Well (Original Mix) (2:51)
+04. Ronny Starr - One Off (Original Mix) (2:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A2D7551E760E75BF7C77ACCF1962151EE2FD0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509160   (795719) от 11.11.2021
+
+VA - Balearic Lounge Winter 2021 (2020) [AAC|~320 Kbps] <Lo-Fi, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Oakland, Ruben Lima - Remember (Original Mix) (5:28)
+02. Boyzen SA, Butler - Never Meant to Be (Original Mix) (6:11)
+03. Pier-O, Marga Sol - Air of Love (Original Mix) (5:50)
+04. Roberto Bronco - Rollin (Original Mix) (5:02)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759F19439BCE175E61A98B28D2AABDEDB25BEDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509222   (795718) от 11.11.2021
+
+VA - Dreams Boutique (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schriever - Sublime (5:48)
+02. Adaptationes Mirabiles - Near the Mill (5:53)
+03. Miraflores - Habanera (5:49)
+04. Aktnuance - Beautiful Beginning (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95948519613186961B45BF0E976738C14EA4FA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509149   (795717) от 11.11.2021
+
+VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 1 (2016) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tlx 20 - Morder (Original Mix) (3:04)
+02. Key of Dreams Fiftheen - Hot Chocolate (Original Mix) (4:54)
+03. ITB Sea - Bacon Four (Original Mix) (4:50)
+04. Theo Lopez - The Bass (Original Mix) (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0808E921A06725769F29A2FB1331A57696AEF219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509163   (795716) от 11.11.2021
+
+VA - Balearic Lounge Winter 2022 (2021) [AAC|~324 Kbps] <Lo-Fi, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandra Hampton, Merge Of Equals - Beautiful (Original Mix) (4:26)
+02. No Noise - Karma Shabda (Original Mix) (5:07)
+03. InnamoratoDellaMusica - Venice (Original Mix) (4:00)
+04. Lounge Groove Avenue - Smoking Jazz (Original Mix) (2:29)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81FB6C5FA9F9C885ABE7532134F484C144FD8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509152   (795715) от 11.11.2021
+
+VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 3 (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polarity - Litu (Original Mix) (2:16)
+02. Natural Factor - Next Us Now (Original Mix) (3:33)
+03. Chill Art - Runi (Original Mix) (5:09)
+04. Mark Sia - Kalin Twins (Original Mix) (3:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A41A8806D0341CBD655075EFA7C1930F920E3E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200525   (795714) от 21.01.2018
+
+О. В. Григорьева | Что было и чего не было (1909) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12BBECE746D96D7FF233536E5083A8C7DC04EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200468   (795713) от 21.01.2018
+
+VA - Empire Records - Lounge 10 (2018) [MP3|320 Kbps] <Lounge>
 
 >>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794984.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Steve Fister - Deeper Than The Blues
-002. Southern Gentlemen - Exotic Dancer Blues
-003. Pat Travers - Look Me Up
-004. Tony Joe White - Gumbo John(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 10:58:34
+01. Mark Eliyahu - Journey (Hakan Akkus & V-Dat Remix)
+02. Christos Fourkis, Joahn Dashi - Come in My Life (Bes and Meret Remix)
+03. W4velike - Lovin U
+04. Beat Sounds - In Zaire (Extended Mix).(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:09:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4A9F90AAA19E6384992176E29F814161C9971C0
+magnet:?xt=urn:btih:4C5AAD0487CC22B3E4645FE78CE7758E3D0E470E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,132 +654,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274104   (794983) от 05.01.2019
+###  Публикация: 1200490   (795712) от 21.01.2018
 
-Hidden Expedition 16: The Golden Secrets / Секретная экспедиция 16: Золотой секрет (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Штаб-квартира H.E.L.P. прерывает ваш горнолыжный отпуск с важным заданием: отправиться в Женеву, чтобы приобрести древний артефакт, который возможно содержит информацию о происхождении H.E.L.P. Но это будет нелегко. Вы должны стать победителем торгов на аукционе с высокими ставками. У H.E.L.P. конечно есть деньги! К сожалению, Вы не единственные, кто заинтересовался (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480304905AE810AAB5DF67E0EC6D0F001796CBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274120   (794982) от 05.01.2019
-
-Mystery Case Files 17: Rewind / За семью печатями 17: Вспять (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странные сообщения поступают из заброшенного отеля Victory. Прибыв на место, Вы обнаруживаете знакомых Вам по предыдущим делам людей, пойманных во временную ловушку! Узнайте, где они находятся, а также кто, и зачем вмешался в их прошлое. Успеете ли Вы исправить линию времени в каждом из случаев? Узнайте ответы прямо сейчас!Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE28AAAF8F66C4CEA98BE594FE7F5C830E61EE7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273959   (794981) от 05.01.2019
-
-Рамки - С Рождеством Христовым! [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многослойный PSD, рамки С Рождеством Христовым! Формат А4 для удобной печати и для вашего творчества.Формат: PSDРазрешение файлов: 3508х2480-2480x3508
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5232B2BE9FA7D5774AA6EA42331BEF56F2BC5ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274124   (794980) от 05.01.2019
-
-3D модели - Mercedes-Benz GLK [MAX, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794980.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Mercedes-Benz (не удалось найти оф-сайт)Формат: MAX, 3DS, C4D, FBX, LWO, OBJ, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F03163200D123DA4409F5F20C1105A5BEE7F601B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200654   (794979) от 22.01.2018
-
-VA - Dark Uplifting Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance>
+Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Club House, Funky>
 
 >>Electronic
->>Trance
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794979.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Roman Messer  -  Forever (Extended Mix)  5:48
-02.  Cyril Ryaz  -  Dark Side (Extended Mix)  6:40
-03.  NoMosk  -  Black Light (feat. Maria Milewska) (Extended Mix)  5:57
-04.  R3dub  -  Red Sun (Extended Mix)  6:07(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:37:21
+01. Beat Of The Drum (4:54)
+ 02. Electric (5:15)
+ 03. Never (Glaccklich) (5:23)
+ 04. Loving You (6:01)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Club House, FunkyПродолжительность: 05:13:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF2C817D279CA90006DF33108BFE60052D364FE1
+magnet:?xt=urn:btih:D60D8ED0F65CCB20FD9A3CB870FBD701C418A56F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200222   (795711) от 21.01.2018
+
+Necrotomy - Inhuman Mankind (1991) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Selfmutilate
+02 - Insestance Devastation
+03 - Vision Of The Altar
+04 - Atomic Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9752E0190D2CD7C30F105F8E8A10EFF0343553D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200147   (795710) от 21.01.2018
+
+VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Brooklyn Bounce - Club Bizarre (Djs From Mars Rmx) (4:57)
+02.Groove Coverage - Innocent (Club Mix) (3:33)
+03.Basslover United - Ghetto Supastar (Extended Mix) (4:16)
+04.Franky 8 - Rhytm & Drums 2010 (3:09)(   Читать дальше...   )Жанр: Euro House, TranceПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6DDE774AD81A5B0C890349B3D60119D2CEE120
 ```
 
 https://mybot314.ru/tekegram_catalog/

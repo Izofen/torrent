@@ -1,3 +1,174 @@
+###  Публикация: 1772112   (31463) от 09.01.2025
+
+Sevendust - Studio Albums (14 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sevendust - американская рок-группа из Атланты, Джорджия. Основана в 1994 году.1997 - Sevendust
+1999 - Home
+2001 - Animosity
+2003 - SeasonsЖанр: Nu Metal, Hard RockПродолжительность: 12:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0BC8293CADA9E7A6C024203F19C040FD5798FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772109   (31458) от 09.01.2025
+
+The Halo Effect - March Of The Unheard (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic death metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conspire To Deceive (3:57)
+02. Detonate (3:58)
+03. Our Channel To The Darkness (3:29)
+04. Cruel Perception (4:04)(   Читать дальше...   )Жанр: Melodic death metalПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84992B19E112EE12001EFDED88AD42DF3A7CDA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772411   (31370) от 10.01.2025
+
+Malia - One Grass Skirt to London (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal jazz, Soul, Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Way We Were (6:03)
+02.  Pure Imagination (3:35)
+03.  Suicide Is Painless (3:23)
+04.  I Have Nothing (4:51)(   Читать дальше...   )Жанр: Vocal jazz, Soul, BluesПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE8082C6F12C81FF23D02299433A9BF3D5AD585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772279   (31363) от 10.01.2025
+
+Franz Ferdinand - The Human Fear (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audacious (3:24)
+02. Everydaydreamer (3:13)
+03. The Doctor (2:20)
+04. Hooked (2:41)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA5995BACC6D7B9685588E2C1821C6085356435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772504   (31269) от 11.01.2025
+
+VA - Legend Rock Ballads vol.1 - vol.3 (1996) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 02:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54501A797742A1E8A27B91017DF64843A38CD094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593932   (31199) от 12.01.2025
+
+Tremonti (Creed, Alter Bridge) - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] <Hard Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mark Tremonti — американский гитарист и вокалист. Со времен участия в Creed, Тремонти стал широко известен своими способностями в написании песен и техническим мастерством и был награждён несколькими наградами, в число которых входит Грэмми. В течение трех лет подряд журнал Guitar World выбирал его в качестве гитариста года. В 2011 году Total Guitar включил его в (   Читать дальше...   )2012 - All I Was
+2015 - Cauterize
+2016 - Dust
+2018 - A Dying MachineЖанр: Hard Rock, Post-grungeПродолжительность: 05:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF115C64D6E8BE7803DF7B4F9AE91766861C727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772458   (31139) от 12.01.2025
 
 Борис Гребенщиков - Pictures of You (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -570,180 +741,6 @@ David Rose - Songs for You (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24F7C414F2BEDE67BA1F65A8F6A1F466DE4FFBCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773427   (30833) от 15.01.2025
-
-Monk Rules the Rhino - Fuzzy Unicorn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dark Matter (4:46)
-02.  Insert Coin (4:17)
-03.  A Long Way Home (4:06)
-04.  Veil of Dusk (4:40)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9BA838DEE0684ED83E519C1BE1BFC39A66D3B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771230   (30824) от 15.01.2025
-
-David Rose - The Night Is Ours - David Rose - The Night Is Ours (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Weight of Words (3:36)
-02.  Let's Hit the Dance Floor (2:04)
-03.  Wisdom Comes with Age (3:32)
-04.  We Never Gave Up (3:08)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1E401E2FD43153C0DD9733474FC38AEB36C6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675044   (30568) от 18.01.2025
-
-HammerFall (& Cans) - Studio Albums (20 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30568.jpg" />
-</div>
-
-
-###  Подробнее
-
-HammerFall — группа из Швеции, играющая в стилях хеви-метал и пауэр-метал. Основана гитаристом Оскаром Дроньяком в 1993 году, а известности достигла после прихода в 1996-м вокалиста Йоакима Канса, который стал вторым лидером группы. Песни HammerFall в основном посвящены средневековым рыцарям, сражениям, мужеству и героизму. Музыка группы эволюционировала от чистого (   Читать дальше...   )1997 - Glory to The Brave
-1998 - Legacy of Kings
-2000 - Renegade
-2002 - Crimson Thunder(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 17:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2E9C5DC419665928FD6A8251EDC5AC08FBECE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774301   (30322) от 20.01.2025
-
-Sybreed - Studio Albums (4 releases) (2004-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sybreed — швейцарская индастриал/грув-метал группа из Женевы, основанная в 2003 году.2004 - Slave Design
-2008 - Antares
-2009 - The Pulse Of Awakening
-2012 - God Is An AutomatonЖанр: Industrial/Groove MetalПродолжительность: 04:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC405A35871419CE8B65196B73EC4FA6D09ABAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774334   (30315) от 20.01.2025
-
-Dream Express - Дрийм Экспресс (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side I
-A1 Hi Lili Hilo • Kaper, Deutsch
-A2 I'm A Lion • L. Smets, E. VerheeS
-A3 Got To Have You Back • L. Smets, C. Pilditch(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E10FF7D94D161227BF607A6EE8B7AF6B4B7D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631046   (30139) от 22.01.2025
-
-Grave Digger (Hellryder; Steelhammer; The Fyredogs) - Studio Albums (27 releases) (1984-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grave Digger — хэви-метал группа из Гладбека, Северный Рейн-Вестфалия (Германия), образованная в 1980 году Крисом Болтендалем и Питером Массоном.1984 - Heavy Metal Breakdown & Rare Tracks
-1985-86 - Witch Hunter - War Games
-1986 - Stronger Than Ever
-1993 - The ReaperЖанр: Heavy/Power MetalПродолжительность: 26:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9050D2AB784C5AB2A4B4DE6D620EE213694455F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1129730   (718829) от 30.04.2017
+
+Wille And The Bandits - Steal (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Away (03:44)
+02. Hot Rocks (04:29)
+03. Scared Of The Sun (05:15)
+04. Atoned (04:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C803DDD2D3A1C202617E5F218544E35573ECCEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129948   (718825) от 30.04.2017
+
+Watermelon Slim - Golden Boy (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом «Golden Boy» Билла Хоманса известного под сценическим именем Уотермелон Слим. Он играет как на гитаре, так и на гармонике. Если человек с такой биографией, как у Уотермелон Слима занимается музыкой, то его музыка – это, конечно же, блюз. Слим успел повоевать во Вьетнаме, побывать водителем – дальнобойщиком, продавцом дров, работником лесопилки (где потерял (   Читать дальше...   )01. Pickup My Guidon (3:35)
+02. You're Going To Need Somebody On Your Bond (3:29)
+03. Wbcn (5:31)
+04. Wolf Cry (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44"03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B450055DFCA058CE4F6228BF5AE538CEF30793CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531866   (718730) от 17.02.2022
+
+Harold Mabern - The Iron Man: Live At Smoke (2018) 2CD, Smoke Sessions Records [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718730.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A Few Miles From Memphis [7:32]
+02. I Get A Kick Out Of You [8:08]
+03. I Know That You Know [4:48](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F0ED2E6E56D8DBF2113CA56F0536088DEFF8A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129698   (718429) от 30.04.2017
 
 Justin Johnson - Drivin' It Down (2017) 2 CD [MP3|320 Kbps] <Blues, Roots, Americana>
@@ -658,93 +745,6 @@ Richard Niles Bandzilla - Bandzilla Rises!!! (2016) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF5DCABB9582487F42B19B120CDBC3CA741CCC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531952   (716633) от 18.02.2022
-
-Bill Charlap Trio - Street Of Dreams (2021) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Duke [6:49]
-02. Day Dream [6:16]
-03. You're All the World to Me [4:49]
-04. I'll Know [5:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF674E7C8CA35FC4D5F1FD82AC2E4364DF8AE23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130397   (716543) от 01.05.2017
-
-Big George And The Business - The Alleged Album (1989) Reissue, 2005, SPM Records [WavPack|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Long Black Train  (02:56) 
-02.  Thunderbolt  (03:25) 
-03.  Wrong Side Of Town  (07:27) 
-04.  Late Last Night  (02:46) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457E8F10C958DA720149306B668B16EA3AF4814D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130229   (716328) от 01.05.2017
-
-Nicki Parrott - Unforgettable ~The Nat King Cole Songbook (2017) [FLAC|Lossless|image + .cue] <Easy Listening, Smooth Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nicki Parrott (Ники Парротт), ныне всемирно известная контрабасистка, родилась в городе Ньюкасл, Австралия. Начала свое музыкальное обучение на фортепиано в возрасте четырех лет. Она также изучала игру на флейте и продолжала играть на ней всей ее школьные годы. В возрасте 15-и лет, Ники переключила свое внимание на бас, создала группу со своей старшей сестрой Лизой (   Читать дальше...   )01. Walkin' My Baby Back Home (2:57)
-02. Let's Fall In Love (4:50)
-03. The Very Thought Of You (5:17)
-04. Hit That Jive Jack (3:20)(   Читать дальше...   )Жанр: Easy Listening, Smooth Jazz, Vocal JazzПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E62162748B792BB6400AEF13779B67C7091B922
 ```
 
 https://mybot314.ru/tekegram_catalog/

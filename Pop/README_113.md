@@ -1,3 +1,119 @@
+###  Публикация: 1130071   (718822) от 30.04.2017
+
+Gallina - Самолёты не летают (2001) [APE|Lossless|image + .cue] <Pop, Dance-Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Самолёты не летают
+02 - Белым снегом
+03 - Каменный цветок
+04 - Грустная звезда(   Читать дальше...   )Жанр: Pop, Dance-PopПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5753FF2AB9B8596EBBD854B2688367EB8A7288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285701   (718820) от 27.02.2019
+
+Finished Touch - Need To Know You Better (1978) LP [MP3|320 Kbps] <Disco, Soul, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Need To Know You (Better) (5:27)
+02. I Love To See You Dance (5:01)
+03. Trying To Kick The Habit (2:44)
+04. Dancin' On (4:07)(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3ABA2B2583ECD325FFBDDB4B767E3A2FAF6BCD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285607   (718687) от 27.02.2019
+
+Julio Iglesias - De Julio 100 (2018) 5CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Quiereme Mucho
+02. Un Canto A Galicia
+03. To All The Girls I've Loved Before(   Читать дальше...   )Жанр: PopПродолжительность: 06:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE479553F8108072D1FE4361249E2B680753583E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531801   (718657) от 17.02.2022
+
+Александр Айвазов - Лучшее 2021 (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лилии (Версия 2017) (3:49)
+02. А ты дождись (Disco 90 Version) (feat. DJ Unix) (3:54)
+03. Снег на ладонях (Disco 90 Version) (feat. DJ Unix) (3:28)
+04. Ах, эти белые розы (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 02:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795D9456B96DBEC3F4C641A223795BCBDF8E8C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129900   (718507) от 30.04.2017
 
 The Chainsmokers & Coldplay - Something Just Like This (Remix Pack) (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, House>
@@ -629,123 +745,6 @@ Kaija Koo - Kuka sen opettaa (2014) [FLAC|Lossless|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD8F6BB00ED8A1DEDFC84DD9BBB7FF48DDBF4FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024558   (716026) от 09.06.2016
-
-Laid Back - Happy Dreamer (2007) [FLAC|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Day [07:37]
-02. Universe Lovesong [03:46]
-03. Groovin On A Feeling [04:08]
-04. Once [04:10](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFACE0BBCBD40255B0264D26C0A8A1AA83C940B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024528   (715955) от 09.06.2016
-
-Auto Reverse - Surfing On Dream Waves (2015) [MP3|320 кб/с] <Electronic, Disco, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Break (4:43)
-02. Neptune Beach (4:17)
-03. Lifeguard Theme (4:42)
-04. Surfer Girls (5:07)(   Читать дальше...   )Жанр: Electronic, Disco, SynthpopПродолжительность: 00:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62DF5A5E95D929905FB1D5BCBA8233E5666AF371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219116   (715603) от 13.04.2018
-
-Tina Turner - The Best (2018) 2CD, Compilation [MP3|320 Kbps] <Pop, Rock, Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best (Extended Mix) (6:37)
-02. Nutbush City Limits (The 90's Version) (3:44)
-03. Afterglow (12'' Dance Mix) (7:13)
-04. We Don't Need Another Hero (6:10)(   Читать дальше...   )Жанр: Pop, Rock, Soul, BluesПродолжительность: 02:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57641F3A051C27FF7A3C3D91AECBA54A1AD65FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328126   (715567) от 26.04.2011
-
-Мурат Насыров - Золотая коллекция (2000) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мурат Насыров (Мурат Исмаилович Насыров) - Казахстанский Уйгур, родился в простой рабочей семье, окончил Гнесинское музыкальное училище.
-На конкурсе «Ялта-91» получил Гран-при, после конкурса Игорь Крутой предложил певцу раскрутку, от которой Мурат отказался, считая что подписав контракт, он не сможет исполнять песни собственного сочинения, что противоречило его (   Читать дальше...   )01. Туда - сюда
-02. Мальчик хочет в Тамбов
-03. Я дедушка мороз
-04. Вчера(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

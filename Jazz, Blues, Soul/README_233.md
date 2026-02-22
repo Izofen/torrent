@@ -1,3 +1,96 @@
+###  Публикация: 906315   (645535) от 08.06.2015
+
+Samantha Fish, Dana Fuchs and Joanne Shaw Taylor - Ladies Sing The Blues (2014) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joanne Shaw Taylor - Who Do You Love (03:06)
+02. Joanne Shaw Taylor - Going Home (04:48)
+03. Joanne Shaw Taylor - Bones (05:22)
+04. Joanne Shaw Taylor - Piece Of The Sky (03:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E14D3AD0965FE3849027F46FD6E3470D3762C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517265   (645367) от 02.07.2012
+
+Wynton Marsalis‎ - He And She (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_645367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poem [00:12]
+02. School Boy [06:49]
+03. Poem [00:27]
+04. The Sun And The Moon [06:31]
+05. Poem [00:10]
+06. Sassy [05:17]
+07. Poem [00:17]
+08. Fears [03:32]
+09. Poem [00:16]
+10. The Razor Rim [12:05](   Читать дальше...   )Жанр: JazzФормат: *.flacПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292610   (645290) от 30.03.2019
+
+Chet Baker - Career 1952-1988 (2005) 2CD, Shout! Factory [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645290.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Trumpeter:
+01. My Funny Valentine [2:56]
+02. Half Nelson [5:43]
+03. Love Walked In [2:57](   Читать дальше...   )Жанр: CoolПродолжительность: 02:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0337554A4BF27E118639505A8E07F5BD1C11E52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292689   (645187) от 30.03.2019
 
 Stef Paglia - Never Forget (2019) [MP3|320 Kbps] <Blues Rock>
@@ -674,93 +767,6 @@ Laurindo Almeida
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906769   (643714) от 09.06.2015
-
-Eugene "Hideaway" Bridges - Hold On A Little Bit Longer (2015) [MP3|320 кб/с]<Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Time (4:17)
-02. Hold On A Little Bit Longer (4:32)
-03. Special Lady (3:30)
-04. Love You In Every Way (2:53)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038AA4FC339139A5702D414F39FA15AB69AA34B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905958   (643711) от 09.06.2015
-
-Nico Smoljan & Shakedancers - Nico Smoljan & Shakedancers (2015) [MP3|320 кб/с]<Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booguiebuck (2:06)
-02. Mannish Boy (Feat. Mud Morganfield, Daniel De Vita & Juan Codazzi) (3:41)
-03. Little Blue Girl (Feat. Catuto García & Rafo Grin) (4:02)
-04. You're The One (Feat. Eddie Taylor Jr) (3:09)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA4557A2B8FD2CFD53DF99AA3B0D3927A87D6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906720   (643703) от 09.06.2015
-
-Sofia Finnila - Everything I Love (2008) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheek to Cheek [05:00]
-02. So in Love [04:30]
-03. Boy Next Door [05:34]
-04. Everything I Love [04:48](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38351C7E767CB3F99E925A2A16C5CA820BE4805
 ```
 
 https://mybot314.ru/tekegram_catalog/

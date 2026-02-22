@@ -1,3 +1,32 @@
+###  Публикация: 1449659   (1029590) от 23.02.2021
+
+Caskets Open - Concrete Realms of Pain (2021) [MP3|320 Kbps] <Gothic Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Intro - Four Shrines [00:06:07]
+02 Riding on a Rotting Horse [00:03:11]
+03 Homecoming [00:05:17]
+04 Tunnel Guard [00:03:22](   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A265479A1AAFE658CC69C8A8F721593EED502E4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449968   (1029389) от 24.02.2021
 
 Mastord - To Whom Bow Even the Trees (2021) [MP3|320 Kbps] <Progressive Metal>
@@ -716,35 +745,6 @@ Ghosts of Atlantis - 3.6.2.4 (2021) [MP3|320 Kbps] <Symphonic Gothic Metal, Melo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C35130AD9CF2157631C5DB5CCA6DF02E2923ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457830   (1024248) от 27.03.2021
-
-Evilizers - Solar Quake (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solar Quake (03:53)
- 02. U.T.B (03:22)
- 03. Intro (01:51)
- 04. Chaos Control (05:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD91CD93CF9D8F88A8C94734730AB0FB1DA934A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

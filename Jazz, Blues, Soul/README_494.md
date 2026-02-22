@@ -1,3 +1,32 @@
+###  Публикация: 1194976   (152195) от 27.12.2017
+
+Henry Mancini - Combo! (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moanin' [02:54]
+02. Sidewalks of Cuba [03:23]
+03. Dream of You [02:57]
+04. Swing Lightly [04:20](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E119F8641653A21090041FBB53C074A218CD376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 259027   (152182) от 28.12.2014
 
 James Taylor Quartet - Don't Mess With Mr. T (2007) [APE|Lossless]<Jazz, Acid Jazz>
@@ -733,41 +762,6 @@ Ron Carter - Plays Bach (1991) Philips [FLAC|Lossless|tracks + .cue] <Hard Bop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29DC678FB8B94634A33A4BB19BDACC37187DB153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738857   (150970) от 26.12.2013
-
-JP Blues - Make Room At The Table (2013) [FLAC|Lossless]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Keep On Walking (4:42)
-02. Love So Cold (5:23)
-03. Old Man Joe (4:11)
-04. Make Room At The Table (2:23)
-05. Another Time Another Place (7:38)
-06. Move Aside (3:23)
-07. Holy Roller (3:10)
-08. Good Enough (3:33)
-09. Don't Let Me Be Misunderstood (5:39)
-10. Trouble On Heels (3:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191F241E1A654A976B293596D49124CF62E61F83
 ```
 
 https://mybot314.ru/tekegram_catalog/

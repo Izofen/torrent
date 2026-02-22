@@ -1,3 +1,29 @@
+###  Публикация: 1511876   (788348) от 22.11.2021
+
+Notepad++ 8.1.9.2 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFC5FC10038651C9A1D40D7919671C6D28427B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511858   (788346) от 22.11.2021
 
 ExamDiff Pro Master Edition 12.0.1.10 RePack & Portable by 9649 [Ru/En]
@@ -668,35 +694,6 @@ SRWare Iron 71.0.3700.0 Portable by PortableApps [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8DACC66C775F869719F564F9FD3849BB2A13EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276624   (788191) от 16.01.2019
-
-Trigg & Gusset - Adagio For The Blue (2015) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Jazz, Contemporary Classical>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intimate (5:56)
-02. Cook (5:53)
-03. Madagascar (4:03)
-04. Vanishing Gold (3:41)(   Читать дальше...   )Производство: Preserved Sound - PS30Жанр: Ambient, Doom Jazz, Dark Jazz, Jazz Noir, Contemporary Classical, ExperimentalПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708FA0397B1A91B05D47042204CAE5DEF66C4936
 ```
 
 https://mybot314.ru/tekegram_catalog/

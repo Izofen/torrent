@@ -1,3 +1,32 @@
+###  Публикация: 962192   (294730) от 04.12.2015
+
+Gregorian - Masters of Chant X: The Final Chapter (2015) 2CD Deluxe Edition [FLAC|image + .cue] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masters Of Chant
+02. Cry Softly
+03. Angel
+04. Strong(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2DE1483AADA04DFA5CB9B20DADCD0B77A84ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079501   (294381) от 04.12.2016
 
 VA - Calming Waterfall for Effective Study (2016) [MP3|320 Kbps] <Downtempo, Chillout, New Age>
@@ -713,35 +742,6 @@ Jean-Michel Jarre - Equinoxe Infinity (2018) [MP3|320 Kbps] <Ambient, New-Age, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:609C92AB7C8FA956312A47FE860A33E09B633CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262529   (291067) от 17.11.2018
-
-Jean-Michel Jarre - Equinoxe Infinity (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New-Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The watchers (Movement 1)
-02. Flying totems (Movement 2)
-03. Robots don’t cry (Movement 3)
-04. All that you leave behind (Movement 4)(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 01:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10532F5359040F7157706553ECE91DC7174598A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1834371   (249032) от 03.11.2025
+
+The Soul of John Black - Soul Salvation (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Begging You Baby (2:27)
+02.  Georgia Peaches (3:08)
+03.  Take Your Time (3:17)
+04.  Come and Get It (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF0000A22F6A17D459C386B79D19B9BD254ACBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834372   (249031) от 03.11.2025
 
 The Zac Schulze Gang - Straight to It (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -786,35 +815,6 @@ Blue Deal - Make a Change (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:654DC960721164476CD674FD14F15E6D40398EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834325   (248512) от 03.11.2025
-
-Bob Corritore - Early Blues Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Little Milton - I Want To Be The One (3:37)
-02.  Sam Lay - So Glad I'm Living (3:26)
-03.  Dave Riley - On My Way (2:50)
-04.  Jimmy Rogers - She Loves Another Man (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685BAE7129536B57AB8A19D5FDCC00E5128B7AE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1197099   (817291) от 06.01.2018
+
+VA - Dream Dance Vol.84 (2018) [MP3|320 Kbps] <Trance, House, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance, House, DanceПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508291010420877481111E96DA7BFB22515E8DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117966   (815489) от 24.03.2017
 
 VA - Grotesque Essentials Spring 2017 Edition (Mixed by ReOrder & Ciaran McAuley) (2017) [MP3|320 Kbps] <Trance>
@@ -716,33 +742,6 @@ VA - Trance In Space 5 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89C85B85D8A54DFE197F88704B38076389D83E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121579   (800488) от 02.04.2017
-
-Dawid Jurzyk - Mysterious Forest (2017)Single [MP3|320 Kbps] <Progressive Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Mysterious Forest (Original Mix) [07:17]
-02 Mysterious Forest (Stream Noize Remix) [06:39]Жанр: Progressive Trance, Uplifting TranceПродолжительность: 00:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C198D04EDCC0208E8CA967F2FA7DF83C7B3C0DE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

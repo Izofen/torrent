@@ -1,3 +1,32 @@
+###  Публикация: 1210624   (778546) от 04.03.2018
+
+Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Old Friends 3:56
+02. Spring Rain 5:57
+03. Time Out 6:02
+04. Hello Again 5:33(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18EC7007B24BF1B689F0613553E1B88FCD76296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210785   (778520) от 04.03.2018
 
 Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35B064E0C8B6677400B4AF2DE7DD2D63EB400897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013850   (777102) от 05.05.2016
-
-Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) [FLAC|Lossless|image + .cue] <Ambient, New age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Heart of Noise, Pt. 1 (feat. Rone)
-02. The Heart of Noise, Pt. 2
-03. Brick England (feat. Pet Shop Boys)
-04. These Creatures (feat. Julia Holter)(   Читать дальше...   )Жанр: Ambient, New age, ElectronicПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623C865CCDEE8DD8CC752447C6D0310E09CB01A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

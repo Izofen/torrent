@@ -1,3 +1,90 @@
+###  Публикация: 1279447   (766187) от 29.01.2019
+
+Bo Ramsey - Wildwood Calling (2016) [FLAC|Lossless|tracks + .cue] <Chicago Blues, Delta Blues, Country Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly On (Part 2) (2:23)
+ 02. Through The Trees (3:10)
+ 03. Feather Trail (2:22)
+ 04. Glide (2:22)(   Читать дальше...   )Жанр: Chicago Blues, Delta Blues, Country BluesПродолжительность: 00:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EF4B5A11DC1A603FF9E282BBAD9375253D479A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521217   (766185) от 01.01.2022
+
+John Coltrane - My Favorite Things (1960) 1987, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Favorite Things [13:44]
+02. Everytime We Say Goodbye [5:43]
+03. Summertime [11:36]
+04. But Not for Me [9:34]Жанр: Hard Bop, Post-Bop, Avant-Garde JazzПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E4648046B126ABA0102D9949DA6AF72DC8CF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279440   (766120) от 29.01.2019
+
+Eva Cassidy - Songbird (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Ballad, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fields of Gold (4:42)
+ 02. Wade in the Water (4:02)
+ 03. Autumn Leaves (4:41)
+ 04. Wayfaring Stranger (4:27)(   Читать дальше...   )Жанр: Smooth Jazz, Ballad, Easy ListeningПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3029531CF19B6C31A7C8EC322A3F67BB8BBA30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279481   (766112) от 29.01.2019
 
 Van Morrison - The Prophet Speaks (2018) [FLAC|Lossless|tracks + .cue] <Blues, Jazz>
@@ -658,93 +745,6 @@ Dizzy Gillespie, Sonny Stitt, Sonny Rollins - Sonny Side Up (1957) 1986, Verve [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFDDD32915D0252BB7F4D9B3AB584E6B18B852F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126810   (764656) от 19.04.2017
-
-Marilyn - Romance Dance (2004) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance Dance  (04:46) 
-02. Close Your Eyes  (03:23) 
-03. You Go To My Head  (04:00) 
-04. I Wish I Knew  (02:48) (   Читать дальше...   )Жанр: Jazz VocalsПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4CA213257442463211B8DF917C43F90E3CDA7C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126513   (764650) от 19.04.2017
-
-Duke Ellington - The Girls And Premieres 1958-1963 (2014) La Maison du Duke [FLAC|Lossless|tracks + .cue] <Big Band, Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Medley [11:16]
- 02.Girls [03:46]
- 03.Sarah [02:00]
- 04.Lena [03:15](   Читать дальше...   )Жанр: Big Band, Swing, Vocal JazzПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7949EBE5D7349951705E2BDF1ABB24E6492E9955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126917   (764648) от 19.04.2017
-
-Ronnie Baker Brooks - Take Me Witcha (2001) [APE|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Had My Chance  (05:22) 
-02. Hit Me On The Hip  (04:14) 
-03. See You Hurt No More  (05:55) 
-04. Take me Witcha  (04:17) (   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E997D981B9D993FC780B1DF8311FF8D52CA4E56
 ```
 
 https://mybot314.ru/tekegram_catalog/

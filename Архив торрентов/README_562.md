@@ -1,3 +1,29 @@
+###  Публикация: 615489   (978972) от 07.02.2013
+
+Газета | Домашние заготовки  от Кулины №3/с [лето 2010] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Всероссийская газета о вкусной и здоровой пище для любителей вкусного и здорового питания. Множество оригинальных рецептов на любой вкус.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 437048   (978969) от 16.01.2012
 
 В осаде / Under Siege (1992) HDRip
@@ -737,41 +763,6 @@ David Bowie - Earthling (1997) [FLAC|Lossless]<Neo-Glam, Rock>
 07. "The Last Thing You Should Do" – 4:57
 08. "I'm Afraid of Americans" – 5:00
 09. "Law (Earthlings on Fire)" – 4:48Жанр: Neo-Glam, Rock
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165839   (978914) от 13.01.2010
-
-VA - Excision at Shambhala (2008) [MP3|192 kbps]<Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1- Excision – System Check
-2- Excision & Ultrablack – Bear Trap
-3- Ill Bill Bachelor – The Demons
-4- Noah D & No Thing – Unknown suspect
-5- Roommate & Spl – Gangster
-6- Suspicious Stench – Ghost Town
-7- Skream – Oskilatah
-8- Cotti & Cluekid — The Legacy
-9- Bassnectar – Dubble Step
-10- Antiserum – Rambo Style(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:33:25
 
 ## Скачать торент
 ```bash

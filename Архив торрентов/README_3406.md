@@ -1,3 +1,38 @@
+###  Публикация: 548725   (466909) от 18.09.2012
+
+Joss Stone - The Soul Sessions Vol 2. (2012) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Soul / R&B>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got The... (4:58)
+02. (For God's Sake) Give More Power To The People (3:43)
+03. While You're Out Looking For Sugar (3:26)
+04. Sideways Shuffle (3:36)
+05. I Don't Wanna Be With Nobody But You (4:59)
+06. Teardrops (5:52)
+07. Stoned Out Of My Mind (3:08)
+08. The Love We Had (Stays On My Mind) (4:40)
+09. The High Road (4:38)
+10. Pillow Talk (4:40)(   Читать дальше...   )Жанр: Soul / R&BПродолжительность: 01:02:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161323   (466905) от 28.08.2017
 
 Stardock Start10 1.56 RePack by D!akov (27.08.2017) [Multi/Ru]
@@ -652,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:382BE80CCB407FB00E8D47C525C5B0E822061B70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940645   (466737) от 25.09.2015
-
-Google Chrome 45.0.2454.101 Stable (x86/x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – веб-браузер от Google с открытым исходным кодом, который сочетает поддержку новейших веб-приложений, удобный поиск с высокой скоростью и стабильностью. Из особенностей браузера разработчики особенно выделяют изолированные вкладки, предотвращающие сбой и ошибки работы программы, что обеспечивает более надежную защиту от опасных сайтов.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D05234DAA6E908AEE5E8B7845A309F46B7119B
 ```
 
 https://mybot314.ru/tekegram_catalog/

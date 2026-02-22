@@ -1,3 +1,32 @@
+###  Публикация: 915962   (590896) от 08.07.2015
+
+Unleash The Archers - Time Stands Still (2015) [MP3|320 кб/с]<Melodic Power/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590896.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Northern Passage
+2. Frozen Steel
+3. Hail of the Tide
+4. Tonight We Ride(   Читать дальше...   )Жанр: Melodic Power/Death Metal (Продолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12791B4799236DE9214AF037C69306172C658B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916293   (590484) от 09.07.2015
 
 Luna - On The Other Side Of Life (2015) [MP3|320 кб/с]<Symphonic Funeral Doom/Death Metal>
@@ -728,40 +757,6 @@ StoneLake - Marching On Timeless Tales (2011) [MP3|320 kbps]<Heavy metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36056BF8098A70F406BA27977C60033275ECC835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358311   (582027) от 06.07.2011
-
-Asgard - The Seal Of Madness (2011) [MP3|320 kbps]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582027.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Disciples [3'28"]
-2. I Spit on your Hands [3'14"]
-3. The Seal of Madness [4'20"]
-4. With Your Shield or On It [4'12"]
-5. Army of Darkness [5'35"]
-6. Fury of the Night [2'23"]
-7. The Age of Steel [2'30"]
-8. Hellbreaker [4'48"]
-9. Asgard Invasion [3'56"]Жанр: Power MetalПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95C7A396A05F744AA43D2750B4DBB5064B91C1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

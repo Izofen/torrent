@@ -1,3 +1,90 @@
+###  Публикация: 1143623   (635240) от 18.06.2017
+
+VA - Slow Smooth Jazz: Relaxation Soft Music (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Jazz Lounge School — Slow Smooth Jazz
+02. Moody Jazz Collection — Piano Bar Chill Out
+03. Relaxing Piano Music Ensemble — Pleasure and Easy Listening
+04. Good Morning Jazz Academy — Take it Easy(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234901C27D8A04AD62515BEE4B73425A7699557D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143363   (635239) от 18.06.2017
+
+Members Of The Glenn Miller Orchestra - A Tribute To Glenn Miller (1998) [MP3|320 Kbps] <Jazz, Swing, Oldies>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635239.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tuxedo Junction (3:50)
+2. American Patrol (3:33)
+3. Lover's Serenade (2:34)
+4. Londonderry Air (2:25)(   Читать дальше...   )Жанр: Jazz, Swing, OldiesПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6BDDE6F0FA9D3480C770E26107C9FC6E084D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293634   (635229) от 04.04.2019
+
+Ten Stories High - Story Goes (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude
+02. Fade Away
+03. Ignorance
+04. Everything Must Change(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5619C415A67D32E5B4A51FEED775448AF92DB5BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542588   (635037) от 08.04.2022
 
 Kickin' The Mule - You Talk Too Much! (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -655,93 +742,6 @@ Jerimiah Marques - Down By The River (2016) [MP3|320 Kbps] <Electric Blues, Regg
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D3F0122855DCA7E1C922027B9FFDBF0B1EFE922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542880   (633172) от 09.04.2022
-
-Jack White - Fear Of The Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Taking Me Back (00:03:59)
-02 - Fear Of The Dawn (00:02:02)
-03 - The White Raven (00:02:43)
-04 - Hi-De-Ho (00:03:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB049FBA19B95A32AF94C7C4D142ECC01CA38058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034853   (632676) от 14.07.2016
-
-Jeremy Steig - Fusion (1970) Groove Merchant[APE|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Home [04:40]
- 02.Cakes [04:53]
- 03.Swamp Carol [04:12]
- 04.Energy [04:51](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0A53DAAADBB867A3BF97F965E7D81457D9CDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908665   (632493) от 15.06.2015
-
-Bobby Hutcherson - Linger Lane (2012) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. People Make The World Go Round [08:53]
-02. Theme from 'M*A*S*H' [04:33]
-03. NTU [05:55]
-04. Manzanita [04:04](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5BFAA585261995916C62B730F7F3527121970B
 ```
 
 https://mybot314.ru/tekegram_catalog/

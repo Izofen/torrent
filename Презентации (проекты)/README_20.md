@@ -1,3 +1,29 @@
+###  Публикация: 1020022   (746160) от 25.05.2016
+
+Проекты - VideoHive - Up in the Sky - 1599491 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746160.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мне бы в небо"  - очень эффектный и стильный проект с эффектом 3D текста. Хорошо подойдет для фильма, трейлера, промо.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFE1E0C9D46C4086F7C9DD8CFDBDDAD222D7BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 889843   (745863) от 19.04.2015
 
 Проекты - Проект ProShow Producer - Mirror of Fashion [PSH]
@@ -646,35 +672,6 @@ VideoHive – Dual Impact - 2803447 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:038D3DD3A4028D9D1ED29E094344EFB70068F70E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784979   (739502) от 09.05.2014
-
-VideoHive – Glass Project - 2294272 [AEP, C4D]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный проект для демонстрации вашего логотипа.
-
-Характеристика:
-(   Читать дальше...   )Формат: AEP, C4D(Cinema 4D)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29DDF5D169F8524D135FCDCB71DBCB088B1ECFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

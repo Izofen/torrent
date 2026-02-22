@@ -1,3 +1,88 @@
+###  Публикация: 1823665   (125921) от 12.10.2025
+
+Lian Ross - Say You’ll Never (Anniversary Special Edition) (2025) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say You’ll Never
+02. Say You’ll Never (Bobby To Mix)Жанр: Euro-DiscoПродолжительность: 00:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C25CAE081AEB17B61B927392B6D0EA3F2A2CCB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687077   (125737) от 25.12.2023
+
+VA - Bravo Hits 20 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Janet Jackson - Together Again
+02. Natalie Imbruglia - Torn
+03. Espen Lind - When Susannah Cries
+04. The Kelly Family - One More Song(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031FC464A0D1E6B51217D3326C11ED854BBCC256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686994   (125727) от 25.12.2023
+
+VA - Bravo Hits 19 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanson - MMMbop
+02. Real McCoy - Party
+03. Squeezer - Saturday Night
+04. Chili feat. Carrapicho - Tic Tic Tac(   Читать дальше...   )Жанр: Electronic, Pop, RockПродолжительность: 02:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2471FF8C502508B1851A0B90689570B276EB92C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687076   (125724) от 25.12.2023
 
 Сергей Пенкин - Нам не избежать любви (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -658,93 +743,6 @@ Den Harrow - Overpower (1985) Reissue, 1987, Baby Records [OGG Vorbis|480 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6136C961331EB4035A795EB7993FA4D1321A87A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692991   (122031) от 19.01.2024
-
-Den Harrow - Day By Day (1987) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Day By Day
-02.  Don't Break My Heart
-03.  Catch The Fox
-04.  Don't Forget (To Buy This Record)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FD75DA61D57C86B0BB7C87D944645DC1883FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693093   (122029) от 19.01.2024
-
-Den Harrow - The Best Of Den Harrow (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Holiday Night
-02.  I Wanna Go
-03.  Lies
-04.  Charleston(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D45BC23AC532D1629EF4AEB5F76F465A3A74FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693179   (121940) от 20.01.2024
-
-VA - 90'S EuroDance Hitmix 2 (2024) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double AA - Dancers in the Night (Extended Version) (05:33)
-02. Ritmo Ritmo - Caramba Caracho (03:32)
-03. Heath Hunter & The Pleasure Company - Master & Servant (03:39)
-04. Heath Hunter & The Pleasure Company - Love Is All Around (03:40)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8BCC5683996959A58A39B45BDA77BD582B174F
 ```
 
 https://mybot314.ru/tekegram_catalog/

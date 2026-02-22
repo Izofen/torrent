@@ -1,3 +1,61 @@
+###  Публикация: 1559726   (523486) от 26.06.2022
+
+VA - Summer Vibes 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech Trance, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523486.jpg" />
+</div>
+
+
+###  Подробнее
+
+[8:20] 01. Serge Canteros - Finding Us
+[7:17] 02. Guido Roman - Maresme
+[6:37] 03. Robus Amp - Parallax
+[7:00] 04. Chris Nooke - Darkest Dreams(   Читать дальше...   )Жанр: Progressive House, Tech Trance, MinimalПродолжительность: 03:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84646A8EA99FC4B356860C840BF67D23C10B176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560188   (521895) от 28.06.2022
+
+TWO LANES - Lights (2020) EP, Extended Edition [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill House, Garage, Lo-Fi>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lights (3:22)
+ 02. Wide Awake (2:50)
+ 03. Never Enough (4:32)
+ 04. Closer (3:28)(   Читать дальше...   )Жанр: Electronic, Chill House, Garage, Lo-FiПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2ADC4C3F82FD51402C86820F35D160C80C5356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241672   (519297) от 18.08.2018
 
 Youandewan - There Is No Right Time (2016) Aus Music [FLAC|Lossless|tracks+.cue] <Ambient, Deep House, Techno, Electro, Downtempo>
@@ -690,64 +748,6 @@ Digital Emotion - The Freaks (2013) [FLAC|Lossless|WEB-DL|tracks] <Tech House, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DABCCBC3B20E9C75CA3BFFC19A6B36FEB4D0E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565843   (490423) от 25.07.2022
-
-VA - Katermukke Playground XVI (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dirty Doering, Vars -  Find Youth (Original Mix)  (5:38)
-02.  Vincent Marlice -  The Scenery (Original Mix)  (6:53)
-03.  Voices of valley -  Grow (Thodoris Triantafillou In The Club Remix)  (6:41)
-04.  Marius Drescher -  Not Even Close (Original Mix)  (8:06)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34A1452AE7E16D4BD616D77BBB1F822A3BDC2A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158848   (490158) от 17.08.2017
-
-VA - Global Underground: Adapt (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superpitcher - Snow Blind (14:44)
-02. Lusine feat. Sarah McIlwain - Ticking Hands (4:47)
-03. Lake People - Pull Off (4:19)
-04. Fjaak - Spnd Ballett (3:23)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 05:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A2DDA155876A60772B53D0AB0A54A62D426A3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

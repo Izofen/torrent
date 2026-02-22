@@ -1,3 +1,32 @@
+###  Публикация: 1002499   (846832) от 01.04.2016
+
+Gelka - Stardust Memories (2015) [MP3|128 кб/с] <Electronica>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Have You Kept Your Ticket 04:06
+02 Flying Clouds (feat. Phoenix Pearle) 03:40
+03 These Days (feat. Sena) 03:53
+04 Inside Galaxies (feat. Phoenix Pearle) 03:50(   Читать дальше...   )Жанр: Chillout, Lounge, PopПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203A489A4E12A0A854A4FAAC1B82D70A47801F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378595   (846600) от 25.04.2020
 
 Atom Music Audio - Blood Crave (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -710,35 +739,6 @@ Armik - Romantic Spanish Guitar Vol. 1,2,3 (2014-2016) [MP3|320 кб/с] <Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE4173075C4B5DB9F64AC278ACECCA5630A31723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378705   (840692) от 28.04.2020
-
-Nicholas Gunn - Pacific Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840692.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Into the Vastness	04:55
-2. And I	03:13
-3. Sailing	04:25
-4. Chasing the Light	04:23(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401077FD743A38CC3E58D74BBBC9AAFC761C1899
 ```
 
 https://mybot314.ru/tekegram_catalog/

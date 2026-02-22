@@ -1,3 +1,119 @@
+###  Публикация: 1522230   (760350) от 06.01.2022
+
+VA - Best Of Funk 2021 (2022) [MP3|320 Kbps] <Disco, Nu-Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Motta - Stay Together (Latouche Finale Remix) (feat. Dave Baron) (05:08)
+02. Eddy Sanchez - Back To Back (05:10)
+03. Jerem A - When The Sun Goes Down (DJ Hakuei Remix) (06:34)
+04. Infradisco - Il vizio (04:38)(   Читать дальше...   )Жанр: Disco, Nu-Disco, Funk, SoulПродолжительность: 01:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB19D0024C55061D536406EE36B2D826CB04E03E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215205   (759833) от 25.03.2018
+
+VA - Deutsche Schlager Hits Deluxe 2018 (80 Discofox Hits) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mike Bauhaus - Ich Geh Nicht Zu Boden (03:40)
+02 - Die Herzdiamanten - Am Besten Du Gehst (Fox Mix) (03:28)
+03 - Joel Gutje - Sensationell (Huma Dj Mix) (03:45)
+04 - Pat - Diese Geile Nacht (03:13)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 04:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501CD70323185BC21B8C60DD69DBDF257E474FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215339   (759618) от 25.03.2018
+
+VA - Best Of The 70's (2002) [FLAC|Lossless|tracks + .cue] <Rock, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759618.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Rubettes - Sugar Baby Love [03:21]
+2. Santa Esmeralda - Don't Let Me Be Misunderstood [03:25]
+3. Mud - The Cat Crept In [04:07]
+4. Dillinger - Cocaine In My Brain [05:09](   Читать дальше...   )Жанр: Rock, Reggae, PopПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76EDE5AC949840B748EC95E868B91E3CAACD5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 780720   (759475) от 26.04.2014
+
+VA - Pure... 80s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник от Sony Music возвращает нас к лучшим хитам 80-х. И хотя на первый взгляд вам может показаться, что в сборнике нет ничего необычного, тем не менее обратите внимание на такие неординарные хиты тех лет как "Hungry Like the Wolf," "Our House," "Relax," "Sweet Dreams (Are Made of This)," "Video Killed the Radio (   Читать дальше...   )CD1:
+Продoлжитeльность: 01:14:49
+ 01. Bill Medley & Jennifer Warnes - (I've Had) The Time Of My Life  (4:50)
+02. Starship - We Built This City  (4:54)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard RockПродолжительность: 04:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375769D9CC04976F03BAE269B54FEA90F6D1D4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018015   (759271) от 18.05.2016
 
 Dave Edmunds - 2 Albums (1983, 1984) [MP3|320 кб/с] <New Wave, Pop Rock, Rock & Roll>
@@ -628,122 +744,6 @@ Jason Mraz - Look For The Good (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E3B409C049444FC594387FFFCFE9484FA289C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018984   (753633) от 21.05.2016
-
-VA - The Yellow Collection (2016) [MP3|320 кб/с] <Disco, Nu-Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atella feat. O Martin - Mechanical Sparrow (04:32)
-02. Nteibint feat. Rush Midnight - By Your Side (04:31)
-03. Du Tonc - We Can Hold On (Satin Jackets dub) (05:06)
-04. MiddleSkyBoom feat. Eliezer - Slow With The Run (05:52)(   Читать дальше...   )Производство: Eskimo BelgiumЖанр: Disco, Nu-DiscoПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348282993F6E988E1A705373F8E7FCB67C18E582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281202   (753482) от 07.02.2019
-
-The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave, 80s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hundred Words (3:43)
- 02. Slow Drowning (4:29)
- 03. In Trouble and Shame (7:07)
- 04. This Means War (radio mix) (3:28)(   Читать дальше...   )Жанр: Pop Rock, New Wave, 80sПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3081A86161D24E0B7E325CC9B930992373D77AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281228   (753362) от 07.02.2019
-
-VA - Discomax (Mixed by A & A Mixmasters) (2012) Partially Mixed, Limited Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various (Mixed by Mr. Acetone) - Megamix Version [111-124 BPM] (14:18)
-1.1-Fable Time - Russia
-1.2-Tom Hooker - Feeling Okay
-1.3-Madonna & MC Miker ''G'' & Deejay Sven - Holiday Rap(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DCFB536C95DD73824CBE88FDDE2CD78F9D81F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018911   (752171) от 22.05.2016
-
-Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Getcha Good! (4:13)
-02. You Win My Love (4:33)
-03. Don't Be Stupid (You Know I Love You) (3:45)
-04. Up! (2:56)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95FC3E985DA1898A065B9DD1B33C1B0A56CA0B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

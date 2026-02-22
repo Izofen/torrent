@@ -1,3 +1,119 @@
+###  Публикация: 1213456   (768121) от 17.03.2018
+
+Laura Pausini - Fatti sentire (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Italian>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Non e detto
+02. Nuevo
+03. La soluzione
+04. E.STA.A.TE(   Читать дальше...   )Жанр: Pop, ItalianПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2765966AB6F163F402F481AB34F9FA1B2F0C4717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213697   (768082) от 17.03.2018
+
+Plazma - Indian Summer (2017) [FLAC|Lossless|tracks + .cue] <Pop, Europop, Synth-pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tame Your Ghosts (04:26)
+02. Angel Of Snow (04:26)
+03. Brilliant Water (03:13)
+04. Mystery (The Power Within) (03:56)(   Читать дальше...   )Жанр: Pop, Europop, Synth-popПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B14B789418AEBCA73934EE7A0E34344A3EF585B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125611   (768052) от 15.04.2017
+
+VA - Germanys Next Topmodel: Best Catwalk Hits 2017  [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars – 24k Magic
+02. Jax Jones – You Don’t Know Me
+03. Alice Merton – No Roots
+04. Alma – Chasing Highs(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D459610DD9AA573A588728833C87D4CE7089F2CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278875   (767790) от 27.01.2019
+
+VA - Hot Parade Dance Winter 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767790.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Bob Sinclar - Electrico Romantico
+02. Matt Simons - We Can Do Better
+03. CELESTAL - Old School Romance (Merk & Kremont Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF69654797D71996D6EBDE8F92CB8432B08C16F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278921   (767781) от 27.01.2019
 
 Venise - The Best Disco In The City (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -624,122 +740,6 @@ VA - Sexy Bedroom Songs 2020 (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC7ECB8D1C941F898CFB0336C913F31D4D8DB814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393785   (766212) от 02.07.2020
-
-VA - NRJ Summer Hits Only (2020) 3 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - летний сборник (   Читать дальше...   )01. Soolking feat. Dadju - Meleğim  (3:38)
-02. KAROL G & Nicki Minaj - Tusa  (3:21)
-03. Ava Max - Kings & Queens  (2:42)
-04. Soprano - Ninja  (3:05)(   Читать дальше...   )Релиз состоялся: 26 июня 2020 годаЖанр: Pop, Rock, DanceПродолжительность: 02:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D95DBC6DAEE7827520B14D76A38AA6A59ECCDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279391   (766113) от 29.01.2019
-
-One-Two-Three - One-Two-Three (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор и продюсер: Bobby Orlando01. Runaway (5:19)
-02. Midnite Fantasy (5:22)
-03. Another Knife In My Back (6:05)
-04. Falling In Love With Myself (6:51)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC41E49229DF8423CCE174B3A938B6D6C5E30668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126303   (766004) от 17.04.2017
-
-VA - 100 Hits 80s Pop (2017) 5CD, Box Set[FLAC|Lossless|tracks + .cue] <80s, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкая ностальгия вас иногда пронизывает? Меня ностальгия не мучает – разве что иногда приятно вспомнить суету и веселье тех времен когда ничего в магазинах не было, но у всех всё было, когда была бесшабашная молодость и шабашки летом. А вы когда путешествуете по родным, далеким местам, какие чувства испытываете? Вот и этот сборник по волнам нашей памяти унесет нас (   Читать дальше...   )CD1:
-01. Dead Or Alive - You Spin Me Round (Like A Record)  (3:16)
-02. Haircut 100 - Fantastic Day  (3:15)
-03. Bros - I Owe You Nothing  (3:36)(   Читать дальше...   )Жанр: 80s, Pop, RockПродолжительность: 06:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B5AFCA43564E2B160C45ED7218C3E146A3854C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126607   (765486) от 18.04.2017
-
-Sound Of Music - 2 Albums (1986, 1987) CD [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведская поп-группа, существовавшая с 1985 по 1987 год в составе вокалисток Angelique Widengren, Nanne Nordqvist со своим мужем Питерем Gronvall, композитором, клавишником и продюсером, сыном известного Benny Andersson из ABBA.01. A Pretty Lovesong (4:27)
-02. Eldorado (4:49)
-03. Peek-A-Boo (3:30)
-04. West Indies Nights (4:45)(   Читать дальше...   )Жанр: Electronic, Synth-pop, PopПродолжительность: 01:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD7894390B2DD6CFEDD54D297290BB2ECA0E699
 ```
 
 https://mybot314.ru/tekegram_catalog/

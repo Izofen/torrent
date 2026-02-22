@@ -1,3 +1,119 @@
+###  Публикация: 1235326   (557365) от 13.07.2018
+
+Mireya Bravo - Tu Reflejo (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me Cuesta la Vida
+02. Corazón Vendío
+03. Mentiras de Papel
+04. Por Qué(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3041C7B449C1F3D89B64E2214A89A295335F52A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235659   (557338) от 13.07.2018
+
+VA - Acoustic Pop (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Cohn - True Companion
+02. Daniel Powter - Best of Me (Radio Version)
+03. Tori Amos - A Sorta Fairytale (Demo)
+04. Ryan Cabrera - True(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483CC64D1E759F75B2AFDE2D420399B81D85A848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235726   (557325) от 13.07.2018
+
+Rick Astley - Beautiful Life (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Life
+02. Chance to Dance
+03. She Makes Me
+04. Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15628603EE7A5DF8392B0AA48BD7A62CDFD16D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305191   (557141) от 30.05.2019
+
+Happy Holiday Singers - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino-Party>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wir haben ein Idol (Harald Juhnke) (3:21)
+02. Augen zu und durch (3:20)
+03. Peter Ortloff Schlagerparty (3:51)
+04. Ritmo De La Noche (5:38)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0F56368B3F83024D216D4FF3696056AFDED9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305193   (557136) от 30.05.2019
 
 Peter's Dance Factory - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino-Party>
@@ -627,122 +743,6 @@ Awim - Angels Whisper In Me (2005) [MP3|320 кб/с]<Pop, indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E56AD9FBB6BA94F512C89536566552B4E26FD91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307109   (555226) от 08.06.2019
-
-Plastic Surprise - Bang Bang (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bang Bang (You Got The Money) (5:09)
-02. Disco Express (7:43)
-03. Got To Have Your Love (9:29)
-04. Hot Nights (6:02)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37F40B72D9D336118E0C42490C2930AFEBF0BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307305   (555087) от 09.06.2019
-
-The University of Newcastle Choir - Battle Cry (2008) [FLAC|Lossless|image + .cue] <Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Playin to Win (2:58)
-02. Bicycle (2:31)
-03. Great Southern Land (4:56)
-04. And So It Goes (3:16)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A652A8391C6FF586E052128FF9C48C14C794C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307429   (555086) от 09.06.2019
-
-Bo Katzman Chor - Spirit of Joy (2001) [FLAC|Lossless|image + .cue] <Pop, Cover, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Of Joy (4:27)
-02. Joshua (2:54)
-03. Soul Searchin' (5:54)
-04. Our Father (4:49)(   Читать дальше...   )Жанр: Pop, Cover, GospelПродолжительность: 00:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48196ABE56FD374FE589711671E3FAAE67CCF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307397   (555084) от 09.06.2019
-
-Горячий шоколад - Береги (2009) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выбрала любовь
-02. Береги
-03. Чувства
-04. Неба мало ( feat. Дмитрий Климашенко )(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDC93DB9ED43A91AC0AE7F518DB3E16CB0C413A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1361323   (946536) от 25.02.2020
+
+Малолетка (Акула) - Где-то звёзды (1999) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночь (4:26)
+02. Увидимся (dj zoomer club mix) (4:09)
+03. Дождь (4:04)
+04. Я люблю тебя (4:27)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88ED192CC7C4E53A5098B2B52068C85AB5AC542D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362879   (946462) от 25.02.2020
+
+Рома Жуков - Первый снег (1988) JAM, 2019, Remaster [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пыль мечты (8:00)
+02. Первый снег (5:45)
+03. Никто не в силах мне помочь (4:11)
+04. Прошу тебя, не верь словам (4:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF80BAF7220E0E9F3A3B3031E1EB98E500C1A48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751137   (946404) от 30.01.2014
+
+C.C. Catch - Maxi Hit-Sensation: Nonstop DJ-Mix+Extra Bass (2006) [FLAC|Lossless]<Disco, Euro House, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soul Suvivor (Long Version)   (4:58)
+02.  Midnight Gambler (Long Version)   (4:11)
+03.  Back Seat Of Your Cadillac (Extended Version)   (4:35)
+04.  Good Guys Only Win In Movies (Maxi-Version)   (4:40)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8072CCB58BA46E6CDDF92FF265F8087C88FC3863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090682   (945885) от 07.01.2017
+
+Hypnosis - Greatest Hits & Remixes (2016) [MP3|320 Kbps] <Italo Disco, Spacesynth, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulstar (Disco Mix) [08:15]
+02. Droid (Extended Swedish Remix) [08:25]
+03. Automatic Piano (Maxi Version) [05:10]
+04. Oxygene (Maxi Version) [08:10](   Читать дальше...   )Жанр: Italo Disco, Spacesynth, SynthpopПродолжительность: 02:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4F3E7B5DFDBF6F05549542E68089E7643AA487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063973   (945585) от 07.01.2017
 
 Наталья Ветлицкая - De Luxe Collection (2002) [FLAC|Lossless|image + .cue] <Pop>
@@ -620,119 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25D73FB6FFB703CE85F2C4C6E32CECA72FDBC3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983090   (943784) от 06.02.2016
-
-Zayn - Pillowtalk (2016) Single [MP3|320 кб/с] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PILLOWTALK (03:24)Жанр: Pop, R&BПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956B4F88460E237F62AB33D53D9D4CBC30BD8E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363294   (943761) от 27.02.2020
-
-Do Piano - Again & Forever (2009) [FLAC|Lossless|image + .cue] <Italo-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Again (Single Version) (4:43)
-02. All The Time (Single Version) (4:34)
-03. This Angel (Single Version) (4:15)
-04. Encore (Single Version) (4:44)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E577D7ECBE8FC28584ED82A8D657609B90C080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363263   (943755) от 27.02.2020
-
-Света - Сердце моё (2009) [MP3|320 Kbps] <Pop, Downtempo, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не говори (03:10)
-02. Сердце моё (04:12)
-03. Рига (03:08)
-04. Тайна (03:47)(   Читать дальше...   )Жанр: Pop, Downtempo, EuropopПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA2342BC7EFB921E8C62BE5D09E9F4EEBD26A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363288   (943752) от 27.02.2020
-
-Екатерина Разумовская - Остановка сердца (2005) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Остановка сердца
-02. О тебе, для тебя
-03. Наша история
-04. Кричи шёпотом(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F245DDEB55A5C84936D7B9F9EE8FEABBA05578
 ```
 
 https://mybot314.ru/tekegram_catalog/

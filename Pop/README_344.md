@@ -1,3 +1,89 @@
+###  Публикация: 1786930   (68860) от 23.03.2025
+
+Олег Погудин - Надежды маленький оркестрик (2025) Песни Булата Окуджавы [MP3|320 Kbps] <Русская эстрада, Вокал>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Надежды маленький оркестрик [00:02:46]
+02 - Ещё один романс [00:02:25]
+03 - Живописцы [00:02:01]
+04 - Вот так она любит меня [00:01:48](   Читать дальше...   )Жанр: Русская эстрада, ВокалПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F270BA5D89240E06EF019920210A27192EA3BBAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786993   (68822) от 24.03.2025
+
+RaiNao - Capicu (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, jazz, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. logout de riíto con la gata [00:02:23]
+02. readysita pal party en casa [00:02:11]
+03. Gualero de jangueo en El Gandúl [00:03:03]Жанр: Alternative Pop, jazz, R&BПродолжительность: 2 CD, 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A86AB1D624839D671B4BE5704358525CBA11B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787457   (68795) от 25.03.2025
+
+Marina Kapuro (Марина Капуро) - Happy New Year (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterloo (2:55)
+02. Mamma Mia (3:36)
+03. Knowing Me, Knowing You (3:40)
+04. I Have a Dream (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA872A5E9AB9928BE4304A74364E62BB96391900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787500   (68794) от 25.03.2025
 
 VA - I Love ZYX Italo Disco Collection 4 (2006) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
@@ -658,93 +744,6 @@ VA - 40 Jahre Disco - Dance The Disco (2010) 2 CD [OGG Vorbis|480 Kbps] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47D093546E75BB069B2702393C2B30A0B6C2A422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789516   (68269) от 05.04.2025
-
-Etienne Daho - Pop Satori (серия "Другие восьмидесятые") (1986) CD, Album, Reissue, Remastered, Repress, 2006, Parlophone, Warner Music France [MP3|320 Kbps] <French Pop, Synthpop, Cha ...
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satori theme
-02. Epaule tattoo
-03. Paris Le Flore
-04. Pop egerie O. (En duo avec Elie Medeiros)(   Читать дальше...   )Жанр: French Pop, Synthpop, ChansonПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670FDD7F500A2C0FA7607F83D6BB1BCFB39AC094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790002   (68175) от 07.04.2025
-
-VA - Grammy 2017 Nominees (2017) [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Funk / Soul, Pop, Folk, World, & Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyonce Feat. Jack White - Don't Hurt Yourself
-02. Twenty One Pilots - Stressed Out
-03. Sia Feat. Sean Paul - Cheap Thrills
-04. Drake - Hotline Bling(   Читать дальше...   )Жанр: Hip Hop, Rock, Funk / Soul, Pop, Folk, World, & CountryПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00FB1739E7D9D48C78BEB987062A1E4581ADC205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790359   (68125) от 08.04.2025
-
-VA - The Best Of Italo Disco - Unreleased Tracks (2008) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claudio Mingardi - Forever Mine (Versione Mix)
-02. Alan Ross - Valentino Mon Amour (Vox Mix)
-03. Cyber People - Dr. Faustus (Razzmatazz Version)
-04. Baby's Gang - My Little Japanese Boy(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E475C4DE17C764BE95B2F731213DD0FC448F87
 ```
 
 https://mybot314.ru/tekegram_catalog/

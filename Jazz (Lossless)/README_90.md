@@ -1,3 +1,32 @@
+###  Публикация: 1011706   (796445) от 28.04.2016
+
+Blue Mitchell & Sonny Red - Baltimore 1966 (2016) Uptown Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.If I Should Lose You [15:30]
+ 02.All Members [14:27]
+ 03.Fungi Mama [10:24]
+ 04.Blue Spring Variation (Shifting Down, Blue Spring, Blue Spring Shuffle) [10:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067877D310EE80008AE997D7BA319D64043D6A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011768   (796407) от 28.04.2016
 
 Stan Getz - Moments In Time (1976) 2016, Resonance Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
@@ -716,35 +745,6 @@ Dizzy Gillespie meets The Phil Woods Quintet (1986) Remaster, 2015, Solid Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518734AD14BA79DB6B2EC1748F56DACBCE1EB914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386452   (794553) от 29.05.2020
-
-Tony Bennett - Tony Bennett's Greatest Hits of the '50s (2006) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boulevard of Broken Dreams (Gigolo and Gigolette) [2:58]
-02. Because of You [2:59]
-03. Cold, Cold Heart [2:40]
-04. Blue Velvet [3:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18DA62FF37BD95868C605924B8EA4A35C5AEEB05
 ```
 
 https://mybot314.ru/tekegram_catalog/

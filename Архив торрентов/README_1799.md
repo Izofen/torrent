@@ -1,3 +1,29 @@
+###  Публикация: 743885   (815771) от 13.04.2014
+
+Space Dandy / Космический Денди [2014, TV, 13 ep.] HDTV 720p raw
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815771.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета профессиональный охотник на инопланетян по имени Денди. Занимается он тем, что мотается по галактике, разыскивая новые инопланетные формы жизни, за что получает вознаграждение, но только в случае, если успеет поймать их первым. Вместе со своими напарниками — роботом QT (модель «Ведро-с-гвоздями») и туповатым инопланетянином-бетельгейзеанином по имени (   Читать дальше...   )Жанр: приключения, фантастикаРежиссер: Ватанабэ Синъитиро / Watanabe ShinichiroПеревод: AleX_MytH, BO3DYX, ReaperЯзык озвучки: ЯпонскийЯзык субтитров: Русский; АнглийскийПродолжительность: (12 эп.), 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EE9736C70A5FB487337F91C43D78D14D1E7674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504033   (815744) от 21.10.2021
 
 Windows and Office Genuine ISO Verifier 11.10.22.21 Portable [En]
@@ -678,35 +704,6 @@ VA - Tukan Trance (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0377528E066F06BFB70338CFD624EC2C14352606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117811   (815621) от 24.03.2017
-
-VA - The Best Undeground Music (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Owl Stone - Eternity (Original Mix)  6:33
-02.  Sunmote - Canara (Original Mix)  4:30
-03.  Sunmote - Love Is Gone (Original Mix)  5:15
-04.  Farcoste - I Feel You In Thousand Kilometres (Original Mix)  6:22(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513DE9567BBEEC32BF8100F4C37A5B4CC8F3F0EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

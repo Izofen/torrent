@@ -1,3 +1,32 @@
+###  Публикация: 1124678   (785663) от 12.04.2017
+
+Tin Pan - The Home Bartender's Song Book (2011) [FLAC|Lossless|image + .cue] <Blues,Vocal Jazz, New York Street Band, New Orlean Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Found a New Baby (3:35)
+02. My Babe (2:28)
+03. Come Home (3:02)
+04. Glory Land (2:53)(   Читать дальше...   )Жанр: Blues,Vocal Jazz, New York Street Band, New Orlean JazzПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADF47E9300937091878510F2D271345846D94FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124703   (785658) от 12.04.2017
 
 VA - Wouldn't It Be Nice: A Jazz Portrait Of Brian Wilson (2000) Horipro [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -716,35 +745,6 @@ Dexter Gordon - Gotham City (1981) Columbia [FLAC|Lossless|image + .cue] <Hard B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEF9D1A4112A28ED3DE3D0D62B21E93DC0F09FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389523   (784285) от 11.06.2020
-
-Jack Parnell - Two Classic Albums Plus 1946 - 1954 (2010) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784285.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Hawk Talks [2:52]
-02. Sure Thing [2:55]
-03. The Carioca [2:25](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9452B38C181361E773E2492F0E8667459DC636
 ```
 
 https://mybot314.ru/tekegram_catalog/

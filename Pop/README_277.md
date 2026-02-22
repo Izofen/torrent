@@ -1,3 +1,90 @@
+###  Публикация: 1585866   (219523) от 24.10.2022
+
+VA - Ballermann Party Mix - Alle Hits Der Playa von 1998-2022 "Summer Edition" (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Bier - Bierkapitan
+02. Tobee - Cordula Grun
+03. Micky Band Bruhl - Buenos Dias Matthias (Version 2021)
+04. Buddy - Ab in den Suden (Neuaufnahme)(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:10:32 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D60565BA627BAC8C4E75A82EDE1FE4F719F3BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585868   (219514) от 24.10.2022
+
+VA - Ballermann Megamix (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nancy Franck - Korken knallen
+02. Marc Koste - Open Air
+03. Die Eierheiligen - Feiereier
+04. Rick Arena Moses C. - Vorn an der Theke stehn(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 04:08:14 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33C92DC2E47016C9B2B1375CA21DE71FD24BFA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585854   (219484) от 24.10.2022
+
+VA - Ballermann Huttengaudi (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bierkapitan - Schere Stein paar Bier (Schnick Schnack Schluck)
+02. Peter Wackel - An der Theke
+03. Ikke Huftgold - Ich schwanke noch
+04. Lorenz Buffel & Anna-Maria Zimmermann - Ein Lied fur diese Welt(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:07:07 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D6A783BD48A4589F3DFC97DD70FC4AEBCC2145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585871   (219458) от 24.10.2022
 
 VA - Karneval am Ballermann 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1AD25B9532F9F776E76646B3A5EA8039AF97E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343312   (218486) от 06.12.2019
-
-Samba Soul - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Samba, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm In You (5:25)
-02. Here We Go Again (5:58)
-03. Sometimes When We Touch (5:14)
-04. Keep Your Eyes On The Sparrow (5:15)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Samba, DiscoПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F5D55A194BA3CEA46D9DF26EE1B20F7FA0968A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084671   (218443) от 19.12.2016
-
-VA - Just The Hits 2016 (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chainsmokers - Roses (Feat. Rozes)
-02. Flo Rida - My House
-03. Twenty One Pilots - Stressed Out
-04. Coldplay - Adventure Of A Lifetime(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1519F81BFD56F85F540887516B4406575305C713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343392   (218420) от 06.12.2019
-
-VA - Megahits 2020 - Die Erste (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218420.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dua Lipa - Don't Start Now
-02. Felix Jaehn,Vize,Miss Li - Close Your Eyes
-03. Tones and I - Dance Monkey(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64221C2748078883118ED390B0AE48368D4BD218
 ```
 
 https://mybot314.ru/tekegram_catalog/

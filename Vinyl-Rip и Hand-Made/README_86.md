@@ -1,3 +1,177 @@
+###  Публикация: 1793615   (67454) от 25.04.2025
+
+Limbes - Liernes (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Atmospheric Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67454.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Pied De Pilori
+A2 - Les Côtes à L'Unisson
+B1 - Buffet Frigide
+B2 - Aulnes Et PoussièresЖанр: Atmospheric Black MetalПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86056FEFF7E86C9A0DD6BE6FBE7DD76A62359596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793637   (67446) от 25.04.2025
+
+Samael - Rebellion (1995) (EP) Reissue, 2014, Floga Records [FLAC|24/96|tracks|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67446.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Rebellion
+A2 After The Sepulture (New Version)
+A3 I Love The Dead
+B1 Static Journey(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A14D243F236A840441C71C6F6D21038AA4B0E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642795   (67412) от 27.04.2025
+
+Deserted Fear - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deserted Fear - Death metal группа из Германии, основана в 2008 году.2012 - My Empire
+2014 - Kingdom of Worms
+2017 - Dead Shores Rising
+2019 - Drowned By HumanityЖанр: Death MetalПродолжительность: 04:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C1B5449B9176EF79ED55DB61B6E5471B823333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793973   (67405) от 27.04.2025
+
+Helena Vondrackova - Music (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67405.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Music
+A2 Dancing In The City
+A3 Kes, Kes
+A4 Love Me(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A751D134EF10216D0672E86A9CF0ABB92AE83C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794005   (67382) от 27.04.2025
+
+Brainstorm - Wall of Skulls (2021) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Walls....
+A1 Chamber Thirteen
+A2 Where Ravens Fly
+A3 Solitude(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AFE8A4F6945AFD155594B02F3F8C310A88B5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793702   (67381) от 27.04.2025
+
+Game Over - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Game Over - итальянская треш-метал-группа, основана в 2008 году.2012 - For Humanity
+2014 - Burst into the Quiet
+2016 - Crimes Against Reality
+2017 - Claiming SupremacyЖанр: Thrash MetalПродолжительность: 03:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A6567E962642C3F866FBED60522F4FEC33894C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794370   (67325) от 28.04.2025
 
 Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
@@ -570,180 +744,6 @@ A4. Nocebo (05:22)(   Читать дальше...   )Жанр: Progressive Deat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E19E8C4B783D9087F942D866A93BBF0DF7C8B740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795500   (67039) от 05.05.2025
-
-Charlie Rich - Behind Closed Doors (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67039.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Behind Closed Doors
-A2 If You Wouldn't Be My Lady
-A3 You Never Really Wanted Me
-A4 A Sunday Kind Of Woman(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7C6D617671F7FF6F3CC8E4F5A51C1013542E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795778   (67032) от 06.05.2025
-
-Avenger - Godless (...Assuming the Throne of Immortality...) (2003) [WavPack|32/192|image + .cue|Vinyl-Rip] <Black, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67032.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Enter My Darkness
-A2 - Even To The Bones Marrow
-A3 - Before Storm
-A4 - The Return Of Apocalypse(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00: 44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AF239EB08C6A19FADE5F73CFB91B2A6101E7B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795944   (67019) от 07.05.2025
-
-Blood Incantation - Starspawn (2016) Released, 2021, Century Media [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67019.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vitrification Of Blood (Part 1)
-A2 Chaoplasm
-B1 Hidden Species (Vitrification Of Blood Part 2)
-B2 Meticulous Soul Devourment(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9719182439FBF2997A2730134A356A4698923EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795878   (67018) от 07.05.2025
-
-Dissentient - Studio Albums (4 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dissentient - канадская метал-группа из Оттавы, Онтарио, образована в 2005 году.2011 - Black Hole Machine
-2013 - The Archillect (EP)
-2019 - Portal III
-2023 - Labyrinth(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 03:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0E7BE7295FF703BAC699862AFC7021626D834F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796507   (66973) от 10.05.2025
-
-Blood Incantation - Hidden History of the Human Race (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66973.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Slave Species of the Gods (05:29)
-A2. Giza Power Plant (07:04)
-A3. Inner Paths (To Outer Space) (05:37)
-B. Awakening From the Dream of Existence to the Multidimensional Nature of Our Reality (Mirror of the Soul) (18:02)Жанр: Death MetalПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578DEB1B5AED7D68A0E1936AE309196A684FF734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796471   (66962) от 10.05.2025
-
-Manowar - Fighting the World (1987) [DSD128|Lossless|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66962.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fighting The World
-A2. Blow Your Speakers
-A3. Carry On
-A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9662F3413D5DC4B92BEDD0CADF65ABB745B5A4A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

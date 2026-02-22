@@ -1,3 +1,61 @@
+###  Публикация: 1182167   (319329) от 09.11.2017
+
+Grainne Duffy - Where I Belong (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where I Belong  (03:15) 
+02. My Love  (04:12) 
+03. Don't You Wanna Know  (03:23) 
+04. Home  (04:15) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300D0214D43D1EB2199F9475A0A49358A5B4EDE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259727   (319175) от 04.11.2018
+
+VA - Re-Bop: The Savoy Remixes (2006) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Garage House>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Modern Jazz Quartet - Movin' Nicely (Eclipse Remix) (03:41)
+02. Duke Jordan - Night in Tunisia (DJ Jazzy Jeff Remix) (06:01)
+03. Charlie Parker - Moose the Mooche (feat. Miles Davis) (Quantic Remix) (03:18)
+04. Curtis Fuller - Minor Vamp (Basement Boys Remix) (06:30)(   Читать дальше...   )Жанр: Contemporary Jazz, Garage HouseПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2A50EAAA7A84FD393CEBD38E09CEC97502347C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259554   (319173) от 04.11.2018
 
 Clifford Jordan - Seven Classic Albums (1957 - 1962) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop>
@@ -686,64 +744,6 @@ Ari Brown - Live At The Green Mill (2007) Delmark [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F775BE4CAC48F75D410481758F51AA957515091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332148   (316848) от 19.10.2019
-
-Ken Peplowski - Last Swing Of The Century (1999) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Dance [2:20]
-02. Hunkadola [3:27]
-03. Between the Devil and the Deep Blue Sea [3:12]
-04. King Porter Stomp [7:00](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF6B724279C476EBF27D83DA9C7DE360AC108CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332301   (316841) от 19.10.2019
-
-Onaje Allan Gumbs - Dare To Dream (1991) [FLAC|Lossless|image + .cue] <Smooth Jazz, Contemporary Ja>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Question - 7.24
-02. Second Thoughts - 6.46
-03. The Look - 6.56
-04. Dare To Dream - 4.31(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JaПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86CE982B5DB95E23A345B9E6A776F25CBEEAEB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

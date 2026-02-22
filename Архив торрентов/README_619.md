@@ -1,3 +1,29 @@
+###  Публикация: 1357482   (974330) от 03.02.2020
+
+QuiteRSS 0.19.3 +Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974330.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuiteRSS - это бесплатная и удобная программа для чтения новостных лент RSS/Atom.Язык интерфейса: Русский, Английский и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB075B0B9FF5ACBC8F7231065694D3853B230AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 438708   (974325) от 20.01.2012
 
 VA - TMP: Clear Sky 053 (29.09.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
@@ -688,32 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F570A5C017DB39A608065490BBCE1A5DA9430F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438988   (974257) от 20.01.2012
-
-[Wallpapers] HQ Wallpapers (20.01.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A8C903A711FD27B8508B48C52C1CAD6415F0FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

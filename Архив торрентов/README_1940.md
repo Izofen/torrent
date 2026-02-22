@@ -1,3 +1,29 @@
+###  Публикация: 1275731   (789447) от 13.01.2019
+
+Privatus 6.1.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит удаление самостоятельно. При необходимости Privatus может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2018Разработчик: SweetP ProductionsПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9902356E98A22E87C91B92EE9883CDE6DB517EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202741   (789411) от 30.01.2018
 
 7-Zip 18.01 Final Portable by PortableAppZ [Multi/Ru]
@@ -666,35 +692,6 @@ Fonica - Ripple (2003) Tomlab [FLAC|Lossless|tracks+.cue] <Abstract, Leftfield, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D83E742D38CA752E7F8658D23BAC66ECD8FD475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202822   (789116) от 31.01.2018
-
-Endurance - Echoic Architecture (2017) Polar Seas Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Towers (12:52)
-02. Varying Distances (03:08)
-03. Twilight Arcade (08:31)
-04. Automata (05:16)(   Читать дальше...   )Жанр: Ambient, MinimalПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF87875573FA94F281CB88D72E50BFE82AF0677
 ```
 
 https://mybot314.ru/tekegram_catalog/

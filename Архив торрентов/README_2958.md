@@ -1,3 +1,29 @@
+###  Публикация: 923083   (566260) от 30.07.2015
+
+Bitdefender Internet Security 2015 19.1.0.114 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bitdefender Internet Security 2015 - комплексный антивирус с фаерволом и усиленной защитой личных данных. Антивирус и антишпион с эффективным движком обеспечивают надежную защиту от вредоносных программ. Новая адаптивная технология сканирования позволяет увеличить скорость и производительность антивирусного решения. Двусторонний фаервол в Bitdefender Internet Security (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34C8B3F44071A14EB7361A4908E827A08FE556A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923177   (566258) от 30.07.2015
 
 Windows Firewall Control 4.5.1.0 [Ru/En]
@@ -652,41 +678,6 @@ VA - German Top 50 ODC Official Dance Charts 06.07.2018 (2018) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C01294A62538A7EF4C5C8D67DBD0453358151393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 225237   (565990) от 08.08.2010
-
-VA - Reiki. Helende Levensenergie (2009) [MP3|320 kbps]<New Age>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner-Reiki (Ad Visser intro in Dutch)
-02. Luna - Lotus Opening
-03. Daniele Garella - Lullaby
-04. Patrick Kosmos - Eargasm
-05. Aeoliah - The Treasure
-06. Max Folmer - Relaxing Waves
-07. Simon Cooper - Music of the Womb Part 1
-08. Danny Becher - Lighness I
-09. David Sun Productions - Healing Birdsong Part 1
-10. Erik Berglund - Healing Light(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

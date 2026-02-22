@@ -1,3 +1,89 @@
+###  Публикация: 1707594   (113305) от 17.03.2024
+
+Cherry Laine - The Singles Collection - B’ Sides (2023) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Love Me In A Special Way
+02. Island Guy
+03.  Come On And Sing
+04. You Are The Song(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145E39D9DEDFA6D7D17BC4C2EB9F39BFB5ACA6ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707755   (113292) от 17.03.2024
+
+Сергей Бобунец, DJ Nejtrino, Chester Young - Розовые очки (2024) Single [MP3|320 Kbps] <Dance, Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113292.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Розовые Очки (Radio Mix)
+2. Розовые Очки (Extended Mix)
+3. Розовые Очки (Instrumental Mix)Жанр: Dance, PopПродолжительность: 00:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E9E97576EF1DD7D0FFC06748571432EC934F448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707919   (113163) от 19.03.2024
+
+Omar Khorshid - Belly Dance Volumes 1 & 2 (1992) 2CD [FLAC|Lossless|WEB-DL|tracks] <World>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Story (3:29)
+02. Hernandos Hide Away (3:30)
+03. Guitar Tango (5:57)
+04. Pop Concerto (4:06)(   Читать дальше...   )Жанр: Pop, folk, worldПродолжительность: 01:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB225BD55E805D68F7ACE4C510E669CBDD3DADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708446   (113099) от 20.03.2024
 
 Fantastique - Fantastique (1982) Reissue, Remastered, 2024, Maschina [FLAC|Lossless|image + .cue] <Disco, Dance>
@@ -658,92 +744,6 @@ Trax - Watch Out! + Dancing In The Street (1977-1978) Compilation, Reissue, Rema
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B14AA850A15B0716B52576D1D807783162DDC326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715772   (111494) от 13.04.2024
-
-E-Bomber - Your Tee Is Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Dance-Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E-Bomber – Your Tee Is Hot (radio mix) (3:51)
-02. E-Bomber – Your Tee Is Hot (Party XL remix) (4:07)
-03. E-Bomber – Your Tee Is Hot (Piano Xs remix) (3:36)Жанр: Euro-Dance, Dance-PopПродолжительность: 00:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A81AB05B459A6054DED9393A8CFFCE16FBB60F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716643   (111325) от 16.04.2024
-
-Giuseppe Alicata - Take Me To Your Heart (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Disco House, Electro Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Alicata – Take Me to Your Heart (Radio Version) (3:29)
-02. Giuseppe Alicata – Take Me to Your Heart (80er Radio Edit) (3:28)
-03. Giuseppe Alicata – Take Me to Your Heart (Hitmix) (5:13)
-04. Giuseppe Alicata – Take Me to Your Heart (Instrumental) (3:28)Жанр: Euro-Disco, Disco House, Electro PopПродолжительность: 00:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C4362EBA082DD82261F04CAD899A21979E561E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716549   (111300) от 17.04.2024
-
-Linda Ronstadt - Live in Los Angeles 1980 (2024) [MP3|320 Kbps] <Country Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Can't Let Go (Live) [00:03:28]
-02 - Party Girl (Live) [00:04:14]
-03 - It's So Easy (Live) [00:03:01]
-04 - Willin' (Live) [00:04:04](   Читать дальше...   )Жанр: Country Rock, Soft RockПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC7BF1BCADD6422BB58090B74892CC94BA74551
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1308112   (554176) от 13.06.2019
+
+Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Alternative>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Ghost I (02:14)
+02. For the Sun (03:29)
+03. Watch the Time (02:17)
+04. Space Ghost II (03:09)(   Читать дальше...   )Жанр: Indie Folk, AlternativeПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF4B27FFB8A818FA7B481A732D2B9B3E618BE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236543   (554027) от 19.07.2018
 
 Piano Peace - Sleep Piano Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
@@ -716,35 +745,6 @@ VA - Summer: The Donna Summer Musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAA42EE4097535A9313EACCBA6C9E0968E20176E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310042   (547844) от 23.06.2019
-
-Sun Kil Moon ‎ - I Also Want To Die In New Orleans (2019) 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coyote (12:31)
-02. Day in America (15:06)
-03. L-48 (04:51)
-04. Cows (09:58)(   Читать дальше...   )Жанр: Indie Rock, Folk RockПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBE75B6679AF06AF5D258EA118DDB877AB340F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

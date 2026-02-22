@@ -1,3 +1,32 @@
+###  Публикация: 1681768   (132348) от 04.12.2023
+
+Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dendera (11:05)
+02. Pillars of Eternity (9:28)
+03. Of Lapis and Gold (11:36)
+04. Hieroglyphs and Mysteries (10:00)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D105DD6AF02AC95796DE260F103CC6366D0583A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682058   (132055) от 05.12.2023
 
 Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
@@ -740,35 +769,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC03A2C36934D4E141B52A9EF17E0D70ED475CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692774   (122196) от 18.01.2024
-
-Dancing Fantasy - Day Dream (1995) [OGG Vorbis|480 Kbps] <New Age/Meditative/Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  'Til the End of Time
-02.  Daydreamer
-03.  Walk of Life
-04.  Aisha(   Читать дальше...   )Жанр: New Age/Meditative/RelaxПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECDC6273B67419CEC173F907D737ACFC8CB891A
 ```
 
 https://mybot314.ru/tekegram_catalog/

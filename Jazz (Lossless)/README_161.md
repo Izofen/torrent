@@ -1,3 +1,32 @@
+###  Публикация: 1553190   (583808) от 24.05.2022
+
+Sarah Vaughan - The Roulette Years, Vols. 1-2 (1960 - 1964) 1991, Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Time We Say Goodbye [2:27]
+02. Great Day [2:13]
+03. Just in Time [2:21]
+04. You Stepped Out of a Dream [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED244966432DB782DA215B79CDB2BC386A57C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553242   (583761) от 24.05.2022
 
 David Linx - Be My Guest: The Duos Project (2021) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -714,35 +743,6 @@ Chick Corea, Joe Farrell, Frank Foster, Gene Perla, Elvin Jones - The John Coltr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D089DA1E21E9749775BA140959E3B925385B0F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919942   (581121) от 21.07.2015
-
-Keith Jarret - The Carnegie Hall Concert (2006) [FLAC|image +.cue]<Jazz, Avant-Garde Jazz, Modern Creative, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part VI (06:51)
-02. Part VII (08:35)
-03. Part VIII (05:20)
-04. Part IX (08:26)(   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Modern Creative, Free ImprovisationПродолжительность: 01:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6815566B5FA40380FC3A30D0D2B6C2D3FD6EF3DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

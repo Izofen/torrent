@@ -1,3 +1,176 @@
+###  Публикация: 1717401   (111153) от 20.04.2024
+
+Виталий Дубинин - Бал-Маскарад (3 издания) (2022-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бал-Маскарад - сольный проект Виталия Дубинина с участием Сергея Маврина и Михаила Бугаева (Гран-Куражъ)2022 - Бал-Маскарад
+2023 - Live-маскарад
+2023 - Бал-Маскарад. ПостскриптумЖанр: Heavy Metal, Hard RockПродолжительность: 02:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1003AE418AA6C52FD362413FC35BAE7970E9DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717470   (111146) от 20.04.2024
+
+City Woods - Highs and Lows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Hold Myself (4:15)
+02. Not Good Enough for You (3:22)
+03. Beautiful Soul (2:44)
+04. We Change (4:41)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193A13665B64CC56F98DAF7D80DB2958EB2F708B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717483   (111145) от 20.04.2024
+
+Nick Gravenites - Rogue Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poor Boy (feat. Charlie Musselwhite) (2:27)
+02. Blues Singer (feat. Jimmy Vivino) (3:08)
+03. Left Hand Soul (feat. Lester Chambers of the Chamber Brothers) (5:04)
+04. Blackberry Jam (feat. Lester Chambers of the Chamber Brothers) (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5774CAC58B6C1C4D8CBFDEEE4D3ABE0721DA060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717479   (111144) от 20.04.2024
+
+Freddy And The Phantoms - Heathen Gospels (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Is A Highway (3:10)
+02. Skeleton Man (4:52)
+03. Blues Trap (3:02)
+04. Blood (5:56)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFD6DF560365D6A5057FFA0391B11EA4A43F9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717533   (111143) от 20.04.2024
+
+High On Fire - Cometh The Storm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lambsbread [00:05:44]
+02. Burning Down [00:06:12]
+03. Trismegistus [00:05:36]
+04. Cometh The Storm [00:06:11](   Читать дальше...   )Жанр: Stoner, Sludge, DoomПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD65ABCC9828A898643C72B1FAAF154D2B2DE959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717480   (111141) от 20.04.2024
+
+Jeff McMillan - One Last Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Said (4:33)
+02. You Know What I'm Talking About (4:11)
+03. Devil Woman (4:33)
+04. I Say Its Cold (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C6F3CAFC0867EB7E9119E65970FFC6649D568E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717485   (111139) от 20.04.2024
 
 Severin - Times like this (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
@@ -571,180 +744,6 @@ Bronze - In Chains and Shadows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:733B43CF1254403D835EA18CCC20EC871D19147E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718311   (110980) от 24.04.2024
-
-Scott H. Biram - The One & Only Scott H. Biram (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Man’s Land (4:19)
-02. High & Dry (3:15)
-03. Easy Rider (3:58)
-04. I’ll Still Miss Ruby (3:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B1ECBED4A5EF328FBF4EEDC06935FC89CEAFAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718305   (110978) от 24.04.2024
-
-Nicholas Alexander - Lil Hoochie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:00)
-02. Popcorn (2:50)
-03. Dial Your Number (4:55)
-04. Outskirts Of Town (5:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678FD50C01330E90A5135F538F32AD77B63B1EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718262   (110977) от 24.04.2024
-
-Brian Stoltz - New World Rising (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can Never Die (3:11)
-02. Mirror Mirror (6:34)
-03. One Angel (4:22)
-04. All That Binds (7:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86147B18398F304813AC7B6AC03CC570A0353B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718322   (110975) от 24.04.2024
-
-Winter Blues Band - Tale of a Lone Lil' Boy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tumblin' Down (3:15)
-02. Furiosa (3:47)
-03. The Weight of Things (5:35)
-04. Lazy Blue Line (4:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036200C90D50A935D70E7276611ECB16697EA320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718301   (110974) от 24.04.2024
-
-Mike Fisher - 12 Days of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Me (3:50)
-02. Hellhound (2:54)
-03. The Bog (3:58)
-04. Old Dog Blues (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C00FD6EFFF48D6D532D69FE2B0E3FAA8312F97D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718263   (110972) от 24.04.2024
-
-Grackles - Grackles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Comin To Ya (4:39)
-02. San Antone (3:54)
-03. Eternal Return Blues (3:43)
-04. Near or Too Far (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848823398AC1A991EF2B8A8D0F6C15852DDC77F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

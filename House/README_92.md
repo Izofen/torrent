@@ -1,3 +1,90 @@
+###  Публикация: 1781699   (70158) от 24.02.2025
+
+Dionigi - Space Disco (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Di Di Disco (6:34)
+02. Space Sequencer (5:45)
+03. Kevlar Sequencer (4:55)
+04. Base 80 (8:08)(   Читать дальше...   )Жанр: Deep-House, Nu-DiscoПродолжительность: 01:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BE0CE97AE9FDE70FBBB7520E011EE87587B67E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782025   (70089) от 26.02.2025
+
+VA - 25 Years Of Anjuna Mixed By Luttrell (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaytech - Pyramid (Dinka Extended Mix) (06:48)
+02. Soundprank - Beginnings (08:52)
+03. Michael Cassette - Through The Windows (Extended Mix) (04:49)
+04. Dusky - Mr Man (Extended Mix) (07:22)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E5D9CF364ECDC8D1E7045CAC749C116373CEE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783471   (69790) от 06.03.2025
+
+VA - CF Mix, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Approximate - Gamma Radiation (Original Mix) [6:52]
+02. NEO|WISE - Uncertain (Original Mix) [6:33]
+03. Jad0 - Indra (Original Mix) [6:15]
+04. Matías Delóngaro - Mausy (Original Mix) [6:56](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A294E6D1DC38285C6C3C1FE2F789C4CA824CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783450   (69782) от 06.03.2025
 
 VA - Winter Collection 2025 (2025) [MP3|320 Kbps] <Progressive House, Deep House, Melodic House & Techno>
@@ -658,90 +745,6 @@ Disc 1 (01:00:19) (mixed by)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D440C18AF3C43C77858999DD697DBD36A03978D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787984   (68623) от 28.03.2025
-
-VA - Ibiza Beach Vibes (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abee Sash - Feeling (03:18)
-02. N.E.O.N & Di Mora - Run To Me (03:30)
-03. Sandro Marini - Dingindaya (03:46)
-04. N.E.O.N & Di Mora - Where I Wanna Go (Radio Edit) (02:46)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A0709AE8F20FD0ACA4EE302CDFDE3B930DB741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788235   (68563) от 29.03.2025
-
-VA - The Sound of 2025, Chapter 3: London (Day Mix) (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jake Crooker - Heye (Intro Mix - Mixed) (06:55)
-02. UNWA - Nightfall (Original Mix - Mixed) (05:59)
-03. Martiln & Emedi - Saturate (Tom Sommerson Remix - Mixed) (03:44)
-04. Sputyan - Search for Happiness (Original Mix - Mixed) (04:38)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B89D8B19E33DCD02D601393AFFCE2B174B4FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788562   (68479) от 31.03.2025
-
-VA - Interplay Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaWTone – Tropical DreamЖанр: Progressive House, Melodic House & TechnoПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD34D57AAB75464D8599ECB9803BBCFB7F85E311
 ```
 
 https://mybot314.ru/tekegram_catalog/

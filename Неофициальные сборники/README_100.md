@@ -1,3 +1,305 @@
+###  Публикация: 1370657   (895221) от 28.03.2020
+
+VA - The Official UK Top 40 Singles Chart 27.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix)
+02. The Weeknd - Blinding Lights
+03. Roddy Ricch - The Box
+04. Joel Corry - Lonely(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC7744489FF29A2E0D711D0334E78C96F1E3A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370592   (895210) от 28.03.2020
+
+VA - Hundred Percent Drum And Bass (2020) [MP3|320 Kbps] <D&B, Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895210.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Inperspective - Faux Context
+002. Mistwist - Yall Been Warned
+003. Madface Feat. Mve - Help Me (Edlan Remix)
+004. Vivid Mc - Beware(   Читать дальше...   )Жанр: D&B, Bass, DubstepПродолжительность: 08:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6BD27FCE5053F2BEF109324A7A372D12AC6161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 638364   (895202) от 03.04.2013
+
+VA - Destination Jet Set (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz L'amour - Let Me Be Your Fantasy (La Nuit Voyage Mix) [05:36]
+02. Cooltrane - Capture the Sun [04:55]
+03. Nouvelle Roux - Le grand crome (Monte Carlo Love 2 Air) [05:14]
+04. Merge of Lounge - Universal Island (Relax and Chill Summer Beach Mix) [04:38]
+05. Soleil Fisher - Where the Lights Go Down [05:02]
+06. Monolounge Roudette - La fleur de la musique (Loca People Mix) [05:24]
+07. Musique Electronique - My St. Tropez Summer Love (Forever Young Chillout Mix) [06:00]
+08. Night Loungers - A Little Lazy Morning in Paris (French Kiss Instrumental) [05:26]
+09. Sweet Velvet - Mon reve mystique (French Cafe Chillout Mix) [05:48]
+10. Deja 7 - One More Night (Summer Night Chill Mix) [04:24](   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 03:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0538AB5A32426C02A042D59F3167B14EE62A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 638379   (895167) от 03.04.2013
+
+VA - Mirage (2013) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Tune - Flute [04:55]
+02. The Musix - Let the Tramp Play [04:21]
+03. For Emotion - Mental 1 - One Mix [03:58]
+04. Fast Connection - Oltreoceano [04:24]
+05. Night Fruit - Velocity Roll [04:43]
+06. Esotica - Indu Passion [04:20]
+07. Aldemario - Radio Copan [04:27]
+08. Diego polimeno & Alberto Vigano - Tramonto Di un Giorno D'estate [04:51]
+09. LB Sound - Impact [06:01]
+10. Kanto - Cosmic Gate [04:27](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D238F1AA9D52545FA693C151C9F702EF2DB0D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370595   (895137) от 28.03.2020
+
+VA - Music For Intensive Sports: Hardstyle Dance (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895137.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Dj Producer - The Sound
+002. Pete S - I Was Made For You
+003. S3rl - Bass Slut
+004. Digital Commandos - Angels With Filthy Souls(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 08:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4F07FE86ECF16FDE8DDED2DCAC9E4899FBB6BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370542   (895116) от 28.03.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 27.03.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Eilish - Everything I Wanted 4:05
+02. The Weeknd - Blinding Lights 3:22
+03. Макс Барских - Лей, не жалей 3:30
+04. Carla Morrison - Disfruto (Audioiko Remix) 3:16(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80522300BEBC77C2F473798569704C441AF21B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370650   (894988) от 28.03.2020
+
+Zucchero - 100% Zucchero (2020) [MP3|320 Kbps] <Rock, Pop Classical>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zucchero - Baila (Sexy Thing) (Remastered 2017)
+02. Zucchero - Baila Morena
+03. Zucchero - Blue (English Version-Remastered 2007)
+04. Zucchero - Cosi Celeste (Remastered 2017)(   Читать дальше...   )Жанр: Rock, Pop ClassicalПродолжительность: 03:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3357936BC807FE6725A9341B3B2CA844C086C5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370683   (894982) от 28.03.2020
+
+Nazareth - 100% Nazareth (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One from the Heart
+02. Where Are You Now
+03. Love Leads to Madness
+04. I Don't Want to Go On Without You (2010 - Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 02:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EAF18EE6971813081E24A7E73E3CB333DE15C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370515   (894974) от 28.03.2020
+
+Slade - 100% Slade (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lightning Never Strikes Twice
+02. Lock Up Your Daughters
+03. Lock Up Your Daughters (Live)
+04. Look at Last Nite(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 07:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731469DAF6067BD517CA0022027E5049092A6339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370393   (894820) от 28.03.2020
+
+VA - 100% Blues Ballads & Slow Blues (2020) 5CD [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Erickson - No Reply
+02. Johnny Littlejohn - Drifting
+03. Blue Stew - Bringing Home The Blues
+04. Jimmy Johnson - Your Turn To Cry(   Читать дальше...   )Жанр: BluesПродолжительность: 24:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEEEB2853FE7A690539536BEE7BEF2187FFBC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101528   (894780) от 07.02.2017
 
 VA - Танцевальная зима. Снежная сотка версия №8 (2017) [MP3|256 Kbps] <Pop>
@@ -455,296 +757,6 @@ VA - NRW: Clubbing Tech House (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance, Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:946C29D8AE134CBEE591BE7AAE9B320CFFFFBC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993603   (893953) от 06.03.2016
-
-VA - Лучшая 100-ка Радио Шансон (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Афина - Только Я И Ты
-02. Владимир Северский - Родимое Пятно
-03. Владимир Шишкин - Ты Есть У Меня
-04. Капитан Константин Баранов - Желание Земли(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44922BA93AEF09BF69F208AC748DC52E5FD15BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493654   (893945) от 04.09.2021
-
-VA - Beatport Progressive Trance: Sound Pack #340 (2021) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893945.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Trevor Reilly - This Is A Dream
-002. Maicuss - Night Driver
-003. Chris Sx - Over The Top (Extended Mix)
-004. Committee - Welcome(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BE0A4CD15ADDE286CBC063F50DD80E661A7905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493646   (893902) от 04.09.2021
-
-VA - Beatport Progressive House: Sound Pack #338 (2021) [MP3|320 Kbps] <House, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893902.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luca Guerrieri - Lions
-002. Roberto Traista - Wake Up Call
-003. F4t4l3rr0r - Wormhole
-004. John Wolf - Don't Cry(   Читать дальше...   )Жанр: House, Electro, ProgressiveПродолжительность: 11:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09EC57AE81BD11BB51CF536FB9F4F0E6E9FA8D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993721   (893897) от 06.03.2016
-
-VA - XXXXL Dance Hits (2016) [MP3|221-320 кб/с] <Club, Dance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jack Holiday And B-Case Feat Nico Santos And Tony-T - Feel It (Jack Holiday Club Mix)
-002. Steve Angello & Laidback Luke - Show Me Love (Feat Robin S) (Boeboe Remix)
-003. Reload & Esquire Feat. Leanne Brown - Dirty Cash (Reload Remix)
-004. Platunoff - Snow Melts In Your Hands (Difstate Remix)(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 06:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DB553F37EBBE3BFB4190D928CE083FDE7AC7C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493669   (893893) от 04.09.2021
-
-VA - Chillout: Herbal Relaxer Session (2021) [MP3|320 Kbps] <Chillout, Lounge, Relax, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_893893.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Living Room - Daydreaming
-002. Marc Hartman - A Fading Memory
-003. Floex - In Prison
-004. Anatoliy Nesterenko - Forest Valley(   Читать дальше...   )Жанр: Chillout, Lounge, Relax, DowntempoПродолжительность: 08:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E74C5AA06D6A04E135942EEC829480628E221A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493671   (893890) от 04.09.2021
-
-VA - Crystal Pop Jam Party (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893890.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Super-Hi And Neeka - Following The Sun
-002. Atb & Topic - Your Love
-003. Olivia Rodrigo - Deja Vu
-004. Pietro Lombardi - Ti Amo(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4277F2162E55C1F91937B0E146862B6E15AB107C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493747   (893822) от 04.09.2021
-
-VA - Peak Time: Techno Party (Vol.02) (2021) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893822.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drewtech - Fight
-002. Skirra - Never Again
-003. Q-Green - Novel
-004. Canosa - The Rider(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC033968278B66F9F3A187A331B42AFD4B19CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493663   (893813) от 04.09.2021
-
-VA - German Top 100 Single Charts 03.09.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893813.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Kid Laroi & Justin Bieber - Stay (2:21)
-002. Ed Sheeran - Bad Habits (3:51)
-003. Montez - Auf & Ab (2:45)
-004. Shouse - Love Tonight (Edit) (4:01)(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6667AEC2F7B49AA19C9C23FA6E31321FDE64D0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493750   (893791) от 04.09.2021
-
-VA - Rock Summer Fest (2021) [MP3|320 Kbps] <Rock, Alternative, Indie, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893791.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Suzi Quatro - Motor City Riders
-002. Brigades - Knife Dance
-003. David Bowie - After All
-004. It It Anita - Dixon Kentucky(   Читать дальше...   )Жанр: Rock, Alternative, Indie, Hard RockПродолжительность: 09:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE7A4CC55138EF37FB05063405A1CBE2EF1D0EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493759   (893770) от 04.09.2021
-
-VA - Vocal Chillout Music: Romantic Collection (2021) [MP3|320 Kbps] <Vocal, Chillout, Lyric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893770.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Boyz Ii Men - Why Christmas
-002. Seawayz & Sollito - Serenade
-003. Brijean - Wifi Beach
-004. Kina feat. Yaeow - Wish I Was Better(   Читать дальше...   )Жанр: Vocal, Chillout, LyricПродолжительность: 06:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DE5D2BDFA22CFB2808E6E15EE7BFD1B000C9AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

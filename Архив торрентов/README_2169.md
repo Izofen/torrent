@@ -1,3 +1,32 @@
+###  Публикация: 1217905   (740325) от 07.04.2018
+
+Sincarnate - In Nomine Homini (2017) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attende Domine
+02. Agrat bat mahlat
+03. Curriculum Mortis
+04. She-of-the-Left-Hand (Sophia Pistis)(   Читать дальше...   )Жанр: Doom Metal, Death MetalПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D518D9A39E58456D141151789E0034F1AC9287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217920   (740318) от 07.04.2018
 
 BLN - Reworked Rewired Vol.1 (2018) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Electro, Ambient>
@@ -676,32 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F28F06BD3F28A62BB5AEB091C1B9508FA1C62075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217944   (740126) от 07.04.2018
-
-Kenneth H. Rosen | Discrete mathematics and its applications 7th ed. [+Full Solution Manual] (2012) [PDF] [EN]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дискретная математика и ее приложения предназначены для одного или двух семестровых вводных курсов дискретной математики, взятых студентами из самых разных специальностей, включая информатику, математику и инженерию. Этот известный бестселлер, который был использован в более чем 500 учреждениях по всему миру, дает целенаправленное введение в основные темы на курсе (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F4271EB9D98456AA63D380E4CAD132FD13F4D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

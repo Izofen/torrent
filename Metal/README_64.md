@@ -1,3 +1,32 @@
+###  Публикация: 1545123   (616531) от 18.04.2022
+
+Nuclear Storm - Tales from the Depth (2022) [MP3|320 Kbps] <Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Animal (00:04:57)
+02 - The Crew (00:03:29)
+03 - The Empire (00:03:56)
+04 - The Great White (00:05:58)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEA10837A981A66A743E3AF8F7DF7FB89F50D65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911390   (616437) от 23.06.2015
 
 Alkenion - Time Machine II (2015) [MP3|320 кб/с]<Progressive / Symphonic Metal, Instrumental>
@@ -716,35 +745,6 @@ Udo Dirkschneider - My Way (2022) Cover album [MP3|320 Kbps] <Heavy Metal, Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02437D54AB38701D64A240CED838FFC6FBBA4C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912313   (610984) от 26.06.2015
-
-Hellmotz - South Born (2015) [MP3|320 кб/с]<Southern / Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Phillips (The Formidable Bastard)
-02. Wielding the Axe
-03. Defiance
-04. Booze & Girls(   Читать дальше...   )Жанр: Southern / Thrash MetalПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E571595358ACA91B914F1BAE4F06FBFB612DE46
 ```
 
 https://mybot314.ru/tekegram_catalog/

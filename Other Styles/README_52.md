@@ -1,3 +1,32 @@
+###  Публикация: 1115379   (822615) от 20.03.2017
+
+Alan Menken & VA - Beauty and the Beast / Красавица и чудовище (Original Motion Picture Soundtrack) (2017) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Menken - Main Title: Prologue (03:02)
+02. Alan Menken - Belle Meets Gaston (00:54)
+03. Alan Menken - Your Mother (02:14)
+04. Alan Menken - The Laverie (01:22)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:11:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7627050750363C03F8215CE040F18CA970A11CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502730   (822568) от 17.10.2021
 
 Jim Brickman - The Ultimate Christmas Playlist (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -715,35 +744,6 @@ Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A77CEE5E7D312409665A64BEF79813F275BADC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116883   (818937) от 22.03.2017
-
-Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack Album) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nameless Order (04:27)
-02. Prologue (01:49)
-03. What A Wall (03:46)
-04. The Great Wall (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0760446D40FC873A9383FFB96B580FEF10932A08
 ```
 
 https://mybot314.ru/tekegram_catalog/

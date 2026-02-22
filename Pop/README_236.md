@@ -1,3 +1,90 @@
+###  Публикация: 1332003   (318503) от 18.10.2019
+
+Syncophonic Orchestra - Columbia - A Space Symphony (1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автором и продюсером проекта является Alec R. Costandinos, выпустивший диск под псевдонимом A. Kouyoumdjian.01. Ignition (1:41)
+02. A Theme For Columbia (3:35)
+03. Tomorrow Starts Today (3:26)
+04. The Conquest (4:43)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134A74E74F0CD7C1DA593B503EA581BBCC193CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075848   (318379) от 23.11.2016
+
+VA - NOW That's What I Call Music! 95 (2016) [MP3|320 Kbps] <Top 40, Pop Compilation, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318379.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. James Arthur - Say You Won't Let Go  (3:33)
+02. Little Mix - Shout Out To My Ex  (3:47)
+03. Clean Bandit Feat. Sean Paul & Anne-Marie - Rockabye  (4:12)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, ElectronicПродолжительность: 02:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534C1432BD4E373059375EB75E322EB976C65EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331936   (318360) от 18.10.2019
+
+VA - 100 Greatest Xmas Top Christmas Classics (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pogues, Kirsty Maccoll - Fairytale Of New York (Feat. Kirsty Maccoll) 4:32
+02. Chris Rea - Driving Home For Christmas 3:59
+03. Wizzard - I Wish It Could Be Christmas Everyday (2006 Remaster) 4:50
+04. Kylie Minogue - At Christmas 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9131703636CB094B6FFB789578DE708B44461ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075640   (318359) от 23.11.2016
 
 Божья коровка - Девушка денег дай! (2016) [MP3|320 Kbps] <Pop>
@@ -655,93 +742,6 @@ Sandra - Greatest Hits (2008) [FLAC|Lossless|WEB-DL|tracks] <Europop, Synth-pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87CFDB71B5634C2CFD7C5B73273D0BED36078C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076040   (315987) от 24.11.2016
-
-Boris Zhivago - Memories (2016) [MP3|320 Kbps] <Euro Disco, Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories 5:29
-02. Love Is a Memory Away 7:56
-03. Russian Fantasy 5:25
-04. The Girl That Saved My Life 7:02(   Читать дальше...   )Жанр: Euro Disco, Italo DiscoПродолжительность: 01:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A4CDB70E7646ADFFD55CB9F00F51BB295BB47F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075514   (315981) от 24.11.2016
-
-VA - Хиты Теплого Моря (2012) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Груя - Любовь - это яд
-02. Dan Balan - Не любя
-03. Мак$им - Небо-самолёты
-04. Митя Фомин - Хорошая песня(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082683C7123E18721E18032AF62587BAAA3BD8B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076182   (315795) от 24.11.2016
-
-VA - 30 Euro Dance Pop Multibundle (2016) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 69 Project - U Dunno (Radio Mix) 03:29
-02. Amelia (Hun) - Never Be Alone (Joseph Horvath Remix) 05:27
-03. F.U.C.K. The System - Agent Walker (Extended Mix) (Feat. Nate Monoxide) 04:22
-04. Nian Project - Joy Thing (Original Mix) (Feat. Sherrita Duran) 06:26(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CD2F4AA113AA33E8DBD9E692A0B147651B5F3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

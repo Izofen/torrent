@@ -1,3 +1,32 @@
+###  Публикация: 1174154   (387235) от 14.10.2017
+
+Стары Ольса - Medieval Classic Rock (2016) [MP3|320 Kbps] <Folk, Folk rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стары Ольса - группа средневековой белорусской музыки, существующая с 1999 года. Создатель и руководитель - Дмитрий Сосновский, состав - 6 человек. Название - от ручья в западной Могилёвщине. В репертуаре группы - белорусские народные баллады и воинские песни, белорусские народные танцы, произведения белорусских композиторов эпохи Ренессанса, композиции из белорусских (   Читать дальше...   )1. Highway to Hell (AC_DC cover) (3:24)
+ 2. Another Brick in the Wall, Pt. 2 (Pink Floyd cover) (4:11)
+ 3. Californication (Red Hot Chili Peppers cover) (4:14)
+ 4. A Hard Day's Night (The Beatles cover) (2:34)(   Читать дальше...   )Жанр: Folk, Folk rockПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0371CA8AC29B3FFC448883A649200629C904D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326180   (387183) от 19.09.2019
 
 Medwyn Goodall - The Goddess of Machu Picchu (2019) [MP3|320 Kbps] <New Age>
@@ -720,35 +749,6 @@ VA - Modern Sound Orchestras - Moonlight Sonata (1992) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34D6168E09DD3E8C76D042FA513DFE32951B6BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068637   (380610) от 01.11.2016
-
-Galactic Agents - Human Contact (2002) [MP3|320 Kbps] <New Age, Worldbeat, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Passport Denied (3:34)
-02. Mullumbimby Bazaar (7:52)
-03. Anasazi Exodus (5:35)
-04. Afro Tech Suite (7:46)(   Читать дальше...   )Жанр: New Age, Worldbeat, Native AmericanПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB93F8494A91EE2237C09C8C81001EDBF156057
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,181 @@
+###  Публикация: 600572   (998808) от 08.01.2013
+
+Ария - 3 магнитоальбома (1986-1987) [FLAC 2.0 24/48|tracks (MBRip)]<Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600384   (998771) от 08.01.2013
+
+The Cranberries - 5 альбомов (1993-1999, 2012) [FLAC 2.0 24/192 |image + .cue, tracks (Vinyl-Rip)]<Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600155   (998741) от 08.01.2013
+
+The Prodigy - The Fat Of The Land (1997) [FLAC 2.0 24/96 |tracks(VinylRip)]<Breakbeat, Big Beat, Dubstep>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998741.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Smack My Bitch Up (05:43)
+L. Howlett, M. Smith,
+N. Miller, K. Thorton,
+T. Randolph
+A2. Breathe (05:36)
+L. Howlett, Keith Flint,
+MaximЖанр: Breakbeat, Big Beat, DubstepПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99E88650870CE602217B3F436EF4FB6FB9DFCA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600690   (998549) от 09.01.2013
+
+Ария - Магнитоальбом (1989) [FLAC 2.0 24/96|image+.cue (MBRip)]<Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Что вы сделали с вашей мечтой? 5:18
+02. Раскачаем этот мир 5:54
+03. Раб страха 4:33
+04. Искушение 3:58
+05. Игра с огнём 9:02
+06. Бой продолжается 6:03
+07. Дай жару! 4:24
+08. Улица роз 5:53Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E47BB3F14C7D20D010F20289394098C533FAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600618   (998545) от 09.01.2013
+
+Янка Дягилева - Не Положено (1992) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Acoustic, Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы по колено [01:49]
+02. Только дождь вселенский [00:53]
+03. Под руки в степь [02:09]
+04. Фальшивый крест [01:16]
+05. Деклассированные элементы [03:19]
+06. Особый резон [02:30]
+07. Неволя рукам (регги) [01:53]
+08. На чёрный день [02:24]
+09. Берегись [02:19]
+10. Я повторяю 10 раз и снова [00:51](   Читать дальше...   )Жанр: Acoustic, PunkПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F11D3809F12B11A717AA8B625753B45D77E5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600699   (998462) от 09.01.2013
+
+Korn - 8 альбомов (1995-2010) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Nu MetalПродолжительность: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529269659F8620015C01834221DB0789AD68489F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601413   (998297) от 10.01.2013
 
 Янка Дягилева - 4 кассеты (1988-1989) [APE 2.0 16/48|image+.cue (MC-Rip)]<Acoustic, Post-Punk>
@@ -663,180 +841,6 @@ Ganymed - Takes You Higher (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Space Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CD221706D5CE2DBD3A7C14822756D2C650B7812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708517   (987882) от 22.01.2020
-
-James Gang - Miami (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987882.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Cruisin' Down The Highway [3:20]
-A2. Do It [3:39]
-A3. Wildfire [3:31]
-A4. Sleepwalker [3:59](   Читать дальше...   )Жанр: Classic RockФормат: Vinyl, LP, AlbumПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9376BEAE5A29C18B47CE25A6EFCFE5EABF9CD87B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 698501   (987828) от 22.01.2020
-
-Chris Norman –Some Hearts Are Diamonds (1986) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987828.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Some Hearts Are Diamonds [3:45]
-A2. Hunters Of The Night [4:07]
-A3. Chain Reaction [3:43]
-A4. It's A Tragedy [3:46](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9111109BDBD0C64D61B0893E97538FC6A70C4DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 718660   (987822) от 22.01.2020
-
-ZZ Top - Eliminator (1983) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues Rock, Boogie Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987822.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Gimme All Your Lovin [4:03]
-A2. Got Me Under Pressure [4:03]
-A3. Sharp Dressed Man [4:18]
-A4. I Need You Tonight [6:19](   Читать дальше...   )Жанр: Blues Rock, Boogie RockФормат: Vinyl, LP, AlbumПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649A4065E96CA76523E5EF416037BDAB6447A3E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 718675   (987766) от 22.01.2020
-
-ZZ Top - Afterburner (1985) [FLAC 2.0 24/192|tracks (Vinyl-Rip)] <Blues Rock, Boogie Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987766.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Sleeping Bag [4:07]
-A2. Stages [3:35]
-A3. Woke Up With Wood [3:50]
-A4. Rough Boy [4:52](   Читать дальше...   )Жанр: Blues Rock, Boogie RockФормат: Vinyl, LP, AlbumПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20862BD072C598941E34C51F827EE8A3B26CF3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709267   (987761) от 22.01.2020
-
-Ария - С кем ты? (1986) Мирумир /2013/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987761.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Воля и разум [4:32]
-A2. Встань страх преодолей [4:15]
-A3. Здесь куют металл [4:42]
-A4. С кем ты? [4:42](   Читать дальше...   )Жанр: Heavy MetalФормат: Vinyl, LP, AlbumПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900CE1073B6C42AFB874206A2E8975FC574932F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662473   (987714) от 22.01.2020
-
-Guns N' Roses – 9 Альбомов (1986-2008) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1986 - Live Like A Suicide (EP First US Pressing)
-1987 - Appetite For Destruction (First US Pressing)
-1988 - G N' R Lies (EP First US Pressing)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:993453754ABF40BD554628D4FE192E72A1E62189
 ```
 
 https://mybot314.ru/tekegram_catalog/

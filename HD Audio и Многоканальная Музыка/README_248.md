@@ -1,3 +1,177 @@
+###  Публикация: 1804110   (13279) от 27.06.2025
+
+Barbra Streisand - The Secret Of Life: Partners, Volume 2 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First Time Ever I Saw Your Face (feat. Hozier)
+02. My Valentine (feat. Paul McCartney)
+03. To Lose You Again (feat. Sam Smith)
+04. The Very Thought Of You (feat. Bob Dylan)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A889E4430A8DB603A2DF44B011E9978A5768273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804090   (13278) от 27.06.2025
+
+De-Phazz - Luck You! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Trip Hop, Lounge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotel Grand Moondial
+02. Overjoked
+03. Serenade To Go
+04. My Turntable Is Unable(   Читать дальше...   )Жанр: Nu Jazz, Trip Hop, LoungeПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5767AA5AC2A9671EF400BD659E68BD018257240C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804117   (13265) от 27.06.2025
+
+Noumenia - Echoes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blind Idols [5:40]
+02 - The Circle [3:41]
+03 - Outsider [3:32]
+04 - Fractures [4:17](   Читать дальше...   )Жанр: Post-Groove MetalПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76BBF481FA149FD0EE66423DF978F255679C6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804049   (13263) от 27.06.2025
+
+Crematory - ...Just Dreaming (1994) Remastered, Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heavens Throat [2:11]
+02 - Transmigration [5:13]
+03 - Only Once In A Lifetime [3:52]
+04 - Shadows Of Mine [5:16](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493ED6A47EE10D8E5CE70E8837298BB79AFF19B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804050   (13260) от 27.06.2025
+
+Heaven Shall Burn - Heimat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Keinen Schritt zurück [4:37]
+02 - Schweineherbst [3:17]
+03 - Eisenkopf [3:51]
+04 - Destroy Fascism (Too Good to Steal from Edition) [1:59]Жанр: Melodic Death Metal, MetalcoreПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A816EC79D0D0C3240653296FDF60D3AA8509D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804161   (13254) от 27.06.2025
+
+Gabrielle De Val - I Am The Hammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sky Is Falling
+02. Let Sleeping Dogs Lie
+03. Good Morning Vietnam
+04. For Whom The Bell Tolls(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E669A8B0FD8DEE84D6737545D72FF0728688AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804027   (13253) от 27.06.2025
 
 Benson Boone - American Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
@@ -569,180 +743,6 @@ Laguna - The Ghost Of Katrina (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F4D7E6540B993C8FC9D295C7B11A4F1EC6539E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806113   (11932) от 10.07.2025
-
-Chris Rea - New Light Through Old Windows (1988) Reissue, Remastered, 2025, Rhino [FLAC 24/44.1;24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Dance (2025 Remaster) (4:17)
-02. Working on It (2025 Remaster) (4:27)
-03. Ace of Hearts (2025 Remaster) (4:55)
-04. Josephine (2025 Remaster) (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 01:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AB260EC32DFF79A942390B1E019AF6D87A128C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806130   (11924) от 10.07.2025
-
-Stygian Fair - The Hidden Realm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Hidden Realm (04:02)
- 02 - Abide Your Master (03:59)
- 03 - Into The Well (05:22)
- 04 - Peel The Layers Off (04:17)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5987C0D19B91D8BCBAC0A9DA29E482D890517201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806139   (11921) от 10.07.2025
-
-Madhouse - Plead The Fifth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Midnite Fever (03:36)
- 02 - We Run Riot (03:48)
- 03 - Bring On The Night (03:36)
- 04 - Shotgun Rider (03:19)(   Читать дальше...   )Жанр: Glam Metal, Hard RockПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD026877536800CE837495D03C14D662539D69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806133   (11920) от 10.07.2025
-
-Front Row Warriors - Running Out Of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Turn The Tide (04:07)
- 02 - Theory Of Mind (01:05)
- 03 - The Holy (05:38)
- 04 - Cast A Spell (04:51)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3FB8BE0724F8669500574645B4C29C3E6044D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806124   (11919) от 10.07.2025
-
-Eternal Idol - Behind A Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal, Prog Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Amnesia (04:13)
- 02 - The Enemy Is Me (03:17)
- 03 - Empire Of One (03:25)
- 04 - Vampire (03:23)(   Читать дальше...   )Жанр: Power Metal, Symphonic Metal, Prog MetalПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757F05814239BC6D72B07E1F694920515533AB05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806122   (11916) от 10.07.2025
-
-Double Vision - Double Vision (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prison Of Illusion (03:36)
- 02 - No Fool For Love (03:47)
- 03 - The Man You Make Me (03:53)
- 04 - I Know The Way (03:04)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D37F07CB6EB954A945550F57A4945354941B23
 ```
 
 https://mybot314.ru/tekegram_catalog/

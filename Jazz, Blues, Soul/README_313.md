@@ -1,3 +1,90 @@
+###  Публикация: 1406020   (479268) от 01.09.2020
+
+Norah Jones - Late Night Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flame Twin
+02. Turn Me On
+03. What Am I To You?
+04. Say No More(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07643114EE5324FBC5D24EFD8F7E89196D1FA1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319795   (479020) от 14.08.2019
+
+New York Jazz Lounge, Jazz Erotic Lounge Collective - Pure Romance Jazz Anthems (2019) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479020.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Finding the Flow (4:25)
+2.Lady at Ballroom (3:33)
+3.Out of Control (3:35)
+4.Turn Off the Lights (3:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472AE9CA185D6C2E6E10E9CEF36381C6C350F427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566863   (478643) от 31.07.2022
+
+Herb Ellis - The Early Years (1956 - 1965) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Moon At All [7:20]
+02. Bye Bye Blackbird [3:38]
+03. Life Is A Ball [5:32]
+04. It's Easy To Remember [4:10](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Guitar JazzПродолжительность: 05:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24758E314C3044BCB17488093C7CC9D1709FBEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160115   (478258) от 23.08.2017
 
 Muhal Richard Abrams - Afrisong (1975) 2009, Candid [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
@@ -658,105 +745,6 @@ VA - Ibiza Sexy Jazz (Smooth Beach Chillout Lounge Vibes) (2019) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:425F303A7757BAFE6EF88C2443DC1C3F468EBA18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546954   (476628) от 14.09.2012
-
-Armen Chakmakian & Djivan Gasparyan - Ceremonies (1998) [WavPack|Lossless]<Jazz, World, New Age>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Gypsy Rain [5:25]
-02. - A Kiss And A Sign [5:21]
-03. - Ceremonies [5:15]
-04. - A Time To Heal [6:14]
-05. - Imaginings [5:41]
-06. - Enchantress [4:15]
-07. - Distant Lands [5:55]
-08. - Rain, Rain Go Away [4:57]
-09. - Echoes Of A Prayer [6:21]
-10. - Moonlight In Your Eyes [6:09]Жанр: Jazz, World, New AgeПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546846   (476620) от 14.09.2012
-
-Buddy Whittington - Six String Svengali (2011) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back When the Beano Was Boss
-02. Deadwood and Wire
-03. My World Revolves Around You
-04. Ain't Got the Scratch
-05. I Had to Go and See Alice
-06. Fender Champ
-07. Six String Romance
-08. Texas Trios
-09. The Put On Song
-10. For Crystal Beach(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567085   (476504) от 01.08.2022
-
-Joe Williams - Four Classic Albums (1956 - 1960) 2CD, 2021, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476504.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Indiana [7:36]
-02. More Than One For My Baby [7:27]
-03. Too Marvellous For Words [5:30](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EB70C75A6F010B48CEF2C2C0F665D5C057187C
 ```
 
 https://mybot314.ru/tekegram_catalog/

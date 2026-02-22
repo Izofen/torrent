@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1854925   (1057892) от 20.02.2026
+
+VA - Festival Anthems 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H. & Roman Messer - Millennium Falcon (Extended Mix) [7:27]
+02. Adip Kiyoi - You Love Me (Extended Mix) [6:04]
+03. Roman Messer & Alexander Popov & Feel - Moonlight Sonata (Extended Mix) [6:51]
+04. Inrayzex - Secret Of The Space (Extended Mix) [4:40](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C32516A6E3C1377A45B3C9CFCD77740FC96E46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853448   (1056837) от 13.02.2026
 
 VA - Black Hole Trance Music 02-26 (2026) [MP3|320 Kbps] <Trance>
@@ -717,35 +746,6 @@ VA - Progressive Vibes Music 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B93311B2F911FD049F7224495EF437D63E410C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844518   (1050425) от 28.12.2025
-
-VA - Best Of Tidy Two 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yusef Kifah - Pumpin' 03:43
-02. Rob Tissera - Uncontrollable Joy 03:57
-03. Technikal & Brad Thatcher - Centauri 04:01
-04. K-Series - Say Goodbye 03:51(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5AE1ACA68CF6CA020F3BED54E2AF1E3A08DD1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

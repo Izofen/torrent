@@ -1,3 +1,32 @@
+###  Публикация: 1417484   (358256) от 20.10.2020
+
+Luv' - Dance medley (1993) [FLAC|Lossless|image + .cue] <Pop, Europop, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358256.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Luv Dance-Medley (Club Edit) - 6:50
+1a -	Luvely
+1b -	You're The Greatest Lover
+1c -	Trojan Horse(   Читать дальше...   )Жанр: Pop, Europop, MedleyПродолжительность: 00:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67040BF1831377C6C4DDBA89E57BF6FA2B375245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952202   (358089) от 31.10.2015
 
 Eros Ramazzotti - Eros 30 (2014) 2CD [FLAC|tracks + .cue]<Pop, Pop Rock>
@@ -715,35 +744,6 @@ Lara Fabian - Ma Vie Dans La Tienne (2015) [FLAC|Lossless|WEB-DL]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09D4CCC4DEAC45AE4876CF738E0646E06118F281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578595   (340798) от 25.09.2022
-
-VA - Golden Pop Ballads '97 Volume 1 (1997) [FLAC|Lossless|image + .cue] <Pop, Ballads>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Braxton - Un-Break My Hear [4:34]
-02. No Doubt - Don't Speak [4:25}
-03. Spice Girls - 2 Become 1 [4:04]
-04. East Seventeen - Hey Child [4:34](   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55557D7D885EF4146383C050CE11D4335A8DD81E
 ```
 
 https://mybot314.ru/tekegram_catalog/

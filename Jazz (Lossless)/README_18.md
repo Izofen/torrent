@@ -1,3 +1,32 @@
+###  Публикация: 1350148   (1003853) от 04.01.2020
+
+Splashgirl - Doors. Keys. (2007) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Contemporary Jazz, Dark Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Is 3 Is 2 Are One (3:21)
+02. Leo (6:04)
+03. Forsøk (5:01)
+04. Shut Up And Dance! (6:08)(   Читать дальше...   )Производство: Aim Records – AIMCD121Жанр: Dark Jazz, Contemporary Jazz, Dark ExperimentalПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABA6E496BE4736014471210712A0E285007718C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350024   (1003848) от 04.01.2020
 
 Johnny Griffin & Eddie "Lockjaw" Davis - Four Classic Albums 1960 - 1961 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -724,41 +753,6 @@ Jessy Carolina and The Hot Mess - Bootlegs:January 2012 (2012) [FLAC|Lossless]<N
  08 My Melancholy Baby
  09 I'll Be A Friend With Pleasure
  10 That's A Plenty(   Читать дальше...   )Жанр: New Orleans Jazz \ Vintage JazzПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598828   (999663) от 05.01.2013
-
-Fiona Apple - 4 альбома (1996-2012) [FLAC|Lossless]<Piano rock, baroque pop, jazz, alternative rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Single Night [03:33]
-02. Daredevil [03:28]
-03. Valentine [03:33]
-04. Jonathan [05:04]
-05. Left Alone [04:51]
-06. Werewolf [03:13]
-07. Periphery [04:58]
-08. Regret [05:17]
-09. Anything We Want [04:41]
-10. Hot Knife [04:02]Жанр: Piano rock, baroque pop, jazz, alternative rockФормат: image+cueПродолжительность: 00:42:39
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,32 @@
+###  Публикация: 1033218   (640286) от 10.07.2016
+
+Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) Remaster, 2011, Pacific[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After You've Gone [04:52]
+02. When Johnny Comes Marching Home [05:15]
+03. Deep River [05:42]
+04. Till We Meet Again [04:18](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206F5D701EAD1EA56B9F74BDD6B3BCB37BA60B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033244   (640277) от 10.07.2016
 
 Andre Fisichella - Seduction (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -724,35 +753,6 @@ Swami LatePlate (Bobby Previte and Jamie Saft) - Doom Jazz (2007) 2012, Veal [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:862F2C524A13B237BDBF74AF6EE4AD91E41F92FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143094   (637576) от 17.06.2017
-
-Shorty Rogers - The Wizard of Oz & Other Harold Arlen Songs (1959) 2005, DRG Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Off to See the Wizard [01:21]
-02. Over the Rainbow [03:02]
-03. The Jitterbug [03:18]
-04. The Merry Old Land of Oz [05:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005A5AC9AB0922604813DF992B41EB2138FAA3E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

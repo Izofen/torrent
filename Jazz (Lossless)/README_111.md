@@ -1,3 +1,32 @@
+###  Публикация: 1396408   (748686) от 14.07.2020
+
+Rez Abbasi Acoustic Quartet - Intents and Purposes (2015) [FLAC|Lossless|tracks + .cue] <Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Market (Zawinul) - 7:57
+02. Butterfly (Hancock) - 7:36
+03. Joyous Lake (Martino) - 8:00
+04. Medieval Overture (Corea) - 4:56(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3860CF1D84DAA4264AF548376FF52CEAAB4A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019769   (748653) от 24.05.2016
 
 Phil Woods & Gene Quill Sextet - Phil And Quill (1956) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -714,35 +743,6 @@ Tommy Flanagan with the Wilbur Harden Quartet - Plays The Music of Rodgers & Ham
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C0D135A4675E6EA7BF8A11972925B0086C1A3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665474   (744220) от 06.06.2013
-
-Frank Sinatra & Count Basie - The Complete Reprise Studio Recordings (2011) [FLAC|Lossless]<Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pennies From Heaven (3:29)
-02. Please Be Kind (2:42)
-03. (Love Is) The Tender Trap (2:36)
-04. Looking At The World Thru Rose Colored Glasses (2:30)(   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

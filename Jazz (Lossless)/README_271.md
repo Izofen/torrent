@@ -1,32 +1,3 @@
-###  Публикация: 1621763   (239768) от 26.03.2023
-
-Benny Golson - Turning Point & Free (1962) 2013, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Am I to Know? [3:50]
-02. The Masquerade Is Over [4:40]
-03. Dear Kathy [4:49]
-04. Three Little Words [4:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33727B5C576C48665D67C44FD909BB8F22F8EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621766   (239752) от 26.03.2023
 
 Benny Golson Funky Quintet - That's Funky (1994) 2000, Arkadia Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -745,6 +716,35 @@ Sarah Lancman - Le pouvoir des mots (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EDCFCF931B34794F9D4092095A673667C363D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577302   (238910) от 18.09.2022
+
+The Charlie Rouse Band - Cinnamon Flower (1977) 1987, Rykodisc [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backwoods Echo [5:14]
+02. Disenchantment [3:53]
+03. A New Dawn [5:49]
+04. Quiet Pictures [3:41](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2400B9F21A2A5A9840647CD125F697C67028C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

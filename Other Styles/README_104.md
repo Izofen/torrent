@@ -1,3 +1,29 @@
+###  Публикация: 357764   (582664) от 05.07.2011
+
+Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 05:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCCF0FB945BA482625C8DBB21FFEC05A544BAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041510   (582423) от 09.08.2016
 
 Mike Pachelli - Acoustic Painting (2004) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
@@ -713,35 +739,6 @@ Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A941B857E4FAA4506D831795656F682C5C866C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920759   (573573) от 26.07.2015
-
-Andrew Lockington - Землетрясение в Сан - Андреас / Разлом Сан-Андреас / San Andreas: Original Motion Picture Soundtrack (2015) [FLAC|tracks+.cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Andreas Main Theme (1:42)
-02. Natalie's Rescue (5:17)
-03. Caltech (2:06)
-04. Divorce Papers (3:28)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A5E1D27C772AE4E142AE7A574C61E89C4BC42D
 ```
 
 https://mybot314.ru/tekegram_catalog/

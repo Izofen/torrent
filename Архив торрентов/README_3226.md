@@ -1,3 +1,29 @@
+###  Публикация: 1316549   (503958) от 28.07.2019
+
+ФотоШОУ PRO 14.5 + Треки из коллекции музыки 11.x и 12.x версий RePack (& Portable) by elchupacabra [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503958.jpg" />
+</div>
+
+
+###  Подробнее
+
+ФотоШОУ PRO - открывает возможности для создания потрясающих фильмов из фотографий и музыки. Создавайте незабываемые слайд-шоу на любые темы: рассказы о путешествиях, праздниках, свадебные фотофильмы, Love Story и т.п. Программа включает сотни комбинаций эффектов анимации, позволяющих оживить любую фотографию. Вам точно не будет скучно... Коллекция элегантных переходов (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF6303E6361E3A5CA3BF10EE9C3B839A67D5AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920451   (503938) от 03.09.2015
 
 Ад на колесах / Hell on Wheels (2015) WEB-DL [H.264/720p-LQ] (сезон 5, серии 1-5 из 14) Кубик в Кубе (обновляемая)
@@ -660,41 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C4E229FBCDEF229408D18BE5F4F67675988B615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539177   (503801) от 29.08.2012
-
-DJ Kocmoc - Euphoria Summer Dance vol.8 (2012) [MP3|320 кб/с]<Electro House, Club House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Syntheticsax Mike Prado Feelings of Spring Extended Mix
- 2. SEREBRO - Мама Люба (DJ Sheron & Serg Shenon remix)
- 3. Алисия & Влад Корса - Здесь и сейчас
- 4. Global Deejays - Hardcore Vibes (Dj Viduta Olive Schulz Remix) [2012]
- 5. Playmen - Fallin (Extended Mix)
- 6. Far East Movement Feat Justin Bieber - Live My Life (Uk Pop Extended Mix) [2012]
- 7. DJ Fisun - FCSM Детская
- 8. Dada Life - Rolling Stone T-Shirt (Cazzette 'Approaching Starry Homes' Mix)
- 9. Carl Tricks - Mad Dash (Bingo Players Edit)
- 10. DJ Sergey Fisun feat. IKA - Москва Слезам Не Верит (Original mix)Жанр: Electro House, Club HouseПродолжительность: 01:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6564377F1FA8BE9E53184298F3493B6FCF11449A
 ```
 
 https://mybot314.ru/tekegram_catalog/

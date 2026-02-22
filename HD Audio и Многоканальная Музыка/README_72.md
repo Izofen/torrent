@@ -1,3 +1,178 @@
+###  Публикация: 1599746   (159564) от 24.12.2022
+
+Ayreon - Universal Migrator, Pt. I & II (2000) 2022 remixed & remastered [DTS 5.1 CD-DA| 44.1/16|image+.cue|Audio-DVD] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическая дилогия AYREON “Universal Migrator” была переиздана в различных форматах 18 ноября.
+Лидер AYREON Арьен Люкассен (Arjen Lucassen) заявил: "Я тщательно ремикшировал и ремастировал эти альбомы, и они будут выпущены во множестве форматов с кучей бонус-треков и книжкой комиксов... ". Вот один из этих форматов - Audio-DVD (не путать с DVD-Audio!) (   Читать дальше...   )Universal Migrator Pt 1: The Dream Sequencer
+01. The Dream Sequencer (5:09)
+02. My House On Mars (7:50)
+03. 2084 (7:41)(   Читать дальше...   )Продолжительность: 01:10:11+01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF9EC72A945A7D35F72BB3A5DCD9060CD6F9EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599928   (159385) от 25.12.2022
+
+Дмитрий Полторацкий - Моё Ружьё (1992) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159385.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 На Фазенду
+A2 Молдавское Вино
+A3 Ночка
+A4 Америка(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D0DD2F629618176FE3824694F0D366E7F648D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676081   (159314) от 11.11.2023
+
+illenium - ILLENIUM (2023) Remixes [FLAC 16/44.1; 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Electronic, Psytrance, Progressive House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starfall (Trivecta Remix) [3:47]
+02. Starfall (Lost Prince Remix) [3:28]
+03. Starfall (Gem & Tauri Remix) [4:26]
+04. Starfall (3THOS x Draeden Remix) [4:02](   Читать дальше...   )Жанр: Electronic, Psytrance, Progressive HouseПродолжительность: 02:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79B2A8E0C89E4FB243B2A42C914E2DADD0B6F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676143   (158997) от 12.11.2023
+
+Angelus Apatrida - Studio Albums (8 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks] <Thrash metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angelus Apatrida - трэш-метал группа из Альбасете, Испания, образованная в 2000 году.2006 - Evil Unleashed
+2007 - Give 'Em War
+2010 - Clockwork
+2012 - The CallЖанр: Thrash metalПродолжительность: 06:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87BCE0385384610A15E6892EE316C30AD015C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676137   (158995) от 12.11.2023
+
+Evile - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Evile — британская трэш-метал-группа, сформированная в 1999 году в городе Хаддерсфилд, Уэст-Йоркшир.2007 - Enter the Grave
+2009 - Infected Nations
+2011 - Five Serpent's Teeth
+2013 - SkullЖанр: Thrash MetalПродолжительность: 05:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F672D0A1B05F47DBEEEE2E823802ED84FCAE36A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555578   (158834) от 12.11.2023
+
+Doro & Warlock - Studio Albums (18 releases) (1984-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Doro (Dorothee Pesch) — немецкая певица, экс-вокалистка хэви-метал-группы Warlock, в настоящее время занимается сольной карьерой. Доро начала карьеру в 1980-е и стала одной из первых женщин, прославившихся в тяжёлой музыке, за что получила от фанатов прозвище «Metal Queen».1984 - Burning The Witches
+1985 - Hellbound
+1986 - True As Steel
+1987 - Triumph And Agony(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 16:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C372952D471446A3A9610BA276D7348227003990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967155   (158601) от 20.12.2015
 
 V/A - Best of Chillout Moods (2005) [DTS 5.1|tracks (upmix)] <Blues, Electronic, Jazz>
@@ -581,180 +756,6 @@ Pink Floyd - Live at the Rainbow Theatre, London 1972-02-19 (1972) [FLAC 2.0|44/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E1D069B0801E0090E629DF13E63E6FA20910F25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677142   (153594) от 16.11.2023
-
-Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153594.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. In Mist She Was Standing (14:10)
-A2. Under the Weeping Moon (09:51)
-B1. Silhouette (03:10)
-B2. Forest of October (13:03)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45B9C244FF72A4FA6B123411546ABA46B313364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677163   (153423) от 16.11.2023
-
-DGM - Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unravel The Sorrow (6:53)
-02. To The Core (5:56)
-03. The Calling (6:51)
-04. Second Chance (5:36)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562F19517C0415579EE462BFC053507DA4044E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347227   (153359) от 22.12.2019
-
-Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upconvert]
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Drummer Boy 4:23
-02. White Christmas 3:59
-03. Feliz Navidad 3:07
-04. Jingle Bells 2:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CBEF722B966FB86EDD8764BA3E04922802AD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968539   (153215) от 24.12.2015
-
-Foreigner - Inside Information (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Turns To Stone (4:34)
-02. Can't Wait (4:32)
-03. Say You Will (4:16)
-04. I Don't Want To Live Without You (4:55)(   Читать дальше...   )Производство: Atlantic Recording - 781 808-1Жанр: RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822ECB3340E14E6102E47DF3AA1A5400E5F4E39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677237   (153077) от 16.11.2023
-
-Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Neoclassical Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro To The Mind (1:55)
-02. Deathzone (2:47)
-03. Sacra (3:44)
-04. Kaamos (4:20)(   Читать дальше...   )Жанр: Symphonic Metal, Neoclassical MetalПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96ADF0786A33D6E2D6FE3CD1351C368438587D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854276   (152320) от 28.12.2014
-
-Blue Oyster Cult - The Revolution By Night (1983)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152320.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Take Me Away (4:32)
-A2. Eyes On Fire (3:56)
-A3. Shooting Shark (7:10)
-A4. Veins (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3CE59B9AFAE8E5F77E1AC279E587E1EC22CE97
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1516117   (167621) от 09.12.2021
+
+Sweet Connection - Need Your Passion (2008) CD, Compilation [MP3|320 Kbps] <Electronic, Synth-pop, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Need Your Passion (8:50)
+02. Dirty Job (Maxi-Version) (7:57)
+03. Heart To Heart (6:56)
+04. Love Bites (6:17)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Euro-DiscoПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A791E52337CAB506E8078CF99F0C98B9AE49DAC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516109   (167585) от 09.12.2021
+
+VA - Best Hits of 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - Cold Heart (PNAU Remix) (3:22)
+02. Olivia Rodrigo - good 4 u (2:58)
+03. OneRepublic - Run (2:49)
+04. Justin Bieber - Peaches (3:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5586F49D3942E46AC48D890680D55409BE275DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661936   (167572) от 29.10.2023
+
+ВИА «Песняры» - Красная роза (1996) [FLAC|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Мой родной кут (И. Лученок - Я. Колас)"
+02. "Людка (В. Мулявин - Я. Купала)"
+03. "Конь невзнузданный (Э. Ханок - Г. Буравкин)"
+04. "Сонет Шекспира (И. Резник - В. Шекспир , перевод С. Маршака)"(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0B8D713B93A7A91FD0875726744B0C6CA08E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 657362   (167557) от 29.10.2023
 
 ВИА «Песняры» - 25 YEARS (1994) [FLAC|Lossless]<Retro/Folk-Rock>
@@ -655,93 +742,6 @@ Kelly Marie - 2 Albums (1976-1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D18CF698751A3856B6BB48956A6887E335B9E7FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345552   (165107) от 17.12.2019
-
-VA - MNM Big Hits - Best Of 2019 (2019) 3CD Box Set [FLAC|Lossless|tracks + .cue] <Pop, House, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165107.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ava Max - Sweet But Psycho
-02. Tones and I - Dance Monkey
-03. Marco Borsato, Armin van Buuren & Davina Michelle - Hoe Het Danst(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 03:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D55E916F08F6EA2DB5A7A1CB31D90D1670C146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673506   (165091) от 01.11.2023
-
-MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165091.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SEX
-2. Шишки (Колбасный Цех 3)
-3. Колбасный Цех 2
-4. Дискотэка(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902EC44F55E952D9C4F0A2469DEF12AA112C06B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597864   (164981) от 16.12.2022
-
-VA - Sensation 80s - The Ultimate Funk & Disco Classics (2022) 2CD, Compilation [MP3|320 Kbps] <Post-Disco, Electro, Dance, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164981.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Earth, Wind & Fire - Fantasy (Single Version)
-02. Dan Hartman - Relight My Fire (Single Version)
-03. Midnight Star - Midas Touch (DJ Bronco Mix)(   Читать дальше...   )Жанр: Post-Disco, Electro, Dance, Euro-DiscoПродолжительность: 01:17:51 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933C6FC7B7E4401715E71B743588E4825C8F0E44
 ```
 
 https://mybot314.ru/tekegram_catalog/

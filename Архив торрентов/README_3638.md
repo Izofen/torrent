@@ -1,3 +1,32 @@
+###  Публикация: 1412641   (413732) от 01.10.2020
+
+Greg Puciato - Child Soldier: Creator Of God (2020) [MP3|320 Kbps]<Noise, Electronic, Industrial, Mathcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Heaven Of Stone
+02	Creator Of God
+03	Fire For Water (Drums, Drum Programming – Chris Pennie)
+04	Deep Set (Drums – Christopher Hornbrook)(   Читать дальше...   )Жанр: Noise, Electronic, Industrial, MathcoreПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE9F0992DC258A99689F8DE21B2B004AF019870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412770   (413729) от 01.10.2020
 
 Emurasoft EmEditor Professional 20.1.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -652,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3050C738B39C3EF65EB7E1BECFEF97FBED1D1978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558031   (413558) от 10.10.2012
-
-Sleeping Dogs [Ru/En] (Steam-Rip/1.5/3 DLC) 2012 | R.G. Игроманы
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sleeping Dogs рассказывает историю детектива Вэй Шена, который был внедрен в один из преступных синдикатов гонконгской Триады. Ему предстоит сделать все возможное, чтобы остаться незамеченным и выжить, постоянно совершая моральный выбор.
-В Sleeping Dogs вас ждут погони, перестрелки и сражения с использованием различных боевых стилей, а также множество миссий и свобода выбора.(   Читать дальше...   )Тип издания: Steam-RipЖанр: Action, Open worldЯзык озвучки: Английский, КитайскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

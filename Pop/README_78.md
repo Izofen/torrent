@@ -1,3 +1,119 @@
+###  Публикация: 1273505   (800561) от 01.01.2019
+
+Mode-One - Queen Of My Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of My Heart (8:36)
+02. Heaven Is Waiting (5:56)
+03. I Wanna Feel You (7:24)
+04. Game Of Love (Extended Mix) (feat. Lian Ross) (6:01)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C82B0DED87260B47F7B521807155D9DD51E0D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121576   (800550) от 02.04.2017
+
+Stylove - The Album (The Original Maxi-Singles Collection) (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Girl (05:41)
+02. Sail Away (Feat. Jackie Brendie) (05:34)
+03. Noche De Fiesta (06:13)
+04. Lady In The Night (05:49)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D995020F74E80CEC29E327F9522D9CD548479F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273372   (800537) от 01.01.2019
+
+The New Fifty Guitars - Disco's Greatest Hits (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Copacabana (3:41)
+02. Night Fever (3:01)
+03. Mac Arthur Park (4:05)
+04. Boogie Oogie Oogie (3:45)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3392A0BF8A0B09118F906E8E83FD854D819640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199781   (800420) от 17.01.2018
+
+Bosson - Best Of 11-Twelwe (2013) [MP3|320 Kbps] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guardian Angel (3:40)
+02. Every Single Time (3:58)
+03. Baby I Believe In You (3:44)
+04. Loveshock (3:21)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616AEF769D041371C0F80AAF3C5A1170053C56CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199563   (800412) от 17.01.2018
 
 VA - Italo Disco: The Lost Legends Vol.15 (2017) [MP3|320 Kbps] <Italo-Disco>
@@ -626,119 +742,6 @@ VA - Italo Disco - The Lost Legends Vol. 5 (2017) [MP3|320 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:382CC84914FABBE968AFF098C0CEE4DA9D739A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506582   (799497) от 01.11.2021
-
-VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sassydee - Disturbia (4:00)
-02. Countdown Singers - Monster Mash (3:15)
-03. Countdown Singers - Ghostbusters Theme (4:07)
-04. Detroit Soul Sensation - Superstition (3:30)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 02:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7018D77EBA5BB74BDA1A4C9A9B4C4622EBBA3697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506756   (799492) от 01.11.2021
-
-Milano 84 - Monochromatic (2021) [MP3|320 Kbps] <Italo-Disco, Italo-Pop, Nu-Italo>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fanatic (Extended Version) (feat. Vanessa Elly) (5:21)
-02. Suspiria on TV (feat. Eleonora Cardellini & Gianluca Divirgilio) (4:32)
-03. Awesome (feat. Killme Alice) (3:48)
-04. Play (feat. Laura Serra) (4:30)(   Читать дальше...   )Жанр: Italo-Disco, Italo-Pop, Nu-ItaloПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9277A62E809885BA287410E2A635B72FCDC29EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506762   (799485) от 01.11.2021
-
-Milano 84 - Monochromatic (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italo-Pop, Nu-Italo>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milano 84 feat. Vanessa Elly - FanaticЖанр: Italo-Disco, Italo-Pop, Nu-ItaloПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9C2926943DD1A5B1A512D2BB112DF2D06BCC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506586   (799482) от 01.11.2021
-
-VA - Retro Halloween 2021 (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockwell - Somebody's Watching Me (3:55)
-02. Rick James - Super Freak (3:23)
-03. Aqua - Halloween (3:49)
-04. Oingo Boingo - Dead Man's Party (6:17)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 01:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3E9F3664C62DB37675B6551221EE9E02F8947B
 ```
 
 https://mybot314.ru/tekegram_catalog/

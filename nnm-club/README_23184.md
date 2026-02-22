@@ -1,25 +1,107 @@
-###  Публикация: 1694749   (120800) от 26.01.2024
+###  Публикация: 1694561   (120955) от 25.01.2024
 
-Byron - Chapter II: The Lotus Covenant (2024) [MP3|320 Kbps] <classic melodic metal, doom, NWOBHM>
+AnyMP4 iPhone GPS Spoofer for Mac 1.0.18 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120955.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 iPhone GPS Spoofer может легко помочь вам изменить или скрыть местоположение GPS на вашем iPhone и разработать ложный маршрут движения для вашего iPhone. При работе в сети «Интернет» вас может раздражать раскрытие конфиденциальной информации, особенно вашего местоположения. В этом случае AnyMP4 iPhone GPS Spoofer может стать вашим решением.
+Просто подключите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: © 2024 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C29A7589F1E8F3FD01692953FCA1DB0E929F89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694446   (120954) от 25.01.2024
+
+Construct of Lethe - Corpsegod (2016) Released, 2020, Everlasting Spew Records [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamashtu
+02. Abandoned to Conflagration
+03. A Prayer of Scourges
+04. Ilu Pagru(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5665259F57559BBC196A6E1219349214442B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694573   (120953) от 25.01.2024
+
+Tipard Mac Video Converter Ultimate for Mac 10.2.52 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите скачать видео с YouTube, Vimeo и других веб-сайтов по обмену видео на Mac? Вам нужно копировать и конвертировать DVD / видео в любые популярные форматы видео, такие как MP4, FLV, AVI? Вы хотите преобразовать 4K видео в 4K / 1080p, конвертировать 2D видео в 3D-формат? Или хотите повернуть, или улучшить качество видео, чтобы получить неожиданный визуальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2023 Tipard StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8EFA33BED2BC2A2CBE1DE783E9FD51B253F9423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694389   (120952) от 25.01.2024
+
+Emerald Table - Book of illusion's fragments (2023) [MP3|320 Kbps] <Gothic, Doom, Alternative Metal, Male-Female-Vocals>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120800.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Overture [00:01:49]
-02 - The Lotus Covenant [00:03:58]
-03 - Resignation [00:04:04]
-04 - Sword of the Apostle [00:07:20](   Читать дальше...   )Жанр: classic melodic metal, doom, NWOBHMПродолжительность: 00:33:05
+01 - The table [00:02:07]
+02 - Elements [00:02:20]
+03 - Blackwood [00:04:18]
+04 - Lost memories of life [00:04:52](   Читать дальше...   )Жанр: Gothic, Doom, Alternative-Metal, Male-Female-VocalsПродолжительность: 00:44:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69544D502F0C192854CC5E8E86FE968CB6D46BCB
+magnet:?xt=urn:btih:F786161870055791715BF86C43D8D01035A00C79
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694651   (120799) от 26.01.2024
+###  Публикация: 1694558   (120951) от 25.01.2024
 
-Static-X - Project Regeneration, Vol. 2 (2024) [FLAC 24/48, 16/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Industrial Metal>
+Dead Poet Society - Fission (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock, Indie Rock, Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120799.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Stay Alive [00:03:46]
-02 Z0mbie [00:03:11]
-03 Jic Boi [00:02:58]
-04 Black Star [00:04:00](   Читать дальше...   )Жанр: Nu-Metal, Industrial MetalПродолжительность: 00:48:07
+01. 5:29:45
+02. Running In Circles
+03. Hurt
+04. How Could I Love You?(   Читать дальше...   )Жанр: Alt.Rock / Indie Rock / Blues RockПродолжительность: 00:45:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AA173B8BA7C78514785241100BA7D4C898EFE7D
+magnet:?xt=urn:btih:05D6A1E4EF6F1641A546443EE70F2D65EBE3EC0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,54 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694634   (120798) от 26.01.2024
+###  Публикация: 1694556   (120950) от 25.01.2024
 
-Борис  Кригер | Мишель Монтень. Субъективность опыта (2023) [MP3, Андрей Канаев]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига посвящена творчеству выдающегося французского философа и писателя Мишеля Монтеня, чьи эссе олицетворяют собой особый тип литературного произведения. Книга стремится осветить, как формировался и развивался жанр эссе, а также какие аспекты мудрости и человеческого опыта нашли отражение в работах Монтеня. Книга погружает читателя в глубины субъективного опыта (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1084001D34B2665EC1B70069D93C73FB10BAC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694642   (120797) от 26.01.2024
-
-Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
+Caligula's Horse - Charcoal Grace (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120797.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Overdrive [00:03:58]
-02. Stone Heart [00:04:42]
-03. Blame It on Me [00:03:33]
-04. I’m on Your Side [00:05:07](   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:36
+01. The World Breathes With Me
+02. Golem
+03. Charcoal Grace I: Prey
+04. Charcoal Grace II: A World Without(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B33903A65BC0E5CB3F2E1BDB391AE3117F07B973
+magnet:?xt=urn:btih:1A9A7697E271E920411B89CE961FCD120FC70053
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +167,250 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694733   (120796) от 26.01.2024
+###  Публикация: 1694349   (120949) от 25.01.2024
 
-Виктор Драгунский | Денискины рассказы. Надо иметь чувство юмора (сборник) (2008) [MP3, Владислав Галкин, Ольга Будина, Мария Голубкина, Татьяна Веселкина]
+The Blushing Brides - Broken Hearts on Bleecker Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimmie (4:03)
+02. Back to Eden (5:08)
+03. Love You Too Much (5:34)
+04. Jezebel’s Lies (4:34)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAA732A53EE27AF42FFECAE07B4D582651D1375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694535   (120948) от 25.01.2024
+
+Be Focused Pro - Focus Timer 2.4.1 [En/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Be Focused Pro - создайте задачи, настройте перерывы и отслеживайте свои успехи в течение дня, недели или в произвольный промежуток времени.
+«Помидорная техника» планирования, в основе этой методики лежит принцип 25 минутной работы без прерываний. Но через 25 минут вы обязаны прерваться на 3-5 минут.
+Be Focused Pro - сосредоточитесь на производительности. Be Focused (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: © 2024 XwavesoftПоддерживаемая ОС: macOS X 10.15+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4816E8BE951B1C7ADBD3CE2DDCD6A304606D549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694305   (120947) от 25.01.2024
+
+Ivy Gold - Broken Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Broken Silence (00:05:08)
+02 - No Ordinary Woman (00:03:25)
+03 - Got What I Need (00:03:45)
+04 - House of Cards (00:03:23)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7454B292EC17793E87AFCD2532AB2D0B698141C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694439   (120946) от 25.01.2024
+
+Ian Moss - Rivers Run Dry (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rivers Run Dry (4:49)
+02. Nullarbor Plain (3:31)
+03. State Of My Emotion (3:49)
+04. Bury Me (4:15)(   Читать дальше...   )Жанр: Melodic Rock, Blues RockПродолжительность: 01:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BB133CE03848C25CE7FB6047B5C2717D084C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694166   (120945) от 25.01.2024
+
+Nomy - Dark Skies (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dark Skies
+02 – The Fucked Generation
+03 – House of the rising sun
+04 – Dead man walking(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, MetalcoreПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A0FA475611B07D4330EB661E2C78D8769340D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694551   (120944) от 25.01.2024
+
+Джальма (1929) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гражданская война на Кавказе. Ранен украинец Николай Барабаш. Его спасла, вылечила и полюбила чеченка Джальма. После войны Николай с Джальмою вернулся в родное село. Но не все односельчане дружелюбно встретили юную мусульманку, "нехристианскую душу"...Производство: СССР, ВУФКУ (Киев)Жанр: драма, немое киноРежиссер: Арнольд КордюмАктеры: Лидия Островская-Кордюм, Иван Кононенко, Николай Братерский, В. Крицкий, Д. ЛюбченкоСубтитры: русские (интертитры)Продолжительность: 0:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCD03137F5B8E17AB8878FEE7EE8B87FCC11519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694604   (120943) от 25.01.2024
+
+GarageSale 9.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2023Разработчик: © 2023 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DFCD94F32741B554A901495B9F4FEEB889705F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694448   (120942) от 25.01.2024
+
+Construct of Lethe - Exiler (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rot Of Augury
+02. A Testimony Of Ruin
+03. The Clot
+04. Soubirous(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B5CA5CA86704B4713498488CE508BE34A94D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694550   (120941) от 25.01.2024
+
+Марика Вайд | Зажечь Луну (2023) [MP3, Катерина Сычева]
 
 >>Аудио для детей и родителей
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120796.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Виктор Драгунский писал для детей, создавая удивительный мир солнечных зайчиков, искрящихся глаз и звонкого детского смеха. Светлый, радостный и неповторимый мир, где нет места для скуки и уныния. В рассказах Виктора Драгунского - чудеса обыденной жизни, не замечаемые нами в каждодневной суете, и едва уловимое ощущение счастья при взгляде в наивные и такие мудрые (   Читать дальше...   )Жанр: приключения, детская прозаЯзык озвучки: русскийИздательство: ВимбоПродолжительность: 01:20:33
+Красивая сказка для детей и взрослых об умении любить безо всяких условий и важности этого чувства для целого мира.Жанр: Детская литература. СказкаИздательство: Аудиокнига своими рукамиПродолжительность: 00:15:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9FD3DB5BB61AD433E983893C580B84D3419C0EA
+magnet:?xt=urn:btih:17593255B0FA9E9B8D7520531612CBFCCEA5BA6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694727   (120795) от 26.01.2024
+###  Публикация: 1694603   (120940) от 25.01.2024
 
-VA - Bravo Hits 107 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Pop, Rock>
+Keep It 2.3.8 [Multi]
 
->>Pop
->>Зарубежная поп-музыка
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120795.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Tones And I - Dance Monkey
-02.  DJ Snake & J Balvin &Tyga - Loco Contigo
-03.  Lena X Nico Santos - Better
-04.  Ava Max - Torn(   Читать дальше...   )Жанр: Electronic, Hip Hop, Pop, RockПродолжительность: 02:31:36
+Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: © 2004 - 2024 Reinvented SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Арабский и Иврит
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F66A25C1D08313ACB325226BDB4412227B47A39
+magnet:?xt=urn:btih:F6BE39591B227C4EC7D65FE442B234B4B26A261C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,109 +444,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694655   (120794) от 26.01.2024
+###  Публикация: 1694546   (120939) от 25.01.2024
 
-Timo Gross - Black Dawg Bone (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Train of Mercy (4:04)
-02. Devils Class (5:27)
-03. Wicked Game (3:37)
-04. Heaven Will Be Mine (3:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0456473F81B810CDA7493AC97988F67DF7E924A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694714   (120793) от 26.01.2024
-
-The Gems (ex-Thundermother) - Phoenix (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora - Interlude
-02. Queens
-03. Send Me To The Wolves
-04. Domino(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475E46410016F7DCB648A3803A6F9A9912AB8417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694793   (120792) от 26.01.2024
-
-Ура! На постой! / Hurra! Einquartierung! (1913) WEBRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120792.jpg" />
-</div>
-
-
-###  Подробнее
-
-К сожалению, не нашел приличную копию фильма. А фильмец славный. Совершенно водевильная история. Классика. Военные маневры. Офицеров располагают на постой у местных обывателей (раньше была такая гражданская обязанность). И этим, конечно же, вызывают невероятный ажиотаж среди местных барышень и чрезвычайную озабоченность у отцов этих барышень. Одно слово - водевиль!Производство: Германия,  Luna-FilmЖанр: короткометражный, комедия, немое киноРежиссер: Франц ХоферАктеры: Мэнни Цинер, Franz Schwaiger, Rudolf Del Zopp, Карл ХарбахерПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF3A7EA246C1C04E1B5F7D790B29ECE08A5F667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694804   (120791) от 26.01.2024
-
-Cheetah3D for Mac 8.0 [En]
+Author 9.1 [Multi]
 
 >>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120791.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cheetah3D — это мощное и простое в освоении приложение для 3D-моделирования, рендеринга и анимации, которое было разработано с нуля для Mac. Так что погрузитесь прямо в мир компьютерных изображений. Создайте 3D-иллюстрацию для своей следующей игры для iPhone или создайте своего первого анимированного персонажа.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2001-2024 MW3D-SolutionsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+Приложение Author это - полный контроль над процессом авторства с помощью расширенной копии цитирования, расширенного глоссария, расширенных представлений, вырезок и многого другого.
+Когда вы будете готовы поделиться своей работой в формате PDF, вы получите автоматически созданный справочный раздел. Вы также можете публиковать сообщения в WordPress.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2007-2024 The Augmented Text Company LTD, UKПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9007FFE1384DFE5452972E1009132FDC6A85885
+magnet:?xt=urn:btih:C3CA5FEC686D33C75D1BCF5151F7FC3FF1B2ECBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,25 +471,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694698   (120790) от 26.01.2024
+###  Публикация: 1694314   (120938) от 25.01.2024
 
-А. С. Пушкин | Дубровский. Капитанская дочка. Повести Белкина (2002) [MP3, Владимир Самойлов]
+Edward De Rosa - Zeitgeist (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120790.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Пушкин есть явление чрезвычайное, и, может быть, единственное явление русского духа: это русский человек в его развитии, в каком он, может быть, явится через двести лет. В нём русская природа, русская душа, русский язык, русский характер отразились в той же чистоте, в такой очищенной красоте, в какой отражается ландшафт на выпуклой поверхности оптического стекла». (   Читать дальше...   )Жанр: классическая проза, рассказыЯзык озвучки: русскийИздательство: АРДИСПродолжительность: 11:08:15
+01 - Tempus Fugit (01:46)
+02 - Legend - The Omega Man (04:47)
+03 - The Sleep of Reason (04:24)
+04 - Replicants (04:11)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:48:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69F6B9C90F514C0ABAD6C4953A8159EE055F382C
+magnet:?xt=urn:btih:4D70215B9A549A5248EF0BD626DCEEC6A1D7CE3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,25 +500,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694648   (120789) от 26.01.2024
+###  Публикация: 1694408   (120937) от 25.01.2024
 
-Журнал | Наша история №2 (56) (февраль 2024) [PDF]
+Everdying - Dimensions of Mortal Frailty (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
 
->>Журналы
->>Другие журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120789.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+01 - Prized Possession (04:09)
+02 - Hand of Avarice (03:02)
+03 - Fatal Strategy (04:19)
+04 - Weight of the Steel (03:34)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:36:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54D0534E28015C614BC670766F43CF7384BC0752
+magnet:?xt=urn:btih:D54058DBCCE7403C22B63CB5CE34EB24272078B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,28 +529,110 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694659   (120788) от 26.01.2024
+###  Публикация: 1694404   (120936) от 25.01.2024
 
-LP (Laura Pergolizzi) - Love Lines (2023) Deluxe Version, 2024, BMG Rights Management (US) LLC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop rock, alternative rock>
+Everdying - Within the Recesses (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You Died That Night (04:38)
+02 - Dissolute Habits (03:50)
+03 - Damnatio Memoriae (04:34)
+04 - The Dark Corner (06:14)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F152112208BAD72E1828ECD35B8B462026BB20C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694568   (120934) от 25.01.2024
+
+OmniFocus Pro 3.15.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живите продуктивной жизнью в контексте с OmniFocus Pro для Mac. Разделяйте рабочие и личные вопросы с помощью контекстов, перспектив и фокуса. Игнорируйте маловажное, сосредоточитесь на том, что можно сделать прямо сейчас, и добивайтесь большего. Все это вы можете делать гораздо быстрее, чем раньше.
+Интерфейс OmniFocus создан «с чистого листа» и ориентирован на ваши (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2007-2024 The Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021CD078176199B892CAAFD650F5555B5A3B2E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694591   (120933) от 25.01.2024
+
+Tipard FixMP4 for Mac 1.0.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановите поврежденные видеофайлы во всех ситуациях. Восстановите видеофайлы, которые невозможно воспроизвести по нескольким причинам в любой ситуации. Исправьте поврежденные видео из-за ошибок загрузки, переноса, ошибок редактирования, неправильных кодеков сжатия, испорченных записей и т. д. Независимо от того, каким образом ваше видео было повреждено, Tipard (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Tipard StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858BFD68DF60B04DDC61940055D626D32EBC9F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694442   (120932) от 25.01.2024
+
+Ethan Iverson - Technically Acceptable (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion, Contemporary Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120788.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Golden (3:27)
-02. Wild (3:01)
-03. Dayglow (3:31)
-04. Long Goodbye (4:23)(   Читать дальше...   )Жанр: Pop rock, alternative rockПродолжительность: 00:50:44
+01. Conundrum (1:31)
+02. Victory is Assured (Alla Breve) (2:39)
+03. Technically Acceptable (4:19)
+04. Who Are You, Really? (3:25)(   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:49:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F377CE74B9669AF7EB5DE18D570B70FCA3ECBD1A
+magnet:?xt=urn:btih:DE8EF0EF447AF0DE7F02EEE7996442DF17C18533
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,28 +640,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694661   (120787) от 26.01.2024
+###  Публикация: 1694575   (120930) от 25.01.2024
 
-VA - Trance 2024 [MP3|320 Kbps] <Uplifting Trance>
+MacLoggerDX 6.49 [En]
 
->>Electronic
->>Trance
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120787.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eximinds & Costa & Sue McLaren - Into The Unknown (Original Mix) (3:44)
-02. Two&One & Sarah Russell - One More Sunrise (Original Mix) (3:29)
-03. Sarah Lynn & Raz Nitzan & Trance Classics - Safe In Your Arms (Original Mix) (3:29)
-04. Eddie Lung - Run Away (Original Mix) (3:44)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:09:17
+MacLoggerDX - выбор журнала радиостанций Mac Ham Radio в 148 странах....
+Организация и фильтрация роликов из вашего любимого DX-кластера для DX-инга, случайных контестов или жевания тряпок. MacLoggerDX поддерживает более сотни радиостанций, автоматически настраиваясь на интересующие вас места и поворачивая луч. Оповещение о редких контактах или открытиях диапазонов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2023Разработчик: ©1995-2024 Dog Park Software Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BE60725C57607B2F08CD0BE93B8BDE928FDB4C1
+magnet:?xt=urn:btih:B04A24B53515E2514654A7EE0F20FDB64537F803
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,28 +667,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694630   (120786) от 26.01.2024
+###  Публикация: 1694416   (120929) от 25.01.2024
 
-The Luna Sequence - I Only Remember Falling (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Industrial Metal, Drum'n'bass>
+SQLPro for SQLite 2024.10 [En]
 
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120786.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Opposite Shore [05:02]
-02. There, at the Roots [04:43]
-03. Bloom in the Shadows [04:40]
-04. Resonance [04:56](   Читать дальше...   )Жанр: Electronic, Industrial Metal, Drum'n'bassПродолжительность: 00:41:01
+SQLPro for SQLit‪e - профессиональный менеджер баз данных SQLite.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Hankinsoft Development Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA28ED3005CB74CD18A394DB3F44654377268D53
+magnet:?xt=urn:btih:BB8F59C23FFDBFCA53161CD3F68A3940D8551BF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,307 +693,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694574   (120785) от 26.01.2024
+###  Публикация: 1694343   (120928) от 25.01.2024
 
-Static-X - Project Regeneration, Vol. 2 (2024) [MP3|320 Kbps] <Nu-Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Stay Alive [00:03:46]
-02 Z0mbie [00:03:11]
-03 Jic Boi [00:02:58]
-04 Black Star [00:04:00](   Читать дальше...   )Жанр: Nu-Metal, Industrial MetalПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E94B6A253F26BA2780DF5B76E60C795249FC3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694085   (120784) от 26.01.2024
-
-Для начинающих любить (2010) HDTVRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм о нелюбви, точнее о неумении любить. Герои картины как будто бы любят друг друга. Все правильно, все как у всех, но вот за этим «как будто» и кроется подмена, исчезает самое главное - подлинность чувств, ответственность, готовность жертвовать. И тогда любовь становится «как бы любовью». И только Ирина, юная героиня фильма, будучи существом поэтичным и (   Читать дальше...   )Производство: Россия / ДебютЖанр: мелодрамаРежиссер: Людмила ГладункоАктеры: Дмитрий Миллер, Александр Власов, Анна Казючиц, Дарья Михайлова, Ирина Климова, Наталья Пярн, Мария Радькова, Мария Шамшина, Екатерина Радченко, Алексей ЦокурСубтитры: отсутствуютПродолжительность: 01:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BD7F33968730F6B2C8CA11DCCD4DCC40DAD0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694802   (120783) от 26.01.2024
-
-Sojourner - Premonitions (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Epic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Monolith
-02. Eulogy For The Lost
-03. The Apocalyptic Theater
-04. Talas(   Читать дальше...   )Жанр: Atmospheric Black Metal, Epic MetalПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8582203F78CBD1B60FEED9C0B8333E0B795B14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694764   (120782) от 26.01.2024
-
-Text Workflow 1.8.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и простой в использовании инструмент, который поможет вам преобразовать ваш текст. Text Workflow устраняет необходимость выполнять повторяющиеся задачи вручную над вашим текстом. Комбинируйте действия по преобразованию, чтобы создать мощную автоматизацию для вашего текста.
-Комбинируйте действия преобразования, чтобы создать мощную автоматизацию для вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2024 Giorgos TrigonakisПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA73F609D841322036D53736ACBD35C100D4D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694497   (120781) от 26.01.2024
-
-Anita O'Day - Live At The City San Francisco (1979) 1997, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
+Robby Krieger - Robby Krieger & The Soul Savages (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120781.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wave [3:04]
-02. Blue Skies [3:53]
-03. Let's Fall in Love [3:59]
-04. What Are You Doing the Rest of Your Life? [4:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:01
+01. Shark Skin Suit (3:58)
+02. Samosas & Kingfishers (5:15)
+03. A Day In L.A. (4:20)
+04. Killzoni (4:25)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:43:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A1947BD684FAD26F60F5E6CB6AAEEAC07C39F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694745   (120780) от 26.01.2024
-
-Gato Barbieri - Priceless Jazz Collection (1997) GRP [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. India [9:00]
-02. Nunca Mas [5:30]
-03. Marissea [7:43]
-04. Para Nosotros [8:03](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1574A6F11D2333AD16E516E74E69D27D68A07F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694746   (120779) от 26.01.2024
-
-Mel Torme - Swingin' On The Moon (1993) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Because of You [2:41]
-02. Swinging on the Moon [2:21]
-03. Blues in the Night [3:38]
-04. You Oughta Be in Pictures [1:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3961B08E6C817A894ABD06A6822CE5F157989C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694824   (120778) от 26.01.2024
-
-uDock 4.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120778.jpg" />
-</div>
-
-
-###  Подробнее
-
-μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2024Разработчик: © 2024 Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D00A759CA024F5817929BD85D3155919045284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694676   (120777) от 26.01.2024
-
-Blood Red Throne - Nonagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120777.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Epitaph Inscribed
-2. Ode To The Obscene
-3. Seeking To Pierce
-4. Tempest Sculptor(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D171402B16D35A95B409F99E2B52CB71C7BDF00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694842   (120776) от 26.01.2024
-
-Fork 2.39 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и удобный клиент git. Fork с каждым днем ​​становится все лучше и лучше, и мы рады поделиться с вами нашими результатами. Список коммитов - Изменения рабочего каталога - Бок о бок Diff - Сводка и статистика менеджера репозиторияТип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2023 Danil PristupovПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FB814715C30936FB453F0758673172EF81A8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694496   (120775) от 26.01.2024
-
-Anita O'Day - Live In Concert Tokyo (1976) 1997, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [1:37]
-02. The Song Is You [4:33]
-03. Street of Dreams [4:13]
-04. On a Clear Day (You Can See Forever) [3:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA22DA36492E36F41469C511F99DD33FFFADCCB
+magnet:?xt=urn:btih:A7E72E28684FCBC364151980F5D0DEFA5E7EB165
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,89 @@
+###  Публикация: 1237405   (552400) от 23.07.2018
+
+Simon McBride - 4 альбома (2008 - 2012) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Simon McBride (родился 9 апреля 1979 года, Белфаст, Северная Ирландия) - певец, автор песен, продюсер и гитарист. В десять лет McBride начал играть на гитаре. В возрасте 15 лет он выиграл организованный журналом "Guitarist Magazine" конкурс "Молодой гитарист года", проходивший  в конференц-центре "Уэмбли". Спустя несколько месяцев после (   Читать дальше...   )2008 - Rich Man Falling (NUG804)\
+2010 - Since Then (NUG1004)\
+2012 - Crossing The Line (NUG1203)\Жанр: Blues-RockПродолжительность: 03:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAF2F01E114462ACF056DA006E199168173B1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309247   (552236) от 18.06.2019
+
+Christian McBride Big Band - Bringin' It (2017) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gettin’ To It [6:37]
+02. Thermo [5:59]
+03. Youthful Bliss [7:00]
+04. I Thought About You [6:09](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D3E23CE89624E867526AC3DB169B268448C418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046529   (552204) от 27.08.2016
+
+Art Tatum - More Of The Greatest Piano Of Them All (1954, 1955) 2015, Poll Winners Records[FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sweet Lorraine [04:24]
+ 02.Crazy Rhythm [02:59]
+ 03.Isn't It Romantic? [04:36]
+ 04.Indiana [03:06](   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 01:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D944486265C43A4C9E4FA855CBE129FE0926E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046685   (551935) от 27.08.2016
 
 Greg Serrato - Holy Smokes (1999) [MP3|256 Kbps] <Electric Blues, Blues Rock, Chicago Blues>
@@ -658,93 +744,6 @@ VA - The Very Best Jazz Instrumentals (3 CD Box Set) (2015) [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17EA00B3F90A1763746582572185797EBA25B0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309853   (549677) от 21.06.2019
-
-Peggy Lee - Pass Me By & Big Spender (1964, 1966) 2001, EMI [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sneakin’ Up on You [2:24]
-02. Pass Me By [2:26]
-03. I Wanna Be Around [2:30]
-04. Bewitched [2:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9A0D5FF060C8B507400F0AC9AF72F959D7EFD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309854   (549615) от 21.06.2019
-
-International Mass Choir - I Can Do All Things (1981) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can Do All Things (4:50)
-02. Fill My Cup Lord (6:47)
-03. The Lord Is My Shepherd (2:43)
-04. Even Me, Lord (7:16)(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CEC29BDB0BB217C017A1DD05487A10481A28ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309924   (549536) от 21.06.2019
-
-Quantic - Atlantic Oscillations (2019) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divergence (03:30)
-02. Incendium (04:45)
-03. September Blues (05:06)
-04. You Used To Love Me feat. Denitia (06:18)(   Читать дальше...   )Жанр: Nu Jazz, Soul, FunkПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E11CDE7BAD31BC0AF7D1486A943EBF20BA9B399
 ```
 
 https://mybot314.ru/tekegram_catalog/

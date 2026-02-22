@@ -1,3 +1,90 @@
+###  Публикация: 1222442   (685307) от 29.04.2018
+
+Art Pepper - Tokyo Encore (1979) 1991, Disques Dreyfus [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Besame Mucho [11:15]
+02. True Blues [09:36]
+03. Landscape [09:32]
+04. Over The Rainbow [09:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCA036FB5B67296D55A3C1CB5854E372A49DE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135030   (685231) от 17.05.2017
+
+Duke Ellington - Play 22 Original Big Band Hits (1946 - 1947) 1987, Hindsight Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train (Theme) [03:04]
+02. Crosstown [02:49]
+03. Passion Flower [03:34]
+04. Perdido [02:26](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB7DC8FF0414325F036D10B09FE713491C7B738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135026   (685230) от 17.05.2017
+
+Duke Ellington - Ellington '56 (1986) Charly [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East St. Louis Toodle-Oo [03:32]
+02. Creole Love Call [03:48]
+03. Stompy Jones [03:54]
+04. The Jeep Is Jumpin' [02:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD9098495D2E1A24EB0BB365141CEEC16801CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135046   (685228) от 17.05.2017
 
 Duke Ellington - Never-Before-Released Recordings (1965 - 1972) 1991, Limelight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -661,93 +748,6 @@ Duke Ellington - At Basin Street East (1964) 1995, Music and Arts Programs of Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B15FDA050582175DAE00D7ED68ADFA814A3732D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135212   (683136) от 18.05.2017
-
-Duke Ellington - A Portrait of Duke Ellington (1999) Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C Jam Blues [04:05]
-02. Satin Doll [02:44]
-03. Main Stem [03:18]
-04. Prelude to a Kiss [04:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0770AE4FE2D1A9F4440784F1157337E83B8344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222671   (683135) от 30.04.2018
-
-Jack Teagarden - 1939 - 1940 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Takin' My Time With You [03:01]
-02. I Wanna Hat With Cherries [02:55]
-03. Two Blind Loves [02:44]
-04. Hawaii Sang Me To Sleep [02:57](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6DB4BFCADEDE262638CB822D7744E6681D5C4ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135210   (683061) от 18.05.2017
-
-Duke Ellington - Jazz Masters 1953-1955 (1997) EMI Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll [02:58]
-02. Flamingo [03:43]
-03. Liza [03:15]
-04. In the Mood [06:00](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91EC9091DF0D27BF7D99D6727471952F914F2D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

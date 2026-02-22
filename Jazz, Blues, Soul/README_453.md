@@ -1,3 +1,32 @@
+###  Публикация: 1586332   (217137) от 26.10.2022
+
+TT Slim - Guess Who Dropped in? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Gone (4:43)
+02. Cry to Me (4:02)
+03. I Got a Feelin' (4:52)
+04. Come as You Are (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D28FF165567D46ECC5585E2F9596D8B877D1A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652469   (217120) от 12.08.2023
 
 Sam Cole - Thoughts and Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -762,35 +791,6 @@ VA - Christmas Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5CF1793083326BAC333A63336C67FEA1DA3017B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586590   (215932) от 27.10.2022
-
-Lem Winchester & Benny Golson - Winchester Special (1959) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down Fuzz [10:05]
-02. If I Were a Bell [4:04]
-03. Will You Still Be Mine? [7:04]
-04. Mysticism [7:34](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D1E50EAFFB3A01143ACD440B85B0CF6D8F91C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1199813   (800364) от 17.01.2018
+
+Charlotte Gainsbourg - 5:55 (2007) US Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5:55 (4:52)
+ 02. AF607105 (4:30)
+ 03. The Operation (3:59)
+ 04. Tel Que Tu Es (3:10)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6C97FBEEAC1208A81D219CEC7D7625D419DC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199544   (800307) от 17.01.2018
 
 Dalida - Ciao ciao mon amour (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
@@ -718,35 +747,6 @@ Demis Roussos - Mon Île (Ile) (1997) Unofficial Release [APE|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA14CF475DA749F1927E830AD39CB745AA198ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011775   (793563) от 01.05.2016
-
-Demis Roussos - Forever & Ever (the Best Of) (2013) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy To Be On An Island In The Sun (1975)
-02. Goodbye My Love Goodbye (Album Version) (1973)
-03. Can't Say How Much I Love You (1976)
-04. When Forever Has Gone (1974)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9446A1566CE2AF073884513C8301C9F1A138202
 ```
 
 https://mybot314.ru/tekegram_catalog/

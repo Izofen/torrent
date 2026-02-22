@@ -438,35 +438,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680837   (133818) от 30.11.2023
-
-Paradise Lost - Icon 30 (2023) [MP3|320 Kbps] <Gothic metal, Doom metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embers Fire (04:51)
- 02. Remembrance (03:28)
- 03. Forging Sympathy (04:41)
- 04. Joys of the Emptiness (03:29)(   Читать дальше...   )Жанр: Gothic metal, Doom metalПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6EB4441D2ABD52769236CE21B54C52F8FACA69D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680882   (132713) от 03.12.2023
 
 Orphaned Land - A Heaven You May Create (2021) Live @ Heichal HaTarbut, Tel Aviv, 2023, Century Media[MP3|320 Kbps] <Doom-Death Metal, Middle Eastern Folk, Progressive Metal>
@@ -604,35 +575,6 @@ Satanic Warmaster - Strength and Honour (2001) Reissue, 2007, Northern Heritage 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D4DB25FDB041BAEDAE23B0B0D0AE63F3EBC4260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681984   (131840) от 06.12.2023
-
-Marilyn Manson - The Golden Age Of Grotesque (2003) Deluxe Edition, 2006, Universal Music [MP3|320 Kbps] <Alternative Metal, Industrial, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thaeter — 1:14
-02. This Is the New Shit — 4:19
-03. mOBSCENE — 3:25
-04. Doll-Dagga Buzz-Buzz Ziggety-Zag — 4:10(   Читать дальше...   )Жанр: Alternative Metal, Industrial, Nu MetalПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B3A0CFED72A7F1DEC985154B761F7328D5098E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -805,6 +747,70 @@ Validor - Dawn Of The Avenger (2012) [MP3|320 кб/с]<Folk / Heavу/ Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02C7717D649EB31ACB02189EC9C0C1544952B4F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682221   (131533) от 07.12.2023
+
+Old Ruins - Always Heading East (2023) [MP3|320 Kbps] <Heavy, Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Servant's Diary (01:10)
+02. The Dark Wanderer (05:47)
+03. Tristram (04:56)
+04. The Desert Sands (04:56)(   Читать дальше...   )Жанр: Heavy, Post-Black MetalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465A75F61A7ADAFC17563C7BD74CA3021416B584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595357   (131018) от 31.12.2012
+
+Guttural Engorgement - The Slow Decay Of Infested Flesh [Digi-Pack Limited Edition] (2010) [MP3|320 кб/с]<Brutal Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Process Begins (Intro)
+ 02. The Slow Decay of Infested Flesh
+ 03. Job For A Hammer
+ 04. Bile Defilement
+ 05. Molested Dissection
+ 06. Cadaveric Maggot Copulation
+ 07. Omnipresent Ecchymosis
+ 08. Cinder Block Facial Reconstruction
+ 09. Steak Knife Face Fuck
+ 10. Chopsaw Sodomy(   Читать дальше...   )Жанр: Brutal DeathПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EB1A848B3A2CACF68FE8657D85AD2AA92D1FB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1135455   (681202) от 19.05.2017
+
+VA - Paul Oakenfold: DJ Box May (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freejak - Out Of Breath (feat Martay M'Kenzy - extended mix) (04:48)
+02. Nuera - Lyse (original mix) (07:44)
+03. Harper & Green - Rejerrah (04:48)
+04. Cosmic Gate & Tim White - The Deep End (extended mix) (06:59)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BF0F79481699C203783672CE67B2500F394480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135467   (681196) от 19.05.2017
 
 Process Lasso Pro 9.0.0.346 Final RePack (& Portable) by D!akov [Multi/Ru]
@@ -687,35 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135427   (680959) от 19.05.2017
-
-Vince Neil - Exposed (1993) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680959.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Look In Her Eyes
-A2 Sister Of Pain
-A3 Can't Have Your Cake
-A4 The Edge(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0225115B62EE18F6735FA04C31BD46D80A947B
 ```
 
 https://mybot314.ru/tekegram_catalog/

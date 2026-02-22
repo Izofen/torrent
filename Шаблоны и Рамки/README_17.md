@@ -1,3 +1,29 @@
+###  Публикация: 682406   (631952) от 22.07.2013
+
+Шаблоны - GraphicRiver - Real 3D Logos and Text - Vol1 [PSD, JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный набор, который содержит 10 3D-эффектов, чтобы помочь Вам представить свои логотипы.Формат: PSD, JPEGРазрешение файлов: 2400x1400
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB54FA349ACA461D05597A51EA2B0A1C34E492D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682266   (631788) от 22.07.2013
 
 Шаблоны - GraphicRiver - Book Collection - Mockups [PSD]
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:782B26FCEA2339D2DD082DB96C7B27754FB732EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037216   (615486) от 23.07.2016
-
-Шаблоны - CreativeMarket - Devices - Mockups V03 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615486.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 PSD-файлов с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 4000x2560px\300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D90B3E4FE891EB994F602F75E07359F8901507
 ```
 
 https://mybot314.ru/tekegram_catalog/

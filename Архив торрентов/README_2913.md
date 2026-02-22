@@ -1,3 +1,38 @@
+###  Публикация: 361516   (575220) от 11.07.2011
+
+Ray Lugo & The Boogaloo Destroyers - Mi Watusi (2011) [MP3|~220 kbps/VBR]<Boogaloo, Latin>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soy El Rey
+02. Swingy Boogaloo
+03. Combolu
+04. My Shingaling
+05. A Taste Of Honey
+06. Let's Boogaloo
+07. El Bantu
+08. At The Party
+09. Me And You Baby (Picao Y Tostao)
+10. Lugo's BoogalooЖанр: Boogaloo, LatinПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD3F922D1E3B0130E4CFB633C5A6F45DD907ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 688633   (575219) от 12.08.2013
 
 Абхазская сказка (2012) SATRip
@@ -675,32 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8263D63C2E937F8A8F3F6BB4610612A88586F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527929   (575084) от 27.07.2012
-
-WinISO Standard 6.2.0.4590 [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_575084.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinISO Standard - программа для работы с образами CD и DVD дисков. WinISO работает с форматами BIN и ISO, может редактировать эти форматы и конвертировать из одного в другой. С помощью WinISO вы сможете с легкостью добавлять / удалять / переименовывать / извлекать файлы из образов. Программа имеет очень удобный и понятный интерфейс, который еще сильнее облегчит и без того простую работу в этой программе. Предназначенная для работы с образами BIN и ISO программа WinISO является лидером в ряду софта, разработанного для клонирования и создания образов оптических носителей информации.Название программы: WinISO StandardЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

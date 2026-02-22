@@ -1,3 +1,32 @@
+###  Публикация: 1574024   (407544) от 03.09.2022
+
+Joey Alexander - Origin (2022) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remembering [5:44]
+02. On the Horizon [5:28]
+03. Dear Autumn [5:38]
+04. Winter Blues [7:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C5FAEA1E1771F0E838D4B4C1A4072BEF80ADC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326094   (407433) от 18.09.2019
 
 Dizzy Gillespie - Dizzy's Diamonds: The Best Of The Verve Years (1950 - 1964) 3CD, 1992, Verve Records [FLAC|Lossless|tracks + .cue] <Bop, Afro-Cuban Jazz, Big Band>
@@ -781,35 +810,6 @@ Al Hirt & Pete Fountain - Super Jazz 1 (1975) 1988, CBS [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92D53715174D5FED38FCDA9D703DE3A50CF99B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169142   (404116) от 26.09.2017
-
-Al Hirt - At The Mardi Gras (1962) 2000, RCA Victor [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Announcement & Bourbon Street Parade [03:33]
-02. Basin Street Blues [03:28]
-03. Perdido [02:39]
-04. Show Me the Way to Go Home [03:18](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4707B7106D782271D25306E0371B6B1F54EC251F
 ```
 
 https://mybot314.ru/tekegram_catalog/

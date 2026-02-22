@@ -1,3 +1,261 @@
+###  Публикация: 1503046   (821345) от 18.10.2021
+
+Destinity - In Continuum (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sand Remains
+02. Reject The Deceit
+03. Reflections
+04. Shadows(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4A1F13177BC3DC20C443881093D71CD7B4A95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502927   (821338) от 18.10.2021
+
+Manowar - Louder Than Hell (1996) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return Of The Warlord
+02. Brothers Of Metal Pt. 1
+03. The Gods Made Heavy Metal
+04. Courage(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CD2E608FE455A7EDA035A8FB35192E61F4EB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116821   (821285) от 21.03.2017
+
+Drama - Silver Brilliance of Nocticula (2006) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind of New War
+02. When Night Falls
+03. Winter in My Mind
+04. Satanica(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49709225FDA05EB7704BCBD778ECD53FEDCC53B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116847   (821191) от 21.03.2017
+
+Scythe - Decay (2006) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (instrumental) 00:57
+02. Years Of Patience And Regret 06:33
+03. Pretending Not To See 06:53
+04. Bitterness 06:35(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA73FE3BA34D3F929DE5583EC1AD29007DDCA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116833   (821189) от 21.03.2017
+
+Scythe - The Process Of Rotting (2004) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (instrumental) 01:07
+02. Disinclination 03:57
+03. The Tomb 04:36
+04. Path In The Snow 05:26(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0932FE2E3B06F97D62CA819E2D8D0F24D7A2C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382255   (821032) от 10.05.2020
+
+Dimmu Borgir - Stormblast (Special Edition) (2005) [FLAC|Lossless|image + .cue] <Sympho Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alt Lys Er Svunnet Hen [04:44]
+02. Broderskapets Ring [05:30]
+03. Nar Sjelen Hentes Til Helvete [04:43]
+04. Sorgens Kammer - Del II [05:51](   Читать дальше...   )Жанр: Sympho Black MetalПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F587A0930C6AEA36612041A4737AE980607C2699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382204   (820870) от 10.05.2020
+
+Within Temptation - Entertain You (2020) Single [FLAC|lossless] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entertain You (03:31)Жанр: Gothic MetalПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE68EE2FF6E9925F0267EC710AAE2823D81613F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 197050   (819942) от 01.05.2010
+
+VA - Beautiful Voices Vol. 1-3 (2005-2008) [FLAC|Lossless|tracks + .cue] <Symphonic metal, Gothic metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightwish - Amaranth
+02. After Forever - Discord
+03. Xandria - Save My Life
+04.Edenbridge - Shine (Single Edit)(   Читать дальше...   )Жанр: Symphonic metal, Gothic metalПродолжительность: 03:54:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503314   (819694) от 19.10.2021
+
+Cyborg Halucinations - Entheogenesys (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Entheogen
+03. Hallucinate
+04. Exterminacion(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99217CA764D73F89622DCB5CCA4822AF2E967D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503366   (819690) от 19.10.2021
 
 Hurry Scuary - Break It Up (1988) [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -484,267 +742,6 @@ Ronnie Atkins - 4 More Shots: The Acoustics (2021) EP [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F93C8D587BBFBEA17F9364F56D77566049E43FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625124   (817589) от 17.04.2016
-
-Caladan Brood - Echoes Of Battle (2013) [FLAC|Lossless|image+.cue]<Epic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Of Azure Fire
-02. Echoes Of Battle
-03. Wild Autumn Wind
-04. To Walk The Ashes Of Dead Empires(   Читать дальше...   )Жанр: Epic Black MetalПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CDF4021739972104C68BE16AADE17E49FC156D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382835   (817532) от 12.05.2020
-
-Wallack - Black Neons (2020) [FLAC|Lossless|Web-DL|tracks] <Industrial Metal, Doom Metal, Stoner Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All That's Ever Been Pt.1 (5:18)
-02. Anxiety (3:42)
-03. Century Boy (4:26)
-04. Black Neons (6:40)(   Читать дальше...   )Жанр: Industrial Metal, Doom Metal, Stoner Rock, Electronic, Psychedelic RockПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF36F3465BA996524CC7353E93BAB445F2A0C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785463   (817385) от 12.05.2020
-
-Lanfear - The Art Effect (2003) [FLAC|Lossless]<Progressive Metal  /Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heresy [00:54]
-02. Stigmatized [04:45]
-03. Traces Of Infinity [03:53]
-04. The Artefact [06:27](   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE0029955D55B5B7BD5C0ECB46D0041FF39942E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196992   (817282) от 06.01.2018
-
-Epica - Epica Vs Attack On Titan Songs (2017) EP, Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crimson Bow And Arrow (5:42)
- 02. Wings Of Freedom (5:34)
- 03. If Inside These Walls Was A House (3:43)
- 04. Dedicate Your Heart! (5:41)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85EC4B96542ADCFD44A07E61503A4D0D9CA254BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117495   (817184) от 23.03.2017
-
-Disperse - Foreword (2017) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay
-02. Surrender
-03. Bubbles
-04. Tomorrow(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390745132F7CBBE4E73E8F3EB2813920719020D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008116   (817156) от 17.04.2016
-
-Metallica - Kill'em All (1983) Remastered 2016 [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit the Lights
-02. The Four Horsemen
-03. Motorbreath
-04. Jump in the Fire(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E13618B9FF76D7A5538AC5821754A4DF832495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008118   (816986) от 17.04.2016
-
-Metallica - Ride The Lightning (1984) Remastered 2016 [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816986.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fight Fire with Fire
-2. Ride the Lightning
-3. For Whom the Bell Tolls
-4. Fade to Black(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D07AA62500C01BCA1EA61B70862ED7A89097865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503802   (816130) от 21.10.2021
-
-Thunderhead - 4 Studio Albums (1989-1993) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunderhead - немецкая хард-рок- и метал- группа, просуществовавшая с 1988 по 2000 год. В 2002 году была основана компания Donnerkopf . Сегодня некоторые из участников активны как Nitrogods . Thunderhead была основана в 1988 году Хенни Вольтером (гитара, экс) и Оле Хемпельманном (электробас), которые познакомились с американским певцом Тедом Буллетом . Bullet остался (   Читать дальше...   )1989 - Behind The Eight-Ball
-1990 - Busted At The Border
-1991 - Crime Pays
-1993 - Killing With StyleЖанр: Heavy MetalПродолжительность: 03:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50000B6388AAECF6E85D60AC95E16128E802F6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008292   (816029) от 18.04.2016
-
-Riot - Fire Down Under (1981) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Swords and Tequila
-02.	Fire Down Under
-03.	Feel the Same
-04.	Outlaw(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F4D32DA2B14AE607B496D1DD755266D504353C
 ```
 
 https://mybot314.ru/tekegram_catalog/

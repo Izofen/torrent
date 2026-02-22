@@ -1,3 +1,32 @@
+###  Публикация: 1300738   (592799) от 07.05.2019
+
+Venetica - The Things We Left Behind (Extended Edition) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venetica - The Things We Left Behind (Original Mix)
+02. Venetica - Dying Of The Light (Original Mix)
+03. Venetica - Wide Open (Original Mix)
+04. Venetica - New Lease (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C921F732ADE9BBA9BBFAEB0D189D973D17A4A2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300780   (592776) от 07.05.2019
 
 VA - Suanda Music Radio Top 25 (April/May) (2019) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Black Hole Trance Music 07 - 18 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43C5E8AE6558FD50905DACF0DF584B4DBF9E8E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237550   (551587) от 24.07.2018
-
-VA - Suanda Ibiza (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Roman Messer ft. Christina Novelli - Fireflies (Extended Mix)
-02.LTN - Coconut Island (Extended Mix)
-03.Attila Syah vs J.Puchler & Xpectra ft. Joanna Angelina - Forever (Original Mix)
-04.HamzeH - A Thousand Times Over (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE282F73DD1E788D045A0A892B422C40E8717F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,179 @@
+###  Публикация: 1598981   (20179) от 26.04.2025
+
+H.E.A.T - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Arena Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20179.jpg" />
+</div>
+
+
+###  Подробнее
+
+H.E.A.T — шведская рок-группа из Upplands Väsby, играющая в стиле Melodic Rock и AOR.
+Группа возникла в январе 2007 года в результате объединения двух шведских групп Dream и Trading Fate. В 2008 году был выпущен дебютный альбом H.e.a.t.
+Группа выступала на Melodifestivalen 2009 — шведском этапе Евровидения - но не одержала победу в финале.
+После долгих летних (   Читать дальше...   )2008 - H.E.A.T
+2010 - Freedom Rock
+2012 - Address The Nation
+2014 - Tearing Down The WallsЖанр: Arena Rock, Hard RockПродолжительность: 06:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F128002155276B9287FF5E8F65BF4C7B7E90718B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745105   (20167) от 26.04.2025
+
+Sacred Steel - Studio Albums (10 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sacred Steel - немецкая пауэр-метал группа из Людвигсбурга, образованная в 1997 году.1997 - Reborn In Steel
+1999 - Wargods of Metal
+2000 - Bloodlust
+2002 - Slaughter ProphecyЖанр: Epic Power MetalПродолжительность: 08:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090936DC08D192DA7FD5E892279DC877E983A5D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658183   (20048) от 27.04.2025
+
+Orbit Culture - Studio Albums (8 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_20048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orbit Culture — шведская мелодик-дэт-метал группа из города Эксё, образованная в 2013 году.2013 - Odyssey (EP)
+2014 - In Medias Res
+2016 - Rasen
+2018 - Redfog (EP)Жанр: Melodic Death/Groove MetalПродолжительность: 04:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEA716A3F1A52AED6BA3DF8A74558AD23FBDE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794470   (19838) от 29.04.2025
+
+Smokie/Смоуки - Bright Lights & Back Alleys/Яркий Свет И Темные Улицы (1982) Balkanton, Bulgaria, Licensed From – EMI [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_19838.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 It's Your Life • Твоя Жизнь
+A2 I Can't Stay Here Tonight • Не Могу Остаться Здесь В Этот Вечер
+A3 Sunshine Avenue • Солнечный Бульвар
+A4 Think Of Me • Думай Обо Мне(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39CD250A23C420F07AC529951AC06EB5ACFA5E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794646   (19754) от 30.04.2025
+
+Eternal Storm - Studio Albums (3 releases) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_19754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eternal Storm - испанская метал-группа, созданная в Мадриде в 2009 году.2013 - From The Ashes (EP)
+2019 - Come The Tide
+2024 - A Giant Bound To FallЖанр: Progressive Melodic Death MetalПродолжительность: 02:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895BA6E788D2DDBF87B0AB5C60B52E5357CC36A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795052   (19565) от 02.05.2025
+
+Barren Earth - Studio Albums (4 releases) (2010-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Barren Earth — финская метал-группа, основана осенью 2007 года в Хельсинки.2010 - Curse Of The Red River
+2012 - The Devil's Resolve
+2015 - On Lonely Towers
+2018 - A Complex Of CagesЖанр: Progressive Melodic Death/Doom MetalПродолжительность: 04:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF72316D01E871914967F50E8E39833B6E8F20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795038   (19564) от 02.05.2025
 
 VA - Heavy Artillery (1990) Unofficial Release [FLAC 2.0|44.1/24|image +.cue|MC-Rip] <Thrash, Heavy Metal, Power Metal>
@@ -572,177 +748,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EB70398CAD6116FC82BBE5A7E0FCB2E6F44969C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799335   (16752) от 07.08.2025
-
-Shadecrown - Studio Albums (4 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadecrown - метал-группа из Финляндии, основанная в 2012 году.2016 - Agonia
-2019 - Riven
-2021 - Solitarian
-2025 - 0Жанр: Melodic Death/Doom MetalПродолжительность: 03:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82230B47378BF6291E4641FF5FB1D8BA9B6F7DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810983   (16721) от 07.08.2025
-
-Ozzy Osbourne - Blizzard of Ozz (1980) Released, 2011, Sony Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16721.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Don't Know
-A2 Crazy Train
-A3 Goodbye To Romance
-A4 Dee(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39B4A6ED79763CE398388FF508A571147FAA1A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550333   (16454) от 29.05.2025
-
-Slayer (& Kerry King) - Studio Albums (15 releases) (1983-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slayer  — американская метал группа. Коллектив был основан в 1981 году.
-Вместе с группами Metallica, Megadeth и Anthrax, Slayer входит в «большую четвёрку трэш-метала».1983 - Show No Mercy
-1985 - Hell Awaits
-1986 - Reign in Blood
-1988 - South of HeavenЖанр: Thrash MetalПродолжительность: 11:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B376C4729165FA697E8B5322EE2C49EC2831A1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811401   (16229) от 09.08.2025
-
-Bonded - Studio Albums (2 releases) (2020-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bonded - немецкая метал-группа из Дортмунда, Северный Рейн-Вестфалия, сформирована в 2018 году.2020 - Rest In Violence
-2021 - Into BlacknessЖанр: Thrash MetalПродолжительность: 01:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73773B32AB16A077DC84A707CF3750363C1C2149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724128   (16201) от 09.08.2025
-
-Wolfskull - Studio Albums (3 releases) (2019-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfskull - хард-рок-группа из Северного Рейна-Вестфалии, сформированная весной 2018 года.2019 - Hexum (EP)
-2022 - Ave GoddessЖанр: Hard RockПродолжительность: 01:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD04781FE46BD68CA7DEC272EDFF82485174D3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811355   (16200) от 09.08.2025
-
-Andreas Vollenweider - The Best Of Vol. 1 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Modern Classical, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Behind The Gardens-Behind The Wall-Under The Tree
-A2 Pyramid-In The Wood-In The Bright Light
-A3 Skin And Skin(   Читать дальше...   )Жанр: Electronic, Modern Classical, AmbientПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022CEA5D698CE1AB9AAF68EB1E312349BB0DC206
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1021497   (732091) от 30.05.2016
+
+Ernesto vs. Bastian - Dark Side Of The Moon (2005) [FLAC|Lossless|tracks + .cue] <Trance,Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkside of the Moon (Original Radio Version)
+02. Darkside of the Moon (Sunloverz Rmx Edit)
+03. Darkside of the Moon (DJ Shog Rmx Edit)
+04. Darkside of the Moon (Dogzilla Radio Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5C60CFCB151BF4AB537212935F2FBCDEE718AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127173   (732078) от 21.04.2017
 
 Вениамин Каверин | Наука расставания (1986) [MP3]
@@ -661,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BFA71E3F49F4A79D824FD615A855666D7C2B7D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127512   (731846) от 21.04.2017
-
-Reg Organizer 7.80 Portable by Kopejkin [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многофункциональная программа для редактирования, чистки и обслуживания реестра, исправления ошибок в системе и повышения ее производительности. Функция глубокого поиска по реестру позволит отыскать все ключи реестра, относящиеся к интересующему приложению. Программа позволяет редактировать файлы реестра (.reg) и просматривать их содержимое прямо из Проводника Windows. (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09A6CA47A99114BC60CAEB9680ECA083BB9D33D
 ```
 
 https://mybot314.ru/tekegram_catalog/

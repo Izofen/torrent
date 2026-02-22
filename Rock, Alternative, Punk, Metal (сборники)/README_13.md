@@ -1,3 +1,32 @@
+###  Публикация: 1385824   (795985) от 27.05.2020
+
+VA - Ancient World: Modern Alternative Rock (2020) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795985.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Los Lobos - I Wan'na Be Like
+002. Stereophonics - Don't Let
+003. Coreleoni - Boom Boom
+004. Michael Schenker Fest - Ascension(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 06:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB3F90AF6CE01F7E7EC7F2053572ED742E7F686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385770   (795910) от 27.05.2020
 
 VA - The Road to Punk Rock (2020) [MP3|320 Kbps] <Rock, Rock & Roll, Other>
@@ -716,35 +745,6 @@ Johnny Hallyday - Album De Sa Vie (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1542CFA20BD942630F6387A2842AEF7D1906E37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276833   (787201) от 18.01.2019
-
-The Cranberries - I Still Do (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Do
-02. Dreams
-03. Sunday
-04. Pretty(   Читать дальше...   )Жанр: RockПродолжительность: 03:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E20A81AD1C341282FB9E09EB3AFA7CEDAFEA11
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1147403   (609871) от 02.07.2017
+
+Harry Allen & Keith Ingham - The Back Room Romp (1995) [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Back Room Romp [3:52]
+02 Sweet Lotus Blossom [5:30]
+03 One Sweet Letter from You [5:21]
+04 Elephant Stomp [3:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A567735AC9E9921C3B0D03F38E3FB19F28B70F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147450   (609870) от 02.07.2017
 
 The Harry Allen & Joe Cohn Quartet - Guys and Dolls (2007) Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
@@ -725,35 +754,6 @@ Bobby Hutcherson - Best of the Blue Note Years (2001) [FLAC|Lossless]<Post-Bop, 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913407   (607239) от 28.06.2015
-
-Nico Morelli - Nico Morelli (2003) [FLAC|tracks]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarante
-02. Blues Zen
-03. Il Canto di Sadone
-04. Pezzo X(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86ECAE2EAE23AC6D18DBD075A0248F49AA7109A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 441024   (64272) от 25.01.2012
+
+Hans Zimmer - Sherlock Holmes: A Game of Shadows (2011) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Hans Zimmer - I See Everything (0:39)
+2. Hans Zimmer - That is My Curse (Shadows - Part 1) (1:52)
+3. Hans Zimmer - Tick Tock (Shadows - Part 2) (8:13)
+4. Hans Zimmer - Chess (Shadows - Part 3) (7:34)
+5. Hans Zimmer - It's So Overt It's Covert (3:19)
+6. Hans Zimmer - Romanian Wind (1:56)
+7. Hans Zimmer - Did You Kill My Wife? (2:42)
+8. Hans Zimmer - He's All Me Me Me (1:58)
+9. Hans Zimmer - The Mycroft Suite (1:41)
+10. Nicolaus Esterhazy Sinfonia & Hungarian Radio Chorus - To the Opera! (4:03)(   Читать дальше...   )2011Жанр: SoundtrackПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 440878   (64100) от 23.01.2012
 
 V.A. - Digital Masters (Музыкальные тестовые диски) 3CD (2010) [FLAC|Lossless]<Jazz, Folk, World, Rock, Classical>
@@ -711,35 +746,6 @@ Gallows Bound - Gallows Bound (2014) [MP3|320 Kbps] <Americana, Bluegrass, Count
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A04D94860BEAD4A2ED2D7D69586C96C7CD220B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732453   (52029) от 25.06.2024
-
-Tom Holkenborg (Junkie XL) - Furiosa A Mad Max Saga OST (2024) OST [MP3|320 Kbps] <Techno,Ambient>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 the-pole-of-inaccessibility
-02 dementus
-03 the-promise
-04 you-are-awaited(   Читать дальше...   )Жанр: Techno,AmbientПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF75EF4CCB65EA72282792B8CCD09562D8DD63D
 ```
 
 https://mybot314.ru/tekegram_catalog/

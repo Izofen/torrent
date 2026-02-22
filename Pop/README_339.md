@@ -1,3 +1,99 @@
+###  Публикация: 466110   (81425) от 11.03.2012
+
+2 Unlimited - The Very Best Of 2 Unlimited (1995) [MP3|320 кб/с]<Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Do What's Good For Me
+02 No Limit
+03 Get Ready For This
+04 Twilight Zone
+05 No One
+06 Jump For Joy
+07 Tribal Dance
+08 The Magic Friend
+09 Workaholic
+10 Let The Beat Control Your Body(   Читать дальше...   )1995Жанр: EurodanceПродолжительность: 01:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BBB992B28B4117C1C853E3C8A3EA59BC3FC09E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466229   (81386) от 11.03.2012
+
+Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, PopПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466076   (81385) от 11.03.2012
+
+Mr.President - Golden Super Hits (2000) [MP3|320 кб/с]<Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give A Little Love
+02. All I Wanna Do
+03. Coco Jambo
+04. Space Gate
+05. Up'N Away
+06. Cachito Bandito
+07.Hasta Manana
+08. Where The Sun Goes Down
+09. F.B.I.
+10. I Won't Let U Down(   Читать дальше...   )2000Жанр: EurodanceПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFB63D70AB19C44049014708D23FC59F5FD1167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465771   (81194) от 10.03.2012
 
 VA - Italo Euro Disco Vol.1 (2010) [FLAC|Lossless]<Italo Disco>
@@ -749,88 +845,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00375A827F0491E681B207C6599AAB5513D70D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454456   (76928) от 18.02.2012
-
-Надежда Кадышева - Романсы (2011) [FLAC|Lossless|image + .cue]<Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, FolkПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445155   (73499) от 01.02.2012
-
-Highland - Bella Stella / Dimmi Perche (2000, 2008) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_73499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Highland - Nicole Heiland, Dean Burke и Patrice "Lady Scar" Gansau (учавствовала в записи альбома "Bella Stella").
-Коллектив соединяет в своей музыке поп, дэнс и рэп с элементами псевдооперы и шотландским фолком. Получается очень интересный коктейль, сдобренный своеобразным и глубоким вокалом, исполняемым на итальянском и английском языках со (   Читать дальше...   )Жанр: PopПродолжительность: 01:32:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771456   (71859) от 07.01.2025
-
-VA - I Love Disco France 80's (2013) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F.R. David - Words
-02. Bandolero - Paris Latino
-03. Magazine 60 - Don Quichotte (U.S. Remix)
-04. Noe Willer - Toi, Femme Publique (Remix)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EuropopПродолжительность: 02:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9872004CCA3FF6B5663E2BD023216078808CF0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

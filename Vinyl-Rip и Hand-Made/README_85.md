@@ -1,3 +1,175 @@
+###  Публикация: 1792775   (67621) от 20.04.2025
+
+Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|image|Vinyl-Rip] <Nu metal, Alternative metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67621.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1-742617000027
+A2-(Sic)
+A3-Eyeless
+A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792754   (67600) от 20.04.2025
+
+Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visionatica - симфо-метал-группа из Франконии, Германия. Образована в 2016 году.2016 - Force Of Luna
+2019 - Enigma Fire
+2025 - Harrowing InsightЖанр: Symphonic MetalПродолжительность: 01:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1C729837506B00DA89B1728316D74ED3E3F1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792136   (67592) от 20.04.2025
+
+Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Industrialist
+02. Recharger
+03. New Messiah
+04. God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E899E575915247F93E38BDBEB725253CF4F971EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792175   (67591) от 20.04.2025
+
+Samael - Worship Him (1991) Reissue, 2016, Osmose Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67591.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sleep Of Death
+A2 Worship Him
+A3 Knowledge Of The Ancient Kingdom
+A4 Morbid Metal(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0094FA69D411F9E55B3C6A44B1FD1631BCDD9C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792193   (67589) от 20.04.2025
+
+Soulfly - Soulfly (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67589.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Eye For An Eye
+A2. No Hope = No Fear
+A3. Bleed
+A4. Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A853388902A5C0C43F250DEBC588A3E5FB7CE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792143   (67585) от 20.04.2025
+
+Dies Irae (Mexico) - Studio Albums (3 releases) (1998-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Gothic Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dies Irae - группа, играющая атмосферный метал/пост-рок из Леона, Гуанахуато, Мексика. Основанная в 1994 году, изначально исполняла мрачный, мелодичный дэт-метал. Распалась в 2002 году, воссоединилась в 2009 году.1998 - Ethereal
+2001 - Naive
+2011 - Secret Veils of PassionЖанр: Melodic Death/Gothic Metal, Progressive RockПродолжительность: 03:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6914DC144D1DBC0D4C40FEA2FB8C1CF3D0DB173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792601   (67584) от 20.04.2025
 
 Dark Flood - Studio Albums (4 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
@@ -569,180 +741,6 @@ Hands Of Despair - метал-группа из Монреаля, Канада, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A5A50748481766EED5783370B907270E8A39293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793615   (67454) от 25.04.2025
-
-Limbes - Liernes (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Atmospheric Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67454.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Pied De Pilori
-A2 - Les Côtes à L'Unisson
-B1 - Buffet Frigide
-B2 - Aulnes Et PoussièresЖанр: Atmospheric Black MetalПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86056FEFF7E86C9A0DD6BE6FBE7DD76A62359596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793637   (67446) от 25.04.2025
-
-Samael - Rebellion (1995) (EP) Reissue, 2014, Floga Records [FLAC|24/96|tracks|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67446.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Rebellion
-A2 After The Sepulture (New Version)
-A3 I Love The Dead
-B1 Static Journey(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A14D243F236A840441C71C6F6D21038AA4B0E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642795   (67412) от 27.04.2025
-
-Deserted Fear - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deserted Fear - Death metal группа из Германии, основана в 2008 году.2012 - My Empire
-2014 - Kingdom of Worms
-2017 - Dead Shores Rising
-2019 - Drowned By HumanityЖанр: Death MetalПродолжительность: 04:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C1B5449B9176EF79ED55DB61B6E5471B823333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793973   (67405) от 27.04.2025
-
-Helena Vondrackova - Music (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67405.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Music
-A2 Dancing In The City
-A3 Kes, Kes
-A4 Love Me(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A751D134EF10216D0672E86A9CF0ABB92AE83C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794005   (67382) от 27.04.2025
-
-Brainstorm - Wall of Skulls (2021) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Walls....
-A1 Chamber Thirteen
-A2 Where Ravens Fly
-A3 Solitude(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AFE8A4F6945AFD155594B02F3F8C310A88B5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793702   (67381) от 27.04.2025
-
-Game Over - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Game Over - итальянская треш-метал-группа, основана в 2008 году.2012 - For Humanity
-2014 - Burst into the Quiet
-2016 - Crimes Against Reality
-2017 - Claiming SupremacyЖанр: Thrash MetalПродолжительность: 03:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A6567E962642C3F866FBED60522F4FEC33894C
 ```
 
 https://mybot314.ru/tekegram_catalog/

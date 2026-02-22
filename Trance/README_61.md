@@ -1,3 +1,32 @@
+###  Публикация: 1766005   (101299) от 15.12.2024
+
+VA - Redux Presents: The Finest Selection (Mixed by DJ Jayel) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petereese - Redrasoew (Extended Mix) (06:32)
+02. Cj Mover - 1st In Space (Extended Mix) (07:05)
+03. Lele Palmieri - Supernatural (Extended Mix) (07:01)
+04. Stnx - Remedy (Extended Mix) (06:32)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C3486B6BFA3C268CE46BF4CD106151A093AB09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766266   (101273) от 17.12.2024
 
 VA - Best of Fables 2024 - Extended Mixes (2024) [MP3|320 Kbps] <Trance>
@@ -734,35 +763,6 @@ VA - Ablazing Winter Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EE5292DA8C718CB110D2B80E1D2D5F88D22C55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770622   (71974) от 02.01.2025
-
-VA - Redux Selection, Vol. 1 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Lloyd - Fly Me Back (N-sKing Extended Remix) [6:41]
-02. ICARUS PROJECT - Elysian Fields (Extended Mix) [6:07]
-03. Peter Agyagos - The Last Of Us (Extended Mix) [6:34]
-04. Liam Bailey (UK) - Solenoid (Extended Mix) [7:02](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E81F3B1271C9AE014072666F59636464487D9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1247944   (448809) от 17.09.2018
+
+Harold Lopez-Nussa - El Viaje (2016) Mack Avenue [FLAC|Lossless|tracks + .cue] <Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me voy pa' Cuba [5:37]
+02. Africa [5:09]
+03. Feria [3:57]
+04. Lobo's Cha [5:26](   Читать дальше...   )Жанр: Cuban JazzПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBF8900B49D84644FE0895A6FD82D1877A01A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247938   (448808) от 17.09.2018
 
 Don Elliott - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
@@ -749,41 +778,6 @@ VA - Jazz vocal - Favorites Collection (1994) [FLAC|Lossless]<Jazz>
 08. Johnny Hartman - Charade [02:37]
 09. Chet Baker - Travelin' Light [03:12]
 10. Frankie Laine - Georgia on My Mind [03:05](   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552229   (445773) от 27.09.2012
-
-Chie Ayado - 3 альбома (2000-2007) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_445773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazing Grace [03:05]
-02. A Natural Woman [05:12]
-03. Your Song [05:38]
-04. El Condor Pasa (If I Could) [05:36]
-08. A Time for Love [04:38]
-09. Everything Must Change [04:49]
-07. The Way We Were [04:52]
-08. The Rose [05:25]
-09. Love [03:29]
-10. Wonderful Tonight [04:52](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:00:56
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,119 @@
+###  Публикация: 1314507   (518186) от 15.07.2019
+
+VA - NRJ Beach Party (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518186.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ed Sheeran – I Don’t Care
+02. Daddy Yankee – Con Calma
+03. Ava Max – So Am I(   Читать дальше...   )Жанр: PopПродолжительность: 03:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:408AC34C28406500E4B739FF1EAAFEA075BAB64B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314501   (518081) от 15.07.2019
+
+Paul McCartney - Paul Is Live (2019) Original Release Date: 8 Nov. 1993 (Digitally remastered) [MP3|320 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drive My Car (2:16)
+02. Let Me Roll It (4:04)
+03. Looking For Changes (2:37)
+04. Peace In The Neighbourhood (4:42)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341844B213C3FB7BB2BFFA35C8E69270EFBF56BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314577   (517968) от 15.07.2019
+
+VA - NOW 100 Hits Car Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen, John Deacon, Brian May, Freddie Mercury, Roger Taylor - Another One Bites The Dust (03:35)
+02. Fleetwood Mac - Little Lies (03:38)
+03. Duffy, Steve Booker - Mercy (03:40)
+04. Coldplay - Adventure of a Lifetime (04:24)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA0BB131FA696CEA3FF8A6BF2F7DD8AF300029C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929484   (517350) от 21.08.2015
+
+Lauren Christy - Lauren Christy (1994) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain (03:33)
+02. You Read Me Wrong (04:27)
+03. Steep (04:29)
+04. The Rumour (03:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2E7014076DBA8052C1DC74914210733B695033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930005   (517312) от 21.08.2015
 
 Jess Glynne - I Cry When I Laugh (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Dance, House>
@@ -633,120 +749,6 @@ Chris de Burgh - Eastern Wind (1980) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1288A368CCDD54B33877A283092D717C5AB52B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242616   (513997) от 23.08.2018
-
-Chris de Burgh - Far Beyond These Castle Walls (1975) Reissue, 1987 [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On (4:07)
- 02. Key (4:09)
- 03. Windy Night (4:55)
- 04. Sin City (4:42)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE69308E76A90D41EF21CB89F8F11C5C5E66F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242619   (513991) от 23.08.2018
-
-Chris de Burgh - At the End of a Perfect Day (1997) Reissue, 1988 [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken wings (3:10)
- 02. Round and around (3:07)
- 03. I will (3:31)
- 04. Summer rain (4:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C83AE2E9D3BA002F546EDF19582B74B59BA4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242598   (513987) от 23.08.2018
-
-Eros Ramazzotti - Stilelibero (2000) Europe [FLAC|Lossless|image + .cue] <Rock, Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Ombra Del Gigante           (4:42)
-02. Fuoco Nel Fuoco               (4:02)
-03. Lo Spirito Degli Alberi       (4:11)
-04. Un Angelo Non E               (4:38)(   Читать дальше...   )Жанр: Rock, Latin, PopПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:779CC0D63630EC4323DA394BD25509A1DB712DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242623   (513986) от 23.08.2018
-
-Levina - Perfect Life (2017) CDS, Single [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Life (3:05)
- 02. Wildfire (3:10)Жанр: PopПродолжительность: 00:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455C906E1A938FAD58524F481722B52B7F937B12
 ```
 
 https://mybot314.ru/tekegram_catalog/

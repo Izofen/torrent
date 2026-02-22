@@ -143,35 +143,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689671   (124560) от 03.01.2024
-
-Django Novo & Tov Ramstad - The Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Nothing Happen
-02. Unnamed Road
-03. Mirage
-04. The Distance Between Us(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D08F4313C13A9F87B4FB517031489F2D95E489A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690344   (123920) от 07.01.2024
 
 yungatita - Shoelace & A Knot (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, indie rock>
@@ -747,6 +718,35 @@ Without Me - Revelations (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:729050BCEC36295C1D5F1DDE6811B5A198DA108D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703684   (114827) от 01.03.2024
+
+New Years Day - Half Black Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vampyre [00:02:56]
+02. Half Black Heart [00:03:07]
+03. Hurts Like Hell [00:03:11]
+04. Secrets [00:03:10](   Читать дальше...   )Жанр: Alt. Metal, Female VocalПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A84A6FD487AC0BBD8E446456DC61BFB6DA1F0C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

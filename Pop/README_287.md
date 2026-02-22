@@ -1,3 +1,90 @@
+###  Публикация: 1589371   (190258) от 09.11.2022
+
+Donna Summer - Donna Summer (1982) 40th Anniversary Edition 2022, Driven By The Music [FLAC 2.0|44/24|WEB-DL|tracks] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love is in Control (Finger on the Trigger) (4:21)
+02. Mystery of Love (4:27)
+03. The Woman in Me (3:56)
+04. State of Independence (5:51)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F58D498A0D716AFF5826B94B8AE52590E60E12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659145   (190070) от 11.09.2023
+
+VA - Grand Prix 80's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Race - Yello
+02. Theme From S-Express - S-Express
+03. Dance With Me - Alphaville
+04. Love In The Shadows - E.G.Daily(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF18B17C4BABA02A153D55778D6342B835C6B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659466   (189757) от 12.09.2023
+
+Romy - Mid Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romy - Loveher (03:49)
+02. Romy - Weightless (04:29)
+03. Romy - The Sea (03:11)
+04. Romy - One Last Try (02:42)(   Читать дальше...   )Жанр: Dance-Pop, Indie-PopПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1BEC6B79B9A170F81154A73B73730A576BD75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660290   (189743) от 12.09.2023
 
 VA - KuschelRock 11 (1997) 2CD [FLAC|Lossless|tracks + .cue]<Pop, Rock>
@@ -653,93 +740,6 @@ VA - Николай Добронравов: Лучшее... (2013) Мелоди�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EFE81F61BB8B1BC0E4BB610B284436FFE25306F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590619   (187817) от 16.11.2022
-
-C.C. Catch - Hear What I Say (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Hour
-02. Big Time
-03. Love Away
-04. Give Me What I Want(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6031F628872E0D581F2520A0CD2473D3D7F6F51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590920   (187814) от 16.11.2022
-
-C.C. Catch - Super Disco Hits (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak Hotel (''Room 69'' Mix)
-02. One Night's Not Enough (Maxi Version)
-03. Back Seat Of Your Cadillac
-04. I Can Lose My Heart Tonight (Extended Club Remix)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E73DD72817280B622B30C1BA7B23C95D6092575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590798   (187813) от 16.11.2022
-
-C.C. Catch - Super 20 (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Kiss
-02. Soul Survivor
-03. 'Cause You Are Young
-04. Heaven & Hell(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836D8E9ED0655743524A44DBA5CDF10FFC24DCF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

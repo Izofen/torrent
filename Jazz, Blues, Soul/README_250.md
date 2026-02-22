@@ -1,3 +1,90 @@
+###  Публикация: 912583   (610977) от 26.06.2015
+
+Marcel Khalife - Caress (2008) [FLAC|tracks+.cue]<Jazz, Ethnic Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caress [07:54]
+02. Al Hambra [03:00]
+03. Granada [06:37]
+04. Tents [03:51](   Читать дальше...   )Жанр: Jazz, Ethnic Jazz, World FusionПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FDBA0AF598BDD7319F5BE425FD40D0DEBEB69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912597   (610890) от 26.06.2015
+
+Clarence Brown - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pressure Cooker (4:18)
+02.  Frosty (6:08)
+03.  Gate's Tune (6:20)
+04.  When My Blue Moon Turns To Gold Again (2:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE7F90B00D0883FB98C88B0D326E729380EB200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912601   (610885) от 26.06.2015
+
+Clifton Chenier - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tu Es Si Jolie (3:04)
+02.  No Salt In Your Snapbeans (4:35)
+03.  You're Just Fussing Too Much (4:48)
+04.  Pinetops Boogie Woogie (4:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC4134BF96EAA3D45FEEF3D1BA3F8F477E388F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912513   (610880) от 26.06.2015
 
 Last Chance Saloon - Last Chance Saloon (2015) [MP3|320 кб/с]<Blues Rock>
@@ -655,93 +742,6 @@ Clare Fischer - The Clare Fischer Voices... and Sometimes Instruments (2011) Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE13D2408906E84D70DC0465B59123B30AC3264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147309   (609867) от 02.07.2017
-
-Abdu Salim - Aladdin's Magic Lamp (2001, 2008) 2011, Crisis Muzon Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jibril [07:51]
-02. The Next Blues [07:15]
-03. Elegante [07:04]
-04. Amirha's Dance [07:55](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7782D8173EAFF63B71B927FA699A34C9CCE82381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147305   (609735) от 02.07.2017
-
-Roscoe Mitchell - Bells For The South Side (2017) 2CD, ECM [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609735.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Spatial Aspects of the Sound [12:15]
-02. Panoply [07:37]
-03. Prelude to a Rose [12:45](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 02:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DBE7C15E2C684A89F5778176740C5B757EEECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147177   (609733) от 02.07.2017
-
-JvT Band - Bound (2015) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bound  (05:40) 
-02. Damnright  (06:54) 
-03. Moonshine  (08:50) 
-04. Angels  (07:06) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0919B4598639AAF3ED001F18B3D14A4816763E4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

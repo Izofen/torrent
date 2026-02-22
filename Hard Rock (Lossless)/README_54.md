@@ -1,3 +1,32 @@
+###  Публикация: 1410166   (436155) от 21.09.2020
+
+Overland - Scandalous (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Give Up
+02. Never Say Die
+03. Lost In The City
+04. Closest Thing To Heaven(   Читать дальше...   )Жанр: Melodic Hard Rock, Classic RockПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DD10A0EC47BA5337CE63F0AABC39C7AEA8EE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571045   (436049) от 20.08.2022
 
 Lillian Axe - From Womb To Tomb (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -713,35 +742,6 @@ AC/DC ‎– Rock Or Bust (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98F77C8038C78F2CCD86643D1F26778915002808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572259   (423679) от 26.08.2022
-
-Angeline - We Were Raised On Radio (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helpless
-02. Closer
-03. My Heart Won't Let You Go
-04. We Were Raised On Radio(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E4A8CE0ABD5E3C76AA863354AA05D3AB9B34D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

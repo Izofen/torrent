@@ -1,3 +1,32 @@
+###  Публикация: 1654051   (213705) от 18.08.2023
+
+Skinher - Heartstruck (2023) [MP3|320 Kbps] <Heavy Metalб Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are Next! (03:58)
+02. The Maniac is Back (05:42)
+03. Interstellar Love Hysteria (04:30)
+04. Night Cull (05:48)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7343983F09984A8315DF12294EC69E1C610D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654053   (213698) от 18.08.2023
 
 Vanta - Empire On Fire (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
@@ -715,35 +744,6 @@ Eclipse - Megalomanium (2023) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57766032EABECDCF0D45512FD28E00FB72C87415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656562   (203051) от 31.08.2023
-
-Soen - Memorial (2023) [MP3|320 Kbps] <Progressive Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sincere (04:35)
- 02. Unbreakable (04:12)
- 03. Violence (03:56)
- 04. Fortress (04:04)(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8AAF25100960A93271A31F193AE8B1FC29385CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

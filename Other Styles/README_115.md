@@ -1,3 +1,32 @@
+###  Публикация: 1241485   (518410) от 19.08.2018
+
+Lisa Mitts - Heart Song (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abide in My Love
+02. Divine Breath
+03. Falling into Winter
+04. Heart Song(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92065969537487A70D85CA70831DE8C6EFEF81D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241205   (518215) от 19.08.2018
 
 VA - Absolute 60's (2018) [MP3|320 Kbps] <Blue-Eyed Soul, Rhythm and Blues, Schlager, Europop, Folk, Country>
@@ -725,41 +754,6 @@ Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, D
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537626   (511469) от 21.08.2012
-
-Various artists - The Muppets Original Motion Picture Soundtrack (2011) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Muppets & Joanna Newsom - The Muppet Show Theme
-02. Walter - Muppet Studios, I Can't Believe It
-03. Mickey Rooney, Feist, Amy Adam - Life's A Happy Song
-04. Jason Segel & Kermit - I Haven't Seen The Old Gang
-05. Gonzo, Fozzie, Swedish Chef, K - Pictures In My Head
-06. Walter & Kermit - We Drive
-07. Paul Simon - Me And Julio Down By The Schoolyard
-08. Amy Adams & 80's Robot - That Spells Reno
-09. The Moopets - Rainbow Connection
-10. Fozzie, Walter, Kermit & Dr. T - Welcome back(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071C38B229115B52A41F1474D51622B157E293DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

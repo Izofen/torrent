@@ -1,3 +1,32 @@
+###  Публикация: 1435617   (144641) от 28.12.2020
+
+5 Miles to Memphis - 5 Miles to Memphis (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Little Feel Alright (4:07)
+02. I'm Steppin' Out (3:36)
+03. My Big Cadillac (3:45)
+04. 5 Miles to Memphis (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E5BEEAF0369267F64AA4EF85AD28937D8319F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435605   (144602) от 28.12.2020
 
 John Oscar Atkinson - Kingsnake Runnin' with the Devil (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -726,41 +755,6 @@ Sly & The Family Stone - There's A Riot Goin' On (1971) 24k Gold Disc, 2013, Epi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A90AD8805A238A07F739DAAED49E0E3D71740F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854565   (143379) от 29.12.2014
-
-Duke Ellington - Piano In The Foreground (1999) [FLAC|Lossless]<Jazz, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Get Started [04:23]
-02. Cong-Go [04:15]
-03. Body And Soul [04:47]
-04. Blues For Jerry [04:39]
-05. Fontainebleau Forest [02:49]
-06. Summertime [03:50]
-07. It's Bad To Be Forgotten [03:17]
-08. A Hundred Dreams Ago [02:25]
-09. So [04:32]
-10. Peadin' For Love [01:48](   Читать дальше...   )Жанр: Jazz, Swing, Piano JazzПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAA417F91D747986299202C9D03FAE6211E1209
 ```
 
 https://mybot314.ru/tekegram_catalog/

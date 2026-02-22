@@ -1,3 +1,119 @@
+###  Публикация: 1453033   (1027212) от 09.03.2021
+
+Amadeus Liszt - Win the Race (1987) Singles Collection [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Win the Race (4:05)
+02. La Donna (4:49)
+03. The Devil Wins (3:06)
+04. Sprint (2:25)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987F4D2433E2ABE46109D5F41D1D0DB16D958C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453077   (1027209) от 09.03.2021
+
+Lida - Музло из гаражей (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Али Ули (feat. S3RL) [02:58]
+02 - Анапа (feat. DK) [03:45]
+03 - Герда [02:49]
+04 - Евробит (feat. GSPD) [02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A68C73B9E4DAD27ED4E6014E6B4A62F12CB1A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453163   (1027186) от 09.03.2021
+
+Lana Del Rey - Chemtrails Over the Country Club (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027186.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. White Dress
+2. Chemtrails Over The Country Club
+3. Tulsa Jesus Freak
+4. Let Me Love You Like A Woman(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3AE5674C7F4D29256A907C9D4713EDAC0AF0BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453167   (1027180) от 09.03.2021
+
+Lana Del Rey - Chemtrails Over The Country Club (2021) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Dress [00:05:33]
+02. Chemtrails Over The Country Club [00:04:31]
+03. Tulsa Jesus Freak [00:03:35]
+04. Let Me Love You Like A Woman [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AA95887E026D359C3FF6FC254F67AFAB884F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453209   (1027101) от 10.03.2021
 
 VA - soulmates (2021) Explicit [MP3|320 Kbps] <Pop>
@@ -626,122 +742,6 @@ Doves - The Universal Want (2020) Japan / Bonus Tracks [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7660710B4E67EE6548F5777F3380579E0BB3A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455592   (1025664) от 19.03.2021
-
-Андрей Яшин - От А до Я (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментал #1 (3:52)
-02. Лето улетело (5:08)
-03. Снова ветер и дождь (4:52)
-04. Забудь (5:39)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF88692AC5E2E6DD520F2377FD9367E56651D874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455320   (1025627) от 19.03.2021
-
-Чё Те Надо? - Где найти мужчину? (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где найти мужчину? (3:10)
-02. Она работает на скорой врачом (3:31)
-03. Чайничек (2:56)
-04. Снег летит (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F4981B6ECEF39599F795BF0FA508111D9BBC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455580   (1025622) от 19.03.2021
-
-Roosevelt - Collection 6 Releases (2013-2021) [FLAC|Lossless|tracks + .cue, tracks] <EDM, Indie Pop, Nu Disco, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Way Out (4:35)
-02. Strangers (3:41)
-03. Feels Right (4:35)
-04. Closer to My Heart (4:44)(   Читать дальше...   )Жанр: EDM, Indie Pop, Nu Disco, Synthpop |Продолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A6BD97B7D3CD3E2DD7C6DF4D662839E9C7B085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455430   (1025608) от 19.03.2021
-
-Мари Краймбрери - Нас узнает весь мир (Part 1) (2021) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025608.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ты меня не забудешь (Intro)
-2. Ты меня не забудешь
-3. Иди танцуй (Intro)
-4. Иди танцуй(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38DD130159267AF558AA31AA3A5ECCA935CF436
 ```
 
 https://mybot314.ru/tekegram_catalog/

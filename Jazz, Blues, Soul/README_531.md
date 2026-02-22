@@ -1,3 +1,32 @@
+###  Публикация: 1703861   (114622) от 02.03.2024
+
+Lars Gullin - Portrait of the Legendary Baritone Saxophonist: Complete 1951-1955 Studio Recordings Master Takes (2015) 4CD, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lotus Corniculatus (Cat-in-Clover) [5:27]
+02. Galium Verum (Cheese-Renett) [7:07]
+03. Late Date [3:23]
+04. Beautiful Heart [3:02](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 04:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0C31C4F493C314C79B028398CFA76CD5D71D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703876   (114620) от 02.03.2024
 
 Avi Yifrah, Asher Fedi - The Avi Yifrah / Asher Fedi Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -716,35 +745,6 @@ Wynton Marsalis - Hot House Flowers (1984) CBS [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4034E3AA6CE41420CA0D1E0F8D64EB0768B9445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704833   (114028) от 06.03.2024
-
-V.A. - Chill Out Cafe Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Milici - Slow Hot Wind (Lujon)
-02. Silvia Donati - Fale Claro
-03. Paolo Di Sabatino - Nature Boy
-04. Ida Landsberg - Close to You(   Читать дальше...   )Жанр: Pop Jazz, Nu JazzПродолжительность: 01:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F89B1E0E9C17D3A507B4481E5EC6A155BE21E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

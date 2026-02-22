@@ -1,3 +1,61 @@
+###  Публикация: 1199325   (800411) от 17.01.2018
+
+VA - Hed Kandi - Twisted Disco (2007) [FLAC|Lossless|tracks] <House, Disco, Hard House, Deep House, Progressive House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mason Vs Princess Superstar - Perfect (Exceeder) (Martijn Ten Velden Vocal Remix)
+02.Spektrum - Kinda New (Dirty South Remix)
+03.Sharam - PATT (Party All The Time) (Dennis Christopher Dirty Edit)
+04.Camille Jones - The Creeps (Fedde Le Grand Remix)(   Читать дальше...   )Жанр: House, Disco, Hard House, Deep House, Progressive House, ElectroПродолжительность: 02:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31989CD21EAD0FD2A7D720F6C3D922D8D320F6AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198980   (800408) от 17.01.2018
+
+VA - Hed Kandi - Nu Disco (2010) [FLAC|Lossless|tracks] <House,Vocal House,Disco House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simian Mobile Disco Feat Beth Ditto - Cruel Intentions (Greg Wilson Re-Edit)
+02. Jupiter - Mama Used To Say
+03. Ali Love - Diminishing Returns
+04. Empire Of The Sun - Walking On A Dream (Treasure Fingers Remix)(   Читать дальше...   )Жанр: House,Vocal House,Disco HouseПродолжительность: 02:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47369B45C5C81A4CCE12CF24D56BA8FB178667F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199655   (800363) от 17.01.2018
 
 Simone Gatto - Heaven Inside Your Frequencies Part 1 & 2 (2017) Out-Er, Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Abstract, Dub Techno, Ambient, Techno>
@@ -685,64 +743,6 @@ Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D60D8ED0F65CCB20FD9A3CB870FBD701C418A56F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200147   (795710) от 21.01.2018
-
-VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Brooklyn Bounce - Club Bizarre (Djs From Mars Rmx) (4:57)
-02.Groove Coverage - Innocent (Club Mix) (3:33)
-03.Basslover United - Ghetto Supastar (Extended Mix) (4:16)
-04.Franky 8 - Rhytm & Drums 2010 (3:09)(   Читать дальше...   )Жанр: Euro House, TranceПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F6DDE774AD81A5B0C890349B3D60119D2CEE120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200439   (795695) от 21.01.2018
-
-VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soulful House, Disco House, Funky House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kungs & Cookin' On 3 Burners - This Girl (Fabich Remix) 4:20
-02. TIEKS - Sunshine (feat. Dan Harkna) (Zac Samuel Remix) 4:34
-03. Apexape - Joy & Pain 3:01
-04. Ben Delay - The Boy Is Mine (feat. Alexandra Prince) (Mark Lower Vocal Mix) 5:16(   Читать дальше...   )Жанр: Deep House, Vocal House, Soulful House, Disco House, Funky HouseПродолжительность: 05:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1B29AA2BB8FAE0A71F4420F163938ECFD86C3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

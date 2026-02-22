@@ -1,3 +1,61 @@
+###  Публикация: 1077230   (309081) от 27.11.2016
+
+VA - Berlin Underground Selection, Vol.6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Berlin Underground Selection Mix (By Metope) (2:00:50)
+ 02. Late Night Early Mornings (Bedouin remix) (8:55)
+ 03. Nebula (7:48)
+ 04. Malahim (6:40)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7013F70D96B10E0A0DDCB6004C4792F5D18BD9AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260906   (307789) от 09.11.2018
+
+VA - Spring Tube 9th Anniversary Compilation, Part 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claes Rosen - Over and Over (Sebastian Davidson remix) (6:08)
+02. George Ellinas - Galexia (original mix) (6:00)
+03. Subalpine - Paradise (original mix) (5:30)
+04. Rishi K. - Through the Night (Domestic Technology remix) (5:30)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 04:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2EC303B4314FF2BBBB5D443EA3EF4B16951270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 419268   (306880) от 05.12.2011
 
 DJ Dado - Greatest Hits & Future Bits (1998) [FLAC|Lossless]<House>
@@ -675,64 +733,6 @@ VA - 538 Dance Smash: Hits Of The Year (2016) Box Set, 2CD [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F7F72775F78A06354497B2EFFB07874F67B4A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185184   (295218) от 20.11.2017
-
-VA - Clinique Mixed XIV (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dyo Atoma - Tazmania (Original Mix) [08:00]
-02. Edvard Hunger - The Same Life (Original Mix) [05:34]
-03. Paul Angelo, Don Argento - Legacy (Rolando Vallice Remix)[06:30]
-04. Alexander Miguel - Contaol (Paul Angelo & Don Argento Remix)[08:02](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D6F1A2958B5AF0EEB3F9EFBD563D02223B188A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185282   (295213) от 20.11.2017
-
-Wild & Free - Shapes On Shapes (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, House, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shapes on Shapes (2:22)
- 02. River of Nilé (5:19)
- 03. Moment (3:54)
- 04. Tropique (6:05)(   Читать дальше...   )Жанр: Nu Disco, House, Indie DanceПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD50E6BACAFCBDCFBBC47F2CCBF67F1EFC730FF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

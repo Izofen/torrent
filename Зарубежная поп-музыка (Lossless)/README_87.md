@@ -1,3 +1,32 @@
+###  Публикация: 1435576   (142393) от 29.12.2020
+
+Peter Noone - Sings The Greatest Hits Of Herman's Hermits (1993) [FLAC|Lossless|image + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm into something good (2:23)
+02. Dandy (1:57)
+03. There's a kind of hush (all over the world) (5:06)
+04. Listen people (2:38)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27003FA15B7F0BCC7AC61CA711195AFBF1332B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435573   (141976) от 29.12.2020
 
 Donovan - Till I See You Again (1993) [FLAC|Lossless|image + .cue] <Folk Rock, Pop>
@@ -723,35 +752,6 @@ Dalida - Vive le vent (2023) [FLAC|Lossless|tracks] <Pop, French Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07F2A0611AA4183FE51E02617D0F5EA9DD13FC35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524779   (130378) от 18.01.2022
-
-Molly Nilsson - Extreme (2022) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolute Power (03:49)
- 02. Earth Girls (04:11)
- 03. Fearless Like A Child (04:03)
- 04. Kids Today (04:05)(   Читать дальше...   )Жанр: Dream PopПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938E3E603B696ACF6E34F9526BE29425A0211AAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

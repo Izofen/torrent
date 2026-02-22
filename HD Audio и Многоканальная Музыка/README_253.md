@@ -1,3 +1,177 @@
+###  Публикация: 1812780   (7430) от 16.08.2025
+
+aurorawave - Monument (2025) [FLAC 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Reggaecore, World, Hip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Judge Me [3:28]
+02 - WAVE SH*T [2:21]
+03 - Suffocate [3:12]
+04 - Tibetan Sky Burial [3:34](   Читать дальше...   )Жанр: Reggaecore, World, Hip-HopПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE0E9F3AA7131C75E0B37DCC1484EE48CF1FAFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554805   (7390) от 17.08.2025
+
+Bruce Dickinson (Iron Maiden) - Studio Albums (8 releases) (1990-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пол Брюс Ди́кинсон — британский рок-музыкант, писатель, спортсмен (фехтовальщик), пилот гражданской авиации, теле- и радиоведущий, автор книг и сценарист, продюсер, прежде всего известный как фронтмен хеви-метал-группы Iron Maiden.1990 - Tattooed Millionaire
+1994 - Balls To Picasso
+1996 - Skunkworks
+1997 - Accident Of BirthЖанр: Heavy MetalПродолжительность: 08:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3762E1D75422B46A3FCAB7E527138362B8E7A89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580786   (7330) от 17.08.2025
+
+Chevelle - Studio Albums (10 releases) (1999-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chevelle (Шевелл) — американская рок-группа, сформированная в 1995 году в Грейслейке, штат Иллинойс.1999 - Point #1
+2002 - Wonder What's Next
+2004 - This Type Of Thinking
+2007 - Vena SeraЖанр: Post-grunge, Nu MetalПродолжительность: 08:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA32F5FD685E70468BC3E1F9FE3DBF76B658920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813059   (7265) от 17.08.2025
+
+Lindsey Stirling - Duality (2025) Deluxe [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical Crossover, Pop, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evil Twin
+02. Eye Of The Untold Her
+03. Surrender
+04. Serenity Found(   Читать дальше...   )Жанр: Classical Crossover, Pop, InstrumentalПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536D90C69CF16172F580DBDAB3299FE2368A6037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813115   (7209) от 17.08.2025
+
+Until Zen - The Grip (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Until Zen — перспективный рок-квартет (Канада) с ярко выраженным прогрессивным акцентом. Группа была основана в конце 2019 года и сочетает в себе мощные мелодии и разнообразные ритмические рисунки в запоминающейся и демократичной форме. В 2025 году Until Zen выпустил свой дебютный альбом «The Grip».01. Collapsing (06:27)
+ 02. Live To See The Sun (07:02)
+ 03. Missing Soul (05:12)
+ 04. For The Sake Of Us (08:59)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE586F07730BAFA41F44E71867546C2D5ED0758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813330   (7084) от 18.08.2025
+
+Sidney Bos - Overrated (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  She Knows (3:35)
+02.  Overrated (3:43)
+03.  Rollercoaster (3:20)
+04.  Go With It (3:59)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4EF15F76D50EC3FA3A17C0BE241BC5CE230D67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813216   (7083) от 18.08.2025
 
 Madonna - Platinum Hits 2 (2000) MTV History/Pop Extended [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Pop, Synth-pop>
@@ -571,177 +745,6 @@ Raz Louk - Knocked Out In Space (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17A6F0E69CB419A8D43203D90174BD90F1DF6FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813319   (7019) от 18.08.2025
-
-Jade Vandal - You Don’t Understand Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You Don’t Understand Love (4:13)
-02.  Knowing You Means Loving You (6:24)
-03.  Strolling Lonely Roads (5:21)
-04.  I’d Never Harm A Dog (3:08)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41404E716F84457EFB7AF5B1287F627A2C2E83A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813315   (7018) от 18.08.2025
-
-Inbar Fridman feat. Katia Toobool, Lior Ozeri & Yogev Gabay - Mercy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Still Raining (5:00)
-02.  Mayim (6:28)
-03.  Magnanimous (6:45)
-04.  Kortina (5:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE930ED941E2D19523C13787C95C8DF7558E41AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813415   (6895) от 19.08.2025
-
-Rain Of Acid - Studio Albums (2 releases) (2011-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rain Of Acid - метал-группа из Финляндии, основана в 2008 году.2011 - Lost Souls
-2014 - Ghost TownЖанр: Melodic Death MetalПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76AB46AF03FC0BC1CC7E8051F7E26B0FFCADDE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813406   (6893) от 19.08.2025
-
-AmongRuins - Studio Albums (3 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6893.jpg" />
-</div>
-
-
-###  Подробнее
-
-AmongRuins — греческая мелодик-дэт-метал группа, образованная в 2012 году.2013 - Bring out Your Dead
-2016 - No Light
-2023 - Land of the Black SunЖанр: Melodic Death MetalПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D2C27212EAF0CA0660DF775DCD36E62E3FAC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813608   (6771) от 20.08.2025
-
-Guns•N•Roses - Greatest Hits (2024) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Welcome To The Jungle
-02. Sweet Child 0' More
-03. Patience (Album Version)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0161D7EE083F232AC27327375794B1EE9DC0C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813622   (6748) от 20.08.2025
-
-Scar The Martyr - Scar The Martyr (2013) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy-Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:02]
-02. Dark Ages [00:06:52]
-03. My Retribution [00:04:08]
-04. Soul Disintegration [00:05:52](   Читать дальше...   )Жанр: Heavy-MetalПродолжительность: 01:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD82B202DCC137F94FC18ACEF6FEB64D40B1FFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

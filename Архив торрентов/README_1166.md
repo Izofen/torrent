@@ -1,3 +1,29 @@
+###  Публикация: 183648   (894493) от 17.03.2010
+
+VA - Damn 27 (2010) [MP3|192-320 kbps]<Рop|Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рop|Dance
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 295850   (894492) от 14.02.2011
 
 Мастер Визиток 2.95 [Rus]
@@ -708,41 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E3CC2FE5B06FE35D33F401D5AD673818C0DAF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292426   (894423) от 14.02.2011
-
-Annie Lennox - A Christmas Cornucopia (2010) [FLAC|Lossless]<Pop, Christmas Songs>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Angels From The Realms Of Glory (4:00) (James Montgomery)
-02. God Rest Ye Merry Gentlemen (3:32) (Traditional)
-03. See Amid The Winter's Snow (3:31) (Edward Caswall, John Goss)
-04. Il Est Ne Le Divin Enfant (3:37) (Traditional)
-05. The First Noel (4:40) (Traditional)
-06. Lullay Lullay (The Coventry Carol) (3:13) (Traditional)
-07. The Holly And The Ivy (3:37) (Traditional)
-08. In The Bleak Midwinter (3:31) (Christina Rossetti)
-09. As Joseph Was A Walking (The Cherry Tree Carol) (3:59) (Geoffrey Shaw)
-10. Little Town Of Bethlehem (3:33) (Phillips Brooks)(   Читать дальше...   )Жанр: Pop, Christmas SongsПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

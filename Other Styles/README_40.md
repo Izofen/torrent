@@ -1,3 +1,34 @@
+###  Публикация: 764787   (878067) от 10.03.2014
+
+Ecuador Manta - 5 альбомов (1998-2008) [MP3|128-320 кб/с]<Native American, Instrumental, Folklore>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Эквадорская группа Ecuador Manta исполняет традиционную музыку региона Анд (Эквадор, Перу, Боливия, Колумбия) как на традиционных инструментах (zampona, bamboo flute, quena, charango), так и в комбинации с гитарами, виолончелью, перкуссией в ритмике современной латинской музыки. (   Читать дальше...   )Альбомы:
+1998 - Caminando En La Imaginacion
+1999 - El Carretero
+2000 - Alegrando el Alma
+2001 - Yarina
+2008 - AlboradaЖанр: Native American, Instrumental, FolkloreПродолжительность: 04:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E625E76B1636D0EBEACC5AB5DD7217C01A74A509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 299791   (877886) от 23.02.2011
 
 Various Artists - Lounge Del Mare Vol. 2 (Chillout Cafe Pearls) (2008) [MP3|192-224 kbps]<Ambient, chillout, lounge>
@@ -794,35 +825,6 @@ Gregorian - Best Of 1990-2010 (2011) [MP3|320 kbps]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF34006CC0C96683C19A53C94647A73C73FA7885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783854   (874193) от 09.04.2020
-
-Troika (David Arkenstone) - Shaman (2000) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calling (7:14)
-02. Vision Quest (6:21)
-03. Crossing the Light (6:00)
-04. Other World (6:43)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C4F966F89DF960DAF2147DA5640FA9AA38ED3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,33 @@
+###  Публикация: 1523846   (748081) от 13.01.2022
+
+Magnum - The Monster Roars (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magnum в 2022 году отпразднует свое 50-летие. Как и следовало ожидать, титаны английского хард-рока пробудили монстра, и теперь он рычит.
+"The Monster Roars" - так называется их новый альбом, которым они показывают, что ничего не потеряли в своем качестве, энергии и объеме. Совсем наоборот.01. The Monster Roars
+02. Remember
+03. All You Believe In
+04. I Won't Let You Down(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D224A63AFE9058B809C77F478E17348A01613C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524088   (746621) от 14.01.2022
 
 Tony Martin - Thorns (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -716,35 +746,6 @@ Modern Art Featuring Ted Poley - Modern Art (2018) Japanese Edition [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B259557DF261B7A0BEFCBFD55BDE5FC0FCBD5236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283591   (731026) от 19.02.2019
-
-Viana - Forever Free (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Free (04:14)
-02. In The Name Of Love (03:54)
-03. Heart Of Stone (05:26)
-04. We Can’t Choose (03:38)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A25DAAAC8EBB7FA30D5ADA3CCDB33CBB893FB4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

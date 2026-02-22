@@ -1,32 +1,3 @@
-###  Публикация: 1732469   (107455) от 25.06.2024
-
-Lester Young With Count Basie - Classic Columbia, Okeh And Vocalion (1936 - 1940) 4CD, 2008, Mosaic [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evenin' [2:43]
-02. The World Is Mad (Pt.1) [2:40]
-03. The World Is Mad (Pt.2) [2:52]
-04. Ad Lib Blues [3:22](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 04:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A54951842888EF2E17B0D409EFF8FC7D05A0C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732669   (107436) от 26.06.2024
 
 Red Norvo And His Orchestra - 1936 - 1937 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -745,6 +716,35 @@ VA - Relaxing Soothing Sounds Enjoying a Quiet Moment While Vacation (2024) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08E876554CF43F5A11C832E9C412BCAA40012080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733673   (107243) от 30.06.2024
+
+VA - Blissful Luxury Travel Lounge Tunes for Relaxation and Enjoyment (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Evening Sun (5:25)
+02. Kool&Klean - I Smile (5:09)
+03. Chillaxonic - Morningstar (3:37)
+04. Kool&Klean - The Way You Look Tonight (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B700E15A81B995925A9BB386864DEB26960A3F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

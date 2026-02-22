@@ -1,3 +1,29 @@
+###  Публикация: 1438103   (1041393) от 07.01.2021
+
+Firefox Browser 84.0.2 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1369F453F0CC7AA687F146D3B3EB80B8804DD36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438114   (1041389) от 07.01.2021
 
 HitPaw Watermark Remover 1.0.1.0 (Repack & Portable) by elchupacabra [Multi/Ru]
@@ -650,32 +676,6 @@ Display Maid позволяет сохранять и восстанавлива
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28D327EF35EE11947FF1477A164D6C4F3E6D9687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438445   (1041192) от 08.01.2021
-
-MacX DVD Ripper Pro 6.5.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041192.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacX DVD Ripper Pro 6 был создан специально для пользователей Mac для конвертации как самодельных, так и защищенных DVD дисков. MacX DVD Ripper Pro преобразует видео в форматы MP4, H.264, MOV, FLV, MPEG, AVI, QT, iPhone (iPhone 4,iPhone 3GS, iPhone 3G), iPad, iPod (iPod touch, iPod classic, iPod nano), Apple TV, PSP для просмтра видео в таких популярных приложениях, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.01.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24D8C55F902ED83D400392646E4D96CF315E1C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,223 @@
+###  Публикация: 554210   (436136) от 01.10.2012
+
+Digital Juice - Motion Design Elements Standart 13: Line Items 2 (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice - Motion Design Elements Standart 13: Line Items 2 (Full ISO)Название: Digital Juice Motion Design Elements 013: Line Items 2
+Официальный сайт: Digital Juice
+Homepage: (not available)
+Тип раздаваемого: Video FX, Footage
+Разрешение файлов: 1080x1080 to 1920x1080 at 60 fps
+Расширение (тип) файлов: .iso (.mov)Motion Design Elements 013: Line Items - это второй сборник из библиотеки анимированных элементов Line Items, такой же полезный и гибкий как его предшественник - Volume 7. Содержит 60 линейно-ориентированного элементов с альфа-каналом. Будь это рябь из красной ленты или прозрачные стеклянные трубки, скручивание золотого металлического стержня или строки из акробатики блестящих кубиков, содержание этого сборника поможет вам замечательно акцентировать логотипы или подчеркнуть важность текста или графики. Простые, инновационные и визуально разнообразные элементы библиотеки Line Items делают работу над современными видео-проектами проще, чем когда-либо.
+-----------------------
+Motion Design Elements (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8583814B2598FC1C52F7E2E0DF699E46B806181A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553598   (436127) от 01.10.2012
+
+Digital Juice - Motion Design Elements Standart 01: Revealers (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice - Motion Design Elements Standart 01: Revealers (Full ISO)Название: Digital Juice Motion Design Elements 001: Revealers
+Официальный сайт: Digital Juice
+Homepage: (not available)
+Тип раздаваемого: Video FX, Footage
+Разрешение файлов: 1080x1080 to 1920x1080 at 30 fps
+Расширение (тип) файлов: .iso (.mov)Motion Design Elements 001: Revealers - это сборник, состоящий из анимированных элементов дизайна, которые помогут творчески, со вспышкой, щегольством и изощренностью, выделить линейный текст или логотипы на экране, тем самым привлекая к ним глаза зрителя. Сборник содержит 100 анимированных элементов в MOV-формате с альфа-каналом, с видео-разрешением от 1080x1080 до 1920x1080.
+-----------------------
+Motion Design Elements 001: Revealers - Revealing the Expanding Universe. What if we put that MDE on top of the logo, instead of behind it? Of course it would obscure the logo, which defeats the entire purpose of even having a logo on the screen in the first place. But what if we animated the MDE to fade (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F01E3A101B4AEE4B7F3AE139FF4F202F1CA4320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553609   (436035) от 01.10.2012
+
+Digital Juice - Motion Design Elements Standart 14: Revealers 2 (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice - Motion Design Elements Standart 14: Revealers 2 (Full ISO)Название: Digital Juice Motion Design Elements 014: Revealers 2
+Официальный сайт: Digital Juice
+Homepage: www.digitaljuice.com/products/products.asp?pid=248 (not available)
+Тип раздаваемого: Video FX, Footage
+Разрешение файлов: 1080x1080 to 1920x1080 at 30 fps
+Расширение (тип) файлов: .iso (.mov)Motion Design Elements 014: Revealers 2 - коллекция включает 60 анимированных элементов, которые помогут со вспышкой, щегольством и изощренностью выделить линейный текст или логотипы на экране, тем самым привлекая к ним глаза зрителя. Это светящиеся полосы, пружины, металлические кубики и диски, различные частицы мигающие с проблесковым эффектом, огонь, последовательность сердечек, звезд и полос, каракули пылающего света... Вы обязательно найдёте кое-что в Revealers 2!
+------------------------
+Motion Design Elements 014: Revealers 2 - These 60 animated designs let you bring linear text and logos onto the screen with flare, panache and sophistication. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429E1164C7D1C1C508A1FE329121FDCFAF4516FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553582   (436027) от 01.10.2012
+
+Digital Juice - Motion Design Elements Standart 20: Revealers 3 (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice - Motion Design Elements Standart 20: Revealers 3 (Full ISO)Название: Digital Juice Motion Design Elements 020: Revealers 3
+Официальный сайт: Digital Juice
+Homepage: www.digitaljuice.com/products/products.asp?pid=257 (not available)
+Тип раздаваемого: Video FX, Footage
+Разрешение файлов: 1080x1080 to 1920x1080 at 30 fps
+Расширение (тип) файлов: .iso (.mov)Motion Design Elements 020: Revealers 3 - третий сборник высококачественных анимированных Revealers - ещё больше возможностей для редактирования. Коллекция, как обычно, содержит большое разнообразие стилей, от блестящего трехмерного металла до сверкающих, пузырящихся частиц. Каждый элемент из этого нового сборника предназначен для одной цели - обеспечить уникальный захватывающий способ показать линейный текст и эмблемы, привлекая глаза зрителя в любом проекте. Сборник содержит 60 анимированных элементов в MOV-формате с альфа-каналом, с видео-разрешением от 1080x1080 до 1920x1080.
+-----------------------------------------
+Motion Design Elements 020: (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB7E4A03F060909511C6A24D3F9DA5E52F36C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554216   (436022) от 01.10.2012
+
+Digital Juice - Motion Design Elements Standart 16: Global Intentions 1 (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice - Motion Design Elements Standart 16: Global Intentions 1 (Full ISO)Название: Digital Juice: Motion Design Elements 016: Global Intentions 1
+Официальный сайт: Digital Juice
+Homepage: (not available)
+Тип раздаваемого: Video FX, Footage
+Разрешение файлов: 1080x1080 to 1920x1080 at 60 fps
+Расширение (тип) файлов: .iso (.mov)Global Intentions - Это долгожданный выпуск , над которым очень долго работали. 25 анимаций с высоким разрешением с подробными анимационными глобусами поставляются в различных материалах и стилех, чтобы каждый  созданный с глобальной точки зрения мог иметь различный вид. Смотрите на мир, как дискотечный шар, или блестящий шар льда, как сверкающий металлический шар или как  пластиковый шар - названы только некоторые из стилей в этом объеме. Вы будете восхищены , насколько изящно это выглядит.Это наглядное представление о Земле в определенный момент времени. Почему бы не сделать ваше производство выделяющимся , выбрав один из этих стильных вариантов .Global Intentions -This long-awaited (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F415A1EE254AF3B2F121E9207C8A0DD86DBF9F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554836   (435875) от 01.10.2012
+
+Digital Juice - Motion Design Elements Standart 12: Motion Plaques (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice - Motion Design Elements Standart 12: Motion Plaques (Full ISO)Название: Digital Juice Motion Design Elements 012: Motion Plaques
+Официальный сайт: Digital Juice
+Homepage: (not available)
+Тип раздаваемого: Video FX, Footage
+Разрешение файлов: 1080x1080 to 1920x1080 at 60 fps
+Расширение (тип) файлов: .iso (.mov)Motion Design Elements 012: Motion Plaques - Сборник анимированных элементов дизайна, которые служат для привлечения взгляда зрителя к движущейся поверхности, на которой вы можете разместить текст, графику, логотипы или видео, чтобы выделить их из вашей видео-продукции. В Motion Plaques, эти виртуальные вывески могут принимать любую форму, которую можно вообразить - от ряби вязкой жидкости и раздвижных деревянных реек, до страниц древних рукописей, развевающихся на ветру или дисплеев фантастических устройств.Используете ли вы эти элементы в качестве неотъемлемой части логотипа или как одноразовые спецэффекты, разнообразие тем и материалов предоставит вам варианты практически для любого типа (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E290B1A4322ADD51EF1C9A27044AD0B81E1A01F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554728   (435856) от 01.10.2012
+
+Digital Juice - Canvases Collection 08: Open Spaces (Files)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Canvases Collection 8: Open Spaces - Идеальные открытые пространства для старта любого дизайн-проекта! Новая уникальная коллекция графики, включающая 200 высококачественных вдохновляющих фоновых изображений в высоком разрешении, которая является важным инструментом для каждого трудолюбивого дизайнера, и обеспечит интригующее начало для любого проекта. Каждый фон (   Читать дальше...   )Разрешение файлов: 6000х3375
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C642FC02CB3044B2A383DC20ED02B0EFFADF978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554652   (435841) от 01.10.2012
 
 Digital Juice - ToxicTraxx Volume 02: High Impact (.djmusic)
@@ -495,195 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E6A74361A316F956877F5343CB9BB55478205CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945638   (433106) от 10.10.2015
-
-Векторный клипарт - Mafia [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мафия - Векторный клипарт.
-5 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2442552E0A624289F1B794C2E371B4D51C34436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249583   (432800) от 24.09.2018
-
-Экшены - GraphicRiver - Pencil Drawing Photoshop Action - 20344486 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pencil Drawing - простой в использовании экшен фотошоп, поможет создать реалистичный карандашный эскиз из любых ваших фотографий. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.
-Для достижения наилучших результатов рекомендуется использовать фотографии высокого разрешения в диапазоне (   Читать дальше...   )Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761DD15D8A16B86153B9AC9E8F49F9E860BDF156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708062   (432294) от 07.10.2013
-
-Векторный клипарт - Дизайн футболок 7 / T-Shirt Design 7 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайн футболокФормат: EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B014A0108E3B08A9D8B3FCB5330EDBAFB791003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063581   (431900) от 17.10.2016
-
-Цифровые декорации - Ожившие портреты / AtmosFEARfx - Unliving Portraits (2014) HDRip [H.264/1080p-LQ]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431900.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Цифровые декорации для любых случаев", - гласит слоган компании AtmosFX. Серия дисков AtmosFEARfx посвящена празднику Хэллоуин и содержит всевозможные страшилки. Видеоролики с этого диска имитируют ожившие портреты как в старых фильмах ужасов.
-Предполагается демонстрация как на обычном мониторе/телевизоре, так и с помощью проектора.
-Есть выбор показывать (   Читать дальше...   )Производство: США, AtmosFXЖанр: Анимация, КороткометражныйПеревод: Не требуетсяПродолжительность: 24 ролика, от 00:00:15 до 00:00:40 каждый
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36AC6F4BD27EF69B9B1136792728976A878B8F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945737   (431241) от 11.10.2015
-
-Векторный клипарт - Old styled car [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ретро авто в векторе.
-1 AI | + JPG PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18E0D634A395777B647E02A5FE8F88093ABFA74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945759   (431114) от 11.10.2015
-
-Векторный клипарт - Moto [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moto в векторе.
-1 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934E0C71558A35297BEA6CD456D19A68B7F5EA25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555841   (430735) от 03.10.2012
-
-(Шаблоны PSD) Blanc CD-DVD
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многослойный шаблон - Blanc CD-DVD
-Для оформления ваших релизов!Разрешение файлов: 4000х2500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44AF8189D6D42FD1DF6C08390D7511D24AA4E72
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1450712   (1028861) от 27.02.2021
+
+Rival Sons - Feral Roots (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do Your Worst
+02. Sugar on the Bone
+03. Back in the Woods
+04. Look Away(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634AC2C8F48CD56BAD3877CB81848F46EA9857C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450902   (1028749) от 28.02.2021
 
 Fortune - Fortune (1985) Remastered, 2004, Gypsy Rock [FLAC|Lossless|image + .cue] <AOR, Melodic Rock>
@@ -716,35 +745,6 @@ CD - 1 - When Life Was Hard and Fast:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F2C69EE7DA3EAD9DF69496D7F8B6003A86A9B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454561   (1026261) от 15.03.2021
-
-Nasty Ratz - First Bite (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love At First Fight
-02. Made Of Steel
-03. I Don't Wanna Care
-04. Morning Dreams Come True(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303ACEB4DA34EFF42B6FB82C80DFFCA537B3AF29
 ```
 
 https://mybot314.ru/tekegram_catalog/

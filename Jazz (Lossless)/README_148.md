@@ -1,3 +1,32 @@
+###  Публикация: 1145092   (623795) от 24.06.2017
+
+Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Mission
+02. Soulsalicious
+03. Senorita Bonita
+04. Cancun (A Tribute To Henry Mancini)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Bossa NovaПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F02443C9D1A3DC9E1A9855EAC0E08CCCD0C3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035867   (622852) от 19.07.2016
 
 Anthony Davis - Of Blues And Dreams (1978) Sackville[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -716,35 +745,6 @@ Keith Jarrett - Standards, Vol. 1 (1983) Remaster, 1985, ECM Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8B8F041DEA7DE6AB55C72A7B51431AEF7710F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145736   (619993) от 26.06.2017
-
-Keith Jarrett - Standards, Vol. 2 (1983) Remaster, 1985, ECM Records [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Tender (7:15)
-02. Moon And Sand (8:54)
-03. In Love In Vain (7:06)
-04. Never Let Me Go (7:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108E3C543FB4EB7B1A9E791FF871F388789D39C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

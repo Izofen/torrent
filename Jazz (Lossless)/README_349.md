@@ -1,32 +1,3 @@
-###  Публикация: 1725815   (108778) от 27.05.2024
-
-Dave Stryker Quartet - Blue Degrees (1993) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Degrees [11:00]
-02. Scorpian Dance [8:24]
-03. Alfie [5:35]
-04. Out of Bounds [8:02](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A19732DA6050FE3D4F80690CB466A9434C154D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726071   (108776) от 27.05.2024
 
 Horace Parlan - Blue Parlan (1978) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -745,6 +716,35 @@ Dave Brubeck - We're All Together Again For The First Time (1973) 1990, Atlantic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F436348C1A420546E56BC077EFB136686EDF51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727139   (108549) от 01.06.2024
+
+Mary Lou Williams - Solo Recital: Montreux Jazz Festival (1978) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley [11:26]
+02. Over the Rainbow [4:20]
+03. Offertory Meditation [5:47]
+04. Tea for Two [1:56](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD89FCE25A7B87EFEED06F1E3084B33A4D15B25
 ```
 
 https://mybot314.ru/tekegram_catalog/

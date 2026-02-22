@@ -1,3 +1,32 @@
+###  Публикация: 978470   (963505) от 23.01.2016
+
+Nordic Union - Nordic Union (2016) Japanese Edition [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The War Has Begun
+2.Hypocrisy
+3.Wide Awake
+4.Every Heartbeart(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46151CA554CDC5590CE2D3A2E76083250DA72781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978291   (963440) от 23.01.2016
 
 Ost+Front - Ultra (2016) [MP3|320 кб/с] <Industrial Metal, NDH>
@@ -718,35 +747,6 @@ Dantalion - ...And All Will Be Ashes (2016) [MP3|320 Kbps] <Melodic Metal, Doom-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEA959A6E9C39DEA9A36C1444FC98E8088FD2951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090105   (949183) от 05.01.2017
-
-Spitfire - State Of Mind (2017) [MP3|320 Kbps] <Groove, Stoner Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingpin 04:19
-02. I Need Help 03:40
-03. The Train 03:13
-04. Kill Me 03:51(   Читать дальше...   )Жанр: Groove, Stoner Rock, MetalПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4EF51B9EDA482054D53CED90C39B268E7641D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

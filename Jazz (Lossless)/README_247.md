@@ -1,32 +1,3 @@
-###  Публикация: 1336088   (282730) от 05.11.2019
-
-Joey Calderazzo - To Know One (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Impressions [3:55]
-02. Caldo's Revenge [9:21]
-03. Song for Penelope [6:05]
-04. Field of Blues [5:30](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451D75AC8B9CA2AE83980C9986D7C763898C274D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336050   (282724) от 05.11.2019
 
 Katherine Penfold - Sweetest Thing (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -745,6 +716,35 @@ Allegra Levy - Looking At The Moon (2018) SteepleChase [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:929C362441374C21D165B6AAB18012DB69FCD6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336553   (279255) от 07.11.2019
+
+Gary Burton - Artist's Choice (1963 - 1967) 1987, Bluebird [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Careful [4:13]
+02. Chega de Saudade (No More Blues) [4:43]
+03. Norwegian Wood [3:26]
+04. I Want You [3:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1CC96724F81498505158B374711886C2BEBC60
 ```
 
 https://mybot314.ru/tekegram_catalog/

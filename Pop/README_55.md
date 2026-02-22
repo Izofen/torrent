@@ -1,3 +1,125 @@
+###  Публикация: 1372093   (885401) от 03.04.2020
+
+P!nk (Pink) - I'm Not Dead (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Pop RockПродолжительность: 01:01:24Трэклист: 01. Stupid Girls
+02. Who Knew
+03. Long Way To Happy
+04. Nobody Knows(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31301F2802F2AF48ECBEF49A6659515FE2A55D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371901   (885092) от 03.04.2020
+
+VA - Summer Fitness 2020 [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gipsybeat - Muzika Tambuza (Gipsy Extended Mix) 3:49
+02. Amos Dj - Zio Ronzio 2:52
+03. Aviki - Zero Db 3:20
+04. Dj Masah - Il Suono Che Sale 3:12(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A9198C22537AC4E11FAA1ED1AC8076B87BF4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372393   (884930) от 03.04.2020
+
+Григорий Лепс - Честь имею! Мой первый срок (Высоцкий) (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884930.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мой первый срок
+2. Татуировка
+3. Счётчик щёлкает
+4. Я был душой дурного общества(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F18E767DF54C2264096A24947AC936A5FD73C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640894   (884735) от 08.04.2013
+
+Sash! - 10th Anniversary (2007) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_884735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sash! - Encore Une Fois (Future Breeze Edit)
+02. Sash! feat. Rodriguez - Ecuador
+03. Sash! feat. La Trec - Stay
+04. Sash! - La Primavera
+05. Sash! feat. Tina Cousins - Mysterious Times
+06. Sash! feat. Shannon - Move Mania
+07. Sash! feat. Dr. Alban - Colour The World
+08. Sash! - Adelante
+09. Sash! feat. Tina Cousins - Just Around The Hill
+10. Sash! feat. Inka - With My Own Eyes(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14DDE5816D35C8C4B420F7E4A3EE8E2B265B439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995172   (884611) от 11.03.2016
 
 Stephanie - Stephanie (1991) [FLAC|Lossless|tracks] <Pop, Synth-pop, Pop Rock>
@@ -625,122 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E1854ED00A85E4F5D4FAC0969E7F1EF51A64E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104046   (881694) от 14.02.2017
-
-VA - Sanremo 2017. Inediti & Cover dei campioni en nuove proposte (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881694.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Elodie - Tutta Colpa Mia
-02. Fiorella Mannoia - Che Sia Benedetta
-03. Nesli Feat. Alice Paba - Do Retta A Te(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9255E93A3CA445A399220D9208CABE195912D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665877   (881562) от 05.04.2020
-
-Вадим Мулерман - "Лада" Золотая коллекция Ретро (2005) [APE|Lossless]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881562.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лада (В.Шаинский - М.Пляцковский)
-2. Тундра (А.Двоскин - В.Петров)
-3. От Владивостока до Карпат (Б.Шапиро - М.Светлов)
-4. Судьба (А.Бабаджанян - Р.Рождественский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030DAC6BAD52B8E4FD583131F658364B66EDB188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104214   (881328) от 14.02.2017
-
-Оля Полякова - Шлёпали шлёпки (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881328.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Polyakova Style
-2. #Шлепки
-3. Плавочки
-4. Люли(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4F2B3B110EFCAEEE8D9C13E898398B0CFEB174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996256   (881276) от 13.03.2016
-
-Lorenzo Fragola - Zero Gravity (2016) [MP3|320 кб/с] <Italian Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Infinite Volte (03:28)
-02. Parlami (03:55)
-03. Con Le Mani (03:24)(   Читать дальше...   )Жанр: Italian PopПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3722535D1102FF0335E21FEC6E150CA1F0351B
 ```
 
 https://mybot314.ru/tekegram_catalog/

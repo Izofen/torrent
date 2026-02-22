@@ -1,3 +1,293 @@
+###  Публикация: 988919   (919196) от 21.02.2016
+
+VA - House Nation Volume 3 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Dumont feat. AME - Need U (100%) (05:53)
+02. Hard Rock Sofa - Quasar Noch breathe (Antony Rolls & Gladunov Mash Up) (06:26)
+03. Jacob Plant - Fire (04:17)
+04. Kronic & Krunk! - 3 Percent (04:51)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1E191CEDC3BF1EEB8C8059476743E02BA6E3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988240   (919187) от 21.02.2016
+
+VA - February Top 100 - Collection Trance (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919187.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Madhukar - Eternal Heaven (13:46)
+002. Ganga - Autumn - Dj Malte Of Real XS Mexican Club Mix (9:17)
+003. Pan-Pot - Sleepless (Stephan Bodzin Remix) (9:00)
+004. Talamanca - A Day At The Beach (Original Mix) (8:47)(   Читать дальше...   )Жанр: TranceПродолжительность: 10:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DFA25BF89FDAAF27FDCA886565C1235937C379A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988785   (919178) от 21.02.2016
+
+VA - Smooth Jazz n' Chill (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lebron - Kiss and Tell (04:06)
+02. Oli Silk - Get out Claws (03:28)
+03. Randy Scott - Kisses (04:52)
+04. Jaared - Jamaican Winds (03:41)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9670DB3154EDBC275605F6A8F928702CB9028E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367071   (919146) от 14.03.2020
+
+VA - The Official UK Top 40 Singles Chart 13.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd, Max Martin, Oscar Holter, Abel Tesfaye - Blinding Lights 3:22
+02. Saint Jhn - Roses 2:57
+03. Aitch, Aj Tracey, Tay Keith - Rain 3:03
+04. Roddy Ricch - The Box 3:17(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0D0809C1224D46CA90589F8616A3B5E7559F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367099   (919144) от 14.03.2020
+
+VA - German Top 100 Single Charts 13.03.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loredana - Angst (feat. Rymez)
+02. The Weeknd - Blinding Lights
+03. Luciano - Sip
+04. Apache 207 - Matrix(   Читать дальше...   )Жанр: PopПродолжительность: 05:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BCC6A043D04E901B43F9ECD33B7255A7467AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988798   (919096) от 21.02.2016
+
+VA - Дальняя дорога с душевной музыкой (2016) [MP3|256 kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игорь Май - Далеко
+02. Александр Поляков - Танго С Аккордеон
+03. Александр Закшевский - Мой Причал
+04. Band ODESSA - Платье белоснежное(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72998BB2E7BC1A154F105CF09839A12FD3853DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988824   (919092) от 21.02.2016
+
+VA - Нагадай мне любовь. Любимые песни для души - (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Владимир Алмазов - Нагадай мне любовь 05:44
+002. Геннадий Ура - Каблучками простучала 03:51
+003. Андрей Язвинский - Магнит 03:16
+004. Олег Бобрик - Маечка 03:07(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655A49CCBF62B34FA8A6C51427B30CEC19CC2228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987908   (919088) от 21.02.2016
+
+VA - Bossa Nova: Bossa Nostra (2016) [MP3|320 кб/с] <Latin, Dance, Folk, Spain Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919088.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bossa Nostra - Chico Desperado
+002. Cantores De Hispalis - A Bailar, A Bailar
+003. Hardage - Beautiful Day
+004. Amigos De Gines - Suena La Margarita(   Читать дальше...   )Жанр: Latin, Dance, Folk, Spain LyricПродолжительность: 07:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A993A292CBA526A23456E2C75BA0C547034321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367095   (919069) от 14.03.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 13.03.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carla Morrison - Disfruto (Audioiko Remix) 3:16
+02. SAINt JHN - Roses (Imanbek Remix) 2:56
+03. Trevor Daniel - Falling 2:39
+04. Billie Eilish - Everything I Wanted 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2968CE5C8F9DBDB707A8679F52B4FF7494E5A537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096529   (919068) от 24.01.2017
+
+VA - Around The Rock (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919068.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shaman's Harvest - Dangerous
+002. Guilt Machine - Twisted Coil
+003. The Guess Who - American Woman
+004. Fates Warning - Seven Stars(   Читать дальше...   )Жанр: RockПродолжительность: 09:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A06D7A3C76354E56B6C495C5662CE41E8E56CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987582   (918992) от 21.02.2016
 
 VA - Лучшая клубная музыка ANDRS vol.33 (2015) [MP3|128-320 кб/с] <Club, Dance, Electro, House, Electro-House, Deep House>
@@ -453,296 +743,6 @@ VA - Top 100 шансон зимний. Выпуск № 2 (2017) [MP3|256 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBA4A3ED33F9411132515BEAEF60536ABB535DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096704   (917735) от 25.01.2017
-
-VA - Убойные хиты на Шансоне. Выпуск № 10 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917735.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Лукоянов - Застава 3:17
-002. Николай Искуснов - Память Моя 3:51
-003. Хасан & Хусен Исмоиловы - Ты Половинка Моя 5:49
-004. Елена Светлая - Возвращайся Домой 5:54(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E4D96604FC732E0A3D634E7EF462072DAE2057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096901   (917732) от 25.01.2017
-
-Sedativ - Sedativ (2002) [MP3|256 Kbps] <Post Punk, Electronic>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Дом
-03. Серьёзный час
-04. Невидимый взгляд(   Читать дальше...   )Жанр: Post Punk, ElectronicПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8A10EF4EB253D19A8AD2FA664018B3B4B66CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096790   (917660) от 25.01.2017
-
-VA - Ресторан Кураж для друзей (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917660.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Регион 42 & Александр Кузнецов - Брат 3:35
-002. Александр Талин - Судьба 3:34
-003. Сиран Агасаров - Мама 3:32
-004. Андрей Широков - Сигаретный Дым 3:34(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:869C7D81B668D43C82B90064F8B40B0F5457E888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096815   (917647) от 25.01.2017
-
-VA - Axe Bahia 2017 (2017) [MP3|320 Kbps] <Pop, Bossa Nova, Latin>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917647.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ivete Sangalo - Cade Voce  4:19
- 2. Babado Novo - Voce Subia 2:14
- 3. Bell Marques - Ce Quer Fazer Amor 3:40
- 4. E o Tchan - Melo Da Batedeira 2:31(   Читать дальше...   )Жанр: Pop, Bossa Nova, LatinПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A875D9F905148526C15D70579D392C0EC76A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096678   (917635) от 25.01.2017
-
-VA - Душевная музыка на Шансоне. Версия № 8 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Любовь Попова - Судьба 3:19
-002. Эдуард Кузинер & Аркадий Иванов - Цветок Злости 4:20
-003. Игорь Таушканов - Кляксой Черный Дым 6:14
-004. Александр Дадали - Бродяга 5:52(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B6BDD596ABDB097CD74E552572D4340AABE13E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490481   (917576) от 21.08.2021
-
-VA - Beatport Electro House: Sound Pack #331 (2021) [MP3|320 Kbps] <House, Electro, Clubbing Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917576.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Franc Moody - Let It Kick In
-002. Howtru - How I House
-003. Monolink - The Prey
-004. Michael Cassette - Through The Windows(   Читать дальше...   )Жанр: House, Electro, Clubbing DanceПродолжительность: 12:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4535F3866B4F0E985D3818CDEB34CF803D37F50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490484   (917548) от 21.08.2021
-
-VA - Beatport Drum And Bass: Sound Pack #333 (2021) [MP3|320 Kbps] <Bass, D&B, Bassline>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sadhu - Occult Dance Music
-002. Mind Artifice - Dreams
-003. Yung.Raj - Oofie
-004. Crate Classics - Mercy Dub(   Читать дальше...   )Жанр: Bass, D&B, BasslineПродолжительность: 08:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBD3D69D6D18D08299700C03195AC221349834D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096713   (917545) от 25.01.2017
-
-VA - Звездная вечеринка. Зарядись хитами Выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дима Никонович - Только Ты 2:55
-002. Rudimental Feat. Ed Sheeran - Lay It All On Me 4:03
-003. Dan Balan - Плачь 4:19
-004. Florrie - Real Love 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E278567440682E8A03707481B68066E1D01FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096827   (917535) от 25.01.2017
-
-VA - Beatport Trance Pack (25.01.) (2017) [MP3|320 Kbps] <Trance, Uplifting, Tech Trance, Progressive, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bryan Summerville - Sensual (Original Mix)  7:39
-02.  Lightform - Orbs (Extended Mix)  6:08
-03.  Alan Morris - Anaconda (Extended Mix)  5:32
-04.  Rene Ablaze & F.G. Noise - Departure (Original Mix)  7:39(   Читать дальше...   )Жанр: Trance, Uplifting, Tech Trance, Progressive, VocalПродолжительность: 09:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DE5EE8D1DD2B3F88F1CBC7A83E272C60C86D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490543   (917509) от 21.08.2021
-
-VA - The Ethnic Bass Party (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Astrou - Lost The Light
-002. Black Sun Empire - Eraser
-003. Nymfo - Stamppot
-004. Furney - Electricite De La Nuit(   Читать дальше...   )Жанр: Drum And Bass, Bassline, JungleПродолжительность: 08:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1CC9777051C902FEA740D7CEDAC3F3C7C890C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

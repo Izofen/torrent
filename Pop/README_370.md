@@ -1,3 +1,90 @@
+###  Публикация: 1810667   (9221) от 05.08.2025
+
+VA - Eurobeat Stars Vol. 1-2 (2009) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9221.jpg" />
+</div>
+
+
+###  Подробнее
+
+1/10. Mark Farina - Gunfire (Explosive Mix) (2:50)
+2/10. F. C. F. - Black Mother (Fire Version) (6:50)
+3/10. The Gangstars - Dancing In the Street (Power Version) (6:18)
+4/10. Mark Farina - Virtual Love Remix (Factory Team Remix) (4:53)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17BC2D11FCFE82E6FEF9B7EB3D99BF9AF127E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811217   (8936) от 08.08.2025
+
+Thomas Anders - …Sings Modern Talking In the Middle of Nowhere (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8936.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Geronimo's Cadillac (Thomas' Version) (3:19)
+02. Riding on a White Swan (Thomas' Version) (3:55)
+03. Give Me Peace on Earth (Thomas' Version) (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7C52E9592031817538A2A07F7C220197A9074A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811494   (8680) от 10.08.2025
+
+VA - wake me up to 80s music (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roxette - The Look (3:57)
+02. Madonna - La Isla Bonita (4:02)
+03. Pet Shop Boys - It's a Sin (4:59)
+04. Fleetwood Mac - Everywhere (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70446614A6C610E9A68624DBA4FC45E63D44429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812600   (7769) от 15.08.2025
 
 Mylene Farmer - 86/97 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -659,93 +746,6 @@ Lady Gaga - Mayhem (2025) [MP3|320 Kbps] <Pop, Dance-Pop, Art Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:410FA1F4FE59CB60F0D9AB12420D0EC4EB86AF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817282   (3553) от 09.09.2025
-
-Татьяна Чубарова - Осенние чувства (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Любовь на всех одна [00:03:25]
-02 - Тебя любить нельзя, а хочется [00:03:50]
-03 - Зачем нужны слова [00:03:27]
-04 - Маечка [00:03:22](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06620EFE275679A6826171C2A114CAAFAD487886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817604   (3328) от 11.09.2025
-
-Teddy Swims - I've Tried Everything But Therapy (Part I) (2023) [FLAC|Lossless|image + .cue] <Soul, Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Teddy Swims - певец и автор песен с сильным, многогранным голосом, сочетающим элементы R&B, soul, hip-hop, и современной поп-музыки. Он начал свою карьеру с публикации каверов на любимые песни в социальных сетях, а затем представил собственные композиции. Каверы Swims'а охватывают самые разные эпохи и жанры, от Marvin Gaye и Shania Twain до Billie Eilish, демонстрируя (   Читать дальше...   )01. Some Things I’ll Never Know (4:02)
-02. Lose Control (3:30)
-03. What More Can I Say (2:21)
-04. The Door (3:32)(   Читать дальше...   )Жанр: Soul, Pop, R&BПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C0E2B341465D019ABBDB5D4261B4B4EA32C553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817605   (3322) от 11.09.2025
-
-Teddy Swims - I've Tried Everything But Therapy (Part 2) (2025) [FLAC|Lossless|image + .cue] <Soul, Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3322.jpg" />
-</div>
-
-
-###  Подробнее
-
-В продолжении своего мейнстримового прорыва 2023 года, в альбоме "Ive Tried Everything But Therapy, Pt. 2", Teddy Swims глубже копается в своей личной жизни, находя вдохновение в любви и исцелении. Его второй полноформатный студийный альбом, более оптимистичный и энергичный, чем первый, добавляет доступного поп-звучания в его проникновенные, мощные гимны. (   Читать дальше...   )01. Not Your Man (3:37)
-02. Funeral (3:54)
-03. Your Kind of Crazy (3:02)
-04. Bad Dreams (3:04)(   Читать дальше...   )Жанр: Soul, Pop, R&BПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503F0587286529F052D8D0C5D60D7B92700F9544
 ```
 
 https://mybot314.ru/tekegram_catalog/

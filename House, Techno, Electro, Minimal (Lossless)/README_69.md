@@ -1,3 +1,61 @@
+###  Публикация: 1775883   (29499) от 28.01.2025
+
+VA - Fitness Motivation 50 Hits to Get You Started 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - Hot In It (feat. Charli XCX) (2:09)
+02. David Guetta - Forever Young (2:36)
+03. Robin Schulz - Only Way Is Up (feat. Izzy Bizu) (2:29)
+04. Madonna - Hung Up (5:37)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64863AD94FF34041CBA16969C4B7CD96536D162A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780230   (27306) от 17.02.2025
+
+Blond:ish - Never Walk Alone (2025) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Walk Alone [00:03:08]
+02. Can't Let You Go [00:02:34]
+03. Self Love [00:02:52]
+04. Shout It Out [00:03:08](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4BDA5699778D916CEB88B7EA9E42774046F878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780794   (26993) от 20.02.2025
 
 VA - BC2 Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -686,64 +744,6 @@ VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9066A12A3888F4ACAE6030217392BD83B7D83CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800439   (15730) от 03.06.2025
-
-VA - Ibiza Summer 2025 (House Hotties from the Heart) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex A - Solar (Stream Edit) (3:15)
-02. Jerry Ropero - In Time (6:36)
-03. Hi.5 - Right Now (Extended Mix) (5:38)
-04. W.A.N. - Bay Of Love (Thomas Montevideo Remix) (9:05)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171449BC84C52C94292EEC78B072F1BE68C87900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800558   (15664) от 04.06.2025
-
-Anyma - The End Of Genesys (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucente (1:53)
-02. Voices In My Head (2:26)
-03. Hypnotized (3:00)
-04. Taratata (3:22)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6DA0DCFB96ECEB8D6B49F48D9C0751A03FD037
 ```
 
 https://mybot314.ru/tekegram_catalog/

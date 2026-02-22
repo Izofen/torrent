@@ -1,3 +1,31 @@
+###  Публикация: 996006   (872083) от 18.03.2016
+
+30 Юбилейная церемония награждения Emma-Gaala / 30 Anniversary Emma-Gaala Awards SATRip [H.264] [MP4|1920х1080] [FN]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Emma-Gaala Awards - финская ежегодная церемония вручения наград аналог Эмми, которая вручается по итогам каждого года артистам. Церемония проводиться ежегодно с 1983 года, кроме промежутка 1988-1990 год.
+
+В 2016 году церемония прошла на Espo Metro Areena в Финляндии 11 марта 2016 года и была показана в прямом эфире на телеканале "Nelonen 4", за номинацию (   Читать дальше...   )Производство: Nelonen 4Жанр: Церемония вручения наград, телешоу, концертПеревод: ОтсутствуетПродолжительность: 01:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF208D456CF318D0E8C4BCA7867A035CBFCFC23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997700   (872081) от 18.03.2016
 
 Who Ha - Out Running (2013) [FLAC|Lossless|WEB-DL|tracks] <Retro Synth, Synthwave>
@@ -699,41 +727,6 @@ Os Mutantes - Os Mutantes (1968) [APE|Lossless]<Progressive Rock (Psyhodelic)>
 8. Le Premier Bonheur du Jour 03.35
 9. Trem Fantasma 03.15
 10. Tempo no Tempo 01.47(   Читать дальше...)Жанр: Progressive Rock (Psyhodelic)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187571   (872005) от 31.03.2010
-
-VA - Go! Electro Vol.22 (11.08.2009) [MP3|320 kbps]<House / Electro House / Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 miles dyson - intro (original mix)
-02 remady feat. jon - the way you kiss (club mix)
-03 christian george - strangers (thomas gold remix)
-04 dj igrock - superstar (original mix)
-05 heiko & maiko - not too late (future breeze remix)
-06 black noise - knock you out (original mix)
-07 dj kot aka jack o lantern - lynda (different elements remix)
-08 benny benassi - satisfaction 2009 (housebrothers remix)
-09 wolfgang gartner - whoomp (there it is) (dj riga vs. dj ran bootleg)
-10 faust & shortee - keep it comin  (original mix)(   Читать дальше...)Жанр: House / Electro House / Progressive House
 
 ## Скачать торент
 ```bash

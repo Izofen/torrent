@@ -1,3 +1,32 @@
+###  Публикация: 1115089   (830069) от 16.03.2017
+
+VA - Vocal Hits Vol.3 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer & Armos - Higher (feat. Angel Falls) (Original Mix)  6:30
+02.  Sunset present Symsonic & Lucid Blue - Desert Rain (Radio Edit)  4:18
+03.  Feel & Alexandra Badoi - Did We Feel (Frainbreeze Progressive Mix)  6:08
+04.  Moonlight Tunes - I Need Your Love Tonight (feat. 3PM) (Original Mix)  6:30(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98EC38C90D1A4F127FF9AC21DEE6D7ECF9437FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114860   (830067) от 16.03.2017
 
 Intelligent Manners - The Movement (2012) [FLAC|Lossless|image + .cue] <Drum & Bass, Dubstep>
@@ -668,32 +697,6 @@ save2pc Ultimate - новая версия неплохой программы, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5755021008AADE9EBC16FED0ED55D4404E669BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114934   (829896) от 16.03.2017
-
-SMARTReporter 3.1.13 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829896.jpg" />
-</div>
-
-
-###  Подробнее
-
-SMARTReporter – утилита для диагностики состояния жестких дисков ATA и SATA интерфейсов и уведомления в случае дефектов. Программа опрашивает S.M.A.R.T. и подает сигналы о возможных неисправностях еще до их возникновения. Утилита выполняет другой контроль на "ошибки ввода / вывода" или "деградацию" R.A.I.D. Текущее состояние Ваших жестких дисков (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 марта 2017Разработчик: Albert MayerПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C373B1AE9C03E033AFB3A0080443C1D893367FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

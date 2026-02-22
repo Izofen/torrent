@@ -1,3 +1,99 @@
+###  Публикация: 532323   (538674) от 07.08.2012
+
+VA - Bar Room Blues: A 12-Track Program (2004) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538674.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tommy Castro - Rip This Joint (3:28)
+2. Tab Benoit - I Got Loaded (4:26)
+3. Charlie Musselwhite - Cold Grey Light Of Dawn (2:56)
+4. Kenny Neal - Whiskey Tears (5:23)
+5. Doug Wainoris - If The Sea Was Whiskey (4:21)
+6. Troy Turner - Later Than You Think (2:33)
+7. Junior Wells - Last Hand Of The Night (3:27)
+8. Sam Lay - Pure Grain Alcohol (2:41)
+9. Bob Margolin - My New Baby Owns A Whiskey Store (3:36)
+10. Tinsley Ellis - Feelin' No Pain (8:03)(   Читать дальше...   )Жанр: Blues
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B973304B3B412D2ED0C62C4C876F9DB54979F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532343   (538554) от 07.08.2012
+
+Divin' Ducks - 5 albums (1992 - 1998) [MP3|224-320 кб/с]<Hard Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+1992 - Rapes The World
+1994 - An Eye For An Eye..A Tooth For A Tooth
+1995 - Gutter Rhymes
+1998 - Both Ends Burning
+1998 - Brewed And Bottled - Alive!(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 03:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E942B885A6F8D40A7C9A2FB2B1C2BD51451D7F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050461   (538427) от 08.09.2016
+
+Paul Bley, Franz Koglmann, Gary Peacock - Annette (1992) 2001, HAT HUT Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Touching (take 1) [05:52]
+ 02.El Cordobes [08:31]
+ 03.Cartoon [06:27]
+ 04.Albert's Love Theme [03:46](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC90FABC431E3156D79EDDABBFD8B86ED5E1465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311830   (538306) от 01.07.2019
 
 James Williams - Alter Ego (1984) 1986, Nippon [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -670,93 +766,6 @@ Revolution Void - Increase the Dosage (2005) [MP3|192 кб/с]<Breakbeat,Acid Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6447F5896283E7C63CAD68689C8D1FF4ADB51D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050444   (536748) от 09.09.2016
-
-VA - Timme’s Treasures (1944, 1945) 2015, Storyville Records[FLAC|Lossless|tracks + .cue] <Swing, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.That Old Black Magic [04:41]
- 02.Johnny Come Lately [03:31]
- 03.Tea For Two [02:53]
- 04.Embraceable You [09:23](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C79E328B90673884FC1C986D2D69A71E722D349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050760   (536746) от 09.09.2016
-
-Bud Shank Quintet and Sextet - New Groove & Barefoot Adventure (1961) 2011, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.New Groove [06:47]
- 02.The Awakening [04:27]
- 03.White Lightnin' [05:23]
- 04.Sultry Serenade [07:14](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFC2CF5AF12D01C04A8DA6141BF6ECA455AD159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050736   (536738) от 09.09.2016
-
-Ella Fitzgerald - Sings Cole Porter & Rodgers and Hart Songbooks (1956) 3CD, 2008, Not Now Music[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536738.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.All Through The Night [03:18]
-02.Anything Goes [03:23]
-03.Miss Otis Regrets [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D5187CA61F06360DF1A027D99D842390BDB84F
 ```
 
 https://mybot314.ru/tekegram_catalog/

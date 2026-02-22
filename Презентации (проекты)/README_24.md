@@ -1,3 +1,29 @@
+###  Публикация: 1026333   (703573) от 15.06.2016
+
+Проекты - VideoHive - Flat Corporate Motion Design [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flat Corporate Motion Design - пакет для создания неповторимых корпоративных презентаций.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F984651019255EC7786EC4199C41DC96D5444E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026366   (703434) от 15.06.2016
 
 Проекты - VideoHive - Freeze Frames: Comic Pack [AEP]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34F2C57548438309297433776A17223101A70A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028398   (690275) от 22.06.2016
-
-Проекты - VideoHive - Flat App Promo [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flat App Promo - презентационный промо-ролик. Это версия №2 от 4 июня 2015.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E074427422C981D090B21B30EF31E2D3F9A3E639
 ```
 
 https://mybot314.ru/tekegram_catalog/

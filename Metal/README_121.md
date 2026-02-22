@@ -1,3 +1,32 @@
+###  Публикация: 969307   (149351) от 26.12.2015
+
+Bucovina - Nestramutat (2015) [MP3|320 кб/с] <Folk Metal, Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Încape-ntr-o Vorbă (Intro) (01:20)
+02. Dă-mi Mâna, Toamnă (04:52)
+03. Cărări În Suflet (04:29)
+04. Ultima Iarnă (04:39)(   Читать дальше...   )Жанр: Folk Metal, Pagan MetalПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD01CE28F7DAF61FA507D81BF49B026BC179427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677921   (149271) от 19.11.2023
 
 This Dying Hour - Longest Memory From The Shortest Life (2007) Delux Edition, 2023, This Dying Hour [MP3|320 Kbps] <Groove, Thrash Metal>
@@ -722,35 +751,6 @@ Clouds - Clouds Acoustic (2020) [MP3|320 Kbps] <Atmospheric Doom Metal, Acoustic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2DC5C5234B24CA855DF394B211849B676BF8EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810333   (144561) от 27.12.2019
-
-Stardown - 3 Альбома + 2 Компиляции (2007-2019) [MP3|320 кб/с] <Groove Metal, Modern Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144561.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 - Insi Deus (Limited Edition)
-2011 - Venom
-2014 - Void (2CD)
-2015 - Fill The Void (Compilation)(   Читать дальше...   )Жанр: Groove Metal, Modern Metal, MetalcoreПродолжительность: 04:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C910DD1F5E913844AB2EDC2C5C51C4C1EB02C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

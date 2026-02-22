@@ -1,3 +1,32 @@
+###  Публикация: 1696946   (119316) от 04.02.2024
+
+The John Irvine Band - The Starships Are Gathering (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Systems, Go! (5:08)
+02. The Archimedean Point (6:06)
+03. The Electrics Were Down (5:55)
+04. Lacus Temporis (10:53)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C19765EF364EA1B39B9B018A88F9B440E66EC55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696830   (119315) от 04.02.2024
 
 Joe Pass - Meditation: Solo Guitar (1992) 2002, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
@@ -716,35 +745,6 @@ Chet Baker - Late Night Chet Baker (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD8AB3F3EE3383FBA6F53F966E47FF039CE4CF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697673   (118734) от 07.02.2024
-
-Eric Dolphy - Muses (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone Together (Schwartz) - 12:07
-02. Muses (Dolphy) - 8:49
-03. Iron Man (Dolphy) - 8:27
-04. Love Me (Young) - 3:40(   Читать дальше...   )Жанр: Free JazzПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E986F4FE9EED5177617B4C940BEDCBB252734B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

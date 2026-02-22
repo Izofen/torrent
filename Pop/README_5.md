@@ -1,3 +1,119 @@
+###  Публикация: 1606400   (1044389) от 22.01.2023
+
+VA - Disco Nights (The Collection) (2009) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musique - In the Bush (3:32)
+02. Shalamar - The Second Time Around (3:41)
+03. Sharon Redd - In the Name of Love (4:10)
+04. Bumblebee Unlimited - Love Bug (3:36)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 07:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36F570793C961B4A363FEB08A8D85DE31CB0159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606774   (1044316) от 23.01.2023
+
+Shania Twain - Up! (2002) [OGG Vorbis|480 Kbps] <Rock, Country Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up!
+02. I'm Gonna Getcha Good!
+03. She's Not Just A Pretty Face
+04. Juanita(   Читать дальше...   )Жанр: Rock, Country Rock, Pop RockПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157D5B4056AEA9653F64E086865F7F510107F5D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606340   (1044238) от 24.01.2023
+
+Seal - Seal (1991) 4CD, Deluxe Edition, Remastered, 2022, Rhino - Warner Records [MP3|320 Kbps] <RnB, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Water (7:56)
+02. The Beginning (5:38)
+03. Future Love Paradise (5:08)
+04. Violet (4:56)(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 04:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB0BA4FC5F9A68490C7A0F53FA3162A2CB87374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607205   (1044062) от 26.01.2023
+
+Sting - Brand New Day (1999) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Thousand Years
+02. Desert Rose
+03. Big Lie Small World
+04. After the Rain has Fallen(   Читать дальше...   )Жанр: Rock, Pop, Pop RockПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3082EB96DAF6C863FC9F84CD55567D459C645DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607029   (1044056) от 26.01.2023
 
 Adriano Celentano - Le Volte Che Celentano E'Stato 1 (2003) [OGG Vorbis|450 Kbps] <Rock, Pop, Chanson>
@@ -629,124 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C8E642515A93D51E08B1C746A220BEDBC640A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609182   (1043314) от 02.02.2023
-
-Sarah McCoy - High Priestess (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sarah McCoy провела большую часть своей жизни, играя на пианино и исполняя глубокие, лиричные, надрывные песни в барах Нового Орлеана. Внутренний хаос этих забегаловок соответствовал той жизни, которую Сара вела с двадцатилетнего возраста.
-В 33 года её заприметил известный канадский пианист Чили Гонзалес и жизнь Сары кардинально изменилась.
-Сейчас ей аплодируют элитные (   Читать дальше...   )01. Weaponize Me
-02. Go Blind
-03. Sometimes You Lose
-04. Take It All(   Читать дальше...   )Жанр: Alternative Pop, BluesПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C648377C9FE1ED6DCDA179A2758C6A380D08EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609421   (1043239) от 03.02.2023
-
-Illona Staller (Cicciolina) - Illona Staller (1979) Reissue CD, 2000, Sequel Records [MP3|320 Kbps] <Europop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Was Made For Dancin' (6:14)
-02. Pane Marmellata E Me (3:59)
-03. Labbra (4:08)
-04. Benihana (4:23)(   Читать дальше...   )Жанр: Europop, DiscoПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4B640E14028FFAFE5F1145754188C918829C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609367   (1043226) от 03.02.2023
-
-Shania Twain - Queen Of Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giddy Up!
-02. Brand New
-03. Waking Up Dreaming
-04. Best Friend(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AFF50B5B8958B1031FCE9994CEBE603ED91966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609766   (1043151) от 04.02.2023
-
-VA - Ciao Italia (1997) 3CD Box Set (1997) [MP3|320 Kbps] <Рор>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriano Celentano - Azzurro
-02. Lucio Battisti - Emozioni
-03. Ricchi E Poveri - M'Innamoro Di Te
-04. Patty Pravo - Pazza Idea(   Читать дальше...   )Жанр: Рор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D091D9F48D34FB9F9767BE5343438CB163A451A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

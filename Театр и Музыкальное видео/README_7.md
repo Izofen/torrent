@@ -1,3 +1,96 @@
+###  Публикация: 600438   (997981) от 11.01.2013
+
+Песня года 2012 (1 часть) (2013) 1080i HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997981.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" - главный концерт страны! Участвуют все звезды! Концерт "Песня года" в Москве – это своеобразное подведение итогов. Каждый уходящий год – это отдельный музыкальный сезон, в котором были свои дебюты и свои провалы, взлеты и падения. По итогам каждого музыкального сезона звездное жюри отбирает лучшие композиции. Так "Песня (   Читать дальше...   )Жанр: Концерт, ТелепередачаПродолжительность: 02:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6E928CB67AF1EF9257958A0D28BD4C13A1252E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601784   (997944) от 11.01.2013
+
+Лучшие клипы для настроения / Best clips for mood [H.264] Mp4 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представляется лучшие клипы для поднятия настроения!01. Ace of Base - All That She Wants
+02. Bob Marley -  Could You Be Loved
+03. Modern Talking - Don't Take Away My Heart
+04. Rednex - Football is our Religion
+05. Bonnie Tyler - Holding Out For A Hero
+06. Sabrina - Boys boys boys
+07. Captain Jack - Get Up
+08. Rico Benrnasconi VS Vaya Con Dios - Nah Neh Nah
+09. C.C.Catch - Are You Man Enough
+10. Madonna - FrozenЖанр: Музыка, Pop, Dance, CountryПродолжительность: 01:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049BE239BC3E2AE86633151219B360FA6DDFE269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602095   (997817) от 12.01.2013
+
+Eloy - The Legacy Box DVD 1 (русские субтитры) (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997817.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом диске представлена 40 летняя история группы Eloy (с музыкальными фрагментами и русскими субтитрами!)01. Introduction
+02. The Beginning and First steps forward (1969-1975)
+03. Years of Success  (1976-1979)
+04. New Paths and old Values (1980-1984)
+05. From project to Band (1985-TODAY)
+06. Credits
+07. Picture GalleryЖанр: Музыка, Progressive rockПродолжительность: 01:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F816B63FE659B7BEAC4D7C669CED1B31A4C94A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601824   (997663) от 12.01.2013
 
 Black Veil Brides - Legion Of The Black (2012) [H.264/1080p-LQ] WEBRip
@@ -687,92 +780,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:594FC61CD192717B0C3F0616FA894E32D6F0DD5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605119   (995749) от 19.01.2013
-
-Дискотека 80-х 2012 Rock & Dance.Полная версия-оригинал 1 часть (DVD-5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, Pop, RockРежиссер: Актеры: Zodiac, Gorky Park, Silent Circle, Bad Boys Blue, Вячеслав Бутусов, C.C.Catch, Chris Norman, Boney MПеревод: ОтсутствуетПродолжительность: 02:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5C0AACF013F9CFD24BC4A381B31FD9C1135F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604523   (995702) от 19.01.2013
-
-Сборник клипов - DJ VJ Magrao - Full Video Collection (2003-2012) 15хDVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995702.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ VJ Magrao (настоящее имя- Luis Eduardo) - известный Бразильский радио ди джей, ви джей - один из пионеров музыкального, клубного направления - видеомикс - является одним из самых известных ви джеев мира, совладелец Бразильского музыкального лейбла - "Uberaba MG".
-Magrao - один из пионеров видеомикс-направления.
-Отличительной чертой его миксов является (   Читать дальше...   )001 - DJ Magrao - Intro
-002 - Dr.Alban - Look Who's Talking
-003 - Dr.Alban - Away From Home
-004 - Ace Of Base - The Sign(   Читать дальше...   )Жанр: Pop, Club, Dance, HouseПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B890491763E41EEB25FD1E2BB4BE403E75DF50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605410   (995498) от 20.01.2013
-
-ABBA - ABBA (Deluxe Edition) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ABBA In Australia (Television Special)
-a. Mamma Mia
-b. Hasta Mañana
-c. Ring Ring(   Читать дальше...   )Жанр: Pop, DiscoЯзык субтитров: Шведские, английские, французкие, немецкие, испанские, португальскиеПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AD1BE57D6D8FD79C4B9B056196E26E24213D52
 ```
 
 https://mybot314.ru/tekegram_catalog/

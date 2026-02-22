@@ -1,3 +1,90 @@
+###  Публикация: 1494233   (890820) от 06.09.2021
+
+Jack Jezzro - Best Of Green Hill Music The 50s Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only You
+02. My Special Angel
+03. Theme From A Summer Place
+04. Put Your Head On My Shoulder(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55001477C3A4CBEF4352F1AF7FAC59DF8881755B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510769   (890757) от 07.03.2016
+
+VA - Too Late, Too Late Blues (1993-1999) 13 CD /Document Records/ [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Document Records - лэйбл, специализирующийся на переиздании записей блюза, кантри, госпела и джаза. Был основан в 1986 году австрийским коллекционером Джонни Партом, который решил выпустить полное собрание довоенных блюзовых пластинок.Список альбомов:
+Newly Discovered Titles And Alternate Takes – Volume 1 (1926-1944)
+More Newly Discovered Titles & Alternate Takes, Volume 2 (1897-1935)
+More Newly Discovered Titles And Alternate Takes, Volume 3 (1927-1960)(   Читать дальше...   )Жанр: Blues, Folk, World, & Country, JazzФормат: CD, Compilation, RemasteredПродолжительность: 16:03:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494122   (890539) от 06.09.2021
+
+Johnnie Red & The Roosters - In the Red Zone (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Internal Revenue Blues (3:24)
+02. Be Gone (6:32)
+03. Way Past Low Down (2:50)
+04. Temptation Blues (4:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B6190C1E90D62728A0FBB9A4EB80718E42BD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494125   (890538) от 06.09.2021
 
 Rob Alley - Also-Ran Bluesman (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -669,100 +756,6 @@ Carl Wyatt & The Delta Voodoo Kings - Doing The Boogaloo (2016) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:276EDF45FD000C70E631C6620533F2C77918052E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640131   (889501) от 06.04.2013
-
-Denny Ilett - Callin' the Children Home (2008) [WavPack|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Callin' the Children Home (04:55)
-02. My Babe (04:17)
-03. I Only Got Myself to Blame (04:56)
-04. Eyes in the Back of My Head (04:25)
-05. Angel Eyes (06:00)
-06. Pretty Eyed Baby (05:55)
-07. Opposites Attract (04:26)
-08. In the Keyhole (04:11)
-09. If I Had My Time All Over Again (04:03)
-10. Six Feet Under (04:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 296724   (889324) от 17.02.2011
-
-Doug Gray - Under the Gun (2010) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Whiskey In Your Country And Reffer In Rock & Roll  (03:55)
-02. Voodoo Childern  (04:03)
-03. Grapevine Betty  (05:07)
-04. Little Bit of Love  (03:55)
-05. Under the Gun  (03:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494436   (889205) от 07.09.2021
-
-Pat Metheny - Road to the Sun (2021) [FLAC|Lossless|tracks + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Paths of Light, Part 1 (4:15)
-02. Four Paths of Light, Part 2 (6:22)
-03. Four Paths of Light, Part 3 (5:30)
-04. Four Paths of Light, Part 4 (3:10)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F5260F7F56C4C588532C42D2B72A14DE37F4F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

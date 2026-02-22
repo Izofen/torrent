@@ -1,3 +1,175 @@
+###  Публикация: 1777515   (70986) от 06.02.2025
+
+Bill Moio - Try This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Try This (6:06)
+02.  720 Berkeley (5:50)
+03.  I've Heard It All Before (4:57)
+04.  Need To Know (5:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC878647C4AB8A8A7F8C6ABFD38B838FBA98789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777712   (70983) от 06.02.2025
+
+Peter Erskine & JAM Music Lab All-Stars - Vienna to Hollywood: Impressions of E.W. Korngold & Max Steiner (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Herwig Gradischnig - March of the Merry Men (7:07)
+02.  Danny Grissett - Sterbelied (from Lieder des Abschieds, Op. 14) (6:13)
+03.  Bertl Mayer - Old Spanish Song (5:32)
+04.  Danny Grissett - The Boys Go to Play (5:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A0441F82082563FE04FBA40E16DB09AED11C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777707   (70982) от 06.02.2025
+
+Nel Begley - Small Flame (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cherokee (4:09)
+02.  A House Is Not A Home (6:17)
+03.  The Gentle Rain (5:09)
+04.  Lucky To Be Me (5:51)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E49ABDBB604AF8FAAA9727CCB89D94AFBCCDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777556   (70977) от 07.02.2025
+
+Dream Theater - Parasomnia (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 In The Arms Of Morpheus (5:22)
+02 Night Terror (9:55)
+03 A Broken Man (8:30)
+04 Dead Asleep (11:06)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756E0005A5A96719E3C681EF84A9CD9C774C9940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777820   (70973) от 07.02.2025
+
+Canterra - Studio Albums (2 releases) (2016-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Canterra - метал-группа с женским вокалом из Лейпцига, Германия.2016 - First Escape
+2020 - HeartmachineЖанр: Symphonic/Gothic MetalПродолжительность: 01:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFEEF1BC4E01952022114C0AC77CCE5DC405945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777909   (70949) от 07.02.2025
+
+Majestica - Power Train (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Train [00:04:04]
+02. No Pain, No Gain [00:03:35]
+03. Battle Cry [00:04:00]
+04. Megatrue [00:05:41](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADC7DE29F1BE887B28C2CFA05D59B671EF1A42F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777826   (70939) от 07.02.2025
 
 Dreamland - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
@@ -571,182 +743,6 @@ Jazzystics - It's a Mistake (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8C0C5641363BB8BFBFED8A4A7EC4D620F40FBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779996   (70561) от 16.02.2025
-
-VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TT - Потерянный рай (spiller remake)
-02. Stark - You
-03. Party - Подари любовь
-04. Nek - La Vita E(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E75A1EC4D380373866CE73E20381F038050014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779518   (70542) от 16.02.2025
-
-The Chordettes - 2015 - The Greatest Hits (2025) Remaster, 2025, ZOROTY[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ballad, Vocal, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70542.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Runnin' Wild (00:01:44)
-✧ 02 - Alice Blue Gown (00:02:44)
-✧ 03 - Love Me and the World Is Mine (00:02:53)
-✧ 04 - Lonesome That's All (00:03:09)(   Читать дальше...   )Жанр: Ballad, Vocal, Easy ListeningПродолжительность: 01:11:54
-
-qobuz
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56F0D764FAF6E40AA0AFC40E1AEA58EC8DC5069A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780102   (70523) от 16.02.2025
-
-The Wombats - Oh! The Ocean (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70523.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Sorry I'm Late, I Didn't Want To Come (00:03:19)
-✧ 02 - Can't Say No (00:03:12)
-✧ 03 - Blood On The Hospital Floor (00:03:06)
-✧ 04 - Kate Moss (00:03:33)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34B981C485B97D44E5E81121A26FCBC5CFBA1F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780131   (70517) от 16.02.2025
-
-Moonchild Sanelly - Full Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Hip-Hop, Funk Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Scrambled Eggs [3:47]
-02 - Big Booty [3:32]
-03 - In My Kitchen [2:44]
-04 - To Kill a Single Girl (Tequila) [3:35](   Читать дальше...   )Жанр: Electronic, Hip-Hop, Funk Soul, PopПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A87CC1CB20ED7B5C32756CCE9D30ADB8BDBCC8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780100   (70516) от 16.02.2025
-
-Role Model - Kansas Anymore (2024) The Longest Goodbye, 2025, Interscope Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70516.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Writing's On The Wall (00:02:49)
-✧ 02 - Look At That Woman (00:02:43)
-✧ 03 - Scumbag (00:03:03)
-✧ 04 - Oh, Gemini (00:02:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F382828AEFEC46067DB9B95D10B12B6B249EE06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780223   (70442) от 18.02.2025
-
-Robert Ascroft - Echo Still Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70442.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Faded Photograph (00:04:01)
-✧ 02 - Empty Pages (00:03:23)
-✧ 03 - Where Did You Go (00:04:15)
-✧ 04 - Should've Stayed in Bed (00:03:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039E7B8BDBABEF5FA00C709CA71821EEC59B86E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1298237   (600039) от 01.05.2019
+
+VA - Live @ Mixmash Takeover, Delano Beach Club Miami (2019-03-28) (2019) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coldplay - Paradise (Fedde Le Grand Remix)
+02. Gotye ft. Kimbra - Somebody That I Used To Know (dBerrie Remix)
+03. Afrojack vs. Jack U - Bass Is Kickin vs. Hands Up (Afrojack Edit)
+04. Chuckie & Hardwell ft. MC Ambush - Move It 2 The Drum(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98CBD3A3817B1D61A42C43153A6FB93FFE56F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298221   (600031) от 01.05.2019
 
 VA - Live @ Fun Radio Ibiza Experience (2019) [MP3|192 Kbps] <Electro House, Progressive House>
@@ -676,32 +705,6 @@ SIGERSHADERS XS Material Presets Studio - это обновлённая библ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B35E21550A7F5DFA50CFFE1409D14A61F5F20902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548478   (599854) от 02.05.2022
-
-Display Driver Uninstaller 18.0.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418B3A057366AEEEB10A6AD85F012B66FCBE284E
 ```
 
 https://mybot314.ru/tekegram_catalog/

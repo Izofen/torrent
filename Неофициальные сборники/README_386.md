@@ -1,3 +1,293 @@
+###  Публикация: 1315150   (513966) от 19.07.2019
+
+VA - Sublime Drum And Bass (2019) [MP3|320 Kbps] <Bass, D&B, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513966.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. L 33 - Mafia
+002. Mystix - Treble Nine
+003. Phantom Flake - Neocontrol
+004. Nohzo - 52 Sound(   Читать дальше...   )Жанр: Bass, D&B, DubstepПродолжительность: 07:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273E279D0347CA882BA05B0DCC540B6D373A6AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315332   (513965) от 19.07.2019
+
+VA - Ego Night: Original Mix Electro House (2019) [MP3|320 Kbps] <Electro House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513965.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Loja Do Cacao - Na Mesa (Gallica Mix)
+002. Six To Six - We Need A Sign (Radio Mix)
+003. Nuvex - U & Me (Radio Edit)
+004. Alex Plug - Acid Memories(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 09:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98B203FD0CE50811CFDB5AE80FF57C806201B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242586   (513942) от 23.08.2018
+
+VA - Ambient Beautiful (2018) [MP3|320 Kbps] <Ambient, Lounge, Lo Fi>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513942.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Area 42 - Part of the Heart
+002. Edo Lee - Shadow Box
+003. Jeff Bennett - Day Walker
+004. Michael E - Nobody(   Читать дальше...   )Жанр: Ambient, Lounge, Lo FiПродолжительность: 08:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82EB8122AA44975DCCA74683C83F9744BBA2279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315350   (513898) от 19.07.2019
+
+VA - Sin Compromiso: Indie Punk Rock (2019) [MP3|320 Kbps] <Indi, Punk Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513898.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Agar Agar - Lost Dog
+002. Lawrence Arabia - Everything's Minimal
+003. Winter - Everything
+004. Tim Cohen - I Don't Wear Gold(   Читать дальше...   )Жанр: Indi, Punk Rock, AlternativeПродолжительность: 11:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D3408D1DA002118115A1AE9D1B60C8A47F9B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314612   (513811) от 19.07.2019
+
+VA - Synthpop Multimix (2019) [MP3|320 Kbps] <Pop, Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513811.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marti Caine - I'll Never See You Again
+002. Team Rush Hour - Forever (Feat. Revi)
+003. Gosto - Cigarette
+004. The Kiez - Cool(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 07:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8B41A03E2A3BC9102925800863282C6F60917C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314797   (513810) от 19.07.2019
+
+VA - Punk Rock Favourites (2019) [MP3|320 Kbps] <Punk Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513810.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angel Du$t - Big Ass Love
+002. As We Go - City
+003. Be Still - Not Into You
+004. Better Than Never - Sharks(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 08:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9DEA4FE9D02D44A50F29C8B035B5AB7106C673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930837   (513803) от 24.08.2015
+
+VA - Всё сразу 200 хитов Выпуск 3 (2015) [MP3|320 кб/с]<Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513803.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мин нет! - МИН НЕТ!
+002. Kanye West - Stronger
+003. Диоды - Мама мне говорит
+004. Hollywood Undead - Glory(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6283B83484EE5FF335893D50480E79EA15E712D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315327   (513548) от 19.07.2019
+
+VA - Summer Ahead: Party Pop Music 90s (2019) [MP3|213-273 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513548.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rhythm Crew - If You Need Somebody
+002. Scott & Louise Dorsey - Love Is Gonna Last Forever
+003. Ofra Haza - Fatamorgana (Mirage)
+004. Bee Gees - Ordinary Lives(   Читать дальше...   )Жанр: PopПродолжительность: 13:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDAC35A8F377F45EE6E9E8164B0B2EDDA09DC1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561646   (513508) от 06.07.2022
+
+Max Richter - Музыка лунного света (2002-2018) Compilation Album [MP3|320 Kbps] <Modern Classical, Ambient>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aria 1
+02. Aria 2
+03. Autumn Music 1
+04. Berlin by Overnight(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 03:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE1AF33B578C2E3854FA85E0E170437CDC2207E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561852   (513479) от 06.07.2022
+
+Ricky King - Compilation (2022) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolga - Melodie
+02. Hei?e Sonne, Wei?er Strand
+03. Verde
+04. Yesterday(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BFAE3FE876ACBD73E07E19C29B336C9870D50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561733   (513473) от 06.07.2022
 
 VA - Morning Chill & Relax 2 (2022) [MP3|320 Kbps] <Pop, Chillout, Other>
@@ -461,299 +751,6 @@ VA - Горячий музон. Тусим все вместе (2015) [MP3|256-3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBA4D8758F17E627B8FAC595DEF2DD02F1C2D248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931101   (512796) от 25.08.2015
-
-VA - Всё сразу 200 хитов Выпуск 4 (2015) [MP3|186 - 320 кб/с]<Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512796.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Михей и Джуманджи - Сука Любовь
-002. Yes-R feat. Derenzo - Fissa
-003. Green Grey - Осень (MF)
-004. Andreea Banica - Electrified(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2118CAE093AF8619D8A59BE4028C48F73F700BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315453   (512777) от 20.07.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 19.07.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy Yankee feat. Katy Perry & Snow - Con Calma (Remix) 3:01
-02. Ed Sheeran & Justin Bieber - I Don't Care 3:40
-03. Drenchill feat. Indiiana - Freed From Desire 3:40
-04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1E57F2857670C3B69AB73641D7ECEF63B50C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315533   (512700) от 20.07.2019
-
-VA - Blues Forever, Vol.91 (2019) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Kahr - Big City Struggle (3:54)
-02. Simon Kinny-Lewis - Goodbye Baby (3:54)
-03. Robbert Fossen Band - Still Called The Blues (3:36)
-04. Midnight Johny - Spy Boy (5:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90E4EB58EE07BD500FF1D80F8D135C283770C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931227   (512667) от 25.08.2015
-
-VA - Зайцев нет. Лучшие новинки августа (2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512667.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Varien feat. Veela - Supercell (03:35)
-002. Chris Lake & Anna Lunoe - Stomper (03:34)
-003. Tchami feat. AC Slater & Kaleem Taylo - Missing You (05:14)
-004. Koven - From The Start (04:30)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 04:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1088B4FCD4F641522D6543E9BC2556DD7191BEC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536892   (512314) от 20.08.2012
-
-VA - Rock instrumental classics (2008) [MP3|160-320 кб/с]<Rock/Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock/InstrumentalПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB10A0912D95B5116B970574DB9ABC9F98D3D5C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931574   (511944) от 26.08.2015
-
-VA - Club Hits 2k15 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Green Point - Everything Has an End (Club Mix) [07:28]
-02. Definable - Seaside [08:16]
-03. Deportrance - Midsummernight [06:42]
-04. Sebastian Mulah - How Can I Save You [07:57](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 06:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081E81800A16BDFD2544B7F3226B265305EB0317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931602   (511940) от 26.08.2015
-
-VA - Hot And Sexy Lounge Grooves Vol. 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ MIBOR - Dreams (5:06)
-02. Johannes Huppertz - Lazy Jazz (4:36)
-03. Blue Wave - Roots & Wings (5:37)
-04. Newton - Glad but Sad (4:58)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2D901EBAF15138F3AEC7DE25939DC1C1E838B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931387   (511932) от 26.08.2015
-
-VA - Lounge Music Cafe - Cafe IBIZA (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabado Playground - Ipanema Beach
-02. Jox Talay - Groove Theory
-03. Speed Tentacles - On My Way Chillout
-04. Jox Talay - SLS Pool(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5794472432C9335BDFA0CB97DDA8E13A4E39CA13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931615   (511874) от 26.08.2015
-
-VA - Fifty Shades Of Lounge (50 Smooth & Sexy Chill Tunes 4 Erotic Moments) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cafe Americaine - Magical Mambo (Latin Lounge Cut) (5:23)
-02. Chillwalker - Smooth Peter (Jazzbrunch Mix) (5:21)
-03. Vladi Strecker - Red Wine (Slowjazz Mix) (6:31)
-04. Noise Boyz - I’m a Jazzwoman (Cooljazz Mix) (5:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C251C3CBDFA9E8695A067654DDF93758E7BF9443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 230025   (511859) от 28.08.2010
-
-VA - Наше радио - Чартова дюжина ТОП-13  (24.08.2010)  [MP3|320 kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Серьга - Валера ты где?
-02. АлисА - Работа
-03. Музыкальный коллектив Петра На - Баба Люба
-04. Король и Шут - Фокусник
-05. Найк Борзов - Тени и мерцания
-06. Вася Обламов - Еду в Магадан
-07. Илья Чёрт и The Stokes - По плану
-08. Тайм Аут - Ночь Луна
-09. Ю-Питер/В.Бутусов - Дети минут
-10. F.P.G. - Ночь(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

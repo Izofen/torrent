@@ -1,3 +1,108 @@
+###  Публикация: 644056   (871891) от 15.04.2013
+
+Mud Morganfield - Son of the Seventh Son (2012) [MP3|320 кб/с]<Blues/Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Short Dress Woman
+2. Son Of The Seventh Son
+3. Love To Flirt
+4. Catfishing
+5. Health
+6. Loco Motor
+7. Money (Can't Buy Everything)
+8. Midnight Lover
+9. Go Ahead And Blame Me
+10. Leave Me Alone(   Читать дальше...   )Жанр: Blues/Chicago BluesПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFB818FC2FA11FDAA6C9BE4B7DB139FB59B38D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643847   (871887) от 15.04.2013
+
+Jeanette Harris - Summer Rain (2013) [MP3|320 кб/с]<Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Just Keep Holding On
+02. Passing Time
+03. Take Me There
+04. Summer Rain
+05. Muy Caliente
+06. The Ride (feat. Darrell Crooks)
+07. Chillin’
+08. Here & Now
+09. Oh so Good
+10. 12:57 (feat. Marcus Anderson)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BD61AB25D02B5F2ED573EE248BDF4F8E4E1F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 766066   (871843) от 14.03.2014
+
+Trygve Seim, Oyvind Brakke, Per Oddvar Johansen - The Source and Different Cikadas (2002) [MP3|320 кб/с]<Modern Creative, Third Stream, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Organismus Vitalis [05:24]
+02. Mmball [04:53]
+03. Funebre [02:11]
+04. Deluxe [05:59]
+05. Bhavana [03:32]
+06. Saltpastill [04:43]
+07. Flipper [02:48]
+08. Plukk [04:36]
+09. Obecni Dum [02:26]
+10. Suppressions [04:15](   Читать дальше...   )Жанр: Modern Creative, Third Stream, Contemporary JazzПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C49CF6A8E7D5EF8FAABA96DEEC0727E2FF7837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765999   (871841) от 14.03.2014
 
 Billy Hart Quartet - One Is The Other (2014) [FLAC|Lossless]<Post-Bop, Modern Creative>
@@ -706,93 +811,6 @@ VA - Cozy Winter Jazz Vol.2 (2017) [MP3|320 Kbps] <Jazz, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EEB52E25CA156CBF76245C021EBB831E25F9EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106485   (871660) от 20.02.2017
-
-Billie Holiday - The Real... Billie Holiday (2011) 3CD [FLAC|Lossless|tracks + .cue] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Easy Living
-2. All Of Me
-3. God Bless The Child(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 03:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86F91E21D8E364B4BDBD5019C06F18F0308DDE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496640   (871657) от 18.09.2021
-
-Roland Kirk - Roland Kirk's Finest Hour (2001) Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stompin' Grounds [4:49]
-02. Blue Rol [6:12]
-03. Serenade to a Cuckoo [4:34]
-04. Spring Will Be a Little Late This Year [4:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9868D92F0731B638EC8CC8B5EA326AF717153E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496644   (871655) от 18.09.2021
-
-Duke Ellington - Duke Ellington's Finest Hour (2002) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East St. Louis Toodle-o [2:55]
-02. Black and Tan Fantasy [3:20]
-03. Jubilee Stomp [2:47]
-04. Black Beauty [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BFEB6C646E0DC388095234D8B88900735102A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1442463   (1036552) от 25.01.2021
+
+VA - 80s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Police - Every Breath You Take (Remastered 2003) (04:13)
+02. Bryan Adams - Heaven (04:04)
+03. Chris De Burgh - The Lady In Red (04:16)
+04. Richard Marx - Right Here Waiting (04:23)(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75926DCD3D97DF812B4C6B2435B6FC182B763747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616425   (1036390) от 02.03.2023
+
+Ottawan - Hunds UP (1989) Compilation, Karussell [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hands Up
+02. Shalala Song
+03. Siesta For Two
+04. Shubidube Love(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923D986822D731C339A10E777DDFCBF720EED715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442831   (1036347) от 26.01.2021
+
+VA - sad shower (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved (03:02)
+02. Calum Scott - You Are The Reason (03:24)
+03. Dean Lewis - Be Alright (03:16)
+04. Alessia Cara - Scars To Your Beautiful (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E62CA0F5F58F11C515F1C8F91B3FE94A6569561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442696   (1036324) от 26.01.2021
+
+VA - Italo Disco New Revival Volume 5 (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estimado - Rain Of Love (Extended Version) (7:14)
+02. The Crosslines - I Can Feel Your Body (In The Night) (Maxi Version) (6:39)
+03. Birizdo I Am - Love Is Love (Maxi Version) (4:56)
+04. D. White - Follow Me (Extended Version) (7:13)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CB5832B3D180C637C8E2883ADD903EA0FDFEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442903   (1035976) от 27.01.2021
 
 VA - New Italo Disco Music Vol. 1-10 (2016) 11 альбомов [MP3|320 Kbps] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop, Dance>
@@ -628,122 +744,6 @@ VA - New Italo Disco Music Vol. 2 (Selected by Lajos Birizdo) (2016) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7A2EC69FE4B7183D508DE78C125CDA782F2E121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444417   (1034678) от 01.02.2021
-
-VA - Valentine's Day 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Police - Every Breath You Take - Remastered 2003 (4:14)
-02. Lady A - Need You Now (3:56)
-03. James Morrison - You Give Me Something (3:32)
-04. Shania Twain - You're Still The One (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F1B36534C3AC8CE5596FCD0F0D3D0AF61964E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444164   (1034674) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - This My Lady Like the Night (Extended Version) (8:56)
-02. Birizdo I Am - Dont Go (Extended Version) (6:11)
-03. Diamond Rain - Mystic Night (Extended Version) (6:11)
-04. Nikita Fomin - I Dont Wanna Lose You (Extended Version) (6:28)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B715BF61A3616A72D6086E3172CC50A7267516FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444158   (1034672) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - I Bridge New Life (7:07)
-02. Kristian Conde - Don't Give It Up (Maxi Version) (4:45)
-03. The Crosslines - Starlight (Maxi Version) (5:17)
-04. Nation In Blue - I Want U (Extended Version) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E3C43FC3D96F4818B62DE17A87167F2808CA6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444405   (1034668) от 01.02.2021
-
-Dave Dee, Dozy, Beaky, Mick and Tich - The Best of (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Tight (2:51)
-02. The Wreck of the Antoinette (3:24)
-03. Save Me (3:19)
-04. Here's a Heart (3:29)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CB2A1E68F46A331CBAC3CB8073D30AD106A0C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,87 @@
+###  Публикация: 254239   (362317) от 05.11.2010
+
+VA - Electro Paradise (2010) [MP3|320 kbps]<Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro HouseПродолжительность: 06:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EB2AFA107BB6AA92CE380AEE6B35A49F317E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071104   (362133) от 09.11.2016
+
+VA - Big Room Essentials, Vol. 01 (2016) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lan-D - Dark Shots (Original Mix) 04:22
+02. Avalanche - Alaska (Original Mix) 04:41
+03. Saint Valentine - Vision (Original Mix) 04:26
+04. Dynasty - Charizard (Club Mix) 03:22(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 01:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C1994FE7304CD5E3C86A089AA425B7363ACA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070774   (362040) от 09.11.2016
+
+VA - Chillout: Ultimate Sunset Collection (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yekuro Losho - You'll Never Dance Alone (06:40)
+02. Don Gorda Project - Recurring Events (06:17)
+03. Zero Feedback - Rien ne va plus (Don Gorda Project Remix) (07:00)
+04. Enrico Donner - Prefabricated Dreams (06:47)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8879C0C6007F68EFB6F9F40E00AC9FEC820384C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070833   (362039) от 09.11.2016
 
 VA - Dubai Deep House (2016) [MP3|320 Kbps] <Deep House>
@@ -652,93 +736,6 @@ VA - Coastal Sunrise 001 (2017) [MP3|320 Kbps] <House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A2EB0C3530458435B6B511B2EDE72605619E81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179686   (347103) от 01.11.2017
-
-VA - Workout Music, Vol.2 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dunsterz - Cometa (Original Mix)
-02. 4ngus - Circles (Original Mix)
-03. #MONKEYStuff - Be Someone (Original Mix) (feat. Dmitry F)
-04. Chris Energize - Modern Times (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB61C936CA47628CAA718D72BA6872FC7F4B644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257166   (347035) от 25.10.2018
-
-VA - Deep House Blast Three (2018) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modell & Mercier - Great Koma (Human Mix) 3:48
-02. Tony Cool - Gianfalla (Funk and Deep Mix) 3:52
-03. Mediterraneo - Love in Med (Maratea Deep Mix) 3:54
-04. Tee Glam - Omni Passion (Glamorous & Glitter Mix) 3:54(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF386D3EF6266ABD2E20DDFEF7D12856730326DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179685   (346966) от 01.11.2017
-
-VA - Workout Music, Vol.7 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilya Ozon - One Mode (Original Mix) 03:25
-02. Magenta Hawk - Restart (Rhazab Remix) 04:00
-03. Rob Noble - The Night (Original Mix) (feat. Sanjey Ole) 04:33
-04. Alex Byrne - Flash (Original Mix) 03:33(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285BBD3B90748343BE0AF85C253554AA1867B0B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

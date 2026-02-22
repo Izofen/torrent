@@ -1,3 +1,32 @@
+###  Публикация: 946449   (425263) от 14.10.2015
+
+Bill Evans - Jazzhouse (1969) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.How Deep Is The Ocean [06:01]
+02.How My Heart Sings [04:06]
+03.Good Bye [03:53]
+04.Autumn Leaves [05:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABE0A4A10DFBC9954D9E9F23E63E59369EBC843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946429   (425256) от 14.10.2015
 
 Elvin Jones - Live At The Lighthouse Vol. 1 (1972) /2013, EMI Music/[FLAC|tracks+.cue]<Post-Bop, Avant-Garde Jazz>
@@ -717,35 +746,6 @@ Count Basie & Harry James - Basie Rhythm (1937-1939) 1991, Hep[FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EE46286D834229FB84C02C4042106B50D86AB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064937   (421893) от 22.10.2016
-
-Peggy Lee - Classics & Collectibles (1952-1956) 2CD, 2003, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421893.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Classics:
-01.Mr. Wonderful [03:22]
-02.He's A Tramp [02:43]
-03.Black Coffee [03:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E746E36A67C3956577D5437B2B953DBBF9400D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

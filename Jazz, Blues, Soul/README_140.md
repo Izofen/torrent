@@ -1,3 +1,90 @@
+###  Публикация: 1502896   (825142) от 16.10.2021
+
+James Brown – I'm Real (1988) [FLAC|Lossless|tracks + .cue]<Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tribute 0:24
+02. I'm Real 5:33
+03. Static ( Part 1 & 2 ) 4:52
+04. Time To Get Busy 5:17(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCA86FFE7BBEA9D7179690D32960117F2F0BA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116073   (825068) от 19.03.2017
+
+Phineas Newborn, Jr. - Here Is Phineas (1956) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Barbados [04:06]
+ 02.All The Things You Are [07:28]
+ 03.The More I See You [04:07]
+ 04.Celia [03:11](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F69B0071D05409FC7AE110090EB749B732F04DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116171   (824966) от 19.03.2017
+
+Kenny Neal - Bloodline (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824966.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Нилом не может быть путаницы – он точно практикует блюз, а не водит романов с роком. Респект. Однако тут и его козыри, и ахиллесова пята в одной упаковке. Поскольку блюзроковый релиз, особенно гитаристу его уровня, элементарно загрузить агрессивным звуком, пошуметь, поорать, подпустить дыма-огня – и привет, народ сбежался:) А с блюзом сложнее. Приходится оставаться (   Читать дальше...   )01. Ain't Gon' Let the Blues Die (3:19)
+02. Bloodline (3:50)
+03. Plain Old Common Sense (5:12)
+04. Funny How Time Slips Away (4:46)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B959B7CDA14C4195E840C45A18090BA0170267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116127   (824963) от 19.03.2017
 
 Duke Robillard - Blues Full Circle (2016) [FLAC|Lossless|image + .cue] <Blues, Modern Electric Blues>
@@ -659,93 +746,6 @@ Milt Jackson - The Ballad Artistry of Milt Jackson (1959) Remaster, 2012, Warner
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:647219F09B602E78A4E9F2FCE9ACD99CE6A749BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007197   (823640) от 14.04.2016
-
-Milt Jackson - Bags & Flutes (1957) Remaster, 2012, Warner[FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bags' New Groove [06:03]
- 02.Sandy [03:57]
- 03.Midget Rod [05:47]
- 04.I'm Afraid the Masquerade Is Over [03:47](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74015DA9FEEE563A394181A37266EA5F10B4E2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007149   (823562) от 14.04.2016
-
-Louis Armstrong - Louis Armstrong (1987) Series Compact Jazz, Compilation [APE|Lossless|image + .cue] <Jazz,  Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Gotta Right To Sing The Blues
-02. Moon Song
-03. Don't Get Around Much Anymore
-04. Let's Fall In Love(   Читать дальше...   )Жанр: Jazz,  DixielandПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F97FD521B50B4376607BD9F41EAFC12880BC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007333   (823556) от 14.04.2016
-
-Malaya Blue - Heartsick (2016) [FLAC|Lossless|image + .cue] <Blues, Jazzy Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823556.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Heartsick (03:21)
-2. Hunny Little Day Dream (04:02)
-3. Colourblind (04:42)
-4. Let's Reinvent (Love) (07:12)(   Читать дальше...   )Жанр: Blues, Jazzy Blues, Blues RockПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F80D59738C35B77CAE1518E08DF39BB98BA4755E
 ```
 
 https://mybot314.ru/tekegram_catalog/

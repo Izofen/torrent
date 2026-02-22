@@ -1,3 +1,32 @@
+###  Публикация: 1728502   (108327) от 07.06.2024
+
+Billy Taylor - 1945 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monk's Mood (Mad Monk) [2:39]
+02. Solace [2:35]
+03. Night and Day [2:43]
+04. Alexander's Ragtime Band [2:46](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95F59CA3EA78F4ED6012023E6F05C549E9F053E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728507   (108325) от 07.06.2024
 
 Sonny Stitt - 1946 – 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
@@ -716,35 +745,6 @@ VA - Jazzy Covers 90's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59113C1D27A28727D7EAE5AE8F4EC9742F019922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729597   (108034) от 12.06.2024
-
-VA - Alluring Relaxing Mellow Soothing Jazz Playlist (2024) [FLAC |Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Guessing Game (4:17)
-02. Chillaxing Jazz Kollektion - Send My Love (4:08)
-03. Chillaxonic - Oasis (4:58)
-04. Konstantin Klashtorni - Let's Chill (5:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C400FB95EBB87C741009B15486764FBC913817A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

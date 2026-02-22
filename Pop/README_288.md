@@ -1,3 +1,90 @@
+###  Публикация: 1590619   (187817) от 16.11.2022
+
+C.C. Catch - Hear What I Say (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Hour
+02. Big Time
+03. Love Away
+04. Give Me What I Want(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6031F628872E0D581F2520A0CD2473D3D7F6F51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590920   (187814) от 16.11.2022
+
+C.C. Catch - Super Disco Hits (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreak Hotel (''Room 69'' Mix)
+02. One Night's Not Enough (Maxi Version)
+03. Back Seat Of Your Cadillac
+04. I Can Lose My Heart Tonight (Extended Club Remix)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E73DD72817280B622B30C1BA7B23C95D6092575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590798   (187813) от 16.11.2022
+
+C.C. Catch - Super 20 (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Kiss
+02. Soul Survivor
+03. 'Cause You Are Young
+04. Heaven & Hell(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836D8E9ED0655743524A44DBA5CDF10FFC24DCF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591069   (187811) от 16.11.2022
 
 Tempo Rubato - Music '85 (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Disco>
@@ -654,93 +741,6 @@ Dead Blonde - 3 альбома, 6 синглов (2020-2022) [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14E9D34ECD698F5B6B90839CB8A841DFCC4A853F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591609   (185214) от 20.11.2022
-
-Various - Greatest Hits Of The 90's (2004) 8 CD Box [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxi Priest - Close To You (3:59)
-02. Dignity - Talk To Me (4:27)
-03. Shara Nelson - Uptight (5:08)
-04. Carleen Anderson - Mama Said (4:06)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Reggae, PopПродолжительность: 08:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365CDDCA45DE567A3BB6616F792603E28E0E1EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426755   (185108) от 26.11.2020
-
-Caroline Vreeland - Notes On Sex & Wine (2020) [MP3|320 Kbps] <Pop, Jazz, Blues>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185108.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stay Drunk With Me (3:51)
-2. Madonna Whore (3:11)
-3. Love Is Here (4:00)
-4. Drinking For 2 (4:11)(   Читать дальше...   )Жанр: Pop, Jazz, BluesПродолжительность: 00:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CFA821C574BD18EF199D8B963AFDFBA39F2CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664723   (184869) от 27.09.2023
-
-Екатерина Шаврина - Понарошку (2002) [FLAC|Lossless|tracks + .cue]<Retro, Folk>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Понарошку
-02. Пойдем со мной
-03. Все было несерьезно
-04. Любовь уходит не спеша(   Читать дальше...   )Жанр: Retro, FolkПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A4EA6E06902FA2A301BFDA2D5EAFC503CDB7A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

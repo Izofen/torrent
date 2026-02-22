@@ -1,32 +1,3 @@
-###  Публикация: 1085831   (154903) от 23.12.2016
-
-John Coltrane - Blue Train (1957) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blue Train [10:44]
- 02.Moment's Notice [09:11]
- 03.Locomotion [07:15]
- 04.I'm Old Fashioned [07:59](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D24C9029E54402E48E1D3D303C6C33855AB068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084860   (154840) от 23.12.2016
 
 Santiago Lara - Flamenco Tribute To Pat Metheny (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Latin, Folk>
@@ -745,6 +716,35 @@ Tape Five - The Roaring 2020s (2019) [FLAC|Lossless|image + .cue] <Nu-Jazz, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B560C9614A0533CC5BE4E7B60D24851F3417170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434100   (153602) от 23.12.2020
+
+Trijntje Oosterhuis & Jazz Orchestra Of The Concertgebouw - Wonderful Christmastime (2020) Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's the Most Wonderful Time of the Year [3:33]
+02. Wonderful Christmastime (feat. Candy Dulfer) [4:46]
+03. Someday at Christmas (duet with Jeangu Macrooy) [4:11]
+04. Santa Claus Is Coming to Town [4:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE948C56962DB896883A13F6FE78D724B12C6651
 ```
 
 https://mybot314.ru/tekegram_catalog/

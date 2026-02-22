@@ -1,3 +1,33 @@
+###  Публикация: 874879   (861375) от 04.03.2015
+
+Nikolay Sidorenko Trio - Troika (2014) [FLAC|Lossless]<Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Abkhazia
+02. To Mom with Love
+03. Carusel
+04. Clown
+05. Tunes(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2738D9AEDA4C5936A712CB978EF46BFA45A1B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874865   (861374) от 04.03.2015
 
 Masada (John Zorn) - Vav (Six) (1995) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
@@ -752,36 +782,6 @@ Lee Morgan - Sonic Boom (2012) [FLAC|Lossless]<Jazz, Hard Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:835A6AC24910331D18934F60D2DA434A9CB5336D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875166   (859574) от 05.03.2015
-
-Joni James - Dream A Little Dream Of Me (2015) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. Dream A Little Dream Of Me (02:34)
-002. All Or Nothing At All (03:21)
-003. JI Love You Much Too Much (03:05)
-004. There Will Never Be Another You (03:00)
-005. Can't Get Out Of This Mood (01:44)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F63417C7DF3A11431A23B6EAA7D6BED88B06999
 ```
 
 https://mybot314.ru/tekegram_catalog/

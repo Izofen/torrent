@@ -1,3 +1,32 @@
+###  Публикация: 1216953   (746006) от 02.04.2018
+
+VA - Playing For Change - PFC 2 - Songs Around the World (2011) [MP3|320 Kbps] <Blues-Rock, Reggae, World Music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Little Birds
+02. Gimme Shelter
+03. La Tierra del Olvido
+04. Satchita(   Читать дальше...   )Жанр: Blues-Rock, Reggae, World MusicПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E47E5F85C3BAE2D5362B2AD90EB7C05A8F8082A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217096   (744865) от 03.04.2018
 
 Doug Blair - The End of Chaos (2018) [MP3|320 Kbps] <New Age, Downtempo>
@@ -708,35 +737,6 @@ Latin Jazz Relaxing Music Quartet - Besame Mucho (2014) [MP3|320 Kbps] <Instrume
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61E0FC24D398E90CA5F65D10460DAB48B63BE385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784726   (740273) от 08.05.2014
-
-DelaDap - This Is DelaDap (2014) [FLAC|Lossless]<Ethnopop, World, Electronic, Urban Gypsy, Balkan>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Goal In The End (3:54)
-02. Cash & Chaos (4:03)
-03. Listen Up (feat. Yola B) (3:28)
-04. I Know (3:44)(   Читать дальше...   )Жанр: Ethnopop, World, Electronic, Urban Gypsy, BalkanПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E6DB1376B7E9512B36778CEB6F55D1FF803471
 ```
 
 https://mybot314.ru/tekegram_catalog/

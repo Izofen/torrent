@@ -1,3 +1,32 @@
+###  Публикация: 1043167   (574798) от 15.08.2016
+
+Art Ensemble Of Chicago - Full Force (1980) ECM[FLAC|Lossless|image + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Magg Zelma [19:51]
+ 02.Care Free [00:51]
+ 03.Charlie M [09:19]
+ 04.Old Time Southside Street Dance [05:13](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80DC028C2EEBD84DF62444DABF251FDFF74B793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042950   (574796) от 15.08.2016
 
 VA - 1 год журналу Джаз.Ру: Юбилейный CD (2007) [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Guitar Jazz>
@@ -716,37 +745,6 @@ Blake Aaron - Soul Stories (2015) [FLAC|Lossless]<Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE2C594CA63E05FE94517BEC2FF6EEF4DA7E226F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528482   (571577) от 29.07.2012
-
-Braff Oester Rohrer - The Tide Is In (2001) [FLAC|Lossless]<Bebop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song of Wonderful Things
-02. Mc Braff
-03. Jone's Tones
-04. My Little Suede Shoes
-05. You Don't Know What Love Is
-06. New SongЖанр: BebopПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

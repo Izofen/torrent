@@ -1,3 +1,29 @@
+###  Публикация: 1806932   (65314) от 15.07.2025
+
+Шаблоны - Creatsy - Stationery Scene with Classic Tape-Bound Notebook Mockup - 1107548501 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сцена из канцелярских товаров с классическим макетом блокнота.Формат: PSDРазрешение файлов: 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53EBC62627FF72316F4CECAF5CFCF6E316F7E034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807429   (65202) от 19.07.2025
 
 Шаблоны - Creative Market - Galaxy S24 Mockup - 159305452 [PSD]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:229E628744103AB606EA327485B5284F5B8B964A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789063   (22690) от 02.04.2025
-
-Шаблоны - Creative Market - Vinyl Album Cover Mockup - 10352109 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ищете простой и быстрый макет обложки винилового альбома для презентации своего проекта? Этот макет может подойти вам.Формат: PSDРазрешение файлов: 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D084C1BED86D628FD63F31334FA6729E572B299
 ```
 
 https://mybot314.ru/tekegram_catalog/

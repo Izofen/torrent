@@ -1,3 +1,32 @@
+###  Публикация: 1263652   (286465) от 20.11.2018
+
+VA - Trance The Annual 2019 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rank 1 - L e d There Be Light (Cosmic Gate Remix)
+02. Marcel Woods - Beautiful Mind (Dennis Sheperd Remix)
+03. Joop - The Future (Alex Ender 2018 Festival Mainstage Mix)
+04. Jochen Miller - Revenge (Jochen Miller's Festival Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B1967022698D48B96C202427FF4E21E05A4816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263657   (286463) от 20.11.2018
 
 VA - TranceMission Vol.4 (2018) [MP3|320 Kbps] <Trance>
@@ -713,35 +742,6 @@ VA - Euro Sound Vol. 2 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F6881E31FC23BB557EE993CB5BD2D2D5DD44442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336580   (277520) от 08.11.2019
-
-VA - Black Hole Trance Music (05-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten & Nevve - Freefall (Extended Club Mix) 6:26
-02. Christian Burns - Fire + Ice (Yang Extended Remix) 5:30
-03. Somna feat. HALIENE - Secret (Extended Mix) 6:08
-04. The Spacelovers - Space Lover (Genix Remix) 7:29(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940A1BAE3D3B13EDA3D4FD822AB4F1ADFEAF1042
 ```
 
 https://mybot314.ru/tekegram_catalog/

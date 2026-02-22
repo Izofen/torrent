@@ -1,3 +1,32 @@
+###  Публикация: 1402976   (696044) от 17.08.2020
+
+Curtis Counce - Four Classic Albums (1953 - 1958) 2016, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696044.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Variations On A Motive By Bud [3:47]
+02. Wailing Dervish [4:51]
+03. Further Out [2:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCD20BD298395260C11B42B1214E9A4C766D889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288369   (695937) от 11.03.2019
 
 KAVver. - Losen (2016) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip Hop>
@@ -711,35 +740,6 @@ Ragan Whiteside - Treblemaker (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A521C9F2809CE79179B859BBA066F509B0753B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133662   (693431) от 13.05.2017
-
-Art Pepper - The Complete Surf Ride Plus (1951 - 1954) 2CD, 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693431.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Brown Gold [02:24]
-02. The Foolish Things [02:39]
-03. Surf Ride [03:10](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 02:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29136C8109BAFF84D7A694EF6B18987D71FAAD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

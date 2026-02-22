@@ -1,3 +1,263 @@
+###  Публикация: 1201313   (792869) от 24.01.2018
+
+Black Label Society - Grimmest Hits (2018) [FLAC|Lossless|image + .cue] <Southern, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tramped Down Below
+02. Seasons of Falter
+03. The Betrayal
+04. All That Once Shined(   Читать дальше...   )Жанр: Southern, Groove MetalПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCCC89E27CF9E7D13A5F058E926CF331557C7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201230   (792771) от 24.01.2018
+
+Motorhead - Under Cover (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Breaking the Law 2:33 (Judas Priest)
+02 God Save the Queen 3:19 (Sex Pistols)
+03 Heroes 4:37 (David Bowie)
+04 Starstruck 4:06 (Rainbow)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAFFDC9E5CC88A8038C67776610A36FF70F9EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386943   (792680) от 31.05.2020
+
+Otargos - Ten-Eyed Nemesis (2005) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Havocalypse
+02. Warmachine XXX
+03. Hordes
+04. Necro Aeons(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77674A5D010DC315F065EF8448F56821FA14B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387150   (792587) от 31.05.2020
+
+Katatonia - City Burials (2020) Limited Edition [FLAC|Lossless|image + .cue] <Doom Metal, Depressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Set to Divide (5:29)
+02. Behind the Blood (4:37)
+03. Lacquer (4:42)
+04. Rein (4:21)(   Читать дальше...   )Жанр: Doom Metal, Depressive RockПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1A20C0B003353339AA77A2D7138AED8E6038B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201469   (792226) от 25.01.2018
+
+Lione/Conti - Lione/Conti (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascension
+02. Outcome
+03. You're Falling
+04. Somebody Else(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1410F7A175CC4D04857A0A9913DBB789B48F2EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510165   (792154) от 15.11.2021
+
+Paradoxx - Plan Of Attak - The Complete Worxx (1985) Compilation, Limited Edition, 2021 [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мини-альбом чикагской группы Paradoxx "Plan Of Attak" - один из самых редких релизов хэви-метала.
+Единственный тираж этого EP был уничтожен группой из-за неудачного макета, и было сохранено только 50 копий. Он никогда не продавался в розницу. Лишь несколько экземпляров были розданы прессе и друзьям.
+Спустя годы этот релиз стал Святым Граалем американского (   Читать дальше...   )1. Don't Let Go
+2. Unleashed
+3. Live Free Or Die
+4. Black Siren(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F51224638DD0571F7B7A2ECAFE546E2AA9906CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275039   (791720) от 09.01.2019
+
+Livimørket - Dark Totality (2009) EP [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Totality (39:06)Жанр: Black MetalПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6550EF1A3316E682E6C47F2E2A44BE9901FA57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274841   (791719) от 09.01.2019
+
+1917 - Vision (2004) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     In tenebra
+02.     La vieja sangre
+03.     Piel de mбrtir, carne de asesino
+04.     Mercader de voluntades(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1A1AF4CFDFC00262F31F026E913CAB31BAF306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274843   (791717) от 09.01.2019
+
+Hyelish - Enferma Humanidad (2014) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enferma Humanidad
+02. Sabor a Muerte
+03. Pastores Oscuros
+04. Maldito Seas Jesús(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F264C73847FFBC5E5F41A9ADE3742BECAAE51246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275040   (791716) от 09.01.2019
 
 Mortal Decay - A Gathering of Human Artifacts (1999) Compilation [FLAC|Lossless|tracks + .cue] <Death Metal>
@@ -483,266 +743,6 @@ Sjodogg - Landscapes Of Disease And Decadence (2007) [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BAC34B5A233F411B4396EDA5D12C3F08EAA7EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275330   (790519) от 11.01.2019
-
-Sinbreed - IV (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Under the Sun
-02. Falling Down
-03. Wasted Trust
-04. Into the Arena(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93779E8119F8B2FBE21133B63842FC3DF0F1DEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275329   (790516) от 11.01.2019
-
-Radiant - Radiant (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes I Am
-02. I’m Alive
-03. Silver Linings
-04. You Rock(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39667AE96632CF0D53F648DD420028C511F77BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202083   (790504) от 28.01.2018
-
-Orphaned Land - Unsung Prophets & Dead Messiahs (2018) Limited Edition [FLAC|Lossless|image + .cue] <Middle Eastern Folk, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790504.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1: Unsung Prophets & Dead Messiahs
-
-01. The Cave 08:10
-02. We Do Not Resist 03:24(   Читать дальше...   )Жанр: Middle Eastern Folk, Progressive MetalПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEF40A22E1793E2B9745DD1A93A98A9F1147607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275338   (790486) от 11.01.2019
-
-Metal Church - Damned If You Do (2018) 2CD Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790486.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD I, Damned If You Do
-CD II, Classic LiveЖанр: Heavy Metal, Power MetalПродолжительность: 01:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4632CF42CB3A1A63245D9FF9B150CFCFAED4F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275379   (790481) от 11.01.2019
-
-Crucified Barbara - 4 albums (2005-2014) [FLAC|Lossless|image + .cue | tracks + .cue] <Heavy Metal, Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crucified Barbara - шведская девичья группа, образованная в Стокгольме в 1998 году. Их музыку наиболее точно можно описать, как смешение хэви-метала и рок-н-ролла. Вот что рассказывают о себе сами участницы ВИА: "Всё началось в предместьях Стокгольма, Швеция, в начале 1998 г. Мы начинали в качестве группы агрессивного панк-рока, но закончили как группа энергичного (   Читать дальше...   )Список альбомов:
-2006 | In Distortion We Trust
-2009 | Til Death Do Us Party
-2012 | The Midnight Chase(   Читать дальше...   )Жанр: Heavy Metal, Hard'n'Heavy |Продолжительность: 02:56:52 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A11802A99C146163BBCEF34162876B58FF08CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510768   (790447) от 18.11.2021
-
-Warfield - Master Executor (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master Executor (05:45)
-02. Men, Machines... Memories (04:18)
-03. Breaking the Spell (05:39)
-04. Missing Children (06:01)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5820CB091F5F97D9DF4747A691F09E5C98AFA6DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510830   (790446) от 18.11.2021
-
-Dark Heart - Dark Heart (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBHM>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkest Eyes (04:51)
-02. Cast To Stone (05:42)
-03. Edge Of Dreams (04:59)
-04. Degrees Of Separation (04:56)(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36568C57A69602F5EB34925EDB73BAB1E3114BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510722   (790386) от 18.11.2021
-
-Be'lakor - Coherence (2021) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Locus (10:49)
-02. The Dispersion (1:53)
-03. Foothold (7:19)
-04. Valence (9:10)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842DA829381648E34601A76113301AAA6021B3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510553   (790335) от 18.11.2021
-
-The Three Tremors - The Three Tremors (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Признанные хэви-метал вокалисты Tim «The Ripper» Owens (JUDAS PRIEST, ICED EARTH, YNGWIE MALMSTEEN), Harry «The Tyrant» Conklin (JAG PANZER) и Sean «The Hell Destroyer» Peck (CAGE, DEATH DEALER, DENNER/SHERMANN) объединили свои усилия в новом проекте под названием THE THREE TREMORS.
-Так же в группе участвует прославленный гитарист Dave Garcia, чье упорство разжигает (   Читать дальше...   )01. Invaders From The Sky
-02. Bullets For The Damned
-03. When The Last Scream Fades
-04. Wrath Of Asgard(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72AC493288455FD20D095A8C75E9B01EE9719DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

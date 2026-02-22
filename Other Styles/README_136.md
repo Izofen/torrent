@@ -1,3 +1,32 @@
+###  Публикация: 947844   (374863) от 24.10.2015
+
+Kike Fernandez - 100 Tangos Inolvidables (2010) [MP3|192 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374863.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Adios Pampa Mia
+002 - El Choclo
+003 - Mi Buenos Aires Querido
+004 - Malevaje(   Читать дальше...   )Жанр: TangoПродолжительность: 04:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409BC030AC25D6C836116275267E7CA604D09B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175890   (374343) от 20.10.2017
 
 VA - Astral Dreams. Insomnia Help Sleeping Music (2017) [MP3|320 Kbps] <New Age>
@@ -710,35 +739,6 @@ VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (19
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327209   (365543) от 29.09.2019
-
-Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target Edition / Japan [FLAC|Lossless|tracks + .cue] <Rock, Pop, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taron Egerton, Rachel Muldoon - Don't Go Breaking My Heart (Interlude) [01:34]
-02. Taron Egerton, Richard Madden (2) - Honky Cat [02:34]
-03. Taron Egerton - Pinball Wizard (Interlude) [02:02]
-04. Taron Egerton - Rocket Man [04:31](   Читать дальше...   )Жанр: Rock, Pop, Stage & ScreenПродолжительность: 01:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFE4B52B67F5ED9486A5F31DDD219B2EFAE9FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

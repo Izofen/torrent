@@ -1,32 +1,3 @@
-###  Публикация: 1728512   (108323) от 07.06.2024
-
-Jack McDuff - Legends of Acid Jazz: Brother Jack (1960, 1961) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brother Jack [4:04]
-02. Mr. Wonderful [3:57]
-03. Noon Train [5:56]
-04. Drowsy [3:42](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A953044CA44A2592EC3424C3B91BAAA7D0189145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728640   (108262) от 08.06.2024
 
 Oscar Peterson - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -745,6 +716,35 @@ Michael Brecker - Michael Brecker (1987) 1996, Impulse! [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80E6B65DBA130886CB94F2CF0A7AE1C0704C6FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730285   (107893) от 15.06.2024
+
+Jack Walrath & Hard Corps - Journey, Man! (1996) Evidence [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bouncin' with Ballholzka [8:11]
+02. Ancient Intrigues [6:50]
+03. When Love Has Gone (It Comes Out Like This) [6:08]
+04. Pete's Steps [8:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648604D1E5C945FF2349B736099FD5798DFA7F53
 ```
 
 https://mybot314.ru/tekegram_catalog/

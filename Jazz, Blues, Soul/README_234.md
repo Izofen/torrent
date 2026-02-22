@@ -1,3 +1,90 @@
+###  Публикация: 906769   (643714) от 09.06.2015
+
+Eugene "Hideaway" Bridges - Hold On A Little Bit Longer (2015) [MP3|320 кб/с]<Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Time (4:17)
+02. Hold On A Little Bit Longer (4:32)
+03. Special Lady (3:30)
+04. Love You In Every Way (2:53)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038AA4FC339139A5702D414F39FA15AB69AA34B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905958   (643711) от 09.06.2015
+
+Nico Smoljan & Shakedancers - Nico Smoljan & Shakedancers (2015) [MP3|320 кб/с]<Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booguiebuck (2:06)
+02. Mannish Boy (Feat. Mud Morganfield, Daniel De Vita & Juan Codazzi) (3:41)
+03. Little Blue Girl (Feat. Catuto García & Rafo Grin) (4:02)
+04. You're The One (Feat. Eddie Taylor Jr) (3:09)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA4557A2B8FD2CFD53DF99AA3B0D3927A87D6A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906720   (643703) от 09.06.2015
+
+Sofia Finnila - Everything I Love (2008) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheek to Cheek [05:00]
+02. So in Love [04:30]
+03. Boy Next Door [05:34]
+04. Everything I Love [04:48](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38351C7E767CB3F99E925A2A16C5CA820BE4805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906714   (643698) от 09.06.2015
 
 Duke Ellington - Meets Coleman Hawkins And John Coltrane (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz, Hard Bop>
@@ -664,93 +751,6 @@ Steve Smith - Viewpoint (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F03F077D7E68DAAB9C7196528F7B32089422B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033077   (642173) от 09.07.2016
-
-Michele Hendricks - A Little Bit of Ella (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Georgia Brown
-02. How High the Moon
-03. Love for Sale
-04. It Don't Mean a Thing(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA2BC62FAC748C0A5B9A704E919D90D36256917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032896   (642112) от 09.07.2016
-
-Royal Southern Brotherhood - Don't Look Back (2015) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Be Free (5:25)
-02. Reach My Goal (5:00)
-03. Don't Look Back (4:59)
-04. Hit Me Once (4:37)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600AF6B867E52D7CFA724F6563947418F224FE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032965   (641897) от 09.07.2016
-
-VA - Jazz: Sexy Saxophones (2015) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Garzone - My One and Only Love (7:58)
-02. Christina Von Bulow, Soren Kristiansen, Jesper Lundgaard & Eliot Zigmund - Tenderly (6:47)
-03. Hugo Rasmussen - Stardust (5:42)
-04. Jakob Dinesen - That's All (7:09)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEBFBCC52804F87EC8A081B052AC53C039A46C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

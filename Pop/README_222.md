@@ -1,3 +1,119 @@
+###  Публикация: 1576584   (364029) от 15.09.2022
+
+E-Type - Made In Sweden (1994) [OGG Vorbis|484 Kbps] <Electronic, Pop, 	Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Made  In  Sweden
+02. Set  The  World  On  Fire
+03. This  Is  The  Way
+04. So  Dem  A  Com(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92805B316A502422230203723BE64DA6E4ACE67E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255576   (363627) от 18.10.2018
+
+Thomas Anders - Ewig mit Dir (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Leben ist jetzt
+02. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+03. Ewig mit Dir
+04. Wir sind eins(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAEE24576872B04DAAF9376731CCBAA876112EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328301   (363406) от 30.09.2019
+
+Ryan Paris - 1Album + 1Single (1983, 1984) Vinyl [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris On My Mind (5:39)
+02. Harry's Bar (5:18)
+03. Bluette (4:25)
+04. Marianne (2:59)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEDA2093A87DEFC16A7FF3FC61698689154EF4F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950862   (363309) от 29.10.2015
+
+Shy'm - A nos dix ans (2015) 2CD [OGG| 454-561 кб/с]<French Pop, Dance, R&B, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363309.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: Les incontournables
+01. Femme de couleur
+02. Oublie-moi
+03. T'es parti(   Читать дальше...   )Жанр: French Pop, Dance, R&B, SynthpopПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4B56EF2EC4015CD11F6D4E751587BC0B463F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950989   (363302) от 29.10.2015
 
 Desireless - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
@@ -637,129 +753,6 @@ Al Bano & Romina Power - Vincerai (Their Greatest Hits) (1991) [FLAC|Lossless]<I
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273100   (359682) от 16.11.2013
-
-Pandora - 3 альбома (1993-1996) [FLAC|Lossless]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_359682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pandora (Anneli Magnusson) - Шведская певица, её Профессиональная музыкальная карьера началась в 1993 году, с выходом дебютного сингла "Trust Me", который оказаться на верхних строчках Шведских хит парадов, получил звание «сингла года» и удостоился «золотого статуса».
-Дебютный альбом "One Of A Kind", оправдал ожидания получив "золотой статус" (   Читать дальше...   )01. Prologue: Echoes
-02. It's Alright
-03. A Little Bit (Radio Version)
-04. The Sands Of Time(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:24:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 254961   (359583) от 06.11.2010
-
-VA - Best Italo Disco Hits Remixed (3CD) (2007) [MP3|320 kbps]<Dance, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359583.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ken Laszlo - Hey Hey Guy (3:35)
-2. Den Harrow - Push Push ( Captain Kook Remix ) (3:23)
-3. Gigi DґAgostino - Wellfare ( Gigi & Pandolfi P.M. ) (3:18)
-4. Di Fumetti feat. D-JMC - Di Fumetti ( Video Edit ) (3:15)
-5. Max Him - Lady Fantasy 2003 (3:54)
-6. Carajillo - Fotonovela (3:50)
-7. 2 Eivissa - Fire In The Sky (3:32)
-8. Mike Mareen Vs. Da-Freaks - Love Spy (3:33)
-9. Kelly G. - Ouragan ( Irresistable ) (3:32)
-10. Fabrizio Faniello - Love On The Radio ( Video Edit ) (3:18)(   Читать дальше...   )Жанр: Dance, Italo-DiscoПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64F012E6749569712779B3779F46C438509227F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577138   (359509) от 17.09.2022
-
-Ялла - 2 Albums (1976, 2002) [MP3|320 Kbps] <Pop, Folk, Rock>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Караван [00:04:24]
-02. Азия [00:04:24]
-03. Уч кудук [00:04:28]
-04. Шахрисабз [00:03:46](   Читать дальше...   )Жанр: Pop, Folk, RockПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71C8DD03C98C050C8A857376D736BB6EC5D41D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831263   (359067) от 02.10.2019
-
-Karel Gott - Music History (2001) [MP3|192 кб/с]<Pop, Euro-Pop, Vocal Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Měl jsem rád a mám (Soleado)
-02.  Tvůj stín se má
-03.  Záhadnou lásku mám
-04.  Kufr iluzí(   Читать дальше...   )Жанр: Pop, Euro-Pop, Vocal PopПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237540E5549E1B75F3055752A457194A64FD1D99
 ```
 
 https://mybot314.ru/tekegram_catalog/

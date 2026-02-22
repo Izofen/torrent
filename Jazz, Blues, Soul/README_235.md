@@ -1,3 +1,90 @@
+###  Публикация: 1033077   (642173) от 09.07.2016
+
+Michele Hendricks - A Little Bit of Ella (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Georgia Brown
+02. How High the Moon
+03. Love for Sale
+04. It Don't Mean a Thing(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA2BC62FAC748C0A5B9A704E919D90D36256917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032896   (642112) от 09.07.2016
+
+Royal Southern Brotherhood - Don't Look Back (2015) [MP3|320 Kbps] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Be Free (5:25)
+02. Reach My Goal (5:00)
+03. Don't Look Back (4:59)
+04. Hit Me Once (4:37)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600AF6B867E52D7CFA724F6563947418F224FE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032965   (641897) от 09.07.2016
+
+VA - Jazz: Sexy Saxophones (2015) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Garzone - My One and Only Love (7:58)
+02. Christina Von Bulow, Soren Kristiansen, Jesper Lundgaard & Eliot Zigmund - Tenderly (6:47)
+03. Hugo Rasmussen - Stardust (5:42)
+04. Jakob Dinesen - That's All (7:09)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEBFBCC52804F87EC8A081B052AC53C039A46C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906933   (641855) от 10.06.2015
 
 Elvin Jones - Going Home (2005) [FLAC|Lossless]<Jazz, Post-Bop>
@@ -663,93 +750,6 @@ Andre Fisichella - Seduction (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97FE864630BC74A4E19611B232169E4BB7409662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033126   (640202) от 10.07.2016
-
-Royal Southern Brotherhood - The Royal Gospel (2016) [MP3|320 Kbps] <Blues, Gospel Southern Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where There's Smoke There's Fire (04:39)
-02. I've Seen Enough To Know (05:03)
-03. Blood Is Thicker Than Water (06:05)
-04. I Wonder Why (04:22)(   Читать дальше...   )Жанр: Blues, Gospel Southern RockПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71D6F752FB528E6ADC6E1CE177B43E4F65B847E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033251   (640108) от 10.07.2016
-
-VA - Chilled Jazz Vol.2 (2016) [MP3|320 Kbps] <Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Van - Luxury Of Asia (7:24)
-02. Openzone Bar - Where No One Can Hear You (4:45)
-03. Luca Fioretti - Carry On Being Yourself (5:31)
-04. Don Shiva - News (4:17)(   Читать дальше...   )Производство: Floating MusicЖанр: Jazz, LoungeПродолжительность: 01:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79E5723677576E757AC415BC8DA9DE7582B1CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033369   (640100) от 10.07.2016
-
-Layla Zoe - Breaking Free (2016) [FLAC|Lossless|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640100.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Backstage Queen
-2.Why Do We Hurt The Ones We Love
-3.Wild One
-4.Highway Of Tears(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5204E028EC7624D0214453108A0320EA70163E98
 ```
 
 https://mybot314.ru/tekegram_catalog/

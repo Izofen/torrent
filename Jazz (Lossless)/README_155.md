@@ -1,3 +1,32 @@
+###  Публикация: 1297721   (603143) от 24.04.2019
+
+Louis Hayes - Return Of The Jazz Communicators (2014) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul-Leo [8:08]
+02. Shape Shifting [6:58]
+03. Lush Life (Intro) [2:27]
+04. Lush Life [6:30](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F71CA1F8AC2C7FFF6F11FC1BE9FBB510770C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297695   (603114) от 24.04.2019
 
 Low Kick Collective - II (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
@@ -715,35 +744,6 @@ Andy LaVerne Trio - Bud's Beautiful (1996) 2010, SteepleChase [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94D16CBDC77FC0A67E51CC8AF44A95FE21C94B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149359   (601225) от 10.07.2017
-
-Stan Kenton - New Concepts of Artistry in Rhythm (1952) 1989, Capitol [FLAC|Lossless|tracks + .cue] <Big Band, Progressive Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (This is an Orchestra!) [10:00]
-02. Portrait of a Count [03:17]
-03. Young Blood [03:15]
-04. Frank Speaking [03:14](   Читать дальше...   )Жанр: Big Band, Progressive JazzПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8E6B1B5B19934F894CD886C082210BD5B79FD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 998487   (868101) от 20.03.2016
+
+VA - Клубный мега хит в машину (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868101.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Estradarada - Мне Нравится (08:03)
+2. Alex Kafer & Lera - Ничего Не Говори (06:23)
+3. Twoloud, Showtek - Move (05:21)
+4. Yelawolf feat Eminem - Best Friend (05:14)(   Читать дальше...   )Жанр: PopПродолжительность: 08:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAE022CA353C01F829FE61D8A5CAFF16E115FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375103   (867102) от 13.04.2020
 
 VA - Popular Hits Of The 60s (2020) [MP3|320 Kbps] <Pop, Retro>
@@ -713,35 +742,6 @@ VA - Положительный заряд Hit FM (2017) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:229CE1596617DEBD23FCB09369A55B6CF0CD6F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109904   (855616) от 01.03.2017
-
-VA - Автозвук. Отборный зимний хит. Часть 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855616.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Ярчинская - Станем Ближе 3:41
-002. Feli - Timpul 3:23
-003. Peg Parnevik - Sthlm Nights 3:21
-004. Olstan Van Guard - Капли Дождя 4:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4602014C21EA040FDD78A4CF65A8B413517669F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

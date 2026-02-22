@@ -1,65 +1,3 @@
-###  Публикация: 454198   (76892) от 18.02.2012
-
-Sinead O'Connor - How About I Be Me (And You Be You)? (2012) [MP3|320 kbps]<Indi Pop, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. 4th And Vine
-02. Reason With mé
-03. Old Lady
-04. Take Off Your Shoes
-05. Back Where You Belong
-06. The Wolf Is Getting Married
-07. Queen Of Denmark
-08. Very Far From Home
-09. I Had A Baby
-10. V.I.P.Жанр: Indi Pop, Folk RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D837D2F3D744A74661368DA208538436C2BA8566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448121   (75219) от 10.02.2012
-
-Katharina Nuttall -3 альбома (2007-2011) [MP3|320 kbps]<Indie Electronic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Катарин Нутталл (Katharina Nuttall) - норвежская певица, композитор и продюсер. Родилась 14 июля 1972 года в Драммене, Норвегия. Nuttall живет в Стокгольме, Швеция.
-Элегантная, красивая, с потрясающим загадочно-ночным вокалом женщина. Все, что она творит вместе с музыкантами, это ее стиль - самобытный и неповторимый. И трудно поддающийся точной классификации.Жанр: Indie, Electronic, RockПродолжительность: 01:56:93
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196A7BDA4B7AE3B00A6D6E298FB750233B13875B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 450134   (75213) от 10.02.2012
 
 The Cranberries - Tomorrow [Single] (2012) [MP3|256 kbps]<Rock>
@@ -768,6 +706,64 @@ The Cure - Happy The Man (1984) [MP3|320 Kbps] <New Wave, Post-Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D1C0F6A7DECE3D046BEBBEDD4F21683C2626F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753987   (40896) от 09.10.2024
+
+Coldplay - Moon Music (Full Moon Edition) (2024) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Moon Music (Elodie) [2:47]
+02 - feelslikeimfallinginlive [4:37]
+03 - The Karate Kid [2:56]
+04 - We Pray (Be Our Guest) [3:54](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D16E77A96C84C49CFD000E936FC8AB9381C097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754601   (40704) от 11.10.2024
+
+The Offspring - Supercharged (2024) [MP3|320 Kbps] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking Out For #1 (3:17)
+02. Light It Up (2:53)
+03. The Fall Guy (2:35)
+04. Make It All Right (3:34)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2312B9353DA653A30523AD60B3B5E621666E8EC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

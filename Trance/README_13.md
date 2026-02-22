@@ -1,3 +1,32 @@
+###  Публикация: 1125541   (768106) от 15.04.2017
+
+VA - Unique Sense In Miami (Mixed by Abstract Vision) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Abstract Vision - Vertex (Radio Edit)  3:36
+02.  D'Jaeger - Genesis (Radio Edit)  2:38
+03.  Iversoon & Alex Daf vs Aurora Night - Hover (Radio Edit)  3:49
+04.  D'Jaeger - Chronicle (Radio Edit)  2:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1E09494534FB19C952754FE65E48ACB3120F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213912   (766597) от 19.03.2018
 
 VA - Silent Shore Selections Top 20: Winter (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -716,35 +745,6 @@ VA - Dream Dance Vol 92 (2022) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1368BC5322EBA0BDAE32F98C039C02E0FF56D30C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216207   (753064) от 29.03.2018
-
-VA - Grotesque Spring Essentials (Mixed by Ram & 2Nd Phase) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DIM3NSION - Agarimo (Extended Mix)
-02. Ferry Corsten - Lonely Inside (Extended Ferry Fix)
-03. Skylex - We Were (Extended Mix)
-04. RAM - Serengeti (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0317B5C229F06A77E31DB7D5EC0F2836CE070D7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

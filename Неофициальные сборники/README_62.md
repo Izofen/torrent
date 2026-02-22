@@ -1,3 +1,290 @@
+###  Публикация: 1361543   (954190) от 20.02.2020
+
+VA - Absolute Reggae (2020) [MP3|320 Kbps] <Reggae, Ska, Dancehall, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954190.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wailing Trees - Nos Jours Égarés
+002. Ultimate Rejects - Disorder
+003. Hi-Fi X Eva Lazarus - Amsterdam
+004. Solaion - Esmeralda(   Читать дальше...   )Жанр: Reggae, Ska, Dancehall, SoulПродолжительность: 06:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43B38B485FE84A2F694D41FA8C2AE97F510A161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361727   (954163) от 20.02.2020
+
+VA - не Громкие новинки недели 56 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954163.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.CYGO - Девочка С Красивыми Глазами (2:46)
+2.Dakooka - Слова Солгать (3:04)
+3.Daria Yanina - Темнота (3:14)
+4.Dava - Последний Танец (3:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821AAB89FBE97AC9163D42FB9FEF731949587ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359581   (954141) от 20.02.2020
+
+Юрий Сучков - ''Муму. Голливудская версия'' (single) (2020) [MP3|320 Kbps] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ''Муму. Голливудская версия'' (single)Жанр: ChansonПродолжительность: 00:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B4903CECC8D3B0F59695BCF53C2D768A0C7514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089163   (954036) от 02.01.2017
+
+VA - Worlds Trance Higher (2016) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabio XB & Liuck Feat Roxanne Emery - Nowhere To Be Found (Craig Connelly Remix) 6:23
+02. Will Atkinson - Dusk 7:58
+03. Ron Van Der Beuken And Bodo Kaiser - Rising Flute (Ron Van Den Beuken Mix) 5:58
+04. Kukuzenko - Dreamer (Original Mix) 7:09(   Читать дальше...   )Жанр: Trance, Harmonic, Energy, Emotional, Uplifting, ProgressiveПродолжительность: 06:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA580B7BD31FB824577251993CAA4EE26A2A77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088774   (954023) от 02.01.2017
+
+VA - Стопудовые зимние хиты. Сборник № 2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954023.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Destiny Chukunyere - Embrace 3:31
+002. Смирнов & Компания & Мария Богомолова - Шипы У Роз 3:17
+003. Kentera - Barking At The Moon 3:26
+004. Michael Buble - Today Is Yesterday's Tomorrow 3:25(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C17134012F0A4176B0B44BC97D043A9583BE77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088777   (954021) от 02.01.2017
+
+VA - Отрывайся с лучшими хитами. Выпуск № 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954021.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christina Novelli - Same Stars 3:42
+002. Honne - Woman 4:26
+003. Nero - The Thrill 3:30
+004. John Newman Feat. Charlie Wilson - Tiring Game 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE42341586ADDC0ED39D422C70498D0307D12A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088787   (953999) от 02.01.2017
+
+VA - Зимние блатные песни на Шансоне (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953999.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Денис Майданов - Что Оставит Ветер 4:18
+002. Александр Назаров - Лабиринты Любви 4:01
+003. Ирина Коган - Кавказская Душа 3:52
+004. Akritis - Разбитая Мечта 5:07(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B59A7C2E399AFF5448E2326C7FB1CD175AB78C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089027   (953915) от 02.01.2017
+
+VA - Начинаем отмечать! №4 (2016) [MP3|192-256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953915.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elena Paparizou - Misi Kardia
+002. Daddy Yankee - Vaiven
+003. Ivan Kit - Джексон
+004. Элемент - Музыка(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E0DC532394063D8E426DB51246A07F8F61971D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088780   (953913) от 02.01.2017
+
+VA - Зимний драйв 50/50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953913.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мали - Люблю 3:11
+002. Jojo Feat. Alessia Cara - I Can Only 3:21
+003. Zac Samuel & Moon Willis Feat. Taya - Never Letting Go 3:56
+004. Fargo Feat. Arma - Танцемания 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3954BA75A87A47CD83E58FA5DF8598453B56024C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089026   (953910) от 02.01.2017
+
+VA - Начинаем отмечать! №3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953910.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дарья Кумпаньенко - Полюби Меня Сильно
+002. Burito - Спешите Любить
+003. Александр Прокофьев - Ты Мне Не Веришь
+004. Дискотека Авария & Филипп Киркоров - Яркий Я(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A301ADE05219BBB292D756B404A8912963683C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088792   (953901) от 02.01.2017
 
 VA - Масть крестовая. Зима на радио Шансон. Сборник № 8 (2016) [MP3|256 Kbps] <Шансон>
@@ -461,296 +748,6 @@ VA - Зимние мега хиты. Версия 50/50 (2016) [MP3|256 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A511C556F283F8199A9C3E597FBB0C861C63639A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089093   (953695) от 02.01.2017
-
-VA - Опасные Связи 8: Сборник Шансона (2016) [MP3|256-320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953695.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алена Шарапова - Детство
-002. Татьяна Чубарова - А Он Мне Нравится
-003. Рада Рай & Леонсия Эрденко - Косы Ивы
-004. Андрей Орельский - Вьюга(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757BA7CAB231C9CECA9FA4278BE1D59A80AD31CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088779   (953692) от 02.01.2017
-
-VA - Снежный коктейль. Зарубежная версия (2016) [MP3|256 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953692.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kat Deluna - Waves 3:49
-002. Borgore - Best 3:51
-003. The Weeknd - A Lonely Night 3:40
-004. The Weeknd - Secrets 4:26(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79ACA7493FA54724F907ECABA2FCDD5F9CA98FDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088778   (953690) от 02.01.2017
-
-VA - Музыкальные новинки. Only Best Hits. Сборник № 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953690.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Olly Murs - Before You Go 3:51
-002. The Weeknd - Love To Lay 3:44
-003. Pharrell Williams - Able 3:02
-004. Тимур Рахманов - Я Так Люблю 4:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1BEF057F9B24C0467F1180D888B97B1B904FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089024   (953610) от 02.01.2017
-
-VA - Начинаем отмечать! №2 (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robbie Williams - When You Know
-002. Spada Feat. Elen Levon - Don't You Worry
-003. Banks - Mind Games
-004. Гена Селезнев - День Когда Встретил Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F0416DC44D1AA649F917FBEE65B318DBB6C25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088809   (953593) от 02.01.2017
-
-VA - УЛИ-ганские ПЕСНИ (2016) [MP3|96-320 Kbps] <Поп, Шансон, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953593.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Несчастный Случай - Песня без названия 4:24
-002. Катетер - Люда 3:32
-003. Ленинград - Геленджик 3:12
-004. Рабфак - Новая песня о правде 3:13(   Читать дальше...   )Жанр: Поп, Шансон, РокПродолжительность: 09:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10595B898F89F0747EDBDBF7A12D00D4C87B078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089020   (953523) от 02.01.2017
-
-VA - American Folk Blues (2017) [MP3|320 Kbps] <Folk Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953523.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Al Jones & His Band - Have You Ever Had The Blues 3:11
-002. John Lee Hooker - Lucille 6:07
-003. AJ & The Badcats - Get Used To It 4:51
-004. Blues Guitars United - The House Of The Rising Sun 3:52(   Читать дальше...   )Жанр: Folk Blues, Rock BluesПродолжительность: 07:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272518DF2FBBE5E04848B90CA92D2D67D09317B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088842   (953490) от 02.01.2017
-
-VA - Новогодние песни (1945-2016) [MP3|256-320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953490.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Loud - Santa Claus is comin' to town 4:31
-002. 3 Рубля & MC - Новогодняя (Radmir K Euroвance remix) 4:56
-003. 23-45 feat. 5ivesta Family - Новый год 2:56
-004. 140 Ударов В Минуту - С новым годом 3:41(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 72:14:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA3AA800E1FAE8133B761A882423FD55812970F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089044   (953404) от 02.01.2017
-
-Ozzy Osbourne - The Great & Powerful (2CD) (2017) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gets Me Through
-02. I Just Want You
-03. Crazy Babies
-04. You're No Different(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 02:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA98AF2A32D590C58B52C45A18381D2B9C1E095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088856   (953184) от 02.01.2017
-
-VA - Танцевальная зима. Снежная 100-ка. Часть № 3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953184.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kristina Si - Гасим Свет 3:58
-002. Влад Топалов - Достала Меня 3:25
-003. Iowa - Немею 3:33
-004. Дарья Кумпаньенко - Полюби Меня Сильно 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A51DC28D4363A359B57A269232BC41CA8DA897C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089220   (953183) от 02.01.2017
-
-VA - DFM: Итоговый D-Chart Top50 (2016) [MP3|320 Kbps] <House, Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carla's Dreams - Sub Pielea Mea (Midi Culture Remix) 5:08
-02. KSHMR & Tigerlily - Invisible Children (Extended Mix) 3:45
-03. LP - Lost On You (Swanky Tunes & Going Deeper Extended Remix) 4:36
-04. Calvin Harris - My Way 3:39(   Читать дальше...   )Жанр: House, Pop, Club, DanceПродолжительность: 03:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AB44C4D7B281E797F2F6ACC9DBFF29CFD5911A
 ```
 
 https://mybot314.ru/tekegram_catalog/

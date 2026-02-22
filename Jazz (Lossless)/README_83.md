@@ -1,3 +1,32 @@
+###  Публикация: 1504062   (816131) от 21.10.2021
+
+Tundra Art Ensemble - Sessions 2020 [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Modern Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Mode (6:05)
+02. From Beyond the Forest (11:04)
+03. Harmonia (7:46)
+04. Tema 2 (6:32)Жанр: Dark Jazz, Modern JazzПродолжительность: 00:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67243F3CD0AF0647A8FAEF46C793E63BEEFEF5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503974   (816079) от 21.10.2021
 
 Sadao Watanabe & Richard Bona - One for You: Sadao & Bona Live (2006) JVC [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
@@ -714,35 +743,6 @@ Houston Person - To Etta With Love (2004) HighNote [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A95756CF5CCB23E590A514F1398ADCB50B708F8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118273   (813614) от 25.03.2017
-
-Bill Evans - Homecoming (1979) 1999, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Re: Person I Knew [04:50]
- 02.Midnight Mood [06:47]
- 03.Laurie [08:08]
- 04.Song From MASH [04:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BA4D568A55BDA25000883BF801754D807BA560
 ```
 
 https://mybot314.ru/tekegram_catalog/

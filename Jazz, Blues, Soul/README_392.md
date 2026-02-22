@@ -1,3 +1,61 @@
+###  Публикация: 1080752   (283068) от 10.12.2016
+
+The Jive Aces - Spread A Little Happines (2015) [FLAC|Lossless|image + .cue] <Neo-Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spread A Little Happiness (2:43)
+02. Bare Necessities (2:09)
+03. Dolce Vita (3:15)
+04. L.O.V.E (2:49)(   Читать дальше...   )Жанр: Neo-SwingПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7935D3A468003911701CEB4F8D25F0415DBB720A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081247   (283063) от 10.12.2016
+
+Bert Kaempfert & sein Orchester - Seine größten Erfolge (1993) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderland By Night (3:15)
+02. Cherokee (3:43)
+03. Lullaby For Lovers (2:21)
+04. A Swingin' Safari (3:08)(   Читать дальше...   )Жанр: Jazz-Pop, Easy ListeningПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836BC4E9626B1EDB1820EE10DF122E5BD42B8C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081549   (283034) от 10.12.2016
 
 Willie Colon & Ruben Blades - Siembra (1978) 1991, Musicavision[FLAC|Lossless|tracks + .cue] <Latin Jazz, Salsa>
@@ -107,35 +165,6 @@ Isao Suzuki Trio / Quartet - Blow Up (1973) 2013, Think! Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F671DCFABAB51EDB8A1490BA633BF600155AC081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261296   (282845) от 12.12.2014
-
-VA - Collection Jazz 19 CD (1949 - 1997) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_282845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Art Blakey - Caravan (1962)
-Art Blakey & The Jazz Messengers - Moanin' (1958)
-Bud Powell - The Amazing Bud Powell, Volume One (1949)(   Читать дальше...   )Жанр: JazzПродолжительность: 14:49:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -716,35 +745,6 @@ Prince Lasha - Inside Story & Search For Tomorrow (1965/1974) 2001, Enja[FLAC|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F9AA838B64F987C2269B5981BEC209B938AD297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082099   (280917) от 11.12.2016
-
-Dave Kowaleski - New Horizons (2016) [MP3|320 Kbps] <Crossover Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  New Horizons  (03:47) 
-02|  Down on the Pch  (03:22) 
-03|  Dancing in My Dreams  (03:46) 
-04|  The Drifter  (04:02) (   Читать дальше...   )Жанр: Crossover Jazz, Piano JazzПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F355005121B2ED06A5C2E0DD47B76AE1ACDEEA2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

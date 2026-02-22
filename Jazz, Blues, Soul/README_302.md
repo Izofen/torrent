@@ -1,3 +1,93 @@
+###  Публикация: 1316980   (503371) от 29.07.2019
+
+Chick Corea - The Spanish Heart Band: Antidote (2019) Concord Jazz [FLAC|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antidote [9:15]
+02. Duende [10:13]
+03. The Yellow Nimbus - Part 1 [5:48]
+04. The Yellow Nimbus - Part 2 [5:57](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B14F03BFC00AEB167CD01FED2D013B6EA11E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540795   (503317) от 29.08.2012
+
+The Cinematic Orchestra - Presents In Motion #1 (2012) [FLAC (tracks+cue)|Lossless]<Contemporary Jazz, Future Jazz, Downtempo>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Necrology
+02. Lapis (ft. Austin Peralta)
+03. Outer Space (ft. Dorian Concept & Tom Chant)
+04. Dream Work (ft. Dorian Concept & Tom Chant)
+05. Entr'acte
+06. Regen (ft. Grey Reverend)
+07. ManhattaЖанр: Contemporary Jazz, Future Jazz, DowntempoПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934574   (502635) от 05.09.2015
+
+Bheki Mseleku - Celebration (1992) /World Circuit/[FLAC|image+.cue]<Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celebration [07:52]
+02. One For All - All For One [07:46]
+03. Angola [07:27]
+04. Blues For Afrika [06:20](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9DCB397A82E5D3A300F63198E2CBD4425BD3ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317201   (502622) от 30.07.2019
 
 Jean-Loup Longnon & His New York Orchestra (1988) Atlantic Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Big Band>
@@ -665,94 +755,6 @@ VA - Jazz Ladies & Stan Kenton (1996) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380515   (500101) от 27.08.2011
-
-Hot Chocolate - Box Selection: Their 8 RAK Albums 1974-1983 (2011, Remastered) [FLAC|Lossless]<Funk, Soul, Disco>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hot Chocolate — британская поп-группа, образованная в 1969 году году в Брикстоне, Лондон, Англия, певцом и бас-гитаристом Эрролом Брауном, и исполнявшая софт-рок с элементами фанка и музыки соул.
-
-Первое название группы звучало, как The Hot Chocolate Band, но продюсер Микки Мост сократил название. "Горячий шоколад" начали с того, что записали реггей-версию песни «Give Peace A Chance» и за разрешением на выпуск обратились в Apple Records. Джону Леннону их версия настолько понравилась, что группа подписала с лейблом контракт, но этот союз из-за распада The Beatles оказался недолговечным.
-
-В первую десятку британского хит-парада входили 12 синглов и 4 альбома группы: на 1-е место поднимались сингл «So You Win Again» (1977), а также сборники The Very best Of… (1987) и Their Greatest Hits (1993). В 1986 году группа распалась, а в 1992 году появился совершенно новый состав Hot Chocolate, который гастролирует по сей день.Жанр: Funk, Soul, DiscoПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564483   (499750) от 19.07.2022
-
-Max Roach Double Quartet - Bright Moments (1987) Soul Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bright Moments [9:14]
-02. Elixir Suite [9:47]
-03. Hi Fly [7:51]
-04. Tribute to Duke and Mingus [5:24](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB335F86B2078C33430661F59CB83D825E507649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564482   (499744) от 19.07.2022
-
-Max Roach Double Quartet - Easy Winners (1985) Soul Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bird Says [12:54]
-02. Sis [6:38]
-03. A Little Booker [13:56]
-04. Easy Winners [4:55]Жанр: Hard Bop, Post-BopПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB6E0C0F7983CC7A5EF1EC989D4868C23481D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

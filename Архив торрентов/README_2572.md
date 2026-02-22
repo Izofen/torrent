@@ -1,3 +1,29 @@
+###  Публикация: 517696   (645719) от 02.07.2012
+
+[Wallpapers] Nature Wallpapers (02.07.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE517E9EB3868C9C6F613C1FD444493E81975B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517549   (645712) от 02.07.2012
 
 [Wallpapers]Cool Mixed HQ Colorful Wallpapers 03
@@ -691,32 +717,6 @@ Disarmonia Mundi - Cold Inferno (2015) [FLAC|image+.cue]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5D2984996A8457E0B3BAAC2C1CB0DF1B06AFA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906260   (645525) от 08.06.2015
-
-VueScan Pro 9.5.14 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645525.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459D842F08B08D4EEDC56C1663CA197629D34199
 ```
 
 https://mybot314.ru/tekegram_catalog/

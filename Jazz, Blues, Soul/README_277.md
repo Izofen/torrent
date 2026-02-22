@@ -1,3 +1,90 @@
+###  Публикация: 1235416   (560462) от 11.07.2018
+
+Howard "Guitar" Luedtke And Blue Max - Face To Face With The Blues (1996) False Dog Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560462.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You Make Me Feel Alright
+2. Your Love Is Hard On Me
+3. Howywood
+4. Meanest Gal I Know(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67507D6111C151E11A448574C28F66AEDC25F4B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235408   (560456) от 11.07.2018
+
+Keith Jarrett, Gary Peacock, Jack DeJohnette - After The Fall (1998) 2CD, 2018, ECM Records [FLAC|Lossless|image + .cue] <Contemporary Jazz, Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560456.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Masquerade Is Over [15:50]
+02. Scrapple From The Apple [8:47]
+03. Old Folks [9:23](   Читать дальше...   )Жанр: Contemporary Jazz, Post BopПродолжительность: 01:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC9C7D01626EA15CD95025F4F8BEF6BB8D5DF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153288   (560207) от 26.07.2017
+
+Vladimir Tolkachev (Владимир Толкачев) Big Band & John Downes (2010) Ermatell Records [APE|Lossless|image + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night And Day [04:15]
+02. How Insensitive [03:27]
+03. Festival Of Rhythm [05:04]
+04. What Are You Doing The Rest Of Your Life [03:55](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC371313C2C96567B545FE4169F0E97FDE5C3319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153282   (560205) от 26.07.2017
 
 Barney Wilen - French Ballads (1987) Ida [WavPack|Lossless|image + .cue] <Mainstream Jazz>
@@ -669,93 +756,6 @@ Hadley Caliman - Iapetus (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:812B777E0FCB39214EEA0F553A440173BBB2D0BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235566   (558752) от 12.07.2018
-
-Teddy Charles - Seven Classic Albums (1956 - 1959) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558752.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Variations On A Motive By Bud [4:19]
-02. Wailing Dervish [4:29]
-03. Further Out [5:42](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 04:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8625D809940D528AFEEB4988929B4D744863A40A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305202   (558386) от 29.05.2019
-
-John Kirby - 1941-1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coquette [3:02]
-02. Royal Garden Blues [1:45]
-03. Close Shave [2:32]
-04. Bugler's Dilemma [2:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FCF662F4E36B29C9BAC73A624F39768FA5F460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153591   (558266) от 27.07.2017
-
-Wes Montgomery - Down Here on the Ground (1989) [FLAC|Lossless|image + .cue] <Hard Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind Song (2:19)
-02. Georgia On My Mind (2:44)
-03. The Other Man's Grass Is Always Greener (2:34)
-04. Down Here On The Ground (3:38)(   Читать дальше...   )Жанр: Hard Bop, Contemporary JazzПродолжительность: 00:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64DB72CEFCE8B2F18C7E82D9D3B63305D43D69E
 ```
 
 https://mybot314.ru/tekegram_catalog/

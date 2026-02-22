@@ -1,3 +1,32 @@
+###  Публикация: 1689532   (124529) от 03.01.2024
+
+Otilia Donaire - Bluesin' It Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrong Side Of 45 (2:47)
+02. Without You (3:23)
+03. The Queen Bee (3:16)
+04. Love Sick Blues (2:44)(   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B11AAB09253D5299465C60FF629414E33E7CDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689521   (124511) от 03.01.2024
 
 Martha High - Jazz and Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
@@ -716,35 +745,6 @@ Alan Zimmerman - Standards - Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD0B23862FD99BF9CBDC6E53277150E218F160D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691664   (123049) от 13.01.2024
-
-Henry "Red" Allen - 1933 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Gonna Lose Your Gal [3:04]
-02. Dark Clouds [3:05]
-03. My Galveston Gal [3:04]
-04. I Wish I Were Twins [2:48](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, SwingПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9201F5313DE40F4CA76E305F5C5F89D4664D4BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1024936   (714134) от 10.06.2016
+
+Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Joy of Quiet Rain Mix
+02. Soft Focus Ocean Mix
+03. Velvet Morning Rain Mix
+04. In Fields of Peace Ocean Mix(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B50D5D512837B0C2FFE67D04A0860F69449DE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024868   (714083) от 10.06.2016
 
 Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [FLAC|Lossless|tracks] <New Age, Ambient>
@@ -715,35 +744,6 @@ Jed Kurzel - Alien: Covenant / Чужой: Завет (Original Motion Picture S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0413B49AC1FE70E8B02298BACE17326B1D05F8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025614   (708203) от 13.06.2016
-
-Jonn Serrie - Flightpath (1989) Reissue, 1995, Miramar, BMG [MP3|320 кб/с] <Ambient, New Age, Space>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flightpath (4:35)
-02. Sky Safari (10:28)
-03. Muroc (6:46)
-04. Outreach (4:30)(   Читать дальше...   )Жанр: Ambient, New Age, SpaceПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73CE757D09D2F8CCAF605AEBDA548B76027877C
 ```
 
 https://mybot314.ru/tekegram_catalog/

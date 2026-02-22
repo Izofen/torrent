@@ -1,3 +1,90 @@
+###  Публикация: 1555922   (565310) от 06.06.2022
+
+VA - Summer Megamix 2022 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaas - Shine A Light 2:59
+02. Micha Moor - Obsession 2:35
+03. Calmani & Grey, Alexandra Prince - Superstar 2:59
+04. The Disco Boys - Around The World (Dazz Remix) 2:39(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D4F1A7CE4A001259F482DD8ABCB22AE73AD626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304255   (564092) от 26.05.2019
+
+VA - 25 Compost Records (2019) [MP3|320 Kbps] <Nu Disco, Deep House, Electronica, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beanfield – Human Patterns (Roman Flugel Remix)
+02. Ron Deacon – Bring It On
+03. A Forest Mighty Black – Fresh In My Mind (I:Cube Remix)
+04. Marsmobil – It Doesn't Matter How You Are (Ripperton Remix Instrumental)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Electronica, DowntempoПродолжительность: 04:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BA83FA5088B873BD781D9923971D748045AC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923252   (562626) от 01.08.2015
+
+VA - Toolroom Ibiza 2015 (2015) [MP3|320 кб/с]<Tech House/Deep House/Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Like I Can (Jonas Rathsman Remix)
+02. Jon Hopkins - Open Eye Signal (George Fitzgerald Remix)
+03. Booka Shade, Karin Park - Line Of Fire Feat. Karin Park (Tube & Berger Remix)
+04. Claptone - The Music Got Me (Original Mix)(   Читать дальше...   )Жанр: Tech House/Deep House/TechnoПродолжительность: 11:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A0A7DE5361768080B4856C268DABEB5CD995C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304742   (562082) от 27.05.2019
 
 VA - Kings Of IBIZA (The Classic Anthems Edition) (2019) [MP3|320 Kbps] <House, Electro House, BigRoom>
@@ -658,93 +745,6 @@ VA - Deep Passion Ibiza 2k17 (2017) [MP3|320 Kbps] <Electronic, Deep House, Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35F4F0C7EEE94FF499C3B224FC65BD30271DDAEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153964   (557084) от 28.07.2017
-
-VA - Music From Paradise (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Shop Boys - Nibelungen News (Diving Mix)
-02. Chillo - Treatment of Tales
-03. Reflex Artists - Silky Tears (Reflex Mix)
-04. Andrew Bright - Mamba (Chillout Version)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8433D8E8FAEF93EF7B08630DEDA648C9A153D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153740   (557082) от 28.07.2017
-
-VA - Ibiza Summer Party 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filatov - Back In The Love (Swanky Tunes remix)
-02. Seal De Green - Those Days (original mix)
-03. Hlasznyik & Danev - Let's Go To The Party Beach (original mix)
-04. Royal Gigolos - California Dreamin' (Tek-House extended)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF37E665F5DAE6CDA60A8E5BD98878FBBE9467D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045879   (556981) от 25.08.2016
-
-VA - Deep Chill Autumn Skies (2015) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Morais - Deep Chill | Autumn Skies (Non Stop Mix)
-02. Alex Morais - Love & Music (Original Mix)
-03. Adam Byrd - Light Makes Me Calmer (Original Mix)
-04. MotiBo - Satin Sunrise (MotiBo Remix)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903B86D82213FDD613136C3B41DEBE83E547B91F
 ```
 
 https://mybot314.ru/tekegram_catalog/

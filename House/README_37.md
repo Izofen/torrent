@@ -1,3 +1,93 @@
+###  Публикация: 1288989   (688383) от 15.03.2019
+
+VA - Ibiza Springtime (20 Sunset Cocktails) (2019) [MP3|320 Kbps] <House, DeepHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tokyo Kono - Happiness (Yves St. John Mix) 2:59
+02. Mr. Kay - Angel In The Abyss (Original Mix) 3:16
+03. JTB Project - The Light (Soulful Mix) 3:20
+04. London 54 - The Black Horse (Original Mix) 3:17(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD41A771B208F3F51A5E6082FF15F5D45B2B558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505237   (686268) от 07.06.2012
+
+Ghosting Season - The Very Last Of The Saints (2012) [MP3|320 кб/с]<Deep House, Ambient, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Deep House, Ambient, ElectronicПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A8350D325D953B52E998091A37DA51FDD1F3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506572   (686130) от 07.06.2012
+
+VA - Club Session Pres. Ibiza Beach Clubbing 2012 (2012) [MP3|320 кб/с]<House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Micah The Violinist - Sunshine of Ibiza - Les Schmitz and Alex Del Amo Remix (6:48)
+02. D-Wave - Calinda - Menini & Viani Remix (7:30)
+03. Jochen Pash - Voyage - Dj PP Remix (7:30)
+04. Coqui Selection - Push Me! - Original Mix (6:54)
+05. Drumcomplex - Insomniac - Original Mix (8:34)
+06. Alex Del Amo - We Are Family - DJ PP Remix (7:21)
+07. Haroun Hickman - Lets Be Free - David Amo & Julio Navas Remix (6:16)
+08. Funkagenda - Antidote - Sonny Wharton Remix (6:25)
+09. Andy Vajna - Sensations - Javi Del Valle Remix (7:07)
+10. Jesse Voorn - Pop - Midnite Sleaze Remix (6:35)(   Читать дальше...   )2012Жанр: House, Club HouseПродолжительность: 02:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF44F666753EAE3A201E72D1DBC2EC687F271E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222610   (685305) от 29.04.2018
 
 VA - Dirty Club Grooves 2018 [MP3|320 Kbps] <Electro House>
@@ -682,93 +772,6 @@ Third Party - Together (2019) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C093CDBA6D55F4D79988B57D250F8E76D6AE588A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029663   (678465) от 28.06.2016
-
-VA - Energizing Workout Hits (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Newell And Jess Glynne And Dj Cassidy - Kill The Lights (Audien Remix)
-02. Andy Vayel - Pleasant Pain (Original Mix)
-03. Anthony Vince - Want To Dance (Radio Mix)
-04. Antoine Clamaran Feat. Lulu Hughes - Hallelujah (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC429F0B588EDC5978087045F327BF3F0867B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029843   (678317) от 28.06.2016
-
-VA - Balkan Connection Summer 2016 (2016) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subconscious Tales - Helligkeit [07:51]
-02. Praveen Achary, Vlada D'Shake - Public Secret (Praveen Achary Remix) [06:48]
-03. Matter, Jorgio Kioris - Pushin' (Matter's Pushin Too Hard Remix) [08:37]
-04. Rick Pier O'Neil, Dio S, Desaturate - Nonchalance (Rick Pier O'Neil & Desaturate Remix) [07:23](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE67F30AC0A7F5A94C1EDB8D435BD2372476FFD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223286   (677395) от 03.05.2018
-
-VA - Mma Cardio Training (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kacper Kirtz - Funkmaster 03:12
-02. Joscha Rickert - Whitesea 03:09
-03. Gilbert Nouls - Honored 03:09
-04. Georg Miller - Formance 03:09(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F2B50D680C8D99252DED011709ED3770D23362
 ```
 
 https://mybot314.ru/tekegram_catalog/

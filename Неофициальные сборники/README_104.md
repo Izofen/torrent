@@ -1,3 +1,293 @@
+###  Публикация: 994147   (889842) от 08.03.2016
+
+VA - Шансон-состояние души 87 (2013) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Башлыков Саня - Медсестричка Люба
+02. Витюк Владимир - Подвиг проститутки
+03. Гехт Владимир - Брат
+04. Дань Игорь - Не хочу я ездить в ё-мобиле(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E78CF6F9F7C423EFAC5CE32DE75CAE0BC2BE408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994607   (889840) от 08.03.2016
+
+VA - Vocal Trance Seduction vol 8 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Jes - Yai (Here We Go Again) (Super8 & Tab Radio Edit) (03:46)
+02. Beat Service, Sarah Russell - Would You (05:02)
+03. Dennis Sheperd, Katty Heath - Where I Begin (Evoland Remix) (05:59)
+04. Tenishia & Ruben De Ronde feat. Nanje Nowack - Where Do We Go? (Tenishia Radio Edit) (03:32)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1098FC6A2D4CE1243D3739EF0F43EFA279F613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994541   (889836) от 08.03.2016
+
+VA - Калина красная. Душевный шансон Выпуск 3 (2014) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андрей Весенин - Скучаю, люблю (Version 2014)
+ 02. Сергей Ялтан - В Городе Любви
+ 03. Вадим Тен - Кружева Твоих Ресниц
+ 04. Владимир Гунбин - Наша Первая Весна(   Читать дальше...   )Жанр: ШансонПродолжительность: : 06:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5979BB039F7B7FAE9DF49E1AECCF335BF0A39B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994462   (889823) от 08.03.2016
+
+VA - Clubничка №100 (2016) [MP3|256 кб/с] <Club , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889823.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Damn - R - Butterfly (Radio Edit)
+002. Ahzee - My Passion (Radio Edit)
+003. Mark Wagner Feat. Jasmine Chloe - Better Off Alone (Extended Version)
+004. Randy Garcia & Ruben Moran & Dani Vars - High Energy (Energy Sax Mix)(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 09:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F713E3063F0BB1264EB28E55639216ECEE0F778A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994717   (889802) от 08.03.2016
+
+VA - Top 100 Order Vocal Trance (2016) [MP3|320 кб/с] <Vocal, Uplifting, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889802.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Radion6 & Neev Kennedy - Nothing Here But Goodbye (Ron Alperin Remix)
+002. Dash Berlin - Till The Sky Falls Down (Andrew Rayel Radio Edit)
+003. Kaimo K - Love Will Never Leave (Radio Edit)
+004. Orjan Nilsen Ft Mike James - What It's All About (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Uplifting, Progressive TranceПродолжительность: 09:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661515929CBE5DE7F1F1861EA201640DEF7F3375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994470   (889801) от 08.03.2016
+
+VA - Радио Шансон. Подарок любимой женщине (2016) [MP3|320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889801.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Александр  Маршал и Ариана-Я тебя никогда не забуду
+002.  Владимир  Асимов-Ближе тебя
+003.  Анатолий  Корж-Красивая  и  смелая
+004.  Виктор  Королев-Алые  розы(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6919EC60E5C3194F76642AEF71A5837C961F0EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994535   (889790) от 08.03.2016
+
+VA - Музыка для души на стильном радио (2014) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андрей Егоров - Берегите любимых
+ 02. Николай Старченков - Рябина
+ 03. Андрей Бандера - Любимая
+ 04. Виктор Калина - Ты высшая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9968854C1FFA292951F7B6F8398EB269E68FCB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994551   (889780) от 08.03.2016
+
+Va - Подарок любимой женщине (2016) [MP3|320 кб/с] <Поп, Танцевальный>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алла Пугачёва - Тянет сердце руки 04:05
+ 02. Григорий Викторович Лепс - Одиноко 03:55
+ 03. Стас Михайлов - Золотое сердце 03:48
+ 04. Андрей Бандера - Любимая 03:53(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 03:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4F61B6B5BCBAC7B4C98AE303F99C92C8535AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994317   (889740) от 08.03.2016
+
+VA - Самая лучшая женщина. Праздничный сборник (2016) [MP3|256 кб/с] <Шансон, Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889740.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Игорь Наджиев - Самая лучшая женщина.mp3
+002.  Александр Куданов - Счастье мое.mp3
+003.  Олег Голубев - Я Буду Рядом.mp3
+004.  Александр Антонов - Двое Под Дождем.mp3(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 06:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316ED3DA261219725A5F101A776903B2D10C75E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994254   (889692) от 08.03.2016
+
+VA - 8 Марта Хиты Для Единственных И Любимых (2016) [MP3|320 кб/с] <Pop, Шансон>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лев Лещенко - Моя любимая.mp3
+02. Рождество - Карандаши.mp3
+03. Евгений Росс - Милая, единственная, нежная.mp3
+04. Фристайл, Сергей Кузнецов - Самая любимая.mp3(   Читать дальше...   )Жанр: Pop, ШансонПродолжительность: 01:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C71FBF3A83DAB0A1268F29EF6E64AFC2F2E1751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102631   (889682) от 10.02.2017
 
 VA - Trance Elegance On This Year 009 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal, Tech Trance, Blissful>
@@ -455,296 +745,6 @@ Carlos Santana - 100% Carlos Santana (2020) [MP3|320 Kbps] <Pop, Rock, Latin>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C37B9FD8BD716E1791A40D03C389A6731223FB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994933   (888236) от 09.03.2016
-
-VA - Mediterranean Music: The Italian Sun (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Advena Avis - Non creder
-02. La Boquita - Cuento de Hadas
-03. La Boquita - Sobre l'arena
-04. Omar Faruk Tekbilek - Why(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F71855184155ACAB99AE37AD2382B2D8FD1922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994699   (888233) от 09.03.2016
-
-VA - Seven City Heaven Uplifting Trance (2016) [MP3|320 кб/с] <Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888233.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rene Ablaze - Red Sea 2010 (Club Mix)
-002. The Enlightment - First Impression (Arctic Motion Remix)
-003. Damian Wasse - Azeroth (Original Mix)
-004. Tim Verkruissen - Air (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 11:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57EE7B0714B51A2149CDA9A85C297325EDF3E5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994684   (888225) от 09.03.2016
-
-VA - Женщина любимая моя - 3 (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Владимир Девятов - Лучшая из лучших женщина
-02. Альберт Ибраев - Бог послал ее в награду
-03. Олег Алябин - Не покидайте нас, женщины
-04. Владимир Михайлов - Любите женщину(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEAFD4CC7589C3E16BD9C274728868863C0F244B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995012   (888219) от 09.03.2016
-
-VA - When Rock Goes Slow: Top Acoustic Rock Tracks (2016) [MP3|320 кб/с] <Downtempo, Rock, Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthony Zaro - For You
-02. Chris Eggarter - You're Playing with Fire - Acoustic Version
-03. Darusso - I Live for Love
-04. Kandinsky - Gold(   Читать дальше...   )Жанр: Downtempo, Rock, InstrumentalПродолжительность: 01:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40523BA8DA2E1DCF2CF628FE602CABB6B7FF9A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994788   (888200) от 09.03.2016
-
-VA - Радио Шансон. Братушка (2016) (2016) [MP3|256-320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888200.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ильдар Южный - Черным Вороном Ночь
-002. Марина Редкая - Бабник
-003. Александр Дюмин - Братушка
-004. Александр Ломинский - Выше Неба(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA1B302BF7B608AD7A04621B557ECE4211C126A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994744   (888199) от 09.03.2016
-
-VA - Роза белая (2016) [MP3|256 кб/с] <Поп, Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888199.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Левичев Вячеслав — Роза белая
-002. Лейс Игорь — Живите сказочно
-003. Куренков Сергей — Ангел мой
-004. Романов Дмитрий и Шмель Вова — Я не буду ждать(   Читать дальше...   )Жанр: Поп, ШансонПродолжительность: 06:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE067B3D150DE5E76E05E2F0FBF2783A2E43396A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994885   (888196) от 09.03.2016
-
-Mark Mikel - Collection (1993-2007) [MP3|192 - 320 кб/с] <Classic Rock, Power Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избранное Марка - бальзам на душу для тех, кто знает и помнит 60-70-ые!01. Holy Roly
-02. Deliver My Love
-03. Come Tomorrow Feel Alright
-04. Right Now(   Читать дальше...   )Жанр: Classic Rock, Power PopПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7858EDDF049B8278E3FDF9B1E5163CEC1DB3A7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994937   (888168) от 09.03.2016
-
-VA - 200 Hits America Latina (2015) [MP3|320 кб/с] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888168.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Extra Latino - 6 Am.mp3
-002. Extra Latino - Ay Vamos.mp3
-003. Extra Latino - Travesuras.mp3
-004. Extra Latino - La Nueva y la Ex.mp3(   Читать дальше...   )Жанр: DanceПродолжительность: 13:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C8AFCD0B0D034221E266159F308EA5CEEFF8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994988   (888120) от 09.03.2016
-
-Precious Wilson (ex. Eruption) - Collection (1979-1983) [OGG|438-537 кб/с] <Disco, Funk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are On The Race Track
-02. Cry To Me
-03. Video
-04. Kisuaheli(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB7BA001CB315742B194C66D8C115C357277194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371790   (888097) от 01.04.2020
-
-VA - Shazam Хит-парад Russia Top 100 Март (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888097.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Intelligency - August (3:27)
-2.El Capon - Shut Up Chicken (2:30)
-3.The Weeknd - Blinding Lights (3:21)
-4.Тайпан, Agunda - Луна не знает пути (2:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB24EF222842847D68C480CD631ED02E2C710A69
 ```
 
 https://mybot314.ru/tekegram_catalog/

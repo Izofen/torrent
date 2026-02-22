@@ -1,3 +1,32 @@
+###  Публикация: 1246539   (461310) от 11.09.2018
+
+Bad Boys Blue - Super 20 (1989) [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461310.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lady In Black (Radio Edit) [03:49]
+2. Come Back And Stay [04:08]
+3. Gimmie, Gimmie Your Lovin' (Little Lady)[03:57]
+4. Hungry For Love (Radio Edit) [04:16](   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961B2E0184CB203A679DB70735910718986548D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940891   (460060) от 28.09.2015
 
 VA - Hotel Voyeur (2005) [APE|image+.cue]<Pop, Electronic>
@@ -709,35 +738,6 @@ Michael Bublé - The Essential Michael Bublé (2022) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7F1BDC767C485DA15B971B789331D9AE26FE717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409219   (444987) от 17.09.2020
-
-Ace of Base - Hidden Gems, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl In The Line (3:15)
-02. Love In The Ghetto (2:53)
-03. Stranger To Love (3:11)
-04. Memories Forever (3:45)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E920B59EF55774145AA4527FA9E3D5A92F1D046
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,61 +1,3 @@
-###  Публикация: 1799119   (66472) от 27.05.2025
-
-Roger Kellaway - The Roger Kellaway Trio (1965) 1997, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Organ Morgan [2:45]
-02. One Night Stand [3:12]
-03. I'll Follow the Sun [6:06]
-04. Brats [5:44](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92242FAB58832C693838B332945E3335D4B8459D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799193   (66471) от 27.05.2025
-
-Anita O'Day - Mello'day (1978) 1992, GNP Crescendo Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Devil Moon [2:58]
-02. Lost in the Stars [3:38]
-03. Meditation [4:33]
-04. You're My Everything [3:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D159C3AFB584C48C209FB42E2B57B0527343FD1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799195   (66469) от 27.05.2025
 
 Sal Salvador - Shades Of Sal Salvador (1956, 1957) 1999, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -745,6 +687,64 @@ Mindi Abair - Based On A True Story (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EB820D2930493C414986E755E35241F49041DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801897   (66119) от 14.06.2025
+
+Jimmy Scott - Very Truly Yours (1955) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time on My Hands [2:42]
+02. Imagination [2:52]
+03. When Did You Leave Heaven [3:19]
+04. Everybody Needs Somebody [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0F557E2958243572EF762C7512F5C06DAA3C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801960   (66109) от 14.06.2025
+
+The Swingfield Big Band - Big Band Favorites (2009) 2CD, Reflections [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight Serenade [4:06]
+02. I'll Be Seeing You [4:40]
+03. Over the Rainbow [4:45]
+04. Moon River [3:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9C8ABA120C1E4BF31FC294436745E11D0C9345
 ```
 
 https://mybot314.ru/tekegram_catalog/

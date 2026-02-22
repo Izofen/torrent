@@ -1,3 +1,264 @@
+###  Публикация: 1460941   (1022255) от 07.04.2021
+
+Einherjer - North Star (2021) [FLAC|Lossless|WEB-DL|tracks] <Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blood and the Iron 03:35
+02. Stars 05:32
+03. West Coast Groove 04:07
+04. Ascension 07:39(   Читать дальше...   )Жанр: Viking MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD974B436630CF376690A078A3159DCE9543949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461157   (1022125) от 08.04.2021
+
+Celestial Season - The Merciful (2020) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Merciful (7:36)
+02. Together in Solitude (4:53)
+03. Surreal (5:06)
+04. For Eternity (5:58)(   Читать дальше...   )Жанр: Doom Metal, Death Metal, Stoner MetalПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CE03210417387C37E61C15D33D84A2ECA0EF82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461149   (1022107) от 08.04.2021
+
+Manntra - Monster Mind Consuming (2021) [FLAC|Lossless|image + .cue] <Industrial Metal, Folk Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invocation
+02. Heathens
+03. Ori Ori
+04. Slave(   Читать дальше...   )Жанр: Industrial Metal, Folk Metal, Alternative RockПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BD9041B33CFD96746B64F04BE1820803B14CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461221   (1021974) от 09.04.2021
+
+Saille - V (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suffering Sanctuary (Parts 1, 2, 3)
+02. Fetid Flesh
+03. Charnel Chamber
+04. Loathsome Legacy(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F49F5100BD6BB384D07B536615DD14D3EABBC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461356   (1021973) от 09.04.2021
+
+Memoriam - 4 Studio Albums (2017-2021) 4xCD [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейбл Nuclear Blast подписал контракт с британской Death Metal группой MEMORIAM, в состав которой входят Карл Уиллетс (Karl Willets, BOLT THROWER) на вокале, Фрэнк Хили (Frank Healy, BENEDICTION, CEREBRAL FIX) на басу, Скотт Фэйрфакс (Scott Fairfax, CEREBRAL FIX) на гитаре. C 2020-го года в группе новый барабанщик Spike T Smith (SACRILEGE, CONFLICT, KILLING JOKE, (   Читать дальше...   )2017 - For The Fallen
+2018 - The Silent Vigil
+2019 - Requiem For Mankind
+2021 - To The EndЖанр: Death MetalПродолжительность: 03:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B138178003CE746F16BDE007E0D268B117012FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461217   (1021971) от 09.04.2021
+
+ScreaMachine - ScreaMachine (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demondome
+02. The Metal Monster
+03. The Human God
+04. Darksteel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA7877D47BBC21987C7231C41EDB94D099734AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461394   (1021970) от 09.04.2021
+
+Night Spirit - The Spark (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight (04:03)
+02. Fire (04:17)
+03. Event Horizon (03:05)
+04. The Night is Ours (03:50)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2985F4F522A83917C8D1EC0D4F2B97D249A69365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461274   (1021964) от 09.04.2021
+
+Primal Fear (feat. Tarja) - I Will Be Gone (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Be Gone (feat. Tarja Turunen) (4:27)
+02. Vote of No Confidence (6:05)
+03. Rising Fear (1:39)
+04. Leave Me Alone (4:04)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43E026A7B57B00D5827C2854541378221E18087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461360   (1021961) от 09.04.2021
+
+U.D.O. - Live in Bulgaria 2020 (2021) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021961.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Tongue Reaper (4:38)
+02. Make the Move (5:38)
+03. Midnight Mover (3:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2262E7DB21ABA0A0AC60E1F9C2C8E46075C85716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461501   (1021822) от 10.04.2021
 
 Marianas Rest - Ruins (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Doom Metal>
@@ -483,268 +744,6 @@ Icon Of Sin - Icon Of Sin (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF9203B1652E96C64449CA2A957358159EDCBF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462771   (1020827) от 16.04.2021
-
-Megadeth - Set The World On Fire (1991) (CD Bootleg-Live 1988) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 	Set The World On Fire 			6:04
-	02 	Hook In Mouth 				4:34
-	03 	Wake Up Dead 				3:32
-	04 	The Conjuring 				5:13(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8876E64681CC9F488FE5421618D92D338F655B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463112   (1020699) от 17.04.2021
-
-Sun 'N' Steel - Wheel Of Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hungry Eyes
-02. Heading For Tomorrow
-03. Wheel Of Time
-04. The Last Crusade(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54820D526BF4589FA3C8266F19AACA9C91F65EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463232   (1020696) от 17.04.2021
-
-Bewitcher - Cursed Be Thy Kingdom (2021) [FLAC|Lossless|WEB-DL|tracks] <Blackened Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashe
-02. Death Returns...
-03. Satanic Magick Attack
-04. Electric Phantoms(   Читать дальше...   )Жанр: Blackened Speed MetalПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33759BB09D6C104069FB6BC2CECCB0F155488260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463383   (1020505) от 18.04.2021
-
-Echoes Of Eternity - As Shadows Burn (2009) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ten Of Swords
-02. A Veiled Horizon
-03. Memories Of Blood And Gold
-04. The Scarlet Embrace(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4084957A37D090A34F67278A1FBD24A97F275E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463740   (1020338) от 19.04.2021
-
-Zarpa - Imperia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imperia (4:17)
-02. Lucha Por Las Naciones (4:21)
-03. El Azote De Dios (4:35)
-04. Viene Lucifer (4:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A37B13F448AFCFAA6E788A57104D529C5AEC55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463731   (1020337) от 19.04.2021
-
-Zarpa - El Loco (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fahrenhait (4:32)
-02. El Heavy Es Mi Destino (3:43)
-03. Hermano Del Rock (5:51)
-04. El Loco (3:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDE2E34E0D3FF645D3AC0812864E0D1C59E97E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463693   (1020327) от 19.04.2021
-
-Wizard - 10 Studio Albums (1999-2021) 11xCD [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wizard — пауэр-метал-группа из Германии, сформированная в 1989 году. Группу часто называют «немецким ответом Manowar». Темы текстов песен очень похожи: обе группы поют о битвах, метале, войне и скандинавской мифологии. Тем не менее, Wizard играют намного быстрее Manowar, и их вокалист обладает высоким голосом. "Wizard" по праву считаются немецким ответом (   Читать дальше...   )1999 - Bound By Metal
-2001 - Head Of The Deceiver
-2003 - Odin
-2005 - Magic Circle(   Читать дальше...   )Жанр: Power MetalПродолжительность: 09:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8BF40F740E60C26397B5DEAD14902995951D84C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463643   (1020321) от 19.04.2021
-
-Bewitcher - Under The Witching Cross (2019) [FLAC|Lossless|WEB-DL] <Blackened Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage Lands Of Satan
-02. Hexenkrieg
-03. Under The Witching Cross
-04. Heathen Woman(   Читать дальше...   )Жанр: Blackened Speed MetalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A06DA6BAE6E022B8623D907A877768B1540BCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463715   (1020318) от 19.04.2021
-
-Orden Ogan - 7 Studio Albums (2008-2021) 8xCD [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Причисляемые по инерции к жанру Power Metal, немецы "Orden Ogan" смогли выработать свой собственный стиль, в котором традиционный мелодичный хэви смешивался с элементами фолка, симфо и модерн-металла. Команда была основана в 1996-м году двумя Себастьянами, "Зибом" Ливерманом (гитара, вокал) и "Гну" Грутлингом (ударные).
-Поначалу она (   Читать дальше...   )2008 - Vale
-2010 - Easton Hope
-2012 - To The End
-2015 - Ravenhead(   Читать дальше...   )Жанр: Power MetalПродолжительность: 08:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E471D124F8896EEFA38E9FF612C5470FF2E07A10
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1322008   (450631) от 28.08.2019
+
+Kaisa - K.M.K. (2010) Bonus Edition [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.M.K.
+02. Endlich Klartext
+03. Donnie Brasco
+04. So Krank Kann Der Typ Nicht Sein(   Читать дальше...   )Жанр: German Hip-Hop, RapПродолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14067DE5B48A68728B70183CDD2D897322BDBCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061625   (448214) от 10.10.2016
+
+VA - Chillhop Essentials - Fall (2016) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Hop, Chillhop, Instrumental Jazz>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aso – Seasons (4:26)
+02. The Cancel – Point (2:39)
+03. Brock Berrigan – Owl Farm (2:46)
+04. Philanthrope – Things Fall Apart (2:17)(   Читать дальше...   )Производство: Chillhop RecordsЖанр: Hip-Hop, Instrumental Hip-Hop, Fusion, Chillhop, Instrumental Jazz, Trip HopПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C846ACFC7CA027FA9D69395B0ECD3B3E47B1CEF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 242965   (447615) от 07.10.2010
 
 The Platters - The Original Platters The Very Best Of (1987) [MP3|192 kbps]<Rhythm and blues>
@@ -690,64 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCFE73D6EDECD4713F425449C477873598E35FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413518   (408194) от 04.10.2020
-
-Pra(Killa'Gramm) - УЛИЦА ГОВОРИТ (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чувствуй [02:48]
-02. Дикая езда [02:38]
-03. На небеса (feat. B1 & BLOWIN'UP) [04:19]
-04. Горизонты [03:03](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D368957596C1646C3EB3A4682397740A6682EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413525   (408096) от 04.10.2020
-
-Санчес - ПРОДАНО. Часть 1. Начало (Version 2020) (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Продано (Вступление) [00:58]
-02. Продано [03:19]
-03. TV [02:57]
-04. Время [03:15](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00F10E590BEC35B512C3055B5DFC621947F90F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

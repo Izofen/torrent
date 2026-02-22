@@ -1,57 +1,22 @@
-###  Публикация: 480481   (99255) от 10.04.2012
+###  Публикация: 479463   (98878) от 07.04.2012
 
-Sunny Crimea & Physical Illusion - Soulful Nights LP (2012) [MP3|320 кб/с]<Drum & Bass, Soulful>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunny Crimea & Physical Illusion - Soulful Nights (06:51)
-02. Sunny Crimea & Physical Illusion - Your Lovers Tear Across The Kiss (06:31)
-03. Sunny Crimea & Physical Illusion - Too Hot (06:35)
-04. Sunny Crimea - Underneath (06:04)
-05. Physical Illusion - Desperately (07:19)
-06. Physical Illusion - Brilliants (05:28)
-07. Sunny Crimea - Lounge - Lizards (06:00)
-08. Sunny Crimea & Physical Illusion - Fading Shadows (05:51)
-09. Sunny Crimea & Physical Illusion - Way Out (06:17)
-10. Sunny Crimea & Physical Illusion - Fading Shadows (Stunna Remix) (06:52)2012Жанр: Drum & Bass, SoulfulПродолжительность: 1:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D591D99421B391351D4C4033ACD43F431D45E9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480765   (99254) от 10.04.2012
-
-Королевство океанов. Между Сушей и Морем / Kingdom of the Oceans. De La Terre A La Mer (2011) BDRip [сезон 1 серия 4]
+[Wallpapers] Sexy Girls Pack Wallpapers (07.04.12)
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99254.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм о безграничности и свободе подводного мира, о королевстве живого разумного существа по имени Океан станет еще одной познавательной страницей в жизни нашего космоса.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный - А. ДасевичПродолжительность: 00:54:23
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66984FC3C07CF03AE39BB1E153D98776597D3791
+magnet:?xt=urn:btih:57351C7DFDC32B12E6F0327D8228CEAB8CE95AC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -59,79 +24,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480464   (99253) от 10.04.2012
+###  Публикация: 479750   (98875) от 07.04.2012
 
-5 неизвестных / Unknown (2006) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятеро людей приходят в себя в запертом складе, ни один из них не помнит, как он сюда попал и кто он, вообще, такой. Вскоре они понимают, что это похищение... не имея ни малейшего представления, кто на чьей стороне. Чтобы остаться в живых, нужно вспомнить всё первым!Производство: СШАЖанр: Триллер, драма, криминал, детективПеревод: ДублированныйСубтитры: РусскиеФормат: DVD9Продолжительность: 01:22:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480530   (99247) от 10.04.2012
-
-Магическая книга и дракон / Hexe Lilli, der Drache und das magische Buch (2008) DVD5
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лилли была обычной 10-летней девочкой, пока в ее комнате чудесным образом не появилась Волшебная Книга. Хранитель книги — веселый дракончик по имени Гектор — рассказал Лилли, что она избрана преемницей на трон Волшебницы, но прежде девочка должна доказать, что достойна такой чести.
-
-И вот главное испытание — злой маг Хьернимус хочет захватить власть над миром. У Лилли есть 99 часов на то, чтобы расстроить планы злодея. В этом ей поможет ее новый друг Гектор. Вместе им предстоит пройти через множество опасностей и пережить незабываемые приключения!Жанр: Фэнтези, Комедия, СемейныйРежиссер: Штефан РуцовицкиАктеры: Михаэль Миттермейер, Аня Клинг, Пилар Бардем, Мари-Лу Баумер, Леонард Боэ, Ивонн КаттерфельдПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480594   (99244) от 10.04.2012
-
-Поп (2009) BDRip
+[Wallpapers] Girls Desktop Wallpapers №8
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99244.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Июнь 1941 года, маленькое село Тихое в Латвии. Настоятель небольшого прихода отец Александр ведет неспешные беседы с матушкой Алевтиной, занимается обычными мирскими делами. Через два часа он закончит воскресную службу. Через два дня в село войдут немцы. Через два месяца в жизни священника Александра Ионина начнется самая важная миссия, в которой не будет громких подвигов и библейских чудес, а главным станет возвращение веры народу. И долг священника перерастет в священный подвиг…Жанр: Драма, ВоенныйРежиссер: Владимир ХотиненкоАктеры: Сергей Маковецкий, Нина Усатова, Лиза Арзамасова, Кирилл Плетнёв, Юрий Цурило, Анатолий Лобоцкий, Виктория Романенко, Степан Морозов, Геннадий Гарбук, Александр ДоронинПродолжительность: 02:08:54
+[Wallpapers] Girls Desktop Wallpapers №8
+Название: Girls Desktop Wallpapers №8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
+magnet:?xt=urn:btih:0114DF3C264B838EC705C1BB000ACE2382B6BEC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,25 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480156   (99243) от 10.04.2012
+###  Публикация: 479464   (98872) от 07.04.2012
 
-[EN] Противник чужеродных / Alien Opponent (2010) DVDRip
+[Wallpapers] Wallpapers Sexy Girls (07.04.12)
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99243.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Владелица свалки старых автомобилей провинциального городка предлагает награду тому, кто сможет уничтожить пришельца в космическом костюме, который оказался там после крушения космического корабля при неудачной посадке на территории свалки...Жанр: Боевик, ФантастикаРежиссер: Колин ЗэисАктеры: Джереми Лондон, Родди Пайпер и Куил КарвинПеревод: ОтсутствуетПродолжительность: 01:31:54
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94DC5270F55925B6D8620EF4856F380597218ACB
+magnet:?xt=urn:btih:4468DBD3835FD1193395C2925B359AC91B925356
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -165,273 +80,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480876   (99242) от 10.04.2012
+###  Публикация: 479345   (98871) от 07.04.2012
 
-Marica Hiraga with Manhattan Jazz Quintet - Close to Bacharach (2008) [MP3|320 кб/с]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raindrops Keep Fallin' On My Head
-02. Do You Know The Way To San Jose
-03. Alfie
-04. The Look Of Love
-05. What The World Needs Now Is Love
-06. (They Long To Be) Close To You
-07. Wives And Lovers
-08. A House Is Not A Home Flash
-09. Arthur's Theme (The Best You Can Do)
-10. God Give Me Strength(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003744F62434AAFE62C9D9ED7DE4A66E38DF620D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480772   (99236) от 10.04.2012
-
-Приключения казака Энея (1969) SATRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм снят к 200-летию И. Котляревского по мотивам его сатирической поэмы "Энеида".Жанр: Рисованная анимация, Детский, Для взрослыхРежиссер: Нина ВасиленкоПродолжительность: 00:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D304186B67E44010108967C1F67D6B26FB769D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480688   (99234) от 10.04.2012
-
-Машина / La machine (1994) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гениальный психиатр Марк Лекро создаёт фантастическую машину, способную переносить разум одного человека в тело другого и решает при помощи своей машины внедриться в мозг одного из пациентов психиатрической клиники. Он выбирает убийцу, страдающего комплексом агрессии к собственной матери и потому ненавидящем всех женщин.
-
- Эксперимент по изучению психологии маньяка (   Читать дальше...   )Жанр: Ужасы, Триллер, ФантастикаРежиссер: Франсуа ДюперонАктеры: Жерар Депардье, Натали Бэй, Дидье Бурдон, Наталиа Вёрнер, Эрван Байно, Клод Берри, Марк Андреони, Alain Azerot, Кристиан Бюжо, Жюли Депардье, Patty Hannock, Арсен Жироян, Кристиан Перейра, Кристиан Рюше, Паскаль Тернизьен, Aude Thirion, Alexis Nitzer.Перевод: Одноголосый закадровыйПродолжительность: 01:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EF3F74FC638BA6761C9305FAC4275D5B1F073F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481139   (99233) от 10.04.2012
-
-Журнал | Знание-сила №4 [2012] [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99233.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Знание-сила» — научно-популярный и научно-художественный журнал, основанный в 1926 году. Публикует материалы о достижениях в различных областях науки — физике, астрономии, космологии, биологии, истории, экономике, философии, психологии, социологии, глобализации.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D490F287C7B0B2A40D01B5E18A9557E778B30CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478817   (99231) от 10.04.2012
-
-Hot Chocolate - Their Greatest Hits (1993) [FLAC|Lossless]<Pop Rock, Ballad, Disco>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Sexy Thing [04:04]
-02. It Started With A Kiss [04:01]
-03. Brother Louie [04:43]
-04. Girl Crazy [03:22]
-05. So You Win Again [04:29]
-06. Put Your Love In Me [05:41]
-07. Love Is Life [03:34]
-08. I'll Put You Together Again [03:51]
-09. No Doubt About It [04:27]
-10. Every 1's A Winner [04:01](   Читать дальше...   )1993Жанр: Pop Rock, Ballad, DiscoФормат: CD, CompilationПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481231   (99230) от 10.04.2012
-
-Эти свободные бабочки (1993) VHSRip (Русский театр Эстонии)
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99230.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нью-йоркской квартире случайными соседями оказываются молодой человек, с рождения обделённый природой, и очаровательная, но легкомысленная девушка. В их отношения постоянно вмешивается мудрая и любящая мать героя.Жанр: КомедияРежиссер: Валерий ФилоновВ ролях: Дональд Бейкер - Александр Ивашкевич
-Джил Теннер - Лариса Саванкова
-Миссис Бейкер - Тамара Солодникова
-Ральф Остин - Владимир АнтиппПродолжительность: 01:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5559EB02784EC440EADED53435DEAA0BAB8BE82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480797   (99223) от 10.04.2012
-
-Black Box - Dreamland (1990) [APE|Lossless]<Euro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Everybody [05:21]
-02. I Don't Know Anybody Else [04:33]
-03. Open Your Eyes [05:19]
-04. Fantasy [05:15]
-05. Dreamland [02:04]
-06. Ride on Time [04:34]
-07. Hold On [05:35]
-08. Gosht Box [03:54]
-09. Strike it Up [05:15]1990Жанр: Euro HouseФормат: CD, AlbumПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CA9BC7EADCD91128BF782FFBB8784ADA26E9A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480820   (99218) от 10.04.2012
-
-Время земляники (2008) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой фильма — успешный молодой человек, в жизнь которого вмешивается его величество случай. Буквально за несколько дней он теряет работу, предает любовницу, попадает на войну, не считая таких мелочей, как участие в драках, гонках, бесконечных тусовках.Жанр: ДрамаРежиссер: Виталий ГалилюкАктеры: Владимир Колганов, Алексей Петренко, Ксения Каталымова, Александр Лыков, Сергей Мигицко, Анна Алексахина, Анна Слынько, Татьяна Колганова, Иван Паршин, Виталий Салтыков, Андрей ПеровичПродолжительность: 01:27:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479908   (99215) от 10.04.2012
-
-VA - 90's PartyMix (2009) [MP3|256 кб/с]<eurodance>
+VA - Chill Out Essentials: Spring Edition (2012) [MP3|320 kbps]<Chillout | Downtempo>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99215.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1  J.K. - My Radio
-2  Netzwerk - Memories
-3  Orlando - I\'m Dreaming
-4  Orlando - Memories Of You
-5  TH Express - I\'m On Your Side
-6  Unlimited Nation - Move Your Body
-7  Samira - When I Look Into Your Eyes
-8  Afrika Bambaataa - Feel The Vibe
-9  Odyssey - Riding On A Train
-10 Netzwerk - Passion(   Читать дальше...   )2009Жанр: eurodanceПродолжительность: 02:07:22
+01. Almadrava - All Over Me
+02. Naoki Kenji - Kitai Sasete (Night Remix)
+03. Alexandra Hampton - Distant Shore
+04. Euphonic Traveller - Cafe Champs Elysees
+05. Soundset City - Get It On
+06. Felix - Giraffe
+07. Silicone Soul - Dreaming Again
+08. Soundset City - Smooth Delight
+09. The Sushi Club - Elyptico
+10. Panaphonic - Sunrise Light(   Читать дальше...   )2012Жанр: Chillout | DowntempoПродолжительность: 03:24:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E863C37C1FC750F479DB4784DFFA27EE0E8B5449
+magnet:?xt=urn:btih:B4FC87ADB83DB561F2D7EA3EBBC113C4C9E5B617
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -439,49 +115,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480885   (99212) от 10.04.2012
+###  Публикация: 479530   (98867) от 07.04.2012
 
-Парад идиотов / Le bal des casse-pieds (1992) DVDRip
+Two Witches - The Vampire's Kiss (1993) [FLAC|Lossless]<Gothic>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99212.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пятидесятилетний ветеринар прекрасно находит общий язык с животными, но люди, люди... Он называет их недотепами, занудами, прилипалами - и как магнит притягивает к себе именно такой тип людей. Будучи человеком мягким и интеллигентным, он мечтает лишь об одном - чтобы от него отстали и дали ему вздохнуть спокойно. Встретив Луизу, которая кажется ему глотком свежего воздуха по сравнению с зацикленными на себе друзьями и родственничками, он решает бороться за нее, пусть даже она не свободна!Жанр: КомедияРежиссер: Ив Робер / Yves RobertАктеры: Жан Рошфор, Жан-Пьер Бакри, Жан Карме, Миу-Миу, Мишель Пикколи, Виктор Лану, Элен Венсен, Жак Вильре, Клод Брассер, Ги БедоПеревод: Многоголосый закадровыйПродолжительность: 01:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D53ABD6E78C9B2A184884DE9120E7A651473993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480840   (99209) от 10.04.2012
-
-Шофер мисс Дэйзи / Driving Miss Daisy (1989) DVD9
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99209.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Атланте, в богатом квартале, живет пожилая дама — мисс Дэйзи. Ей уже трудно водить машину самой, и сын присылает к ней шофера — чернокожего Хоука Колберна.
-
-Вскоре новый водитель становится ближайшим другом и советчиком своей хозяйки, что вызывает волну возмущения у соседей, враждебно настроенных по отношению к чернокожим.Жанр: Комедия, ДрамаРежиссер: Брюс БересфордАктеры: Морган Фриман, Джессика Тэнди, Дэн Эйкройд, Пэтти ЛюПон, Эстер Ролли, Joann Havrilla, Уильям Холл мл., Элвин М. ШугарманЯзык субтитров: русский, английский испанскийПродолжительность: 01:41:37
+01. Agony
+ 02. The Hungry Eyes
+ 03. The Omen
+ 04. Dead Dog's Howl
+ 05. Nightmare
+ 06. Fetish Dream
+ 07. Mircalla
+ 08. Winter
+ 09. Dreamworld
+ 10. Burn The Witch(   Читать дальше...   )Жанр: GothicПродолжительность: 00:52:55
 
 ## Скачать торент
 ```bash
@@ -493,25 +150,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481163   (99208) от 10.04.2012
+###  Публикация: 477985   (98866) от 07.04.2012
 
-FeedDemon 4.0.0.22 [Английский]
+Necronomicon - Invictus (2012) [FLAC|Lossless]<Thrash Metal>
 
->>Архив торрентов
->>Архив Программ
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99208.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FeedDemon - Одна из наиболее достойных программ для чтения RSS-лент, позволяющая настроить получение и просмотр новостей на локальном компьютере. FeedDemon предлагает удобные способы сохранения созданной структуры просматриваемых новостных лент и управления их просмотром. Добавляемые RSS-ленты можно объединять в группы.
-
-Встроенный браузер позволяет отображать содержимое новостей непосредственно в окне программы. Окно FeedDemon состоит из трех частей. Крайняя правая представляет собой встроенный полноценный браузер, здесь есть панель инструментов, позволяющая реализовать все привычные для браузера возможности. Крайняя левая панель представляет собой группы новостей. В центре размещены заголовки новостей ленты, выбранной слева. В зависимости от настроек можно отображать здесь только заголовки, либо заголовки и первые несколько предложений новости. Но при этом следует отметить, что программа отображает содержимое новости во встроенном браузере только при установленном Internet Explorer 6.0.
-
-Удобно отображаются (   Читать дальше...   )Язык интерфейса: Английский
+01. Invictus (6:45)
+02. Unleashed (4:05)
+03. Bloody Bastards (4:03)
+04. Thoughts Running Free (5:49)
+05. Unconquered (5:56)
+06. Upon Black Wings (4:40)
+07. Face To The Wall (5:16)
+08. Pandora's Box (4:03)
+09. Before The Curtain Falls (4:42)
+10. Possessed By Evil 2011 (5:01)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:10:37
 
 ## Скачать торент
 ```bash
@@ -523,139 +185,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480170   (99204) от 10.04.2012
+###  Публикация: 479365   (98863) от 07.04.2012
 
-Alix Combelle - The Swinging Mister Alix (2000) [MP3|320 кб/с]<Saxophone Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Rhythm
-02. Hang Over Blues
-03. Harlem Swing
-04. It Had To Be You
-05. When You're Smiling
-06. If I Had You
-07. Bouncin' Around
-08. Riding Along The Moscova
-09. Al's Idea
-10. Don't Get Tired(   Читать дальше...   )2000Жанр: Saxophone Jazz, SwingПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FDE0215A5A16211659AD4D38269E5F64DD24D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481079   (99203) от 10.04.2012
-
-Gaia Epicus - Dark Secrets (2012) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond The Universe 05:05
-02. Hellfire 03:28
-03. Lost Forever 05:13
-04. Mirror Of Truth 04:11
-05. Bounded By Blood 03:24
-06. Ode To The Past (Instrumental) 02:52
-07. Farewell 03:54
-08. The Raven 03:30
-09. Behind These Walls 03:34
-10. Falling Into The Abyss 04:58(   Читать дальше...   )2012Жанр: Power MetalПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CE33CB7D8389B54B091651B69FA3C9C018A976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481065   (99199) от 10.04.2012
-
-Rise To Fall - Defying The Gods (2012) [MP3|320 кб/с]<Modern Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascend to the Throne (3:35)
-02. The Compass (3:39)
-03. Whispers of Hope (3:57)
-04. Reject the Mould (4:05)
-05. Inflexible Kingdom (3:22)
-06. Instruction Cycle (3:22)
-07. Lost in Oblivion (3:31)
-08. Decoding Reality (4:03)
-09. Dare to Cross (3:50)
-10. Fall to Drama (5:00)(   Читать дальше...   )2012Жанр: Modern Melodic Death MetalПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7241D4EE08BA3F45188E4731AD76846EE6CDC61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480867   (99197) от 10.04.2012
-
-Susan Justice - Eat Dirt (2012) [MP3|320 кб/с]<Pop>
+Return To Base - Behind The Sun (2011) [MP3|320 кб/с]<Drum'n'Bass / Industrial Djent>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99197.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Born Bob Dylan
-02. Eat Dirt
-03. Forbidden Fruits
-04. Paper Planes
-05. I Wonder
-06. My Sweater
-07. Just Imagine
-08. Don’t Be A Stranger
-09. Hello Goodbye
-10. You Were Meant To Sing(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:41
+01. Biopunk
+ 02. Collective Mind
+ 03. Alive Creature
+ 04. Devastator
+ 05. Behind The Sun2011Жанр: Drum'n'Bass / Industrial DjentПродолжительность: 00:21:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2E87BBFFAE9B3C7E5E3D707BC927FD8C8729828
+magnet:?xt=urn:btih:EC82207169C45C0FE1E587E2F3C931041C4D4206
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,26 +215,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480733   (99196) от 10.04.2012
+###  Публикация: 477759   (98862) от 07.04.2012
 
-Дин Андерссон | Серия "Воительница" [2002] [FB2]
+Ферма Альбино / Albino Farm (2009) DVD5
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99196.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.	Воительница. Песнь Крови
-Злобная властительница подземного царства Хель лелеет дьявольские планы подчинить себе все живое на земле. А для этого ей необходимо вернуть Череп — огромный магический кристалл, в котором заключена большая часть ее силы. Череп похитил бывший слуга Хель некромант Нидхегг, с его помощью он создал собственное королевство. Тщетно насылала Хель на Ностранд полчища Всадников Смерти — Нидхегг легко отражал их атаки. И тогда пришел черед воительницы Фрейядис. Ее вела любовь к дочери, оставшейся заложницейв руках Хель. Ей помогала вера в победу и несравнимое воинское искусство. Ее ожидали тяжкие битвы и кошмарные застенки Ностранда, чудовищные пытки и леденящий кровь ужас. Но неистовая воительница и ее верные друзья преодолели все испытания и сокрушили мерзкого некроманта...2002Перевод: Л. Ворошилова, Н. ИшковФормат: FB2
+Четверо студентов-друзей, исследующих местность известную как Горы Озарка, забрели на чужую ферму, чтобы уже никогда с нее не выбраться. Их ждал тепленький, смоченный кровью прием в лице семейки генетических уродов…Жанр: УжасыРежиссер: Джо АндерсонАктеры: Таммин Сурсок , Крис Джерико , Санкриш Бала , Ник Ричи , Алисия ЛаганоПеревод: Двуголосый закадровыйЯзык субтитров: испанскийПродолжительность: 01:25:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E017E19633E7AB18D5F7D0647D00FFD2BD62045A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,41 +241,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481243   (99193) от 10.04.2012
+###  Публикация: 479733   (98858) от 07.04.2012
 
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №27 (2012.04.10) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99193.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933D252E9326D22AC945027504C94B9A8E262E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480860   (99186) от 10.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (10.04.12)
+[Wallpapers] Desktop Wallpapers №12
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99186.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98858.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №12
+Название: Desktop Wallpapers №12
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DB8F26E8FE92D189ED8284322376CFF846CFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479335   (98857) от 07.04.2012
+
+VA - The Chillout Lounge 2 (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheena Jordan-Yureema - A Daughter Of The Sea
+02. Jamie Bamford - Show Me An Open Sky
+03. Ascendent Star - Wherever You Are
+04. Muted Ecstasy - You Showed Me
+05. Silver Heart - Everywhere With You
+06. Star & Emotion - Its Unconditional
+07. Oliver Lockman - Pure & Everlasting
+08. Phalgun Radha - Constant Flow
+09. Nachiketa Harisnakshi - Forest Of Knowledge
+10. Ricardo Vionaika - Of Blue Red White & Star(   Читать дальше...   )2012Жанр: Chillout | Downtempo | LoungeПродолжительность: 03:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAA2D521E3E0E449DAC5101FC936DFCAEBCB1BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479461   (98856) от 07.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98856.jpg" />
 </div>
 
 
@@ -734,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EC276ECD85BE2801770F6E3D60C8C22644342FC
+magnet:?xt=urn:btih:AFE9AB6F213EBB2179068C7BB67B412185A091F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -742,15 +332,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480863   (99185) от 10.04.2012
+###  Публикация: 479460   (98855) от 07.04.2012
 
-[Wallpapers] HQ Wallpapers by KSV (10.04.12)
+[Wallpapers] Music Wallpapers (07.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99185.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98855.jpg" />
 </div>
 
 
@@ -760,7 +350,411 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0DDB115C99275DABB7A042553D12CC68C0973B5
+magnet:?xt=urn:btih:3C0012E43631A02E3A6E2222FC1700A51E94B87D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478116   (98854) от 07.04.2012
+
+VA - Клубная энергия танцпола (2012) [MP3|160-256 kbps]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siatria - Закрой глаза (prod. by Shaplin)
+02. Mixi - Между Мной И Тобой (Dj Andy Wait Remix)
+03. Akcent - My Passion (Emin K & Ansarov Remix)
+04. Armin Van Buuren feat. Sophie Ellis - Bextor - Not Giving Up On Love
+05. N - Finity - Someone Like You (Kris Mctwain Edit)
+06. Dj Vengerov Feat. Александр Ягья - Потанцуй Со Мной (Club Edit Remix)
+07. Rihanna - Only Girl (In The World)
+08. MF - Все будет хорошо (DJ Rich-Art & DJ Night remix)
+09. Dj Mixer Euro & Nika Belaya Ft Greysound - Зажигаем (Greysound Radio Edit)
+10. Ёлка - На большом воздушном шаре (Viento & Mutti bootleg)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5970025E4858819075F667CA1604C6BE0B605726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479154   (98850) от 07.04.2012
+
+Каникулы в Мексике - 2. Выпуск №25 (2012.04.06) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98850.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47074E21C44AC9A7B9D1944CEA662A7E20A72B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479465   (98849) от 07.04.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34037B6326A7EC36F94E0CE650F39B2D34F6FFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479487   (98846) от 07.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F877ECF353922C06D02E7FBB077D39D5ABBFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479485   (98845) от 07.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F78BEEDCCD64E5EC9CEFB6221339D4C6AE37B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479351   (98844) от 07.04.2012
+
+VA - Soul of Ibiza Volume 28 (07.04.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98844.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix)
+002. Ingsha & Di - Binary Code (Transit Passengers Remix)
+003. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix)
+004. Justin Dobslaw - Cold Snap (Andrew Rayel Remix)
+005. Vincent De Jager feat. Emma Lock - Dive (Original Mix)
+006. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix)
+007. Cerf, Mitiska & Jaren - Down To You (Original Mix)
+008. Sander Van Doorn - Drink To Get Drunk (Extended Version)
+009. Luca De Maas - E-Motions 2011 (original mix)
+010. The Blizzard & Yuri Kane feat. Relyk - Everything About You07.04.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73FEFFF1AEFFB57EEC0FAE023DAA4DA2660C2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479332   (98842) от 07.04.2012
+
+Distance Call - Distance Call (2011) [FLAC|Lossless]<Melodic Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [0:12]
+02. Ray Of Light [3:55]
+03. Brick's [4:47]
+04. Gambling [3:14]
+05. Wing's Love [5:34]
+06. Set Me On Fire [3:24]
+07. Prisoner Of The Past [5:50]
+08. Paradise [5:40]
+09. First Kiss [6:11]
+10. Thunderstorm [4:28](   Читать дальше...   )Жанр: Melodic Metal, Heavy MetalПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479488   (98841) от 07.04.2012
+
+[Wallpapers] Girls Wallpapers (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DC315D6DC801383901E61C67E89F793BB5481A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478856   (98839) от 07.04.2012
+
+Omertah - Essence (Promo) (2012) [MP3|320 кб/с]<Atmospheric Math Metal / Post-Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98839.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Essence
+ 2. OceansЖанр: Atmospheric Math Metal / Post-RockПродолжительность: 00:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82266B60C85E0C5045BA7E0703780E440FE01A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479682   (98838) от 07.04.2012
+
+[Wallpapers] Nature Pictures №38
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98838.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №38
+Название: Nature Pictures №38
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 1920х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701098495B4266070762D51641B7FAFFF7260719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479484   (98837) от 07.04.2012
+
+[Wallpapers] Best HD Wallpapers (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8A66FCA3E86454533A6F03D8D1A45027E18CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479754   (98834) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98834.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №14
+Название: Desktop Wallpapers №14
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E744BE7DAE44D89A57CCD2F110990E811C6A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479483   (98833) от 07.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A9EF35FFBC820EF2C5B6BE04EF72708681FD7F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479685   (98832) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98832.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №8
+Название: Desktop Wallpapers №8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E5DB306863462EBBF8D43CE148E4D3346C0498
 ```
 
 https://mybot314.ru/tekegram_catalog/

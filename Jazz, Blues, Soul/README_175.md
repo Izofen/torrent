@@ -1,3 +1,90 @@
+###  Публикация: 1391740   (771629) от 22.06.2020
+
+Bridget Kelly Band - Dark Spaces (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Me  (05:01)
+ 02. Sky's The Limit (04:25)
+ 03. Dark Spaces  (05:19)
+ 04. Find My Way Back Home  (03:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209C21D603C3088E399A74C9697C31D50C7C695E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016223   (771592) от 13.05.2016
+
+Ken Navarro - Unbreakable Heart (2015) [FLAC|Lossless|tracks] <Contemporary Smooth Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaco Smiled
+02. One Night In Mumbai
+03. Unbreakable Heart
+04. Juliet(   Читать дальше...   )Жанр: Contemporary Smooth Jazz, FusionПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EE89834A178C9E20F8FDFB3F306A1DFEE558D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016304   (771474) от 13.05.2016
+
+Catfish John Tisdell - Nothin but the Blues (2016) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sky's Been Cryin' (04:17)
+02. Sweet Home Chicago (04:15)
+03. Early in the Mornin' (04:19)
+04. Before You Accuse Me (03:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58ED6412FC84E0359408049B157CAA3F5C66A951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761446   (771422) от 07.04.2015
 
 George Benson - 33 альбома (1966 - 2015) [FLAC|Lossless]<Jazz, Bop, Fusion, Soul-Jazz, Latin Jazz, Smooth Jazz, Easy Listening>
@@ -657,93 +744,6 @@ Corey King - Lashes (2016) [FLAC|Lossless|tracks + .cue] <Fusion, Vocal, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75902D9AF9193B8DDC337B9FD412B213D2C888BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125548   (768114) от 15.04.2017
-
-Arthur Doyle & Sunny Murray - Live at Glenn Miller Cafe (2000) Ayler Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Spontaneous Creation, Part 1 [02:01]
- 02.Spontaneous Creation, Part 2 [06:37]
- 03.Spontaneous Creation, Part 3 [03:20]
- 04.African Love Call [12:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2636C2D8F0142CD9BDBAA3B1A1751600751AC01A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125809   (768069) от 15.04.2017
-
-Candye Kane - Coming Out Swingin' (2013) [FLAC|Lossless|image + .cue] <Blues, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Coming Out Swingin'  (02:43) 
-02. Rock Me To Sleep  (02:43) 
-03. I'm The Reason Why You Drink  (03:50) 
-04. When Tomorrow Comes  (04:08) (   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE85D66EB4F16C6A0B12E8F28F600B477ED3692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125610   (768064) от 15.04.2017
-
-Little Hurricane - Same Sun Same Moon (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа образовалась в начале 2010 года. Little Hurricane - это дуэт CC - ударные и Tone - гитара, вокал, клавиши. Играют "грязный" блюз из Южной Калифорнии.01. Same Sun Same Moon (3:23)
-02. Bad Business (2:58)
-03. Otl (3:16)
-04. Isn't It Great (2:54)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B6A3ACEDC8AF35D482CD7F8E5864AC2C45C074
 ```
 
 https://mybot314.ru/tekegram_catalog/

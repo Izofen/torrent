@@ -1,3 +1,32 @@
+###  Публикация: 1111291   (241628) от 05.03.2017
+
+Brinklz - How do you like my hairdo? (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horrow Show (3:57)
+02. How Do You Like My Hairdo? (3:28)
+03. Temperature (6:15)
+04. Killing Snakes (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126B7E930EDCC14463C42992B138E8D16B2379EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629660   (241558) от 27.04.2023
 
 Bill Reichenbach & Rodger Fox - Something Juicy (1984) 1992, Circular Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Trombone Jazz>
@@ -716,35 +745,6 @@ Cleo Laine - Portrait Of A Song Stylist (1989) The Harmony Collection [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A44876506BD0592156CC24CE4E6F3EEDDA4950EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625994   (241207) от 12.04.2023
-
-VA - Sensual Rhythm and Romance Jazzy Chilly Instrumentals (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean -- Begin Again (4:34)
-02. Chillaxing Jazz Kollektion -- Wherever I Go (4:19)
-03. Chillaxonic -- Mellifluous (4:27)
-04. eJazz Artistry -- Come Share My Love (4:31)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F236D1C1A02C9FA36F9742E6E602BAA507FB14D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

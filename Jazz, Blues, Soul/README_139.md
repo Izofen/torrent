@@ -1,3 +1,90 @@
+###  Публикация: 1115287   (826772) от 18.03.2017
+
+Organissimo - Waiting For The Boogaloo Sisters… (2003) Big O Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Meet Me @ 11 [03:56]
+ 02.Jimmy Smith Goes To Washington [05:35]
+ 03.Clap Yo' Hands [07:19]
+ 04.Life Wish [06:21](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Jazz-FunkПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2C968D6DB4F66E33635946CB0824C160660E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115788   (826768) от 18.03.2017
+
+Harry Allen Quartet - London Date (2016) Trio Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This is My Lucky Day [07:56]
+02. A Time For Love / You Are There [09:46]
+03. June Song [11:03]
+04. Where No Man Has Gone Before (Theme From Star Trek) [09:34](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D453CEB1624412BB9FE470FBAA3524B314FF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115372   (826662) от 18.03.2017
+
+Michel Camilo & Tomatito - Spain (2000) Universal [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Spain Intro [03:22]
+ 02.Spain [05:34]
+ 03.Besame Mucho [07:54]
+ 04.A mi nino Jose [04:53](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Piano JazzПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9C17C786DECF312C28D2B7396E9F7BE34C8DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115368   (826660) от 18.03.2017
 
 Clifford Brown & Max Roach - Brown and Roach Incorporated (1954) 2004, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
@@ -658,93 +745,6 @@ Dusko Goykovich & Scott Hamilton - Second time Around (2015) Organic Music[FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A241D88736BA75F48CFC9F45AF996B1AD014F9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502896   (825142) от 16.10.2021
-
-James Brown – I'm Real (1988) [FLAC|Lossless|tracks + .cue]<Funk, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tribute 0:24
-02. I'm Real 5:33
-03. Static ( Part 1 & 2 ) 4:52
-04. Time To Get Busy 5:17(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCA86FFE7BBEA9D7179690D32960117F2F0BA6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116073   (825068) от 19.03.2017
-
-Phineas Newborn, Jr. - Here Is Phineas (1956) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Barbados [04:06]
- 02.All The Things You Are [07:28]
- 03.The More I See You [04:07]
- 04.Celia [03:11](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F69B0071D05409FC7AE110090EB749B732F04DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116171   (824966) от 19.03.2017
-
-Kenny Neal - Bloodline (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824966.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Нилом не может быть путаницы – он точно практикует блюз, а не водит романов с роком. Респект. Однако тут и его козыри, и ахиллесова пята в одной упаковке. Поскольку блюзроковый релиз, особенно гитаристу его уровня, элементарно загрузить агрессивным звуком, пошуметь, поорать, подпустить дыма-огня – и привет, народ сбежался:) А с блюзом сложнее. Приходится оставаться (   Читать дальше...   )01. Ain't Gon' Let the Blues Die (3:19)
-02. Bloodline (3:50)
-03. Plain Old Common Sense (5:12)
-04. Funny How Time Slips Away (4:46)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B959B7CDA14C4195E840C45A18090BA0170267
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1329025   (355959) от 03.10.2019
+
+Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoyt's Office (01:25)
+02. Defeated Clown (02:39)
+03. Following Sophie (01:33)
+04. Penny in the Hospital (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95ECDD5FC991EAA221A7ADCB422D02943B7054B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177825   (355940) от 28.10.2017
 
 Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -726,35 +755,6 @@ Curtis Macdonald - Breeze (2016) [FLAC|Lossless|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CFFC65AA537B7E83B1472D5C8D04AAB166DFF8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329604   (352374) от 05.10.2019
-
-Thomas Barquee - The Sound of Om (2003) [FLAC|Lossless|tracks + .cue] <Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Maha Devaya Namaha (10:30)
-02. Om Namo Bhagavate Vasudevaya (8:47)
-03. Om Namah Shivaya (10:33)
-04. Hare Krishna Hare Rama (7:43)(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31F3B8A2857CECC52BA5F28299EA781285EDCC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

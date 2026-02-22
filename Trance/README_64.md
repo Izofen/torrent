@@ -1,3 +1,32 @@
+###  Публикация: 1785634   (69185) от 17.03.2025
+
+VA - 40 Years Techno Club (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Split Second - Flesh (03:53)
+02. Zwischenfall - Flucht '84 (English Version) (05:27)
+03. Moskwa Tv - Generator 7/8 (06:20)
+04. Westbam - Monkey Say Monkey Do (Kurzmix) (03:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B923B652F6F8B42DD062680C17DA9E55D75617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785595   (69160) от 17.03.2025
 
 VA - Trance Horizons, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
@@ -714,35 +743,6 @@ VA - Trancendence, Vol. 01 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95E7E23057CBF8BC16EEF1B84F43D35F80A91247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793877   (67416) от 27.04.2025
-
-VA - Techno Club Vol. 74 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torsten Stenzel & Mahe' - Never Give Up (York Extended Mix) [6:09]
-02. XiJaro & Pitch x JKult - United In Dreams (Extended Mix) [7:06]
-03. Talla 2XLC - Touch The Light (Extended Mix) [6:30]
-04. Woody Van Eyden - Sky (Extended Mix) [5:20](   Читать дальше...   )Жанр: TranceПродолжительность: 03:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE759AB2F46C17ECD5124BFA11C494BF163C2233
 ```
 
 https://mybot314.ru/tekegram_catalog/

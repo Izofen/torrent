@@ -1,3 +1,177 @@
+###  Публикация: 1705337   (113883) от 08.03.2024
+
+Norah Jones - Visions (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All This Time
+02. Staring at the Wall
+03. Paradise
+04. Queen of the Sea(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B307CACE4CC030C38B35133012616849F43D77E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705284   (113877) от 08.03.2024
+
+Dion - Girl Friends (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Force (4:18)
+02. I Aim To Please (4:23)
+03. Stop Drop And Roll (4:47)
+04. Do Ladies Get The Blues (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841F6518C55BB5879635924DA18C126BAF6D052A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705359   (113875) от 08.03.2024
+
+Marisol - Поёт Марисоль (1980) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Расскажи мне о море, моряк. - Hablame del mar, marinero. (M.Alejandro - A.Magdalena)
+02 - Скажи ему, чтобы он вернулся. - Dile que vuelva. (M.Alejandro - A.Magdalena)
+03 - В нее влюбленный. - Emanorado de ella. (M.Alejandro - A.Magdalena)(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818913F9BEF39B25346C102BA73D3B6ECA1BE660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705298   (113873) от 08.03.2024
+
+Mike Della Bella Project - The Man With The Red Shoes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far From Over (3:34)
+02. Gifts Of Life (3:42)
+03. Shelter Me (4:03)
+04. Nothing I Wouldn't Do (3:54)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7E4431AFF6985637BCFCABA3A24517F4D65E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705383   (113870) от 08.03.2024
+
+Paul Anka - Paul Anka (1991) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One.
+01 - We Made It Happen. (Anka. Gosh)
+02 - Everything's Been Changed. (Anka. Hogan)
+03 - There Is Something I'd Like To Say To You. (Anka. Hogan)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037CD06CAB8D2E91C1D4FFEA0FBEC4F3F79CDFFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705287   (113865) от 08.03.2024
+
+Black Cat Bone - Tales of the Amplified (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undertone (4:10)
+02. Shake It! (4:43)
+03. Out on Love (2:43)
+04. Freak Machine (5:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828DC1B5AD2F913D4180DBEC465E75D44802EFD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705296   (113858) от 08.03.2024
 
 Handsome Jack - A Good Thing (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
@@ -571,180 +745,6 @@ Gost - Prophecy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94C41F0BAE8420BE2F7C0FD71251245EF05600E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705686   (113785) от 09.03.2024
-
-Electro Deluxe - NEXT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nakie Nakie (4:38)
-02. One In A Million (4:17)
-03. 1979 (4:48)
-04. Who's Got Your Back? (5:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D184607725D99D06D09A9E5B294C4A00B77AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705588   (113782) от 09.03.2024
-
-Sonata Arctica - Clear Cold Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First In Line (5:22)
-02. California (4:25)
-03. Shah Mat (4:09)
-04. Dark Empath (6:05)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50F2EC87CAC8594EA5CF41EE0AA5AB2233AF280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705693   (113767) от 09.03.2024
-
-Vincent Touchard Trio - L'air du temps (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aujourd'hui (5:58)
-02. Lâcher-prise (4:20)
-03. 42 à Brest (4:59)
-04. Sobriété (4:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F716BDFBC601E930CE779BD1B161D3B5F9BA59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705602   (113765) от 09.03.2024
-
-Alterium - Of War and Flames (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drag Me to Hell [00:03:02]
-02. Siren's Call [00:04:09]
-03. Of War and Flames [00:04:46]
-04. Firebringer [00:03:52](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E7667C0489E0993E538C6BFB945484BE36C5BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705830   (113760) от 10.03.2024
-
-Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossless|tracks] <Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Настоящее золото - легкая жизнь. Solid Gold, Lasy Actiont.
-02 - Парень ХХ века. 20th Century Boy.
-03 - Мечта малолеток. Teenage Dream.(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AED9FADE70D26B840E0FDA2D82801A4AB529BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705723   (113754) от 10.03.2024
-
-Сергей Маврин - Студийные альбомы (20 изданий) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113754.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Маврин» (ранее «Маврик», 1997–2001, и «Сергей Маврин», 2001—2009) — российская хеви-метал-группа, получившая название в честь основателя группы Сергея Маврина, бывшего гитариста группы «Ария». Существовала в течение четверти века: с 1998 по 2023 гг.1997 - Смутное время
-1998 - Скиталец
-2000 - Неформат 1
-2001 - Химический сонЖанр: Progressive Heavy MetalПродолжительность: 17:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5153A135BEDCE23ABA17CA1FC06930A9C7B55BAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1373792   (877981) от 07.04.2020
+
+Movavi Video Editor Plus 20.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Editor, это один из лучших видео-редакторов на рынке мультимедийных продуктов, ориентированных на массового пользователя, профессиональных требований не требуется, вам достаточно владеть опытом работы с простыми мультимедийными программами. Movavi Video Editor дает возможность юзеру заниматься редактированием своих видео-файлов на хорошем базовом уровне. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803B8804A70BD9AC00E20BE82D5550DACF3D153E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 764976   (877970) от 10.03.2014
 
 RJ TextEd 8.90 + Portable [Multi/Ru]
@@ -695,41 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4960E36974170C4724B6F8CB9A8DDE3FB6F96AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 298012   (877879) от 23.02.2011
-
-Dead Can Dance - Serpents egg (1988) [SACD rip to DVD-Audio 2.0 24/96]<ambient, world music>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. "The Host of Seraphim" – 6:18
-2. "Orbis de Ignis" – 1:35
-3. "Severance" – 3:22
-4. "The Writing on My Father's Hand" – 3:50
-5. "In the Kingdom of the Blind the One-Eyed Are Kings" – 4:12
-6. "Chant of the Paladin" – 3:48
-7. "Song of Sophia" – 1:24
-8. "Echolalia" – 1:17
-9. "Mother Tongue" – 5:16
-10."Ullyses"Жанр: ambient, world musicПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

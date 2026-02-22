@@ -1,3 +1,117 @@
+###  Публикация: 1495610   (878937) от 13.09.2021
+
+VA - Monster Pop Hits (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - Love Story (Taylor’s Version) (03:55)
+02. Maroon 5 - Beautiful Mistakes (03:47)
+03. OneRepublic - Run (02:49)
+04. Shawn Mendes - Señorita (03:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798A4863B803EEF7A643F8554787F9F75DED19DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373655   (878482) от 07.04.2020
+
+Teri DeSario - Moonlight Madness (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight Madness (5:07)
+02. Heart Of Stone (3:24)
+03. With Your Love (4:27)
+04. Hold On, Hold On (4:54)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88E7BF54C573E9D1E59EC79A35F7B99ED39BE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104643   (878219) от 16.02.2017
+
+Cosmic Hoffmann - Weltraumboogie / Space-Disco (1982) 7" [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weltraumboogie (3:48)
+02. Space-Disco (4:30)Жанр: Electronic, DiscoПродолжительность: 00:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0209CF4A1773BEF9E8E896392CD904F3C1E9BC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104739   (878212) от 16.02.2017
+
+Patchworks Galactic Project - Space (2013) [MP3|320 Kbps] <Electronic, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Tripping (2:04)
+02. Cruising Through Space (4:16)
+03. Approaching The Black Whole (1:44)
+04. Time And Space (5:09)(   Читать дальше...   )Жанр: Electronic, Soul, DiscoПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFE3E103B3B49A04A68B2C8EDF972E54F089BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996654   (877569) от 15.03.2016
 
 Freiheit - Fantasy (1988) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
@@ -627,122 +741,6 @@ Minx - Disco-Mondo (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:192096C011ADF6B9A0871266B678D93E60FF4781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496213   (874650) от 16.09.2021
-
-Gabrielle - Do It Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me Softly with His Song
-02. Everything I Wanted
-03. Falling
-04. Stop Right Now(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68879A5B266F8011EA3C4DF578BC01092FD82AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374307   (874581) от 09.04.2020
-
-Jive Bunny And The Mastermixers - ...The Best!! (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Big Band>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The JB Shuffle (4:06)
-02. That's what I like (4:04)
-03. Glen Miller Medley (3:55)
-04. The Juke Box Story (5:37)(   Читать дальше...   )Жанр: Rock & Roll, Big BandПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CB4783239DF42ACEBC3D8C2598D4CA8CF70405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997612   (873894) от 17.03.2016
-
-Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Inner Voices
-02. I ll Be Around
-03. Building An Empire
-04. We Got A Break It Out(   Читать дальше...   )Жанр: Synth-Pop, Sophist-PopПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053B5304FA80BA517FBC327CD100DE8CCB365593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106164   (873640) от 19.02.2017
-
-Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_873640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Come Collect
-02 – Nest
-03 – Watch Me Dive
-04 – One Toy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5050CE0AD6CDCB741B1AB509313B95DFDB8ED493
 ```
 
 https://mybot314.ru/tekegram_catalog/

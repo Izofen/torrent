@@ -1,3 +1,90 @@
+###  Публикация: 1262929   (289925) от 18.11.2018
+
+VA - Veronica #1 Car Hits (2018) 3CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289925.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Robbie Williams - Let Me Entertain You
+02. Kensington - Do I Ever
+03. Rag'n'Bone Man - Human(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C9D2EE32C306E2D19A11D407337E7AF1B726F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335209   (289881) от 01.11.2019
+
+VA - Dance Anthems 2019.03 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolls – It's A Loving Thing 2k19 (Remundo edit) (3:29)
+02. Chrizz Morisson vs Timi Kullai & AK-SWIFT – In The Middle Of The Night (Remundo Deep dub) (2:56)
+03. Dyana Dye Shkendije – Love Is The Key (Bmonde EDM remix) (4:37)
+04. Houzer & LeBons – It's My Show (extended mix) (4:02)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160C95047AEBA946C6632B3A73C2DC6B12E26306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335277   (289876) от 01.11.2019
+
+Jessica Mauboy - HILDA (2019) [MP3|320 Kbps] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blessing (3:09)
+02. Come Runnin' (3:19)
+03. Selfish (3:26)
+04. Jealous (3:28)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C797C3F8849BDAFD0BF55CE16D217BDE5E8E43EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335262   (289740) от 01.11.2019
 
 Celine Dion - D’elles (2007) [FLAC|Lossless|image + .cue] <Pop>
@@ -653,93 +740,6 @@ VA - Песенки под елочку (2009) [FLAC|Lossless|image + .cue] <С�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:179621E33A40898E3D1FE9903DF62D830F0771FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335340   (287544) от 02.11.2019
-
-Lana Del Rey - Norman Fucking Rockwell! - 2019 (Japan) (2019) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norman Fucking Rockwell [04:08]
-02. Mariners Apartment Complex [04:07]
-03. Venice bitch [09:37]
-04. Fuck It I Love You [03:38](   Читать дальше...   )Жанр: PopПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B78A5CD76071BE4D016EC125FB99CF596298744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963387   (287443) от 08.12.2015
-
-Five - Invincible (2000) Special Edition [FLAC|tracks+.cue]<Pop Rap, Ballad, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If Ya Gettin Down (Live) (3:12)
-02. Keep On Movin' (Live) (4:01)
-03. Don't Wanna Let You Go (Live) (2:55)
-04. Everybody Get Up (Live) (3:41)(   Читать дальше...   )Жанр: Pop Rap, Ballad, EuropopПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5597C9708B5CBF544F90F9BA3927013C6896570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335379   (287358) от 02.11.2019
-
-Ace Of Base - Gold (2019) 3CD [FLAC|Lossless|image + .cue] <Synth-Pop, Euro Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287358.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. The Sign (3:11)
-2. All That She Wants (3:32)
-3. Wheel Of Fortune (3:42)(   Читать дальше...   )Жанр: Synth-Pop, Euro PopПродолжительность: 02:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF69B5CC2CFDAEB65ADE6CCD6BDD7650E0F33AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

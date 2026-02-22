@@ -1,32 +1,3 @@
-###  Публикация: 1741727   (105612) от 08.08.2024
-
-The Claus Ogerman Orchestra - Gate Of Dreams (1977) 1988, Warner [APE|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Passed Autumn (Part I) [4:11]
-02. Time Passed Autumn (Interlude and Part II) [2:48]
-03. Time Passed Autumn (Part III) [4:53]
-04. Caprice [4:48](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF111F823CBE550AE29EED52CACF63654F0719C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742526   (105544) от 12.08.2024
 
 Phineas Newborn, Jr. - Look Out - Phineas Is Back (1976) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
@@ -745,6 +716,35 @@ VA - Peaceful Supreme Chill Lounge Happiness Playlist on Vacation (2024) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F577F45CA4C423CE863A859D2CFD665E1454E9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748069   (104590) от 08.09.2024
+
+Scott Hamilton - Jazz Signatures (2001) Concord [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raincheck [5:06]
+02. In Your Own Sweet Way [7:04]
+03. Jitterbug Waltz [7:37]
+04. If You Could See Me Now [5:32](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685309AD4892408AB50163ACA3AA1F9743DC3A52
 ```
 
 https://mybot314.ru/tekegram_catalog/

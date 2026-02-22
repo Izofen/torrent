@@ -1,3 +1,99 @@
+###  Публикация: 435509   (982729) от 13.01.2012
+
+Kim Waters - This Heart Of Mine (2011) [FLAC|Lossless]<Smooth Jazz, Jazz Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Seeker (4:46)
+02. Free Fall (4:11)
+03. Am I A Fool (5:17)
+04. Empire State Of Mind (4:43)
+05. The Groove's Alright (4:31)
+06. Step To This (5:04)
+07. I Love My Girl (4:41)
+08. Love Letter (5:36)
+09. Stay With Me Tonight (4:53)
+10. Running To Love (4:23)(   Читать дальше...   )2011Жанр: Smooth Jazz, Jazz FunkПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 436152   (982723) от 13.01.2012
+
+Koko Taylor - Old School (2007) [WavPack|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Piece Of Man
+02. Gonna Buy Me A Mule
+03. Black Rat
+04. Money Is The Name Of The Game
+05. You Ain't Worth A Good Woman
+06. Better Watch Your Step
+07. Bad Avenue
+08. Bad Rooster
+09. Don't Go No Further
+10. All Your Love(   Читать дальше...   )2007Жанр: BluesПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164640   (982642) от 10.01.2010
+
+Larisa Dolina & Igor Butman's Big Band (Лариса Долина, Игорь Бутман) - Carnival of Jazz II, Live in Saint-Petersburg (2xCD+DVD9) (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Спустя 6 лет после премьеры первого «Карнавала джаза», Лариса Долина и Игорь Бутман решили осуществить новый совместный проект, в результате чего было создано неподражаемое джазовое шоу «Карнавал джаза-2. No comments». В программу вошла целая ретроспектива мировых джазовых хитов, ранее исполняемых суперзвездами, такими, как Билли Холидей, Фрэнк Синатра, Элла Фитцджеральд и другими. Среди них - How High The Moon, I Can't Give You Anything But Love, Mister Paganini, Everything Must Change. Именно с этой программой одна из самых прославленных и признанных мировыми корифеями джаза российских певиц и самый известный из российских джазовых саксофонистов выступили перед восторженной питерской публикой. Северная столица еще не видела джазового шоу такого уровня. Зрительный зал рукоплескал стоя.Жанр: JazzРежиссер: Игорь МасловФормат: DVD Video
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 435469   (982636) от 13.01.2012
 
 Norman Brown - West Coast Coolin' (2004) [FLAC|Lossless]<Smooth Jazz>
@@ -731,96 +827,6 @@ Ike Quebec - Heavy Soul (1961) 1995, Planet[FLAC|tracks+.cue] <Mainstream Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:949E32EEA158D66F9208242EF7CD711BB9FB6971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 210632   (981837) от 04.01.2014
-
-Caetano Veloso - A Bossa de Caetano (2000) [FLAC|Lossless]<Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Samba de verao   (3:11)
-02.  Chega de saudade   (2:09)
-03.  Desde que o samba e samba   (5:13)
-04.  Coisa mais linda   (3:16)
-05.  Get out of town   (3:57)
-06.  Quando eu penso na Bahia   (1:53)
-07.  Chuvas de verao   (2:53)
-08.  Lindeza   (4:09)
-09.  Chora tua tristeza   (3:02)
-10.  Nega maluca   (3:58)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761B30A63DCA1874EDC0B35AE99D9AC8E2FA96EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741823   (981835) от 04.01.2014
-
-V.A. - Jazz And Floyd (2013) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella Starlight Trio - Another Brick In The Wall (Part 2)
-02. The Cooltrane Quartet - Breathe (In The Air)
-03. Michelle Simonal - Time
-04. George White Group - Money(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF0E660AF38BED936DD4D479DA09FBA0408D156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165253   (981678) от 11.01.2010
-
-Benny Goodman And His Orchestra - The Essential BG (4 CD) (2006) [MP3|320 kbps]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

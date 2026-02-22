@@ -1,3 +1,125 @@
+###  Публикация: 1316671   (505006) от 27.07.2019
+
+Michael Jackson - Memorial (2019) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thriller (Instrumental)
+02. Wanna Be Startin' Somethin' (12'' Mix)
+03. Billie Jean (Underground Mix)
+04. Ghost(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1C589702ABFC516D07880C387A9499D46E3A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539701   (504206) от 28.08.2012
+
+Дискач 90-х - Come Back To... (2012) [MP3|320 кб/с]<Pop,Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Back To USSR (3:35)
+02. Где-То Далеко (4:10)
+03. Девочка-Луна (4:19)
+04. Грустная История (3:56)
+05. Сердце (3:17)
+06. Замерзаю (4:06)
+07. Я Позову Тебя (4:23)
+08. Улетаю (3:42)
+09. Достала Школа (3:28)
+10. Я Танцую (4:08)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBC80BCB2A05B828EF5C10B3657B5144079DA3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934034   (504170) от 03.09.2015
+
+VA - 300 Hits - Love Songs (2012) [MP3|320 кб/с]<Pop, R&B, Soul, Rock, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504170.jpg" />
+</div>
+
+
+###  Подробнее
+
+По просьбам одноклубников выкладываю этот сборник в МР3, который несколькими днями раньше выложен мною в lossless (ссылка на первоисточник внизу).Список альбомов:
+CD1 - I Will Survive
+CD2 - Timeless Love Songs
+CD3 - Always & Forever(   Читать дальше...   )Жанр: Pop, R&B and Soul, Rock, CountryФормат: 15CD, box setПродолжительность: 16:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8BF47BA01B443E34F24ECDB142124C7D6C6432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316883   (504048) от 28.07.2019
+
+Стас Костюшкин - Караочен (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504048.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Всё ровно
+2. Такси до города
+3. Фанера (feat. Нелли Ермолаева)
+4. Оки чмоки(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D4E38648116B21703036FA4D7B49E51345879A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316891   (504045) от 28.07.2019
 
 VA - BRAVO Hits 106 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Electronic>
@@ -672,133 +794,6 @@ Phildel - The Disappearance Of The Girl (2013) [OGG| 397-475 кб/с]<Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81A9431831C189AF24FECA0D45307A65F62E8DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317604   (499435) от 02.08.2019
-
-VA - Driving In My Car: Ultimate Car Anthems (2019) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499435.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Madness - Driving In My Car (7' Single) 3:17
-02. Roxette - Joyride (Single Version) 4:22
-03. Talk Talk - It's My Life 3:51(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956BFDE689604453869768B8E59DDCFF787F7CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935334   (499408) от 08.09.2015
-
-Prince - HITnRUN Phase One (2015) [MP3|320 кб/с]<Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Million $ Show
- 02. Shut This Down
- 03. Ain't About 2 Stop
- 04. Like A Mack(   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BE45E735922725509896E8A45FA9DE2AC49B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542020   (499169) от 02.09.2012
-
-Silvetti - Spring Rain  (2006) [FLAC|Lossless]<Disco,Funk,Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Rain (5:55)
-02. Primitive Man (5:25)
-03. A Smile At Dawn (4:38)
-04. Two Cups Of Coffee (3:56)
-05. Voyage Of No Return (5:51)
-06. Coconut Rain (4:30)
-07. Fortune Teller (5:30)
-08. Contigo (4:29)
-09. Spring Rain (Radio Edit) (3:01)Жанр: Disco,Funk,SoulПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542305   (499115) от 02.09.2012
-
-VA - Disco Discharge - Classic Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Glitter Band - Makes You Blind (Re-edit) [06:00]
-02. The Players Association - Turn The Music Up! [06:54]
-03. Bombers - (Everybody) Get Dancin' [09:29]
-04. Grey & Hanks - Dancin' [07:07]
-05. Change - It Burns Me Up [05:07]
-06. Glen Adams Affair - Just A Groove [06:20]
-07. Cerrone - Look For Love [10:17]
-08. Companion - Livin' Up To Love [09:11]
-09. Don Ray - Got To Have Loving [08:20]
-10. Manhattan Transfer - Twilight Zone|Twilight Tone [06:06]Жанр: Disco, PopПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

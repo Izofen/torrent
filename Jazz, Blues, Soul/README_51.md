@@ -1,3 +1,107 @@
+###  Публикация: 740781   (983803) от 03.01.2014
+
+Denis Solee - Christmas by Candlelight (2003) [FLAC|Lossless]<Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be Home for Christmas (3:29)
+02. O Christmas Tree (2:57)
+03. The Christmas Song (4:24)
+04. Winter Wonderland (3:59)
+05. The Christmas Waltz (3:30)
+06. You're a Mean One Mr. Grinch (4:19)
+07. Christmas Time is Here (3:36)
+08. White Christmas (5:23)
+09. Santa Baby (4:20)
+10. Have Yourself a Merry Little Christmas (5:14)(   Читать дальше...   )Жанр: Jazz, ChristmasПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57569E540BBAECEDD5E7B741088065E20FC9154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740551   (983748) от 03.01.2014
+
+Enrico Rava - Rava on the Dance Floor (2012) [FLAC|Lossless]<Jazz, ECM>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Speechless (6:37)
+02. They Don't Care About Us (7:55)
+03. Thriller (6:17)
+04. Privacy (5:44)
+05. Smile (3:30)
+06. I Just Can't Stop Loving You / Smooth Criminal (9:13)
+07. Little Susie (3:53)
+08. Blood on the Dance Floor (5:06)
+09. History (8:08)Жанр: Jazz, ECMПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65ED5B6B837C48989E9B3604F036007BC90D39D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741001   (983747) от 03.01.2014
+
+Andy LaVerne & John Abercrombie - Natural Living (2005) [FLAC|Lossless]<Post Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet and Lovely [05:02]
+02. Actual Sighs [06:03]
+03. John's Waltz [04:49]
+04. All the Things You Are [05:20]
+05. Among Tall Trees [05:25]
+06. Natural Living [08:21]
+07. Archetypal Schemata [04:14]
+08. Magnetic Flux [04:05]
+09. Labour Day [05:20]
+10. When you wish upon a star [07:33](   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AED447D16728EADFA58704206C29E813AB45BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 740966   (983746) от 03.01.2014
 
 Jacques Loussier - Reflections Of Bach (1987) [FLAC|Lossless]<Jazz, Instrumental>
@@ -744,102 +848,6 @@ John Pizzarelli - 5 альбомов (1995-2010) [FLAC|Lossless]<Jazz, Swing>
 08. All Too Soon [03:10]
 09. I'm Beginning To See The Light [04:07]
 10. Love Scene [03:48](   Читать дальше...   )Жанр: Jazz, SwingФормат: image+cueПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435509   (982729) от 13.01.2012
-
-Kim Waters - This Heart Of Mine (2011) [FLAC|Lossless]<Smooth Jazz, Jazz Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Seeker (4:46)
-02. Free Fall (4:11)
-03. Am I A Fool (5:17)
-04. Empire State Of Mind (4:43)
-05. The Groove's Alright (4:31)
-06. Step To This (5:04)
-07. I Love My Girl (4:41)
-08. Love Letter (5:36)
-09. Stay With Me Tonight (4:53)
-10. Running To Love (4:23)(   Читать дальше...   )2011Жанр: Smooth Jazz, Jazz FunkПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436152   (982723) от 13.01.2012
-
-Koko Taylor - Old School (2007) [WavPack|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Piece Of Man
-02. Gonna Buy Me A Mule
-03. Black Rat
-04. Money Is The Name Of The Game
-05. You Ain't Worth A Good Woman
-06. Better Watch Your Step
-07. Bad Avenue
-08. Bad Rooster
-09. Don't Go No Further
-10. All Your Love(   Читать дальше...   )2007Жанр: BluesПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164640   (982642) от 10.01.2010
-
-Larisa Dolina & Igor Butman's Big Band (Лариса Долина, Игорь Бутман) - Carnival of Jazz II, Live in Saint-Petersburg (2xCD+DVD9) (2009) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Спустя 6 лет после премьеры первого «Карнавала джаза», Лариса Долина и Игорь Бутман решили осуществить новый совместный проект, в результате чего было создано неподражаемое джазовое шоу «Карнавал джаза-2. No comments». В программу вошла целая ретроспектива мировых джазовых хитов, ранее исполняемых суперзвездами, такими, как Билли Холидей, Фрэнк Синатра, Элла Фитцджеральд и другими. Среди них - How High The Moon, I Can't Give You Anything But Love, Mister Paganini, Everything Must Change. Именно с этой программой одна из самых прославленных и признанных мировыми корифеями джаза российских певиц и самый известный из российских джазовых саксофонистов выступили перед восторженной питерской публикой. Северная столица еще не видела джазового шоу такого уровня. Зрительный зал рукоплескал стоя.Жанр: JazzРежиссер: Игорь МасловФормат: DVD Video
 
 ## Скачать торент
 ```bash

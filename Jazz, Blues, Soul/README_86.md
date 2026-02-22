@@ -1,3 +1,90 @@
+###  Публикация: 1367869   (914368) от 17.03.2020
+
+Paolo Fresu - Wanderlust (1997) RCA Victor [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trunca E Peltunta [6:02]
+02. Favole [8:17]
+03. Wanderlust [4:34]
+04. Geremeas [4:02](   Читать дальше...   )Жанр: Contemporary Jazz, CoolПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305FBDF4E0CC27E27D743AFB4AB425FA46B27F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367849   (914354) от 17.03.2020
+
+John Scofield - That's What I Say: John Scofield Plays the Music of Ray Charles (2005) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Busted
+02. What'd I Say
+03. Sticks And Stones
+04. I Don't Need No Doctor(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598BAD4F3F18FAC6195E05B9A75AEADAC7485B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367878   (914254) от 17.03.2020
+
+The Hot Sardines - The Hot Sardines (2014) [FLAC|Lossless|tracks + .cue] <Modern Swing, Gypsy Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bei Mir Bist Du Schoen
+02. Goin' Crazy With The Blues
+03. Wake Up in Paris
+04. Zazou (Sweet Sue)(   Читать дальше...   )Жанр: Modern Swing, Gypsy JazzПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC52DF448736106393797D83C06F36D43FE99D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097482   (914134) от 27.01.2017
 
 Tommy Ladnier - Giants Of Jazz (1923 - 1939) 1997, Promo Sound[APE|Lossless|tracks + .cue] <Early Jazz, Swing, Trumpet Jazz>
@@ -654,93 +741,6 @@ Tom Feldmann and Noah Levy - Brothers in the Mud (2021) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E17AAA6CF64A0979B1FF45637923465ED51EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491059   (913593) от 23.08.2021
-
-PM Warson - True Story (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Losing and Winning (4:10)
-02. Seen You Around (4:24)
-03. In Conversation (4:14)
-04. Say the Word (3:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12BCD678EBE6C059871E80E2E803AE7612DCF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367895   (913502) от 17.03.2020
-
-V.A. - Audiophile Analog Collection Vol. 2 (2020) [FLAC|24/192|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Vallee Trio - Lights of Barcelona
-02. Trio de Curda - Libertango
-03. Monique Page; Regis Rousseau - Seven Last Words of Christ Introduction
-04. Sonny Boy Williamson - The Sky Is Crying(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B712C45DF67367AFE08A896D1935744A213162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990205   (913398) от 24.02.2016
-
-Hughes Taylor - Hear My Melody (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streams (03:40)
-02. Hold You Tight (06:36)
-03. You'll Never Be Alone (03:36)
-04. Melody (06:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C8D4FFF5D5A1911819E6C302FF1FEE649F6D81
 ```
 
 https://mybot314.ru/tekegram_catalog/

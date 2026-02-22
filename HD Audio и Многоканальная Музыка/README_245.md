@@ -1,3 +1,177 @@
+###  Публикация: 1799582   (16537) от 28.05.2025
+
+Pepe Bueno & os Estranhos - Confissoes e Outros Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Diablues (3:20)
+02.  Denny Caldeira - Atrás do Pôr do Sol (3:12)
+03.  O Blues e a Prancha (4:06)
+04.  Real Valor (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD258F4DBB726C66EFE012C79BDC03A184CC9898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799583   (16535) от 28.05.2025
+
+Radio One Experience - Free Spirit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Before You Accuse Me (3:50)
+02.  Wind Cries Mary (3:38)
+03.  Red House (3:45)
+04.  Same Old Blues (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87E63E8A6C918D2B43A31AE322F2CF31EF3D707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799575   (16534) от 28.05.2025
+
+Henrik Sundqvist - Thoughts Of Sand (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't Fall Backwards (4:12)
+02.  Thoughts Of Sand (5:16)
+03.  Let it Go (3:49)
+04.  When Everything (5:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497D7C7B4089EB7A29B38461508869BC6F0423C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799585   (16533) от 28.05.2025
+
+Richard Cagle & the Voodoo Choir - Zia Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dance Dance Dance (3:34)
+02.  Knocking Me Down (3:58)
+03.  Hello Sunshine (2:56)
+04.  Downtown Groove (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044150AEB369635A9DA50A22961B60CCF33A2733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799589   (16532) от 28.05.2025
+
+The Mat Day Band - The Mat Day Band (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Greg Coulson - No One Else To Blame (4:47)
+02.  Throne Of Glass (7:35)
+03.  Travelin' Man (4:21)
+04.  Fooled (7:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655B14BBE4580E5C32859138A061E03123E0E3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799581   (16531) от 28.05.2025
+
+Matt Schofield Trio - Many Moons, Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Can't Catch My Breath (5:38)
+02.  Any Questions (5:59)
+03.  Shoe On The Other Foot (5:26)
+04.  Measure Of A Man (7:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7971C5FAB5A12394B120CC7E9FF247C09EEDB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799591   (16529) от 28.05.2025
 
 Wreckless James - Train of hurt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -569,178 +743,6 @@ Joe & The Regulators - Are You Regulated? (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE534CCC220CAEFA846AE584758792A03683BB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800749   (15555) от 05.06.2025
-
-Gary Hoey - Avalanche (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Avalanche (3:39)
-02.  Unstoppable (3:34)
-03.  Maine to Mississippi (4:07)
-04.  Cold (5:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56CD0F6690292DD5B233F0C9B95A0B7DEDD2141C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800738   (15552) от 05.06.2025
-
-3rd Rock Studios - None of Your Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Ballad of the Chupachup (3:03)
-02.  Trivia Night (Remastered) (2:30)
-03.  Karaoke Night (Remastered) (3:32)
-04.  Singles (Remastered) (3:12)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0361416D9F5A9109A497753EE03A7CA3EB99C833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800757   (15551) от 05.06.2025
-
-When Rivers Meet - Addicted To You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Addicted To You (3:53)
-02.  Break Free (3:32)
-03.  Still Standing (3:35)
-04.  Coming Up For Air (4:12)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB10FE0CADCA29D1E4CEEA58F9B3A031D0AAAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800751   (15541) от 05.06.2025
-
-Honeyboy Slim & The Bad Habits - Honeyboy Slim & The Bad Habits (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Let It All Hang Out (2:49)
-02.  For You Blue (1:41)
-03.  Built For Speed (2:34)
-04.  Bark But No Bite (2:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95310105F8C81B1C49D664B4B3BF3DE91D41A029
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800686   (15539) от 05.06.2025
-
-Umpfel - Studio Albums (2 releases) (2015-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Umpfel — прогрессивный рок/метал-проект из Норвегии. В его состав входят Анунд Викингстад ​​(гитара и бас) и Андреас Скорпе Шён (ударные, клавиши и вокал).2015 - Cactus
-2019 - As the Waters Cover the SeaЖанр: Prog Rock, Progressive MetalПродолжительность: 2:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805FE40EBBF06B349778B2C36566026E039EA26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800741   (15535) от 05.06.2025
-
-Cardinal Black - Midnight at The Valencia (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ride Home (3:41)
-02.  Falling (3:22)
-03.  Racing Cars (3:48)
-04.  Breathe (3:21)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDDC928CE3FC00D5785BB71E0C4F84476A51C4EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

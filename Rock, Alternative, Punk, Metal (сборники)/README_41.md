@@ -1,3 +1,32 @@
+###  Публикация: 1346109   (164482) от 18.12.2019
+
+VA - Not Dead Yet: Modern Rock Compilation (2019) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164482.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ouzo Bazooka - Sleep Walk
+002. Hippo Campus - Bubbles
+003. Hodera - If You Want Me To
+004. Per Frost - Furious Machines(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5D8E811768C0FEA117FB2A786204AB20FCF810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432450   (164170) от 17.12.2020
 
 VA - The True Story (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
@@ -716,35 +745,6 @@ VA - Radiohead - Best275z (1993 - 2016) [MP3|320 Kbps] <Alternative Rock, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01368BEDB1A4F423EDE877457101D809FCF800A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969118   (147010) от 27.12.2015
-
-VA - Рок впрок 4 (2015) [MP3|320 кб/с] <Рок, Поп-Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мара - За мной
-02. J-МОРС - Не край
-03. Ракоший Нелч - Куда уходят кумиры
-04. Pauca Verba - Ничего(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B881978F63BABC1B15E6431AD5D4C5686DC2D6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

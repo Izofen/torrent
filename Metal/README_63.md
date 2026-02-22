@@ -1,3 +1,32 @@
+###  Публикация: 911021   (620804) от 21.06.2015
+
+Anuryzm - All Is Not For All (2015) [MP3|320 кб/с]<Power / Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mineral
+02. Full Agonist
+03. Humanoid
+04. Depolarized(   Читать дальше...   )Жанр: Power / Progressive MetalПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734351DBCD14429902691300B2FCEC735F51E966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911019   (620799) от 21.06.2015
 
 Negacy - Flames Of Black Fire (2015) [MP3|320 кб/с]<Heavy / Power Metal>
@@ -713,35 +742,6 @@ Dendera - Pillars Of Creation (2015) [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661AE4D4E86F30FBB751C7B6D81988FC6BAFC8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545123   (616531) от 18.04.2022
-
-Nuclear Storm - Tales from the Depth (2022) [MP3|320 Kbps] <Melodic Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Animal (00:04:57)
-02 - The Crew (00:03:29)
-03 - The Empire (00:03:56)
-04 - The Great White (00:05:58)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEA10837A981A66A743E3AF8F7DF7FB89F50D65
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1275200   (791157) от 10.01.2019
+
+VA - Winter Super Beats '19 (2019) [MP3|320 Kbps] <Electronic, Future House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Walker - Ocean (Original Mix) 5:09
+02. WDX - Late Night Kiss (Original Mix) 4:17
+03. Ian Deluxe - Feels Like This (Original Mix) 4:40
+04. Steven Turner & Murrell - So Close (Original Mix) 4:53(   Читать дальше...   )Жанр: Electronic, Future House, DanceПродолжительность: 02:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5498947EEC3BD14C2E3DA6DC0D08F62B36E00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275207   (791154) от 10.01.2019
+
+VA - Deep House Grooves, Vol. 14 (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loic Hoffman & Brrak - The Wind (Brrak Remix)
+02. Mert Avci - Forget Me Not (Original Mix)
+03. Superkluster - Timelapse (Original Mix)
+04. Lawrence Dix & Matt Prehn - Anima (Matt Prehn Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD26567AFDD90E9EC31F834C3CA7FD08D30996AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201928   (790904) от 27.01.2018
+
+VA - Best of Ibiza 2018 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MYNC - I Feel Love (Illyus & Barrientos Remix - Radio Edit) (Feat. Wynter Gordon) [4:25]
+02. Carl Cox - I Want You (Forever) (Josh Butler Remix - Radio Edit) [4:06]
+03. Fedde Le Grand - Put Your Hands Up for Detroit (TV Rock & Dirty South Remix) [6:50]
+04. DJ Wady - Hulk (Camelphat 2017 Re-Fix - Radio Edit) [3:31](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6E4EB3D4A53274B1D03A6EF409F5855F440776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275638   (789903) от 12.01.2019
 
 VA - EDM Workout (2019) [MP3|320 Kbps] <Progressive House, Dance>
@@ -658,93 +745,6 @@ VA - Minimal Love Vol. 5. (2019) [MP3|320 Kbps] <Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BCDBF7DB1F91BDA6B2A8CBFF6B23C14B0DB136A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276973   (787258) от 18.01.2019
-
-VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Encure feat. Brett Miller Extended Mix - You Lead, I Follow (Extended Mix)
-02. Zinner, Orffee - Someday (Instrumental Radio Edit)
-03. Fijin feat. Nessa Sovi Remix - The One (Sovi Remix)
-04. Ben Weber - My People(   Читать дальше...   )Жанр: HouseПродолжительность: 02:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FEA7A73E7A2A6B0CCAF650E016A47AB1FB45B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417742   (787103) от 25.11.2021
-
-Michel Suhov - From Ghetto With Love (2015) [MP3|320 Kbps|image+.CUE,tracks] <Afro House, Funky House, Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michel Suhov - From Ghetto With Love (Continuous DJ Mix) (01:04:26)
-02. Milty Evans - So Very Happy (06:36)
-03. Simba - 5 Minutes With Beaumont (Le Babar Remix) (04:19)
-04. Furniture is Music - Furnitures Preselected Love (2011 Remastered) (05:20)(   Читать дальше...   )Жанр: Afro House, Funky House, Soulful HouseПродолжительность: 02:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FE51F6F3C844A937585CDA930FB1C619A89189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277248   (787030) от 19.01.2019
-
-VA - Dance Mix Vol.7 (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caleb Weiss - Crowd Control (Original Mix) 7:33
-02. Nacim Ladj - Mind Control (Original Mix) 5:53
-03. Guido Bruzzese - Time Control (Original Mix) 6:38
-04. Umai Move & Kamikaze Bird Squad feat. Ellena Grace - Control Issues (Original Mix) 6:41(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063F08019A7E51B6A22DA9AB4371B6367ED8F7D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

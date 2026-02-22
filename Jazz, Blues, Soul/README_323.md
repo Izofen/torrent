@@ -1,3 +1,90 @@
+###  Публикация: 1408635   (454022) от 13.09.2020
+
+Stanley Cowell - Reminiscent: plus A Xmas Suite (2015) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intermezzo [4:11]
+02. Re-confirmed [6:05]
+03. A Child Is Born [7:55]
+04. A Xmas Suite [10:03](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA53BDDD5C70A8370E935C6A20F6787C8BCDACA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942766   (453997) от 01.10.2015
+
+The Bill Evans Trio featuring Stan Getz - But Beautiful (1974) /1996, Oldis/[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Grandfather's Waltz [08:06]
+02.Stan's Blues [05:50]
+03.But Beautiful [05:44]
+04.Emily [05:41](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D00E26FCDA332BCA678D051B852DC4A51C27B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 826606   (453939) от 30.09.2014
+
+Jeff Lorber - Chuck Loeb - Everette Harp - Jazz Funk Soul (2014) [FLAC|Lossless]<Smooth Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speed Of Light (4:31)
+02. Swingette (5:09)
+03. Adrenaline (4:29)
+04. Silent Partner (6:25)(   Читать дальше...   )Жанр: Smooth Jazz, FusionПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B13A5C7CA4C9573D2FC6887672D8C7A31DECE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569224   (453833) от 12.08.2022
 
 Phil Bodner - Once More With Feeling! (1960 - 1970) 2006, Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
@@ -659,93 +746,6 @@ Cecil L. Recchia - The Gumbo (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9DC1BD835ACB5AC978832A9B9231FDB740DDB43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569275   (451343) от 13.08.2022
-
-The Southern Locomotive Band - Back In Town Tonight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Back in Town Tonight (00:04:51)
-02 - Money's All Done Spent (00:03:46)
-03 - Walk the Line (00:03:07)
-04 - Float My Way to Freedom (00:03:37)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D50B1642E0EA2F7EB40D3B6EC02C8BC3A9C51D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061002   (451295) от 09.10.2016
-
-Frank Strozier - Long Night (1961, 1962) 2002, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Long Night [04:35]
- 02.How Little We Know [05:58]
- 03.The Need For Love [04:41]
- 04.The Man That Got Away [04:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFEA8DFC37A88337405C1D6E5DEBD93FF19ECE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061274   (451293) от 09.10.2016
-
-Frank Rosolino - Thinking About You (1976) 2CD, 2001, Sackville Recordings[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451293.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Sweet And Lovely [14:03]
-02.Who Can I Turn To [09:21]
-03.Round Midnight [11:16](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFA97C8DCE43905ECA105FC43A3E6C5A5EBA124
 ```
 
 https://mybot314.ru/tekegram_catalog/

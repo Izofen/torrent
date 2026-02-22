@@ -1,3 +1,32 @@
+###  Публикация: 1112695   (841733) от 09.03.2017
+
+The Candoli Brothers Sextet - Jazz Horizons (1957, 1958) 2005, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Disc-Location [04:18]
+ 02.Beautiful Love [02:26]
+ 03.Crazy Rhythm [03:34]
+ 04.My Funny Valentine [03:29](   Читать дальше...   )Жанр: Bop, Cool, West Coast JazzПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28E65EB982F561EBBD9B0BB09D3739A6753DE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112710   (841730) от 09.03.2017
 
 Jeremy Pelt - Make Noise! (2017) HighNote [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
@@ -733,35 +762,6 @@ The Three Sounds and The Oliver Nelson Orchestra - Coldwater Flat (1968) Remaste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB05172D564BF6C66476AB6EB26FF1FB3B49DC18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501059   (838246) от 08.10.2021
-
-Mezz Mezzrow - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathless Blues [2:57]
-02. Really the Blues - Part 1 [3:12]
-03. Really the Blues - Part 2 [2:53]
-04. Evil Gal Blues [2:58](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B11B6CB8C6377C46D9BA6C531A7C9C82C4A2B53
 ```
 
 https://mybot314.ru/tekegram_catalog/

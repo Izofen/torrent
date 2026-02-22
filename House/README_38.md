@@ -1,3 +1,90 @@
+###  Публикация: 1029663   (678465) от 28.06.2016
+
+VA - Energizing Workout Hits (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Newell And Jess Glynne And Dj Cassidy - Kill The Lights (Audien Remix)
+02. Andy Vayel - Pleasant Pain (Original Mix)
+03. Anthony Vince - Want To Dance (Radio Mix)
+04. Antoine Clamaran Feat. Lulu Hughes - Hallelujah (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC429F0B588EDC5978087045F327BF3F0867B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029843   (678317) от 28.06.2016
+
+VA - Balkan Connection Summer 2016 (2016) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subconscious Tales - Helligkeit [07:51]
+02. Praveen Achary, Vlada D'Shake - Public Secret (Praveen Achary Remix) [06:48]
+03. Matter, Jorgio Kioris - Pushin' (Matter's Pushin Too Hard Remix) [08:37]
+04. Rick Pier O'Neil, Dio S, Desaturate - Nonchalance (Rick Pier O'Neil & Desaturate Remix) [07:23](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE67F30AC0A7F5A94C1EDB8D435BD2372476FFD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223286   (677395) от 03.05.2018
+
+VA - Mma Cardio Training (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kacper Kirtz - Funkmaster 03:12
+02. Joscha Rickert - Whitesea 03:09
+03. Gilbert Nouls - Honored 03:09
+04. Georg Miller - Formance 03:09(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F2B50D680C8D99252DED011709ED3770D23362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135935   (677386) от 21.05.2017
 
 Rick Tedesco - Style Clash Vol. 2 (2017) [MP3|320 Kbps] <Progressive House>
@@ -658,93 +745,6 @@ VA - The Art of Electronic Music: Deep House Edition (2017) [MP3|320 Kbps] <Funk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B09D0C49D9C2E8BD2B279C47BB4FBEEA3FFF72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537142   (669239) от 15.03.2022
-
-VA - Hardstyle XXL Megamix 2022 [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gunz For Hire - Ongedierte van de Nacht
-02. D-block & S-te-fan - Twilight Zone (Headhunterz Remix)
-03. Ran-DSound RushLePrince - We Are the Storm (Radio Edit)
-04. JDXSander Nijbroek - Tides (Performance Mix)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 03:40:08 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A58868CFA388DB9301D5083D734F664E711ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031368   (668783) от 03.07.2016
-
-VA - Future House 2016-03 (2016) [MP3|320 Kbps] <House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugel & Jasmine Thompson -  Where We Belong (Calvo Remix) 4:27
-02. Cedric Gervais -  Make Me Feel 3:28
-03. Destructo -  4 Real (Joyryde Swurve Mix) 4:35
-04. Felix Leiter -  BWU 3:07(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 01:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A058B09E24F8EC498082A1FEB316FB84260D315F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031299   (668782) от 03.07.2016
-
-VA - Girl Power #1 (2016) [MP3|320 Kbps] <House, Electro House, Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Coverage -  Tell Me (Club Mix) 4:05
-02. Vio -  One Girl (Stephan F Extended) 4:45
-03. Deeplow -  Limelight (DJane HouseKat Remix) 4:45
-04. Fucking Role Models -  Leave Me Alone (Feat. Adeena) (Extended Mix) 4:52(   Читать дальше...   )Жанр: House, Electro House, Vocal HouseПродолжительность: 02:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99CF45DA0B996397BC7B4CF925C6F858FFC30426
 ```
 
 https://mybot314.ru/tekegram_catalog/

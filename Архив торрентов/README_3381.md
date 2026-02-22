@@ -1,3 +1,29 @@
+###  Публикация: 547360   (472427) от 16.09.2012
+
+EVEL7N feat. J. Worthy - Dirty Nights (2012) [H.264/720р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF190679F60F50040740444A4B06DC3A4D1BC268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548059   (472426) от 16.09.2012
 
 VA - Beach Trance 2012-01 (2012) [MP3|320 кб/с]<Trance>
@@ -708,32 +734,6 @@ Computer Desktop Wallpapers Collection (16.09.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D2288035FB27351A511489034936C80E99931E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547735   (472281) от 16.09.2012
-
-Best HD Wallpapers Pack (16.09.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D52E161F1CF1BCC625D005AAC2443C8A0C55EA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

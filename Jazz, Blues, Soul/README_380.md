@@ -1,3 +1,61 @@
+###  Публикация: 1332427   (314304) от 20.10.2019
+
+The Spitfire Sisters - Who Buys Cds Anymore? (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Vintage>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bag for Life
+02. My Cocktail and Me
+03. Afternoon Tea
+04. Roll on, Mississippi, Roll On(   Читать дальше...   )Жанр: Vocal Jazz, VintageПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A64FEFEAFBC8E2ABC4F71DBF18719A56E92E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845012   (313813) от 27.11.2014
+
+Club Des Belugas - Fishing For Zebras (2014) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Think Twice (feat. Lene Riebau)
+02. Let's Go
+03. Weapon Of Voice (feat. Veronika Harcsa)
+04. Path Of Nothing (feat. Hélène Vogelsinger)(   Читать дальше...   )Жанр: Nu Jazz, Electro SwingПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450D04451B1D556761A1814E4386FCA82C0C1814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422044   (313699) от 07.11.2020
 
 Sonny Rollins - Solid (1954) 2002, Past Perfect [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -699,64 +757,6 @@ YUM - Hot Wax (2019) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5641B9DE4CEBF06DD52E6E6273B94453C753D639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422331   (310917) от 08.11.2020
-
-Sammy Davis, Jr. - Sings Just For Lovers (1955) 2006, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Do Something to Me [2:19]
-02. You're My Girl [3:32]
-03. Come Rain or Come Shine [3:45]
-04. Body and Soul [3:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23DB02673130917E9CEF7841FF41C62BBB88439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422333   (310914) от 08.11.2020
-
-Wild Bill Davison & Eddie Condon's All Stars - Live! 1955 Miami Beach (2004) Storyville Records [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beale Street Blues [5:26]
-02. Ballad Medley [9:07]
-03. I Ain't Gonna Give Nobody None of My Jelly Roll [4:52]
-04. Struttin' with Some Barbecue [4:46](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4C29023517D83AA767A89D11D8DA7BEE469E1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,31 @@
-###  Публикация: 1034994   (632600) от 14.07.2016
+###  Публикация: 519633   (633889) от 08.07.2012
 
-Caellus & Camulus - Genesis (2016) [MP3|320 Kbps] <Trance>
+ReinXeed - 2 Альбома (2009-2012) [MP3|320 кб/с]<Power Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632600.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Introducciуn (Original Mix) (1:49)
-02. La' Kreinto (Original Mix) (9:37)
-03. Ancient Solitude (Original Mix) (7:54)
-04. Dei Milites (Original Mix) (8:41)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:16
+Жанр: Power MetalПродолжительность: 01:06:42
+
+1. Welcome (Intro) (1:12)
+2. Life Will Find A Way (5:37)
+3. Follow Me (3:52)
+4. Save Us (5:56)
+5. Stranger Tide (5:30)
+6. Somewhere In Time (6:16)
+7. Freedom (8:13)
+8. No Fate (6:50)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EB077547F4495E97D5B7B26473F25BC52803D36
+magnet:?xt=urn:btih:9FA0B2EFC46217BF3E64E50DA72E15C2DBA71C13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +33,330 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034951   (632599) от 14.07.2016
+###  Публикация: 519134   (633884) от 08.07.2012
 
-Журнал | Таинственые истории №15 (2016) [PDF]
+VA - Macarize:01 (04.04.2012) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hazem Beltagui - Macarize (Intro Mix) 06:36
+02. Alandanat - Voyager (Original Mix) 07:08
+03. Outlook - Airplane (Original Mix) 06:30
+04. Aleksey Yakovlev - Space Odyssey (Original Mix) 07:08
+05. Eximinds - August (Original Mix) 07:56
+06. Mick Elsa - Significant Others (Original Mix) 08:07
+07. Vitodito - Pisha (Original Mix) 06:42
+08. Allan V. - What If (Original Mix) 07:56
+09. Michael Elliot - Pool Splash (Original Mix) 08:00
+10. Domestic Technology - Californian (Original Mix) 05:44Жанр: Progressive HouseПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB4446902292901A5084B5B1F4D23F22B097AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519609   (633883) от 08.07.2012
+
+Опричь / Piarevaracien / Чур - Триединство (2012) [MP3|160 кб/с]<Folk Metal | Folk/Black Metal | Folk Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633883.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Опричь - Реками Севера
+2. Опричь - Волга
+3. Опричь - Север Вольный
+4. Piarevaracien - Мая восень
+5. Piarevaracien - Ранак
+6. Piarevaracien - Попел
+7. Чур - Ой, там на горі
+8. Чур - Через Рiчку, Через Гай (Ластiвка)
+9. Чур - Ой, у полі криниченькаЖанр: Folk Metal | Folk/Black Metal | Folk MetalПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2CDE9FE65B597A33C29341D615C7756F130CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519882   (633881) от 08.07.2012
+
+VA - Club 86 Recordings Ibiza 2012 (2012) [MP3|320 кб/с]<House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcuda - Musicbox (Original Mix)
+02. Johny S - Let Your Soul Fly (Original Mix)
+03. Steve Lade - Bongo Drums (Chantola Remix)
+04. Neo Neo - The Way Of The Cobra (Original Mix)
+05. Aurinkovuo - Sunday Massive (Original Mix)
+06. Timothy Night - Saft (Original Mix)
+07. Tallzzy - Do Not Disturb It (Original Mix)
+08. Kajis & Lade - Frisco (Klaukenberg Remix)
+09. Burdan - Back & Forth (Original Mix)
+10. Saarre - Wood & Pecker (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA78E9D4EA616EC5550D89B061A6B8558488351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519097   (633880) от 08.07.2012
+
+VA - Passion Paradise (2012) [MP3|320 кб/с]<Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Bay & Tiff Lacey - Moon In The Dark (Original Mix) 05:47
+02. Daniel Ocean & Photographer - Underground (Original Mix) 08:12
+03. Philip Mayer - Bright Eclipse (Original Mix) 07:42
+04. Dave202 - Purple Drops (Radio Mix) 04:13
+05. Aleksey Zhahin - Catching The Time 09:03
+06. Carl Fath - Into The Vortex! 07:11
+07. Digital X - Odyssey (Original Mix) 05:50
+08. Tritonal Feat Jeza - Can't Keep It In (Tritonal Club Mix) 06:40
+09. Daniel Kandi - Insert Generic Title (Daniel Kandi Vs Dennis Pedersen Remix) 06:04
+10. Boxer - Fathom (Ltn Remix) 07:01(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 03:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E33B1E0FD84032B9AAC13DF55FB881C0ED8079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908269   (633877) от 14.06.2015
+
+Журнал | Счастливые родители №4 (апрель 2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633877.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Счастливые родители» — популярный журнал для молодых родителей, содержащий необходимую информацию о беременности, материнстве и первых 4-х годах жизни малыша. В каждом номере – профессиональные рекомендации в области акушерства, гинекологии, психологии, педиатрии, диетологии, обзоры косметических новинок и средств по уходу за собой и ребенком, советы по созданию (   Читать дальше...   )Жанр: Журнал для родителейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF58361ED6B97B711078E0A651316A89F0C993E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519806   (633876) от 08.07.2012
+
+Praying Mantis - Time Tells No Lies {Japanese Edition} (1981) [MP3|320 кб/с]<Heavy Metal/Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633876.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cheated (3:51)
+ 2. All Day And All Of The Night (2:57)
+ 3. Running For Tomorrow (3:41)
+ 4. Rich City Kids (3:48)
+ 5. Lovers To The Grave (4:53)
+ 6. Panic In The Streets (3:43)
+ 7. Beads Of Ebony (5:27)
+ 8. Flirting With Suicide (5:04)
+ 9. Children Of The Earth (5:39)
+(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CBCC7C7E9CCA501F62DE95323F6992132B83417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908320   (633875) от 14.06.2015
+
+А. В. Веселовский | Ядерный щит (1999) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633875.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Ядерный щит” - воспоминания человека, более 40 лет проработавшего в Российском Федеральном Ядерном Центре - ВНИИЭФ и принимавшего участие в испытаниях многих образцов отечественных ядерных зарядов, в том числе и самых мощных, а также уникальных ракетно-ядерных комплексов. На фоне профессиональной деятельности и повседневной жизни автор встречается с ведущими разработчиками (   Читать дальше...   )Жанр: советский атомный проектФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2867951F6C754694898BBDF487172FE88B954CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908301   (633873) от 14.06.2015
+
+Журнал | Счастливые родители №5 (май 2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633873.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Счастливые родители» — популярный журнал для молодых родителей, содержащий необходимую информацию о беременности, материнстве и первых 4-х годах жизни малыша. В каждом номере – профессиональные рекомендации в области акушерства, гинекологии, психологии, педиатрии, диетологии, обзоры косметических новинок и средств по уходу за собой и ребенком, советы по созданию (   Читать дальше...   )Жанр: Журнал для родителейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93ABA6413C441843E6EE8F74D919CCEFA1503E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908289   (633872) от 14.06.2015
+
+VA - Dreams of a shaman 2 (2015) [MP3|320 кб/с]<Native american, Ethnic, Folk, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indian Mistic - Dancing Squaws
+02. Mohicans - The Big CircleЖанр: Native american, Ethnic, Folk, New AgeПродолжительность: 02:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D77132637A1462828BC79D739227E2D1B68FD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908190   (633870) от 14.06.2015
+
+Журнал | Psychologies №110 (июнь 2015) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Psychologies – уникальный журнал, главной и единственной темой которого является жизнь каждого из его читателей. Все его содержание – это вопросы самопознания, способы раскрыть собственные возможности, чтобы жить, получая удовольствие от жизни и отношений с другими людьми. Журналисты, работающие для Psychologies, бережно честно относятся к своим читателям, ведут (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5421DDDA6FE64F9233ABA1442A01381111F12100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908235   (633868) от 14.06.2015
+
+Журнал | Деньги №22 (июнь 2015) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632599.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Всё самое таинственное и необычное из жизни простых людей, нас с вами. Рассказ от первого лица и немного о таинственном в биографиях знаменитых людей.Жанр: Популярный журналФормат: PDF
+Еженедельный экономический журнал о том, как заработать, сохранить и на что лучше всего потратить деньги. Журналисты издания дают ответы на волнующие каждого вопросы, а именно… Как защитить свои потребительские права? Как организовать собственное дело? А также рассказывают о самых необычных способах заработка.Жанр: ФинансыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4504158155875AF8B23C9FA1B1CE515F92FACE40
+magnet:?xt=urn:btih:B83EFC84C8D425FA54B7F15DEB498312A7048BE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +364,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034608   (632598) от 14.07.2016
+###  Публикация: 520372   (633867) от 08.07.2012
 
-С. Н. Худяков | Всегда ли будет существовать религия? (1958) [DJVU]
+Ману / Mano (2005) DVDRip
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632598.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На примерах  из  современной  жизни  автор  показывает,  что ликвидация  эксплуатации,  распространение  знаний,  рост  культуры  и  развитие  науки  не  оставляют  почвы  для  религиозной веры,  что  вместе  с  построением  коммунизма  исчезнет  и  религия.Жанр: История, религиоведение, политологияФормат: DJVU
+Фотограф Мариана, снимавшая снос старой киностудии находит странного серого человека с потерянным видом смотрящего на сгоревшие старые киноплёнки и забирает его домой. Этим человек оказывается Ману - всеми забытый комедийный персонаж из старых, ещё дозвуковых фильмов, о котором Мариана и её муж Марко вынуждены теперь заботиться...Жанр: Фэнтези, комедияРежиссер: Жорже ФелнерАктеры: Жорже Фелнер, Диого Инфанте, Аделаида Суза, Канту и Кастру, Марко Де Альмейда, Жоана Брандау, Педро Кальвиньо, Алда Гомес, Флавия Гузмау, Мануэль МаркусПеревод: Одноголосый закадровыйПродолжительность: 01:35:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8B5226AA955F9CA7273BD1213F492FBA55B85AD
+magnet:?xt=urn:btih:664CC464AE24F7768B8813ECBAA790871D4721CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,27 +390,244 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034850   (632597) от 14.07.2016
+###  Публикация: 520056   (633865) от 08.07.2012
 
-А. И. Соболев | Народная демократия — новая форма политической организации общества (1953) [PDF]
+Юлия Федотова | Свет. Испытание Добром? [2012] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошо тому, кто противостоит Тьме. Сразу ясно, что он – благородный герой, ступивший на стезю борьбы со Злом. Но тот, чьим противником оказывается Свет, поневоле задается вопросом: уж не само ли Добро он подрядился искоренять, а Зло, соответственно, сеять?
+Да, именно это приключилось с ними, недавними победителями Тьмы! Новая карта в колдовской книге, новая тайна, новое испытание для мира. И старый, но очень неприятный вопрос: кто станет Воплощением на этот раз?
+Под подозрением пятеро: Йорген фон Раух, темный по природе своей, Кальпурций Тиилл, податливый на колдовство, Черный Легивар, надумавший практиковать некромантию, Семиаренс Элленгааль, некогда отворивший путь Тьме, и юный хейлиг Мельхиор, выходец из семьи потомственных колдунов. Любой из них подходит на эту роль. Только воплощать ему на этот раз придется не Тьму, а Свет. А добрые друзья должны будут решить: нужно ли снова оставить Воплощение в живых или на этот раз его все-таки придется убить?Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C2700BB362457C44600084DCBF516C7BF9086C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907606   (633864) от 14.06.2015
+
+VA - Deep House Ibiza - Vol 1 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pirupa - I can C through U feat. Manuela - Original Mix (06:16)
+02. Barbara Tucker - You Want Me back - Paolo Madzone Zampetti 2015 Vibe Rmx (06:40)
+03. BAG - Back It Up feat. Taka Boom - Rickie Snice Rmx (06:25)
+04. Paolo Madzone Zampetti - Close Your Eyes - Original Mix (07:03)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D7A75A9D9011322EEC53C8F01CCCB1B633C458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908306   (633863) от 14.06.2015
+
+Журнал | Счастливые родители №6 (июнь 2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633863.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Счастливые родители» — популярный журнал для молодых родителей, содержащий необходимую информацию о беременности, материнстве и первых 4-х годах жизни малыша. В каждом номере – профессиональные рекомендации в области акушерства, гинекологии, психологии, педиатрии, диетологии, обзоры косметических новинок и средств по уходу за собой и ребенком, советы по созданию (   Читать дальше...   )Жанр: Журнал для родителейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621E9E448168FB51090F69AD0B28A5917B60931C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908318   (633862) от 14.06.2015
+
+Stair Dismount 2.9.0 [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stair Dismount -вашему вниманию представлена достаточно необычная игра - вам надо столкнуть с лестницы манекен, который по своей физике движений моделирует настоящего человека. И чем больше травм и увечий получит манекен, тем больше очков вы наберете. Для этого вы выбираете вектор удара, его силу и точку касания, а дальше дело физики. На протяжении нескольких уровней (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 28 ноября 2014 гРазработчик: Secret Exit Ltd.Поддерживаемая ОС: Android 2.2+Жанр: ArcadeЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B5643B8C7CF16BAB473B7B96261BEAFCD55759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908104   (633861) от 14.06.2015
+
+Журнал | Russian Foodie / Русский Гурман. Лето (2015) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинарный журнал "Russian Foodie". Интересные рецепты, статьи о кулинарии, кухне, кулинарном декоре и другом. В зимнем выпуске журнала большое количество блюд с сезонными ингредиентами, рецепты традиционной рождественской выпечки из разных стран, идеи для украшения праздничного стола, а также интересные интервью и статьи на тему кулинарии.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE271A2CF60CD84E5EAEBA39E0781178365AF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908340   (633860) от 14.06.2015
+
+Labyrinths of the World 2: Forbidden Muse (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной игры Labyrinths of the World. В качестве детектива, Вам предстоит расследовать загадочное нападение на Музу Каллиопу, покровительницу небольшого богемного городка. Таинственные силы разрушили сущность Музы и теперь жители городка утратили все свои таланты. Узнайте, кто и почему напал на Музу? Используйте Амулет местного актера Оуэна, чтобы (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E10858DC643ACFB994E042A20425225F03C0A12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908300   (633859) от 14.06.2015
+
+Elyose - Ipso Facto (2015) [MP3|320 кб/с]<Industrial / Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Fragrances
+02.	Femme de verre
+03.	De guerre lasse
+04.	L'animal-aime(   Читать дальше...   )Жанр: Industrial / Gothic MetalПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A99498B62907F07F83172A7949E8F3E1F428E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908291   (633858) от 14.06.2015
+
+VA - Beatport Top 100 Downloads Summer (2015) [MP3|320 кб/с]<House, Electro, Progressive, Deep House, Tech House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Stone - The Party (This Is How We Do It) ft. Montell Jordan (Original Mix)
+02. Ummet Ozcan - Lose Control (Original Mix)
+03. Headhunterz, Crystal Lake - Live Your Life (Original Mix) (DOORN (SPINNIN')
+04. Enzo Siffredi - SometimesЖанр: House, Electro, Progressive, Deep House, Tech House, TechnoПродолжительность: 09:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7BDADA029C3B13DE767D756EEABB9B081843C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908264   (633857) от 14.06.2015
+
+Федор Достоевский | Слезинка ребенка. Дневник писателя (2015) [FB2, EPUB]
 
 >>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632597.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Возникновение и развитие народной демократии необходимо рассматривать конкретно-исторически, ибо, как учит опыт народно-демократических стран Европы и Азии, народная демократия имеет этапы своего развития, и в зависимости от этапа меняется ее классовое содержание.
-
-Первый этап — это этап антиимпериалистической, антифеодальной революции, в ходе которой возникает народная (   Читать дальше...   )Жанр: История, политологияФормат: PDF
+...От высшей гармонии совершенно отказываюсь. Не стоит она слезинки хотя бы одного только того замученного ребенка, который бил себя кулачонком в грудь и молился в зловонной конуре неискупленными слезами своими к боженьке". Данная цитата, принадлежащая герою романа "Братья Карамазовы", возможно, краеугольная мысль творчества Ф.М.Достоевского - писателя, (   Читать дальше...   )Жанр: Биографии и Мемуары, Русская классика, Литература 19 векаФормат: FB2, EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FCE5F4F4FCBA4DD477D25D8DD76DE130F07299D
+magnet:?xt=urn:btih:4373C24BC82B8D0A55A627B3D3393B6B29393C77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,376 +635,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035005   (632596) от 14.07.2016
+###  Публикация: 908378   (633856) от 14.06.2015
 
-VA - Bonzai & Friends 500 - Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Breaks, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phi Phi - Hiccup (East Cafe Remix) (7:16)
-02. East Cafe - Minus Ten (Gai Barone Ode To That Night Remix) (7:44)
-03. Alexey Lisin & Alexandra Pride - Sum Of Space feat. Alexandra Pride (Matan Caspi Remix) (6:50)
-04. Airwave - Vega Shining (Satinka Remix) (10:18)(   Читать дальше...   )Жанр: Progressive House, Breaks, Tech HouseПродолжительность: 02:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E05101FC7AB892B54340F6561245416C56AB77A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034520   (632595) от 14.07.2016
-
-The Lizards - Reptilicus Maximus (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ton On The One (feat. David Lanik)
-02. Evil Eyes (feat. Frank Marino)
-03. Incurable
-04. Crash (feat. Vinnie Moore)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3527D1BECAB45C285FFC26425E59C5D00B38583B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034824   (632594) от 14.07.2016
-
-VA - Top 100 Massive DJs Infinity (2016) [MP3|320 Kbps] <Trance, Progressive, Stadium Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632594.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren & Bullysongs -  Freefall (Heatbeat Extended Remix) 5:19
-002. Mark Sixma & Emma Hewitt -  Restless Hearts (Club Mix) 5:44
-003. Gareth Emery -  Huracan (Ben Gold Remix) 5:27
-004. Feel & Adara -  Disappear (DRYM Remix) 4:36(   Читать дальше...   )Жанр: Trance, Progressive, Stadium TranceПродолжительность: 09:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A6C02A5122BBF19757A5D45BF8B02D5AABA153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034823   (632593) от 14.07.2016
-
-Tinsley Ellis - Red Clay Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Think About
-02. Givin' You Up
-03. Callin'
-04. Anything But Go(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB1F609EA4B8D576FBD2B62FC4DC5B5092FF1CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034582   (632592) от 14.07.2016
-
-Adrenaline Mob - Men Of Honor (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mob Is Back    04:34
-02.  Come On Get Up    04:10
-03.  Dearly Departed    04:57
-04.  Behind These Eyes    05:33(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D8B35883C8E5CCB3004D999D85CA2F7ABB8D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035018   (632591) от 14.07.2016
-
-Audioglider - Subaquamarine (2016) [FLAC|Lossless|tracks] <Deep House, Progressive House, Electronica>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stockholm Syndrome
-02. Aerial View
-03. Edison Spark
-04. The Keymaster(   Читать дальше...   )Жанр: Deep House, Progressive House, ElectronicaПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AEE8A89D890AFACDF446206F98560C4EED0894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034858   (632590) от 14.07.2016
-
-Jon Secada – Heart, Soul & A Voice (1994) [APE|Lossless|image + .cue] <RPop Rock, Rhythm & Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whipped
-02. Take Me
-03. If You Go
-04. Good Feelings(   Читать дальше...   )Жанр: RPop Rock, Rhythm & BluesПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF5D7F2B00441E737F7A716692DD23A171BD5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034913   (632589) от 14.07.2016
-
-Third World War - Third World War 2 (1973) 2001, TW Records [MP3|320 Kbps] <Hard Rock, Blues Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632589.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yobo
-2. Urban Rock
-3. Coshing Old Lady Blues
-4. Rat Crawl(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Rock & RollПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B128984139F6CEF1C8844882DB61C7F87BD63441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034911   (632588) от 14.07.2016
-
-Third World War - Third World War (1971) 2001, TW Records [MP3|320 Kbps] <Hard Rock, Rock & Roll, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632588.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ascension Day
-2. M. I. 5's Alive
-3. Teddy Teeth Goes Sailing
-4. Working Class Man(   Читать дальше...   )Жанр: Hard Rock, Rock & Roll, Psychedelic RockПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F988F982D36DF2276BCFA1329EB9E629446E614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034867   (632587) от 14.07.2016
-
-VA - LUXEmusic - Топ Июнь (2016) [MP3|320 Kbps] <Club House, Deep House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Gaudino Vs Nari And Milani - MangoMan (Filatov & Karas Extended Remix)
-02. Art Brothers & All Stars - BetonoMASHalka #1 (Dmitry V Crazy Mash)
-03. Calvin Harris ft. Rihanna - This Is What You Came For (Chippon Remix)
-04. Carlas Dreams - Sub Pielea Mea #Eroina (DJ Denis Rublev & DJ Alixs Remix)(   Читать дальше...   )Жанр: Club House, Deep House, Electro HouseПродолжительность: 03:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB553BE65D1D8CB3BB2CC549CFD589B757E75C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034814   (632586) от 14.07.2016
-
-VA - Open Oceans - Trance Session (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632586.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Relocate & Robert Nickson -  Initium (Ferrin & Morris Remix) 7:40
-002. Feel & Aelyn -  If You Feel Love 7:46
-003. Kaimo K -  Peek-A-Boo 7:08
-004. Alexander Spark -  Octavus 5:40(   Читать дальше...   )Жанр: Trance, Melodic, HarmonicПродолжительность: 12:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4394B11052325AD4C02B9D169CE63D7EFFF9B19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034978   (632585) от 14.07.2016
-
-Koan - Placidity (2016) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiction Pt. 1 (Placidity Mix) (8:51)
-02. Calm (Placidity Mix) (8:24)
-03. Evening Delusions (6:16)
-04. Out of Focus (Placidity Mix) (7:13)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 02:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47915793186ADF6390157CCB0C562ABD9B697FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034991   (632584) от 14.07.2016
-
-Blocs 2.1.0 [En]
+GPU-Z 0.8.3 RePack by loginvovchyk [Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632584.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простой способ создания красивых сайтов.
-Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
-
-Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 июля 2016Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+GPU-Z - программа для вывода информации о графическом адаптере, отображает детальную информацию о видеокарте. Можно просмотреть данные о чипе, его ревизии, количестве разнообразных вспомогательных "процессоров", размере памяти, версии драйвера и других характеристиках. Поддерживаются карты на базе чипсетов NVIDIA и ATI. GPU-Z.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0ABABA480305CC4A64FDA9DA7C0366581AAF4CB5
+magnet:?xt=urn:btih:76D175682A1AEB263051CC31343967B55277BCC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,25 +661,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 520352   (632583) от 08.07.2012
+###  Публикация: 908265   (633855) от 14.06.2015
 
-Робокоп / RoboCop (2014) [Н264/720p-LQ] HDTVRip [Трейлер] [EN]
+Журнал | 9 месяцев №6 (июнь 2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конечно, в первую очередь журнал «9 месяцев» адресован беременным женщинам, но и будущим папам будет интересно узнать о тех процессах, которые происходят в женском организме в период вынашивания малыша и, исходя из этих знаний, лучше понять свою вторую половинку.
+Авторы журнала являются ведущими специалистами в своих областях. Это акушеры-гинекологи, неонатологи, (   Читать дальше...   )Жанр: Журнал для МамФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F24857DE719A0274834D7A0270386332CA8FDAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908131   (633854) от 14.06.2015
+
+Garmin: City Navigator Australia & New Zealand NT 2016.10 (HERE) [En]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632583.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633854.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наши дни, Лос-Анджелес. Двадцать лет спустя после закрытия программы «Робокоп», городские власти решают возобновить проект.Жанр: Фантастика, БоевикРежиссер: Жозе ПадильяАктеры: Гари Олдман, Сэмюэл Л. Джексон, Юэль Киннаман, Эбби Корниш, Хью ЛориПеревод: ОтсутствуетФормат: MKVПродолжительность: 00:00:55
+Перемещайтесь по улицам с уверенностью. Этот продукт содержит подробные карты и точки интереса (POI) для навигаторов Гармин, так что вы можете перемещаться с точными подсказками от поворота к повороту на любой адрес или перекресток.
+- Включает около 1,3 млн. км (796 000 миль) дорог, в том числе автодорог, национальных и региональных магистралей и дорог местного значения (   Читать дальше...   )Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: апрель 2015Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45E2ACE521127630002655A6AB37D60E2EAAC766
+magnet:?xt=urn:btih:99A89C6395E543D7D0E4B8B003293C35A94891B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,211 +715,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 520348   (632579) от 08.07.2012
+###  Публикация: 908241   (633853) от 14.06.2015
 
-Андрей Заморский | Создание сцены разрушений при помощи Nuke и 3ds max (RayFire, FumeFX) [2012] PCRec
+Журнал | Похудей №7 (июль 2015) [PDF]
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Журналы
+>>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632579.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Работа с видеоПродолжительность: 05:56:29
+Похудей — ежемесячное издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.Жанр: Женский журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63E99882F28DEBE5942BEDE9BBB5B745507FB56D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520361   (632575) от 08.07.2012
-
-Александр Кузьменко | Cinema 4D для начинающих [2011] PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632575.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нашем курсе мы познакомимся c: моделированием, освещением, материалами, анимацией. Также автор делится практическими советами, чтобы вы не совершали лишних ошибок и как нельзя лучше насладились работой в Cinema 4D. Сравнивается рендеринг с Global Illumination и без. Подробно рассматриваются принципы навигации. Просмотрев этот пятичасовой курс хотя бы затем, чтобы оценить не удавшиеся шутки автора, вы сделаете свои первые шаги в работе с этой замечательной программой.Жанр: Работа с графикойПродолжительность: 04:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266225F36B43CFFEA64597AED02335589F43F3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520173   (632569) от 08.07.2012
-
-Андрей Заморский | Уроки по Nuke для начинающих [2011] PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоуроки предназначены для начинающих работать в программе Nuke. Все уроки побиты по разделам. Раздача будет обновляться по мере записи новых уроков. Не сделает из вас супер-мега композеров, но научит азам работы в программе. В сборке также присутствуют некоторые материалы по урокам и сцены.Жанр: Работа с видеоПродолжительность: 12:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A869A41FBD7698439BC49D8867B89FB409A085F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520148   (632568) от 08.07.2012
-
-Endless Space (L) [Multi3/-] 2012
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Endless Space – космическая стратегия в смешанном времени (то есть и пошаговая, и в реальном времени). В основе сюжета противостояние восьми цивилизаций, каждая из которых стремится захватить власть над звездами, вам придется управлять одной из них, и привести нацию к победе. В игре существуют разные способы стать победителем. Например, вы можете победить не вступая в битву – с помощью торговли или дипломатии, а можете накопать много-много артефактов ушедших эпох, или стать доминирующей добывающей фракцией, которая контролирует огромное количество полезных ископаемых. Можно унизить врага, раньше всех открыв какую-либо сверхтехнологию, что позволит победить в научном плане, ну а можно просто построить два-три боевых флота с мощнейшими орудиями и отправиться покорять галактику с лазерами, ракетами, и прочими средствами донесения ваших аргументов до оппонента. Притом каждая дорога действительно работает, пусть и не у всех держав – некоторые предпочитают вести войну, какие-то вообще для нее не приспособлены, а третьи могут делать и то и то, вот только крайне средне...(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Amplitude StudiosЖанр: Strategy (Turn-based / Grand strategy) / 3D / IndieЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5F0BD80A37287DC5F61D236AC53A2E0237C0DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520564   (632567) от 08.07.2012
-
-S.T.A.L.K.E.R. - Потерянный Мир. Месть Зоны (Mod/Add-on/1.0006) [Ru] 2010
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632567.jpg" />
-</div>
-
-
-###  Подробнее
-
-В общем и целом, игра делает уверенный шаг к реализму и, что важно, геймплею. Тут вы не найдёте винигрета из сотен стволов и кучи бессмысленных новшеств: в игру добавляется только то, что соответствует атмосфере игры. В игру возвращены очень многие локации из ранних билдов, а также локации “чистого неба” и “зова припяти”. Теперь мы действительно можем пройтись по всей зоне, а не по маленькому кусочку.(   Читать дальше...   )Тип издания: ПираткаЖанр: Action (Shooter) / Standalone Add-on / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11B73531A4D0580E7205E26AF0D099C2837A93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520081   (632565) от 08.07.2012
-
-Остров сокровищ / Treasure Island (2012) HDRip
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта новая адаптация любимого классического романа Р.Стивенсона применяет свежий и смелый подход, чтобы создать захватывающую, остросюжетную картину. Двухсерийная драма повествует о Джиме Хокинсе, который неожиданно вливается в мир пиратства, когда обнаруживает карту сокровищ капитана Флинта. Но Долговязый Джон Сильвер не остановится ни перед чем, чтобы прибрать всё (   Читать дальше...   )Производство: Великобритания, ИрландияЖанр: ПриключенияРежиссер: Стив БэрронАктеры: Эдди Иззард, Тоби Регбо, Руперт Пенри-Джонс, Дэниэл Мейс, Филип Гленистер, Дональд Сазерленд, Элайджа Вуд, Ширли Хендерсон, Нина Сосанья, Джофф БеллПеревод: Профессиональный многоголосный - (лицензия)Продолжительность: 03:02:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520445   (632564) от 08.07.2012
-
-Golden Boy / Золотой парень [1995, OVA, 6] DVDrip upconvert raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кинтаро — 25-летний парень, он занимается тем, что фантазирует, ищет работу и, конечно, прелестных девушек. Он путешествует на своём велосипеде, ведя таким образом весьма счастливую жизнь.Его босс, как правило, это красивая девушка, которая его совершенно не уважает. Босс находит его весьма тупым и после некоторого времени увольняет его. Но в конце всегда происходит какое-нибудь маленькое событие, которое заставляет девушку, ненавидевшую Кинтаро, влюбиться в него. Но слишком поздно, потому что Кинтаро уже уезжает на своём велосипеде, отправляясь в новое путешествие.
-
-Достаточно интересное аниме с приятной рисовкой и незамысловатым юмором.Жанр: комедия, приключения, этти, романтикаРежиссер: Китакубо ХироюкиПродолжительность: OVA, 6 эпизодов по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C3FAB5C46FFB3A3F61FD6921772133D78F3E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519234   (632560) от 08.07.2012
-
-S.T.A.L.K.E.R: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыля [Ru/Ua] (RePack/1.0006) 2012 l kuha
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632560.jpg" />
-</div>
-
-
-###  Подробнее
-
-S.T.A.L.K.E.R. - Игра в жанре survival FPS, действие которой разворачивается в недалеком будущем в Чернобыльской зоне отчуждения.
-Игрок станет сталкером - охотником за "артефактами", излучающими аномальную энергию Зоны. По мере прохождения игры он побывает в Мертвом Лесу, городах Припять и Чернобыль, проникнет внутрь саркофага Чернобыльской АЭС, пройдет по реально существующим местам в эпицентре произошедшей трагедии. Возвращаясь из полыхающей радиацией Зоны игрок будет продавать добытые аномальные образования подпольным торговцам и ученым в научных лагерях на границе Зоны. За полученные деньги игрок будет покупать аппаратуру, оружие и защитные скафандры, которые позволят проникать в ранее недоступные области.
-Игра создана как предупреждение перед опасностью неосторожного обращения с силами природы.(   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Action (FPS)Язык озвучки: Русский, УкраинскийЯзык интерфейса: Русский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54668AF3CDE10EF86B4C4ED96B528E3071C1DFAC
+magnet:?xt=urn:btih:604734AE99D55E8ABBA903429BA645DFB4DF7444
 ```
 
 https://mybot314.ru/tekegram_catalog/

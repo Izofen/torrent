@@ -1,3 +1,119 @@
+###  Публикация: 758346   (912062) от 19.02.2014
+
+VA - Pure... singer/songwriter (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Singer - Songwriter, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное singer/songwriter нужно было бы перевести как барды-песенники или сочинители-исполнители, но прослушав эти 4 диска из серии Pure (ссылку на серию см. ниже) решил, что скорее это хороший сборник поп музыки. Тем более, что и allmusic.com его определил также. Интересно, что во всех поисковиках (в том числе и на нашем трекере в мр3) альбом значиться как singer/songwriters, (   Читать дальше...   )CD1:
+01. Bob Dylan-It.s all over now  (4:17)
+02. Simon & Garfunkel - Bridge over troubled water  (4:53)
+03. John Denver - leaving on a jet plane  (3:39)(   Читать дальше...   )Жанр: Pop, Rock, Singer - Songwriter, FolkПродолжительность: 04:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7B7A8588CBBA6A94373E40D132D6AD304D34A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097747   (912049) от 28.01.2017
+
+VA - NOW That's What I Call Music! 61 (US series) (2017) [FLAC|Lossless|tracks] <Pop, Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - 24K Magic (3:45)
+02. Maroon 5 feat. Kendrick Lamar - Don't Wanna Know (3:33)
+03. Alessia Cara - Scars To Your Beautiful (3:46)
+04. Ariana Grande feat. Nicki Minaj - Side To Side (3:42)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F0B9DA1AADED0356F208D529F6137B140A10C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989954   (911281) от 25.02.2016
+
+VA - Легендарные Песни. Выпуск 01 (86-91) (2002) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ласковый Май - Белые Розы (5:40)
+02. Мираж - Музыка Нас Связала (4:25)
+03. Евгений Белоусов - Девочка Моя Синеглазая (6:09)
+04. Комбинация - Бухгалтер (4:31)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64313CC589EA5FD6B2AC1FB7C52C0BB46CA307B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368281   (911024) от 19.03.2020
+
+Качеля - Грустить и танцевать (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Море зовёт (4:22)
+02. Если ты уйдёшь (4:49)
+03. Город детства (4:00)
+04. Ветра (4:33)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABFBD0609010BE9C7FE0EDFA341F83342ABC713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368217   (910871) от 19.03.2020
 
 Stylove - The 2nd Album (2019) Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco>
@@ -623,122 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099076   (907180) от 31.01.2017
-
-VA - Twelve Inch Eighties: When the Going Gets Tough (2017) [MP3|320 Kbps] <Pop, R&B, New Wave, Italo Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907180.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-01. Belinda Carlisle - Leave A Light On (Extended Version) 08:07
-02. The Bangles - Walk Like An Egyptian (Extended Version) 05:50(   Читать дальше...   )Жанр: Pop, R&B, New Wave, Italo DiscoПродолжительность: 03:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD99B53CBA76F49E5F752526E1F75BF36D722C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368716   (907086) от 21.03.2020
-
-Вадим Казаченко - Лучшее (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907086.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Глаза в глаза
-2. На волоске
-3. Бегу за тобой
-4. Ты одна такая(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40B9C93955FFC5E93CF60421CF03DAEA6C67D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098983   (907074) от 31.01.2017
-
-VA - 30 Stars: Love (2017) [MP3|320 Kbps] <Roots Rock, Alternative, Electro Soul, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907074.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Kelly Clarkson - Heartbeat Song 03:20
-02. Little Mix - Love Me Like You 03:17
-03. Sara Bareilles - Love Song 04:19(   Читать дальше...   )Жанр: Roots Rock, Alternative, Electro Soul, CountryПродолжительность: 01:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AD9E4FD60402B659CB6E4E4BD9D0507FD4CFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099093   (906782) от 31.01.2017
-
-Marian Hill - Act One (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic, Minimalist>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down
-02. Talk to Me
-03. Wild
-04. Bout You(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E243C848BADF6F195A22DCEB347D24D54ABD2926
 ```
 
 https://mybot314.ru/tekegram_catalog/

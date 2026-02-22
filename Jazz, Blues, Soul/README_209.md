@@ -1,3 +1,90 @@
+###  Публикация: 1133656   (693438) от 13.05.2017
+
+Paul Desmond - Desmond Blue (1961, 1962) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Funny Valentine  [03:53]
+02. Desmond Blue  [03:41]
+03. Then I'll Be Tired of You  [04:07]
+04. I've Got You Under My Skin  [04:43](   Читать дальше...   )Жанр: CoolПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551BE83F7F04ED2C708BE9F6B59157C6A57A53E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133486   (693435) от 13.05.2017
+
+Ragan Whiteside - Treblemaker (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Nu Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:45)
+02. Corey's Bop (4:10)
+03. Early Arrival (Feat. Kim Waters) (4:15)
+04. By The Moonlight (4:00)(   Читать дальше...   )Жанр: Jazz, Nu SoulПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A521C9F2809CE79179B859BBA066F509B0753B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133662   (693431) от 13.05.2017
+
+Art Pepper - The Complete Surf Ride Plus (1951 - 1954) 2CD, 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693431.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Brown Gold [02:24]
+02. The Foolish Things [02:39]
+03. Surf Ride [03:10](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 02:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29136C8109BAFF84D7A694EF6B18987D71FAAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133666   (693430) от 13.05.2017
 
 The Idle Hands - Ready For Business (2011) [MP3|320 Kbps] <Blues Rock>
@@ -658,93 +745,6 @@ Warren Wolf - Convergence (2016) Mack Avenue Records[FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82609F1270DD93F95A2EE36C1D757277809C85F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028109   (690965) от 22.06.2016
-
-Benjamin Faugloire Project - Birth (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foundations
-02. Beautiful Day for a Birth
-03. Heavy Idea
-04. In a Loop(   Читать дальше...   )Жанр: Contemporary Jazz, PianoПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB40075DD726D32CAAA066ACB63B455C3E3A41C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028397   (690878) от 22.06.2016
-
-Brad Mehldau Trio - Blues and Ballads (2012/2014) 2016, Nonesuch Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Since I Fell for You [10:57]
- 02.I Concentrate on You [07:24]
- 03.Little Person [03:56]
- 04.Cheryl [07:43](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F23A0FB4C77622937434CDC80AE94521547AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028197   (690877) от 22.06.2016
-
-Cannonball Adderley Quintet - The Price You Got To Pay To Be Free (1970) 2016, Real Gone Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Soul Virgo [01:45]
- 02.Rumplestiltskin [05:15]
- 03.Inquisition [02:32]
- 04.Devastatement [03:30](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E058B9A6C73A799BFF40C66F377B350F4B14BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

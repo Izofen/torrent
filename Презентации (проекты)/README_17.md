@@ -1,3 +1,29 @@
+###  Публикация: 1388496   (786644) от 06.06.2020
+
+Проекты - VideoHive - Fashion Opener - 26949208 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для промо-ролика, рекламы в фэшн-индустрии и т.п.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13648A66BF64D7C26860CE00C09B8CB361DD88B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124236   (785881) от 10.04.2017
 
 Проекты - Motion Array - Digital Promo - 29599 [AEP]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E034B64B51515CF0BB893569955378DEB3B03138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015082   (775600) от 09.05.2016
-
-Проекты - Facebook Mobile [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации вашего профиля на фейсбук.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953A4BDA8FD41DF30731538A039A3287A21EC8C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

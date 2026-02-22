@@ -1,3 +1,29 @@
+###  Публикация: 1121374   (799434) от 03.04.2017
+
+USB 16GB Portable-Soft 02.04.2017 by Bombokot [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник портативных программ в лаунчере ASuite. Для каждой программы присутствует описание. Некоторые программы следует запускать от имени администратора. С помощью лаунчера ASuite можно добовлять, сортировать и удалять нужные вам программы.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC90904D31183D39F2F5AECF2D669086E374257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273812   (799408) от 03.01.2019
 
 dBridge - A Love I Can't Explain (2018) Exit Records [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Experimental, Downtempo>
@@ -664,32 +690,6 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C61FE749489F94BDE6E9EFFFA70829DA6752A88B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120880   (799258) от 04.04.2017
-
-Ori Uplift - Uplifting Only, Episode 216 (2017) [MP3|192 Kbps] <Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799258.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. [0:00:33]: FAN FAVORITE: Javii Wind - Endless Waltz (DreamLife Remix)Жанр: Trance, Uplifting TranceПродолжительность: 02:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F987B205180139D5236B20D4367336921956FE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

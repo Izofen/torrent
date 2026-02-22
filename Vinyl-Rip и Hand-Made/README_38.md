@@ -1,3 +1,177 @@
+###  Публикация: 1625753   (255302) от 11.04.2023
+
+Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+
+1. I hear talk 4:34
+2. Indebted to you 4:29(   Читать дальше...   )Жанр: BritPopПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4674BBA0A4F84D34D90A498E5DA0BD4B4B02F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625760   (255300) от 11.04.2023
+
+Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255300.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Waiting On The Border Line (3:46)
+A2. How Do You Feel Now (4:51)
+A3. Back To The Wall (5:12)
+A4. Highway For Fools (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D11ACF87861C2638EE19720840D93F40467BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625644   (255296) от 11.04.2023
+
+Brutus (Belgian) - Studio Albums (5 releases) (2015-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Rock, Math Rock, Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brutus — бельгийская рок-группа из провинции Фламандский Брабант, образованная в 2013 году.2015 - Brutu Guru (EP)
+2015 - Major / Bye Julia (Triptych EP)
+2017 - Burst
+2019 - NestЖанр: Progressive Rock, Math Rock, Punk RockПродолжительность: 02:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68979C160500C384C777A225E50F5DEED984C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625981   (255266) от 12.04.2023
+
+Bucks Fizz - Hand Cut (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255266.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Run For Your Life 4:08
+A2 10, 9, 8, 7, 6, 5, 4  4:24
+A3 I Do It All For You 4:04
+A4 Where The Ending Starts 3:48(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720C605DE80BE1B08DFCEC547486DF8D45F147DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626464   (255201) от 14.04.2023
+
+Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255201.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Piece Of The Action 3:37
+A2 Midnight Reservation 3:42
+A3 It's Got To Be Love 3:08
+A4 Took It To The Limit 3:46(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43F11E2BB300820044587F5FD4FB626F4C6113F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626965   (255126) от 16.04.2023
+
+Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You & I
+02. This Is The World
+03. Jerusalem
+04. Prego(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627632   (254994) от 20.04.2023
 
 Раймондс Паулс - Raimonds Pauls - В Тональности Раймондса Паулса - In The Mood Of Raimonds Pauls (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Jazz, Funk / Soul, Pop>
@@ -572,176 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618707   (249886) от 13.03.2023
-
-Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Masterplan — немецкая пауэр-метал-группа. Основана гитаристом Роландом Граповым и барабанщиком Ули Кушем после их увольнения из Helloween в 2001 году.2003 - Masterplan
-2005 - Aeronautics
-2007 - MK II
-2010 - Time To Be King(   Читать дальше...   )Жанр: Power MetalПродолжительность: 06:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618995   (249796) от 14.03.2023
-
-Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mutiny Within — американская группа из города Эдисон, штат Нью-Джерси, играющая в стиле мелодик дэт-метал. Группа была основана в 2002 году басистом Эндрю Джейкобсом, первоначально, как кавер-коллектив группы Children of Bodom.2010 - Mutiny Within
-2013 - Synchronicity
-2017 - OriginsЖанр: Progressive Melodic Death Metal, MetalcoreПродолжительность: 02:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1D72BC34C64F078FD037828A630727456F084A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565417   (249436) от 23.07.2022
-
-Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Dance-Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ка́йли Энн Мино́уг (англ. Kylie Ann Minogue (ˈkaɪli ˈæn mɪˈnoʊɡ), также известная под мононимом Ка́йли; род. 28 мая 1968, Мельбурн) — австралийская поп-певица, автор песен и актриса. Наиболее коммерчески успешная австралийская исполнительница, известная частыми сменами сценического образа. СМИ называют её «поп-принцессой» (   Читать дальше...   )1988 - Kylie
-1989 - Enjoy Yourself
-1990 - Rhythm of Love
-1991 - Let's Get to ItЖанр: Dance-Pop, DiscoПродолжительность: 18:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C5E4EC47AAD93064A322CF1FCED3B5BB454E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623217   (245973) от 01.04.2023
-
-Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's in the blood [4:50]
-02. Getcha ya ya [4:35]
-03. She broke my heart (in 36 places) [3:40]
-04. She said she loves me [4:17](   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620006   (245766) от 20.03.2023
-
-Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iron Mask — пауэр-метал группа, основанная в 2002 году бельгийским гитаристом Душаном Петросси.2002 - Revenge Is My Name
-2005 - Hordes of The Brave
-2009 - Shadow Of The Red Baron
-2011 - Black As DeathЖанр: Power MetalПродолжительность: 07:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEE5C8B9D56C0E9B03E31FD29055D6688793BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623839   (245564) от 03.04.2023
-
-Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock, Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Funk / Soul, PopПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

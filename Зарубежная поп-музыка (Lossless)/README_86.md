@@ -1,3 +1,31 @@
+###  Публикация: 1677723   (148910) от 19.11.2023
+
+Josh Groban - Closer (2003) 20th Anniversary Deluxe Edition, 2023, Reprise [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oceano [00:04:03]
+02. My Confession [00:04:58]
+03. Mi Mancherai (Il Postino)Жанр: PopПродолжительность: 01:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B705530AD2DEA635927812C2F5F2726F3D82FDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677843   (148751) от 19.11.2023
 
 Milli Vanilli - The Best of Milli Vanilli (2023) 35th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap, Synth-pop>
@@ -725,35 +753,6 @@ Michelle Gurevich - Exciting Times (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA81E85327521AFAC1E147F962E98554B13B7D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435576   (142393) от 29.12.2020
-
-Peter Noone - Sings The Greatest Hits Of Herman's Hermits (1993) [FLAC|Lossless|image + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm into something good (2:23)
-02. Dandy (1:57)
-03. There's a kind of hush (all over the world) (5:06)
-04. Listen people (2:38)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27003FA15B7F0BCC7AC61CA711195AFBF1332B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

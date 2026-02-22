@@ -1,3 +1,90 @@
+###  Публикация: 1299209   (600852) от 30.04.2019
+
+VA - Sunset Lovers the Harmony of Sounds (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronix - Cascada 04:19
+02. Robert Thrill - Bonsai 04:22
+03. Rix Rama - Noisy 04:22
+04. Rich Franklin - Tudor 04:22(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69AC1A299A520ED1FE539386FCF14E645E1C16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913733   (600356) от 01.07.2015
+
+VA - BC2 Summer 2015 (2015) [MP3|320 кб/с]<Progressive House, Deep House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luciano Scheffer - Alamo (Spacebeat Remix) [09:27]
+02. Phonic Scoupe - Portico Garden (Original Mix) [07:43]
+03. GabiM - Punc Munc (Travis MacDonald Remix) [08:32]
+04. Midinoize - Exposed (David R Maddocks Remix) [06:51](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 03:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECDBEEC84187828DE8E457ACB544E8696EE12E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232502   (600056) от 24.06.2018
+
+VA - Best Charts: Summer Of Dance (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Luke - Like This Like That (Born In 70s Mix) 8:10
+02. Max Gazeta - Koshka (Original Mix) 8:13
+03. Silver Disco - Detroit (Original Mix) 4:32
+04. Bonsugi - Good Time (Original Mix) 4:00(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E74C8A9C4AE07F112FE97A5B264680BFF311FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232513   (600053) от 24.06.2018
 
 VA - Ibiza Opening Party 2018 (Deluxe Version) [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -672,93 +759,6 @@ VA - Armada Music - '90s / '00s Dance Hits Vol 1 (2022) [MP3|320 Kbps] <Funky, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C07424B5BFF156A7331F2209B44E4D8B8B87C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150524   (593868) от 15.07.2017
-
-VA - Latin Fitness Workout 2017 (Ideal For Cardio, Gym, Running & Aerobics) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-David Pole – Join The Party (Extended Mix)
-02-Sapienza – Asere K Bola (Extended Mix)
-03-Mike De La Cruz – Pa’elante (Stephan F Remix)
-04-Ticli & Gas – Universo (Proyecto FM Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41A9A983DF177269A66D7B3DE0717E85E317079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233497   (593019) от 30.06.2018
-
-VA - FG Top 10 June 2018 [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stan Kolev - Oblivion (Extended Mix) 07:21
-02. Max Freegrant - Drama King 06:49
-03. Orphyd - Replicant (Original Mix) 05:43
-04. AxelPolo - Mirage 06:36(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9235DE3AC25E2A7CCD246910FE19D970967A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549795   (592894) от 08.05.2022
-
-VA - Progressive House 100 - The Ultimate Selection (2022) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592894.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. SØNIN & Grigoré - Serpento (Original Mix) (8:50)
-002. Quivver - Brothers & Sisters (Cid Inc. Remix) (9:06)
-003. RUE - The Cult (Enamour’s Free Love Extended Mix) (7:01)
-004. All Living Things - Rave Culture (Jerome Isma-Ae Extended Remix) (7:38)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0831EEA4EF8AA3DABB1CC8D7D7D89A1D856472FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1103793   (882868) от 13.02.2017
+
+КВН-2017. Высшая лига. КиВиН-2017. Отборочная игра (2017.02.12) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF2F5E4F2508643D73DC22686A6FE7668CA128E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 641653   (882863) от 09.04.2013
 
 Adobe Shockwave Player 12.0.2.122 (Full & Slim) [Multi(Rus)]
@@ -656,41 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E48D4F9C6C6BD1EB2E368FC3D74ABE26ED456487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 298492   (882784) от 20.02.2011
-
-La Roux - La Roux (Gold Edition) (2011) [MP3|256 kbps]<Electropop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. In For The Kill (feat. Kanye West)
-02. Finally My Savior
-03. Under My Thumb
-04. I'm Not Your Toy (Jack Beats Remix)
-05. In For The Kill (Skream's Let's Get Ravey Remix)
-06. Quicksand (Boy 8 Bit Remix)
-07. Bulletproof (Zinc Remix)
-08. Tigerlily (Demo)
-09. Bulletproof (Intimate Session At Abbey Road)
-10. In for the Kill (Vevo Lounge Version)Жанр: ElectropopПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65A2EB977AE41D6E5992BCDC22C6D6C354A83CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

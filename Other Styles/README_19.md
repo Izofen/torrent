@@ -1,3 +1,32 @@
+###  Публикация: 1360243   (961792) от 14.02.2020
+
+Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Motion Picture) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961792.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:32| 01. Meet Sonic (Before We Start I Gotta Tell You This)
+|02:02| 02. Welcome to Green Hills
+|02:51| 03. A Very Lonely Life
+|02:56| 04. Dr. Robotnik(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF43BEB85A731389019CAFA4C80888125CBE0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360245   (961788) от 14.02.2020
 
 Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Motion Picture) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -725,35 +754,6 @@ Carl Davis & Philharmonia Orchestra - Abba for Orchestra (2014) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A0AC9AF06FE61081FB89A938814C5EC3DDFCA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980852   (954559) от 30.01.2016
-
-Stephen Bennett - Beatles Acoustic Guitar Solos (2005) [MP3|264~268 кб/с (V1)] <New Age, Folk>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eight Days A Week 02:14
-02. A Hard Day's Night 02:28
-03. Hello Goodbye 03:04
-04. In My Life 03:02(   Читать дальше...   )Жанр: New Age, FolkПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524D3F72F0A4F4E40F7E9B3F4CCD98707A71E89B
 ```
 
 https://mybot314.ru/tekegram_catalog/

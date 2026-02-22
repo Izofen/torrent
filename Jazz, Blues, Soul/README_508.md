@@ -1,3 +1,32 @@
+###  Публикация: 1680359   (134365) от 29.11.2023
+
+Herb Ellis / Ray Brown Sextet - Hot Tracks (1976) 1990, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Onion Roll [4:26]
+02. Spherikhal [4:55]
+03. But Beautiful [5:25]
+04. Blues for Minnie [4:41](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D108E0A1C5FA67B766CF5A02C3818C8B5D727A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680404   (134275) от 29.11.2023
 
 Shakatak - Eyes of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Disco, Funk>
@@ -762,35 +791,6 @@ Jazzamor - 6 Альбомов (2002 - 2011) [MP3|320 кб/с]<Jazz Lounge>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681441   (132771) от 03.12.2023
-
-VA - The Birth Of Hard Bop (Donald Byrd, Horace Silver, Hank Mobley, Lee Morgan) (1956) 2CD, 2000, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donald Byrd & Hank Mobley - B. for B.B. (previously unissued) [6:31]
-02. Donald Byrd & Hank Mobley - B. for B.B. [6:29]
-03. Hank Mobley & Lee Morgan - Hank's Shout [7:02]
-04. Hank Mobley & Lee Morgan - Bet [7:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44213EC3FDDB3C6488E778DE290969B6FF294A36
 ```
 
 https://mybot314.ru/tekegram_catalog/

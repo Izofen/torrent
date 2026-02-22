@@ -1,3 +1,32 @@
+###  Публикация: 1407208   (468735) от 06.09.2020
+
+Abated Mass of Flesh - Коллекция: 2-CD (2020) [MP3|320 Kbps] <Brutal Death, Slamming Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468735.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Abandoned Homes (2:14)
+2. Creation Weeps (3:12)
+3. Subsequent Abuse (3:04)
+4. Dragged Through the Mud (3:32)(   Читать дальше...   )Жанр: Brutal Death, Slamming Brutal Death MetalПродолжительность: 2 CD: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653D111307D1B55E9BBAD4400767669DEF79D1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940812   (467190) от 25.09.2015
 
 Skepticism - Ordeal (2015) [MP3|320 кб/с]<Funeral Doom Metal>
@@ -716,35 +745,6 @@ Night - High Tides - Distant Skies (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A06781900279ACF09C880559D03C05630984C248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569090   (455802) от 11.08.2022
-
-Norma Jean - Deathrattle Sing for Me (2022) [MP3|320 Kbps] <Chaotic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 1994 [00:03:32]
-02 - Call for the Blood [00:03:14]
-03 - Spearmint Revolt [00:05:02]
-04 - Memorial Hoard [00:04:49](   Читать дальше...   )Жанр: Chaotic MetalcoreПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464449D4B14A1C7FBDFA0EE665F05769DD8B66C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

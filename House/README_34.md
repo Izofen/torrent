@@ -1,3 +1,90 @@
+###  Публикация: 1022679   (727854) от 03.06.2016
+
+VA - The Annual Festival Sessions (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phorsicht - Phreude (3:36)
+02. Prash - Bring That Bass (Extended Mix) (4:48)
+03. Sebastien Nox - O_B_O (4:46)
+04. Jamie My Angel - Runaway with Me (Radio Version) (3:35)(   Читать дальше...   )Жанр: Club House, Electro House, ProgressiveПродолжительность: 04:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3084B39C0F7F8EC73B2A265D19D503186698E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284527   (727847) от 22.02.2019
+
+VA - Melodic House Sessions, Vol.12 (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gregor - The Winter Carnival (Original Mix) 8:24
+02. Koffee & AmFlow - Raw Uncut (UnCut HardCore Instrumental) 5:15
+03. Alex Lem - Siren (Original Mix) 3:48
+04. Polyakk - Boom (Original Mix) 2:24(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DA5D0FCA00EBA46C8D59F50DE971C2A68F40ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284673   (727844) от 22.02.2019
+
+VA - Ibiza Overload '19 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Drake - Treasure (Original Mix)
+02. Nadia A Lee - Feeling Fine (Original Mix)
+03. Gustavo Mendez - Acid Jack (Original Mix)
+04. Frank Delgado - Ibiza Vibe (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F055AFFB0410623F05434E6ECE592AE5FC379B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022776   (727788) от 03.06.2016
 
 VA - House Traxx (Tracks 4 DJ's) (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
@@ -655,93 +742,6 @@ VA - Nothing But... Funky Groove, Vol. 10 (2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2BD710A9F700313E981BDA65E6287D24B20B88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399983   (719134) от 05.08.2020
-
-VA - This Is Deep House, Vol. 6 (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sublime Sound - Hands Of Time [06:12]
-02. Uriel Lange - Low Move [07:03]
-03. Sublime Sound - Symphonous (Nouveau Mix) [06:15]
-04. Vicvicvic - Vouge [07:24](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE97D8EF443555EADE3CC9D4D8236910D693189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285854   (719065) от 27.02.2019
-
-VA - Digi Beat Ltd - Love Electronic Music (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Amnesia - Maasi 03:18
-02. Dj President - Henderson 02:06
-03. Dj Amnesia - Mina 03:10
-04. Dj Amnesia - Mukuru 03:02(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CCEBBD86CEC003339FB136AF5B6F9A9FA85354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285626   (719060) от 27.02.2019
-
-VA - LNG Music: Nick Skitz - Skitzmix 55 (2019) [MP3|320 Kbps] <House, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Skitz - Skitzmix 55 (Continuous Mix 1)
-02. Nick Skitz - Skitzmix 55 (Continuous Mix 2)
-03. Nick Skitz - SM55 Megamix
-04. Rocco - Everybody (Rob & Chris Edit)(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 05:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DE0DC230334BA52C3EC4C6F370BF2165509D42
 ```
 
 https://mybot314.ru/tekegram_catalog/

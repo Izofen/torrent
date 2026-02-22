@@ -1,3 +1,177 @@
+###  Публикация: 1793869   (67438) от 26.04.2025
+
+Paul Thorn - Life Is Just A Vapor (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tough Times Don't Last (3:31)
+02.  Courage My Love (3:50)
+03.  She Will (4:07)
+04.  Chicken Wing (3:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7DCDCF5EF6D8EDE319F24D29FE1FB3109EA082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793864   (67437) от 26.04.2025
+
+Orlndo - The Vintage of Own Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Da' Vi Blues (2:27)
+02.  Bluesy Soft & Slow (2:56)
+03.  Under The Roof (5:33)
+04.  Vintage (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A63602D3861EB644E8BFE70BE04BF219A02AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793886   (67430) от 26.04.2025
+
+Sign Of The Wolf - Sign Of The Wolf (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Unicorn (07:15)
+ 02. Arbeit Macht Frei (04:52)
+ 03. Still Me (04:29)
+ 04. Silent Killer (06:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43B15C8C3250B6CEB1E00AF3C189881E173456C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793867   (67429) от 26.04.2025
+
+Outlaw Patriots Blues and Chicago Blues Collective - The Hollow Road Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shadow of Time (3:32)
+02.  Before the World Got Soft (3:10)
+03.  Dirt and Pride (3:26)
+04.  Highway Ghost (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690FAF95BE877B7D41FD37CA49B6D6AC4A35F2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793872   (67423) от 26.04.2025
+
+Philipp Fankhauser - Ain't That Something (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ain't That Something (3:44)
+02.  That's How I Got to Memphis (3:15)
+03.  Don't Give up on Me (3:21)
+04.  Jack in My Back (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5EE1E90A65FBFC3241FA745CAEA20C3F434613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793860   (67422) от 26.04.2025
+
+No King - Roadside Rhythms - No King - Roadside Rhythms (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wide and Far (4:38)
+02.  Roadside Rhythms (6:46)
+03.  Midnight Misery (7:42)
+04.  Spacetime Rock 'n Roll (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C624FEB0F2355A7D3192706FF39471C16AB883A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642795   (67412) от 27.04.2025
 
 Deserted Fear - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death Metal>
@@ -568,180 +742,6 @@ Blue Cheer - Junk - Blue Cheer - Junk (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83A67F838BFE810C92BF637A7D7E0C42CD9C3C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794587   (67258) от 29.04.2025
-
-Redemption - The Hard Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kick Away (4:33)
-02. The Flame (3:50)
-03. Thunder & Pain (5:20)
-04. The Hard Way (3:16)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1618EB172DA1251BC2C5F8441A2F6B1543BB0BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794586   (67257) от 29.04.2025
-
-Prost - Believe Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lone Survivor (4:33)
-02. Believe Again (4:39)
-03. Comfort Zone (3:54)
-04. Never Let You Go (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF94B29FAA76DB9B548E9AAECC51582F5CE7EA0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794590   (67249) от 29.04.2025
-
-The Riven - Visions of Tomorrow (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away From Home (3:54)
-02. Killing Machine (3:33)
-03. Set My Heart On Fire (3:14)
-04. Travelling Great Distance (3:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35AB85E0B68DFC37FC9E40644BB3D0487F558114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794402   (67242) от 29.04.2025
-
-Periphery - Periphery II: This Time It's Personal (2012) Released, 2019, Sumerian Records [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67242.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Muramasa
-A2 Have a Blast
-A3 Facepalm Mute
-A4 Ji(   Читать дальше...   )Жанр: Progressive Metal, MetalcoreПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646A55C3C5D5065006D400E72C435F375C781E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794546   (67239) от 29.04.2025
-
-Samael - Ceremony of Opposites (1994) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67239.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Black Trip
-A2 Celebration Of The Fourth
-A3 Son Of Earth
-A4 Till We Meet Again(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54BBFD6CB7B8F15026F8B2670CC3C6F5B503AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794584   (67233) от 29.04.2025
-
-Fenson - Cattitude (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attitude Alcohol (2:58)
-02. Taking Back Control (3:03)
-03. Baby Your Wrong (3:18)
-04. Open Doors (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179129128907B03D220EEFA9ED873DFD03067871
 ```
 
 https://mybot314.ru/tekegram_catalog/

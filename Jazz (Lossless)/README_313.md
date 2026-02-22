@@ -1,32 +1,3 @@
-###  Публикация: 1826049   (150697) от 18.10.2025
-
-Papik, Laura Lanzillo & Claudio Fiori - Yes I Know My Way (A Tribute To Pino Daniele) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik, Laura Lanzillo - Keep On Movin'
-02. Vento Di Passione
-03. Femmena
-04. Anna Verrà(   Читать дальше...   )Жанр: Pop Jazz, PopПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F557F215727E075699399E04CFCB06BFE97A24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677515   (150571) от 18.11.2023
 
 Horace Silver Quintet - Further Explorations (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -745,6 +716,35 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD744850D99B0881CEFBA690A4EE8A92AC0BD0D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271609   (148824) от 24.12.2018
+
+Christina von Bulow - On the Brink of a Lovely Song (2018) Storyville Records [FLAC|Lossless|WEB-DL|tracks] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Should Care
+02. Just Too Very
+03. Still Love You So
+04. Out Lee(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78CBB92BF23D63025446D6F5BBD25E1D05A7E723
 ```
 
 https://mybot314.ru/tekegram_catalog/

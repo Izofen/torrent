@@ -1,3 +1,90 @@
+###  Публикация: 1031715   (652166) от 04.07.2016
+
+Denny Zeitlin Trio - Live at the Trident (1965) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction / St. Thomas [04:07]
+ 02.Carole's Waltz [05:47]
+ 03.Spur Of The Moment [06:07]
+ 04.Where Does It Lead [05:13](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F49C35B075674F9E9DE06C51677895F49280375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905345   (652097) от 05.06.2015
+
+Hendrik Meurkens Quartet - A Night In Jakarta (2010) [FLAC|Lossless]<Jazz, Post-Bop, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Night in Jakarta [06:04]
+02. A Ilha [05:38]
+03. Choronto [05:08]
+04. They Can't Take That Away From Me [04:44](   Читать дальше...   )Жанр: Jazz, Post-Bop, Latin JazzПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:553BAC2FC7EA572151EB1785C19E0B96CFE30243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031733   (651996) от 04.07.2016
+
+George Winston - Ballads And Blues 1972 - Piano Solos (1973) LP [MP3|320 Kbps] <Ragtime, Piano Blues, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Highway Hymn Blues    03:06
+02.  Song    03:24
+03.  Go 'Way From My Window    01:33
+04.  The Woods East of Deland    03:03(   Читать дальше...   )Жанр: Ragtime, Piano Blues, Contemporary JazzПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31842AA7F095449ECDD222B34183D7B1460FC186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904835   (651923) от 05.06.2015
 
 Kris Dollimore - All Grown Up (2015) [MP3|320 кб/с]<Acoustic Blues, Roots>
@@ -658,93 +745,6 @@ Wycliffe Gordon - The Search (2000) Nagel Heyer Records [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D66D8DDC33A432B35FB8DF91EF58FC3C229380A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540699   (650470) от 31.03.2022
-
-The Blue Chevys - The Night Calls (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Calls
-02. Willow Tree
-03. Fun No More
-04. Thin Line(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81EB1A5EF8C1A10748E52F5A5C53063AC0FBC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227025   (650401) от 24.05.2018
-
-Djabe - Flow (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Flow
-02 - Return To Somewhere
-03 - Another Dive
-04 - Free Fallin'(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA6CB6568DFD7CF78E407B6921065FC890C5184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540601   (650360) от 31.03.2022
-
-Robert Johnson - Crossroad: The Legendary Recordings (2009) Remastered, 2021, RevOla [FLAC|24/96|tracks|WEB-DL] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Kind Hearted Woman Blues (00:02:55)
-02 - I Believe I'll Dust My Broom (00:03:02)
-03 - Sweet Home Chicago (00:03:01)
-04 - Ramblin' On My Mind (00:02:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816244C2BBF5A42A3493839A26C06A5CCEFACAB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

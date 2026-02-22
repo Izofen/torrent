@@ -1,3 +1,177 @@
+###  Публикация: 1581788   (324413) от 08.10.2022
+
+VA - Музикална Стълбица 1 (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324413.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Йордан Георгиев - Откривание • Открытие
+A2 Майкъл Джексън И Мик Джагър - Шоково Състояние • Шоковое состояние
+A3 Лора Бранигън - Самоконтрол • Самоконтроль
+A4 Стиви Уондър - Не Карай Кола, Когато Си Пил • Если ты пил, не управляй машиной(   Читать дальше...   )Жанр: Hard Rock, Pop Rock, Synth-popПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FB4255553EA15F3134C1B9681F2C2950479B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181381   (323378) от 07.11.2017
+
+Рома Жуков - D.I.S.C.O. (2013) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Dance, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323378.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:07] 01. Рома Жуков - Моя звезда
+[3:47] 02. Рома Жуков - Бриллиантовый дождь
+[3:31] 03. Рома Жуков - Переливы
+[3:25] 04. Рома Жуков - Слушай(   Читать дальше...   )Продолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C52251CE9B7F099D860699B0E695E54D119DE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181366   (323362) от 07.11.2017
+
+Ласковый Май - 8 Марта (5 альбом) (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323362.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1:11] 01. Ласковый Май - Интро
+[5:35] 02. Ласковый Май - Тающий снег
+[5:06] 03. Ласковый Май - Несколько часов вдвоём
+[4:37] 04. Ласковый Май - Мне больше не нужно(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEF313BB98328F32BBC3F42071466A1FC146A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259091   (323245) от 02.11.2018
+
+Mozart - The Best Of... (unknown year) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. From Symphony №40 in G minor K 550; Molto Allegro, Menueto allegro
+02. From Symphony №29 in A major K 201; Allegro moderato
+03. Menuetto from The Divertismento in D major, K 334(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83DFD9D94E49714D3753916CAB247CB1FEE1133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181126   (323187) от 07.11.2017
+
+Кар-Мэн - Вокруг Света (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Dance, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323187.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:02] 01. Чио-Чио-Сан
+[4:20] 02. Эй, ухнем
+[4:59] 03. Дели
+[3:58] 04. Знойный Истамбул(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FA9FF347B4F1AAA4C072672C61DB7060B54E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181362   (323186) от 07.11.2017
+
+Технология - Нажми на кнопку (1991) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Techno-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Нажми на кнопку
+03. Интро
+04. Всё, что ты хочешь(   Читать дальше...   )Жанр: Techno-PopПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C03E4276109C1644BA065810D1ACE0900D64992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181279   (323180) от 07.11.2017
 
 VA - Super Rock Ballads (1992) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock>
@@ -583,180 +757,6 @@ B1. Mutually Assured Destruction (Live) (5:12)(   Читать дальше...  
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1796E721D60DCA059F5A81EB25D43527FD3474F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077561   (306599) от 28.11.2016
-
-Московский камерный оркестр - В.А.Моцарт. Симфония №41 до мажор, KV 551 "Юпитер" (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Allegro vivace  11:16
-2. Andante cantabile  11:38
-Сторона 2(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667EED501812EE8E43984624F8A6CEB3206B44E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261194   (305322) от 10.11.2018
-
-VA - Сергей Рахманинов - Золотая коллекция (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Neo-Classical, Romantic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 18 Вариаций На Тему Рапсодии Паганини Для Фортепиано с Оркестром соч. 43
-02. Итальянская Полька Для Фортепиано в Четыре Руки
-Концерт Для Фортепиано с Оркестром №2 соч. 18
-03. I Allegro Moderato(   Читать дальше...   )Жанр: Classical, Neo-Classical, RomanticПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DECAD830D1DCFB61844782748EB1F18428C8684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077995   (304306) от 29.11.2016
-
-Manfred Mann's Earth Band - Angel Station (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304306.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Don't Kill It Carol (6:18)
-A2. You Angel You (4:03)
-A3. Hollywood Town (5:10)
-A4. 'Belle' Of The Earth (2:47)(   Читать дальше...   )Производство: Bronze - 200 367-320Жанр: Progressive RockПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D4913D488836DAB72FCC3B0969BE67811AAEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077900   (304303) от 29.11.2016
-
-The Beatles - Let It Be (1970) [WavPack|192/32|tracks|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Two Of Us 3:34
-02. Dig A Pony 3:52
-03. Across The Universe 3:46(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF96293ACB9ED3145F0912AE7D6CC171C5BE3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261463   (303385) от 11.11.2018
-
-Unknown Artists. Verdi – La Traviata (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Opera>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01 Overture
-02 Libiamo Ne' Lieti Calici
-03 Un Di' Felice, Eterea (Duet)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C8B317DCEF3FB23C92E2F815AE7D860439D942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184079   (303202) от 16.11.2017
-
-Radiorama - Four Years After (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303202.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Daddy Daddy 3:15
-A2 Bad Boy You 4:06
-A3 Baciami (Kiss Me) 4:14
-A4 Flight Of Fantasy (Remix '89) 5:15(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi NRGПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCBF0B60EE38D1729C38ED26BDB004BA0CCC081
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1590276   (189150) от 13.11.2022
+
+Johnny Smith - The Complete Roost Johnny Smith Small Group Sessions (1952 - 1964) 8CD, 2002, Mosaic Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189150.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Where or When [2:26]
+02. Tabu [2:41]
+03. Moonlight in Vermont [3:15](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Guitar JazzПродолжительность: 09:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BA91E73916B2917748AC380CA7E80101034C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661221   (188985) от 14.09.2023
 
 Louis Hayes - Serenade For Horace (2017) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -715,35 +744,6 @@ Four80East - Gonna Be Alright (2023) [FLAC|Lossless|image + .cue] <Nu Jazz, Acid
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9261892E2FCD4DC1206AB9FB67AF74DCDE1B9AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591115   (187585) от 17.11.2022
-
-Mattias Malm - Electric Avenue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goin' Down South (3:15)
-02. Jumper on the Line (2:44)
-03. Fireman Ring the Bell (3:38)
-04. Someday Baby (2:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16CD9869C2589DB28E1C61EAE422F8F1906E899
 ```
 
 https://mybot314.ru/tekegram_catalog/

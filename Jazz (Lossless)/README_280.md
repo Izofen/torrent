@@ -1,32 +1,3 @@
-###  Публикация: 1634923   (233022) от 23.05.2023
-
-Dick Hyman - From The Age of Swing (1994) Reference Recordings [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Age of Swing [5:03]
-02. You're Driving Me Crazy / Moten Swing [4:25]
-03. Topsy [6:08]
-04. Moonglow [3:24](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D825EF24572AC031EDF0D88C14A83832CD705C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645125   (232944) от 08.07.2023
 
 Chick Corea - 5 Original Albums (1973 - 1976) 5CD, 2016, Verve Records [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Rock>
@@ -745,6 +716,35 @@ Fats Waller - 1938 - 1939 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36DADC5B9F259D9B8F32712702EA0CC0BD64FEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640745   (232290) от 19.06.2023
+
+Joe Wilder - Softly With Feeling (1956) 1989, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherokee [10:44]
+02. Prelude To A Kiss [5:06]
+03. My Heart Stood Still [4:33]
+04. Six Bit Blues [8:30](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327FA395E5B699451B1BCA53D6FBF97937EEACB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

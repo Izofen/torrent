@@ -1,3 +1,90 @@
+###  Публикация: 1509864   (792930) от 14.11.2021
+
+Melanie Mason - Bendin' The Blues (2001) [FLAC|Lossless|image + .cue] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mississippi Blues [3:56]
+02. The Devil Chose Me [5:03]
+03. Give In [3:18]
+04. Work Your Magic [3:31](   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DEC155EBC86C5B8C18055837354420CB8B475AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201319   (792883) от 24.01.2018
+
+Jens Sondergaard Quartet & Bob Rockwell - More Golson (2012) Stunt Records [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Blues House [04:58]
+02. Whisper Not [05:36]
+03. Brielle Samba [05:38]
+04. Dear Kathy [05:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D868D3690B89B45D5A61DEF8B5ACE66048EA128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201315   (792882) от 24.01.2018
+
+Elsie Bianchi Trio - Atlantis Blues (1962) 2004, Sonorama [FLAC|Lossless|image + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Moon at All [03:26]
+02. Baron Lazar [02:50]
+03. Imagination [03:23]
+04. After You've Gone [01:58](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F4C33AA1E4156873C4C0FAF4F57CA45886E1BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201316   (792877) от 24.01.2018
 
 Black Art Jazz Collective - Presented by the Side Door Jazz Club (2014) 2016, Sunnyside Communications [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
@@ -659,93 +746,6 @@ Moondog Howlers - Misbehavin' (2019) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A22DC6DC32382AA241034C87B85CF63ADB34669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201560   (792231) от 25.01.2018
-
-Elsie Bianchi - Fly Me To The Moon (1960 - 1962) 2011, Sonorama [FLAC|Lossless|image + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Remember Clifford [05:00]
-02. Hot Dig a Dee [04:38]
-03. No Moon at All [02:51]
-04. Paradise [03:10](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4F7C9A46FBBC98E379D0DD0188211F3BD8BDEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201550   (792230) от 25.01.2018
-
-Caterina Valente In London (1963) 2004, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Fly with Me [02:48]
-02. My Funny Valentine [02:58]
-03. I've Got You Under My Skin [02:54]
-04. Never Will I Marry [02:37](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C3E50C2AE1AABFC9E67E2DFE864F15CC019342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510091   (792209) от 15.11.2021
-
-Steve Tyrell - This Time Of The Year (2002) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Claus Is Coming to Town [2:10]
-02. Winter Wonderland [2:44]
-03. Rudolph the Red-Nosed Reindeer (feat. Clark Terry) [3:16]
-04. The Christmas Song [4:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185A7907A4C083773FCB99B91F1842906043C474
 ```
 
 https://mybot314.ru/tekegram_catalog/

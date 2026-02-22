@@ -1,3 +1,29 @@
+###  Публикация: 597691   (1000156) от 03.01.2013
+
+Юмор года. Части №1-2 (2013) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Международный фестиваль "Юрмала-2012" - главное юмористическое событие уходящего года! На телеканале "Россия" летняя Юрмала встречает Новый год со смехом. Артисты не теряют чувства юмора ни в жару, ни в холод и веселят публику при любой погоде. В праздничном дайджесте фестиваля телезрителей ждут незабываемые встречи с любимыми артистами.В выпуске: Сергей Дроботенко поделится опытом отдыха русского туриста в Турции, а Владимир Данилец и Владимир Моисеенко вспомнят о надлежащих визах. Геннадий Ветров расскажет об особенностях отдыха "на наших территориях", а Юрий Аскаров пройдет по магазинам. Елена Воробей порадует музыкальными пародиями, Владимир Винокур расскажет о телефонном маньяке, а группа NextBB - сказку о золотой рыбке. На сцене также Новые русские бабки и другие артисты.Жанр: Телепередача, юморПродолжительность: 2 х ~ 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69FE7812C02D0A1E0ECAB9D88CB00FF04582428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597944   (1000155) от 03.01.2013
 
 Идеальный голос / Pitch Perfect (2012) [720p] BDRip
@@ -719,41 +745,6 @@ Steve Mulder - Mutual Respekt 045 (2012) [MP3|320 кб/с]<Techno, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B847DF4D161B102275B181A3B8FE05D3EA87CACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598048   (1000072) от 04.01.2013
-
-M.PRAVDA - Live in Motion 115 (29.09.2012) Best of September [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Chicane and Ferry Corsten - One Thousand Suns
-2. Velvetine - The Great Divide
-3. Markus Schulz feat. Seri - Love Rain Down (Myon and Shane 54 Summer of Love Mix)
-4. Paul Webster feat. Angelic Amanda - Time (Marlo Dub remix)
-5. Space Rockerz and Ellie Lawson -Under the same sky (Beat Service Remix)
-6. Store n Forward - Sugar
-7. Stoneface & Terminal and Cathy Burton - Go The Distance (Club Mix)
-8. Armin Van Buuren feat. Ana Criado - I'll Listen
-9. Simon Patterson feat. Sarah Howells - Here and Now
-10. Ascension - Someone (Signum vocal mix)Жанр: Progressive Trance, TranceПродолжительность: 01:02:415
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0610167FBB009FF1D863A5B20146E381277A97F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

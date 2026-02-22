@@ -1,3 +1,29 @@
+###  Публикация: 1410445   (436085) от 21.09.2020
+
+Firefox Browser ESR 78.3.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4311E2C44713812945A05A582D838823355CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410550   (436083) от 21.09.2020
 
 GeoGebra 6.0.605.0 Classic + Portable [Multi/Ru]
@@ -667,35 +693,6 @@ Vectoraster - программа для создания векторной гр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2D615D49B38F15A806D5A0E57DA3BABD59DFC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249224   (435980) от 23.09.2018
-
-Bill Wyman's Rhythm Kings - Studio Time (2018) [FLAC|Lossless|image + .cue] <Blues Rock, Roots Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beds Are Burning 4:23
-02. Open The Door 3:20
-03. You're The One 3:01
-04. Going Up The Country 3:08(   Читать дальше...   )Жанр: Blues Rock, Roots RockПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E20FF634E9D83A84B24DCFE879976E3F6AE428
 ```
 
 https://mybot314.ru/tekegram_catalog/

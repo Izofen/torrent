@@ -1,3 +1,90 @@
+###  Публикация: 1765800   (101323) от 15.12.2024
+
+VA - Ibiza Winter 2025 (Dance Snowflakes From The Heart) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaques Le Noir - Intentions (Radio Edit) (03:37)
+02. Francesco Diaz & All Purple - Hometown (02:49)
+03. Zulu Natives - In My Dreams (02:55)
+04. Mayson & Noise - Day Go By (02:41)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5371DCE845B2FD9004975F508507C0073B27583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765797   (101291) от 15.12.2024
+
+VA - The Remixes Chapter 1 (2024) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K Loveski & Gorkiz - Echos of Eons (Greenage Remix) [06:57]
+02. Andre Moret - Waltz of the Dew (Subandrio Remix) [07:56]
+03. Mind Echoes - Cold Forest (Dowden Remix) [07:23]
+04. Fel C - Suspension (Evegrem Remix) [07:04](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9414A5C40B617F50CC8C6FDFFDBCD157C05F81EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767003   (101202) от 21.12.2024
+
+VA - Weekend Dance Tunes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack York - New Day (02:59)
+02. Mirko Lovato - Cosmic Galaxy (02:59)
+03. MANESK - We Are Wild (03:33)
+04. Free Mads - Look Inside (Deep House Mix) (05:10)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8F85A16317B54449355ED6ED24580123D59CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767103   (101201) от 21.12.2024
 
 Arcade Alchemy - 1 hour Beast Mode On Hard-hitting Gym Beats for Strength (2024) [MP3|320 Kbps] <Hard House, Dance>
@@ -767,111 +854,6 @@ VA - Progressive Mainroom House (2012) [MP3|320 кб/с]<House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3964A492C4AA7B0FBA5EB7E8B779CF34B4806A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477095   (98544) от 04.04.2012
-
-VA - The Digital Age Vol. 8 (2012) [MP3|320 кб/с]<Tech House, Minimal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Kaufmann & Ferdinand - Onion Riders (feat Mr Pong) (08:04)
-02. Marcel Sterling - Butterfly (07:33)
-03. Daniel Steinberg - Bantuma (05:42)
-04. Oliver Klein - Caleno (07:49)
-05. Kolombo pres Kagomba - Kagomba (08:18)
-06. Strict Border - Sugar Foot (UES remix) (07:10)
-07. Dapayk - Nangiria (07:18)
-08. Kamika - Conform (Maksim Dark Remremixix) (06:39)
-09. Sebastian Weiske - Space Vagabond (Sene Ceanes Eternal Return remix) (06:58)
-10. Manuel Turobin - Bummeltaxi (08:45)(   Читать дальше...   )2012Жанр: Tech House, MinimalПродолжительность: 02:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F9CA9A2D5302588A013B9FF86914B83D48DC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477533   (98535) от 04.04.2012
-
-VA - Re:Define 01 - The Future Sound of House (2012) [MP3|320 кб/с]<House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Solan - Gettin Down (07:42)
-02. Dualton & Wollion - Undisputed (08:52)
-03. Sante - Picadilly Circus (06:36)
-04. Oliver Klein - Hey Baby (07:32)
-05. Butch - Soul Motion (06:25)
-06. Tim Weeks - Feelin' (08:04)
-07. Paul Sparkes & Farshad Kay - Feet R Rocking (06:31)
-08. Mendo & Danny Serrano - Kumbha (07:38)
-09. Steve Lawler - Gimme Some More (feat Roland Clark) (09:19)
-10. Chris Special - Ain't Nobody (07:40)(   Читать дальше...   )2012Жанр: House, Tech House, Deep HouseПродолжительность: 03:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00E2300FBD76424097F264A68B2B5778B3EFC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477076   (98469) от 02.04.2012
-
-VA - Chill House Sensation (2012) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Solanos - Shameless (5:08)
-02. Arrojas - Outer Space (5:31)
-03. Christian Hornbostel - Free Spirit (5:29)
-04. Suntheca Prod - Another Kiss (4:35)
-05. Rey Salinero - Get Together (5:55)
-06. Cane Garden Quartet - Close To You (5:30)
-07. Blue Wave - Heaven (feat. Sarah Chris) (4:40)
-08. DJ Riquo - My Lucky Day (feat. Saba Rock) (5:37)
-09. Enrico Donner invites Theresa Thomason - Something New (4:37)
-10. Remasters Of Love - Riding City Titties (5:50)(   Читать дальше...   )2012Жанр: Deep House, Chill HouseПродолжительность: 01:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C9AC9DD1CE8777ECFE4F1A9C3AA7EB069F073E
 ```
 
 https://mybot314.ru/tekegram_catalog/

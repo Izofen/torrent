@@ -1,3 +1,98 @@
+###  Публикация: 561864   (405968) от 18.10.2012
+
+Carlos Garnett - Under Nubian Skies (1997) [FLAC|Lossless]<Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_405968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Daffodils
+02. Blues for John C.
+03. My One and Only Love
+04. Happy Children Song
+05. What
+06. Under Nubian Skies
+07. Epitapher Zackerism
+08. Mango Walk
+09. Down & Up AgainЖанр: Hard Bop, Post-BopПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561669   (405921) от 18.10.2012
+
+VA - This Is Soul (2007) [FLAC|Lossless]<Rhythm & Blues, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_405921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wilson Pickett - Mustang Sally [03:06]
+02. Carla Thomas - B-A-B-Y [02:54]
+03. Arthur Conley - Sweet Soul Music [02:18]
+04. Percy Sledge - When A Man Loves A Woman [02:50]
+05. Sam & Dave - I Got Everything I Need [02:55]
+06. Ben E. King - What Is Soul? [02:19]
+07. Otis Redding - Fa-Fa-Fa-Fa-Fa (Sad Song) [02:41]
+08. Eddie Floyd - Knock On Wood [03:03]
+09. Solomon Burke - Keep Looking [02:38]
+10. Aretha Franklin - I Never Loved A Man [02:41](   Читать дальше...   )Жанр: Rhythm & Blues, Soul, FunkПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561849   (405917) от 18.10.2012
+
+Julie London - Sophisticated Lady & For The Night People (1998) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_405917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sophisticated LadyЖанр: Jazz, VocalПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561902   (405861) от 18.10.2012
 
 Emilie-Claire Barlow - 2 альбома (2005, 2009) [FLAC|Lossless]<Jazz, Vocal>
@@ -709,90 +804,6 @@ Tommy Castro & The Painkillers - Stompin' Ground (2017) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFAD0FA40FAA372D5A2108292FAC90CCC02AA2CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563947   (403841) от 22.10.2012
-
-Princess Velasco - 2 альбома (2010-2011) [FLAC|Lossless]<Ballads, Jazz, Pop, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just The Way You AreЖанр: Ballads, Jazz, Pop, VocalПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169353   (403217) от 27.09.2017
-
-Don Ewell - Free 'n Easy! (1957) 2000, Good Time Jazz [FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolverine Blues [03:54]
-02. Ain't Misbehavin' [03:30]
-03. If I Could Be With You [03:12]
-04. Lulu's Back In Town [02:57](   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221CD0B2C2D42C813A459FBD7F1F1893A10A917F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169362   (403195) от 27.09.2017
-
-Stephane Grappelli - 1935-1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Louis Blues [03:34]
-02. Limehouse Blues [03:15]
-03. I Got Rhythm [03:01]
-04. I've Found A New Baby [03:09](   Читать дальше...   )Жанр: Swing, Gypsy JazzПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706CD1BB54AFD52C5E3338ABEC5721DB66268B82
 ```
 
 https://mybot314.ru/tekegram_catalog/

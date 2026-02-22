@@ -1,3 +1,38 @@
+###  Публикация: 211771   (694820) от 20.06.2010
+
+Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694820.jpg" />
+</div>
+
+
+###  Подробнее
+
+(7:40) 01. Trois Gymnopedies
+(7:00) 02. Mondscheinsonate
+(5:00) 03. Konzert fur Flote
+(7:27) 04. Konzert fur Violine
+(5:05) 05. Italienisches Konzert
+(4:25) 06. Largo
+(2:29) 07. Klavierkonzert
+(4:09) 08. Konzert fur Flautino
+(2:32) 09. Siciliano
+(2:29) 10. Trinklied(   Читать дальше...   )Жанр: New ageПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027666   (694708) от 20.06.2016
 
 Tom Eaton - Abendromen (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
@@ -713,35 +748,6 @@ Audiomachine - Worlds of Wonder (2017) [MP3|320 Kbps CBR] <Soundtrack, Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4D932D64AAE948747AB8DC116195BCB1B04603A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028317   (690873) от 22.06.2016
-
-Amy Janelle - Shining True (2010) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finally Home [00:04:08]
-02. Enchantment [00:03:46]
-03. Spirited Smile [00:04:28]
-04. Foreboding Chimes [00:04:14](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFA5A0D1CA19955953C9AD59DF41788D5C5E04D
 ```
 
 https://mybot314.ru/tekegram_catalog/

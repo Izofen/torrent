@@ -1,3 +1,29 @@
+###  Публикация: 366754   (537289) от 23.07.2011
+
+Журнал | What HI-FI? Звук и Видео №7 (2011) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537289.jpg" />
+</div>
+
+
+###  Подробнее
+
+"What Hi-Fi? Звук и Видео" – русскоязычная лицензионная версия популярного британского журналаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EC35C901F6A94B79C2F68965092CD261640E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925075   (537280) от 08.08.2015
 
 The Clamps - Nerves (2015) [MP3|320 кб/с]<Drum & Bass>
@@ -673,35 +699,6 @@ Manfred Mann's Earth Band - Somewhere In Africa (1982) Remastered, 1999, Creatur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:287D46292107BF572B26C34F1358ADA03F4A585D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154721   (537076) от 01.08.2017
-
-Armin van Buuren - A State Of Trance 823 (20.07.2017) Radioshow [MP3|256 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tune Of The Week:
-01 Armin van Buuren & Sunnery James & Ryan Marciano – You Are (ARMIND (ARMADA))
-02 Rodrigo Deem – Tearsdrope (ASOT (ARMADA))
-03 Andrew Rayel ft. Angelika Vee – Never Let Me Go (ARMIND (ARMADA))(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35CB17E49934E35F9526CC3DE1AF3FB7D027176
 ```
 
 https://mybot314.ru/tekegram_catalog/

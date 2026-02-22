@@ -1,3 +1,90 @@
+###  Публикация: 941469   (460288) от 28.09.2015
+
+Karin & Mike Kelleher - Melange (2015) [FLAC|image+.cue]<Vocal Jazz, Classical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Pain
+02. Jeannot
+03. Ancka's Dolphin Dance
+04. Black Is The Color(   Читать дальше...   )Жанр: Vocal Jazz, ClassicalПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7533EEE9E8047EF7B6FCB35814BA55081AD24ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408043   (460230) от 10.09.2020
+
+VA - Signora Ward Records - Doom Jazz/Dark Jazz/Funeral Jazz vol. 1 (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Funeral Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bebopovsky And The Orkestry Podyezdov - Malkavian (13:29)
+02. Vainoras and the altar of the drill - Attempting to outwalk a troubled mind 2 (3:55)
+03. Lowering - Father (3:44)
+04. The Orchestra Of Mirrored Reflections - Sax For Ms. Mojito (7:07)(   Читать дальше...   )Жанр: Doom Jazz, Dark Jazz, Funeral Jazz, Experimental, NoiseПродолжительность: 01:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E1E78912B819D82B6F9B0DB04B018DE49B02E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568625   (459927) от 09.08.2022
+
+Patti Austin And James Morrison - Ella & Louis (2017) 2CD, ABC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459927.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Hello, Dolly! [4:32]
+02. (Up A) Lazy River [6:12]
+03. Too Close for Comfort [3:28](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 01:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783EE4E82C84407440BD1B0796FACC23B7282A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568614   (459762) от 09.08.2022
 
 VA - Baby Makin Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Soul, Nu Disco, Other>
@@ -669,93 +756,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE230496BA24F34577CE5505DAB07C9ED047E0CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247102   (457123) от 13.09.2018
-
-Renee Rosnes - Beloved Of The Sky (2018) Smoke Session Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elephant Dust [7:26]
-02. Scorned as Timber, Beloved of the Sky [6:55]
-03. Mirror Image [8:23]
-04. Rosie [6:32](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B8A8CC3019DC855A3D6681AB39647A57E4FE7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247027   (457122) от 13.09.2018
-
-Count Basie - Celebrating the Best of Jazz (2001) [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumping at the Woodside (3:04)
-02. All of Me (3:06)
-03. One O'Clock Jump (3:50)
-04. Lester Leaps In (4:05)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E841944BBF7183600DAD3C1814FA4672918A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247075   (457113) от 13.09.2018
-
-Vic Juris - Eye Contact (2018) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. United [4:06]
-02. Ruby [7:50]
-03. I Fall in Love Too Easily [7:03]
-04. We See [7:25](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F971F5994C7A55FCE29C2274414E69A04E0C5D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

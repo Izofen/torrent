@@ -1,3 +1,32 @@
+###  Публикация: 1460179   (1022824) от 04.04.2021
+
+Swingrowers - Hits & Remixes (2017) Japan [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pump Up The Jam (feat. The Lost Fingers)
+02. Kiawami (Skeewiff remix)
+03. The Queen of Swing (feat. Gypsy Hill)
+04. Midnight(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBCFF45817EFAA838ADEE6ED185590BAD203D8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460369   (1022618) от 05.04.2021
 
 Chet Baker - Sings Again (1985) 2020, Solid Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Vocal Jazz>
@@ -716,35 +745,6 @@ Bennie Moten's Kansas City Orchestra - The Okeh Sessions Plus Victor Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C8146DBB0EB2866857E52CC912DC53E5F9AF905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463362   (1020501) от 18.04.2021
-
-VA - Soul Tenors: Milestones Of Jazz Legends (1956 - 1962) 10CD, 2020, The Intense Media [FLAC|Lossless|image + .cue] <Hard Bop, Soul-Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020501.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - King Curtis-The New Scene Of King Curtis & Country Soul:
-01. King Curtis - Da-Duh-Dah [5:11]
-02. King Curtis - Have You Heard? [10:23]
-03. King Curtis - Willow Weep For Me [5:25](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Mainstream JazzПродолжительность: 12:23:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78078417FFE928C992EFED174C0906300C5ADA85
 ```
 
 https://mybot314.ru/tekegram_catalog/

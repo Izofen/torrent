@@ -1,3 +1,90 @@
+###  Публикация: 1343312   (218486) от 06.12.2019
+
+Samba Soul - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Samba, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm In You (5:25)
+02. Here We Go Again (5:58)
+03. Sometimes When We Touch (5:14)
+04. Keep Your Eyes On The Sparrow (5:15)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Samba, DiscoПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F5D55A194BA3CEA46D9DF26EE1B20F7FA0968A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084671   (218443) от 19.12.2016
+
+VA - Just The Hits 2016 (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chainsmokers - Roses (Feat. Rozes)
+02. Flo Rida - My House
+03. Twenty One Pilots - Stressed Out
+04. Coldplay - Adventure Of A Lifetime(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1519F81BFD56F85F540887516B4406575305C713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343392   (218420) от 06.12.2019
+
+VA - Megahits 2020 - Die Erste (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218420.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dua Lipa - Don't Start Now
+02. Felix Jaehn,Vize,Miss Li - Close Your Eyes
+03. Tones and I - Dance Monkey(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64221C2748078883118ED390B0AE48368D4BD218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343067   (218401) от 06.12.2019
 
 VA - Bravo Hits Zima 2020 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
@@ -657,93 +744,6 @@ VA - Simply the Best 80's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Other
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:019C2B8684985180A66CD006A3B081EF067EBF39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652861   (216219) от 13.08.2023
-
-Nel Oliver - Nel Oliver (1980) LP [MP3|320 Kbps] <Disco, Reggae, Funk/Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Heart Of The Ghetto (5:16)
-02. I Have A Good Job (5:39)
-03. On The Boulevard (4:49)
-04. Funny Love (4:44)(   Читать дальше...   )Жанр: Disco, Reggae, Funk/SoulПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07EA126D657A7391E3BDCC8E730E2AC4916A01A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084876   (216189) от 20.12.2016
-
-A La Carte - MusicBox (2003) [FLAC|Lossless|tracks + .cue] <Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doctor, Doctor (Help Me Please) [5:40]
-02. Ring Me, Honey [4:06]
-03. You Get Me On The Run [3:23]
-04. When The Boys Come Home [4:07](   Читать дальше...   )Жанр: Disco, Euro-DiscoПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDF925A1922869027286832BBF77BE05B776B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425742   (216170) от 23.11.2020
-
-Vanessa Daou - Songs for Solace (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chilled Jazz, Soul, Downtempo, Delta Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Near the Black Forest 2.0 (Animal Feelings Rework) (5:10)
- 02. Little Black Dress (3:15)
- 03. How Do You Feel (3:51)
- 04. I Cry For You (3:24)(   Читать дальше...   )Жанр: Electronic, Chilled Jazz, Soul, Downtempo, Delta BluesПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABA8E9824907C405389595F7552AFD7BF99EC57
 ```
 
 https://mybot314.ru/tekegram_catalog/

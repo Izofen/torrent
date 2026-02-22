@@ -1,3 +1,32 @@
+###  Публикация: 1078203   (243390) от 01.12.2016
+
+Mongo Santamaria - Mongo at the Village Gate (1963) 1990, Riverside[FLAC|Lossless|tracks + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction by 'Symphony Sid' [00:43]
+ 02.El Toro [06:35]
+ 03.Fatback [06:00]
+ 04.Mongo's Groove [03:20](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBAFF71FB31B6F1DD60461EE30D9736BDA38208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538311   (243384) от 20.03.2022
 
 Junior Mance Trio - Junior's Blues (1963) 1998, Original Jazz Classics [WavPack|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Wolf Mail - The Wolf is at Our Door (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2647DE29F32FDEB1B5AD8E952E1FA7A071EAE53B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627432   (242948) от 19.04.2023
-
-James Carter Organ Trio - Live from Newport Jazz (2019) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le manoir de mes reves [11:29]
-02. Melodie au crepuscule [10:47]
-03. Anouman [10:06]
-04. La valse des niglos [7:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FA46FEBE47870AF057112B58C75BD04B604667
 ```
 
 https://mybot314.ru/tekegram_catalog/

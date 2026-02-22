@@ -1,3 +1,177 @@
+###  Публикация: 1328431   (363130) от 30.09.2019
+
+Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Ri] <Pop, Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hadakano Venus
+02. Nagisa Nite
+03. Kuchibeni Enka
+04. Kimi Ga Utsukushisugite(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: Pop, Jazz, Easy Listening
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E139619DF26ECD6CDD4BF3E1E4CAC694A8526B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328689   (360652) от 01.10.2019
+
+The Beatles - Abbey Road (1969) UMG, 2019 [FLAC 5.1|48/24|Lossless|tracks + .cue] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Together (4:21)
+02. Something (3:02)
+03. Maxwell's Silver Hammer (3:28)
+04. Oh! Darling (3:27)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49003E00433BED111B736DE7F5B28B736A41642D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952170   (358285) от 31.10.2015
+
+The Alan Parsons Project - I Robot (1977) Reissue /1982, Arista Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358285.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. I Robot (6:02)
+A2. I Wouldn't Want To Be Like You (3:23)
+A3. Some Other Time (4:06)
+A4. Breakdown (3:53)(   Читать дальше...   )Производство: Arista RecordsЖанр: Progressive RockПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9840B532FDF4A68C2B717B5EEA03070BF1ACCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577444   (356764) от 18.09.2022
+
+Emigrate (Rammstein, Richard Kruspe) - Studio Albums (4 releases) (2007 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Emigrate — сайд-проект, основанный Рихардом Круспе, сооснователем группы Rammstein и её гитаристом. Проект появился в 2005 году во время творческого перерыва Rammstein после выпуска пятого альбома Rosenrot.2007 - Emigrate
+2014 - Silent So Long
+2018 - Million Degrees
+2021 - The Persistence Of MemoryЖанр: Industrial MetalПродолжительность: 02:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D8805CFB71D7A56BF46607287FCFBCAE293341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255995   (356699) от 21.10.2018
+
+Placido Domingo - Placido Domingo And Friends (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356699.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Umberto Giordano - Fedora (Amor Ti Vieta), Placido Domingo
+A2 Verdi - Luisa Miller (Quandro Le Serre), Placido Domingo
+A3 Mozart - La clemenza di Tito (Parto Parto), Martha Senn
+A4 Puccini - Intermezzo: (Manon Lescaut, Ch'ella Mi Creda), Placido Domingo(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33136F64EAFBA3B5B3CCE40D48271A51645FC462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256001   (356691) от 21.10.2018
+
+Saint-Saens - Symphonies (Carnival of the Animals, Phantasy E flat Major, Organ Symphony №3 C minor) (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carnival of the Animals
+01. Introduction et marche royale du lion (Introduction and Royal March of the Lion)
+02. Poules et coqs (Hens and Roosters)
+03. Hemiones (animaux veloces) (Wild Donkeys Swift Animals)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD2C86480B45946949490126DB3A6DC3A1FAC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256012   (356688) от 21.10.2018
 
 Three Dog Night - Coming Down Your Way (1975) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
@@ -573,174 +747,6 @@ A4 Sweet Dreams(   Читать дальше...   )Жанр: Prog Rock, Symphoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70858773752C1E07300167E7C371F1DC5A3ADCF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073917   (342543) от 17.11.2016
-
-Manfred Mann's Earth Band - Somewhere In Afrika (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342543.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Tribal Statistics (4:16)
-A2. Eyes Of Nostradamus (3:31)
-A3. Third World Service (5:22)
-A4. Demolition Man (3:46)(   Читать дальше...   )Производство: Bronze Records - 205 077Жанр: Progressive RockПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDFA27E225714123D416437C9B764AC46FC405C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257891   (341116) от 14.11.2010
-
-Richard Friedman - Directions: Center [DTS 5.1 CD-Audio from Audio-DVD] (2000) <New Age>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341116.jpg" />
-</div>
-
-
-###  Подробнее
-
-1  Journey To The CenterЖанр: New Age, RelaxПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419412   (339855) от 28.10.2020
-
-Маркиза - Маркиза (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339855.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 220 Вольт
-A2 Спи, Дитя
-A3 Зря Ты Пришел
-A4 Все Мы Верим(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8C96644EC00ECE51D19B47E1268D09DAF7D075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074195   (337859) от 19.11.2016
-
-Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [WavPack|192/32|tracks|Vinyl-Rip] <Progressive & Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Shine on You Crazy Diamond  11:46
-02. Learning to Fly 5:22
-03. Yet Another Movie & Round and Around 7:10(   Читать дальше...   )Жанр: Progressive & Art RockПродолжительность: 01:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6718A21081EAFCC78388CE02D30DC97CABBBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179381   (337196) от 05.11.2017
-
-Поет Аида Ведищева (1969, 1974)  [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:56:40 (общая)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B7FD7C0169F91B5DA4FF5384A9B47ECA989B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181277   (335358) от 06.11.2017
-
-Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335358.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Atomic (4:06)
-A2. Some Other Place, Some Other Time  (4:52)
-A3. Star Vision (5:51)
-A4. Run To The Stars (4:39)(   Читать дальше...   )Производство: Rockland Records - RKL 20323Жанр: Space RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B5822D464C356CDA712AF27CD41606469F8578
 ```
 
 https://mybot314.ru/tekegram_catalog/

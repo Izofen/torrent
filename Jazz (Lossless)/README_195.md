@@ -1,3 +1,38 @@
+###  Публикация: 548443   (466455) от 18.09.2012
+
+Susan Wong - 8 Альбомов (2002-2011) [FLAC/APE|Lossless]<Jazz, Vocal, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay Awhile (2008 Version) [03:35]
+02. Superstar [03:37]
+03. Cavatina [04:01]
+04. Killing Me Softly [04:15]
+05. Rainy Days And Mondays [03:48]
+06. Emotion [04:30]
+07. I'm Easy [03:32]
+08. Sway [03:04]
+09. Close to You [03:19]
+10. You Needed Me [03:19](   Читать дальше...   )Жанр: Jazz Vocal, Smooth Jazz, Jazz-PopПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058787   (466445) от 02.10.2016
 
 Johnny Smith Trio - Easy Listening (1958) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
@@ -731,41 +766,6 @@ Eden Atwood - 3 альбома (1993-2002) [FLAC|Lossless]<Jazz Vocal>
 08. Right as the Rain [03:56]
 09. I'm Glad There Is You [05:48]
 10. Never Let Me Go [04:33](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549345   (463032) от 20.09.2012
-
-Sally Night - Love For Sale (2012) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Funny Valentine [04:25]
-02. Love For Sale [04:04]
-03. Wisper Not [02:50]
-04. Angel Eyes [04:52]
-05. It's Alright With Me [03:57]
-06. Black Coffee [06:16]
-07. Tendery [04:10]
-08. Just You Just Me [02:19]
-09. Bossa Medley [06:06]
-10. The Lady Is A Tramp [03:51](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 01:12:55
 
 ## Скачать торент
 ```bash

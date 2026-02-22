@@ -1,3 +1,32 @@
+###  Публикация: 1499547   (847674) от 02.10.2021
+
+Sarah Menescal - Cafe Bossa Nova (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Smooth Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand by Me
+02. Over My Shoulder (feat. Groove Da Praia)
+03. Can't Help Falling in Love
+04. Like a Prayer(   Читать дальше...   )Жанр: Bossa Nova, Smooth Jazz, LoungeПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF151D106D3CD496D65593A593261E8315B2D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002650   (847212) от 01.04.2016
 
 Duke Pearson - Merry Ole Soul (1969) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -714,35 +743,6 @@ Jason Moran - All Rise (2014) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D765AB26298B0055A3227CB0DF0442919318D334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112020   (845235) от 07.03.2017
-
-George Cables Trio - Dark Side, Light Side (1997) SteepleChase [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dolphin Dance [09:41]
- 02.Dark Side, Light Side [09:16]
- 03.Ruby, My Dear [07:38]
- 04.Alone Together [07:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE148EA47C2C7EC1A7F64F93FB527EAEA9D9D6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

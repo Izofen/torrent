@@ -1,3 +1,90 @@
+###  Публикация: 1108108   (864835) от 24.02.2017
+
+Nils Petter Molvaer - Baboon Moon (2011) Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mercury Heart [05:56]
+ 02.A Small Realm [03:22]
+ 03.Recoil [05:13]
+ 04.Bloodline [04:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C04C76F17A032A85EF0100F959BDB10FACEDFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108119   (864832) от 24.02.2017
+
+Jean Goldkette And His Orchestra - Victor Recordings (1924-1928) 2001, Trans Atlantic Radio [FLAC|Lossless|tracks + .cue] <Early Jazz, Dance Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's The Blues [02:48]
+ 02.I Didn't Know [03:10]
+ 03.After I Say I'm Sorry [03:18]
+ 04.Dinah [03:07](   Читать дальше...   )Жанр: Early Jazz, Dance BandПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C71FFD3D6732C255713A4DFF9DA2E91A64FA0EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108273   (864831) от 24.02.2017
+
+Belmont Blues Kingz - Blues in Sonoma (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rhythm-&-Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Jam (1:52)
+02. Have A Good Time (2:30)
+03. Everybody's Fishin' (3:35)
+04. Drugs Guns And Violence (4:04)(   Читать дальше...   )Жанр: Blues, Rhythm-&-BluesПродолжительность: 00:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795D6791CBF355AA2599B00D542FF9BD5811F073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108227   (864747) от 24.02.2017
 
 Ben Webster & Tete Montoliu Trio - Gentle Ben (1972) 2015, Discmedi [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -677,93 +764,6 @@ Julian Lage & Chris Eldridge - Mount Royal (2017) [FLAC|Lossless|WEB-DL|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F2471689169BBEE351844EFEB7AD7FD27A1C076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108505   (863194) от 25.02.2017
-
-Gerry Mulligan & Stan Getz - Getz Meets Mulligan In Hi-Fi (1957) 1999, Verve [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Let's Fall In Love [06:28]
- 02.Anything Goes [03:38]
- 03.Too Close For Comfort [06:58]
- 04.That Old Feeling [05:59](   Читать дальше...   )Жанр: CoolПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E8F4C6CF846CFB1B515380D2045648D63D3272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497650   (863162) от 23.09.2021
-
-Terry Gibbs Quartet - Plays Terry Gibbs Featuring Alice McLeod (1963) 2012, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burton Up Your Lip [2:25]
-02. Up at Logue's Place [3:12]
-03. One for My Uncle [2:44]
-04. Ballad for Barbara [3:47](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BDAE1397162109EB2C7826F854C91F9C9B58915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999849   (863147) от 23.03.2016
-
-Bobby Hutcherson - Happenings (1966) Remaster, 1999, Toshiba[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Aquarian Moon [07:46]
- 02.Bouquet [08:11]
- 03.Rojo [06:04]
- 04.Maiden Voyage [05:52](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7ADCA8BB0395EAF447E99212F0B1F2531259DAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1143038   (639221) от 16.06.2017
+
+Estimado - Escape To Heaven (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Dancing on My Own
+02. Faster
+03. Believe in Me
+04. I Want You Heaven(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843ECD339BA90048B779E5876E6C9D304AED01FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542263   (639107) от 06.04.2022
+
+Quango & Sparky - Disco (1980) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Fran Jubilee (3:16)
+02. Do The Boogaloo (3:12)
+03. Do The Boogaloo (Instrumental) (3:13)
+04. The Disco Rock (3:29)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF47EC241FB029882ECE92E9317F962B7278BC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142950   (639083) от 16.06.2017
+
+Виктор Рыбин и Наталья Сенчукова - Замечательно (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639083.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кусочек сладкого пломбира
+2. Битва за любовь
+3. Уезжаю
+4. Несерьёзно(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AF2DB78B379B7E8BE8A8602CD5A1929A47BD2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293232   (638927) от 02.04.2019
+
+Дискотека Авария - Новогодний ТрЭш (2019) Live [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638927.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Х.Х.Х.И.Р.Н.Р. (Live)
+2. Опа! (Live)
+3. Труба зовёт (Live)
+4. Ноги-ноги (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09167726F67F0CAD17B774AB3A493B164D7F5C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033406   (638232) от 11.07.2016
 
 Cellars - Phases (2016) [MP3|320 Kbps] <80's Retro Pop, Synth Pop, Female Vocal>
@@ -635,128 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03D62277FB2C1AF0D7DFF167AD99BA0D209105B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519284   (636916) от 06.07.2012
-
-Валерия - Самое лучшее (1999) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты где-то там
- 02. Обычные дела
- 03. Не забудь былые увлеченья
- 04. Кап-кап
- 05. Жаль
- 06. О том, что было
- 07. Небеса
- 08. Золотая рыбка
- 09. Моя Москва
- 10. Самолет(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172CC9793C44EE88DC440E9C2A6A76808D5BC203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542458   (636876) от 07.04.2022
-
-Комбинация - Легендарные Песни (2004) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Boy
-02. Белый вечер
-03. Russian Girls
-04. Два кусочека колбаски(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5910DA53346C41CFA2417B8E6BD98C953FBB219F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542465   (636859) от 07.04.2022
-
-ABBA - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Day Before You Came
-02. Take A Chance On Me
-03. Money, Money, Money
-04. The Piper(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F1089809F92CFE1B35A3B29C67B9E2F0FC9347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661991   (636785) от 03.04.2019
-
-VA - Песня 75, 76, 77 (3 CD) (2007) [FLAC|Lossless]<Retro|Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ВИА «Пламя» / У деревни Крюково [0:03:29.55]
-02. Тамара Синявская / Черноглазая казачка [0:03:25.05]
-03. Геннадий Пономарев / Барабан [0:02:59.49]
-04. Мики Евремович (СФРЮ) / Московская серенада [0:04:15.13](   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1C29F1156823861F97874C192A99601188B2FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,102 @@
+###  Публикация: 440911   (72190) от 25.01.2012
+
+VA - Electro Doom (2012) [MP3|320 kbps]<Club House, Funky House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.Sugar Freak Feat. Diva - Music Change My Life (Loveforce Remix)
+02.Alex Raimond Feat. Vivian B - Tiger (Frenk DJ & Joe Maker Remix)
+03.Tim Sanchez - Can U Feel It (DJ Chick Crazy Mix)
+04.Alex Raimondi Feat. Vivian B - Be As One (Frenk DJ & Joe Maker Remix)
+05.Andrea Masullo Feat. Lizzy B - Satisfy
+06.Daniele Sorrenti - So Much Love (DJ Chick Timbal Remix)
+07.Max Sabatini & Alex B - Electro Echo (Loveforce Remix)
+08.Andrea Masullo Feat. Mery) - On A Line
+09.Andrew Steel - La Prof
+10.Claudio Suriano - Set Me Free (Elektrojack Shining Remix)(   Читать дальше...   )Жанр: Club House, Funky HouseПродолжительность: 01:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E2DB9F118262D8E1BBE8C4B4E7AAD212D7C7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440920   (72180) от 25.01.2012
+
+VA - On The Floor 2 (2012) [MP3|320 kbps]<Club House, Funky House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.Jochen Miller - Flashback (Gregori Klosman Remix)
+02.Sebastian Krieg & Andrew Bennett - Azure
+03.Audio Bastardz - 20 Hz
+04.Sem Thomasson Feat. Colonel Red - Like This
+05.Sebastian Gnewkow & Milkwish - Groove Kids
+06.Romeo Blanco - Galactica
+07.Asic & Hugs Feat. Casey Jones - Fantasy
+08.Moguai - Beatbox (Jordy Lishious Dope & Dirty Remix)
+09.Mell Tierra - Nagoya
+10.Lazy Jay - Bingo!(   Читать дальше...   )Жанр: Club House, Funky HouseПродолжительность: 02:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93F1D7E077FA547F98EBBE4BCBF71F28D3A9BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771259   (71927) от 05.01.2025
+
+VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase - Om Shivam (Original Goa Mix) [6:34]
+02. A-Mase & Vika Grand - Fever (Melodic Techno Mix) [5:18]
+03. A-Mase & Sharliz - Beautiful Things 2.0 (Original Mix) [7:04]
+04. A-Mase - Imagine 2.0 (Original Mix) [8:47](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA6C3F6D1A56BB1C2BEFF006A2AFE34EC02D357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771855   (71808) от 08.01.2025
 
 VA - Disco Down The Best of 2022 (2022) [MP3|320 Kbps] <House, Nu-Disco, Electro>
@@ -656,93 +755,6 @@ Dionigi - Hot Oxygen (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:133A39351A92FC95882A0C9183FDFC6209BAE55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781699   (70158) от 24.02.2025
-
-Dionigi - Space Disco (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Di Di Disco (6:34)
-02. Space Sequencer (5:45)
-03. Kevlar Sequencer (4:55)
-04. Base 80 (8:08)(   Читать дальше...   )Жанр: Deep-House, Nu-DiscoПродолжительность: 01:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BE0CE97AE9FDE70FBBB7520E011EE87587B67E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782025   (70089) от 26.02.2025
-
-VA - 25 Years Of Anjuna Mixed By Luttrell (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaytech - Pyramid (Dinka Extended Mix) (06:48)
-02. Soundprank - Beginnings (08:52)
-03. Michael Cassette - Through The Windows (Extended Mix) (04:49)
-04. Dusky - Mr Man (Extended Mix) (07:22)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E5D9CF364ECDC8D1E7045CAC749C116373CEE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783471   (69790) от 06.03.2025
-
-VA - CF Mix, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Approximate - Gamma Radiation (Original Mix) [6:52]
-02. NEO|WISE - Uncertain (Original Mix) [6:33]
-03. Jad0 - Indra (Original Mix) [6:15]
-04. Matías Delóngaro - Mausy (Original Mix) [6:56](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A294E6D1DC38285C6C3C1FE2F789C4CA824CDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

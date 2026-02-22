@@ -1,3 +1,38 @@
+###  Публикация: 541460   (501306) от 31.08.2012
+
+VA - Дискотека Бездна Русская Vol. 7 (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Жанна Фриске - Навсегда
+002. Анна Семенович - Июльское Лето
+003. Artik pres. Asti - Облака
+004. Paradox Factory - Te Quiero (Русская Версия)
+005. Анна Седокова - Что Я Наделала
+006. All Давай feat. DJ Ihlas - Москва-Дубай
+007. Катя Баженова - Все О Чем Мечтаю
+008. Отпетые Мошенники - Руссо Туристо
+009. Ева Польна - Весь Мир На Ладони
+010. Parfenov &amp; Balkov - Вселенная моя (City Zen 80's old school mix)(   Читать дальше...   )Жанр: PopПродолжительность: 11:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85981C9A7F4AB2BABC7B5FBFA682DBFB8EB9B63B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564389   (500587) от 18.07.2022
 
 Lily Allen - Compilation (2022) [MP3|320 Kbps] <Pop>
@@ -765,35 +800,6 @@ Las Ketchup - Compilation (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC24F1B3989925F6621075CC3117D2673E193EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565470   (490337) от 25.07.2022
-
-Geri Halliwell - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Call Me Baby
-02. Strength Of A Woman
-03. Circles Round The Moon
-04. Desire(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DCB6F2AB542D7CAD361DA59864CFA1926D5607
 ```
 
 https://mybot314.ru/tekegram_catalog/

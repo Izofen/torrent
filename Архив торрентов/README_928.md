@@ -1,3 +1,32 @@
+###  Публикация: 985702   (932667) от 13.02.2016
+
+Футбол. Чемпионат Италии 2015-2016. 25 тур. Лацио - Верона. (11.02.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932667.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 февраля 2016, четверг. 22:45 МСК
+25-й тур
+
+Стадион: Олимпико (Рим, Италия) , вместимость: 72698(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B06C97586531EFBC3D2EAA4258AA71D6931FB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985814   (932665) от 13.02.2016
 
 Футбол. Кубок Испании 2015-2016. 1/2 финала. Ответный матч. Сельта - Севилья. (11.02.2016) HDTVRip [H.264/720p-LQ] [RO]
@@ -702,32 +731,6 @@ VA - You Call It Trance, I Call It Electronic Dance Music 8 (2011) [MP3|320 kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:057740D865E811CAB38590455AEE61D0E908BAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285813   (932565) от 23.01.2011
-
-VA - Trance Travel Vol.9 (Paris) (2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Max Graham feat. Ana Criado - Nothing Else MattersЖанр: Vocal Trance, Uplifting Trance, Dream Trance, Trance, Progressive TranceПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4A941762B8E84B0A0AF04A3270A64DAD3232EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

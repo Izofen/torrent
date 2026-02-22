@@ -1,3 +1,32 @@
+###  Публикация: 570323   (387033) от 04.09.2022
+
+АлисА (Константин Кинчев) - 28 Albums, 4 Singles, 8 Live, 9 Compilation (1984-2022) 139CD [FLAC|Lossless|image + .cue, tracks] <Rock>
+
+>>След.
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387033.jpg" />
+</div>
+
+
+###  Подробнее
+
+«АлисА» — русская рок-группа, образованная в 1983 году в Ленинграде. Лидер и автор большинства песен Алисы — вокалист Константин Кинчев.1985 - Энергия (1993, Moroz Records, MR 93009 CD, Austria)
+1987 - Блок Ада (1993, Moroz Records, MR 93010 CD, Austria)
+1988 - 206 часть 2 (1994, APEX, AXCD 2-0050)
+1989 - Шестой лесничий (1990, Мелодия, SUCD 60-00119, СССР)Жанр: Rock |Продолжительность: 118:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F7415DE04312BDCF686F6A73D17B78708F11D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326320   (386752) от 19.09.2019
 
 Пикник - В руках великана (2019) [FLAC|Lossless|image + .cue] <Rock>
@@ -731,35 +760,6 @@ Humaniac - 3 Albums (2014-2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E58EF44A00E4C2C573E584EBD68C207028F0E5E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575461   (375404) от 10.09.2022
-
-Miami - Sexy, Wet & Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Радио (Скит) [00:00:17]
-02. Оверсайз [00:02:59]
-03. Домой [00:02:22]
-04. Ведомый [00:02:22](   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF9B8C78D437D976F59F607CFE53F985E6DCA90
 ```
 
 https://mybot314.ru/tekegram_catalog/

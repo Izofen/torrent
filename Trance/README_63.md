@@ -1,3 +1,32 @@
+###  Публикация: 1776886   (71154) от 03.02.2025
+
+VA - Trance Anthems 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC - Welcome To The Future (Schiller Extended Remix) [6:15]
+02. Paul van Dyk - For An Angel (Kolonie Remix) [7:12]
+03. Mark Sherry & Peetu S & Emma Gillespie - Open Ocean (Extended Mix) [7:07]
+04. John O'Callaghan & Paul Skelton & Ren Faye - May The Road Rise (Extended Mix) [8:06](   Читать дальше...   )Жанр: TranceПродолжительность: 04:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B5101E3E6E2212841723A909EA989DB0C41399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776944   (71135) от 03.02.2025
 
 VA - Polar Impact Records: Essentials 2024 (2025) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Ablazing Spring Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75B48902CDF6379A43347DC5FD306D962E5E1E15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785634   (69185) от 17.03.2025
-
-VA - 40 Years Techno Club (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Split Second - Flesh (03:53)
-02. Zwischenfall - Flucht '84 (English Version) (05:27)
-03. Moskwa Tv - Generator 7/8 (06:20)
-04. Westbam - Monkey Say Monkey Do (Kurzmix) (03:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B923B652F6F8B42DD062680C17DA9E55D75617
 ```
 
 https://mybot314.ru/tekegram_catalog/

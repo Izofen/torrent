@@ -1,3 +1,32 @@
+###  Публикация: 1626330   (255076) от 17.04.2023
+
+David Arkenstone - Ambient Space Music (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breath Of the Universe (12:46)
+02. Parallel World (5:52)
+03. Island Of Stars (8:21)
+04. Red Sun (4:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3467A1789EE25D745276CDC89EA076EE9EFDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 175676   (254762) от 26.04.2023
 
 VA - Инструментальная музыка - Лучшие мировые хиты. (7 томов) (1997) 14 CD [APE|Lossless|tracks] <Instrumental>
@@ -751,35 +780,6 @@ VA - Enigma-Forest-Transit 9 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F241346423613248E9BC1F9E896486735B30F27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619496   (249639) от 16.03.2023
-
-Delerium - Signs (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Back To You (feat. Mimi Page)
-02. Rain
-03. Coast To Coast (feat. Phildel)
-04. Sun Storm(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A3E8C4F8539D801564776801DF27867E8DD832
 ```
 
 https://mybot314.ru/tekegram_catalog/

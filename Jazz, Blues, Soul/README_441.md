@@ -1,3 +1,32 @@
+###  Публикация: 1605739   (232916) от 19.01.2023
+
+Tri-Fi - 3 (2010) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clipped Wings [9:46]
+02. Take What You Want But Don't Touch My Herring Shoes [6:26]
+03. The Long Journey Home [6:06]
+04. Repercussions [7:53](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E6607A8C1875F1B61E5009C1EC0F8E90A5E61C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636851   (232901) от 01.06.2023
 
 Sidney Bechet - 1949, Vol. 3 (2002) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
@@ -716,35 +745,6 @@ Thomas Hardin Trio - Jazz de kiku Chopin (2006) Victor Entertainment [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80DD2872C5A44F1CECE37E47D5D1EE9BA1AB424A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640527   (232369) от 18.06.2023
-
-Horace Silver - And The Jazz Messengers (1955) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Room 608 [5:23]
-02. Creepin' In [7:26]
-03. Stop Time [4:07]
-04. To Whom It May Concern [5:11](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50EBEB4DDB70686658AB701FA741180F01C71FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

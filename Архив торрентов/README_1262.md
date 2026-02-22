@@ -1,3 +1,29 @@
+###  Публикация: 1103594   (885457) от 12.02.2017
+
+Argent Client 10.0.3.15 Light Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Argent Client - p2p-клиент, сочетающий в себе функциональность нескольких программ: торрент-клиент с функцией последовательного скачивания, менеджер закачек и медиаплеер. Argent Client - это не только просмотр видео и аудио c торрент-трекеров, но так же автоматическая распаковка архивированных файлов, скачивание файлов с видеосервисов, файлообменников и безграничная (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7389292FD44E6C1E72C2A7A3E61300E3C85679DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 297266   (885452) от 19.02.2011
 
 Джокер (1-8серии из 8) (2010) DVD9
@@ -691,41 +717,6 @@ Complete Internet Repair 5.2.3.4060 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA134CA9E12CDC44F11EB78FA3D896637C105077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763750   (885299) от 06.03.2014
-
-VA - Top 10 Trance (2014) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. Rafael Frost - New York - Original
-002. Beat Service - Undercover - Original Mix
-003. Mike Shiver - Trouse - Original Mix
-004. Almer - Kobalt - D-Mad Remix
-005. Ayda - Illusion - Original Mix
-006. Dart Rayne - The Air - Original
-007. DJ Feel - Darklight - Original Mix
-008. Team Bastian - Innerface - MaRLo Remix
-009. Oen Bearen - Blast - Passenger 75's Turbulence Remix
-010. Alexander Turok - Destiny - Alexander Popov MixЖанр: TranceПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EF872C77968ACBBBDDD74DB5B27CB7E538AF0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

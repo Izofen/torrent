@@ -1,3 +1,61 @@
+###  Публикация: 1183884   (305640) от 15.11.2017
+
+Vince Benedetti - Hardbop World (2008) TCB Records [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showtime [03:50]
+02. Mr. Walker [05:38]
+03. Bayram [05:05]
+04. Rouge [06:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D032216FF2B49BD63F75636BFE7AD94D60BB520B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183897   (305635) от 15.11.2017
+
+Artie Shaw - The Last Recordings Rare & Unreleased (1954) 2CD, 1991, Limelight [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305635.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Imagination [04:18]
+02. Besame Mucho [04:03]
+03. My Funny Valentine [05:32](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9187879AD5387F8A78773A9F4D2C7F22E49F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960612   (305628) от 29.11.2015
 
 Art Farmer - Art Worker (1968) 2014, Studio Songs[FLAC|tracks+.cue]<Hard Bop, Cool>
@@ -687,64 +745,6 @@ Dave Ellis - In The Long Run (1998) Monarch Records[FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D5DDCE692081592477498CD8B1AC95FD565760D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078284   (303008) от 30.11.2016
-
-Mezzoforte - Rising (1984) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Check It In (02:00)
-02. Take Off (05:42)
-03. Happy Hour (05:31)
-04. Waves (05:35)(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39990047B577426CC30FE7397F6F34B4265CB44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078260   (303007) от 30.11.2016
-
-Mezzoforte - Surprise, Surprise (1982) 1989, RCA, Germany [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surprise (01:27)
-02. Garden Party (06:10)
-03. Gazing At The Clouds (06:41)
-04. Early Autumn (06:29)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC8930A5DFAE3CC1DB68C7127C6DEEBA6F5749E
 ```
 
 https://mybot314.ru/tekegram_catalog/

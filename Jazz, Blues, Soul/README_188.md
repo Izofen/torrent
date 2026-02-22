@@ -1,3 +1,90 @@
+###  Публикация: 1021050   (741074) от 29.05.2016
+
+Marc Lelangue Trio - Lost in the Blues (2016) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empty House Blues (02:57)
+02. Forgive Me Please (03:41)
+03. Send My Body to Bourbon Street (03:52)
+04. You Missed a Good Man (03:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7F0B4FAAA6853161E2B0037B1599DB31A27853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021103   (741073) от 29.05.2016
+
+Jay Gordon - Blues Infested (1994) [FLAC|Lossless|tracks] <Modern Electric Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo Boogie    03:34
+02. Mississippi Mud    03:31
+03. Can't Shake This Feelin    04:15
+04. Storm In Chi Town    06:53(   Читать дальше...   )Жанр: Modern Electric Blues, Blues-RockПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C66653EBCF01D5A2DA211A3522C63FB6C1AAB09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282867   (741065) от 15.02.2019
+
+Louis Armstrong - What A Wonderful World (1962 - 1965) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Vocal Jazz, New Orleans Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What a Wonderful World [2:23]
+02. Indiana [4:28]
+03. Ole Miss Blues [4:01]
+04. The Faithful Hussar [5:18](   Читать дальше...   )Жанр: Vocal Jazz, New Orleans Jazz, SwingПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CE1A76F679EC066355480BEFA201975E1A19CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127184   (741015) от 20.04.2017
 
 Tandem Unicycle - Tandem Unicycle (2017) [MP3|320 Kbps] <Blues Rock>
@@ -658,93 +745,6 @@ Acker Bilk - The Love Album (1989) Pickwick Music [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68D564ADBB972F22B653C9FEF73DDADAAD1D4234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283499   (739842) от 17.02.2019
-
-Mr. Acker Bilk - Gold (1993) San Juan [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger on the Shore [2:50]
-02. I Want to Know What Love Is [4:04]
-03. I Just Called to Say I Love You [4:22]
-04. Hello [4:14](   Читать дальше...   )Жанр: Dixieland, Easy ListeningПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FB2B2E513A3B0CA836DD7B84133AD1AC11A1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283502   (739837) от 17.02.2019
-
-Acker Bilk - The Greatest Hits of Acker Bilk (1990) 2CD [FLAC|Lossless|tracks + .cue] <Easy Listening, Traditional Jazz, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739837.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Stranger On The Shore [3:20]
-02. Sailing [3:18]
-03. Bridge Over Troubled Waters [4:35](   Читать дальше...   )Жанр: Easy Listening, Traditional Jazz, DixielandПродолжительность: 02:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0FEA16B41D0A9AFA0BA8E7D9AC722DF6E2D6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397540   (739827) от 21.07.2020
-
-VA - Blues 25 Hits & Classics Volume 2 (1995?) [FLAC|Lossless|tracks + .cue] <Blues, Classic Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739827.jpg" />
-</div>
-
-
-###  Подробнее
-
-К моему большому сожалению только один диск из четырех, выпущенных скандинавской фирмой Elap Music (а точнее её датским дивизионом) находится в моей коллекции. Судя по подбору исполнителей, скандинавы достаточно скурпулезно постарались включить действительно классические хиты блюза, начиная с основания и заканчивая серединой девяностых годов прошлого века. Судя по01. John Lee Hooker - Little Wheel  (2:35)
-02. Elmore James - Coming Home  (2:27)
-03. Muddy Waters - Sad Letter  (3:02)
-04. Sonny Boy Williamson - You Killing Me  (3:32)(   Читать дальше...   )Жанр: Blues, Classic BluesПродолжительность: 01:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9AAF2B6C2A970434DA0E657984FFA35627DDF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

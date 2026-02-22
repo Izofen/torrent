@@ -1,3 +1,61 @@
+###  Публикация: 965158   (227633) от 13.12.2015
+
+Не будите спящих - Делай свое дело (2015) [MP3|320 кб/с]<Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WI-FI
+02. Фифа
+03. Давай уедем туда
+04. Каюсь(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F1A066A30E1E480B4BE48A22FF07E46628D188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513197   (225258) от 28.11.2021
+
+ATL - Радио Апокалипсис (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 66.6 FM [02:01]
+02. RESET [02:35]
+03. Ящик [03:28]
+04. Behemoth [02:35](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7851187BAFED7D613BE6FF9FB633B69AA407C89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268960   (224890) от 12.12.2018
 
 VA - Chillhop Essentials - Winter (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, ChillHop, Trip Hop>
@@ -699,64 +757,6 @@ THEY. - Fireside (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Trap, Grime>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71C336B0942C3A7BC21FB84C6CF875A2EBAFBB2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343422   (218058) от 06.12.2019
-
-Бьянка - Волосы (2019) [MP3|320 Kbps] <R&B, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218058.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Волосы
-2. Текила бум
-3. Василёк
-4. Кто тут мама(   Читать дальше...   )Жанр: R&B, PopПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037BAB21B68CC3000A4B910539744B630B69534E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425760   (217745) от 22.11.2020
-
-Санчес - Продано, Ч. 2. Конец (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здесь много кто скрывается [04:12]
-02. Равнодушие [02:22]
-03. Джаз Кодеин [01:35]
-04. Пламенем [03:10](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EADBF21231FF189EC1173A6C0152A7F8E83B6D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

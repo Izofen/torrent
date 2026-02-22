@@ -1,3 +1,32 @@
+###  Публикация: 1708930   (112857) от 23.03.2024
+
+VA - Just Jazz! & The Complete Triple Play Stereo Sessions (1962) 2009, Jazz Beat [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moten Swing [4:16]
+02. Out of Nowhere [4:05]
+03. Groovin' High [3:15]
+04. Autumn Leaves [4:37](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B25C6E996911C22F30F00BCA4127DE8C5D5000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709056   (112856) от 23.03.2024
 
 Sonny Clark - The Complete Blue Note Sessions (1957 - 1962) 6СD, 2023, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Alex Podymkin & Abraham Burton Quartet - Concert At Cobra Music Hall (2008) 2023
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:260819FAE845170003F0C11EA5C9FF0266DFE702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712983   (112027) от 04.04.2024
-
-Ramblin' Preachers - Sins & Virtues (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Separate Ways (4:03)
-02. Keep On (2:58)
-03. Jealousy (2:44)
-04. Jester (3:58)(   Читать дальше...   )Жанр: Hard Rock, Southern Rock, Blues RockПродолжительность: 00:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA90526E8F24168CF85370CC4A699D3E954AE5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

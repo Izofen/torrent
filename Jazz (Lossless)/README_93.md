@@ -1,3 +1,32 @@
+###  Публикация: 1275182   (791155) от 10.01.2019
+
+Count Basie - Chairman Of The Board (1958) 2003, Roulette [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues In Hoss' Flat [3:13]
+02. H.R.H. (Her Royal Highness) [2:40]
+03. Segue In C [6:15]
+04. Kansas City Shout [3:35](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE09571DD78BFE286EAF8DF2FCDDCECE6E8ADC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275259   (791152) от 10.01.2019
 
 Baptiste Herbin - Dreams and Connections (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Bop, Bossa Nova>
@@ -716,35 +745,6 @@ Dizzy Gillespie - Soul Time (2002) Castle Pulse [FLAC|Lossless|tracks + .cue] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99A78A5C05FFE3A7BB200D2327FA350A120D1044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275523   (789937) от 12.01.2019
-
-Duende Libre - Drift (2018) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zephyr (for Meltem) (feat. Chava Mirel) (6:10)
-02. Drift (6:17)
-03. Spain (feat. Chava Mirel) (8:11)
-04. Subway (feat. Chava Mirel) (6:46)(   Читать дальше...   )Жанр: Latin Jazz, FunkПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C508AC14385AF285821424886D3BDB8D3920CF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

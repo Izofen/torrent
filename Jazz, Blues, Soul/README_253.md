@@ -1,3 +1,90 @@
+###  Публикация: 913448   (605114) от 29.06.2015
+
+Wee Willie Walker - If Nothing Ever Changes (2015) [MP3|320 кб/с]<Blues Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Read Between The Lines (3:15)
+02. Help! (Feat. Curtis Salgado) (4:50)
+03. Everybody Meets Mr. Blue (3:01)
+04. I've Been Watching You (3:20)(   Читать дальше...   )Жанр: Blues SoulПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B002125C63A6492886221D9C79C3454357C18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038814   (605063) от 29.07.2016
+
+Johnny Hodges Quintet - Buenos Aires Blues & The Eleventh Hour (1962, 1963) 2009, Lone Hill Jazz[FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mama Knows [05:01]
+ 02.I'm in Another World [02:50]
+ 03.Dreary Days [03:15]
+ 04.I Can't Believe That You're in Love With Me [04:59](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F26467304498DDA49F7042BA4C501BA9B365912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038732   (604916) от 29.07.2016
+
+George Thorogood & The Destroyers - Icon (2013) Compilation [MP3|245~289 Kbps (V1)] <Blues Rock, Rock, Classic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad To The Bone    04:50
+02. I Drink Alone    04:32
+03. Willie And The Hand Jive    04:03
+04. Gear Jammer    04:34(   Читать дальше...   )Жанр: Blues Rock, Rock, Classic RockПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B56DF3B90094A9EE8E57D0255234AE39789EB4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297243   (604835) от 21.04.2019
 
 Ruby Braff & Dick Hyman - America, The Beautiful (2002) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -658,93 +745,6 @@ Frank Tate, Harry Allen, Dave McKenna - Live in Belfast (2001) Nagel-Heyer [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79E04025AC7ED96A540D7E3C04EDB7AE75B21978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148149   (603949) от 06.07.2017
-
-Ignasi Terraza Trio - Let Me Tell You Something (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When It's Sleepytime Down South [05:42]
-02. Misty [04:28]
-03. Love for Sale [06:16]
-04. I Can't Get Started [05:20](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991136198C2516884223F2DBFAC3AE50B0A91B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148154   (603948) от 06.07.2017
-
-Ignasi Terraza Trio - Jazz a les Fosques I (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candy [05:41]
-02. September Song [06:25]
-03. Love for Sale [05:56]
-04. I Remember Clifford [07:13](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528D506D2736AEA991875CAC7077025708A7AFF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148161   (603947) от 06.07.2017
-
-Susana Sheiman & Ignasi Terraza Trio - Swing Appeal (2011) Swit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Glad There Is You [05:35]
-02. P.S. I Love You [04:15]
-03. Spring Can Really Hang You Up the Most [05:13]
-04. Just One of Those Things [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0599BC5588194726DCF98FA25DB54C34E90BB8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

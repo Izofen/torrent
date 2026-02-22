@@ -1,3 +1,119 @@
+###  Публикация: 1507860   (798078) от 06.11.2021
+
+Amanda Lear - 25 Albums (1977-2021) 9LP & 16 CD Collection [MP3|320 Kbps] <Electronic, Disco, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аманда Лир, родилась в Гонконге - французская поп-певица, актриса и модель. В 1970-1980-е годы Лир была популярной исполнительницей в жанре диско. Позже приобрела известность как художница. С середины 1970-х по начало 1980-х она была королевой дискотеки, продававшей миллионы альбомов, в основном в континентальной Европе и Скандинавии с компанией Ariola Records. Первые (   Читать дальше...   )Список альбомов:
+1977 - I Am A Photograph
+1978 - Sweet Revenge
+1979 - Never Trust A Pretty Face(   Читать дальше...   )Жанр: Electronic, Disco, EuropopПродолжительность: 18:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD35223422056A36C4437489085682343D1F4B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508252   (797944) от 07.11.2021
+
+VA - Золото дискотек, Vol. 2 (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haddaway - What Is Love (4:30)
+02. Nina - The Reason Is You (3:58)
+03. Sin with Sebastian - Shut up (And Sleep with Me) (3:46)
+04. Londonbeat - I've Been Thinking About You (3:50)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 02:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F49BB117C804DCCC68D5CB1F5B8CCEE0483ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508250   (797943) от 07.11.2021
+
+VA - Золото дискотек, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. President - Coco Jambo (3:40)
+02. Joy - Touch by Touch (3:47)
+03. Linda Jo Rizzo - You're My First, You're My Last (5:42)
+04. Gala - Freed from Desire (3:35)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 02:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31285241E99A92DF57D3B0D01FD159415A84303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385363   (797798) от 24.05.2020
+
+Татьяна Абрамова - Письмо (1995) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Анатолий
+02 - Гребешок
+03 - Мой, мой, мой
+04 - Письмо(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8EF4042CC40BAF2465E0F7903036A7145AFDED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010861   (797639) от 26.04.2016
 
 Dino Solera - Classically Dino Solera (1977) [MP3|320 кб/с] <Disco, Funk, Soul>
@@ -629,119 +745,6 @@ Laura Wilde - Es ist nie zu spat (Deluxe Edition) (2018) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1FF7879763FE2E411CE1957DC95C7FB02D0371E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200330   (796372) от 20.01.2018
-
-Руст (Рустэм Султанов) - Между светом и тенью  (1997) [FLAC|Lossless|image + .cue]<Pop, Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, RockПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41AD78EA46CCD0105AA4E60748514D2ACAF68ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011467   (796352) от 28.04.2016
-
-VA - Running Playlist (2016) [MP3|320 кб/с] <Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liberation Zulu - Rather Be (03:44)
-02. Underground Charisma - Use Somebody (03:20)
-03. Olafur Ros - Show Me Love (05:55)
-04. Liberation Zulu - Forget You (04:25)(   Читать дальше...   )Производство: On the BeatЖанр: Pop, Dance, ClubПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B22FB38B99E392A87B2AFCACC51E1A9C922D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200229   (796316) от 20.01.2018
-
-Everything But The Girl - Amplified Heart (1994) 2013, RE, RM, 2CD [FLAC|Lossless|tracks + .cue] <Pop, House, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Understand Anything (Home Demo) (4:18)
-02. Rollercoaster (Home Demo) (3:14)
-03. Two Star (Home Demo) (2:57)
-04. Troubled Mind (Home Demo) (3:48)(   Читать дальше...   )Жанр: Pop, House, Downtempo |Продолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C1ECAA999B496A204F4DAE53D2EDAC86AAF9B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200216   (796262) от 20.01.2018
-
-VA - New Generation Italo Disco: The Lost Files Vol.6 (2018) [MP3|320 Kbps] <Italo-Disco, Synthpop, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aldo Lesina  -  Castles & Dungeons (Extended Knight Mix)  7:07
-02.  Boris Zhivago  -  Twenty Years Ago (Refurbished Version)  6:42
-03.  Miko Vanilla  -  Goodbye (Fabulous Remix)  6:27
-04.  Boy Blue  -  Take My Heart (Fast Vocal Romantic Mix)  7:06(   Читать дальше...   )Жанр: Italo-Disco, Synthpop, EurobeatПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6627AC6FE720A90659758FA6B233C0534C5F6B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

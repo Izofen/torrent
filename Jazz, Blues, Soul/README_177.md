@@ -1,3 +1,90 @@
+###  Публикация: 1279133   (766993) от 28.01.2019
+
+Kirk Lightsey Quartet - Everything Is Changed (1990) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop,  Afro-Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Is Change(d) [7:09]
+02. Bille's Bounce [6:41]
+03. Estate [11:35]
+04. Evidence [6:40](   Читать дальше...   )Жанр: Post-Bop,  Afro-Cuban JazzПродолжительность: 01:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBDCBE436C99ED7DA379FE79C3B088D411EDE2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279137   (766991) от 28.01.2019
+
+Hank Crawford - South-Central (1993) Milestone Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling In Love With Love [4:43]
+02. I Should Care [6:16]
+03. South Central [8:31]
+04. I Want To Talk About You [5:20](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A3F8FDC7D5FF128B971715DE44B5C1BE7A3A0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279132   (766990) от 28.01.2019
+
+David Hazeltine - I Remember Cedar (2014) Sharp Nine Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple Pleasure [5:37]
+02. Martha's Prize [6:26]
+03. Clockwise [4:50]
+04. Dear Ruth [6:03](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A129EE1AC131B2C392898086744690A61037D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279140   (766988) от 28.01.2019
 
 Hank Crawford - Wildflower (1973) 2002, Epic [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -654,93 +741,6 @@ Hank Crawford - Don't You Worry 'Bout A Thing (1974) 2011, Masterworks Jazz ‎ 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EB5E953ED32165CFBA705A4299205A442997C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279447   (766187) от 29.01.2019
-
-Bo Ramsey - Wildwood Calling (2016) [FLAC|Lossless|tracks + .cue] <Chicago Blues, Delta Blues, Country Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly On (Part 2) (2:23)
- 02. Through The Trees (3:10)
- 03. Feather Trail (2:22)
- 04. Glide (2:22)(   Читать дальше...   )Жанр: Chicago Blues, Delta Blues, Country BluesПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EF4B5A11DC1A603FF9E282BBAD9375253D479A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521217   (766185) от 01.01.2022
-
-John Coltrane - My Favorite Things (1960) 1987, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Favorite Things [13:44]
-02. Everytime We Say Goodbye [5:43]
-03. Summertime [11:36]
-04. But Not for Me [9:34]Жанр: Hard Bop, Post-Bop, Avant-Garde JazzПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E4648046B126ABA0102D9949DA6AF72DC8CF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279440   (766120) от 29.01.2019
-
-Eva Cassidy - Songbird (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Ballad, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fields of Gold (4:42)
- 02. Wade in the Water (4:02)
- 03. Autumn Leaves (4:41)
- 04. Wayfaring Stranger (4:27)(   Читать дальше...   )Жанр: Smooth Jazz, Ballad, Easy ListeningПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3029531CF19B6C31A7C8EC322A3F67BB8BBA30
 ```
 
 https://mybot314.ru/tekegram_catalog/

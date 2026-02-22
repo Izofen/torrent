@@ -1,3 +1,37 @@
+###  Публикация: 503846   (260128) от 31.05.2012
+
+VA - Verve Jazz Masters - Vol. 01-60 (1994-1996) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Django Reinhardt And Stephane Grappelli - Sweet Georgia Brown [03:09]
+02. Lionel Hampton And Oscar Peterson - Jam Blues (Excerpt) [04:43]
+03. Ella Fitzgerald & Louis Armstrong - I've Got My Love To Keep Me Warm [03:12]
+04. Kenny Burrell With Gil Evans - Last Night When We Were Young [04:37]
+05. Lester Young - Polka Dots And Moonbeams [03:44]
+06. Oliver Nelson - Ricardo's Dilemma [02:35]
+07. Jimmy Smith - Organ Grinder's Song [02:17]
+08. Billie Holiday - Stormy Weather [03:45]
+09. Gerry Mulligan - Ballad (   Читать дальше...   )Жанр: Jazz |Продолжительность: 00:58:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501656   (260095) от 31.05.2012
 
 Antonio Carlos Jobim - Complete Collections - 11 CD + 2 Boxset (1959 - 2011) [FLAC|Lossless]<Jazz>
@@ -835,41 +869,6 @@ Derek Miller - The Dirty Looks (2006) [FLAC|Lossless]<Blues, Blues Rock, Roots R
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501074   (258359) от 25.05.2012
-
-Joe Bonamassa - Driving Towards The Daylight (2012) [MP3|320 кб/с]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-"Driving Toward the Daylight" - одиннадцатый студийный альбом Joe Bonamassa, продюсировал который Kevin "Caveman" Shirley (BLACK CROWES, AEROSMITH, LED ZEPPELIN). В альбом вошли пять собственных композиций Бонамассы, а также целый ряд каверов(   Читать дальше...   )1. Dislocated Boy (6:38)
-2. Stones In My Passway (3:58)
-3. Driving Towards The Daylight (4:50)
-4. Who's Been Talking? (3:28)
-5. I Got All You Need (3:03)
-6. A Place In My Heart (6:47)
-7. Lonely Town Lonely Street (7:07)
-8. Heavenly Soul (5:55)
-9. New Coat Of Paint (4:06)
-10. Somewhere Trouble Don't Go (4:58)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C7D6931BBA9F8106383D598C499AA6A63D3509
 ```
 
 https://mybot314.ru/tekegram_catalog/

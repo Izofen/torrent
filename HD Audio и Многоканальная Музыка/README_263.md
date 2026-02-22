@@ -1,3 +1,177 @@
+###  Публикация: 1819344   (1566) от 21.09.2025
+
+7 Names Remain - Malcolm Ave (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Indigo Sky (4:49)
+02.  Peace of Mind (5:08)
+03.  Rescue Me (4:40)
+04.  Let's Run Away (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8139C8D9F76CD0CBE438C800815F6A08E0225B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819346   (1565) от 21.09.2025
+
+Alan Arena - Deceived (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Raised on Radio (3:05)
+02.  Believe in Yourself (4:35)
+03.  Deceived (3:18)
+04.  Big Black Cat (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA261768ACFD821354D57F728B0266903DF23050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819362   (1562) от 21.09.2025
+
+Juri Amicabile - Geared Up (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eviction (3:03)
+02.  Jimmy In N' Out (4:00)
+03.  41 (3:23)
+04.  Sugar (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13344A59DD68E6E5CA65461C0603E21B82557EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819366   (1561) от 21.09.2025
+
+Rusty Ends & Hillbilly Hoodoo - Roadhouses, Juke Joints and Honky-Tonks (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bad Like Billy the Kid (3:31)
+02.  The Same Thing (2:44)
+03.  Honky Tonk Man (2:51)
+04.  Lost in the Blues (3:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150AEE226318D0C322A9339F918B82B53572B8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819155   (1560) от 21.09.2025
+
+Ded - Resent (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative-Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasted [00:03:10]
+02. You Want Honest? [00:02:49]
+03. Purpose: Be Myself [00:03:00]
+04. Rockstar [00:02:55](   Читать дальше...   )Жанр: Nu-Metal, Alternative-Metal, MetalcoreПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3BE48A54081072B9ADD595CBFC2579A348C3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819348   (1558) от 21.09.2025
+
+Alice Armstrong - Fury & Euphoria (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Persephone (Intro) (2:11)
+02.  Punchline (3:23)
+03.  Good Love (3:21)
+04.  Bombshell (2:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2E8E1B516634CA44FE1FEACC8C678C1DE1B7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819357   (1556) от 21.09.2025
 
 Doug MacLeod - Between Somewhere and Goodbye (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
@@ -569,180 +743,6 @@ Emilia Quinn - Dented Halos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C385AE439AC675AD481178DC47DF18577647994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819993   (961) от 25.09.2025
-
-ZZ Ward - Liberation (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mother (2:56)
-02.  My Baby Left Me (2:14)
-03.  I Have No One (2:33)
-04.  Cadillac Man (2:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAFB5F764B660464C39F0EA806B9BA7C7E3D78B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819957   (956) от 25.09.2025
-
-Paradox - Mysterium (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kholat(6:05)
-02. Abyss Of Pain And Fear(7:28)
-03. Grief(1:13)
-04. Those Who Resist(5:50)(   Читать дальше...   )Жанр: Trash MetalПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DBCF80F75804C389EB3554B6DC7B526AFAAE75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819991   (954) от 25.09.2025
-
-Sigma Wolf Initiative - Blues of the Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Road to the Soul (4:11)
-02.  The Long Distance (3:31)
-03.  Hit the Road (3:16)
-04.  Bayou Blues (2:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94DA8BD142C54F4C35BAFD67C091E3460EDDB0EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819988   (953) от 25.09.2025
-
-Peter O'Mara - Avenue U (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Uptown (5:48)
-02.  Three (7:23)
-03.  Calypso (6:16)
-04.  Waiting (5:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4444F30F3B0922E100174A3D6B57A553779E803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819987   (952) от 25.09.2025
-
-Mike Andersen - All Out Of Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All Out Of Love (4:21)
-02.  Don't Waste Your Time (5:25)
-03.  Only For You (3:54)
-04.  Souls On Fire (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2373B5A4F32896841C41561FE2FC804DACC3F553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819976   (949) от 25.09.2025
-
-Bill Evans / Jim Hall - Waltz for Debby and Other Melodies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Got It Bad and That Ain´t Good (1:38)
-02.  Five (4:02)
-03.  I Love You (3:54)
-04.  Conception (4:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3ED80AD02E55939A4CB8EDC8714C3E4FCFD00CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

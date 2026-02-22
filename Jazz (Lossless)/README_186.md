@@ -1,3 +1,32 @@
+###  Публикация: 1564651   (499668) от 19.07.2022
+
+V.A. - The Power of Love Soulful Easy Jazz Instrumentals (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Fade into the Sunset
+02. eJazz Artistry - I Can't Stop Loving You
+03. Chillaxonic - Dream into Reality
+04. Kool&Klean - Share My Life(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E1B02D3159D000DB654A6366FC77DC5EDD01CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564647   (499664) от 19.07.2022
 
 VA - John Lennon In Jazz - A Jazz Tribute To John Lennon (2020) Compilation [FLAC|Lossless|image + .cue] <Contemporary Jazz, Fusion Jazz>
@@ -711,35 +740,6 @@ D.D.Lowka & Band - Mini Jazz (2013) GLM GMBH [FLAC|Lossless|image + .cue] <Mains
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:257F7D2BB6E0435476D10B93DD2F4F75A7EE35B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243113   (496201) от 25.08.2018
-
-Zoot Sims - Quartets (1950 - 1951) 2008, Prestige [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zoot Swings the Blues (take 1) [8:39]
-02. Zoot Swings the Blues (take 2) [2:28]
-03. Trotting [3:48]
-04. I Wonder Who [2:38](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93E0197713A115189B5786F69B2909C00FBE02E
 ```
 
 https://mybot314.ru/tekegram_catalog/

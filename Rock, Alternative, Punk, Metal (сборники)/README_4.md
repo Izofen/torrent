@@ -1,3 +1,32 @@
+###  Публикация: 1357941   (970466) от 06.02.2020
+
+VA - 100 Greatest Guitar Solos (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970466.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Van Halen - Eruption
+002. Jimi Hendrix - All Along the Watchtower
+003. AC/DC - Thunderstruck
+004. Thin Lizzy - The Boys Are Back In Town(   Читать дальше...   )Жанр: RockПродолжительность: 08:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721DD14AD990EDE89C3A5471961BB5B20573DD96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976299   (969516) от 17.01.2016
 
 VA - Панк-рок Волна (2016) [MP3|320 кб/с] <Панк-рок>
@@ -719,35 +748,6 @@ VA - Новый РусРок. То, что не купишь в магазине
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05B95EDEC84A8E7B693A233D77F2E77656A4CB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095046   (927216) от 19.01.2017
-
-VA - Мой любимый Русский Рок. Коллекция (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927216.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мамульки Bend - Русский Рок
-002. Ария + Гости - Воля и разум
-003. Город 312 - Небо в алмазах
-004. Каскад - Иней на стекле(   Читать дальше...   )Жанр: RockПродолжительность: 11:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0298E7578CFAF0B8727F87FF713F4C82E4459A2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

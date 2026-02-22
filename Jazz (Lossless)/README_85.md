@@ -1,3 +1,32 @@
+###  Публикация: 1009466   (809899) от 21.04.2016
+
+Art Farmer - Benny Golson Jazztet - Here And Now (1962) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tonk [06:53]
+ 02.Rue Prevail [04:28]
+ 03.Richie's Dilemma [05:15]
+ 04.Whisper Not [05:24](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A938A48D4FAA7FF7FABCC6A2F946452BD36B3066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119215   (809607) от 27.03.2017
 
 Stan Kenton - The Lost Concert Vol. I & II (1978) 2CD, 1999, Jazz Heritage [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
@@ -716,35 +745,6 @@ Gary Burton - Tennessee Firebird (1966) Remaster, 2014, Sony Music[FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E42B43913313B988429679FCD7293A08E552E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119818   (806082) от 29.03.2017
-
-Duke Ellington - Duke's Mood (1956) 2002, Rockin' Chair [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Jeep Is Jumpin' [02:26]
- 02.Creole Love Call [03:48]
- 03.Ko-Ko [02:18]
- 04.Midriff [03:51](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:001278A2A46EAF89C73202863476159224D8EC6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

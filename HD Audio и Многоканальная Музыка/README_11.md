@@ -1,3 +1,177 @@
+###  Публикация: 1375874   (863367) от 15.04.2020
+
+The Alan Parsons Project – Ammonia Avenue (1984) 2020 [DTS 5.1 CD-DA|44.1/16|image+.cue|BD-Audio] <electronic, rock, pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Prime Time 	5:03
+02. 	Let Me Go Home 	3:20
+03. 	One Good Reason 	3:36
+04. 	Since The Last Goodbye 	4:34(   Читать дальше...   )Жанр: art rock, pop/rockПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8B15944696DE84B0066BE98A511611AC43A136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497401   (862975) от 23.09.2021
+
+VA - Музыка РУ 5 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Верка Сердючка - Трали-вали
+02. Жуки - Властелин колец ауди vs. бумер
+03. А'Studio feat. Zied - Ты(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11B1B383658D143701BEA72C5C68C3CE018A6ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497402   (862972) от 23.09.2021
+
+Александр Маршал - Избранное 1998 - 2005 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Орёл
+02. Кленовый лист
+03. Снегопад
+04. Старое село(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE410BB158A70D41ED3BEE10B877975FBC145B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497416   (862971) от 23.09.2021
+
+Laid Back - Hole In The Sky (1990) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862971.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bakerman
+A2 Hole In The Sky
+A3 Fly With Me
+A4 Highway Of Love(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1522C03026CBD0E7A02F5FDDDEA04217271C136C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497397   (862870) от 23.09.2021
+
+VA - Любимой Женщине 3. Сборник медленных композиций (1997) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Donna Lewis - I love You Always Forewer
+02. Eric Clapton - Change The World
+03. Alanis Morissette - Head Over Feet(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2164BE1D2527B0E031CC974F3F52A392329077D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376137   (861532) от 16.04.2020
+
+Linn Records - The Super Audio Collection Volume 4 Sampler (2010) [DSD 5.1, 2.0|2822,4/1|SACD] <demos/samplers>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Maeve O'Boyle - Pray It Never Happens
+02 Claire Martin - Everything I've Got Belongs To You
+03 Ian Shaw - A Good And Simple Man
+04 Carol Kidd - Stars Fell On Alabama(   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C9C19C798AADAAC61AEC0EBDCC09BF7C27C3A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000175   (860535) от 24.03.2016
 
 Steven Wilson - 4 1/2  (2016) [DTS 5.1 CD-DA|44.1/16|image+cue|BD-Audio] <Neo-Prog, Alternative/Indie Rock>
@@ -565,180 +739,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:858AA927F0CB1C3D96BE3612DBCC68414E724EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 793368   (841272) от 04.04.2016
-
-Electric Light Orchestra - Secret Messages (1983)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841272.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Secret Messages (4:45)
-A2. Loser Gone Wild (5:24)
-A3. Bluebird (4:09)
-A4. Take Me On And On (5:01)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7075669EA4FE93F57AACE74FEA887A0CB7036F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004105   (839899) от 05.04.2016
-
-Nini Rosso and His Orchestra/Нини Россо И Его Оркестр - Napoli/Неаполь (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Latin>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839899.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Душа И Сердце (Anema E Core)
-A2	Идёт Дождь (Chiove)
-A3	Неблагодарное Сердце (Core' Ngrato)
-A4	Страсть (Passione)(   Читать дальше...   )Жанр: Jazz, LatinПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D91344BE128BA4E7707AAFAA8C1B1B48739E07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112731   (839546) от 10.03.2017
-
-VA - RETROспектива, часть XIV. Мелодии и песни из кинофильмов III (1946-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Женск. вок. ансамбль - Песня подруг (из к.ф. ''Девчата'')
-02. Валентина Дворянинова - Прощайте, голуби (из к.ф.  ''Прощайте, голуби'')
-03. Оркестр п.у. Виктора Кнушевицкого - Медленный танец (из к.ф. ''Моя любовь'')
-04. Ефим Нейд (худ. свист) - Мелодии (из к.ф. ''Вернись в Соренто'')(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40EFD35BD4FF786EA5919B69C05EF998CACA6CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500871   (837869) от 08.10.2021
-
-Rainbow - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Catch To Rainbow
-02. All Night Long
-03. Starstruck(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29620E8B9A76C9B386E26505472F6641882AB606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652123   (835489) от 04.05.2013
-
-Nightwish - Once (2004) 2006, Nuclear Blast [LPCM 2.0 24/48, DTS 5.1 24/48 |Audio-DVD (DVD-Audio)]<Metal>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Chest Of Wonders
-02. Wish I Had An Angel
-03. Nemo
-04. Planet Hell(   Читать дальше...   )Жанр: MetalПродолжительность: 01:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78629A79689ACF90D9A8F891A335A610622D5865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879054   (835414) от 19.03.2015
-
-Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio-DVD (BD-Audio)] <Rock, Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835414.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 2014 Stereo Remaster
-
-01 Funeral For A Friend/ Love Lies Bleeding (2014 Remaster) 11:10
-02 Candle In The Wind (2014 Remaster) 3:49(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:16:19 + 00:13:11 (4 bonus tracks)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
 ```
 
 https://mybot314.ru/tekegram_catalog/

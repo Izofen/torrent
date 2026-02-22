@@ -1,3 +1,174 @@
+###  Публикация: 1789668   (22285) от 06.04.2025
+
+polnalyubvi - Прощай и люби меня (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:26]
+02. Тернии (feat. pyrokinesis) [00:02:41]
+03. Аня, не плачь [00:02:50]
+04. Петля [00:02:35](   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2F595BEC85D6F9AE369C862E4B2DA0F3F104E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571447   (22281) от 06.04.2025
+
+Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_22281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allegaeon — американская экстремальная метал-группа из Форт-Коллинза, штат Колорадо, образованная в 2008 году.2010 - Fragments of Form and Function
+2012 - Formshifter
+2014 - Elements of the Infinite
+2016 - Proponent for SentienceЖанр: Technical Melodic Death MetalПродолжительность: 07:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0A48FCC57FDA4CC2F8E7D7EEF055B54C040C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789740   (22268) от 06.04.2025
+
+Primal Scream - Come Ahead: The Remixes Vol 1 (2024) Vocals, 2025, BMG[FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Ready To Go Home
+02 – Love Insurrection
+03 – Heal Yourself
+04 – Innocent Money(   Читать дальше...   )Жанр: AlternativeПродолжительность: 02:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F769267CE3072A7EACDEA4FC8C5AA658D11D87F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789800   (22262) от 06.04.2025
+
+Haddaway - The Album (1993) Remastered, 2025, Craft Recordings [FLAC 24/48|Lossless|WEB-DL|tracks] <House, Europop, Euro House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – What Is Love (7 Mix)Жанр: House, Europop, Euro HouseПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A02C8B4C2B280C4387FB9A0B450BB1C5BCF007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789623   (22258) от 06.04.2025
+
+Elton John, Brandi Carlile - Who Believes In Angels? (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - The Rose Of Laura Nyro
+02. Elton John - Little Richard’s Bible
+03. Elton John - Swing For The Fences
+04. Elton John - Never Too Late(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1CC228D413A83354BACF1984D9CE42BC33528A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306071   (22104) от 08.04.2025
+
+Gary Moore - Ballads & Blues 1 & 2 (1995/1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock, Ballads>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_22104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ballads & Blues 1
+SIDE A:
+01. Always Gonna Love You
+02. Still Got The Blues(   Читать дальше...   )Жанр: Blues Rock, BalladsПродолжительность: 02:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F771D4E12B44871361A56B3B2C0A9AB46ABA41E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598761   (21968) от 09.04.2025
 
 Sunstorm - Studio Albums (8 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Heavy Metal/Hard Rock>
@@ -571,179 +742,6 @@ A4 Think Of Me • Думай Обо Мне(   Читать дальше...   )�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F39CD250A23C420F07AC529951AC06EB5ACFA5E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794633   (19770) от 30.04.2025
-
-MONOЛИЗА - Кит (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19770.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Карнизы
-2. Ferrum
-3. Осколками
-4. Кит(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99426ABBFA3372EADF076440EB35492A52DA7B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794704   (19769) от 30.04.2025
-
-The Halo Effect - March Of The Unheard (Bonus Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conspire To Deceive (3:57)
-02. Detonate (3:58)
-03. Our Channel To The Darkness (3:29)
-04. Cruel Perception (4:04)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CAC50902DB8BC0365996E417846CEC771E7ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794646   (19754) от 30.04.2025
-
-Eternal Storm - Studio Albums (3 releases) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eternal Storm - испанская метал-группа, созданная в Мадриде в 2009 году.2013 - From The Ashes (EP)
-2019 - Come The Tide
-2024 - A Giant Bound To FallЖанр: Progressive Melodic Death MetalПродолжительность: 02:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895BA6E788D2DDBF87B0AB5C60B52E5357CC36A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794751   (19664) от 01.05.2025
-
-VA - Eurovision Song Contest - Turin 2025 (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shkodra Elektronike - Zjerm [00:03:04]
-02. PARG - SURVIVOR [00:02:58]
-03. Go-Jo - Milkshake Man [00:02:52]
-04. JJ - Wasted Love [00:02:45](   Читать дальше...   )Жанр: PopПродолжительность: 01:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C74EAE28A6A6C594058F3E0ED371DF52296FA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795056   (19625) от 02.05.2025
-
-Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (2025 Mix) (1972) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc One:
-01 Pompeii Intro (Live at Pompeii - MCMLXXII - 2025 Mix) (03:31)
- 02 Echoes - Part 1 (Live at Pompeii - MCMLXXII - 2025 Mix) (11:55)
- 03 Careful with That Axe, Eugene (Live at Pompeii - MCMLXXII - 2025 Mix) (06:38)(   Читать дальше...   )Жанр: RockПродолжительность: 01:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5851D81C535A8BA4FB8ABB2167794090BD55EECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795052   (19565) от 02.05.2025
-
-Barren Earth - Studio Albums (4 releases) (2010-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Barren Earth — финская метал-группа, основана осенью 2007 года в Хельсинки.2010 - Curse Of The Red River
-2012 - The Devil's Resolve
-2015 - On Lonely Towers
-2018 - A Complex Of CagesЖанр: Progressive Melodic Death/Doom MetalПродолжительность: 04:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF72316D01E871914967F50E8E39833B6E8F20F
 ```
 
 https://mybot314.ru/tekegram_catalog/

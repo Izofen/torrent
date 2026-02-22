@@ -1,3 +1,36 @@
+###  Публикация: 431106   (992462) от 04.01.2012
+
+Bloodsucking Zombies from Outer Space - 3 альбома, 1 EP (2004-2009) [FLAC|Lossless]<horror punk/psychobilly>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В октябре 2002 года несколько музыкантов — любителей фильмов категории B и соответствующей эстетики объединились в группу с эпатажным названием Bloodsucking Zombies From Outer Space (BZFOS). Неподготовленному зрителю концерты казались абсурдом и китчем, а меломаны до сих пор продолжают спорить, к какому из жанров относятся «Кровососущие Зомби Из Открытого Космоса»: сайкобилли, хоррор-панк, готабилли или все вместе взятое.
+Участники BZFOS выступают под зловещими псевдонимами Dead «Richy» Gein, Dr. «He-Mann» Schreck, The Reverend «Bloodbath» и Mr. «Jim» Evilize, позиционируя себя захватчиками, прибывшими с кровожадной планеты Трансильвания, чтобы утопить Землю в кровавом рок-н-ролле.(   Читать дальше...   )01. Killer Klowns From Outer Space
+02. Sweet Little Succubus
+03. King Of The Cannibals (New Version)
+04. Teenage Universal Creature
+05. Poison
+06. Tear Out The Guts
+07. Good 'Ol EdЖанр: horror punk/psychobillyПродолжительность: 03:07:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 431656   (992455) от 04.01.2012
 
 Comedy Баттл. Сезон №2. Выпуск №15. Турнир / Комеди Клаб / Comedy Club  (04.01.2012) SATRip
@@ -685,32 +718,6 @@ Call of Duty: Strike Team - отличное продолжение знамен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C86A410747623CCC7D6EC0F44FF1317ABF424B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609627   (992371) от 27.01.2013
-
-Wallpapers - Selection of wallpapers vol.5 (27.01.13) [JPG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1680х1050 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C0FD5DBB11042F2863DFF7A74F6F627D02A2B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

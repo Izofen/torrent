@@ -1,3 +1,32 @@
+###  Публикация: 1140913   (654018) от 08.06.2017
+
+VA - Recoverworld Trance Sessions 17.03 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emad Ebeat - Goddess In The Rain (08:00)
+02. Soul Entity - Inside The Mountains (06:29)
+03. Ciro Visone - Someone Save Me (06:29)
+04. Madwave - Mayhem (07:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:757867BBF349015233CC7C6B0BFA7388C69C08C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140902   (653992) от 08.06.2017
 
 Astrobiologia - Астробиология (2017) [MP3|320 Kbps] <Trance, Breaks, House>
@@ -716,35 +745,6 @@ VA - May Trance (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A2DA290B77DB8D37952F60EB888726D916666E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143200   (635510) от 18.06.2017
-
-VA - Ibiza Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tom Exo - Acqua Alta (Original Mix)  3:11
-02.  Frainbreeze & Cari - Stronger (Steve Allen & Enzo Remix)  3:59
-03.  Attila Syah & LTN - Bromo (Radio Edit)  4:25
-04.  Bogdan Vix & Lucid Blue - I Am Now (Radio Edit)  3:36(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F6AE4FCBAE10B0226109D176CBC079A4A2EFCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

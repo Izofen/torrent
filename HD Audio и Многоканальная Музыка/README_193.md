@@ -1,3 +1,177 @@
+###  Публикация: 1789777   (68249) от 05.04.2025
+
+The Nova Revolution - Tour de force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tour de force (2:44)
+02.  Live It Up (2:04)
+03.  Same Wavelength (2:56)
+04.  Wallflower (2:48)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE945F099B736CCAAD0D0DAD434A04F7087A3C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789773   (68246) от 05.04.2025
+
+Night Intruder - Sick Pretty Thing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sick Pretty Thing (3:15)
+02.  Bucket List Of The Heart (3:48)
+03.  Devil In A Red Dress (3:20)
+04.  Born To Burn (4:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBFF13B3CDE8D248344975B3376FB03CA1E7290E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789758   (68242) от 05.04.2025
+
+Night Intruder - Hellbound & Free (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ride Or Burn (3:40)
+02.  Hellbound & Free (3:13)
+03.  Burn It Down (3:57)
+04.  King Of The Broken (3:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77EC7EF497A498C377D5A8C89A5A723535FA15FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789769   (68240) от 05.04.2025
+
+Seth Walker - Why The Worry (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Same Love That Made Me Laugh (4:27)
+02.  Why The Worry (3:42)
+03.  Up On The Mountain (3:15)
+04.  I'm Getting Ready (2:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CEFE437285E4655DD853B0B3F1611087181D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789749   (68233) от 05.04.2025
+
+Mulvey's Medicine - Dopamine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jackson Mathod - Little Sticky (5:21)
+02.  Betty (4:34)
+03.  Jolyn - Third Coffee (4:17)
+04.  Interlude III (2:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736F18485D484B56EC4D2EAEE0FB330EB573A050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789587   (68231) от 05.04.2025
+
+Ne Obliviscaris - Studio Albums (6 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ne Obliviscaris - австралийская метал-группа из Мельбурна, сформированная в апреле 2003 года.2012 - Portal Of I
+2014 - Citadel
+2015 - Hiraeth (EP)
+2015 - Sarabande To Nihil (EP)Жанр: Extreme Progressive MetalПродолжительность: 04:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33948BD0E0D92516A1CA929615ABD7B2802C3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789743   (68230) от 05.04.2025
 
 Alliance - Before Our Eyes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Rock>
@@ -568,180 +742,6 @@ Manowar - Into Glory Ride (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D02F775B466B95E010A29E6106B235F5B197E988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790047   (68144) от 07.04.2025
-
-Fear Factory - Demanufacture (1995) Reissue, 2007, Cargo Records [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68144.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Demanufacture
-A2. Self Bias Resistor
-A3. Zero Signal
-B1. Replica(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1634BEE1E7A644DF8A7A6686DBE07CBB0A70BBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790374   (68120) от 08.04.2025
-
-Dream Theater - Metropolis Pt. 2: Scenes from a Memory (1999) Reissue, 2025, Rhino Records [DSD256|Lossless|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68120.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Regression
-A2 Overture 1928
-A3 Strange Deja Vu
-A4 Through My Words(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C74B60F260D1526D8A489986E9C9D5FFA70DCA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790358   (68101) от 08.04.2025
-
-Akolyth - Akolyth (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68101.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. A Work of Ages (09:03)
-A2. The Night, the Fog (09:13)
-B1. What Dwells Between Fractured Worlds (09:20)
-B2. To Become His Doorway (09:21)Жанр: Black MetalПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DFAAF0107925A935B648E889FBF2946B2E1467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790262   (68100) от 08.04.2025
-
-Daylight Dies - Studio Albums (5 releases) (2000-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daylight Dies — метал-группа из Северной Каролины, США, образована в 1996 году.2000 - Idle (EP)
-2002 - No Reply
-2006 - Dismantling Devotion
-2008 - Lost To The LivingЖанр: Melodic Doom/Death MetalПродолжительность: 03:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48ADE40EF46ED9C820660A3636C36B9832B7D96A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790340   (68096) от 08.04.2025
-
-Nightwish - The Crow, the Owl and the Dove (2012) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crow, the Owl and the Dove (Radio Edit)
-02. The Heart Asks Pleasure First (Theme From 'The Piano')
-03. The Crow, the Owl and the Dove (Album Version)
-04. The Crow, the Owl and the Dove (Instrumental)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42C39634DEBE05012EDDE53406DD5E490D8ADF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790524   (68087) от 09.04.2025
-
-Nightwish - Endless Forms Most Beautiful (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shudder Before the Beautiful
-02. Weak Fantasy
-03. Élan
-04. Yours Is an Empty Hope(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE29F8B9BA0D9429AA0EF54717194E2D7AE47C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

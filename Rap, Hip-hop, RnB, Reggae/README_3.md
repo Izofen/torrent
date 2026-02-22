@@ -1,3 +1,61 @@
+###  Публикация: 1349940   (1003732) от 04.01.2020
+
+VA - 100 Greatest Rap Songs The Greatest Hip-Hop Tracks Ever (2020) [MP3|320 Kbps] <Hip Hop, R&B, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Grandmaster Flash - Sign of the Times (feat. The Furious Five) (6:10)
+2.The Notorious B.I.G. - Hypnotize (2007 Remaster) (3:50)
+3.Ice-T - O.G. Original Gangster (2014 Remaster) (5:01)
+4.Pete Rock - They Reminisce Over You (T.R.O.Y.) (feat. C.L. Smooth) (4:46)(   Читать дальше...   )Жанр: Hip Hop, R&B, RapПродолжительность: 06:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B990E9C50644CD4D250F2F5EB3CBF6D9644E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487597   (1003252) от 06.08.2021
+
+Каста - Альбомба (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003252.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я чувак
+2. Турбочелюсть
+3. Я сам
+4. Дома никого(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7954667F298A6C78E21F9853E096402CA1DC688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488255   (1002274) от 10.08.2021
 
 Aswad - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Reggae>
@@ -707,61 +765,6 @@ VA - 100 Greatest 90s Hip Hop (2020) [MP3|320 Kbps] <Hip Hop, Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7475D1CBB411C6CA551587BAE6C1875E5FCD03A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360622   (959449) от 16.02.2020
-
-Ресторатор - Непопулярное мнение (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прелюдии (3:04)
-02. Назло (feat. ChipaChip) (4:20)
-03. Ревность (feat. Zorin) (3:11)
-04. Cпасательный круг (2:44)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332935BD2B4919B83E4AAD185A27523777D97EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360623   (959394) от 16.02.2020
-
-Макс Корж - 2 Типа Людей (2019) Single [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Типа Людей (4:16)Жанр: Rap, Hip-HopПродолжительность: 00:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9B80EC16E43935630F234B3F48AFFC4CFB32DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

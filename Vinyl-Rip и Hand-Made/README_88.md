@@ -1,3 +1,173 @@
+###  Публикация: 1802469   (66045) от 17.06.2025
+
+Phlebotomized - Studio Albums (3 releases) (2019-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive, Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Phlebotomized - метал-группа из Нидерландов, Розенбург, Южная Голландия. Сформирована под названием Bacterial Disease в 1989 году, затем сменила название на Phlebotomized в 1990 году.2019 - Deformation Of Humanity
+2021 - Pain, Resistance, Suffering
+2023 - Clouds of ConfusionЖанр: Progressive, Death/Doom MetalПродолжительность: 02:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA5FE06C063E578DA1B9B41E30EF13C5A331D8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802909   (65967) от 20.06.2025
+
+Letters From The Colony - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Metal, Progressive Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Letters From The Colony - метал-группа из Бурленге, Швеция. Основана в 2010 году.2011 - Letters From The Colony
+2014 - Galax (EP)
+2018 - VignetteЖанр: Post-Metal, Progressive Metal, MetalcoreПродолжительность: 01:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336F322A182CBC9AE5FEA5FF47B910EAB0FFB082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802929   (65950) от 20.06.2025
+
+Sonata Arctica - Silence (2001) Released, 2017, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - ...Of Silence
+02 - Weballergy
+03 - False News Travel Fast
+04 - The End Of This Chapter(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1091AB78D33067BE80935D751FA5CEB8A6DC7C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803178   (65904) от 21.06.2025
+
+Thenighttimeproject - Studio Albums (2 releases) (2016-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thenighttimeproject - шведский рок-проект, основанный Фредриком Норрманом в 2010 году после ухода из Katatonia.2016 - Thenighttimeproject
+2019 - Pale SeasonЖанр: Progressive RockПродолжительность: 01:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C6CC951258E8DC036D47787F3A7A877157E13D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803622   (65814) от 24.06.2025
+
+Soulfly - Savages (2013)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Groove, Thrash, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65814.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bloodshed
+A2 Cannibal Holocaust
+A3 Fallen
+B1 Ayatollah Of Rock ‘N’ Rolla(   Читать дальше...   )Жанр: Groove, Thrash, Death MetalПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B089E19E407AC3C4D84B16E0B1D285AAEFE379D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803620   (65813) от 24.06.2025
+
+Veil Of Conspiracy (ex-Astral Domine) - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal with Doom influences>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Veil Of Conspiracy - итальянская метал-группа из Рима, основана в 2011 году как Astral Domine и сменившая имя на Veil Of Conspiracy в 2016 году.2014 - Arcanum Gloriae (as Astral Domine)
+2019 - Me, Us And Them
+2021 - Echoes of Winter
+2025 - Shape of GriefЖанр: Progressive Metal with Doom influencesПродолжительность: 03:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B1D04C4450CF5E167EDCF642FEFDF4D38795B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803933   (65746) от 26.06.2025
 
 Manowar - The Triumph of Steel (1992) Released, 2011, Back On Black [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Power Metal>
@@ -567,180 +737,6 @@ Joe Dassin - Поет Джо Дассен (1979) [FLAC 24/192|Lossless|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7BBFEC264B1B1115A0EFE1B689924D0D57B2F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705451   (63580) от 08.03.2024
-
-AC/DC - Who Made Who (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Made Who
-02. You Shook Me All Night Long
-03. D.T.
-04. Sink The Pink(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A43B5A18B2B72D0E640E1718A2FF66D3C1407EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705526   (63579) от 08.03.2024
-
-AC/DC - Blow Up Your Video (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Heatseeker"
-02. "That's the Way I Wanna Rock 'n' Roll"
-03. "Meanstreak"
-04. "Go Zone"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075C705BCA2F3F6C13764D529768BD184C40549E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705635   (63528) от 09.03.2024
-
-AC/DC - Rock or Bust (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Or Bust
-02. Play Ball
-03. Rock The Blues Away
-04. Miss Adventure(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32AF562F344693E295A567B0F9FBC6CCF73E2ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705601   (63496) от 09.03.2024
-
-Supertramp - The Very Best Of Supertramp (1990) 1992 [FLAC 24/192|Lossless|tracks] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodbye stranger (R.Davies, R.Hodson)
-02. The logical song (R.Davies, R.Hodson)
-03. Bloody well right (R.Davies, R.Hodson)
-04. Breakfast in America (R.Davies, R.Hodson)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:472DAAD91B14667DFB7D10F2546CFED2FD43B79B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705609   (63484) от 09.03.2024
-
-ВИА «Веселые ребята» - Музыкальный глобус (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Никогда не поверю (Ф. Фариан – русский текст В. Лугового)
-В оригинале «Never Change Lovers In the Middle of the Night» (Fred Jay / Keith Forsey / Mats Bjorklund) — Boney M 1978
-02. Мона Лиза (музыка и слова Д. Бове)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807CF8D9699648BADB857FBDF5AD7DA266F559E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705939   (63391) от 10.03.2024
-
-Slade - Slayed? (Слейд. Убитый?) (1972) 1993 [FLAC 24/192|Lossless|tracks] <Classic Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Как ты едешь? How D'You Ride. (Holder - Lea)
-02 - Весь мир сошел с ума. The Whole World's Goin Crazy. (Holder)
-03 - Взгляни в эту ночь. Look At Last Nite. (Holder - Lea)(   Читать дальше...   )Жанр: Classic Rock, GlamПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74673024E815EDA53779C925FA16DB1C7A8723D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

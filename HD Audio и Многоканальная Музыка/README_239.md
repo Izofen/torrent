@@ -1,3 +1,178 @@
+###  Публикация: 1533726   (27653) от 14.02.2025
+
+Lacuna Coil - Studio Albums (12 releases) (1999-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_27653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lacuna Coil — итальянская готик-метал группа, созданная в Милане в 1994 году.
+Прежние названия: Sleep of Right и Ethereal. По словам участников группы, на их творчество оказали сильное влияние такие команды как Paradise Lost, Tiamat, Septicflesh и Type O Negative.1999 - In A Reverie
+2001 - Unleashed Memories
+2002 - Comalies
+2006 - KarmacodeЖанр: Gothic/Alternative MetalПродолжительность: 12:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85CE70BD4AD99DD7547712F306AE51904C456134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523505   (27459) от 16.02.2025
+
+Dream Theater - Дискография (33 releases) (1989-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_27459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dream Theater — прогрессив-метал-группа из США. Основана в 1985 году тремя студентами музыкального колледжа Беркли.1989 - When Dream and Day Unite
+1992 - Images and Words
+1994 - Awake
+1997 - Falling Into InfinityЖанр: Progressive MetalПродолжительность: 54:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54DA8DF7B049A3992B3F87B218182001FC3E6E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780103   (27396) от 16.02.2025
+
+Demis Roussos - Demis (2009) Remaster, 2025, AMPSA [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Rock, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September (I'm on My Way) [2025 Remastered] [00:02:42]
+02. On My Pillow (2025 Remastered) [00:03:20]
+03. Love Is (2025 Remastered) [00:03:20]
+04. What They Say (2025 Remastered) [00:03:21](   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:148B3B6A395718CCF0DFA6915BE3738A2189FB52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522398   (27207) от 18.02.2025
+
+Александр Розенбаум - Казачьи Песни (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_27207.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Песня Красных Конников • Song Of Red Cavalry Men
+А2 Кубанская Казачья • Kuban Cossack Song
+А3 Тетя Маня • Aunt Manya
+А4 Кандальная • Irons Song(   Читать дальше...   )Жанр: Chanson, BalladПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1928C2509F45913B982EE8AC3964CD9AEB61630D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615817   (27099) от 19.02.2025
+
+Dynazty - Studio Albums (9 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_27099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynazty  — шведская пауэр-метал-группа из Стокгольма.2009 - Bring The Thunder
+2011 - Knock You Down
+2012 - Sultans Of Sin
+2014 - Renatus(   Читать дальше...   )Жанр: Heavy/Power Metal, Hard RockПродолжительность: 07:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2B5F4745CB4C050AED893799FD4FC3A9203A8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663904   (27030) от 20.02.2025
+
+Tristania - Studio Albums (8 releases) (1997-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_27030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tristania — симфо-готик-метал-группа из Норвегии, основанная в конце 1996 года гитаристом и вокалистом Мортеном Веландом, клавишником Эйнаром Моэном и ударником Кеннетом Олссоном.1999 - Beyond the veil
+2001 - World Of Glass
+2005 - Ashes
+2007 - IlluminationЖанр: Symphonic/Gothic MetalПродолжительность: 06:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FDB3371A7D6D454B1BEB9695414FB66375469D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780832   (26996) от 20.02.2025
 
 Cruel Addiction - Confess (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
@@ -571,177 +746,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04532FDD6B50A8B18CA4CD58C86EBD69BFCCA0EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620922   (25142) от 10.03.2025
-
-Spiritbox - Studio Albums (6 releases) (2017-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Progressive Metal, Djent>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spiritbox — канадская метал-группа из Виктории, Британская Колумбия. Дуэт мужа и жены, гитариста Майка Стрингера и вокалистки Кортни ЛаПланте, основан в 2017 году. Музыкальный стиль группы трудно отнести к определённому жанру метал-музыки, и он представляет собой множество стилей, включая электронную музыку.2017 - Spiritbox (EP)
-2019 - Singles Collection (EP)
-2021 - Eternal Blue
-2022 - Rotoscope (EP)Жанр: Metalcore, Progressive Metal, DjentПродолжительность: 03:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18DF46E1B8EF09FB3EE0FA4115CDCFBAFB2A024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784247   (25106) от 10.03.2025
-
-Disturbed - The Sickness (2000) 25th Anniversary Deluxe Edition, 2025, Reprise [FLAC 16/44.1, 24/96|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Want (Live at The Palladium, Los Angeles, CA, 4/18/01) [5:08]
-02 - Fear (Live at The Palladium, Los Angeles, CA, 4/18/01) [3:49]
-03 - Droppin' Plates (Live at The Palladium, Los Angeles, CA, 4/18/01) [4:16]
-04 - Fetish (Live at The Palladium, Los Angeles, CA, 4/18/01) [3:25](   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Heavy MetalПродолжительность: 02:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0171613494746B9C40CC17F71317118974FD99B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784530   (24998) от 11.03.2025
-
-Lights Of Skadi - A Cinematic Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Book of Dead
-02 – Species
-03 – Gods
-04 – Far Away(   Читать дальше...   )Жанр: Symphonic, Progressive MetalПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BEAE1F836A3B98C4E5FC7DE7AAFAC97B7B369C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784529   (24995) от 11.03.2025
-
-Machinedrum - 3RMX82 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bass, Drum & Bass, Dub, Garage, House, Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Respek (Feat. Topaz Jones & Ezri) (Cesco Remix)
-02 – Zoom (Feat. Tinashe) (Skeptical Remix)
-03 – Rise (Feat. Rozet) (Gaszia Remix)
-04 – U_want (Feat. Kucka) (Thys Remix)(   Читать дальше...   )Жанр: Bass, Drum & Bass, Dub, Garage, House, TechnoПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5039D5A257D3B7CB4183CDB8EE52BEF72D8EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784485   (24994) от 11.03.2025
-
-Lacrimosa - Dark is this Night (2025) Maxi-Single [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Alternative, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark is this NightЖанр: Alternative, Gothic MetalПродолжительность: 00:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:189A0CC7461EA84762200C56D56CF0DFB8FDCA6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784411   (24990) от 11.03.2025
-
-Sasami - Blood On The Silver Screen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slugger [00:03:00]
-02. Just Be Friends [00:03:37]
-03. I'll Be Gone [00:03:28]
-04. Love Makes You Do Crazy Things [00:03:45](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Indie PopПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021D32BAB82215A0AE4708DC021B99AD4309AE37
 ```
 
 https://mybot314.ru/tekegram_catalog/

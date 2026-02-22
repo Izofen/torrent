@@ -1,3 +1,176 @@
+###  Публикация: 1697093   (119098) от 05.02.2024
+
+Code Elektro - Metal Heart (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nebula Nights [00:04:12]
+02. Metal Heart [00:03:57]
+03. Last Frontier [00:03:50]
+04. City of the Stars [00:03:39](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D835B8CE20D3BEA2A63C5BEE74C87085E34D759A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697095   (119085) от 05.02.2024
+
+Modern Witchcraft - Modern Witchcraft (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Waves [00:04:27]
+02. Corpse Painter [00:04:13]
+03. Bible Belt Baphomet [00:03:51]
+04. Honey Creeper [00:02:52](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5322D60DCDC141F080AED62FF4C505ADC48BC7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697195   (119082) от 05.02.2024
+
+Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119082.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ravnens Banner
+A2 Frosne Vind
+A3 Må Du Brænde I Helvede
+B1 Latvian Fegurð(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6C74709662552E4386128EF8CA6785B40D02CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696947   (119079) от 05.02.2024
+
+Urne - Studio Albums (3 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Stoner/Sludge Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119079.jpg" />
+</div>
+
+
+###  Подробнее
+
+URNE - британская рок-группа. Сложно определить звучание группы в каком-то одном стиле... Все сводится к одному: тяжести.2018 - The Mountain of Gold
+2021 - Serpent & Spirit
+2023 - A Feast On SorrowЖанр: Stoner/Sludge Metal/MetalcoreПродолжительность: 02:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3D90B3739BF06799A27D9662E946428322A2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697057   (119078) от 05.02.2024
+
+South Of Sundays - Honey Tongue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - She Keeps It Coming (00:05:54)
+02 - Heaven Falls (00:03:15)
+03 - Slow Burn (00:03:26)
+04 - Diamonds In The Rough (00:03:33)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1247A8565022EDF64DE5B9B9F9DA4FE2F24F751D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697278   (119075) от 05.02.2024
+
+Kmfdm - Hyëna (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Industrial Rock, Electro-Industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - All 4 1 (00:03:22)
+02 - Rock 'n' Roll Monster (00:03:00)
+03 - Black Hole (00:03:08)
+04 - Hyena (00:05:02)(   Читать дальше...   )Жанр: Progressive Rock, Industrial Rock, Electro-IndustrialПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA6E9F8197646CA7C66396DAF07728569E7243B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697352   (118941) от 06.02.2024
 
 Леонид Череповский - Цыганские Песни И Романсы (1990) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Folk, Gypsy>
@@ -570,179 +743,6 @@ Background Instrumental Music Collective, Romantic Music Center, Romantic Beats 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86063DE8CC5BFECF6132AFA6BD1F27ED3B9A44C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698805   (118264) от 10.02.2024
-
-Chill Lounge Music Zone, Jazz Music Collection Zone - Night with Red Wine: A Toast to Relaxation, Music for Inner Restoration, Cozy Moments Indoors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] < ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light of Hope (3:15)
-02. Infinity Pleasure (3:47)
-03. Good Vibes (3:05)
-04. Glowing Sky (3:00)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0ED9AFF1628D59AFC6A10F125741654F4F11DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698760   (118259) от 10.02.2024
-
-Il Divo - XX (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neo-Classical, Classical Crossover, Operatic Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy
-02. Hoy Tengo Ganas De Ti
-03. Never Enough
-04. Despacito(   Читать дальше...   )Жанр: Neo-Classical, Classical Crossover, Operatic PopПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6478CED4E016524B7B3D30318996425834F127E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698811   (118254) от 10.02.2024
-
-Cooking Jazz Music Academy, Instrumental Music Ensemble, Calming Jazz Relax Academy - Heartfelt Harmonies (Soulful R&B for Passionate Home Cooking) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] &l ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sizzle & Soul (3:01)
-02. Instrumental Music Ensemble - Simmering Sentiments (3:02)
-03. Instrumental Music Ensemble - Recipe for Romance (3:26)
-04. Butter-Smooth Ballad (3:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F110D6FBF9166D8A39B1F434AA8D8A13008CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698857   (118252) от 10.02.2024
-
-Enemy of Reality - Studio Albums (3 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enemy of Reality - симфоник-метал группа из Афин, Греция. Образована в 2013 году.2014 - Rejected Gods
-2016 - Arakhne
-2023 - Where Truth May LieЖанр: Symphonic MetalПродолжительность: 02:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C2D68CFBBF7A88BB661F9E0A0AB01F5028DDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698814   (118251) от 10.02.2024
-
-Elegant People and Lo Greco Bros - Stories Of Us (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Miles (4:16)
-02. Sons Of Sun (4:17)
-03. Full Rise (4:14)
-04. Stand Up And Dance (5:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A59ABF4D2F4F18176929DEC4A0824499C24F20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698754   (118250) от 10.02.2024
-
-Lacuna Coil - Black Anima (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118250.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Anima Nera (Prologue)
-A2 Sword Of Anger
-A3 Reckless
-A4 Layers Of Time(   Читать дальше...   )Жанр: Gothic, Alternative MetalПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30FCC6D7F71AF0BD0B76DD5147B676EC15FD6B03
 ```
 
 https://mybot314.ru/tekegram_catalog/

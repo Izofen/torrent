@@ -1,3 +1,116 @@
+###  Публикация: 952538   (355718) от 01.11.2015
+
+Belinda Carlisle - The Very Best Of (2015) 2CD [FLAC|image + .cue]<Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Is A Place On Earth [03:54]
+02. Circle In The Sand [03:42]
+03. (We Want) The Same Thing [03:58]
+04. Runaway Horses [04:13](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE60993D9EED0F837D97773F79BAE1709A6A1731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578055   (354772) от 20.11.2012
+
+Самоцветы - Лучшие песни 1996-2003 (2011) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8905FB08D3C5F101BD8257ADA1903957359D3D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329234   (354594) от 04.10.2019
+
+City and Colour - A Pill for Loneliness (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living in Lightning (03:19)
+02. Astronaut (06:01)
+03. Imagination (05:47)
+04. Difficult Love (04:04)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC83A737FBAF4FC474B69DEE20A6979D34435187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329347   (354589) от 04.10.2019
+
+Easy Going - Fear (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Strip You (8:25)
+02. Fear (7:55)
+03. To Simonetti (10:06)
+04. Put Me In The Deal (7:56)Жанр: Electronic, DiscoПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E535DC6A6563246428E74DF578EE6B2BF5F9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329379   (354588) от 04.10.2019
 
 Stratavarious - Stratavarious (1976) LP [MP3|320 Kbps] <Funk Soul, Disco>
@@ -632,122 +745,6 @@ Steps - Tears On The Dancefloor (Crying At The Disco Deluxe Edition) (2017) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9360852BD6AE095EC10CB84A7AE0F3D6C48F39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418156   (351478) от 23.10.2020
-
-Aquarian Dream - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Disco, Jazz-Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская джаз-фанк-диско группа, образованная Норманом Коннорсом. Выпускала альбомы с середины до конца 1970-х годов.01. You're A Star  (5:31)
-02. It Ain't Watcha Say  (3:51)
-03. Friends  (5:43)
-04. Fantasy  (3:36)(   Читать дальше...   )Жанр: Disco, Jazz-Funk, SoulПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2AF986A054F741BFC3D72184E35AE78FACA0A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953176   (351421) от 03.11.2015
-
-Kylie Minogue - Kylie Christmas (2015) [MP3|320 кб/с]<Pop, Christmas>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It’s the Most Wonderful Time of the Year
-02. Santa Claus Is Coming to Town (with Frank Sinatra)
-03. Winter Wonderland
-04. Christmas Wrapping (with Iggy Pop)(   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74021EA244979EA2A25DF67C4412D3FF8DAC137B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953128   (351294) от 03.11.2015
-
-Eros Ramazzotti - 30 (2014) 3CD BoxSet [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terra promessa
-02. Una storia importante
-03. Adesso tu
-04. Musica è(   Читать дальше...   )Жанр: PopПродолжительность: 03:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454571D997337FFC514B2D781A6537B6FF33550B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953078   (351285) от 03.11.2015
-
-Юта - Имя - Лучшие баллады (2015) [MP3|320 кб/с]<Pop, Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кстати
-02. Имя
-03. На краю
-04. Ждали (МХХ) (feat. В. Шахрин)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D46CEB44BF07038D559DDEBE86F614347A1B23
 ```
 
 https://mybot314.ru/tekegram_catalog/

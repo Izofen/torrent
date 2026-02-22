@@ -1,3 +1,32 @@
+###  Публикация: 1105617   (874815) от 18.02.2017
+
+VA - BRAVO Hits 96 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Paul feat. Dua Lipa - No Lie (3:43)
+02. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye (4:10)
+03. Alan Walker - Alone (2:39)
+04. Nevada feat. Mark Morrison & Fetty Wap - The Mack (2:46)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AD1AD45936FE439BCDC0196C4CB0514F9DBA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374353   (874724) от 09.04.2020
 
 Francisca Valenzuela - Tajo Abierto (2014) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop>
@@ -758,41 +787,6 @@ Enrique Iglesias - Sex and Love (2014) /International Deluxe Edition/ [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9024ABCE209DB2421AD906AED1361C13AE3B55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766735   (868883) от 15.03.2014
-
-George Michael - Symphonica (Deluxe Edition) (2014) /Scene/ [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Through
- 02. My Baby Just Cares For Me
- 03. A Different Corner
- 04. Praying For Time
- 05. Let Her Down Easy
- 06. The First Time Ever I Saw Your Face
- 07. Feeling Good
- 08. John And Elvis Are Dead
- 09. Roxanne
- 10. One More Try(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2AE53C762B497EF2EFEF56D33495D4F3B8D36D
 ```
 
 https://mybot314.ru/tekegram_catalog/

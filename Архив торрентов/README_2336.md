@@ -1,3 +1,29 @@
+###  Публикация: 673421   (698556) от 27.06.2013
+
+Рестлинг / WWE Friday Night SmackDown! 21.06.2013 (Русская версия от 545TV) (2013) HDTVRip [H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698556.jpg" />
+</div>
+
+
+###  Подробнее
+
+722-й выпуск Friday Night SmackDown!Жанр: СпортПеревод: Двуголосый закадровый, любительский- Артур Агаджанян и Александр БарыбинПродолжительность: 01:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A61D6F630CD3708AD1B1FF98F75439941D05E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 673431   (698537) от 27.06.2013
 
 Рестлинг / WWE Monday Night RAW 24.06.2013 (Русская версия от 545TV) (2013) HDTVRip [H.264]
@@ -658,35 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF407F31C6E73E557C2282423C41F3DF619ABB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027331   (698241) от 18.06.2016
-
-Armin van Buuren - A State of Trance 768 (2016) [MP3|320 кб/с] <progressive trance, vocal trance, progressive house>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A State Of Trance - Intro
- 02. Alex Sonata Feat. Roxanne Emery - Never Looking Back
- 03. Jason Ross Feat. Lauren Ray - Me Tonight
- 04. Arty - Distorted Love(   Читать дальше...   )Жанр: progressive trance, vocal trance, progressive houseПродолжительность: 02:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC3227F9B9DEA65240DFDDC58E94FE4368135B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

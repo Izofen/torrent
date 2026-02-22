@@ -1,3 +1,32 @@
+###  Публикация: 1648345   (231312) от 23.07.2023
+
+VA - Uplifting Only Top 15: July 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akku - Megumi (Emotional Intro Edit) [4:41]
+02. Deme3us - Close To The Sun (Extended Mix) [5:54]
+03. Type 41 & Saphron - Moon Will Rise (Extended Mix) [8:31]
+04. Masaru Hinaiji - The Theme Of The Light (Kohta Imafuku Remix) [7:27](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C928BA299C0DDDEFD6B9FDD0B1049D766FD15E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648911   (231159) от 26.07.2023
 
 VA - Levitated Trance - Summer (2023) [MP3|320 Kbps] <Trance>
@@ -722,35 +751,6 @@ VA - Trance 4 Friends - Best Of 2023 [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD1951BB5E15FBCFB402077B0B2F0466B21056EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585028   (223576) от 20.10.2022
-
-VA - 4 Strings - Vocal Trance Hits (2022) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 Strings & Susanne Teutenberg - A Brand New Day (Original Mix)
-02. 4 Strings & Susana - Completely (Original Mix)
-03. 4 Strings & Carol Lee - Emotions Away (Radio Edit)
-04. 4 Strings & Trance Classics & Ellie Lawson - Safe From Harm (Omar Sherif Remix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 04:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71E75330561813AC2343B5FEDC1F3A40CC61FAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

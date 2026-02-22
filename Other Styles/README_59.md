@@ -1,3 +1,32 @@
+###  Публикация: 1011032   (795447) от 29.04.2016
+
+Andreas Vollenweider - White Winds (1984) [FLAC|Lossless|image + .cue] <Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The White Winds - The White Boat (First View)  1:51
+02.  Hall of the Stairs - Hall of the Mosaics (Meeting You)  5:04
+03.  The Glass Hall (Choose the Crystal) - The Play of the Five Balls - The Five P...  7:36
+04.  The Woman and the Stone  4:25(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4378BF5DBAD56BFC72695CFDC8CB2A08141A7C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200853   (794919) от 22.01.2018
 
 Liquid Mind - Liquid Mind XII: Peace (2018) [MP3|320 Kbps] <New Age>
@@ -716,35 +745,6 @@ Henry Jackman - Первый Мститель Противостояние / Cap
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E4F8E3D13120F8533C7823726593BA90E28B149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122210   (793430) от 06.04.2017
-
-VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collision (02:53)
-02. Scrap Yard (01:42)
-03. Leverage (01:50)
-04. Juliet (02:55)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BE5CFB191E8CB9EF052F8E0F19E0466DB921BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

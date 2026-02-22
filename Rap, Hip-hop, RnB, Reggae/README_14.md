@@ -1,3 +1,61 @@
+###  Публикация: 1215869   (754467) от 28.03.2018
+
+Многоточие Band - Реквием по реальности (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом в лучших традициях творчества группы Многоточие, в котором треки-мотиваторы, а также треки «о добром и вечном» соседствуют с антивоенными треками-манифестами, порой слишком жёсткими и хлёсткими, но всегда честными и искренними. Всё тот же катарсис – как modus operandi творчества группы, творчества, ведущего слушателя сквозь тернии (острое переживание и понимание (   Читать дальше...   )01. Учиться любить (feat. Динайс & Mary-A)
+02. Мы
+03. Игрушки
+04. Зима(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720EFF87DC73E60A680DFFD04B27469F16F6660C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216228   (752635) от 29.03.2018
+
+Кровосток - ЧБ (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лоси
+02. Душ
+03. Столярка
+04. Чебурашка(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3382A82DAB07D383A33C39BBEDF4674714737FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281490   (751613) от 08.02.2019
 
 FACE - SLIME (2019) [MP3|320 Kbps] <Hip-Hop>
@@ -685,64 +743,6 @@ Logic - No Pressure (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:145368FC3D8766F901B7FA330843070CE9CD5CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400132   (718864) от 05.08.2020
-
-Groove Da Praia - The Groove Girls (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Electro>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cars and Girls (4:47)
-02. Groove Da Praia, Shelly Sony - Latch (4:20)
-03. Anybody Seen My Baby? (3:51)
-04. Sua Cara (Reggae Version) (3:28)(   Читать дальше...   )Жанр: Reggae, ElectroПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE81CE273124045DC1DB103B2D60E37FE2AC7435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400130   (718755) от 05.08.2020
-
-Groove Da Praia - Transformations (2016) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Electro, Chillout, Trip-Hop, Lounge>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Final Countdown (3:52)
-02. Memories (3:05)
-03. Todas As Coisas (3:22)
-04. Toy Soldiers (4:57)(   Читать дальше...   )Жанр: Reggae, Electro, Chillout, Trip-Hop, LoungeПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636AA12D006919C632659CCAEC5FFA4C4C887775
 ```
 
 https://mybot314.ru/tekegram_catalog/

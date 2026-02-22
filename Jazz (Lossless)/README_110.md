@@ -1,3 +1,32 @@
+###  Публикация: 1522881   (755065) от 09.01.2022
+
+VA - Classic Savoy Be-Bop Sessions (1945 - 1949) 10CD, 2016, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755065.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Dexter Gordon - Blow Mr. Dexter (alternate take) [2:40]
+02. Dexter Gordon - Blow Mr. Dexter [2:58]
+03. Dexter Gordon - Dexter's Deck [2:56](   Читать дальше...   )Жанр: BopПродолжительность: 10:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD85A8DADBEA2B464FDB54D2E67730D96548A087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215725   (754852) от 28.03.2018
 
 Kenny Burrell - Bluesin' Around (1961, 1962) 2017, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
@@ -711,35 +740,6 @@ Pharoah Sanders - Love In Us All (1973) 2007, Universal [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13457CF5E362624D84F19A03D41213FA0784827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396408   (748686) от 14.07.2020
-
-Rez Abbasi Acoustic Quartet - Intents and Purposes (2015) [FLAC|Lossless|tracks + .cue] <Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Market (Zawinul) - 7:57
-02. Butterfly (Hancock) - 7:36
-03. Joyous Lake (Martino) - 8:00
-04. Medieval Overture (Corea) - 4:56(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3860CF1D84DAA4264AF548376FF52CEAAB4A0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

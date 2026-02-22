@@ -1,3 +1,30 @@
+###  Публикация: 819423   (533481) от 07.09.2014
+
+Videohive - High tech OS (sci-fi video display) - 133107 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впечатляющий проект вашего видео в научно-фантастическом стиле.
+Превью, sci-fi звуки  - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC556EDE2AF4E2DAC41086747C226E45E5AEAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 819521   (533478) от 07.09.2014
 
 VideoHive - Promote Your Product/Service/App/Website With Me - 2426436 [AEP]
@@ -654,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A3A241485DF5F33DE6A6ABFFBB921F9A5871D19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929085   (520313) от 18.08.2015
-
-Проекты - VideoHive - News Package - 11392588 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект включает в себя 30 заполнителей для ваших видео /фото изображений и 16 заполнителей для пользовательского текста. Плагинов не требуется. Быстрый рендеринг. Продолжительность – 0:24, 0:12, 0:30. Настраиваемый цвет.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4918CA9BFE0FE76C6FD90D255B51FDE4108D44
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 992472   (901127) от 02.03.2016
+
+"Big" John Patton - Blue John (1963) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hot Sauce [08:00]
+ 02.Bermuda Clay House [06:00]
+ 03.Dem Dirty Dues [06:18]
+ 04.Country Girl [06:54](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D46D0017F9431AD3625C83307D3985AE5A71E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992475   (901106) от 02.03.2016
+
+Dr. Lonnie Smith - Rise Up! (2008) Palmetto Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Matterapat [06:47]
+ 02.Come Together [05:08]
+ 03.Pilgrimage [06:50]
+ 04.Daper Dan [07:22](   Читать дальше...   )Жанр: Jazz Fusion, Hammond OrganПродолжительность: 01:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7996EB9FDD934BB4FB97E23A5EACF8981C874B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992684   (901074) от 02.03.2016
+
+Lucky 3 Blues Band - Blues Time (2015) [FLAC|Lossless|image + .cue] <Blues Rock, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Time (2:48)
+02. Blues On the Run (4:45)
+03. Blues Don't Live Here Anymore (2:16)
+04. Blues Will Never Leave You (4:50)(   Читать дальше...   )Жанр: Blues Rock, Chicago BluesПродолжительность: 00:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2173311EE69729D8FADF074CADDDB436AAD8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992483   (900996) от 02.03.2016
 
 VA - The Blues In... Asia (2005) [MP3|320 кб/с] <Blues>
@@ -725,101 +812,6 @@ John Savage - Remember Me (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contempor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55FB66A10945769441E949A987E8F4A19035C1D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760967   (899995) от 26.02.2014
-
-Bad Brad & The Fat Cats - Take A Walk With Me (2014) [MP3|320 кб/с]<Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Take A Walk With Me
-02 - Leghound
-03 - Ego Trip
-04 - Take It Easy
-05 - Going To The Country
-06 - Headin' Out
-07 - Lucky Man
-08 - Other Side
-09 - Runnin' Me Down
-10 - See My Way(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E1220694CC394E1EA48247D16BB3AE7FC808EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100608   (899968) от 04.02.2017
-
-Nils Landgren with Janis Siegel - Some Other Time - A Tribute To Leonard Bernstein (2016) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture: America ( Bernstein, Leonard) 00:42
-02. Some Other Time ( Bernstein, Leonard / Comden, Betty & Green, Adolph) 05:17
-03. Cool ( Bernstein, Leonard / Sondheim, Stephen) 03:40
-04. Maria ( Bernstein, Leonard / Sondheim, Stephen) 03:13(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B191A7C71C53E55453D1FFF6CC9065962AFD3A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760699   (899962) от 26.02.2014
-
-Senas Kuinas - Rinkinys (2011) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Очень хочу познакомить вас с литовским блюзом, диск был куплен в 2012 году
-во время концерта,  так что дата выпуска может быть не точной...01. Valtis
-02. As tau palieku
-03. Traukinys ''Lietuva''
-04. Gerb. Ponai, gerb. Ponios
-05. Nei mamos, nei tevo(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D478C0AF08385C93227F3AEF2BBEC9CBBBA352
 ```
 
 https://mybot314.ru/tekegram_catalog/

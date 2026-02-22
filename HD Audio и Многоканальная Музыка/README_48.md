@@ -1,3 +1,177 @@
+###  Публикация: 1637245   (240023) от 03.06.2023
+
+DIO - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Holy Diver
+02. Rainbow In The Dark
+03. Don't Talk To Strangers(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B682B62B24B39B2BA0E92A97DCF50B1A537F3223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627339   (239963) от 18.04.2023
+
+Thomas Anders - Whispers (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239963.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Sweet Hello, The Sad Goodbye 4:32
+A2 Whispers Of Love 5:05
+A3 The Echo Of My Heart 4:27
+A4 Maybe I'm Dreaming 4:23(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8A61895B0FC82BA45E281A48A90FCF017F2724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626980   (239947) от 16.04.2023
+
+Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239947.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Desire 3:47
+A2 Vicious Games 4:18
+A3 Oh Yeah 3:05
+A4 Desert Inn 3:30(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145DCD8D2CBA70C79D0C6A55D926360B6B106E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635275   (239937) от 25.05.2023
+
+VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Folk, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239937.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 П. Нечепоренко - Час Да По Часу
+A2 П. Нечепоренко - Олынка
+A3 П. Нечепоренко - Цвели, Цвели Цветики
+A4 П. Нечепоренко - Наигрыш Владимирских Рожечников(   Читать дальше...   )Жанр: Folk, InstrumentalПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E5CF22E869351C78A846E76F1C8C0586F1413C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635254   (239913) от 25.05.2023
+
+Heretic - Studio Albums (4 releases) (1986-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heretic - американская пауэр-метал группа из Лос-Анджелеса, образованная в 1986 году.1986(2013) - Torture Knows No Boundary (EP)
+1988 - Breaking Point
+2012 - A Time Of Crisis
+2017 - A Game You Cannot WinЖанр: Heavy/Power/Thrash MetalПродолжительность: 02:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800744C29636105CC849E27C2B23158D2EF05028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635324   (239834) от 25.05.2023
+
+И. Кальман - Принцесса цирка. Фрагменты из оперетты, запись 1952 г. (1982) [FLAC 1.0|192/24|tracks|Vinyl-Rip] <Classical, Operetta>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+Увертюра. I действие
+Сцена и дуэт Лизы и Тони. Ария Мистера Икс. Ария Сюзанны
+Сцена и дуэт Сюзанны и Мистера Икс(   Читать дальше...   )Жанр: Classical, OperettaПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD16EB57D724FF98A3C033448138801106671ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590239   (239802) от 17.04.2023
 
 Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
@@ -571,180 +745,6 @@ VA - Мелодии экрана, 17 серия (1968) [FLAC 1.0|96/24|tracks|Vi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F1847AC70BDA4AAAE0EF665A615F953436BB96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141810   (238371) от 30.04.2022
-
-Miguel Ramos/Мигель Рамос - Organo Hammond/Орган Хаммонд (1976,1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238371.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Урожай
-A2 Снова Один
-A3 Тема Любви
-A4 Сын Моего Отца(   Читать дальше...   )Жанр: Jazz, Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D93D07164B63F6BE4D6F61FF25AC285031D7E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629095   (238357) от 26.04.2023
-
-Visage - The Anvil (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238357.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Damned Don't Cry
-A2 Anvil (Night Club School)
-A3 Move Up
-A4 Night Train(   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C1ACC1E694F5BFBD2943833B8C5503D0B77769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144837   (238355) от 30.04.2022
-
-David Gilmour - In Concert (2002) Unofficial Release [WavPack 2.0|44,1/24|image+.cue|Audio-DVD-Rip] <Acoustic, Prog Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Robert Wyatt's Meltdown Concert
-=========================
-01. Shine On You Crazy Diamond
-02. Terrapin(   Читать дальше...   )Жанр: Acoustic, Prog Rock, Classic RockПродолжительность: 02:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05AA20ED15F99C04BEC6D8EA5D95BF8E8C0DB3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145522   (238348) от 30.04.2022
-
-VA - Rock Remakes - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Vietnam - Roadhouse Blues (The Doors)
-02. Poison - What I Like About You (The Romantics)
-03. Jorn - Feel Like Making Love (Bad Company)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Heavy MetalПродолжительность: 01:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D0BB1F761B06C3834CA52614E589D708E00026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623865   (238316) от 03.04.2023
-
-Jonathan Jeremiah - Horsepower For The Streets (2023) Deluxe Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop-Rock, Soul, R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horsepower For The Streets
-02. You Make Me Feel This Way
-03. Cut A Black Diamond
-04. Small Mercies(   Читать дальше...   )Жанр: Pop-Rock, Soul, R&BПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BF9EF408516EE593942130A41FAB9DDA2F2575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140820   (238299) от 30.04.2022
-
-Ингви Малмстин/Yngwie J. Malmsteen - Трилогия/Trilogy (1986) Reissue 1988 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238299.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ты Не Помнишь, Я Никогда Не Забуду (You Don't Remember, I'll Never Forget)
-A2 Лжец (Liar)
-A3 Влюбленная Королева (Queen In Love)
-A4 Плач (Crying)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C439EF8CBBA8BCAEA6448CF53FD2A93F10D798
 ```
 
 https://mybot314.ru/tekegram_catalog/

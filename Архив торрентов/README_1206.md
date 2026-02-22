@@ -1,3 +1,30 @@
+###  Публикация: 640086   (890851) от 05.04.2013
+
+Журнал | Classic ROCK №4 (114) [2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Classic ROCK, легендарный английский журнал, ставший культовым и в России, - самый авторитетный голос в мировой рок-журналистике. Сlassic ROCK исследует все аспекты рок-музыки, благодаря прямому общению собственных корреспондентов по обе стороны Атлантики с теми, кто создает и переворачивает мир рока.
+Classic ROCK предлагает читателям глубокие аналитические материалы о легендах классического рока, открывает новые имена в «Классике Будущего» и освещает самые значимые события в музыкальной индустрии.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1F0890EFD40EC1CE2DDDF85EDED42D13645883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 183125   (890850) от 19.03.2010
 
 Три толстяка (1966) DVDRip
@@ -693,41 +720,6 @@ Text Editor Pro 17.1.0 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:060B76192CED4038D029BDEDB39E897295CEB5EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639657   (890766) от 05.04.2013
-
-VA - Танцевальный Рай 30 (2012) [FLAC|Lossless]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Alex Ferrari - Guere Guere
-2. Otto Knows - Million Voices
-3. Gotye Feat. Kimbra - Somebody That I Used To Know (Tiesto Remix)
-4. Movetown Feat. R. Horton - Here Comes The Sun (Radio Edit)
-5. Godlike Music Port - Jambo Jambo Jambo (Radio Edit)
-6. Dj Taz & Highlander Dj Feat. Denis Swing - Pika Pika
-7. Carlprit - Fiesta (Michael Mind Project Radio Edit)
-8. Jack Holiday & Mike Candys - The Riddle Anthem (Radio Mix)
-9. Michael Mind Project Feat. Dante Thomas - Nothing Lasts Forever (Radio Edit)
-10. Livin R & Pink Noisy Feat Marilena Animado - Secret Sin!(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

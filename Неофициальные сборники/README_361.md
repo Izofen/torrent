@@ -1,3 +1,295 @@
+###  Публикация: 924631   (557608) от 04.08.2015
+
+VA - Hits For Chill (2015) [MP3|320 кб/с]<Deep House, Chill House, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoboken - Lampedusa Lounge (02:47)
+02. Deep Walls - Deep House Mykonos (03:49)
+03. Il Greco - Nippon Horn (02:47)
+04. Hoboken - Magaluf Lounge (03:09)(   Читать дальше...   )Жанр: Deep House, Chill House, Chill OutПродолжительность: 01:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2412020ECFBC537CBACE82E0B58098521594D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045784   (557483) от 24.08.2016
+
+ABBA - The Best Songs (2016) [MP3|320 Kbps] <Pop, Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen  3:51
+02. Take A Chance On Me  4:07
+03. Angel Eyes  4:23
+04. Waterloo  2:47(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A390C44AFB900362FC662851923F9A0D6092E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924573   (557474) от 04.08.2015
+
+VA - The Official UK Top 40 Singles Chart (31.07.2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достаточно много времени прошло с момента размещения на трекере последнего Топ-40. 31 июля 2015 года опубликован очередной UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения за прошедшую неделю Вы можете сами посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Little Mix - Black Magic  (3:32)
+02. Years & Years - Shine  (4:16)
+03. Lost Frequencies - Are You With Me  (2:19)
+04. Sigma - Glitterball (feat. Ella Henderson)  (3:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B845B0B6DC1AB828B75BF804D152537CEC97481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924613   (557463) от 04.08.2015
+
+VA - Зарубежные Новинки Интернета (2015) [MP3|320 кб/с]<Pop, Dance, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Great Big World, Futuristic - Hold Each Other
+02. Eminem, Gwen Stefani - Kings Never Die
+03. Pharrell Williams - Freedom
+04. Duran Duran - Pressure Off (feat. Janelle Monae and Nile Rodgers)(   Читать дальше...   )Жанр: Pop, Dance, R&B, RapПродолжительность: 06:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7916F1609585609B9163C4158CC607611A458010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045573   (557415) от 24.08.2016
+
+VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 37 ) (2016) [MP3|192 Kbps] <Pop, Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Blue  -  Still In Love (X-Tended UltraTraxx Remix)  9:54
+02. Modern Talking  -  Bells Of Paris (Longer UltraTraxx Mix)  10:35
+03. Blue System  -  Body To Body (UltraTraxx System Mix)  9:25
+04. London Boys  -  Harlem Desire (UltraTraxx Long Version)  11:57(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 04:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2735A21BC83F6E2C72547CF76E868FC72080EF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924779   (557373) от 04.08.2015
+
+VA - Самые шикарные летние хиты 6 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Дорин - Для Тебя
+002. Faith Evans - Extraordinary
+003. Профилактика - Навсегда Ухожу
+004. Charli Xcx & Roma Pafos Vs Lilly Wood & Nejtrino & Baur - Player Break The Rules(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113D4AAAD6F391755C5112B9BA1CE68E5AF73DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924716   (557307) от 04.08.2015
+
+VA - Музыка Нашествия 2015 (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.25-17 - Просыпайтесь! (02:48)
+02.7000$ - Хозяин леса feat. Noize MC, Staisha (03:45)
+03.7Б - Холодно (vs. Влад Демьян) (04:26)
+04.Brainstorm - Эпоха (03:19)(   Читать дальше...   )Жанр: RockПродолжительность: 04:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF515C226C0BA282D849EA3062FC4C315F445835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924709   (557275) от 04.08.2015
+
+VA - 100 золотых зарубежных хитов 80 - 90-х (2015) [MP3|320 кб/с]<Dance, Disco, Eurodance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557275.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Ross - Valentino Mon Amour
+002. Annie Anner - Night In The City
+003. Antares - Ride On A Meteorite
+004. Apotheosis - O Fortuna(   Читать дальше...   )Жанр: Dance, Disco, Eurodance, PopПродолжительность: 08:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2257DB57DFEF950A950E7528192FD8A96CE89FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235607   (557156) от 13.07.2018
+
+VA - Top 100 Зайцев.Нет Июнь 2018  [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MATRANG - Медуза
+02. Макс Барских - Сделай громче
+03. Ka-Re - Polovina
+04. Элджей - Suzuki(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3FF29B0D922D09F580612D845938AB16C59EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305304   (557150) от 30.05.2019
+
+VA - Global Control: May Trance Party (2019) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557150.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Komflux - Logarithm
+002. Komflux - Hard Seek
+003. Nitrous Oxide - Avalon
+004. Caboosh - Persona Non Grata(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 09:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2988DFA0CF13DD0F4DB05118036026EE635A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305302   (557108) от 30.05.2019
 
 VA - Diary Of The Setting Sun (2019) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
@@ -455,295 +747,6 @@ VA - The Official UK Top 40 Singles Chart 13.07.2018 (2018) [MP3|320 Kbps] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:388192EC27F03C53866F1C806399BED7C2089650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235869   (556604) от 14.07.2018
-
-VA - German Top 100 Single Charts 13.07.2018 (2018) [MP3|320 Kbps] <Pop, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556604.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bushido - Für Euch alle (feat. Samra & Capital Bra)
-002. Dynoro & Gigi D'Agostino - In My Mind
-003. El Profesor, Hugel - Bella ciao (HUGEL Remix)
-004. Clean Bandit - Solo (feat. Demi Lovato)(   Читать дальше...   )Жанр: PopПродолжительность: 05:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD98B68AB6DC9D563556DE093ADD922B589CA9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235497   (556595) от 14.07.2018
-
-VA - Billboard Hot 100 Singles Chart 14.07.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drake, Big Freedia, 5thward Weebie - Nice For What
-002. Drake - Nonstop
-003. Cardi B, Bad Bunny & J Balvin - I Like It
-004. Drake - God's Plan(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D04152A087E25B1CC6D9890BBC9F3F0F64F07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556703   (556435) от 12.06.2022
-
-Techno Project & Dj Geny Tur - Deep House (2022) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Right (2:45)
-02. Body (3:02)
-03. Arabic Night (3:36)
-04. My Play (3:44)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 03:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589510959A8395C0B502442730BE66A3027B2AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556729   (556427) от 12.06.2022
-
-Brothers Osborne - Compilation (2022) [MP3|320 Kbps] <Rock, Country>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Shaped Locket
-02. I Smoke Weed (Feat. Ashland Craft & Brothers Osborne)
-03. Shoot From The Hip
-04. Skeletons(   Читать дальше...   )Жанр: Rock, CountryПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA400B19DF7D7A8B4A9B1D10199C9951B03F20DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236011   (556287) от 15.07.2018
-
-VA - German Top 100 Single Charts 16.07.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556287.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clean Bandit - Solo (feat. Demi Lovato)
-002. Namika - Je ne parle pas franais (feat. Black M) (Beatgees Remix)
-003. El Profesor Hugel - Bella ciao (HUGEL Remix)
-004. Calvin Harris Dua Lipa - One Kiss(   Читать дальше...   )Жанр: PopПродолжительность: 05:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D526DA2536E96CA36AF2B4A7FC6F9A63A963F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236051   (556162) от 15.07.2018
-
-VA - Дискотека 2018 Dance Club Vol.181 от NNNB [MP3|320 Kbps] <Club, Deep House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1
-01. DJ Cargo - Summer Night (3:01)
-02. Mesto - Give Me Love (3:22)
-03. Sunrise Blvd ft Nelita - Can't Hide (Radio Version) (3:46)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 15:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBC602593FAFE9904D771DCA419F3E7C528FB87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305892   (555931) от 02.06.2019
-
-VA - Record Super Chart 589 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555931.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Aaron Smith - Dancin (Krono Remix) (4:15)
-2.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
-3.Billie Eilish - Bad Guy (3:14)
-4.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C7E55B824F089BF6EBF487ECEF8DB4919E70AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305931   (555930) от 02.06.2019
-
-VA - German Top 100 Single Charts 07.06.2019 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555930.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samra & Capital Bra - Wieder Lila
-002. Juju - Vermissen (feat. Henning May)
-003. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1737740809138CDA8015C0D68CAB4DE3B1720A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305977   (555873) от 02.06.2019
-
-VA - Hit Music (лето 2019) от Мяу [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555873.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Moon Taxi - Now's The Time
-002. Ally Brooke feat. A Boogie Wit Da Hoodie - Lips Don't Lie
-003. Градусы - Не Уходи
-004. Jam & Spoon Feat. Plavka Vs. D - Right In The Night (Rico Bernasconi Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62DD9F91A737CC41A201C2CE3F55BF68B346945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305859   (555870) от 02.06.2019
-
-VA - 100 хитов в дорогу. Русский выпуск часть 2 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555870.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. IOWA - Пой (Eleonora Kosareva Remix) 3:29
-002. Anivar - Крыльями 3:24
-003. ALEKSEEV - Моя звезда (ARROY & Sergey Raf Remix) 3:03
-004. Artik & Asti - Привет (Lavrushkin & Max Roven Remix) 4:23(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1713ABCD76B61F2B10493CEC67EE0083A883D70F
 ```
 
 https://mybot314.ru/tekegram_catalog/

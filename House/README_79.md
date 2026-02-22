@@ -1,3 +1,87 @@
+###  Публикация: 1085898   (156833) от 22.12.2016
+
+VA - Deep and Loud (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tec 77 - Mediterranean - Dan Rubell Remix
+02. Shivana faction - Elementary Levels
+03. Thrill Rules - Hyped
+04. Najwars - Deep Trading(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F7DD32FC1F25F06B0C96AE56DC412C973CB673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968325   (156621) от 23.12.2015
+
+VA - Hed Kandi Anthems (2015) [MP3|320 кб/с] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. StoneBridge - Put 'Em High (feat. Therese)Жанр: Funky, Club HouseПродолжительность: 11:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882D4D50F2D66E40B620F8E99DEE45F6811F2796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270474   (156408) от 19.12.2018
+
+VA - Christmas Dance Party 2018-2019 (Best of Dance, House & Electro) (2018) [MP3|320 Kbps] <House, Dance, Electro-House, Bigroom>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spikaa feat. Deja - Home (Radio Mix)
+02. Sean Norvis feat. Pacha Man and Alexandra Mitroi - Bad Girls (Radio Edit)
+03. John Reyton - Out Of The Dark (Radio Edit)
+04. Geo Da Silva - Pump It Up (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Electro-House, BigroomПродолжительность: 02:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3619A1AE7B058B83FE2EFB235344ABE8870BE511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270658   (155998) от 20.12.2018
 
 VA - Christmas & Chill, Vol. 2 (Have Yourself A Little Deep House Hangout) (2018) [MP3|320 Kbps] <Deep House>
@@ -676,105 +760,6 @@ VA - Deep House Top 1000, Vol.1-Armada Music (2018) [MP3|320 Kbps] <House, DeepH
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A04A72A4F5DA3F4F1E7CA227D121C70D56EF4656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739545   (146237) от 28.12.2013
-
-VA - Bargrooves Deluxe (2014) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Daniell - Bargrooves Deluxe 2014 Mix 1 (70:21)
- 02. Andy Daniell - Bargrooves Deluxe 2014 Mix 2 (66:56)
- 03. Andy Daniell - Bargrooves Deluxe 2014 Mix 3 (70:54)
- 04. Osunlade - Dionne (04:16)
- 05. Andhim - Boy Boy Boy (07:01)
- 06. MK - Always (feat. Alana) (NY Stomp Remix) (06:35)
- 07. Dusky - Careless (06:31)
- 08. Route 94 - Tell You Why (05:45)
- 09. Close - Beam Me Up (feat. Charlene Soraia & Scuba) (George FitzGerald Remix) (05:17)
- 10. Sonny Fodera - Hold It Down (feat. Amber Jolene) (06:34)(   Читать дальше...   )Жанр: Deep House, Tech House, HouseПродолжительность: 08:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9049F70724D3BA46BF7EE6456C7934382AC82473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590291   (146176) от 16.12.2012
-
-VA - SoSexy - Deep House Selection Vol.1-2 (2012) [MP3|320 кб/с]<House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diego Suarez - Bossa and Trip
-02. Marco Van Erpen - Keep On Dreamin
-03. Tiapason - Day Dream
-04. Tiapason - Wasting Time
-05. DJ Joseph B - All Kinds of Everything
-06. DJ Jerry - Keep in Mind
-07. Diego Suarez - Guitar Reverse
-08. Love Pacific Industries - Conselvee
-09. Musixx - Test Giose
-10. 4th Floor - A Night in New York(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 06:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F9DDAFA046960BB915A38AB0C29C83BE70530A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519976   (145529) от 26.12.2021
-
-VA - Seveneves Best of 2021 (2021) [MP3|320 Kbps] <Funky, Club-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Hofmann - Show Me What You Got (02:43)
-02. AirDice - Momento (Radio Edit) (02:39)
-03. Jake Dile; Valentino Vines - Light It Up (Radio Edit) (03:23)
-04. DJ Bass-T - Call You MIne (02:57)(   Читать дальше...   )Жанр: Funky, Club-HouseПродолжительность: 02:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BF7B81A454A07499B124BE266FB6AD4DDE2116
 ```
 
 https://mybot314.ru/tekegram_catalog/

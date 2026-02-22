@@ -1,3 +1,177 @@
+###  Публикация: 1803098   (65941) от 21.06.2025
+
+GoGo Penguin - Necessary Fictions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Electronic, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Umbra
+02 – Fallowfield Loops
+03 – Forgive the Damages (feat. Daudi Matsiko)
+04 – What We Are and What We Are Meant to Be(   Читать дальше...   )Жанр: Jazz, Electronic, InstrumentalПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CBABF1F57FDFE1121D108FC48475C2A8C8F4808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803147   (65932) от 21.06.2025
+
+Kiss - Love Gun (1977) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Stole Your Love [3:05]
+02 - Christine Sixteen [3:13]
+03 - Got Love For Sale [3:29]
+04 - Shock Me [3:47](   Читать дальше...   )Жанр: Hard Rock, Glam Rock, RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773D635F7705AC1D61FD3B6D3FB1D18C0986B5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803141   (65924) от 21.06.2025
+
+Cocojoey - STARS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <hyperpop, bitpop, cybergrind, digital-fusion, digital-hardcore, electro-industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TIME TO GO! [00:03:06]
+02. THE I LIKE SONG [00:03:00]
+03. MIDNIGHT LICKING HOURS [00:03:36]
+04. TRUST IN EVENTS [00:04:25](   Читать дальше...   )Жанр: hyperpop, bitpop, cybergrind, digital-fusion, digital-hardcore, electro-industrialПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F994D15222C264BEFB23C331A4D9AA17C09F713A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803130   (65923) от 21.06.2025
+
+Cryptopsy - An Insatiable Violence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technical Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cryptopsy - The Nimis Adoration (4:10)
+02. Cryptopsy - Until There's Nothing Left (3:59)
+03. Cryptopsy - Dead Eyes Replete (3:57)
+04. Cryptopsy - Fools Last Acclaim (3:26)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11155D088C9BE520BE7E207E82936BDB19CABC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803169   (65915) от 21.06.2025
+
+Kiss - Animalize (1984) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I've Had Enough (Into The Fire) [3:53]
+02 - Heaven's On Fire [3:22]
+03 - Burn Bitch Burn [4:43]
+04 - Get All You Can Take [3:45](   Читать дальше...   )Жанр: Hard Rock, Glam Rock, RockПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FD8089AE928AE0BEE766313773F455B1C19F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803172   (65912) от 21.06.2025
+
+Kiss - Asylum (1985) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - King Of The Mountain [4:20]
+02 - Any Way You Slice It [4:04]
+03 - Who Wants To Be Lonely [4:02]
+04 - Trial By Fire (2014 Remaster) [3:44](   Читать дальше...   )Жанр: Hard Rock, Glam Rock, RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD151B12E73572BCA4669563CB3EA3AF56C8813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803178   (65904) от 21.06.2025
 
 Thenighttimeproject - Studio Albums (2 releases) (2016-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
@@ -566,180 +740,6 @@ Abys - Telegraph (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AEFCD08D34FFC17B2B28C01179C1B6D1B9F0DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804019   (65719) от 27.06.2025
-
-Mint Club - Slice Of Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulp [00:03:34]
-02. Closer To Closure [00:02:53]
-03. Punch Me Out [00:02:39]
-04. Sick Invite [00:02:33](   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F85C3BBEE919B1AC12CA61E7E2BCF88F6CA414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804237   (65714) от 28.06.2025
-
-Lorde - Virgin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Electropop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hammer [00:03:13]
-02. What Was That [00:03:29]
-03. Shapeshifter [00:04:17]
-04. Man Of The Year [00:03:00](   Читать дальше...   )Жанр: Indie, ElectropopПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9259D406A8574693252BDDAB5737C086F004B397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804268   (65710) от 28.06.2025
-
-Royale Lynn - Black Magic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greed [00:02:50]
-02. E.V.I.L. [00:03:32]
-03. Black Magic [00:03:07]
-04. Sacrifice [00:02:40](   Читать дальше...   )Жанр: Alternative Metal, ElectronicПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C8C4C24ED7DB9B92B766BC733A2507818F0D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804209   (65708) от 28.06.2025
-
-Peter Gabriel - In The Big Room (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn You Up, Burn You Down (Live) [00:04:23]
-02. More Than This (Live) [00:06:12]
-03. Games Without Frontiers (Live) [00:05:01]
-04. Downside Up (Live) [00:05:30](   Читать дальше...   )Жанр: RockПродолжительность: 01:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2604B911D6304803F9F164964B27ACB4F01349D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804290   (65702) от 28.06.2025
-
-Related to Strangers & Matthew. - Ghost (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ordinary (3:31)
-02.  Reaping Era (4:33)
-03.  Oceans (3:18)
-04.  Event Horizon (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E63AFB990097CC881B07A59D76EB9CA149B175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804228   (65698) от 28.06.2025
-
-Frank Zappa, The Mothers Of Invention - Cheaper Than Cheep: The Soundtrack (Live 1974) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Could I Be Such A Fool (Live June 21, 1974) [00:04:01]
-02. I'm Not Satisfied (Live June 21, 1974) [00:02:16]
-03. Wowie Zowie (Live June 21, 1974) [00:02:26]
-04. I Don't Even Care (Live June 21, 1974) [00:01:19](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC6F574BB0C84A08EAAE0DCAD23BAF5A2833DC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

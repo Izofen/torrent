@@ -1,3 +1,32 @@
+###  Публикация: 1347853   (147612) от 25.12.2019
+
+Gerry Mulligan - Four Classic Albums: Third Set 1955 - 1957 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147612.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Mud Bug [5:08]
+02. Sweet And Lovely [5:08]
+03. Apple Core [5:29](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321CFACBB3FE5B496E6A419DD5FEEA1DFD58B572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271902   (147594) от 25.12.2018
 
 Katica Illenyi - Tango Classic (2018) IKP Music [FLAC|Lossless|tracks + .cue] <Swing, Tango>
@@ -730,35 +759,6 @@ Tom Braxton - Comfort and Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE53FCE8DAA31DFE66FE41D838897D4CF12F9509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272223   (146002) от 26.12.2018
-
-Roy Hargrove - The Vibe (1992) BMG Novus [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vibe [6:34]
-02. Caryisms [7:04]
-03. Where Were You? [5:03]
-04. Alter Ego [6:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192A0D2ED2311EAA43C6DFBD7E1FCC86F4E90A50
 ```
 
 https://mybot314.ru/tekegram_catalog/

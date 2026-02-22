@@ -1,3 +1,90 @@
+###  Публикация: 1805851   (12007) от 09.07.2025
+
+VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bl3ss & Camrinwatsin - Kisses (Feat. Bbyclose) 02:18
+02. Lf System - Afraid To Feel 02:58
+03. A7s - Dumb 02:30
+04. Billy Gillies - Dna (Loving You)Жанр: Pop, DanceПродолжительность: 02:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED4C548F147CDEC673F8C9760D460911F46C188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806147   (11824) от 11.07.2025
+
+ВИА Поющие гитары - 5 Albums (2002-2025) [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2002 - Синий иней
+2013 - Сумерки
+2016 - Если любишь ты(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 5 CD, 03:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A558686C64336E811BCAB6ADAD2415BFDDC658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806798   (11530) от 14.07.2025
+
+Thomas Anders - …Sings Modern Talking - Ready For Romance - Thomas' Version (2025) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11530.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Thomas Anders - …Sings Modern Talking - Ready For Romance:
+01. Brother Louie (Thomas' Version) 3:53
+02. Just We Two (Mona Lisa) (Thomas' Version) 4:10
+03. Lady Lai (Thomas' Version) 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 02::10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF63E1B1560E6C6A12FEB507E6A4D1D527B0DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806909   (11302) от 16.07.2025
 
 Шан-Хай - 2 Albums (2004,2025) [MP3|320 Kbps] <Pop, Chanson>
@@ -657,93 +744,6 @@ VA - Dirty Dancing (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41E6A6AC44F2EABC5802E2A0FD5BE9F1373C20A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810667   (9221) от 05.08.2025
-
-VA - Eurobeat Stars Vol. 1-2 (2009) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9221.jpg" />
-</div>
-
-
-###  Подробнее
-
-1/10. Mark Farina - Gunfire (Explosive Mix) (2:50)
-2/10. F. C. F. - Black Mother (Fire Version) (6:50)
-3/10. The Gangstars - Dancing In the Street (Power Version) (6:18)
-4/10. Mark Farina - Virtual Love Remix (Factory Team Remix) (4:53)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17BC2D11FCFE82E6FEF9B7EB3D99BF9AF127E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811217   (8936) от 08.08.2025
-
-Thomas Anders - …Sings Modern Talking In the Middle of Nowhere (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8936.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Geronimo's Cadillac (Thomas' Version) (3:19)
-02. Riding on a White Swan (Thomas' Version) (3:55)
-03. Give Me Peace on Earth (Thomas' Version) (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7C52E9592031817538A2A07F7C220197A9074A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811494   (8680) от 10.08.2025
-
-VA - wake me up to 80s music (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roxette - The Look (3:57)
-02. Madonna - La Isla Bonita (4:02)
-03. Pet Shop Boys - It's a Sin (4:59)
-04. Fleetwood Mac - Everywhere (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70446614A6C610E9A68624DBA4FC45E63D44429
 ```
 
 https://mybot314.ru/tekegram_catalog/

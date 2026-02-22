@@ -1,3 +1,32 @@
+###  Публикация: 1265368   (274134) от 28.11.2018
+
+VA - New Music Releases Week 47 of 2018 (2018) [MP3|~229 - 320 Kbps] <Dance, Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274134.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Rose, Jory Boy - More More
+002. Ferreck Dawn, Robosonic - In Arms (A-Trak Remix)
+003. Busta K - Want Your Body
+004. Borgeous, Morgan St. Jean - Famous (Riggi & Piros Remix)(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 08:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0FE2565D318D3476862C7A9DF7E80C9AB51794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265323   (274074) от 28.11.2018
 
 VA - THIS is the 60's (2018) [MP3|320 Kbps] <Pop>
@@ -713,35 +742,6 @@ VA - German Top 40 DBC Deutsche Black Charts 07.12.2018 (2018) [MP3|320 Kbps] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FAE2B332FC7F34614010B9D5BAF9BA02845029E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267757   (265125) от 08.12.2018
-
-VA - German Top 50 Official Dance Charts 07.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
-02. Chic - Le Freak (Oliver Heldens Remix)
-03. Calvin Harris;Sam Smith - Promises (David Guetta Remix)
-04. Purple Disco Machine;Baxter - Encore (Mousse T. Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576885FF944E9BA18D04976EB6CFA7BA0AA32712
 ```
 
 https://mybot314.ru/tekegram_catalog/

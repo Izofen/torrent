@@ -1,3 +1,32 @@
+###  Публикация: 1567634   (470191) от 04.08.2022
+
+Amatory - Книга мертвых (2006) Reissue, 15th Anniversary Edition, 2022, Self-Released [FLAC|Lossless|tracks + .cue] <Metalcore, Nu Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Помнишь? (1:22)
+02. Семь шагов (3:30)
+03. Здесь и сейчас (4:19)
+04. Снег в аду (3:24)(   Читать дальше...   )Жанр: Metalcore, Nu Metal, Alternative RockПродолжительность: 03:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A999C2A61828719644B834413CF8ECDFBB30F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940228   (469163) от 24.09.2015
 
 Arcane Grail - Arya Marga (Ninefold Path to the Innocence) (2009) [FLAC|image+cue]<Symphonic Black / Melodic Death Metal>
@@ -742,35 +771,6 @@ VA - Свободная культура. Звуки Северной столи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4767589B65B5CDF43C1E116DE6B601EEE94E1918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062500   (441783) от 13.10.2016
-
-Александр Ф. Скляр и Ва-Банкъ - Ястреб (2016) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Анзер
-03. Калечинка
-04. Ястреб(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F283E302F71D462832539F4AB278D61F9FEF55DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

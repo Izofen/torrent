@@ -1,3 +1,90 @@
+###  Публикация: 1442208   (1036896) от 24.01.2021
+
+VA - Best Jogging Remixes 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'Mixmasters - Lasting Lover (Fitness Version) (04:37)
+02. DJ Kee - Kickin Hard (Fitness Version) (04:50)
+03. DJ Space'c - Holiday (Fitness Version) (04:35)
+04. Th Express - My Head And My Heart (Fitness Version) (04:24)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EA80CC8DE9529470DB0A5E6E100690A3E03DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616239   (1036716) от 01.03.2023
+
+VA - Deep House On The Beach (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-mase & Sharliz - Sky (06:25)
+02. Mant Deep - Don't Fool Me (06:09)
+03. Abee Sash - Ain't nobody (Gus One Remix) (02:38)
+04. Baccij - Only One (02:33)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655E10275BE12ED593C7DFFD50E020CD0AF9B19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616420   (1036443) от 02.03.2023
+
+VA - Miami House Week 2023 (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phonetic Kids - Never Know (Original Mix) [02:51]
+02. Ghosts Of Mars - At Night (Original Mix) [02:48]
+03. Brad Cooper - From The Stars (Original Mix) [02:21]
+04. Mike Westwood - My Body (Original Mix) [02:44](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3450F5BA49B3B032CB3C8C3CFB73BD2E9231AC46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616862   (1035854) от 04.03.2023
 
 VA - Ballaton Nightlife (2023) [MP3|320 Kbps] <Deep-House>
@@ -658,111 +745,6 @@ VA - Best Of Ibiza 2020 [MP3|320 Kbps] <Minimal, Tech House, Funky>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:060C953E511E70ECA3636C73228F2F3D9453060D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597445   (1000514) от 02.01.2013
-
-VA - My Love Is Systematic Vol. 5 (Mixed by Christian Smith) - 2012 [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. My Love Systematic (Continous DJ Mix By Christian Smith)
-02. Patrice Bäumel - If Not Now, When?
-03. Jin Choi & Daso - Teer (Rodriguez Jr. Remix)
-04. Spirit Catcher - Sedona (André Lodemann Remix)
-05. Christian Smith & John Selway - Clear Intention
-06. Dimitri Andreas - Snickerz (Santos Guardingo Remix)
-07. Marc Romboy - Karambolage (Oxia Remix)
-08. Marc Romboy - More Muzik
-09. Robert Babicz - Cyberlove
-10. Steve Lawler - Distrait (Kaiserdisco Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B11D1B88BD3C2A78DF1BDEE24496A82AAEA9A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598519   (1000034) от 04.01.2013
-
-VA - Motherland Russia Vol.2 (Deep House Edition) (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Scsi-9 - Had I But Wings Like Thine (06:27)
-02. BarBQ - For Nothing (03:49)
-03. Joss & Illya - Tripping (07:58)
-04. A Contrari - The Fish of My Dreams (Olej Deep Lake Remix) (07:50)
-05. Datamode - Running Back (Terry Lee Brown Junior Remix) (07:16)
-06. Kolokol Production - Saturn (Rene Breitbarth Remix) (07:32)
-07. Frank Johnson - Vendabal (Vela's Deep Tech Version) (08:08)
-08. Igor Brzovic - Easy Rider (07:54)
-09. Pr. Morriarti - Mystic Smile (Robert Babicz Galactic Mix) (08:01)
-10. Alex Savanin - InFlight (Hernan Cattaneo & Soundexile Remix) (09:14)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBF8ECE4F8020D1D44C7E2FEC6900204ED5A5F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598471   (1000014) от 04.01.2013
-
-VA - 111 Golden Techhouse Tunes (2012) [MP3|320 кб/с]<Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Aki Bergen - Black & Light - Club Rework Part 1
-02. Nikola Gala - A Voice From Outer Space
-03. The Timewriter - Love is Beautiful - Francois Dubois Remix
-04. Terry Lee Brown Junior - Baltimore - Aki Bergen Remix
-05. Boris Brejcha - Express Myself - Daniel Schlender Remix
-06. Hector vs Mikel - Mabing - Hector Remix
-07. J. Axel - The Journey
-08. Matthew Hoag - El Pueblo Rojo
-09. MSMS & Terry Grant - The Angel In You
-10. Arantxa Gallardo - Monk - Danito Remix(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 13:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB4C55AEA30982D571B944FD65614E0EE564A6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1495454   (880818) от 12.09.2021
+
+Blacksmith - Once Upon A Star (2000) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon A Star
+02. Dragons Fire
+03. Hall Of The Mountain King
+04. Come On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2133ABFEDCBF7F950CD14D606CCF17675313BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871299   (880767) от 21.02.2015
 
 Led Zeppelin - Physical Graffiti (40th Anniversary Deluxe Edition) (2015) 3CD [FLAC|Lossless]<Hard Rock>
@@ -750,35 +779,6 @@ Cinderella - 3 альбома (1986-1990) Japan Edition /2007, Universal Music/ 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106592   (871565) от 20.02.2017
-
-Tony Carey - The Boystown Tapes (1999) [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solitary Man 04:25
-02. A Long Way From Home (Part II) 04:01
-03. Everyting You've Got 04:40
-04. Boystown 04:27(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579E3D336BBD171A7331E9859611DBCDA4CF40B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

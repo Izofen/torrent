@@ -1,3 +1,177 @@
+###  Публикация: 1646857   (229117) от 28.07.2023
+
+Zardonic - Superstars (2023) [FLAC|24/48|tracks|WEB-DL] <Industrial Rock, Drum & Bass, Electronic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_229117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring The Rukus [00:04:24]
+02. Rock And Roll Tonight [00:05:20]
+03. Neon Rain [00:03:30]
+04. Follow Me [00:03:32](   Читать дальше...   )Жанр: Industrial Rock, Drum & Bass, Electronic RockПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8513D1240E91FFD4E694B25EE4F7B75FF3350CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341440   (228845) от 29.11.2019
+
+Эмиль Горовец - Поет Эмиль Горовец II (1966) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_228845.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Двадцатый Век
+A2 Твоя Любовь
+A3 Смоленский Мальчишка
+A4 Белая Береза(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D2B710AFB31D39D9A98F0093BFFB703F667F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648898   (228561) от 29.07.2023
+
+VA - Dantcho "Rap" Georgiev Presents: Dance Hits Vol. 4 (1992) [FLAC|96/24|image + .cue|Vinyl-Rip] <Euro House, Swingbeat, Italodance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228561.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Londonbeat - You Bring On The Sun
+A2 Ce Ce Peniston - We Got A Love Thang
+A3 Got To Be - Lucy
+A4 R. Kelly And Public Announcement - She's Got That Vibe(   Читать дальше...   )Жанр: Euro House, Swingbeat, ItalodanceПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A45A5EB61B0B363CE7034430751BCE9E7F1167A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648182   (228434) от 29.07.2023
+
+VA - The Wild Life. Music From The Original Motion Picture Soundtrack (1984) [FLAC|24/192|image + .cue|Vinyl-Rip]] <Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228434.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Edward Van Halen - Donut City
+A2 Hanover Fist - Metal Of The Night
+A3 Charlie Sexton With Ron Wood - It's Not Easy
+A4 Andy Summers - Human Shout(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657A90F3016C8779A96FD342306A597CA4BD4795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583598   (227970) от 16.10.2022
+
+VA - The Dooley Family And The Others (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227970.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Dooley Family – Hands Across The Sea
+A2 The Dooley Family – Sha La La Lullaby
+A3 The Dooley Family – Oo-Pa-Pa-Doo
+A4 The Dooley Family – Sneaking Up On Me(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE295B1A4D28869EEC14D76C44A8F616674DF333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965009   (227704) от 13.12.2015
+
+Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. I Can't Stand The Rain  6:30
+2. Movin'  4:24
+3. I'll Take You There  2:52(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A5FA839A3BA8784EA5DBFD90310AF74010359B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267991   (227654) от 10.12.2018
 
 Кино - Атаман (2018) [DSD2.0|11,28MHz/1bit|image+.cue|Vinyl-Rip] <Rock>
@@ -565,181 +739,6 @@ Alice Cooper – 20 Альбомов (1972-2011) [FLAC 2.0 24/96|tracks (Vinyl-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B74910E7212F482E95BBBCF1D017F23A84101E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617610   (219319) от 09.08.2023
-
-Rainbow - 7 альбомов (1975-1983) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219319.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Stranded 4:31
-A2. Can't Let You Go 4:22
-A3. Fool For The Night 4:04
-A4. Fire Dance 4:30(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678C1E76A64F21449B32FE44894297827A3BABE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585684   (218906) от 24.10.2022
-
-Slaughter - Studio Albums (7 releases) (1990 - 2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slaughter (Сло́тер) — американская хард-рок группа. Название группы переводится как "бойня". Марк Слотер был поклонником творчества Льва Толстого, который говорил: "Не было бы боен, не было бы войн". Но Марк Слотер решил, что "одна бойня всё-таки будет. И это будем мы!"
-Группа Slaughter была сформирована в 1988 году бывшими участниками (   Читать дальше...   )1990 - Stick It To Ya
-1992 - The Wild Life
-1995 - Fear No Evil
-1997 - Revolution(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 07:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5551D4F2EC9F35AD93C7175935EC410E81E47434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966329   (217951) от 18.12.2015
-
-Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] <Blues, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Le Jardin Du Luxembourg - Люксембургский Сад  11:52
-2. Il Etait Une Fois Nous Deux - Однажды мы были вдвоем  3:52
-Сторона 2(   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1792E8B78554439E52F65A953BD7C250C029B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652007   (217915) от 11.08.2023
-
-Linda Ronstadt - Living In The USA (1978) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Country Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217915.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Back In The U.S.A.
-A2 When I Grow Too OId To Dream
-A3 Just One Look
-A4 Alison(   Читать дальше...   )Жанр: Country Rock, Soft RockПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7861D3A51DE2A409E76E5BC53E0E3E83478CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652169   (217891) от 11.08.2023
-
-VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Pop, Acoustic, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217891.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Familie Silly - Bette Davis Eyes
-A2 Monika Hauff Und Klaus-Dieter Henkler - Birds Of Paradise
-A3 Roland Neudert - Some Broken Hearts Never Mend
-A4 Eva-Maria Pieckert - Maledetta Primavera(   Читать дальше...   )Жанр: Pop, Acoustic, Soft RockПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADD5164C486517397B0807D42F6A1F0B686C002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084837   (217767) от 19.12.2016
-
-The Alan Parsons Project - Tales of Mystery and Imagination [40th Anniversary Edition] (2016) 1976 [DTS 5.1|44.1/16|image +.cue|BD-Audio] <pop/rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 .«A Dream Within a Dream» – 4:14
-02. «The Raven» – 3:57
-03. «The Tell-Tale Heart» – 4:38
-04. «The Cask of Amontillado» – 4:33(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C34CB758DFA8DE2304D4769AFD7990C09BDCD40
 ```
 
 https://mybot314.ru/tekegram_catalog/

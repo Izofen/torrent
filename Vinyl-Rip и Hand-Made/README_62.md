@@ -1,3 +1,176 @@
+###  Публикация: 1693713   (121681) от 21.01.2024
+
+Circus Maximus - Studio Albums (5 releases) (2005-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Circus Maximus — норвежская прогрессив-метал-группа. Основана в городе Осло в 2000 году.2005 - The 1st Chapter
+2007 - Isolate
+2012 - Nine
+2016 - HavocЖанр: Progressive MetalПродолжительность: 04:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB2CB25F947163C6755F7403400E03EC34F3E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823196   (121583) от 10.10.2025
+
+Collapse 7 - Studio Albums (4 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Collapse 7 - метал-группа из Зальцбурга, Австрия, основана в 2003 году.2004 - In Deep Silence
+2007 - Supernova Overdrive
+2011 - Doomsday Odyssey
+2023 - Human Monster MadnessЖанр: Melodic Death MetalПродолжительность: 03:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A748F49EBDCDB4680C01D90DA1CCA630EB37C80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823154   (121581) от 10.10.2025
+
+Immorium - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Immorium - австралийская метал-группа, основанная в 2008 году в Канберре.2015 - Universum
+2020 - This Too Shall Pass
+2024 - Rose Water BlackЖанр: Melodic Death MetalПродолжительность: 02:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F882FE0E09D050209503E618A4A2890A1EB512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693961   (121291) от 23.01.2024
+
+Rhino Bucket - Studio Albums (7 releases) (1990-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rhino Bucket — американская хард-рок-группа из Ван-Найс, Лос-Анджелес, образованная в 1988 году. Звучание группы часто сравнивают со звучанием AC/DC.1990 - Rhino Bucket
+1992 - Get Used To It
+1994 - Pain
+2006 - And Then It Got UglyЖанр: Hard RockПродолжительность: 05:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694256   (121114) от 24.01.2024
+
+Gotsu Totsu Kotsu - Studio Albums (6 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка этих парней представляет из себя забойный и агрессивный трэш-дэт-метал с грохочущим слэп-басом и яростным ревущим вокалом, но поскольку тексты песен основаны на cредневековой японской истории и самурайской культуре, сами участники 兀突骨 предпочитают называть стиль, в котором они играют, «самурай-метал».2009 - 魍魎 (Mouryou)
+2013 - 影ノ伝説 (Legend Of Shadow)
+2015 - 因果応報 (Retributive Justice)
+2016 - 兵ドモガ夢ノ跡 (Where Warriors Once Dreamed A Dream)(   Читать дальше...   )Жанр: Thrash/Death MetalПродолжительность: 06:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D117CA506D858DA1C45EEDE60ADCC2D61E77E36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694364   (121103) от 24.01.2024
+
+Carnivore - Retaliation (1987) [WavPack|24/96|image + .cue|Vinyl-Rip] <Speed, Thrash Metal, Crossover>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121103.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jack Daniel's And Pizza
+A2 Angry Neurotic Catholics
+A3 S.M.D.
+A4 Ground Zero Brooklyn(   Читать дальше...   )Жанр: Speed, Thrash Metal, CrossoverПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CA29A734E49334A40D6BE2319A9AB39A3F5CA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694351   (121101) от 24.01.2024
 
 Carnivore - Carnivore (1995)[FLAC|24/96|tracks|Vinyl-Rip]  <Speed, Thrash Metal, Crossover>
@@ -566,179 +739,6 @@ Orchestra – Эстрадный Оркестр П/у Ю. Силантьева( 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:877AEA31E1E1748B138278241DAB73BDFB4C02B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697481   (118923) от 06.02.2024
-
-Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118923.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mareridt
-A2 Maneblot
-A3 The Serpent
-A4 Crown(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697478   (118921) от 06.02.2024
-
-Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brutus - норвежская хард-рок-группа из Осло, Норвегия, образованная в 2007 году. У Brutus тяжелый грув, основанный на блюз-ориентированном рифф-роке 1970-х годов, в духе Black Sabbath, Grand Funk Railroad, Blue Cheer, Pentagram и других.2010 - Brutus
-2013 - Behind The Mountains
-2016 - Wandering BlindЖанр: Hard Rock, Stoner RockПродолжительность: 02:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222B5D0E09D75613B3C530324777BEF7B6A97287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697367   (118905) от 06.02.2024
-
-Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118905.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Skøgen Skulle Dø
-A2 Hævnen
-A3 Onde Børn
-A4 Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697414   (118903) от 06.02.2024
-
-Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118903.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vølvens Spådom
-A2 Jeg Er Guden, I Er Tjenerne
-A3 Skøgen Skulle Dø
-A4 Byssan Lull(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF39500BFC0B3C0B038E5EE2892A261311FD103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697486   (118898) от 06.02.2024
-
-Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118898.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ella
-A2 Fager Som En Ros
-A3 Leaves Of Yggdrasil
-A4 Ramund(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED376654036B0920377373ACCEAAC855CCD647C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698572   (118414) от 09.02.2024
-
-Lacuna Coil - In a Reverie (1999) Reissue, 2019, Century Media [FLAC|24/192|image + .cue|Vinyl-Rip] <Century Media – 19075971571>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118414.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Circle
-A2 - Stately Lover
-A3 - Honeymoon Suite
-A4 - My Wings(   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883767E7AE364641ECAA4A80DDE31931CC2B8A78
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1221128   (698706) от 22.04.2018
+
+Shaggy Dogs - All Inclusive (2018) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Steady (03:40)
+02. Facebook Fury (03:21)
+03. El Dia De Los Muertos (03:25)
+04. No Second Round (03:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F88BD503ADB53600CD01838B0E6DFE24DA77F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132672   (698698) от 10.05.2017
+
+VA - Speakeasy Electro Swing Compilation Vol. 2 - The Electro Vintage (2013) [MP3|320 Kbps] <Electro Swing, Electro Blues, Glitch Hop>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Jennings - Mr Jennings -Man of Constant Sorrow (Remix of Soggy Bottom Boys) (04:07)
+02. Warp9 & Essex Groove - Warp9 & Essex Groove - Shake Your Hips (05:22)
+03. Thornato - Golden Gate Quartet - "Travelin' Shoes" (Thornato Remix) (02:48)
+04. Eclectic Mick - Eclectic Mick - Hypocrite Shoes (Bessie Smith & Friends) (05:18)(   Читать дальше...   )Жанр: Electro Swing, Electro Blues, Glitch HopПродолжительность: 02:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FCA230ABDAE89AAC3F7AB5AE27F42A7EBCED430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132798   (698695) от 10.05.2017
+
+Taj Mahal & Keb Mo - TajMo (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Leave Me Here (5:01)
+02. She Knows How To Rock Me (2:40)
+03. All Around The World (3:22)
+04. Om Sweet Om (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6286A355B80FC5E44565D10453980F571015E744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221119   (698609) от 22.04.2018
 
 Chilled Jazz Masters - Soft Jazz Vibes To Rest (2018) [MP3|320 Kbps] <Jazz>
@@ -657,93 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FCD20BD298395260C11B42B1214E9A4C766D889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288369   (695937) от 11.03.2019
-
-KAVver. - Losen (2016) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip Hop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Losen (5:19)
-02. Charinskiy (5:48)
-03. Asfalt (5:47)
-04. Filya (5:20)Производство: Cuntroll - Cuntroll093Жанр: Dark Jazz, Post Jazz, Post Rock, Kraut Rock, Trip HopПродолжительность: 00:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5186444C908940C93248CDD363562C940BE2B5DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288437   (695935) от 11.03.2019
-
-Richard "Groove" Holmes - Onsaya Joy (1975) 2018, Solid Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Georgia Brown [6:42]
-02. Onsaya Joy [15:36]
-03. Green Dolphin Street [7:23]
-04. Song for My Father [6:11](   Читать дальше...   )Жанр: Soul Jazz, Jazz-FunkПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AFA24AAEBD38FCF0CC40DC9C1F11EC3226F6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288392   (695934) от 11.03.2019
-
-Jarod Bufe - New Spaces (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695934.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pushing Back the Darkness (06:14)
-2. In the Next Room (05:22)
-3. Begin Again (05:34)
-4. Just Not Him (05:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94898197900989633E75DE49398413E82FE2A4C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

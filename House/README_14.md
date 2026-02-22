@@ -1,3 +1,90 @@
+###  Публикация: 996623   (879412) от 14.03.2016
+
+VA - Cycles 7 (Mixed By Max Graham) (2016) [MP3|320 кб/с] <Progressive House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy J - Equinox (07:32)
+02. Brian Cid - Errors (08:00)
+03. Rick Pier O'Neil - To Declare (07:40)
+04. Ewan Rill featuring Avenax - Lotos (Vocal Mix) (07:17)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311FE89E9FBB4A4D17EE16D85D8A76ACB29A9BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994725   (879410) от 14.03.2016
+
+VA - This Is Our House Music Miami- Finest Groovy House Tunes (2016) [MP3|320 кб/с] <Funky, Tech House, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reza & Barry Obzee - Jump (Original Mix)
+02. Peverell Bros, R.O.N.N. & Ron Carroll - Way Back (Roger Sanchez Dirty Beats Dub Remix)
+03. Barry Obzee & Lawrence Friend - Get Up (Original Mix)
+04. Jefty Ft Jibberish - Raise The Bar (Original Mix)(   Читать дальше...   )Жанр: Funky, Tech House, ClubПродолжительность: 02:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA0DA6D068D59508A882B92CA6E4ECDDAF9DC1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994383   (879293) от 14.03.2016
+
+VA - Fitness Beats (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calabria - Ufo (Club Mix)
+02. Stereoliner - Black Cube (Club Mix)
+03. Tildbros - About a Boy (Ultra Short Festival Mix) (feat. Tilda Gold)
+04. Ralf Velasquez - Stars(   Читать дальше...   )Жанр: HouseПродолжительность: 02:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE19EAE8D68DAF4683EFC8C94A6F0E43A1454D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995081   (879277) от 14.03.2016
 
 VA - 50 Best Tracks For Your Car 5 (2016) [MP3|256-320 кб/с] <House>
@@ -708,91 +795,6 @@ VA - Hed Kandi - Miami 2014 (09.03.2014) [MP3|320 кб/с]<Dance, Disco House, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6986C928E53DDD7265B12AC829E3150FB3D5A218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997855   (868643) от 20.03.2016
-
-VA - Various Artists - Horenswert Vol. 10 (2016) [MP3|320 кб/с] <Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Third Son - Oedipus
- 02. Alex Neri - Desert Rose (Burnski Remix)
- 03. Philip Bader - The Vibe
- 04. Martinez - Honey Lips(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89013E0056B8C4B46F6556C6057DF540EDAE6652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998612   (868590) от 20.03.2016
-
-Flash Cartel - Elevate (2012) [MP3|320 кб/с] <Progressive House, Drum & Bass, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevate (Original Mix) [05:56]
-02. Elevate (Three20 Remix) [05:36]
-03. Breakaway (Original Mix) [06:46]
-04. Boulevard (Original Mix) [04:12]Жанр: Progressive House, Drum & Bass, Electro HouseПродолжительность: 00:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29DA6534A3453BAC43455A286C2D2E78615E565D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997862   (868576) от 20.03.2016
-
-VA - We Love Deep Vol. 1 (2016) [MP3|320 кб/с] <Tech House, Indie Dance, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phunk Investigation - Cadillac Man (Radio Edit)
- 02. Mart - Hollywood (Short Edit)Жанр: Tech House, Indie Dance, Nu DiscoПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A80DA118C937C9420C2A9B83BB93CF1224D9A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

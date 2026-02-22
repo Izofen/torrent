@@ -1,3 +1,177 @@
+###  Публикация: 793368   (841272) от 04.04.2016
+
+Electric Light Orchestra - Secret Messages (1983)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841272.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Secret Messages (4:45)
+A2. Loser Gone Wild (5:24)
+A3. Bluebird (4:09)
+A4. Take Me On And On (5:01)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7075669EA4FE93F57AACE74FEA887A0CB7036F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004105   (839899) от 05.04.2016
+
+Nini Rosso and His Orchestra/Нини Россо И Его Оркестр - Napoli/Неаполь (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Latin>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839899.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Душа И Сердце (Anema E Core)
+A2	Идёт Дождь (Chiove)
+A3	Неблагодарное Сердце (Core' Ngrato)
+A4	Страсть (Passione)(   Читать дальше...   )Жанр: Jazz, LatinПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D91344BE128BA4E7707AAFAA8C1B1B48739E07A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112731   (839546) от 10.03.2017
+
+VA - RETROспектива, часть XIV. Мелодии и песни из кинофильмов III (1946-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Женск. вок. ансамбль - Песня подруг (из к.ф. ''Девчата'')
+02. Валентина Дворянинова - Прощайте, голуби (из к.ф.  ''Прощайте, голуби'')
+03. Оркестр п.у. Виктора Кнушевицкого - Медленный танец (из к.ф. ''Моя любовь'')
+04. Ефим Нейд (худ. свист) - Мелодии (из к.ф. ''Вернись в Соренто'')(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40EFD35BD4FF786EA5919B69C05EF998CACA6CA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500871   (837869) от 08.10.2021
+
+Rainbow - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Catch To Rainbow
+02. All Night Long
+03. Starstruck(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29620E8B9A76C9B386E26505472F6641882AB606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 652123   (835489) от 04.05.2013
+
+Nightwish - Once (2004) 2006, Nuclear Blast [LPCM 2.0 24/48, DTS 5.1 24/48 |Audio-DVD (DVD-Audio)]<Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Chest Of Wonders
+02. Wish I Had An Angel
+03. Nemo
+04. Planet Hell(   Читать дальше...   )Жанр: MetalПродолжительность: 01:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78629A79689ACF90D9A8F891A335A610622D5865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879054   (835414) от 19.03.2015
+
+Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio-DVD (BD-Audio)] <Rock, Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835414.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 2014 Stereo Remaster
+
+01 Funeral For A Friend/ Love Lies Bleeding (2014 Remaster) 11:10
+02 Candle In The Wind (2014 Remaster) 3:49(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:16:19 + 00:13:11 (4 bonus tracks)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501310   (835028) от 10.10.2021
 
 Nirvana - Легенды Зарубежного Рока (2001) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Grunge>
@@ -573,180 +747,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D28430F2D8F5ED3164B693EDD253156BA3E3A793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381521   (826134) от 07.05.2020
-
-Andy Williams - The Andy Williams Sound of Music (1968) 2xLP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826134.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Sound of Music
-A2 That Old Feeling
-A3 Quiet Nights of Quiet Stars (Corcovado)
-A4 Let It Be Me(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BBDA74124C619F8598F4FDA3F70CE3B441445B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196121   (825797) от 01.01.2018
-
-VA - Песни Виктора Дорохина и Любови Воропаевой - Девочка Моя Синеглазая (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Vinyl-Rip] <Pop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825797.jpg" />
-</div>
-
-
-###  Подробнее
-
-[6:18] 01. Евгений Белоусов - Девочка моя синеглазая
-[4:55] 02. Екатерина Семенова - Мужчина, который спешит
-[4:00] 03. Евгений Белоусов - Алушта
-[4:11] 04. Екатерина Семенова - На минутку(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA940BC928DDC3F906FF8072977DFBCCC6CAFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 654327   (824907) от 10.05.2013
-
-Ambra – Child Of The Universe (2003) [DSD 5.1, 2.0 1bit/2822,4kHz | SACD-R] <New Age, Electronic, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    Infinite Space (Part 1)    01:49
-02.    Infinite Space (Part 2)    01:39
-03.    The Rebirth Of The Sun    04:01
-04.    La Renaissance Du Soleil    05:20(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738A09E46FB9421A80006CEED6FB34A1EFA57D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006983   (824796) от 13.04.2016
-
-Fiona Joy Hawkins - 600 Years in a Moment (2013) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824796.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.    600 Years    06:25
-2.    Naked Love    05:36
-3.    The Journey    05:55
-4.    Earthbound    04:06(   Читать дальше...   )Жанр: new ageПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA554F97074C6D2723914B3346F7036251221D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116120   (824358) от 19.03.2017
-
-Bonnie Tyler - Natural Force (1978) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Pop Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824358.jpg" />
-</div>
-
-
-###  Подробнее
-
-side A
-A1 It's A Heartache
-A2 Blame Me
-A3 Living For The City(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2906884ADBF37668CA2AD34CEE6069019342E8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116642   (822065) от 20.03.2017
-
-Depeche Mode - Spirit (2017) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Synth-Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822065.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Going Backwards (5:43)
- A2. Where's The Revolution (4:59)
- A3. The Worst Crime (3:48)
- A4. Scum (3:14)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CEC420DC3E5414FF59DA2B5823983FE25E3B37
 ```
 
 https://mybot314.ru/tekegram_catalog/

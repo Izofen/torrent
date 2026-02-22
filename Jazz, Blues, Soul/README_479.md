@@ -1,3 +1,32 @@
+###  Публикация: 1515199   (170407) от 06.12.2021
+
+Modern Jazz Quartet - Milestones Of A Legend (1953 - 1962) 10CD, 2016, The Intense Media [FLAC|Lossless|tracks + .cue] <Cool, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170407.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 -  The Modern Jazz Quartet 1953 & Concorde:
+01. All The Things You Are [3:17]
+02. La Ronde [3:10]
+03. Vendome [3:15](   Читать дальше...   )Жанр: Cool, Third StreamПродолжительность: 12:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CACE0D4E3E8AB7024585B51815A93F92173D501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596094   (170387) от 09.12.2022
 
 VA - Highway Boys - Country for the Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues/Country/Folk>
@@ -716,35 +745,6 @@ Robin Trower featuring Sari Schorr - Joyful Sky (2023) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:667F7B4BBCC80A1D3F5D18693D32D4808627E14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344784   (169229) от 12.12.2019
-
-Andy Fusco - Vortex (2019) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vortex [6:00]
-02. Friends And Neighbors [5:21]
-03. Spring Can Really Hang You Up The Most [8:06]
-04. Matador [5:14](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B05FC50512D6C4A2B8EE4CEC45AE8F595670BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

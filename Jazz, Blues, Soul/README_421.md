@@ -1,3 +1,32 @@
+###  Публикация: 1627432   (242948) от 19.04.2023
+
+James Carter Organ Trio - Live from Newport Jazz (2019) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le manoir de mes reves [11:29]
+02. Melodie au crepuscule [10:47]
+03. Anouman [10:06]
+04. La valse des niglos [7:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FA46FEBE47870AF057112B58C75BD04B604667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358760   (242945) от 09.02.2020
 
 Ivan Paduart - Enivrance (2015) Mons Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Andrea Pozza Trio - Drop This Thing (2008) Dejavu [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671C5660BC06A5B529516C4DD795250D4E2F3BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100607   (242530) от 04.02.2017
-
-Herbie Mann - The Beat Goes On (1966, 1967) Remaster, 2014, Warner[FLAC|Lossless|image + .cue] <Latin Jazz, World Fusion, Cuban jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.No Matter What Shape  [03:27]
- 02.More Rice That Peas, Please [03:34]
- 03.Hey Ho [02:49]
- 04.The Honeydripper  [02:49](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Cuban jazzПродолжительность: 00:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0BF576852A15712B9DB3585A7D3630DA3EDFE08
 ```
 
 https://mybot314.ru/tekegram_catalog/

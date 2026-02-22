@@ -1,3 +1,61 @@
+###  Публикация: 1419710   (337418) от 29.10.2020
+
+Marion Brown - Why Not? Porto Novo! Revisited (1966, 1967) 2020, Hat Hut Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Sorella [11:32]
+02. Fortunato [8:36]
+03. Why Not [7:00]
+04. Homecoming [10:19](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C80FA9C2769F40157D8F1BD303D903E42828781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954914   (337343) от 09.11.2015
+
+Charles Brown - Merry Christmas Baby (2015) [OGG| 383-494 кб/с]<Christmas Pop, Blues, Oldies>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merry Christmas Baby
+02. Please Come Home for Christmas
+03. Let's Make Every Day a Christmas Day
+04. I'll Be Home for Christmas(   Читать дальше...   )Жанр: Christmas Pop, Blues, OldiesПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5571D74186C42AD35596C0E69B2F25113A7B53D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955123   (337030) от 09.11.2015
 
 Andra Day - Cheers To The Fall (2015) [MP3|320 кб/с]<Rhythm & Blues, Neo Soul>
@@ -686,64 +744,6 @@ Blacktop Deluxe - Presence & Gain (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67CA2E0EC8B8F21C19317A3AA61FB4E2A86F111D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955366   (335416) от 10.11.2015
-
-Barney Wilen - Tilt (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blue N' Boogie [04:25]
- 02.Nature Boy [04:27]
- 03.Melancholy Baby [05:11]
- 04.Night In Tunisia [04:28](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55EC9741E1B3F8386F6A482D6878736DDCE4FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355477   (335349) от 30.10.2020
-
-Smokin' Joe Kubek & Bnois King - 16 Albums (1991 - 2015) [FLAC|Lossless|tracks + .cue|image + .cue] <Texas Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smokin' Joe Kubek (30 ноября 1956 - 11 октября 2015) был американским техасским блюзовым электрогитаристом, автором песен и исполнителем. Bnois King (родился 21 января 1943 года)  - техасский блюзовый и джазовый гитарист, вокалист и композитор. Он чаще всего играл на гитаре и ритм-гитаре и выступал в качестве основного вокалиста и автора песен для Smokin' Joe Kubek (   Читать дальше...   )Список альбомов:
-1991 - The Axe Man
-1991 - Steppin' Out Texas Style
-1992 - Chain Smokin' Texas StyleЖанр: Texas Blues, Blues RockПродолжительность: 12:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570B93AE2356B27DC4649BA6C4B0263198DE01C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

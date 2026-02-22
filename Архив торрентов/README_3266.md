@@ -1,3 +1,32 @@
+###  Публикация: 1318220   (496669) от 05.08.2019
+
+VA - Billegal Beats Vol.0 (2019) Billegal Beats [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Glitch, Leftfield, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aethek - Slowly But Surely (06:14)
+ 02. Mr. Bill - Feeble (04:06)
+ 03. The Flashbulb - Petiole (04:13)
+ 04. Boxcutter - On The Grid (Remix) (02:44)(   Читать дальше...   )Жанр: IDM, Experimental, Glitch, Leftfield, AmbientПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0C8686B60F1A6A7EBA930EE9FAF465B6327138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318292   (496663) от 05.08.2019
 
 Q-Dir 7.73 + Portable [Multi/Ru]
@@ -645,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A876A457E87A30DBF255419BFEBE0A095A94F6D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318354   (496592) от 05.08.2019
-
-FireAlpaca 2.1.21 Repack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496592.jpg" />
-</div>
-
-
-###  Подробнее
-
-FireAlpaca - это достаточно простой, но удобный графический редактор для преобразования изображений, фотографий и любых других картинок. Здесь нет каких-то продвинутых или специфических функций, но базовый набор инструментов позволяет быстро и легко редактировать нужные изображения.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95F4CB1707F05C0A036F762E6D9ECA209C981BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

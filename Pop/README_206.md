@@ -1,3 +1,119 @@
+###  Публикация: 1250361   (426769) от 27.09.2018
+
+Cher - Dancing Queen (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dancing Queen
+2. Gimme! Gimme! Gimme! (A Man After Midnight)
+3. The Name of the Game
+4. SOS(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC56C166601723B8677E786B4150AAA8061C5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064576   (426236) от 20.10.2016
+
+Rebecca Ferguson - Superwoman (2016) [MP3|320 Kbps] <Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bones   (03:49) 
+02. Mistress   (03:19) 
+03. Hold Me   (04:28) 
+04. Superwoman   (03:34) (   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F15A9023536F621BCC9DA4AC7DBB6A3503AD92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064462   (426234) от 20.10.2016
+
+Alicia Witt - Revisionary History (2015) [FLAC|Lossless|tracks + .cue] <Adult Alternative, Piano Pop Rock, Singer/Songwriter>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friend
+02. About Me
+03. Already Gone
+04. Down (featuring T.O.N.E-z)(   Читать дальше...   )Жанр: Adult Alternative, Piano Pop Rock, Singer/SongwriterПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244325E2EEA02FE656367E87E3701C138AF4DAAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064478   (426228) от 20.10.2016
+
+Ben Folds - So There (2015) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Chamber Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capable of Anything
+02. Not a Fan
+03. So There
+04. Long Way To Go(   Читать дальше...   )Жанр: Alternative Pop, Chamber PopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94548429848E65EC7C567EBEB08AF9238EBCF4DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064654   (425558) от 20.10.2016
 
 VA - BRAVO Hits 95 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
@@ -631,122 +747,6 @@ Tony Rallo And The Midnite Band - Burnin' Alive (1979) LP [MP3|320 Kbps] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B6674D2F0CA517C5E63B5345C8F38CAFAB856D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250876   (422650) от 29.09.2018
-
-Technique - Michael Angelo (1983) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can We Try Again (3:47)
-02. Movie Star (5:36)
-03. Time Is Of The Essence (3:42)
-04. Now And Then (3:33)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACBBE3E24355FA29184B1769955B83A19572242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250832   (422641) от 29.09.2018
-
-Tim Maia - Disco Club (1978) Reissue CD, Atlantic, 2018 [MP3|320 Kbps] <Disco, Funk/Soul, MPB>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Fim De Voltar (4:07)
-02. Acenda O Farol (3:12)
-03. Sossego (3:44)
-04. Vitoria Regia Estou Contigo E Nao Abro (2:17)(   Читать дальше...   )Жанр: Disco, Funk/Soul, MPBПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA62BC34D075C51A3674858A6D133A052051A29A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947015   (422563) от 15.10.2015
-
-Julio Iglesias - Mexico (2015) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Usted
-02. Jurame
-03. Ella
-04. Fallaste Corazon(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505B61DD873DEE50A50D69A954582572CF3D7520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411647   (422511) от 27.09.2020
-
-Юрий Антонов - Коллекция. 3 альбома (1996) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Folk>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз содержит альбомы, переизданные студией СОЮЗ в 1996 году. Весь тираж произведён в Швеции. Первое издание этих альбомов было выпущено студией Jeff Records в 1993 году и произведено в Екатеринбурге.Список альбомов:
-1996 - Несёт меня течение
-1996 - Зеркало
-1996 - Лунная дорожкаЖанр: Pop, Pop Rock, Folk, World & CountryПродолжительность: 02:21:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90A1A502585877B6A6C293974C7AB8ED0BE5D5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

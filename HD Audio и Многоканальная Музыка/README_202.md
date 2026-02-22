@@ -1,3 +1,177 @@
+###  Публикация: 1796825   (66915) от 12.05.2025
+
+Kurt Deimer - And So it Begins (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dance (3:47)
+02.  Naive (3:19)
+03.  Burn Together (4:17)
+04.  Back of the School (3:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B65035C1FAA0BF9D1C129C708A47241FB17EAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796822   (66913) от 12.05.2025
+
+Mezcaleros - No Way Back (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Overdose (4:18)
+02.  Fallin' Down (4:54)
+03.  She is Gone (4:13)
+04.  Mojave Desert Storm (5:50)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E71F4B13A5807CB8E0B151524E34E6ED9FAB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796832   (66911) от 12.05.2025
+
+Tad Robinson - Soul In Blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Keep It In The Vault (4:47)
+02.  Out Of Sight and Out Of Mind (5:15)
+03.  Somewhere There's A Train (3:52)
+04.  (I'm) Down to My Last Heartbreak (3:50)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487BEECFC05AB1AE0AD457BCD48C47006ED3B086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796836   (66910) от 12.05.2025
+
+The Smoke Kings - Where Are Your Demons? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Running out of Time (2:23)
+02.  Powercopter (3:39)
+03.  Thanx No My Friend (3:39)
+04.  Right Under Leftovers (3:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6880CE505EC8C3B8841FA7ACBA86947B1FF28630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796742   (66894) от 13.05.2025
+
+Thin Lizzy - The Acoustic Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Hard-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Nature Said (Acoustic Version) (3:54)
+02. A Song For While I'm Away (Acoustic Version) (5:05)
+03. Eire (Acoustic Version) (4:19)
+04. Slow Blues (E.B / Acoustic Version) (5:17)(   Читать дальше...   )Жанр: Rock, Hard-RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14DF86674DA43B72CD006B95BACFAB550E1AA15C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796741   (66891) от 13.05.2025
+
+The Kooks - Never-Know (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt. Rock, Indie-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Know (2:55)
+02. Sunny Baby (3:19)
+03. All Over The World (3:37)
+04. If They Could Only Know (3:13)(   Читать дальше...   )Жанр: Alt. Rock, Indie-RockПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708D30C141E18EB7D5ED937B7C6592FE459187E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796737   (66889) от 13.05.2025
 
 Little Feat - Strike Up The Band (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock, Southern Rock, Blues Rock>
@@ -567,179 +741,6 @@ Downward - Downward 2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C618A7613C19D20729AC970CCA7D9CD41ED1DD1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797667   (66703) от 18.05.2025
-
-Rapture (Finland) - Studio Albums (3 releases) (1999-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rapture - группа, сформированная в 1997 году в Хельсинки, Финляндия.1999 - Futile
-2002 - Songs For The Withering
-2005 - Silent StageЖанр: Melodic Doom/Death MetalПродолжительность: 02:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33AC90CE2D3C5759B32AE4B79066FAB043136A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797666   (66696) от 19.05.2025
-
-Nomy - Dreams And Lies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams and Lies [00:03:50]
-02. Saviour [00:03:42]
-03. House of Diane [00:04:22]
-04. Scream [00:03:23](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEFED1606413FACC7A25977B6A7A293671B2BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797767   (66682) от 19.05.2025
-
-Sheila E. - Bailar (2024) Deluxe, 2025, Sony Music Latin [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Salsa>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anacaona [00:04:14]
-02. Bailar [00:04:37]
-03. Bemba Colorá [00:05:05]
-04. El Rey del Timbal [00:04:40](   Читать дальше...   )Жанр: SalsaПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75EA372F47E56586238AD520305A8CCDE3564DFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797972   (66676) от 19.05.2025
-
-Ballet Mecanico - Primera Secuencia (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Italo Disco, Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66676.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. No cedere (4:14)
-2. Rosa era inocente (3:31)
-3. Mascarilla (4:09)
-4. Como la ultima vez (3:44)(   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F7A70D5B1698C56083561634F3805F89F9B8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797996   (66674) от 19.05.2025
-
-Giant - Stand And Deliver (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Not Right (04:12)
- 02. A Night To Remember (04:13)
- 03. Hold The Night (03:57)
- 04. I Will Believe (04:00)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D473ABE42F95058CF640F1F4A232EFABAF85E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797966   (66673) от 19.05.2025
-
-Manowar - Kings of Metal (1988) [DSD128|Lossless|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66673.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Wheels Of Fire
-A2. Kings Of Metal
-A3. Heart Of Steel
-A4. Sting Of The Bumblebee(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF917A4B48A2FE7DD100AF9766E85FC2B3E9B06
 ```
 
 https://mybot314.ru/tekegram_catalog/

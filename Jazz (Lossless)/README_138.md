@@ -1,3 +1,32 @@
+###  Публикация: 1225962   (658046) от 18.05.2018
+
+Takao Uematsu - Straight Ahead (1977) 2010, Art Union [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Fire [07:50]
+02. Mysterious Jump [08:32]
+03. Fancy Free [02:34]
+04. Afro Blue [05:17](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B426FCD83321F01C8A9C75124BF1160A247AE2B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903380   (657986) от 31.05.2015
 
 Joyce Elaine Yuille - Welcome to My World (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
@@ -728,35 +757,6 @@ Red Holloway - Coast To Coast (2003) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDB572E200BF5256ABE0D55FD4655106BCFEEA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140673   (654989) от 07.06.2017
-
-Trio Hein Van Der Gaag - To The Point (1986) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ecaroh [04:35]
-02. The More I See You [09:24]
-03. Lament For Edda [05:26]
-04. Blues For Carla [05:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E27CD182D79231AE76AB509C11DC4D0A1897FEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

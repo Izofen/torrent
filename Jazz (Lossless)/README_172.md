@@ -1,3 +1,32 @@
+###  Публикация: 1047257   (550257) от 29.08.2016
+
+Bud Shank, Clare Fischer, Joe Pass - Brasamba! (1962) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Brasamba [03:55]
+ 02.Otem A Note [04:06]
+ 03.Autumn Leaves [04:04]
+ 04.Sambinha [03:41](   Читать дальше...   )Жанр: Bossa Nova, Cool, Latin JazzПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADAA94035FB7E05BC079BA0C215B07D82755F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047126   (550096) от 29.08.2016
 
 VA - The Very Best Jazz Instrumentals (3 CD Box Set) (2015) [FLAC|Lossless|image + .cue] <Jazz>
@@ -722,35 +751,6 @@ Johnny "Hammond" Smith - Opus De Funk (1961) 2004, Prestige[FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FED2D9CA2A1F15D7B33F3A410C19F68149D6E041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048639   (546582) от 02.09.2016
-
-Halie Loren & Matt Treder - Many times, many ways (2008) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Christmas Song
-02. Winter Wonderland
-03. Blue Holiday
-04. Sugar Cookies(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC3E1B93BAF24B02A022E8E595E4792916FE725
 ```
 
 https://mybot314.ru/tekegram_catalog/

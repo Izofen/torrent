@@ -1,3 +1,90 @@
+###  Публикация: 1200717   (349832) от 06.10.2019
+
+Big Daddy Kinsey & The Kinsey Report - 9 Albums (1985 - 1998) [FLAC|Lossless|tracks + .cue] <Funky Blues Rock, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lester J. Kinsey Jr. (18 марта 1927 года - 3 апреля 2001 года), известный как Big Daddy Kinsey, отец Donald, Ralph и Kenneth Kinsey. Естественным и очевидным будет объединение в единую тему альбомов Big Daddy Kinsey и The Kinsey Report, тем более на всех релизах отца сыновья принимали непосредственное участие. Big Daddy Kinsey представляет последнюю миграционную (   Читать дальше...   )Список альбомов:
+1985 - Bad Situation
+1987 - Edge Of The City
+1989 - Midnight Drive(   Читать дальше...   )Жанр: Funky Blues Rock, Chicago BluesПродолжительность: 07:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7C40B878117DD57F6F1F4D07AA288BEF976F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953202   (349659) от 04.11.2015
+
+Roy Ayers - West Coast Vibes (1963) /2011, EMI Music/[FLAC|tracks+.cue]<Straight-Ahead Jazz, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sound And Sense [06:42]
+ 02.Days Of Wine And Roses [03:35]
+ 03.Reggie Of Chester [03:48]
+ 04.It Could Happen To You [03:15](   Читать дальше...   )Жанр: Straight-Ahead Jazz, Soul JazzПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5963BB2BB159975B8E4FBDE019B070B26E44F6D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179499   (349443) от 31.10.2017
+
+Claudio Roditi - Double Standards (1997) Reservoir [FLAC|Lossless|tracks + .cue] <Latin Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reservoir Samba [07:03]
+02. A Felicidade [07:31]
+03. Bye Bye Blackbird [08:13]
+04. Desafinado [05:08](   Читать дальше...   )Жанр: Latin Jazz, Jazz FusionПродолжительность: 01:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58FE5B9C3C1927886CC2597D4FA2BF296B78B586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418353   (349417) от 24.10.2020
 
 Eric Dolphy Septet with Donald Byrd - Paris '64 (2018) Hi Hat [FLAC|Lossless|tracks + .cue] <Hard Bop, Avant-Garde Jazz>
@@ -662,93 +749,6 @@ The Sportin' Lifers - Cigars, Billiards, Lunches (2015) [OGG| 479-544 кб/с]<B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95A44FAEB4ABD98DDE85D350F60E1FE7A48B130A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418642   (346944) от 25.10.2020
-
-J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1955) 1989, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Devil Moon [3:38]
-02. Jay [3:43]
-03. Time After Time [3:54]
-04. Too Marvelous for Words [4:07](   Читать дальше...   )Жанр: BopПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68644FC117C8B63A838C9FF7DC97EE75E2BD22C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418640   (346942) от 25.10.2020
-
-J.J. Johnson - The Eminent Jay Jay Johnson, Vol.1 (1953) 1989, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capri (alternate take) [3:51]
-02. Capri [3:42]
-03. Lover Man [3:57]
-04. Turnpike [4:22](   Читать дальше...   )Жанр: BopПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72FC120986611BED3BCE99C43F4F1F68477BE99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953524   (346712) от 05.11.2015
-
-Black Cat Bone - Growl (2015) [MP3|320 кб/с]<Blues Rock, Dirty Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growl
-02. Move On
-03. Remiss
-04. Punks And Pushers(   Читать дальше...   )Жанр: Blues Rock, Dirty BluesПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83813DF21E41C399BB79C72F0C05F37CE896FE15
 ```
 
 https://mybot314.ru/tekegram_catalog/

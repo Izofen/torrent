@@ -1,3 +1,29 @@
+###  Публикация: 1487588   (1003257) от 06.08.2021
+
+CartoonArt - Cartoonizer 1.5 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая программа для конвертации своих снимков в мультяшном стиле, на основе готовых пресетов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F78ED31834F360572D2B5B6614A24F85308EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487592   (1003256) от 06.08.2021
 
 IObit Smart Defrag Pro 7.1.0.71 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -668,35 +694,6 @@ VA - Chillout And Ambient Pieces (2012) [FLAC|Lossless|WEB-DL|tracks] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F898D3E643ED624E0DE5DFA837AE070A6716C137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350702   (1002975) от 07.01.2020
-
-VA - Chill Me Softly (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Psychill, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AuroraX - Limitless (feat. Milena) (06:20)
-02. Cabeiri - Undivided Substance (07:13)
-03. E-Mantra - Sublime Part II (05:56)
-04. Kliment & AuroraX - Wake up Forest (09:34)(   Читать дальше...   )Жанр: Chillout, Psychill, DowntempoПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AC61057627A78C341E547A87F35A0018C6355FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,102 +1,3 @@
-###  Публикация: 593578   (134194) от 25.12.2012
-
-Hard Rain - Два альбома (1997 - 1999) [MP3|320 кб/с]<Melodic Hard Rock | AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  An Ordinary Day
-02.  Eat It Up
-03.  Lightnin' Strikes
-04.  Never Say Never
-05.  No One Can Show You The Way
-06.  Rock Me In Ya Cradle
-07.  Showtime
-08.  Step Back
-09.  Talks Like A Lady
-10.  When The Good Times Come(   Читать дальше...   )Жанр: Melodic Hard Rock | AORПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF4F08433568583FA6CA9FE1BA6B2700701B66E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594314   (133658) от 26.12.2012
-
-Hinder - 3 альбома (2003, 2008, 2010) [MP3|320 кб/с]<Hard-rock, Alternative, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -2 Sides of Me
-02 -All American Nightmare
-03 - What Ya Gonna Do
-04 - Hey Ho
-05 - The Life
-06 - Waking Up the Devil
-07 - Red Tail Lights
-08 - Striptease
-09 - Everybody's Wrong
-10 - Put That Record OnЖанр: Hard-rock, Alternative, Post-GrungeПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25688080B2A7AEA444C40A934E766196527D742F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680885   (133399) от 01.12.2023
-
-Peter Gabriel - i/o (2023) [MP3|320 Kbps] <Art-rock, neo-folk, progressive-rock, world-music>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panopticom (Dark-Side Mix) [00:05:16]
-02. The Court (Dark-Side Mix) [00:04:20]
-03. Playing For Time (Dark-Side Mix) [00:06:18]
-04. i/o (Dark-Side Mix) [00:03:53](   Читать дальше...   )Жанр: Art-rock, neo-folk, progressive-rock, world-musicПродолжительность: 2 CD, 02:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE333510BC55210E2BAD011F71B9BAA41B563F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680222   (132707) от 03.12.2023
 
 Widespread Panic - Boone 1999 (Live) (2023) [MP3|320 Kbps] <Southern Rock, Blues-rock, Progressive-Rock>
@@ -119,35 +20,6 @@ Widespread Panic - Boone 1999 (Live) (2023) [MP3|320 Kbps] <Southern Rock, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3EDBCBA8B1A46E3F1FC12F25BDD7E6FBDB3BB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682495   (131485) от 07.12.2023
-
-Porcupine Tree - Closure / Continuation.Live (2023) [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blackest Eyes (CLOSURE_CONTINUATION.LIVE) (05:23)
- 02 - Harridan (CLOSURE_CONTINUATION.LIVE) (08:07)
- 03 - Of the New Day (CLOSURE_CONTINUATION.LIVE) (04:44)
- 04 - Rats Return (CLOSURE_CONTINUATION.LIVE) (05:16)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 02:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9586C522BC7945E17EF7B385580775361573D6F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,64 +218,6 @@ Slade - The Other Side of Slade - The 70's (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40A4468383481E5D52669FE3D8E6BA639B1E26F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683757   (128249) от 12.12.2023
-
-Off Grid - Reign Of The Architect (2023) [MP3|320 Kbps] <Progressive Rock, Classic Rock, Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Turn (03:56)
- 02. Comparisons (06:37)
- 03. Open Wide (05:15)
- 04. Flatland (04:53)(   Читать дальше...   )Жанр: Progressive Rock, Classic Rock, Alt.RockПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49267584EA2F04A250ACB6AFCCA9DC866E579CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685014   (127416) от 17.12.2023
-
-VA - Heavy Electric Guitar (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pantera - I'm Broken
-02. Stone Sour - Bombtrack
-03. Paramore - crushcrushcrush
-04. Blur - Song 2(   Читать дальше...   )Жанр: RockПродолжительность: 02:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9DFCB433C2DC7970F6DB77041DBE1709CBB971
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -778,6 +592,180 @@ Slade - 12 of Slade (2024) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:972D51C44576A9DE0B43B18F4D3692BB2C0438E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692029   (122934) от 14.01.2024
+
+The Tiger Lillies - Onepenny Opera (2022) [MP3|320 Kbps] <Indie Rock, Dark Cabaret>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 King Of The Cut-throats [00:03:32]
+02 Macky Is A Swine [00:03:44]
+03 Down With The Poor [00:02:20]
+04 Married [00:02:47](   Читать дальше...   )Жанр: Indie Rock, Dark CabaretПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36324C6671FF9912E07756C6243977C228013EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692374   (122512) от 16.01.2024
+
+To The Max! - Midnight Tea (2024) [MP3|320 Kbps] <Heavy Rock'n'Roll, Garage, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Master [00:03:37]
+02 - Speed [00:03:46]
+03 - No Matter What [00:04:08]
+04 - P.O.V [00:03:59](   Читать дальше...   )Жанр: Heavy Rock'n'Roll, Garage, Stoner, DoomПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1635BECED329FF0F947A8710B15693BD7F3170E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693211   (121868) от 20.01.2024
+
+Dolly Parton - Rockstar (2024) Deluxe [MP3|320 Kbps] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockstar (4:37)
+02. World On Fire (4:21)
+03. Every Breath You Take (4:23)
+04. Open Arms (3:17)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A92F53F93764EC77FC30157922E4B27C12A35B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693634   (121725) от 21.01.2024
+
+Slade - Rock n Roll Preachers (2024) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock 'N' Roll Preacher (Hallelujah I'm On Fire) [05:45]
+02. We're Really Gonna Raise the Roof [03:10]
+03. We'll Bring The House Down [03:31]
+04. Lock Up Your Daughters [03:29](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A97029DDA709446FE81A2761745BB3E9E56AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693919   (121519) от 22.01.2024
+
+Karfagen - Messages From Afar Second Nature (2024) [MP3|320 Kbps] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride Your Dream (3:41)
+02. Fantasion (7:25)
+03. November Blue (4:34)
+04. Bond Of Love (Expanded Version) (7:02)(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5F1C7637C0ADD02B82BE5D64D2E951EEF3E502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693863   (120979) от 25.01.2024
+
+Garbage - Garbage (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Supervixen
+02.  Queer
+03.  Ony Happy When It Rains
+04.  As Heaven Is Wide(   Читать дальше...   )Жанр: Rock, Pop, Alternative Rock, Pop RockПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E93347E0E592EDFF58F88658737E54ED2BE27AAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

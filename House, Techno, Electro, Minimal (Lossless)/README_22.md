@@ -1,3 +1,61 @@
+###  Публикация: 1208027   (780298) от 20.02.2018
+
+Schwefelgelb - Den Umgekehrten Atem (2017) Fleisch [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Im Wasser (04:42)
+ 02. Das Armellose Hemd (05:32)
+ 03. Stillhalten (05:59)
+ 04. Um Meine Haut (05:34)Жанр: Techno, Electro, IndustrialПродолжительность: 00:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4407FC220F134324528604A283D319FEA29AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208325   (780128) от 21.02.2018
+
+John Shima - Elements Unknown (2017) FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elements (08:27)
+ 02. Symbols (07:15)
+ 03. Implant (07:17)
+ 04. Illuminate (07:24)Жанр: Electro, IDM, TechnoПродолжительность: 00:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421DD4CBB53312BED78054C89BD42CFAEE35FC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208186   (780119) от 21.02.2018
 
 The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Lossless|tracks] <Techno, Ambient, IDM>
@@ -681,64 +739,6 @@ Prince of Denmark - 8 (2016) Forum [FLAC|Lossless|Vinyl|tracks] <Dub Techno, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7974F3034B5F6304FFAA3401B874F0A2464E2D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277978   (774319) от 23.01.2019
-
-Ness - Moving Through Illusions (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Darkly Sunset In Barcelona (06:51)
- 02. In The Meanderings Of Shibuya (06:03)
- 03. The Moon In Montreal (07:27)
- 04. The Mist In Cherni Vrah (05:57)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40791219EF4A8E0EF82D85D0B4F1A43CF1388B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213186   (773356) от 15.03.2018
-
-Scam. - Reminiscence (2018) Monolith Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reminiscence (03:49)
- 02. Gears (05:51)
- 03. Lichtende (06:17)
- 04. Scorch (05:36)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F422EBDA6B92EB4CDB655C4F8A25771D4C1B3C48
 ```
 
 https://mybot314.ru/tekegram_catalog/

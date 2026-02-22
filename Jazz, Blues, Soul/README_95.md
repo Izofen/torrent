@@ -1,3 +1,90 @@
+###  Публикация: 993493   (895682) от 05.03.2016
+
+Jazz Funk Soul (Chuck Loeb, Everette Harp, Jeff Lorber) - More Serious Business (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Thing
+02. Connections
+03. Tuesday Swings
+04. Fall Departs(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EB4D6AEA5E605A7C3201089FC24F0C4E62EA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993542   (895675) от 05.03.2016
+
+OneFloorDown - Unraveled (2011) [FLAC|Lossless|image + .cue] <Nu Jazz, Smoth Jazz, Jazz Funk Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unraveled Side (Live) (5:23)
+02. KOKOmotion (3:56)
+03. Bali Dreams (4:50)
+04. Jilly Juliet (4:04)(   Читать дальше...   )Жанр: Nu Jazz, Smoth Jazz, Jazz Funk LoungeПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB2AAE88777E8113C00A4092DE765449D257614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993661   (895667) от 05.03.2016
+
+VA - Vintage Dream: Best of Vintage Jazz, Bebop & Electro Swing (2016) [MP3|320 кб/с] <Jazz, Swing Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Potter - Willy Wonky (02:28)
+02. Hillary Thaddeus - Catalina Ballroom (03:05)
+03. Homer Greencastle - I Like a Uniformed Soldier (02:26)
+04. Mike Potter - Kitty's Swing (01:39)(   Читать дальше...   )Производство: Machiavelli RecordsЖанр: Jazz, Swing JazzПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFAC4465122A8B1C03D115AF11C3FEDC631839A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493448   (895588) от 03.09.2021
 
 Harry Allen & Dave Blenkhorn - Under A Blanket Of Blue (2020) GAC Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -774,99 +861,6 @@ Louis Armstrong - 15 альбомов (2 CD) (1932-1994) [MP3|160 кб/с]<Blues
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295061   (894379) от 14.02.2011
-
-James Brown - Sex Machine - The Very Best Of (1991) [APE|Lossless]<Soul, Funk, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Please Please Please (2:47)
-02. Think (2:48)
-03. Night Train (3:34)
-04. Out Of Sight (2:26)
-05. Papa's Got A Brand New Bag (Part 1) (2:09)
-06. I Got You (I Feel Good) (2:49)
-07. It's A Man's Man's Man's World (2:50)
-08. Cold Sweat (2:54)
-09. Say It Loud, I'm Black And I'm Proud (Part 1) (2:49)
-10. Get Up (I Feel Like Being A Sex Machine) (5:19)(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993884   (894341) от 06.03.2016
-
-Andrew Hill - Grass Roots (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Grass Roots [05:42]
- 02.Venture Inward [04:46]
- 03.Mira [06:20]
- 04.Soul Special [08:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B49245230C4D1B7FE85B7294AE1AB3395393C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993791   (894321) от 06.03.2016
-
-Charles Lloyd - Wild Man Dance (2015) Blue Note Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Flying Over The Odra Valley [11:00]
- 02.Gardner [08:12]
- 03.Lark [13:21]
- 04.River [16:08](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12A04D61DAD0FDD65526417640CA15C12FAF117
 ```
 
 https://mybot314.ru/tekegram_catalog/

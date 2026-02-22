@@ -1,3 +1,29 @@
+###  Публикация: 1493286   (897700) от 02.09.2021
+
+Filmage Screen-Screen Recorder 1.3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filmage Screen Recorder - это универсальное программное обеспечение для записи экрана и редактирования видеофайла, позволяющее создавать потрясающие видео.  Recorder прост в использовании, интуитивно понятен, легкий и стабильный. С помощью этой последовательности на Mac вы можете создать новую запись экрана. Запишите и сделайте снимок экрана Mac, или создайте новый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.08.2021Разработчик: Filmage Screen-Screen RecorderПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Упрощенный китайский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2AF58B4787CF90589D134C084F017C572A42F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493209   (897686) от 02.09.2021
 
 SSH Config Editor Pro 2.3.1 [En]
@@ -683,32 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EBA6CD8731DD2871BCDB87314C7DAE88E9AE89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761106   (897483) от 27.02.2014
-
-Google Nik Software Complete Collection 2013 1.1.1.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Nik Collection — это наиболее полная коллекция плагинов от одного из лучших производителей плагинов для Adobe Photoshop. Complete Collection включает в себя полный набор плагинов для Adobe Photoshop®, Lightroom® and Aperture® including: Dfine® , Viveza® , HDR Efex Pro™, Color Efex Pro™, Silver Efex Pro™and Sharpener Pro™ . С помощью этих плагинов вы сможете (   Читать дальше...   )Язык интерфейса: Русский, English и пр.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63342FD807B214C2A5A57B81476B4F83D440C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

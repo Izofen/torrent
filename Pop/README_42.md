@@ -1,3 +1,116 @@
+###  Публикация: 983090   (943784) от 06.02.2016
+
+Zayn - Pillowtalk (2016) Single [MP3|320 кб/с] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PILLOWTALK (03:24)Жанр: Pop, R&BПродолжительность: 00:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956B4F88460E237F62AB33D53D9D4CBC30BD8E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363294   (943761) от 27.02.2020
+
+Do Piano - Again & Forever (2009) [FLAC|Lossless|image + .cue] <Italo-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Again (Single Version) (4:43)
+02. All The Time (Single Version) (4:34)
+03. This Angel (Single Version) (4:15)
+04. Encore (Single Version) (4:44)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E577D7ECBE8FC28584ED82A8D657609B90C080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363263   (943755) от 27.02.2020
+
+Света - Сердце моё (2009) [MP3|320 Kbps] <Pop, Downtempo, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не говори (03:10)
+02. Сердце моё (04:12)
+03. Рига (03:08)
+04. Тайна (03:47)(   Читать дальше...   )Жанр: Pop, Downtempo, EuropopПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA2342BC7EFB921E8C62BE5D09E9F4EEBD26A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363288   (943752) от 27.02.2020
+
+Екатерина Разумовская - Остановка сердца (2005) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Остановка сердца
+02. О тебе, для тебя
+03. Наша история
+04. Кричи шёпотом(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F245DDEB55A5C84936D7B9F9EE8FEABBA05578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983283   (943729) от 06.02.2016
 
 Monica Naranjo - Lubna (2016) [FLAC|Lossless|tracks + .cue] <Latin,  Rock, Classical>
@@ -628,122 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CC31A4BE5CC053E1BC2F85BA9E750AD667610E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363677   (940931) от 29.02.2020
-
-СтеклоVата - Острожно - хрупкое (2003) [MP3|320 Kbps] <Europop, Novelty, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Февральский снег [03:34]
-02. 31 и 13 [03:59]
-03. Дневник [04:50]
-04. Кошка-луна [05:19](   Читать дальше...   )Жанр: Europop, Novelty, ChansonПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D940EC898A5DA425A1BA350168B8595D3CF250AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363610   (940930) от 29.02.2020
-
-Лариса Черникова - Солнечный город (1999) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:42)
-02. Я Шура, ребёнок нежный (Original version) (3:07)
-03. Посмотри в мои глаза (4:30)
-04. Вспоминать и не надо (3:53)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A441985EB73066D86EFFC67A596BE3EEF91E1AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363678   (940929) от 29.02.2020
-
-СтеклоVата - Спецшкола (2006) [MP3|320 Kbps] <Europop, Novelty, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. И всё-таки он ждёт [4:10]
-02. Спецшкола [4:04]
-03. Красные птицы [4:52]
-04. Школа жизни [5:13](   Читать дальше...   )Жанр: Europop, Novelty, ChansonПродолжительность: 01:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3355F91AEE4A2450AFCA8076DB860B239DD11ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363649   (940853) от 29.02.2020
-
-Каролина - Русские звезды (2004) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Летний дискобар 2003 (3:11)
-02. Не надо слез (3:56)
-03. Звездный вечер (4:05)
-04. Феличита (3:04)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83EFC5DD6728884599BC206E9F52793709FBCE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

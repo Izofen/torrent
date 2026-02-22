@@ -1,3 +1,32 @@
+###  Публикация: 1042310   (579688) от 12.08.2016
+
+VA - Who's Afraid Of 138?! Top 15 2016-08 (2016) [MP3|320 Kbps] <Trance,  Uplifting Trance, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gareth Emery & Ben Gold  -  Until We Meet Again (Ben Nicky Remix)  3:48
+02. Chris Bekker & Chris Montana & Paul Van Dyk  -  Berlinition (Paul Van Dyk Club Mix)  3:15
+03. Ben Gold & Ruben De Ronde  -  Era Festivus (Mhammed El Alami Remix)  3:51
+04. Vini Vici & Bryan Kearney  -  We Are The Creators  3:34(   Читать дальше...   )Жанр: Trance,  Uplifting Trance, ProgressiveПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003D05B48BF9D242813C21E26DAD42928270321E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042184   (579686) от 12.08.2016
 
 VA - Summer Vibes Vol.5 (2016) [MP3|320 Kbps] <Trance,  Progressive>
@@ -708,35 +737,6 @@ VA - Progressive Goa Vol.9 - Compiled By Audiomatic (2016) [MP3|320 Kbps] <Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD16EC3172F698F472FCB30404E63200B2420D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042312   (579539) от 12.08.2016
-
-Atomizers - Zero Point Field (2016) [MP3|320 Kbps] <Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindfullness (07:06)
-02. Zero Point Field (06:17)
-03. Trance State (07:58)
-04. Observer Effect (07:06)(   Читать дальше...   )Жанр: PsytranceПродолжительность: 00:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37277DD510826C05EECF6E75B4E2892AD4097644
 ```
 
 https://mybot314.ru/tekegram_catalog/

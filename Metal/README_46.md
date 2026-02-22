@@ -1,3 +1,32 @@
+###  Публикация: 1280600   (760538) от 03.02.2019
+
+Ancient Bards - Origine (The Black Crystal Sword Saga Part 2) (2019) Japanese Edition [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760538.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:15] 01 - Origine
+[5:41] 02 - Impious Dystopia
+[4:51] 03 - Fantasy's Wings
+[5:42] 04 - Aureum Legacy(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1D0271DEE195CB6EE5EA475B19B8856AD5E0E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394709   (760516) от 07.07.2020
 
 Moonlight Haze - Lunaris (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal, Female Vocal>
@@ -716,35 +745,6 @@ Katatonia - The Fall of Hearts (2016) [MP3|320 кб/с] <Gothic Metal, Doom Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9020F5068CC13A60B1510A8AE7CE42CFEFF4E7D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395469   (755585) от 10.07.2020
-
-Seventh Sign From Heaven - The Woman And The Dragon (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stayed in the Dark (03:20)
- 02. Rise (03:17)
- 03. The Devil Fears Your Name (04:22)
- 04. The Woman and the Dragon (04:20)(   Читать дальше...   )Жанр: Heavy Metal,  Power MetalПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1075EE085B97422FDCDCED3CDA1273C6B11064
 ```
 
 https://mybot314.ru/tekegram_catalog/

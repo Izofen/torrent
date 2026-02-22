@@ -1,3 +1,38 @@
+###  Публикация: 520662   (631591) от 09.07.2012
+
+VA - Танцевальный клубный заряд (2012) [MP3|256-320 кб/с]<Pop,Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631591.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tiesto - What Can We Do (A Deeper Love) (6:26)
+2. Michael Mind Project - Rio de Janeiro (3:15)
+3. Dj Jim & Dj Tarantino - Arabian Theme (electro mix) (5:38)
+4. UCast - Barracuda (original mix) (7:42)
+5. Nova Scotia feat. Jenny Johnston - Kaliedoscope Skies (Club Edit) (3:58)
+6. Настя Любимова - I See You (DJ Solovey Remix) (Radio Edit) (3:54)
+7. Алишер - Море (3:58)
+8. Dancefloor Devils - Moments (Radio Edit) (3:02)
+9. Sebastian Ingrosso & Alesso - Calling (Original Instrumental Mix) (5:38)
+10. Dash Berlin feat. Emma Hewitt - Disarm Yourself (Shibbybangs vs. R-Boy Bangleg Mix) (4:51)Жанр: Pop,Dance, ClubПродолжительность: 07:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA16022E62A234282077954837FD9CAFAA06104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520524   (631588) от 09.07.2012
 
 VA - Отдыхай с хитами Europa Plus (2012) [MP3|256 кб/с]<Pop>
@@ -770,35 +805,6 @@ VA - Charme de la France Vol.01-10 (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B59D2AFD8B7BA0772A32E38A66002016B1C24800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543883   (625661) от 13.04.2022
-
-VA - Pop Sauce (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Harry Styles - As It Was (2:45)
-002. Leah Kate - 10 Things I Hate About You (2:43)
-003. EMELINE - cinderella's dead (2:00)
-004. BoyWithUke, blackbear - IDGAF (2:26)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07367D9029A14BB8616EBEFB12F4E03ECB464F94
 ```
 
 https://mybot314.ru/tekegram_catalog/

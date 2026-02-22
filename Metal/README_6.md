@@ -1,3 +1,32 @@
+###  Публикация: 1468262   (1017281) от 07.05.2021
+
+Diamante - 2 Albums (2018-2021) [MP3|320 Kbps] <Alt.Metal, Modern Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Dream [00:03:05]
+02. Ghost Myself [00:03:12]
+03. Serves You Right [00:03:34]
+04. Obvious [00:03:42](   Читать дальше...   )Жанр: Alt.Metal, Modern Rock, Female VocalПродолжительность: 2CD, 01:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C9705AC7BF5B3213E1A382239DAC86941BE18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468406   (1017257) от 07.05.2021
 
 Darko US - 2 Albums (2020-2021) [MP3|320 Kbps] <Progressive Metalcore>
@@ -715,35 +744,6 @@ Fear Factory - Aggression Continuum (2021) [MP3|320 Kbps] <Industrial Groove Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D620DEA039A5F5B7CEAD317EBBF80E1401F61065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478056   (1010698) от 17.06.2021
-
-Hacktivist - Hyperdialect (2021) [MP3|320 Kbps] <Rap-Metal, Progressive Metal. Djent>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anti Emcees [00:04:56]
-02. Luminosity [00:03:16]
-03. Lifeform [00:04:43]
-04. Armoured Core (feat. Kid Bookie) [00:04:07](   Читать дальше...   )Жанр: Rap-Metal, Progressive Metal. DjentПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073CFBD9F15FB2AAB290297765F08EF4E78F1AC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

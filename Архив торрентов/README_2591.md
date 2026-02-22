@@ -1,3 +1,29 @@
+###  Публикация: 518028   (641536) от 04.07.2012
+
+Textures - 4 альбома (2003-2011) [MP3|320 kbps] <Progressive Death Metal / Groove Metal / Math Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Года выпуска: 2003-2011Жанр: Progressive Death Metal / Groove Metal / Math MetalПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48D8F898AF0297524FF9CDEB11EE4A86FBBBCE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518772   (641535) от 04.07.2012
 
 [Wallpapers 16+] Wallpapers Sexy Girls Pack (04.07.12)
@@ -699,32 +725,6 @@ Ken Taylor Artwork
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F52503B43276CF9F6F7A66C9748C2687A242EEEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906890   (641459) от 10.06.2015
-
-F-Secure Freedome 1.0.1517.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изменяйте свое виртуальное местоположение с помощью F-Secure Freedome VPN — перенеситесь хоть в другое полушарие. Это полезно, когда хочется получить самое лучшее подключение, добавить дополнительный уровень безопасности или воспользоваться любимыми службами, когда вы далеко от дома. Позвольте Freedome подключить вас к ближайшему серверу F-Secure Cloud или сами выберите (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A36717228EC1C06FED7D0D4DA502522E91E3EAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

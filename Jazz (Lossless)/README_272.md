@@ -1,32 +1,3 @@
-###  Публикация: 1577302   (238910) от 18.09.2022
-
-The Charlie Rouse Band - Cinnamon Flower (1977) 1987, Rykodisc [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backwoods Echo [5:14]
-02. Disenchantment [3:53]
-03. A New Dawn [5:49]
-04. Quiet Pictures [3:41](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2400B9F21A2A5A9840647CD125F697C67028C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440119   (238831) от 16.01.2021
 
 Oscar Peterson - Great Connection (1971) 2005, Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -745,6 +716,35 @@ James Moody - 1948 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3B6E4A62E5514ADB7D890CA70EC0C583AA1E470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581668   (237934) от 07.10.2022
+
+Diego Rivera - Indigenous (2019) 2021, Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marabi [4:22]
+02. Indigenous [5:31]
+03. The Secret Life of Plants [5:05]
+04. Sombras del Pasado [4:04](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A6CBF187E09CFA7E48A42EEACE313CEB4B34EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 299641   (876150) от 24.02.2011
+
+Darkest Hour - The Human Romance (2011) [FLAC|Lossless]<Metalcore/Melodic Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+[01:16] 01.  - Terra Nocturnus
+[03:52] 02.  - The World Engulfed in Flames
+[03:48] 03.  - Savor the Kill
+[03:44] 04.  - Man & Swine
+[04:00] 05.  - Love as a Weapon
+[02:47] 06.  - Your Everyday Disaster
+[02:21] 07.  - Violent by Nature
+[03:47] 08.  - Purgatory
+[03:28] 09.  - Severed into Separates
+[03:45] 10.  - Wound(   Читать дальше...)Жанр: Metalcore/Melodic Death MetalПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 300261   (876147) от 24.02.2011
 
 Теневой партнер / Silent Partner (2005) SATRip
@@ -686,36 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65FBBE63EF56489F9896102CD22AC858A6BCE2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871782   (876055) от 24.02.2015
-
-Fail Emotions - Renaissance (Part 1) (2014) [MP3|256 кб/с]<Trancecore/Post-Hardcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1 - Intro - Energy Of Sun (2:38)
-2 - Timeviewers (4:25)
-3 - Runaway (4:42)
-4 - Reflection (4:59)
-5 - Stepster (Fatal FE Edit) (4:38)(   Читать дальше...   )Жанр: Trancecore/Post-HardcoreПродолжительность: 00:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD0BB3E48729A6E90B90FFB6FC2D14475D2D3B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

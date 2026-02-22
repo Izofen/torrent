@@ -1,3 +1,32 @@
+###  Публикация: 1139224   (661204) от 01.06.2017
+
+Tale Of Us - Endless (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Definizione Dell-impossibile (04:28)
+ 02. Alle Sera (06:28)
+ 03. Ricordi (07:20)
+ 04. Qltre La Vita (08:01)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 01:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B994F2C7ABAD8F68CDF184186990703C064FA57B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139280   (661202) от 01.06.2017
 
 Ashampoo WinOptimizer 15.00.02 Portable by punsh [Ru/En]
@@ -661,34 +690,6 @@ Magicka — сатирическая приключенческая игра, д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:488A2849E89C3370CCA45C3E860AA7FCC67A57CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139297   (661003) от 01.06.2017
-
-Airmail 3.3.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
-
-По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 мая 2017Разработчик: Bloop S.R.LПоддерживаемая ОС: Mac OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B537AC387FC68FF6DCED1EEEBA707809850D0D18
 ```
 
 https://mybot314.ru/tekegram_catalog/

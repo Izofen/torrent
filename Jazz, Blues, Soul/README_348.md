@@ -1,3 +1,96 @@
+###  Публикация: 1172171   (394097) от 07.10.2017
+
+VA - Disney Adventures in Bossa Nova (2009) Disney [FLAC|Lossless|tracks + .cue] <Bossa Nova, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Valle - Cruela Cruel [02:55]
+02. Joice - Hi-Ho [01:27]
+03. Quarteto Em Cy & MPB4 - Somente o Necessario [02:23]
+04. Bana Lobo - Aqui No Mar [04:17](   Читать дальше...   )Жанр: Bossa Nova, Brazilian JazzПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CB55FEC0298603CC6946B16736C35B279B6783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172294   (393932) от 07.10.2017
+
+Snowy White and The White Flames - Reunited (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have I Got Blues For You (05:03)
+02. Headful Of Blues (06:37)
+03. I've Heard It All Before (04:17)
+04. Where Will You Belong (04:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33100DDE95DEEEFB12CEE5D23024F6C953DEA46D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568747   (393685) от 01.11.2012
+
+Diana Krall - Glad Rag Doll (Deluxe Edition) (2012) [FLAC|Lossless]<Jazz / Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_393685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Just Couldn't Say Goodbye (3:07)
+02. There Ain't No Sweet Man That's Worth The Salt Of My Tears (4:30)
+03. Just Like A Butterfly That's Caught In The Rain (3:43)
+04. You Know - I Know Ev'rything's Made For Love (3:47)
+05. Glad Rag Doll (4:34)
+06. I'm A Little Mixed Up (4:37)
+07. Prairie Lullaby (4:22)
+08. Here Lies Love (5:09)
+09. I Used To Love You But It's All Over Now (2:50)
+10. Let It Rain (5:44)(   Читать дальше...   )Жанр: Jazz / VocalПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172454   (393249) от 08.10.2017
 
 Art Taylor - Taylor's Wailers (1957) 2013, Analogue Productions [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -691,93 +784,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067494   (387928) от 29.10.2016
-
-Fred Hersch - Plays Rodgers & Hammerstein (1996) Nonesuch[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Cock-Eyed Optimist [05:23]
- 02.No Other Love [04:47]
- 03.Loneliness of Evening [05:42]
- 04.It Might as Well Be Spring [06:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE5BD9B5E2094016C08FF903F15937B0C12AB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067496   (387924) от 29.10.2016
-
-Slide Hampton - Explosion! The Sound Of Slide Hampton (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Revival [02:27]
- 02.Maria [02:24]
- 03.Delilah [04:00]
- 04.Begin The Beguine [02:34](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEDD18D8BB868A1688717DB0FAD31F3A22E062F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067489   (387923) от 29.10.2016
-
-Nat King Cole - Crazy Rhythm! Live 1947-1948 (1947-1948) 1991, Vintage Jazz Classics[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Opening Theme: Straighten Up And Fly Right [01:12]
- 02.Sunday [01:35]
- 03.Wildroot Cream Oil Commercial [00:54]
- 04.Wildroot Charlie [01:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C50B48BBA1150F6FF5A293D02687F46E53D1CD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

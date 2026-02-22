@@ -1,3 +1,116 @@
+###  Публикация: 1506582   (799497) от 01.11.2021
+
+VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sassydee - Disturbia (4:00)
+02. Countdown Singers - Monster Mash (3:15)
+03. Countdown Singers - Ghostbusters Theme (4:07)
+04. Detroit Soul Sensation - Superstition (3:30)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 02:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7018D77EBA5BB74BDA1A4C9A9B4C4622EBBA3697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506756   (799492) от 01.11.2021
+
+Milano 84 - Monochromatic (2021) [MP3|320 Kbps] <Italo-Disco, Italo-Pop, Nu-Italo>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fanatic (Extended Version) (feat. Vanessa Elly) (5:21)
+02. Suspiria on TV (feat. Eleonora Cardellini & Gianluca Divirgilio) (4:32)
+03. Awesome (feat. Killme Alice) (3:48)
+04. Play (feat. Laura Serra) (4:30)(   Читать дальше...   )Жанр: Italo-Disco, Italo-Pop, Nu-ItaloПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9277A62E809885BA287410E2A635B72FCDC29EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506762   (799485) от 01.11.2021
+
+Milano 84 - Monochromatic (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italo-Pop, Nu-Italo>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milano 84 feat. Vanessa Elly - FanaticЖанр: Italo-Disco, Italo-Pop, Nu-ItaloПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9C2926943DD1A5B1A512D2BB112DF2D06BCC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506586   (799482) от 01.11.2021
+
+VA - Retro Halloween 2021 (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockwell - Somebody's Watching Me (3:55)
+02. Rick James - Super Freak (3:23)
+03. Aqua - Halloween (3:49)
+04. Oingo Boingo - Dead Man's Party (6:17)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 01:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3E9F3664C62DB37675B6551221EE9E02F8947B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506585   (799481) от 01.11.2021
 
 VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
@@ -629,122 +742,6 @@ MARUV - No Name (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:865691CA74C096316782AD38FD14A38126A9E20E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507860   (798078) от 06.11.2021
-
-Amanda Lear - 25 Albums (1977-2021) 9LP & 16 CD Collection [MP3|320 Kbps] <Electronic, Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аманда Лир, родилась в Гонконге - французская поп-певица, актриса и модель. В 1970-1980-е годы Лир была популярной исполнительницей в жанре диско. Позже приобрела известность как художница. С середины 1970-х по начало 1980-х она была королевой дискотеки, продававшей миллионы альбомов, в основном в континентальной Европе и Скандинавии с компанией Ariola Records. Первые (   Читать дальше...   )Список альбомов:
-1977 - I Am A Photograph
-1978 - Sweet Revenge
-1979 - Never Trust A Pretty Face(   Читать дальше...   )Жанр: Electronic, Disco, EuropopПродолжительность: 18:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD35223422056A36C4437489085682343D1F4B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508252   (797944) от 07.11.2021
-
-VA - Золото дискотек, Vol. 2 (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haddaway - What Is Love (4:30)
-02. Nina - The Reason Is You (3:58)
-03. Sin with Sebastian - Shut up (And Sleep with Me) (3:46)
-04. Londonbeat - I've Been Thinking About You (3:50)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 02:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F49BB117C804DCCC68D5CB1F5B8CCEE0483ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508250   (797943) от 07.11.2021
-
-VA - Золото дискотек, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. President - Coco Jambo (3:40)
-02. Joy - Touch by Touch (3:47)
-03. Linda Jo Rizzo - You're My First, You're My Last (5:42)
-04. Gala - Freed from Desire (3:35)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 02:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31285241E99A92DF57D3B0D01FD159415A84303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385363   (797798) от 24.05.2020
-
-Татьяна Абрамова - Письмо (1995) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Анатолий
-02 - Гребешок
-03 - Мой, мой, мой
-04 - Письмо(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8EF4042CC40BAF2465E0F7903036A7145AFDED
 ```
 
 https://mybot314.ru/tekegram_catalog/

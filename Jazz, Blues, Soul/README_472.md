@@ -1,3 +1,32 @@
+###  Публикация: 1666566   (178901) от 05.10.2023
+
+Zucchero - Blue's (1987) [MP3|320 Kbps] <Blues, Pop>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue's Introduction [00:15]
+02. Con Le Mani [04:43]
+03. Pippo [04:44]
+04. Dune Mosse [05:32](   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93102286572F0EC25FF02E95F76E3AF2AB435CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666707   (178888) от 05.10.2023
 
 Joe Bonamassa - Blues Deluxe Vol. 2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues rock>
@@ -716,35 +745,6 @@ Joe Louis Walker, известный также как JLW - американс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:420B94FDF13E1D6E03256512A091CFBD00E10500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429147   (177710) от 05.12.2020
-
-Bud Powell - Birdland (1953) 3CD, 2013, ESP Disk' [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177710.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Theme: Lullaby of Birdland/Announcer Introduction [0:50]
-02. Tea for Two [5:38]
-03. It Could Happen to You [3:34](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 02:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C61D9F3A18361D989F2C987660F7916232C6217
 ```
 
 https://mybot314.ru/tekegram_catalog/

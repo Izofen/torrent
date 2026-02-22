@@ -1,3 +1,87 @@
+###  Публикация: 158571   (160718) от 06.11.2023
+
+Аида Ведищева - Где-то на белом свете (2002) [APE|Lossless] <Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Где-то на белом свете (Песенка о медведях) (2:55)
+ 02. Дорожная (2:31)
+ 03. Черный кофе (2:15)
+ 04. Помоги мне (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8727C2ADC2E8AACA4AB94002200F2F63BB420B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185527   (160711) от 06.11.2023
+
+Группа Стаса Намина 'Цветы' - Ностальгия по настоящему. Юбилейный концерт с участием гостей (2005) [FLAC (image+.cue)|Lossless]<ВИА, Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВИА, Советская эстрадаПродолжительность: 02:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BB951AF557CC5F4EB4151EFEAABA95EBD018AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674661   (160646) от 07.11.2023
+
+VA - Hit News Vol. 8 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superfly - Is It Love
+02. Two Boys - Calling For Affection
+03. Essono - I Can't Understand
+04. Twenty 4 Seven - Keep On Goin'(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C810E63242815CDF924C294C2D7D63A22F567F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674876   (160641) от 07.11.2023
 
 VA - Party Tracks (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electronic>
@@ -658,93 +742,6 @@ Atomic Kitten - Right Now (2001) [FLAC|Lossless|tracks + .cue] <Europop, Synth-p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17DE2CD5A4341B059C79C145F21BF447174396A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967328   (158684) от 20.12.2015
-
-Анита Цой - Без вещей (2015) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Береги меня
-02. История одной подписи
-03. Без вещей
-04. Лето. Латте. Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76552D281DA13BE415B2ED867905DC9D39947380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966983   (158626) от 20.12.2015
-
-Taylor Swift - Fearless (2008) Reissue, Platinum Edition, 2010, BIG Machine Records [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump Then Fall (03:59)
-02. Untouchable (05:12)
-03. Forever & Always (Piano Version) (04:29)
-04. Come In With The Rain (03:59)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC2D789CAE736012B4F34DC16053374116675CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967272   (158591) от 20.12.2015
-
-VA - Хит-парад 70-х. Выпуск 2 (1998) [MP3|320 кб/с] <Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весёлые ребята - Отчего
-02. Цветы - Честно говоря
-03. Ариэль - Зимы и вёсны
-04. Лейся, песня - Не знаю, что и думать(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 01:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B865D9582296682B9FBE1FB1C35ECBCF9AE0BFFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

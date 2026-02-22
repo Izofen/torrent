@@ -1,32 +1,3 @@
-###  Публикация: 429373   (266615) от 29.12.2011
-
-Nicki Parrott - Moon River (2008) [FLAC|Lossless]<Mainstream Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon River (4:03)
-02. Is You Is Or Is You Ain't My Baby? (4:09)
-03. Say It Isn't So (3:22)
-04. You'd Be So Nice To Come Home To (3:41)(   Читать дальше...   )Жанр: Mainstream Jazz, Vocal JazzПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190963   (266037) от 11.12.2017
 
 Billy Eckstine And His Orchestra - Mr. B (1962) 1998, Ember Records [FLAC|Lossless|image + .cue] <Bop, Big Band, Vocal Jazz>
@@ -745,6 +716,35 @@ Pat Martino - Formidable (2017) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83FE94969D7E7D0B3F6CE06397EB234307F4B625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191364   (264520) от 13.12.2017
+
+Milt Jackson - Goodbye (1974) 2017, CTI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detour ahead [08:01]
+02. Goodbye [09:23]
+03. Old devil moon [05:51]
+04. SKJ [06:48](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22157C6629520769C614A5EE4B5C0CC1098F01D
 ```
 
 https://mybot314.ru/tekegram_catalog/

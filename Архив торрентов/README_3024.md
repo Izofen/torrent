@@ -1,3 +1,31 @@
+###  Публикация: 1047009   (550888) от 28.08.2016
+
+Microsoft OneDrive 17.3.6517.0809 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft OneDrive (ранее SkyDrive) - настольный клиент для аккаунта OneDrive, предназначенного для онлайн хранения, синхронизации и обмена файлами в Интернете.
+Вместе с аккаунтом OneDrive вам будет доступно 15 ГБ онлайн-хранилища бесплатно. Вы сможете расширить пространство за годовую подписку (1 ТБ доступен подписчикам Office 365).
+При установке клиента на компьютере (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BEF088745DE2CF4D143792D5485E060DC95787D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046782   (550884) от 28.08.2016
 
 Лапочка 3 / Honey 3: Dare to Dance (2016) Blu-ray [H.264/1080p]
@@ -653,35 +681,6 @@ Kosmonavt - Escape From The Earth (2016) IMMINENT [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35099C76FAEE7A57760EECEE5A055362B106440C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 815924   (550610) от 25.08.2014
-
-AGYA - ANEMOΣ (2014) [FLAC|Lossless|WEB-DL]<Industrial, IDM, Experimental, Power Noise>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hal (4:49)
- 02. Giggle (4:27)
- 03. Jaws (4:12)
- 04. Is That You? (4:52)(   Читать дальше...   )Жанр: Industrial, IDM, Experimental, Power NoiseПродолжительность: 01:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12169C9020574F67EDE576B05BEB815B79F8683
 ```
 
 https://mybot314.ru/tekegram_catalog/

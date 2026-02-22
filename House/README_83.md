@@ -1,3 +1,90 @@
+###  Публикация: 1693228   (121863) от 20.01.2024
+
+VA - Deep & Melodic House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vicent Ballester, The Nurk & Dave Baron - Thinking About You (Moe Turk Remix) (05:35)
+02. Hiss Band & U.R.A. - Let It Shine (Ballester Remix) (03:34)
+03. Soulshade, Jaytor & Elodia - Touch The Sky (Sharapov Remix) (05:02)
+04. Sharapov - Story (Alexander Hristov Remix) (04:59)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82916F963D0EF4127B55BB2A330457EBD88675D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693627   (121735) от 21.01.2024
+
+VA - Festival Sounds 2024 by Kontor (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121735.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bennett - Vois Sur Ton Chemin (Techno Mix) (02:58)
+002. Neptunica; Jasper Forks; Alex Christensen - River Flows In You (02:33)
+003. Kyanu; Keanu Silva; Ninkid - O Fortuna (02:36)
+004. Le Shuuk - Alegria (03:32)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 06:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3138BD5D140713C0AB9AC14E9D208C4813959DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693489   (121729) от 21.01.2024
+
+VA - Winter Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tury & Pawoh - Sunshine (02:01)
+02. Acnatro - Dear Brother (04:26)
+03. VOLB3X - Run Away (03:56)
+04. Ozan Ozalp - Deeper (02:58)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A987B9A026F34E14BFEEE2503FE5D7B8EB07BB85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823199   (121563) от 10.10.2025
 
 VA - Black Hole House Music 10-25 (2025) [MP3|320 Kbps] <House, Progressive House>
@@ -653,93 +740,6 @@ VA - Miami Vibes (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5528C23C36CABC7E978D563467584B38C8DF3F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713549   (111836) от 07.04.2024
-
-VA - Spring Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nickobella & N@OM1 - Let Me Know (02:40)
-02. Luwian - In The Morning (02:53)
-03. ODENN & Onur Enfal - Lost (03:12)
-04. Sinan Gümüş & Zahdiel - Motive (02:54)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7102B790CB360E5CADE112D95270AFFC8EBD70FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713564   (111830) от 07.04.2024
-
-VA - Relaxing House & Dance Music (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sharapov - Bring Me Back (Mant Deep Remix) (05:00)
-02. CHARZZ - Better (03:39)
-03. Raffa Maru - On My Mind (05:38)
-04. Gianmarco Staccone DJ - Feel The Love (04:05)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA90C75D912C7692EC81EA8C0D744C8C1520C1AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715301   (111600) от 11.04.2024
-
-VA - Timeless Ibiza 2024 [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dabeat & Kamilo Sanclemente - Canis (Morttagua Remix) (8:07)
-02. Morttagua & Gaby Endo - Urania (Original Mix) (7:12)
-03. Stylo & Space Motion - The Last Siren (Original Mix) (7:06)
-04. Cherry (UA) & Groove Shack - Silhouettes Of Time (Extended Mix) (6:35)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 07:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5708F8C5B1AD4DF79E1682B1BEE1B799EFDA5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

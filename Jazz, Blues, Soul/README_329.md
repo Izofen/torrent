@@ -1,3 +1,90 @@
+###  Публикация: 1248815   (439831) от 21.09.2018
+
+Nina Simone - The Colpix Singles (1959 - 1964) 2CD, 2018, Stateside [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439831.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Chilly Winds Don't Blow [2:46]
+02. Solitaire [3:24]
+03. Children Go Where I Send You [2:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D272B6C09FC617D388BE0A1B89CD82EC06BAE2A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164622   (439050) от 10.09.2017
+
+Bobby Flurie - Hole In The Ozone (2008) [FLAC|Lossless|image + .cue] <Blues Rock, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hole in the Ozone   (04:07) 
+02.  The Cry   (03:21) 
+03.  Evening in Paradise   (03:19) 
+04.  So Right   (02:54) (   Читать дальше...   )Жанр: Blues Rock, InstrumentalПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBB136AB545CABA66D1E1B8E76352B534F2974D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164673   (438927) от 10.09.2017
+
+George Thorogood - Party Of One (2017) [FLAC|Lossless|image + .cue] <Blues, Blues rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438927.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I’m a Steady Rollin’ Man
+2. Soft Spot
+3. Tallahassee Women
+4. Wang Dang Doodle(   Читать дальше...   )Жанр: Blues, Blues rockПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A09FAD666B490B76A6984404923CEF167B4807AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410140   (438633) от 20.09.2020
 
 Sidney Bechet - The Best of Sidney Bechet (1939 - 1953) 1994, Blue Note Records [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
@@ -659,93 +746,6 @@ Joel Weiskopf - Change in My Life (2002) Criss Cross Jazz [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCEBDD7CEC337DC3A70899C49649C18F89445CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165082   (437397) от 11.09.2017
-
-Johan Clement Trio - Some Over Time (2014) Johan Clement [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can See [07:08]
-02. The 2 Lonely People [06:45]
-03. This is for Albert [04:58]
-04. Time Remembered [05:24](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C4EB614A1559363E30673D92B7C33E3527C6174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164764   (437395) от 11.09.2017
-
-Cecil Taylor - Silent Tongues (1974) 1988, Freedom [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abyss, Petals & Filaments, Jitney [18:24]
-02. Crossing [18:41]
-03. After All [09:52]
-04. Jitney No.2 [04:12](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741F91F68C0E66265B6C223C78F2A3F691B8D31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165083   (437394) от 11.09.2017
-
-The Dutch Swing College Band - Stompin' The Hits (1989) LaserLight [FLAC|Lossless|tracks + .cue] <Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad, Bad Leroy Brown [02:59]
-02. Can't Buy Me Love [03:38]
-03. Georgia [04:55]
-04. Hello Mary Lou [02:47](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88328BDBF9057823A5F4C80D84D8A3C6959C674B
 ```
 
 https://mybot314.ru/tekegram_catalog/

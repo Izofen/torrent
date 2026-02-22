@@ -1,3 +1,32 @@
+###  Публикация: 1276624   (788191) от 16.01.2019
+
+Trigg & Gusset - Adagio For The Blue (2015) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Jazz, Contemporary Classical>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intimate (5:56)
+02. Cook (5:53)
+03. Madagascar (4:03)
+04. Vanishing Gold (3:41)(   Читать дальше...   )Производство: Preserved Sound - PS30Жанр: Ambient, Doom Jazz, Dark Jazz, Jazz Noir, Contemporary Classical, ExperimentalПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708FA0397B1A91B05D47042204CAE5DEF66C4936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276462   (788189) от 16.01.2019
 
 Pale Moon 28.3.0 + Portable [Ru/En]
@@ -667,32 +696,6 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1513B0A44D738FEF9BB3DAD59544FD343ECA1C46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203443   (788047) от 02.02.2018
-
-Zoom Player MAX 14.1 Build 1410 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zoom Player 14 - наиболее мощный, гибкий и настраиваемый DVD/Blu-ray и медиа плеер для операционных систем Windows. Проигрывает DIVX, MP3, MPA, WAV, WMA, ASF, ASX, AVI, DAT, MPG, MPEG, VOB, WM, WMV. Поддерживает плейлисты, управление горячими клавишами и из командной строки, полноэкранный режим работы, маcштабирование широкоэкранного фильма для удаления полос снизу (   Читать дальше...   )Язык интерфейса: Русский, английский, украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50D3BC1EF7DF016C1B7B05C4EC2DAD863D5D741
 ```
 
 https://mybot314.ru/tekegram_catalog/

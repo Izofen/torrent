@@ -1,3 +1,32 @@
+###  Публикация: 974916   (974475) от 13.01.2016
+
+My Dear Addiction - Kill the Silence (2016) [MP3|320 кб/с] <Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kill the Silence
+02. A Promise
+03. Winners
+04. Beautiful(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783CB8199EC04D186ADB7551AEB0F7AD17A00D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616927   (974182) от 11.02.2013
 
 Tierra Santa - Mi Nombre Sera Leyenda (2013) [MP3|320 кб/с]<Heavy Metal, Power Metal>
@@ -794,39 +823,6 @@ Suffocation - Pinnacle of Bedlam (2013) [MP3|320 кб/с]<Technical Brutal Death
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37AE9E550D90E3603DCCA24CB4B24F70087F6203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745232   (969576) от 13.01.2014
-
-Skydancer - Land Of The Grim (2013) [MP3|320 кб/с]<Melodic Death Metal \ Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Swamp Tomb [00:05:16]
-02 - Ancares [00:05:00]
-03 - Ancestral Lands [00:04:37]
-04 - L'Even [00:02:14]
-05 - The Ferryman [00:03:57]
-06 - O Paso Do Tempo [00:03:34]
-07 - The Galician Exile [00:05:10]
-08 - Lembranza [00:01:32]Жанр: Melodic Death Metal \ Thrash MetalПродолжительность: 00:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87044D26A32B1EFDD12CBAFA3C5ACC53C1563695
 ```
 
 https://mybot314.ru/tekegram_catalog/

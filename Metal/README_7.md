@@ -1,3 +1,32 @@
+###  Публикация: 1478056   (1010698) от 17.06.2021
+
+Hacktivist - Hyperdialect (2021) [MP3|320 Kbps] <Rap-Metal, Progressive Metal. Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anti Emcees [00:04:56]
+02. Luminosity [00:03:16]
+03. Lifeform [00:04:43]
+04. Armoured Core (feat. Kid Bookie) [00:04:07](   Читать дальше...   )Жанр: Rap-Metal, Progressive Metal. DjentПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073CFBD9F15FB2AAB290297765F08EF4E78F1AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478067   (1010695) от 17.06.2021
 
 Warrel Dane - Praises To The War Machine (2021) Extended Edition [MP3|320 Kbps] <Progressive, Groove Metal>
@@ -717,35 +746,6 @@ The Mixgrape - Berried Alive (2021) [MP3|320 Kbps] <Progressive Metal, Math Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80B6E4D5DFEB01859632CAFC92F826FA57CCB717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 813343   (1005023) от 28.07.2021
-
-Slipknot - Официальная Дискография (1996-2019) [MP3|320 кб/с] <Alternative Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005023.jpg" />
-</div>
-
-
-###  Подробнее
-
-1996 - Mate.Feed.Kill.Repeat. (Demo-Album)
-1999 - Slipknot (US Original Edition)
-1999 - Slipknot (Japanese Edition)
-2000 - Wait And Bleed (CDS)(   Читать дальше...   )Жанр: Alternative Metal, Nu-MetalПродолжительность: 25:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4952EA50EB492676A4F307E2E638019CCDB67CCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

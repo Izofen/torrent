@@ -1,3 +1,32 @@
+###  Публикация: 1355835   (981154) от 28.01.2020
+
+Louis Armstrong - African Dreams 1960 - 1962 (2000) 2CD, Milan [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981154.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - African Dreams:
+01. That's My Home [4:58]
+02. Struttin' with Some Barbecue [5:52]
+03. Jazz Me Blues [5:23](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, Vocal JazzПродолжительность: 01:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E6F7986F14CD505DC1CC4DDDC8B2C3E40B05EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355984   (981110) от 28.01.2020
 
 Billie Holiday - The Essential Collection, 2CD (2007)  [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -751,35 +780,6 @@ Bobby Timmons - Soul Time (1960) 2004, Planet[FLAC|tracks+.cue] <Hard Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35B741D71A67EC297C084AEB763EEA22DD71D47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973712   (979314) от 09.01.2016
-
-Miles Davis - Water Babies (1967-1968) 2002, Columbia[FLAC|tracks+.cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Water Babies [05:08]
- 02.Capricorn [08:30]
- 03.Sweet Pea [08:03]
- 04.Two Faced [18:03](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D6CA72A9B55C500BD738269DD2F2FED02C7E8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

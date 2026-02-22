@@ -1,3 +1,90 @@
+###  Публикация: 1121744   (799664) от 03.04.2017
+
+Blues Engine - The Quick And The Dirty (2015) [MP3|320 Kbps] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway Blues (03:10)
+02. Empty Pocket (02:57)
+03. For A Breath I Tarry (04:26)
+04. Danse Macabre (03:21)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6552AAC4746CF10F8E9F6FAAB1815010FEEB83E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121915   (799653) от 03.04.2017
+
+VA - Lovers Night Smoothe and Soft Jazz Music for Romantic Evening (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romantic Evening Jazz Club - Lovers Night
+02. Sensual Lounge Music Universe - Smoothe Jazz for Lovers
+03. Sensual & Romantic Piano Jazz Universe - Sexual Jazz Lounge
+04. Together Forever Club - Me, You and Jazz(   Читать дальше...   )Жанр: JazzПродолжительность: 01:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3735D9D3E6BFEF26156FCF73044E489F34CFF992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385335   (799611) от 24.05.2020
+
+Oscar Peterson & Clark Terry 1975 (1994) Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On A Slow Boat To China [4:25]
+02. But Beautiful [4:44]
+03. Shaw 'Nuff [4:29]
+04. Satin Doll [7:13](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0BC54AA37FE9BE9720F99319CC76776132FD08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506675   (799458) от 01.11.2021
 
 Vincent Herring, Bobby Watson, Gary Bartz - Bird at 100 (2019) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -658,93 +745,6 @@ Aldo Romano - Threesome (2004) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91069904F52CB29CFCB40A62DA8D1174AE67CC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273892   (798779) от 04.01.2019
-
-Johnny Frigo - Summer Me!: Live at Battle Ground (1986 - 1997) 2008, Log Cabin Records [FLAC|Lossless|image + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quando, Quando, Quando [4:26]
-02. The Song Is You [5:15]
-03. Polka Dots and Moonbeams [4:25]
-04. Czardas [4:19](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72681D539205A13B685345986C8EDAFCA4DA5FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507205   (798749) от 03.11.2021
-
-Howlin' Wolf - The London Howlin' Wolf Sessions (1989) [FLAC|Lossless|tracks + .cue]<Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' Daddy
-02. I Ain't Superstitious
-03. Sittin' On Top Of The World
-04. Worried About My Baby(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC204EA3DF759918F4D5917357E637C32BE0C6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507374   (798472) от 04.11.2021
-
-Ella Fitzgerald - Milestones Of A Jazz Legend: Sings The Songbooks (1956 - 1959) 10CD, 2021, The Intense Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798472.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 -  Sings The Cole Porter Song Book, Vol.1:
-01. All Through The Night [3:19]
-02. Anything Goes [3:24]
-03. Miss Otis Regrets [3:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 09:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5456D5E29604C83A0EA157FDBEB6057F2370E231
 ```
 
 https://mybot314.ru/tekegram_catalog/

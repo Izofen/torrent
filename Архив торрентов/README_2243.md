@@ -1,3 +1,32 @@
+###  Публикация: 1285592   (721193) от 26.02.2019
+
+Creme De La Creme - Bitte Hau Mich Nicht (1997) EP [FLAC|Lossless|tracks + .cue] <Hip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creme de la Creme (der Anfang) (2:03)
+ 02. Der Professor (4:21)
+ 03. Wie rockt die Creme? (4:27)
+ 04. Bitte hau mich nicht (3:11)(   Читать дальше...   )Жанр: Hip HopПродолжительность: 00:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539981A20DB4B0A3201C9442E74086C5632C0818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400301   (721183) от 04.08.2020
 
 Text Editor Pro 9.5.0 + Portable [Multi/Ru]
@@ -649,32 +678,6 @@ RapidWeaver отлично подойдет тем, кто ищет ПО для 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32C47DE5C7A3EF0795F3F1A05934E2928C4E5A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285443   (721084) от 26.02.2019
-
-Keep It 1.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 25.02.2019Разработчик: Reinvented SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Арабский и Иврит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6064BAAEF4BA7AB6E20ACE486C76E31ED055DD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

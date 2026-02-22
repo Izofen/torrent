@@ -1,3 +1,32 @@
+###  Публикация: 1302728   (579330) от 17.05.2019
+
+Rhye - Spirit (2019) [FLAC|Lossless|WEB-DL|tracks] <Sophisti-Pop, Indie-Pop, RnB, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579330.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dark (01:27)
+2. Needed (05:18)
+3. Malibu Nights (01:55)
+4. Patience (feat. Ólafur Arnalds) (04:14)(   Читать дальше...   )Жанр: Sophisti-Pop, Indie-Pop, RnB, DowntempoПродолжительность: 00:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8CB446A815156884A2DEAB54986BAFF16BAE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302763   (579329) от 17.05.2019
 
 Chromeo - Head Over Heels (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Nu-Disco, Synth-pop>
@@ -725,36 +754,6 @@ Lana Del Rey - Lust For Life (2017) [FLAC|Lossless|Web-DL|tracks] <Indie Pop, Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E92AB40B66B3BB0F53A6CD28BDB62AFA38BF0A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 813499   (567255) от 16.08.2014
-
-VA - Girls! Girls! Girls! The Best of Burlesque & Striptease Music vol. 1-2 (2008, 2013) [FLAC|Lossless]<Pop, Jazz, Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые большие проблемы были с тем, в какой раздел поместить этот рип. Рекомендованный для определения жанра AllMusic выдал Pop/Rock. ITunes не долго думая предложил R&B/Soul, Music. Своим же умом я понимаю, что эти два диска очень близки к Jazz&Swing.
-Думаю, что это не главное. А главное, что эта коллекция винтажной стрип-музыки, которая звучала на ставших (   Читать дальше...   )01. Introduction  (0:17)
-02. Three  For The Show  (3:26)
-03. A Pretty Girl Is Like A Melody  (3:17)
-04. Night Train  (3:21)(   Читать дальше...   )Жанр: Pop, Jazz, SwingПродолжительность: 01:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155C6487F47C14F17F257A996E5FDD2A10CFCDC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

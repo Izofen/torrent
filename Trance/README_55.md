@@ -1,3 +1,32 @@
+###  Публикация: 1690045   (124168) от 05.01.2024
+
+VA - Silent Shore Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EDU BRAVO - Run Without Fear (Extended Mix) [6:07]
+02. Alexey Mushkin - Wherever You Are (Extended Mix) [7:43]
+03. Virtuan - Magenta (Extended Mix) [7:05]
+04. ReMech & Ryota Arai - Hong Kong (Extended Mix) [6:05](   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7901A99D5751B5C7D36B7B8DD9ED870F3B4E650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690031   (124166) от 05.01.2024
 
 VA - Redux Selection Vol. 1 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -716,35 +745,6 @@ VA - A State of Trance 2024 - DESTINATION (The Official Album) (2024) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DDB6C1C4EA63F649BBA45C90524F03C31FFB72F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697616   (118772) от 07.02.2024
-
-VA - Top 10 January 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LR Uplift - Yesterday's Rain (Extended Mix) [9:07]
-02. Elissandro - Awakening (Original Mix) [7:12]
-03. Grande Piano vs. Iberian vs. Calvin O'Commor - The Silent Cannons (DreamSkies Mashup) [5:47]
-04. Victor Special & Milosh K - Just Believe (André Wildenhues Remix) [8:16](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E45205892A80C6F6BE8FA9BF5F1BEE72215E279
 ```
 
 https://mybot314.ru/tekegram_catalog/

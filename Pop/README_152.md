@@ -1,3 +1,119 @@
+###  Публикация: 1296976   (606798) от 20.04.2019
+
+Everything but the Girl - Amplified Heart (1994) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rollercoaster (03:13)
+02. Troubled Mind (03:34)
+03. I Don't Understand Anything (04:25)
+04. Walking To You (03:30)(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAA33F9764D12BC175C11E1B0EBE636E21C9BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297180   (606680) от 20.04.2019
+
+VA - Eurovision Song Contest Tel Aviv (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Jonida Maliqi - Ktheju tokes (Albania)
+02 Srbuk  - Walking Out (Armenia)
+03 Paenga - Limits (Austria)
+04 Kate Miller-Heidke - Zero Gravity (Australia)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824AA0B5AA9DDB24169801433819A5E926E4CE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297158   (606678) от 20.04.2019
+
+VA - ZYX Italo Disco Spacesynth Collection 5 (2019) [MP3|320 Kbps] <Italo-Disco, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606678.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Laserdance — Trans Space Express 05:59
+02.Italove — At The Disco (Bellatrix Dub Space Remix) 06:09
+03.Victor Ark — Lost In Time 05:08(   Читать дальше...   )Жанр: Italo-Disco, Synth-PopПродолжительность: 02:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F25584CD23972A6BCF3403FEC975882B1963ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546504   (606273) от 24.04.2022
+
+VA - DMC Dance Mixes 291 Pop (2021) [MP3|320 Kbps] <House, Dance-pop, Drum n Bass, Progressive House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diana Ross - If The World Just Danced (Moti Extended)
+02. Dj Z - Finally (Extended)
+03. Ed Sheeran - Shivers (Alok Extended Remix)
+04. Fucou - Lie Machine (Extended)(   Читать дальше...   )Жанр: House, Dance-pop, Drum n Bass, Progressive HouseПродолжительность: 01:19:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6168D4F8FA563687CEB07252E8EFADCFAD8553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546511   (606270) от 24.04.2022
 
 VA - DMC Dance Mixes 291 Dubs (2021) [MP3|320 Kbps] <Electronic, Dubstep, Dance, Nu-Disco>
@@ -640,122 +756,6 @@ Bananarama - In Stereo (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B755F23979392C13570B9F8D9F5E470D276BD45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297320   (604053) от 22.04.2019
-
-Bananarama - In Stereo (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604053.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love in Stereo (03:53)
-2. Dance Music (04:03)
-3. I'm on Fire (03:33)
-4. Intoxicated (04:06)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5D83D24F1B78F3055479694B906B8AA53287E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297503   (604047) от 22.04.2019
-
-VA - Вечеринка у t.A.T.u. 2 (Unofficial) (2002) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. МакSим - Заведи
-02. Пропаганда - Никто (Юрий Усачев Remix)
-03. Ariana - Я уже не помню слова
-04. Никита - Безумие лета(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5ACB09D5B10FCFBACBD80ED5F62AAACF4FE447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546975   (603915) от 26.04.2022
-
-VA - ZYX Italo Disco New Generation Vol. 20 (2022) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Italoconnection - Rainbow Warrior (Feat. Tobias Bernstrup)
-02. Stockholm Nightlife Feat. Helly - Back Together Again (Cliff Wedge Extended)
-03. Suvage - Do You Want Me (Also Playable Mono ZYX Edit)
-04. Roberto Turatti - My Lover Feat. Jeffrey Jey & Chorma8 (Flemming Dalum Remix)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 2CD, 02:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FACD9F288448C05E79A8F6C02FB8E9F926E0049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148319   (603908) от 06.07.2017
-
-Kat Mandu - I Wanna Dance (1995) CD, Compilation [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Break (Remix) (8:44)
-02. Don't Stop Keep On (6:45)
-03. I Wanna Dance (6:28)
-04. Wanna Get To Know You Well (4:22)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1CBF7854410D866888CE79CCACA52AFFD5B5FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

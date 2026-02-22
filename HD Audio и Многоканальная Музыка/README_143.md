@@ -1,3 +1,177 @@
+###  Публикация: 1737952   (106419) от 20.07.2024
+
+Kenny Rogers - Greatest Hits (1984) With The First Edition Group (P) 1969 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106419.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sunshine
+A2 Goodtime Liberator
+A3 Ruben James
+A4 Always Leaving, Always Gone(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE2EB46186F4CD03851D90B98F0696ACCAF9BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738044   (106418) от 20.07.2024
+
+Falcon Trails - Coming Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fastlane (3:32)
+02. Feel (4:16)
+03. The Way We Want (4:28)
+04. Soul Satisfaction (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B871CCFAC6438DC232C9CF805763851E0B05E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737781   (106416) от 20.07.2024
+
+VA - Reunion in the Black Forest (The Sounds of MPS Vol. II) (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Monty Alexander Trio - Monticello (3:52)
+02. Baden Powell - Tristeza (3:22)
+03. Mark Murphy - Why and How (2:58)
+04. The Count Basie Orchestra - The Lady Is a Tramp (2:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514920C18CDD1FAED4E565334D15887C73AD985B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738042   (106401) от 20.07.2024
+
+Orange Goblin - Science, Not Fiction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Stoner Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fire At The Centre Of The Earth Is Mine (5:20)
+02. (Not) Rocket Science (4:21)
+03. Ascend The Negative (5:24)
+04. False Hope Diet (6:58)(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5ACF57EFB98B0C2CEA5C5791FC7C63ECA7F541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738036   (106399) от 20.07.2024
+
+Nikolo Kotzev - Nikolo Kotzev's Nostradamus - The Rock Opera (2001) Reissue, 2024, Frontiers Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock opera>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (2:59)
+02. Pieces Of A Dream (5:42)
+03. Desecration (5:39)
+04. Introduction (4:48)(   Читать дальше...   )Жанр: Rock operaПродолжительность: 01:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC723E5C799D63EDC61F9B200CA6B456C209774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737833   (106397) от 20.07.2024
+
+Nonpoint - Studio Albums (13 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nonpoint — американская рок-группа, образованная в 1997 году в городе Форт-Лодердейл, штат Флорида.1997 - Separate Yourself
+2000 - Statement
+2002 - Development
+2004 - Recoil(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 10:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE88F362409B874F713D03209FF37B07FB8206F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738066   (106367) от 21.07.2024
 
 U2 - Beautiful Day (2000) Remastered, 2024, 2024 Island Records Limited / UMC (Universal Music Catalogue) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -569,180 +743,6 @@ Ghost - Rite Here Rite Now (2024) Original Motion Picture Soundtrack [FLAC 24/48
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:034B0A6A86789A46692A3E4494492781CB8C4143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739035   (106173) от 26.07.2024
-
-Nautilus - Pacific Voyage (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get It up for Love (3:41)
-02. Georgy Porgy (4:02)
-03. Strawberry Letter 23 (4:29)
-04. I Keep Forgettin' (Every Time You're Near) (4:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2EA9A994E7E7ED277E6CFD317954EC29691F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739107   (106160) от 26.07.2024
-
-Kiss - MTV Unplugged (1996) Club Edition [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-01. Comin' Home
-02. Plaster Caster
-03. Goin' Blind(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750255A87788D8E4166172FA9B201E35ECB01E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739027   (106154) от 26.07.2024
-
-Ian BassBwoy Boyce - Evolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shades Of (3:06)
-02. Bajan Girl (4:54)
-03. Wherefore Art Thou (3:05)
-04. Moonlight Dance (3:57)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA359FEC052BA7ABBA8355440C23FF289994066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739037   (106153) от 26.07.2024
-
-Noel Evans - Abandoned Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABANDONED LOVE (6:34)
-02. COME WITH ME (3:39)
-03. I'M COMING HOME (3:41)
-04. CARRY ON (4:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB13C237C66D664A893A4FEE943C4E30794B0D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739029   (106152) от 26.07.2024
-
-Kitty Liv - Easy Tiger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Dreams (4:06)
-02. Neck On The Line (3:08)
-03. Comin' Up (3:37)
-04. Nothing On My Mind (But You Babe) (2:52)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E213A8B875B2742C9EA12C27653C29EF6E2B4EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739031   (106151) от 26.07.2024
-
-Mick Kolassa - All Kinds of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank You Memphis (2:39)
-02. Where Love Takes Me (2:52)
-03. Did You Ever Wonder (3:38)
-04. Too Old to Die Young (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1818EA20FBA528952AD96FFDD957D8B46C3C339E
 ```
 
 https://mybot314.ru/tekegram_catalog/

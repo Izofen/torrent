@@ -1,3 +1,32 @@
+###  Публикация: 1126624   (765477) от 18.04.2017
+
+VA - Club Latino (2000) приложение к журналу Stereo & Video 032 [FLAC|Lossless|image + .cue] <Latin, Pop, Mambo, Lambada, Cha-Cha>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jessica Jay - Chilly Cha Cha
+02. Gato Santos - La Gallinita
+03. Lia Crucet - La Movidita (fun dance mix)
+04. 40 - Corazon Perdio(   Читать дальше...   )Жанр: Latin, Pop, Mambo, Lambada, Cha-ChaПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80D33BA0CC1D8D9F9FD33EC6B3F90BDBBB921A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279522   (765334) от 30.01.2019
 
 TOPAZ - High Society (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Dream Pop, Alternative>
@@ -713,36 +742,6 @@ VA - Abbamania (1999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B638A5625E816E5A532C85843776BE47258A70FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281801   (749826) от 09.02.2019
-
-Dua Lipa - Dua Lipa (2017) 2018, Reissue, 2CD, Complete Edition [FLAC|Lossless|tracks + .cue] <Synth-pop, Ballad, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749826.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. Genesis (3:27)
- 02. Lost in Your Light (3:24)
- 03. Hotter Than Hell (3:10)(   Читать дальше...   )Жанр: Synth-pop, Ballad, Pop RockПродолжительность: CD1 - 00:57:07
-CD2 - 00:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE65DF8EC5A93BFB63526783F9A93EE9743D7A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

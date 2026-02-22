@@ -1,3 +1,32 @@
+###  Публикация: 1627716   (237138) от 20.04.2023
+
+VA - Silent Shore Trance: Spring (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Db Mokk - Miles Away (Original Mix) [3:23]
+02. James Kitcher - Aphrodite (Original Mix) [3:29]
+03. Virtuan - Magenta (Original Mix) [3:28]
+04. BreaKevin - Push (Original Mix) [3:41](   Читать дальше...   )Жанр: TranceПродолжительность: 01:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FC0184132C60A13E5686D9D9EEE3E03E62B1D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627717   (237123) от 20.04.2023
 
 VA - Levitated Trance: Spring (2023) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Wonderful Trance Tracks (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00A88CB71ADF5E5CB694202964ABFB6E2DA8A1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648345   (231312) от 23.07.2023
-
-VA - Uplifting Only Top 15: July 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akku - Megumi (Emotional Intro Edit) [4:41]
-02. Deme3us - Close To The Sun (Extended Mix) [5:54]
-03. Type 41 & Saphron - Moon Will Rise (Extended Mix) [8:31]
-04. Masaru Hinaiji - The Theme Of The Light (Kohta Imafuku Remix) [7:27](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C928BA299C0DDDEFD6B9FDD0B1049D766FD15E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1708540   (62237) от 21.03.2024
+
+Доктор Шлягер - То, что доктор прописал... (Песни Вячеслава Добрынина) (1990) [FLAC 24/96|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - То, что доктор прописал. (М.Рябинин)
+02 - Когда-нибудь. (С.Осиашвили)
+03 - Что скажешь - так и будет. (М.Рябинин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578F606D274EBC3C8A68FE28723E6589E60F8D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708562   (62226) от 21.03.2024
+
+Здравствуй, песня - Мы любим диско (1980) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Венера (Ван Леевен - М. Вереш)
+02-03. Огонь. Мы любим диско (А.Бедду, Л. Вандербильд)
+04. Ленивый ковбой (автор неизвестен)
+05. Я жду тебя (А. Челентано)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478A9071F84424DE6D33C5EBC3CF97A89F959DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708539   (62215) от 21.03.2024
+
+Yello - Baby (1991) 1992 [FLAC 24/192|Lossless|tracks] <Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A.
+01 - Homage To The Mountain.
+02 - Rubberbandman.
+03 - Jungle Bill.(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6FE613E3F711AC15D1E03EE2F017462ABF5828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708794   (62131) от 22.03.2024
+
+Scooter - Open Your Mind And Your Trousers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, Hard Trance, House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Thirty, Rough And Dirty
+02 – Rave & Shout (feat. Harris & Ford)
+03 – Posse Reloaded (feat. FiNCH)
+04 – Techno Is Back (feat. Harris & Ford)(   Читать дальше...   )Жанр: Techno, Hard Trance, HouseПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F4A82F6C89B84930085D79BC29EB15EAB43251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708901   (62109) от 22.03.2024
+
+Genesis - Selling England By The Pound (1973) SACD, Remastered, 2024, Analogue Productions [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dancing With The Moonlit Knight
+02 - I Know What I Like (In Your Wardrobe)
+03 - Firth Of Fifth
+04 - More Fool Me(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB092EAE230BA54224E8824490FFEF096C707D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709113   (62012) от 23.03.2024
+
+Электроклуб - Электроклуб-2 (Песни Давида Тухманова) (1989) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Темная лошадка (Л. Рубальская) — 3.15
+02. Схожу с ума — 4.40
+03. Дай мне слово — 3.35(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A889E1EFE95B4890D5CB31FF2B550A7EE1133F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709110   (62006) от 23.03.2024
 
 VA - Наутилус Помпилиус / Бригада С (1988) [FLAC 24/192|Lossless|tracks] <Rock>
@@ -571,182 +745,6 @@ Pearl Jam - Dark Matter (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01CC63D8BD4986E5B1A18D7278F64E42BB2BE43B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647037   (59085) от 20.04.2024
-
-My Dying Bride - Studio Albums (21 releases) (1991-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59085.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Dying Bride — дэт-дум-метал-группа из Англии, основанная в 1990 году.1991 - Symphonaire Infernus Et Spera Empyrium (EP)
-1992 - As The Flower Withers
-1992 - The Thrash Of Naked Limbs (EP)
-1993 - Turn Loose The SwansЖанр: Doom/Death MetalПродолжительность: 20:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847D0567323FD06FB4B96585F1D0A986E59A12B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717692   (58983) от 21.04.2024
-
-The Ghost Inside - Searching for Solace (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Melodic Metalcore, Melodic Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Going Under [3:31]
-02 - Death Grip [2:59]
-03 - Light Years [3:25]
-04 - Secret [3:08](   Читать дальше...   )Жанр: Metalcore, Melodic Metalcore, Melodic HardcoreПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D3A31E95105D146CAA9EAD32F2D1689C316B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718089   (58767) от 23.04.2024
-
-Bonnie Tyler - In Berlin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Flat on the Floor (Live in Berlin)
-02 – Hold On (Live in Berlin)
-03 – It’s a Heartache (Live in Berlin)
-04 – Seven Waves Away (Live in Berlin)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70887F04C1795619755E481BB6910ABD2853A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595443   (58683) от 24.04.2024
-
-Art Of Anarchy - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art of Anarchy — американская хард-рок супергруппа, образованная в 2011 году. В состав группы входят братья-близнецы Джон и Винс Вотта, басист Disturbed Джон Мойер, бывший гитарист Guns N 'Roses Рон «Бамблфут» Тал в качестве со-гитариста и продюсера, а с 2016 года - Скотт Стэпп, бывший вокалист Creed.
-В первом альбоме группы вокалистом был ныне покойный Скотт Вейланд, (   Читать дальше...   )2015 - Art Of Anarchy
-2017 - The Madness
-2024 - Let There Be AnarchyЖанр: Hard Rock, Post-Grunge, Heavy MetalПродолжительность: 02:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A7F4451CF54FB2D3DB77C7A603D88919FB4430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595019   (58673) от 24.04.2024
-
-Scott Stapp (Creed) - Studio Albums (4 releases) (2005-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Post-Grunge, Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scott Stapp — (урожденный Энтони Скотт Флиппен; 8 августа 1973 г.) — американский певец, наиболее известный как ведущий вокалист и автор текстов рок-группы Creed.
-Он также возглавлял группу Art of Anarchy.
-За свою работу в Creed Стэпп неоднократно награждался, в том числе Грэмми за лучшую рок-песню «With Arms Wide Open»2005 - The Great Divide
-2013 - Proof Of Life
-2019 - The Space Between The Shadows
-2024 - Higher PowerЖанр: Post-Grunge, Hard Rock, Heavy MetalПродолжительность: 02:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E40C39139F5B3CD9B537D75BB206FC49AC94BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719742   (58046) от 30.04.2024
-
-Paul Mauriat - Windy & You Don't Know Me (1986-1990) SACD, 2023, Vocalion [DST64 2.0|1bit/2822,4kHz|SACD-R] <Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windy
-01. Windy
-02. Thats What Friends Are For
-03. Nikita(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB35FE422F49D940805A9B051118BFA291114C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

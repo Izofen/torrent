@@ -1,3 +1,33 @@
+###  Публикация: 876172   (851051) от 10.03.2015
+
+Worhol - The Awakening (2015) [MP3|320 кб/с]<Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Voices from Above
+02. Bowing Before You
+03. Time to Say Goodbye
+04. Already Forgotten
+05. Rage and Revenge(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2637164ED2451AB1D0C50923F95BE311362EAC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001957   (850299) от 30.03.2016
 
 Judas Priest - Battle Cry (2016) Live / Bootleg [MP3|320 кб/с] <Heavy Metal>
@@ -713,35 +743,6 @@ Grimner - Frost Mot Eld (2016) [MP3|320 кб/с] <Folk Metal, Viking Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3BFF75F6B480F7E2118422CC23EAFF547F01C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004257   (840310) от 05.04.2016
-
-Confined By Yesterday - Blackmirrors (2016) [MP3|320 кб/с]<Deathcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840310.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:06] 01. The Hunt Is On
-[03:56] 02. Parting
-[04:24] 03. Three Words
-[04:45] 04. Redemption(   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D80C2025B0C631BC5B337DB4CF6C46982AC58E
 ```
 
 https://mybot314.ru/tekegram_catalog/

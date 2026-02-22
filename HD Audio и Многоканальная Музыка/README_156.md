@@ -1,3 +1,177 @@
+###  Публикация: 1751043   (104090) от 23.09.2024
+
+Dear Robin - Timebound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times (4:46)
+02. Timebound (4:14)
+03. Flower (5:26)
+04. Breakout (4:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50978BDF63C154A6799FC2CD53D9E5E824166639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751132   (104089) от 23.09.2024
+
+Lovesick - Remember My Name (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until I'm Done (3:37)
+02. Remember My Name (2:50)
+03. You And I (2:55)
+04. Goin' Back For More (2:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97EEAD30AD30F250D703C9E50D80AF67DCCD673A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751062   (104088) от 23.09.2024
+
+Herb Alpert - 50 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Down 50th Street (2:19)
+02. Sh-Boom (2:17)
+03. Are You Lonesome Tonight? (4:27)
+04. Baubles, Bangles And Beads (3:30)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A884C63C787BDE630CD8633B9978A3579C0990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751058   (104087) от 23.09.2024
+
+Greg Izor - Sustained Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Ahead On (2:37)
+02. Untrue (2:42)
+03. Here On Ice (5:48)
+04. Lies Of Omission (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81915F1E6FAEA46E6B47D1DA905C5DC365701E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751147   (104086) от 23.09.2024
+
+Doomsday Outlaw - Hard Times (Redux) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Times (5:56)
+02. Over and Over (3:37)
+03. Spirit That Made Me (5:21)
+04. Into The Light (3:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3674980C6FD30EF1D3A7AB61136EA3AB84666038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751060   (104085) от 23.09.2024
+
+Hard-on Blues - Hard-on Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Precious vicious (3:49)
+02. Thank you. (3:57)
+03. Sunday Morning Mood (4:00)
+04. You turn me on (3:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE8BE8E9816A5B8003CE7CB4D8F7707B984060F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751151   (104084) от 23.09.2024
 
 Duo Holistique - FUTURISTIQUE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -571,180 +745,6 @@ Sylvain Rifflet - We Want Stars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62EB8E61812BCC135E36243FDEF38D5A9002E1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751628   (104051) от 26.09.2024
-
-Shrinking Mode - Choices of Passion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coffee High (2:43)
-02. Mix of Passion (2:19)
-03. Don't Drink Coffee Too Much (2:29)
-04. Midnight Sugar (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943825E82BFD5906788608338581F43AEAF239C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751523   (104050) от 26.09.2024
-
-Arma - Brazilian Genocide (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Believe in Nothing [00:04:23]
-02. Those Who Died [00:04:27]
-03. Brazilian Genocide [00:04:23]
-04. Things That Cannot Be [00:03:25](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358AA21296772A9734371C1875E54FD9CEBE9105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751635   (104048) от 26.09.2024
-
-The Cold Stares - The Southern (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Alt Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horse To Water (3:59)
-02. Coming Home (3:09)
-03. Looking for a Fight (3:24)
-04. Blow Wind Blow (3:29)(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Alt RockПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340A107248C9765979F54DC86E94D0998EDAE6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751727   (104047) от 26.09.2024
-
-Richie Kotzen - Nomad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheap Shots (3:24)
-02. These Doors (4:23)
-03. Insomnia (4:47)
-04. Nomad (6:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACBE8FDC581FD08B0A61EBEDD0E0D14C8420323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751926   (104042) от 27.09.2024
-
-Whisky of Blood - Diablesse Of Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Rock 'N' Roll>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing More (4:03)
-02. Baby Revolution (4:33)
-03. Crazy Zone (4:36)
-04. Diablesse Of Love (3:46)(   Читать дальше...   )Жанр: Hard Rock, Rock 'N' RollПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D444BDEA9EF7BD5D79EC7E7E52998B6D382381F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751836   (104040) от 27.09.2024
-
-Armored Saint - Studio Albums (4 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armored Saint — американская хэви-метал-группа, наиболее известная вокальными стилями певца Джона Буша, который в течение нескольких лет работал также с группой Anthrax.2000 - Revelation
-2010 - La Raza
-2015 - Win Hands Down
-2020 - Punching The SkyЖанр: Heavy MetalПродолжительность: 04:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E482D559D5DA2FFC0EA4EFEE5BA407F8087C021
 ```
 
 https://mybot314.ru/tekegram_catalog/

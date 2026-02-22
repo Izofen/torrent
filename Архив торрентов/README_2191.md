@@ -1,3 +1,29 @@
+###  Публикация: 1398809   (734571) от 28.07.2020
+
+Navicat Premium 15.0.17 x86/x64 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium - это мощный инструмент для администрирования баз данных, позволяющий подключаться к базам MySQL, MariaDB, MongoDB, SQL Server, Oracle, PostgreSQL и SQLite одновременно в одном приложении. Программа совместима с облачными базами данных Amazon RDS, Amazon Aurora, Amazon Redshift, Microsoft Azure, Oracle Cloud, Google Cloud и MongoDB Atlas. Теперь Вы (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27873A524FFC008B82D4E20CFB9A752C5D15BC61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398878   (734561) от 28.07.2020
 
 Adobe Acrobat Pro DC 20.009.20074 [Multi/Ru]
@@ -659,34 +685,6 @@ Ultra Mood - Angry Clown (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AA6EDD52AE9B05F3C5650BF2BC98F12F5DB23E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399043   (734309) от 29.07.2020
-
-DxO PhotoLab 3 ELITE Edition 3.3.2 (build 60) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.07.2020Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DE82D6BDFFFE008080EA4ABE9C8C54E969B370
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1269525   (219990) от 15.12.2018
-
-Astrud Gilberto - The Silver Collection (1965 - 1970) 1991, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once I Loved [2:16]
-02. Agua de beber [2:20]
-03. Meditation [2:43]
-04. And Roses and Roses [2:37](   Читать дальше...   )Жанр: Vocal Jazz, Latin Jazz, Bossa NovaПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E22625E0118964D677A63789B9D098F464CD07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 852734   (219893) от 23.12.2014
 
 Duke Ellington - Plays Tchaikovsky Nutcracker (1999) [FLAC|Lossless]<Jazz, Swing, Big Band>
@@ -771,6 +742,41 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E724544809C18DEFC00F8A1CFF535C52D666288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852797   (218275) от 24.12.2014
+
+VA - The Greatest Voices & Unforgettable Evergreens CD1 (2000) [APE|Lossless]<Jazz, Folk, Pop, Traditional>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Memories Are Made of This (1955) - Dean Martin
+02. We'll Meet Again (1962) - Vera Lynn
+03. Sentimental Journey(1959) - Dinah Shore
+04. Unforgettable (1963) - Peggy Lee
+05. P.S. I Love You (1961) - Kay Starr
+07. Portrait of My Love (1960) - Matt Monro
+08. They Can't Take That Away From Me (1958) - June Christy
+09. Change Partners (1961) - Vic Damone
+10. A Nightingale Sang in Berkeley Square (1962) - Bobby Darin
+11. Baby, It's Cold Outside (1959) - Dean MartinЖанр: Jazz, Folk, Pop, TraditionalПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4B5AA87DF7CC8CD254BC123A5953ED93E11B4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1496213   (874650) от 16.09.2021
+
+Gabrielle - Do It Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me Softly with His Song
+02. Everything I Wanted
+03. Falling
+04. Stop Right Now(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68879A5B266F8011EA3C4DF578BC01092FD82AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374307   (874581) от 09.04.2020
+
+Jive Bunny And The Mastermixers - ...The Best!! (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Big Band>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The JB Shuffle (4:06)
+02. That's what I like (4:04)
+03. Glen Miller Medley (3:55)
+04. The Juke Box Story (5:37)(   Читать дальше...   )Жанр: Rock & Roll, Big BandПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CB4783239DF42ACEBC3D8C2598D4CA8CF70405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997612   (873894) от 17.03.2016
+
+Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Inner Voices
+02. I ll Be Around
+03. Building An Empire
+04. We Got A Break It Out(   Читать дальше...   )Жанр: Synth-Pop, Sophist-PopПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053B5304FA80BA517FBC327CD100DE8CCB365593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106164   (873640) от 19.02.2017
+
+Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_873640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Come Collect
+02 – Nest
+03 – Watch Me Dive
+04 – One Toy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5050CE0AD6CDCB741B1AB509313B95DFDB8ED493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997642   (873560) от 17.03.2016
 
 Joy - The Original Maxi-Singles Collection and B'Sides (2015) [FLAC|Lossless|image + .cue] <Euro-Disco>
@@ -623,119 +739,6 @@ Billy Moore - Go Dance (1979) 12'' [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EC797DC97FBF29C0821980E20C1DA3E96C281D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106754   (871065) от 20.02.2017
-
-Falco - Falco 60 (2017) Limited Premium Edition [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Pop Rock, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganz Wien (1981) - 5:10
-02. Der Kommissar (1981) - 3:49
-03. Helden von heute (1982) - 4:04
-04. Maschine brennt (1982) - 3:36(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Pop Rock, New Wave, Dancepop, Pop RapПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D861DA4C60D3E86AC1EB9B02F0EA3A019BDB6013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374352   (870953) от 11.04.2020
-
-Денис Клявер - Ответ (2020) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870953.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ОтветЖанр: PopПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59ADCEDF2EE53328ED48ECE6FEBB5830EE14EC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374878   (870943) от 11.04.2020
-
-VA - New Italo Disco Top 25 Compilation Vol.11 (2019) [MP3|320 Kbps] <Italo-Disco, Space-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casarano - Carillon (New Gen Vocal Short Remix) 4:31
-02. Modern Boots - Save My Heart (There's A Story) (Vocal Radio Mix) 5:02
-03. Rynar Glow - Take Your Time (Radio Mix) 3:44
-04. Aldo Lesina - Romance (Vocal Short Lost Remix) 4:26(   Читать дальше...   )Жанр: Italo-Disco, Space-Disco, Synthpop, Hi-NRG, Euro-Disco, DanceПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159FFB798EF10662EF92A70D21595DED93036612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374881   (870942) от 11.04.2020
-
-VA - New Italo Disco Top 25 Compilation Vol.13 (2020) [MP3|320 Kbps] <Italo-Disco, Europop, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naomi - Give Me (Vocal Summer Radio Mix) 4:16
-02. Naomi - Sorrow (Why Did You Say Goodbye) (Vocal Summer Radio Mix) 5:27
-03. Captain Apollo - Far From Home (Short Vocal Apollo Mix) 4:24
-04. Boris Zhivago - Adagio For Love (Short Vocal Summer Mix) 4:28(   Читать дальше...   )Жанр: Italo-Disco, Europop, Hi-NRG, Euro-Disco, DanceПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354496EF9AE92AE86D067F113D064ECE5E115F17
 ```
 
 https://mybot314.ru/tekegram_catalog/

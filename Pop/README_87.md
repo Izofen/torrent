@@ -1,3 +1,119 @@
+###  Публикация: 1388317   (786867) от 05.06.2020
+
+VA - Feel Good Disco Anthems (2020) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trammps - That's Where the Happy People Go (7:54)
+02. Kc & The Sunshine Band - Get Down Tonight (5:17)
+03. The Spinners - Are You Ready for Love (Single Version) (3:44)
+04. Ecstasy, Passion & Pain - Touch and Go (7'' Version) (4:19)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 02:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EA76BC9F2A9D29A5ABB44974870B3789673E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388220   (786856) от 05.06.2020
+
+Thomas Anders & Florian Silbereisen - Das Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+2. Sie hat es wieder getan (feat. Florian Silbereisen)
+3. Sie ist wieder da
+4. Versuch's nochmal mit mir(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C11F2247338F77AF18195100D7F6B695B2D076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388217   (786844) от 05.06.2020
+
+Thomas Anders & Florian Silbereisen - Das Album (2020) [MP3|320 Kbps] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+2. Sie hat es wieder getan (feat. Florian Silbereisen)
+3. Sie ist wieder da
+4. Versuch's nochmal mit mir(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22188E5B6EDE24886EFBE9CEE0D5900CECC3B28F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388387   (786843) от 05.06.2020
+
+Joy - Party Megamix (20 Hits Non-Stop) (2015) Dance Version, RM. [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm in Love (Dance Version) (3:56)
+ 02. Magic Eyes (Dance Version) (2:40)
+ 03. Fire in the Night (Dance Version) (3:00)
+ 04. Countdown of Love (Dance Version) (3:16)(   Читать дальше...   )Жанр: Euro-Disco, 80sПродолжительность: 01:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4D16189231F82971EDB5AC48BCA28E87620414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388214   (786825) от 05.06.2020
 
 Григорий Лепс - Честь имею! На дистанции (Высоцкий) (2020) [MP3|320 Kbps] <Pop, Авторская песня>
@@ -629,122 +745,6 @@ Lulu - Independence (1993) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD7E3EC0E35434E1CE8814BB9E6A4A18DC4D0DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124608   (785564) от 12.04.2017
-
-VA - Через Тернии К Звездам. Песни О Космосе (2009) [FLAC|Lossless|image + .cue] <Pop,  Monolog, Vocal, Field Recording, Spoken Word>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. К.Циолковский - Речь К.Э.Циолковского (0:45)
-02. Е.Кибкало - Всё выше (Марш авиаторов) (3:02)
-03. М.Бернес - А самолёты сами не летают (2:44)
-04. Передача с борта ИСЗ 'Спутник-1' - Позывные первого спутника Земли (0:26)(   Читать дальше...   )Жанр: Pop,  Monolog, Vocal, Field Recording, Spoken WordПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F2F9B69DD87BE583658487A505677AF2CD65D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204025   (785429) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Laura Branigan (1990) Atlantic, 7567-82086-2, Europe [MP3|320 Kbps] <House, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Moonlight On Water 4:40
-02. Bad Attitude 4:03
-03. Never In A Million Years 4:11
-04. Smoke Screen 4:07(   Читать дальше...   )Жанр: House, Pop Rock, Synth-popПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B3C65F83176000D0EF146E9F8DCCB1737944CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203968   (785427) от 04.02.2018
-
-David Myles - Real Love (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Night & Day
-02 – Real Love
-03 – Night After Night
-04 – Knockout(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3FEC15C3A9F2BE73DD40DBB860D55F6A509C5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203974   (785424) от 04.02.2018
-
-VA - Pool Party Hits (2018) [MP3|320 Kbps] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785424.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Selena Gomez Feat Gucci Mane - Fetish
-02. Demi Lovato - Sorry Not Sorry
-03. Shawn Mendes - There's Nothing Holdin' Me Back(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 02:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50606048222B7B9777AA669345AE59F156FB436A
 ```
 
 https://mybot314.ru/tekegram_catalog/

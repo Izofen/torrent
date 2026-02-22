@@ -1,3 +1,61 @@
+###  Публикация: 1074737   (335932) от 20.11.2016
+
+Orphx - Pitch Black Mirror (2016) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknowing (05:48)
+02. Sever The Signal (06:37)
+03. Blood In The Streets (05:55)
+04. Molten Heart (06:50)(   Читать дальше...   )Жанр: Techno, IndustrialПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D82FF04C66952D8A731D7F1CFA8D14D8A65B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420098   (335814) от 30.10.2020
+
+DJ Sven & Marc Hartman - The Revival (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Is the Music (5:23)
+02. Rhythm in My Immy Bo Home (6:08)
+03. Back in the Days (4:59)
+04. Riding in the Disco Train (5:27)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0567CFAF913A027FD9147A2C9FDA0E6733197D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420026   (335487) от 30.10.2020
 
 CamelPhat - Dark Matter (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech House, Downtempo>
@@ -679,64 +737,6 @@ VA - John Digweed Live In London (2012) [FLAC|Lossless]<Tech House, Deep House, 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077230   (309081) от 27.11.2016
-
-VA - Berlin Underground Selection, Vol.6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berlin Underground Selection Mix (By Metope) (2:00:50)
- 02. Late Night Early Mornings (Bedouin remix) (8:55)
- 03. Nebula (7:48)
- 04. Malahim (6:40)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7013F70D96B10E0A0DDCB6004C4792F5D18BD9AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260906   (307789) от 09.11.2018
-
-VA - Spring Tube 9th Anniversary Compilation, Part 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claes Rosen - Over and Over (Sebastian Davidson remix) (6:08)
-02. George Ellinas - Galexia (original mix) (6:00)
-03. Subalpine - Paradise (original mix) (5:30)
-04. Rishi K. - Through the Night (Domestic Technology remix) (5:30)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 04:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2EC303B4314FF2BBBB5D443EA3EF4B16951270
 ```
 
 https://mybot314.ru/tekegram_catalog/

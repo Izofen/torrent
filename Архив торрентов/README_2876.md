@@ -1,3 +1,38 @@
+###  Публикация: 359677   (582034) от 06.07.2011
+
+Patty Ascher - Bossa, Jazz'n'Samba (2011) [MP3|320 kbps]<Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582034.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Springtime
+2.The Summer Knows
+3.Girls Just Want to Kiss
+4.Booking Time
+5.How Much I Care
+6.The Winter
+7.Saudade
+8.Sunrise
+9.The Sun
+10.Talvez(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE809464925175930C4E3BB5ED53A6D3787684BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359498   (582032) от 06.07.2011
 
 MPC HomeCinema 1.5.2.3322 (x64/x86) + Portable [Multi/Rus]
@@ -688,32 +723,6 @@ Adobe Acrobat Reader DC — совершенно новое приложение
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3EE69909543438035127CBAD6FB78933DDF54FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919750   (581938) от 20.07.2015
-
-Syhunt Sandcat Browser 5.1.0.4 CE Pen-Tester [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandcat Browser - это миниатюрный браузер, создаваемый на базе кода Chromium, предназначенный в основном для тестеров безопасности вебсайтов, а также для разработчиков, которым нужен более низкоуровневый контроль над приложением, чем тот, который предлагается разработчиками браузеров и специализированных плагинов. Запуск Sandcat более чем прост - нужно распаковать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2F8A3A3CE56270C000F73F46B0BA81696FD30E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1693987   (121266) от 23.01.2024
-
-Beegie Adair & Friends - Jazz Romance: 15 Sentimental Love Songs (2016) Green Hill [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Last [3:58]
-02. Moonglow (feat. Jeff Steinberg Orchestra) [3:48]
-03. Strangers in the Night (feat. Denis Solee) [3:27]
-04. As Time Goes By [4:34](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEE0A852B8E6334B79DF60B7BF3C05856588573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693915   (121263) от 23.01.2024
 
 VA - Maestros Del Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -745,6 +716,35 @@ The Breadmen - Rise of the Breadmen (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53A1B7F0B7CAD4A0B9BDFDDD4BF8013BD6647BA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695649   (120079) от 30.01.2024
+
+Coccolite - Extrasystole (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exorde (1:07)
+02. Et Pour Finir (3:07)
+03. CPU 180 Degrés (4:17)
+04. Qu'il Est Agréable De Croiser Un Chevreuil En Forêt (4:07)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AFDEBAAF565ABED477E030083D6DF1910A1E55
 ```
 
 https://mybot314.ru/tekegram_catalog/

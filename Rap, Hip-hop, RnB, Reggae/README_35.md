@@ -1,3 +1,61 @@
+###  Публикация: 1799017   (66542) от 25.05.2025
+
+Aesop Rock - Black Hole Superette (2025) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Knock (3:33)
+ 02. Checkers (3:57)
+ 03. Movie Night (3:21)
+ 04. EWR - Terminal A, Gate 20 (3:49)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77772350BF8766BB1209FEA28CB38F512FC45474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801758   (66168) от 12.06.2025
+
+VA - Chillhop Essentials Summer (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruck P, Gabiga – Velvet Sutra (2:14)
+02. dennisivnvc – Jake, ft. Dani Catalá (2:07)
+03. Aves – Fly by (1:57)
+04. Birocratic, Kosmicho, Ross Mayfield – Midnight Veil (3:18)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B22F91DEFA9B7454E721123DEA28B4619EDDA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802409   (66061) от 17.06.2025
 
 SanMinor - Ночь декабря (2015) [MP3|320 Kbps] <Pop, Rap, Hip-Hop>
@@ -691,66 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17CAE72B53651518EE7B0BDF4347553DC8CD9422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291849   (51774) от 28.06.2024
-
-Gang Starr - 6 Albums + 2 Compilations (1989-2006) [FLAC|Lossless]<East Coast Hip-Hop / Jazz Rap / Alternative Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Gang Starr хип хоп дуэт, состоящий из MC Guru и диджея и продюсера DJ Premier. Стиль группы сочетает в себе элементы Нью-Йорк Джаза и East Coast rap.(   Читать дальше...   )Список альбомов:
-1989 - No More Mr. Nice Guy
-1991 - Step In The Arena
-1992 - Daily Operation
-1994 - Hard To Earn
-1998 - Moment Of Truth(   Читать дальше...   )Жанр: East Coast Hip-Hop / Jazz Rap / Alternative Hip-HopПродолжительность: 09:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108353E2B11D011ADE7C9381FD45DF9908AE77D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 311565   (51773) от 28.06.2024
-
-Naughty by Nature - 5 Albums + 2 Compilation + 8 Singles (1991-2003) [FLAC|Lossless|tracks + .cue]<Hip-Hop, East Coast Hip-Hop, East Coast Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Было время (лет 10-12 назад), когда для России существовало всего пять рэп-групп: Onyx, Cypress Hill, ледяная парочка Ice-T и Ice Cube, House Of Pain, Public Enemy и Naughty By Nature.Список альбомов:
-1991 - Naughty by Nature
-1993 - 19 Naughty III
-1995 - Poverty's Paradise(   Читать дальше...   )Жанр: Hip-Hop / Rap / East Coast Hip-Hop / East Coast RapПродолжительность: 10:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFB76B75BFD8A0B9DDA3460B89B582E5F12AF44
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1377517   (851898) от 22.04.2020
+
+Harry Allen - Viva! Bossa Nova (2008) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [6:21]
+02. Desafinado [5:39]
+03. Dindi [5:04]
+04. Mais que Nada [6:23](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A061042B4FFF79420FF4721868E2F19143746E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 770512   (851488) от 25.03.2014
 
 Ben Webster - Big Ben Time! (2002) [FLAC|Lossless]<Mainstream Jazz, Swing>
@@ -744,35 +773,6 @@ Gerald Wilson - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E85CB03D4E928F998C8C1BF36537C02046FECA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499547   (847674) от 02.10.2021
-
-Sarah Menescal - Cafe Bossa Nova (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Smooth Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stand by Me
-02. Over My Shoulder (feat. Groove Da Praia)
-03. Can't Help Falling in Love
-04. Like a Prayer(   Читать дальше...   )Жанр: Bossa Nova, Smooth Jazz, LoungeПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF151D106D3CD496D65593A593261E8315B2D83
 ```
 
 https://mybot314.ru/tekegram_catalog/

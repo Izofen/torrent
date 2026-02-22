@@ -1,3 +1,29 @@
+###  Публикация: 918861   (585745) от 16.07.2015
+
+Проекты - Motion Array - Directors Cut [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084720D7E1890EC02BC616647E0FCB17EAE0B14F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918857   (585674) от 16.07.2015
 
 Проекты - Motion Array - Complete Presentation [AEP]
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00441B708D5C0514EDA800E22C1E75E3522FC121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921191   (575270) от 25.07.2015
-
-Проекты - VideoHive - Hand Drawn Story [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CD80C8CA82F9E13B58338BA49BA2887FA8B48D
 ```
 
 https://mybot314.ru/tekegram_catalog/

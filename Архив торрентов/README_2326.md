@@ -1,3 +1,32 @@
+###  Публикация: 1132070   (701120) от 09.05.2017
+
+VA - Radio Hits Vol.5 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer & Betsie Larkin - Unite (Original Mix)  4:04
+02.  Eximinds & Lucid Blue - A Higher Love (Radio Edit)  3:36
+03.  Attila Syah & Cari - Dark Side Of The Moon (Radio Edit)  4:00
+04.  Alpha Force & Mike Van Fabio ft Robin Vane - Save Me (Radio Edit)  3:40(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A5C006E68891C9A0AADF5E1494A4D0B52A21BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 895370   (701117) от 05.05.2015
 
 IObit Uninstaller 4.3.0.122 Final [Multi/Ru]
@@ -652,32 +681,6 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61B5181762EA7B560DDC52DC2C845E11D1353F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132695   (700769) от 09.05.2017
-
-K-Lite Codec Pack Update 13.1.5 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700769.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - в различных вариантах содержит все самые популярные кодеки для проигрывания и кодирования видео (кроме версии Basic). QuickTime Alternative и Real Alternative являются дополнительными пакетами для проигрывания соответственных форматов и содержат основные компоненты от официальных проигрывателей.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BBB0CBF72228A61BE8E6EF7FA64D0593D67CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

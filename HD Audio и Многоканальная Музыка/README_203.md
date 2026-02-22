@@ -1,3 +1,176 @@
+###  Публикация: 1797667   (66703) от 18.05.2025
+
+Rapture (Finland) - Studio Albums (3 releases) (1999-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rapture - группа, сформированная в 1997 году в Хельсинки, Финляндия.1999 - Futile
+2002 - Songs For The Withering
+2005 - Silent StageЖанр: Melodic Doom/Death MetalПродолжительность: 02:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33AC90CE2D3C5759B32AE4B79066FAB043136A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797666   (66696) от 19.05.2025
+
+Nomy - Dreams And Lies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams and Lies [00:03:50]
+02. Saviour [00:03:42]
+03. House of Diane [00:04:22]
+04. Scream [00:03:23](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEFED1606413FACC7A25977B6A7A293671B2BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797767   (66682) от 19.05.2025
+
+Sheila E. - Bailar (2024) Deluxe, 2025, Sony Music Latin [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Salsa>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anacaona [00:04:14]
+02. Bailar [00:04:37]
+03. Bemba Colorá [00:05:05]
+04. El Rey del Timbal [00:04:40](   Читать дальше...   )Жанр: SalsaПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75EA372F47E56586238AD520305A8CCDE3564DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797972   (66676) от 19.05.2025
+
+Ballet Mecanico - Primera Secuencia (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Italo Disco, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66676.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. No cedere (4:14)
+2. Rosa era inocente (3:31)
+3. Mascarilla (4:09)
+4. Como la ultima vez (3:44)(   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F7A70D5B1698C56083561634F3805F89F9B8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797996   (66674) от 19.05.2025
+
+Giant - Stand And Deliver (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Not Right (04:12)
+ 02. A Night To Remember (04:13)
+ 03. Hold The Night (03:57)
+ 04. I Will Believe (04:00)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D473ABE42F95058CF640F1F4A232EFABAF85E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797966   (66673) от 19.05.2025
+
+Manowar - Kings of Metal (1988) [DSD128|Lossless|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66673.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Wheels Of Fire
+A2. Kings Of Metal
+A3. Heart Of Steel
+A4. Sting Of The Bumblebee(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF917A4B48A2FE7DD100AF9766E85FC2B3E9B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797927   (66661) от 19.05.2025
 
 Caliban - I`m Nemesis (2012) Released, 2023, Arising Empire [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
@@ -571,178 +744,6 @@ Rah - Orile to Berlin (2 Albums) (2024,2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06134F4E69B3ACACD29098807850FFCD61CB78F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798701   (66600) от 23.05.2025
-
-Moonlight Haze - Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond [00:02:19]
-02. Tame The Storm [00:03:30]
-03. Crystallized [00:03:01]
-04. Chase The Light [00:03:41](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017270BDB52A892596C45997E381EF8AE7986D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798765   (66598) от 23.05.2025
-
-Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let It Ride [3:36]
-02 - Let It Ride (Jamie Jones Remix) [3:27]
-03 - Let It Ride (Kungs Remix) [3:43]
-04 - Let It Ride (Wongo Remix) [3:03](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C50F90FBD261BED0385469B4EFCACC154FC83F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798660   (66597) от 23.05.2025
-
-Ronnie Romero - Live At Rock Imperium Festival (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cast Away On The Moon (03:57)
- 02 - I've Been Losing You (04:59)
- 03 - Chased By Shadows (05:45)
- 04 - Ferrymen (05:39)(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B189DE729685A83D9BC91C710415B0F29F114142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798683   (66594) от 23.05.2025
-
-Skunk Anansie - The Painful Truth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - An Artist Is An Artist [3:12]
-02 - This Is Not Your Life [3:25]
-03 - Shame [4:07]
-04 - Lost and Found [4:16](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DEA183473D97B2E9F69F86BF42429DBF6FC9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798773   (66591) от 23.05.2025
-
-Lenny Kravitz - Let It Ride Remixes, Pt. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let It Ride (HoneyLuv Remix) [3:32]
-02 - Let It Ride (DJ Ruckus & Nez Remix; Edit) [3:13]
-03 - Let It Ride (Notre Dame Remix; Edit) [4:10]
-04 - Let It Ride (Solardo Remix; Radio) [3:12](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12FEE7786874EC93847E486236546FEB85819E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798728   (66590) от 23.05.2025
-
-Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66590.jpg" />
-</div>
-
-
-###  Подробнее
-
-A. The Sword Woman (05:23)
-B. Voyage of the Sunchaser (05:33)Жанр: Epic Heavy, Doom MetalПродолжительность: 00:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CF38DEEC841A7DB49543DFD00A7CBBB67A7002
 ```
 
 https://mybot314.ru/tekegram_catalog/

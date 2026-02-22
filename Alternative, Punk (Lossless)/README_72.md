@@ -1,133 +1,3 @@
-###  Публикация: 458285   (90334) от 23.04.2012
-
-Halestorm - 3 альбома, 2 EP (2009-2012) [FLAC|Lossless]<Alternative Rock/Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Love Bites (So Do I) (3:12)
-02. Rock Show (3:19)
-03. Daughters Of Darkness (3:55)
-04. Here's To Us (2:58)Жанр: Alternative Rock/Hard RockПродолжительность: 00:13:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483618   (89194) от 18.04.2012
-
-Leningrad Cowboys - Zombies Paradise (2006) [FLAC|Lossless]<Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (3:31)
-02. What Is Love (3:19)
-03. Goldfinger (4:07)
-04. Perfect Day (3:53)
-05. Puttin' On The Ritz (2:55)
-06. Manic Monday (2:33)
-07. Starman (4:25)
-08. Ring Of Fire (3:12)
-09. My Sharona 	(3:46)
-10. Play That Funky Music (5:37)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479376   (87014) от 07.04.2012
-
-The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conduct (5:10)
-02. Tomorrow (3:55)
-03. Fire & Soul (4:32)
-04. Raining In My Heart (3:27)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477534   (86202) от 03.04.2012
-
-Poets Of The Fall - Temple Of Thought (2012) [FLAC|Lossless]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Poets of the Fall  — финская рок-группа, записывающаяся на собственном лейбле «Insomniac». Она образовалась в Хельсинки в 2003 году. Группа завоевала множество значимых наград в родной стране (включая 2 премии Emma-gaala — финского аналога Grammy), победила в номинации «Лучший финский исполнитель» на MTV Europe Music Awards в 2006 году, а клип на песню «Carnival of Rust» был признан телезрителями «Лучшим клипом Финляндии всех времён».
-
-Оф. сайт группы01. Running Out Of Time (3:13)
-02. Temple Of Thought (4:38)
-03. Cradled In Love (4:44)
-04. Kamikaze Love (3:41)
-05. The Lie Eternal (4:34)
-06. Skin (4:29)
-07. The Distance (5:05)
-08. Show Me This Life (4:29)
-09. Morning Tide (4:41)
-10. The Ballad Of Jeremiah Peacekeeper (5:07)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474550   (85127) от 29.03.2012
 
 My Darkest Days - Sick and Twisted Affair (2012) [FLAC|Lossless]<Alternative Rock>
@@ -825,6 +695,122 @@ Polaris — австралийская металкор-группа из Сид
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97E2270E0F23B394119B7036C99A146335384E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794331   (67309) от 28.04.2025
+
+The Weepies - Hideaway (2008) [FLAC|Lossless|tracks + .cue] <Acoustic, Indie Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Go Back Now    [0:02:17.66]
+02. Orbiting    [0:02:55.09]
+03. Hideaway    [0:02:46.51]
+04. Wish I Could Forget    [0:02:56.71](   Читать дальше...   )Жанр: Acoustic, Indie Rock, Pop RockПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3172792EC8CA60EE382C321D56BE36F3C6FED7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794023   (67284) от 28.04.2025
+
+Goose - Shenanigans Nite Club (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 So Ready(04:35)
+02 (setellite)(04:37)
+03 Madhuvan(10:16)
+04 SOS(03:41)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664EFE910D9814976A9FC7CE49FC040FDB17DD01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796177   (67003) от 08.05.2025
+
+Area - Crac! (1975) Japanese Edition, Reissue, 2007, Strange Days Records [FLAC|Lossless|image + .cue] <Experimental, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'elefante bianco
+02. La mela di Odessa
+03. Megalopoli
+04. Nervi scoperti(   Читать дальше...   )Жанр: Experimental, Prog RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DCDBA6ABDC37548610F5B5BD0285DEB01723BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797570   (66775) от 17.05.2025
+
+King Hannah - Big Swimmer (2024) [FLAC|Lossless|tracks+ .cue] <Indie Rock, Alternative Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66775.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Big Swimmer (05:22)
+2. New York, Let's Do Nothing (03:22)
+3. The Mattress (04:45)
+4. Milk Boy (I Love You) (03:53)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Psychedelic RockПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8736DD2B05663FB4DF4604270F7E57D7FA7673
 ```
 
 https://mybot314.ru/tekegram_catalog/

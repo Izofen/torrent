@@ -1,3 +1,32 @@
+###  Публикация: 1504473   (810074) от 24.10.2021
+
+Lana Del Rey - Blue Banisters (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Text Book [00:05:03]
+02. Blue Banisters [00:04:52]
+03. Arcadia [00:04:23]
+04. Interlude - The Trio [00:01:14](   Читать дальше...   )Жанр: Indie Pop, Pop, Female VocalПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7655AFF505FCF473DEE80672E9278B4256FF160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119234   (809151) от 27.03.2017
 
 VA - Moon River: 20 All-Time Favourite Love Songs (1998) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Disco, Oldies>
@@ -715,35 +744,6 @@ Fernando Express - Unser traum darf nicht sterben (2004) [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF8A710F9E414ECC932BCECC26567D868C909559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199813   (800364) от 17.01.2018
-
-Charlotte Gainsbourg - 5:55 (2007) US Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5:55 (4:52)
- 02. AF607105 (4:30)
- 03. The Operation (3:59)
- 04. Tel Que Tu Es (3:10)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6C97FBEEAC1208A81D219CEC7D7625D419DC98
 ```
 
 https://mybot314.ru/tekegram_catalog/

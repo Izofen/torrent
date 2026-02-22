@@ -1,3 +1,90 @@
+###  Публикация: 1277406   (785480) от 20.01.2019
+
+Art Farmer - The Complete Albums Collection 1958-1961 (2016) 4CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785480.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Back In The Cage [5:08]
+02. Stablemates [4:36]
+03. The Very Thought Of You [5:44](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 05:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983F7310C16ACDB1BD0F033D60E5528323F94386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277442   (785479) от 20.01.2019
+
+Sonny Rollins - Complete Sonny Rollins in Japan (1973) 2CD, 2018, JVC [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785479.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Powaii [18:48]
+02. St. Thomas [5:26]
+03. Alfie [13:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD8BFF7A69873627D5F73F2373C8452AD9F90E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277446   (785478) от 20.01.2019
+
+Donald Byrd - Fancy Free (1969) 2017, Universal [FLAC|Lossless|tracks + .cue] <Soul Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy Free [12:07]
+02. I Love the Girl [8:48]
+03. The Uptowner [9:17]
+04. Weasil [9:00]Жанр: Soul Jazz, Hard BopПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B1D1B567C416D2FA012B00F706AFD669B3D16A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277418   (785474) от 20.01.2019
 
 Nat King Cole - Legends (1994) [FLAC|Lossless|image + .cue] <Jazz, Swing, Easy Listening>
@@ -658,93 +745,6 @@ Martin Taylor - Sarabanda (1989) Gaia Records [FLAC|Lossless|tracks + .cue] <Cro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:765E9B984C82F2BD8DBCDB93DDB0EDB5E71FF267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204728   (784405) от 07.02.2018
-
-Gene Krupa And His Orchestra - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Old Kentucky Home [02:41]
-02. Take Your Love [02:43]
-03. I Like To Recognize The Tune [02:57]
-04. All Dressed Up (Spic And Spanish) [02:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB1D8EA63F590C3D008F701CA8BDEB7223CDA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204559   (784399) от 07.02.2018
-
-The Modern Jazz Quartet - Concert In Japan, Vol.2 (1966) 2014, Warner [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ralph's New Blues [06:48]
-02. I Love You Porgy [04:56]
-03. Pyramid [07:20]
-04. Home [04:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C645435FEFEA316E8F4D93F99B14176F6D791D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204651   (784395) от 07.02.2018
-
-Big Boy Bloater & The Limits - Big Boy Bloater And The Limits (2011) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Ugly Way Of Thinking 3:08
-02. I Heard Those Voices Again 3:11
-03. Fumble Fisted Fool 3:19
-04. Sweet & Brown 2:34(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A54F926C4E7BDE0CBA90B1A4049D0675B5067F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

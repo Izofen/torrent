@@ -1,3 +1,264 @@
+###  Публикация: 1602148   (1046101) от 05.01.2023
+
+Lamb Of God - Omens (2022) 13-tracks Ed. [FLAC|Lossless|image + .cue] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nevermore 04:35
+02. Vanishing 04:48
+03. To The Grave 03:43
+04. Ditch 03:37(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B346F1E5333EE94D7F963FDD4B88FF51CB1D00D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601860   (1046097) от 05.01.2023
+
+Parkway Drive - Darker Still (2022) [FLAC|Lossless|image + .cue] <Metalcore, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ground Zero
+02. Like Napalm
+03. Glitch
+04. The Greatest Fear(   Читать дальше...   )Жанр: Metalcore, Alternative MetalПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CE38714BCF7E47BB837A9EB5B47C889A6C4D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602498   (1046066) от 06.01.2023
+
+Rotten Sound - Abuse To Suffer (2016) [APE|Lossless|image + .cue] <Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Asses
+02. Intellect
+03. Fear of Shadows
+04. Trashmonger(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6411F231D9B29B1664502640BDED9570B47F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602486   (1046065) от 06.01.2023
+
+Besta - Eterno Rancor (2019) [APE|Lossless|image + .cue] <Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamorte
+02. Falsa Arte
+03. Apóstolo do Terror
+04. Sincronismo do Mal(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A5151A9734C7DAC4B27F823C8440227383FE05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602603   (1046064) от 06.01.2023
+
+Since The Death - I Belong to Christ (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incorruptible
+02. Be Close to Me
+03. Compressed to Death
+04. Intoxication(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E503ABF0E746BF6E366FE461672B344ECC25FCAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602502   (1046062) от 06.01.2023
+
+Sincarnate - On The Procustean Bed (2008) [APE|Lossless|image + .cue] <Doom Metal, Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Requiem
+02. Reverence (In Fron Of An Inevitable End)
+03. Desolate
+04. Sincerely YoursЖанр: Doom Metal, Death Metal, Black MetalПродолжительность: 00:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB583C5D0A5B212E93DA7289DBC60D458E1ADB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602500   (1046061) от 06.01.2023
+
+Spectral - Autopsy Of Hope (2007) [APE|Lossless|image + .cue] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind
+02. The Unknown Nothing
+03. Autopsy Of Hope
+04. The Art Of Pain(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C128C2A7A202A68457D198BEF643A3BD7B10AC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602468   (1046060) от 06.01.2023
+
+Dead - A Dirty Mind Is A Joy Forever (2017) [APE|Lossless|image + .cue] <Death, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good to Be Back
+02. Snakey Brown
+03. Call of Beauty
+04. Ass Metal(   Читать дальше...   )Жанр: Death, GrindcoreПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17113D3212DBB9EC50261FAD101510A826F75C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602504   (1046059) от 06.01.2023
+
+Theories - Regression (2016) [APE|Lossless|image + .cue] <Death Metal, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burnt Concrete
+02. Cycle of Decay
+03. Shame
+04. Abortive Crescent(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F9C60BDB77EB2736DC71AA7AC22C4DDBBCF01A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602496   (1046058) от 06.01.2023
 
 Obliteration - Perpetual Decay (2007) [APE|Lossless|image + .cue] <Death Metal>
@@ -484,264 +745,6 @@ Where's My Bible - Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C5B28DB1FD65048E6B5A791499EA8F7CAA283D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603251   (1045876) от 08.01.2023
-
-Cryptopsy - Whisper Supremacy (1998) [APE|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emaciate
-02. Cold Hate, Warm Blood
-03. Loathe
-04. White Worms(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98B08A3043EA7F25A91F8015B7AEEA9488F90DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602956   (1045875) от 08.01.2023
-
-Nails - Unsilent Death (2010) 10 Year Anniversary Edition, Remaster 2020 [APE|Lossless|image + .cue] <Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conform
-02. Scum Will Rise
-03. Your God
-04. Suffering Soul(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4C789FB4067BC00D41B4E41D7C5AA1AE7C6E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602949   (1045872) от 08.01.2023
-
-Tryckvag - Legacy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Legacy (04:29)
-02 - Freak Of Nature (03:57)
-03 - Pull The Trigger (04:23)
-04 - I Surrender (03:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EDFEFA00EA443F0E178B7CBA9662A40D8CB532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602864   (1045871) от 08.01.2023
-
-The Temple - Of Solitude Triumphant (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Me To Lichno Tou Astrou (03:03)
-02 - The Foundations (10:09)
-03 - Reborn in Virtue (07:10)
-04 - Profound Loss (07:01)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E85D048A3D3E180C2E43F629C3EA615498D454A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603056   (1045868) от 08.01.2023
-
-Weeping Kin - Gnawing (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Where Eras End (08:56)
-02 - One With Nothing (07:34)
-03 - The Gift You Gave (12:54)
-04 - Burgeoning (11:34)(   Читать дальше...   )Жанр: Melodic Doom MetalПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19588A08D3C0FD57E5CE9A805C8BE629595B30A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602971   (1045866) от 08.01.2023
-
-Frost - Out In The Cold (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasting Your LuvЖанр: Heavy MetalПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC55A81AC50643E4C52540CF6EEA39C2F157EDD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603237   (1045863) от 08.01.2023
-
-Heartscore - The Edge Of Times (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Final Hug 04:14
-02. Highway Killer 02:46
-03. The Coastline 03:26
-04. Spit It Out 02:37(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE69740A4EA191A7F27C6C696C071902CE69F445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603247   (1045839) от 08.01.2023
-
-Crawling Chaos - Goatsuckers (2008) CD-R DEMO [APE|Lossless|image + .cue] <Thrash Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flutes Cacophony
-02. Companion Of The Vagabond
-03. Gates Of Fire
-04. Urban War(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C01DE7BE9729AD2319E892DD3560393A27EF1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603242   (1045829) от 08.01.2023
-
-Cyborg - The Last Thing You'll See (2009) [APE|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Six
-02. S.O.D.
-03. My Stable Delirium
-04. The Road Not Taken(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6851B0C2FF6A826EBCDFEB676A1F6328157D16
 ```
 
 https://mybot314.ru/tekegram_catalog/

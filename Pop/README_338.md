@@ -1,3 +1,108 @@
+###  Публикация: 472897   (84339) от 25.03.2012
+
+Katy Perry - Teenage Dream-The Complete Confection (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teenage Dream (3:48)
+02. Last Friday Night (T.G.I.F.) (3:51)
+03. California Gurls ft. Snoop Dogg (3:55)
+04. Firework (3:48)
+05. Peacock (3:52)
+06. Circle the Drain (4:33)
+07. The One That Got Away (3:47)
+08. E.T.(3:26)
+09. Who Am I Living For? (4:09)
+10. Pearl (4:08)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 543
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12689EDA2C9EF2338F929E9B04C6F09E5BC8CA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472197   (84183) от 24.03.2012
+
+Madonna - MDNA (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl Gone Wild (3:43)
+02. Gang Bang (5:26)
+03. I'm Addicted (4:33)
+04. Turn Up The Radio (3:46)
+05. Give Me All Your Luvin' (3:22)
+06. Some Girls (3:53)
+07. Superstar (3:55)
+08. I Don't Give A (4:19)
+09. I'm A Sinner (4:52)
+10. Love Spent (3:45)(   Читать дальше...   )2012Жанр: PopПродолжительность: 01:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D5633DE082A818D7E40E976C9ADFA9568673F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472187   (84120) от 24.03.2012
+
+Madonna - MDNA (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl Gone Wild (3:43)
+02. Gang Bang (5:26)
+03. I'm Addicted (4:33)
+04. Turn Up The Radio (3:46)
+05. Give Me All Your Luvin' (3:22)
+06. Some Girls (3:53)
+07. Superstar (3:55)
+08. I Don't Give A (4:19)
+09. I'm A Sinner (4:52)
+10. Love Spent (3:46)(   Читать дальше...   )2012Жанр: PopПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5D2E3D371C2E3B5D644B5DDEE49CEB235A4307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472139   (83950) от 23.03.2012
 
 Madonna - MDNA (2012) Deluxe Edition [FLAC|Lossless]<Pop>
@@ -773,102 +878,6 @@ Thomas Anders & DJ Eurodisco - The Fine Soldier - PART 1-2 (2012) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59925C492978EA2F8C1A45424D3BA7FADE789F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466110   (81425) от 11.03.2012
-
-2 Unlimited - The Very Best Of 2 Unlimited (1995) [MP3|320 кб/с]<Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Do What's Good For Me
-02 No Limit
-03 Get Ready For This
-04 Twilight Zone
-05 No One
-06 Jump For Joy
-07 Tribal Dance
-08 The Magic Friend
-09 Workaholic
-10 Let The Beat Control Your Body(   Читать дальше...   )1995Жанр: EurodanceПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BBB992B28B4117C1C853E3C8A3EA59BC3FC09E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466229   (81386) от 11.03.2012
-
-Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, PopПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466076   (81385) от 11.03.2012
-
-Mr.President - Golden Super Hits (2000) [MP3|320 кб/с]<Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give A Little Love
-02. All I Wanna Do
-03. Coco Jambo
-04. Space Gate
-05. Up'N Away
-06. Cachito Bandito
-07.Hasta Manana
-08. Where The Sun Goes Down
-09. F.B.I.
-10. I Won't Let U Down(   Читать дальше...   )2000Жанр: EurodanceПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFB63D70AB19C44049014708D23FC59F5FD1167
 ```
 
 https://mybot314.ru/tekegram_catalog/

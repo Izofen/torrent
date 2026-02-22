@@ -1,3 +1,90 @@
+###  Публикация: 417904   (308766) от 04.12.2011
+
+666 - Дискография 28 Releases (22 Singles / 6 Albums) (1997-2010) [MP3|192-320 kbps]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308766.jpg" />
+</div>
+
+
+###  Подробнее
+
+666 (англ. «six six six», русск. «шесть, шесть, шесть») — немецкая музыкальная группа, работающая в стиле евродэнс, Hard House. За время своего существования на сцене им удалось добиться следующих результатов: 15 золотых премий, 4 платиновых, попадание в музыкальные чарты более 30 раз, 4 миллиона проданных музыкальных копий . Группа добилась высокого уровня известности (   Читать дальше...   )1.Cathedral Of Sin (Introduction)
+2.Amokk
+3.Get Up 2 Da Track (666 Is Back)
+4.La Vasca Se Mueve(   Читать дальше...   )Жанр: HouseПродолжительность: 16:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3735AF6BAA5945E598B568111F2FDE16AE07684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183404   (307870) от 14.11.2017
+
+VA - Club Beats 2017 (Compilation) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fezz - In My House 04:05
+02. WTDJ - Don't Forget 04:22
+03. T3rminal - Moksha 03:56
+04. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound 04:18(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDBB695122932A0D4BA6E1AE86D4462BCF8B0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183776   (307869) от 14.11.2017
+
+VA - Deep Attraction (Deep House Grooves Selection) (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darles Flow and Marga Sol - Alive 5:22
+02. Meital De Razon & Asi Tal - In Love Again (Asi Tal Deep Remix) 4:46
+03. DMPR - Love Life 3:52
+04. Beat Ballistick - Deeper 5:50(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD992B08AA934F9DFA72DE67607E284BB8436A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183608   (307860) от 14.11.2017
 
 Soulful-Cafe - Deep & Chill (2017) [MP3|320 Kbps] <Deep House, Downtempo>
@@ -652,93 +739,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAAC33283149B8F53F34E1CAC8B025674A6B3513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185585   (293738) от 21.11.2017
-
-VA - Chillout Deep House 2017 Vol.1 (Mixed By Gerti Prenjasi) (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Miraux feat. Kimber Hernandez  - Haunted (Extended Mix)  5:37
-02.  Hel  - Belove (Original Mix)  5:25
-03.  Oscar GS  - Flavour (Original Mix)  7:02
-04.  K-Bana  - Sophisticated (Dub Mix)  7:09(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D2058FD4E479B3E9515C06F81684032BC47C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262653   (293522) от 16.11.2018
-
-VA - Whore House Loves Tech House (2018) [MP3|320 Kbps] <House, Tech-House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Ourselves & Us - Good Vibrations [5:33]
-02. Mescal Kids - Got Me Spinning [6:35]
-03. Kevin Andrews - Say Mumma [6:21]
-04. Monkeye - Invisible Man [6:00](   Читать дальше...   )Жанр: House, Tech-House, FunkyПродолжительность: 04:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C61687D39C125073F42C0C46E9EBC60D11E40A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185297   (293477) от 21.11.2017
-
-Purple Disco Machine - Soulmatic (2017) [MP3|320 Kbps] <House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Disco Machine feat. Lorenz Rhode - Music in You (4:31)
-02. Purple Disco Machine - Body Funk (4:17)
-03. Purple Disco Machine & Boris Dlugosch feat. Karen Harding - Love for Days (3:16)
-04. Purple Disco Machine feat. CeeLo Green - Pray for Me (5:42)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8152C1D4D727DE0D3563C6D879AF006926600A98
 ```
 
 https://mybot314.ru/tekegram_catalog/

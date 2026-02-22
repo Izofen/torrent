@@ -1,3 +1,32 @@
+###  Публикация: 1548117   (600134) от 02.05.2022
+
+Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire In Your Heart (07:07)
+ 02. Old Medicine Man (06:31)
+ 03. Call Of The Great Spirit (06:47)
+ 04. Sacred Space Of Love And Wisdom (07:13)(   Читать дальше...   )Жанр: New Age, Native AmericanПродолжительность: 01:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278F776BCFE7CE769EDAAD6358093D4DB08D6C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299117   (600022) от 01.05.2019
 
 Shambhu - Lilac Skies (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Jazz, Acoustic>
@@ -761,35 +790,6 @@ Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Pu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24F1EE339740FB671B46B4DBB47D271B2E777197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039543   (594560) от 02.08.2016
-
-Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eva (Pianist: Patrick Doyle)
-02. Igor
-03. Scamper & Brain
-04. Schadenfreude(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD166E2862EE403277058EB6FCCBA9B9F41BC5BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

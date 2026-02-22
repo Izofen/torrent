@@ -1,3 +1,32 @@
+###  Публикация: 1204329   (784896) от 05.02.2018
+
+VA - Nothing But... Techno Essentials Vol.01 (2018) [MP3|320 Kbps] <Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  LukeSpencer UK  -  Waiting Around (Original Mix)  7:37
+02.  Ronny Vergara  -  Red Line (Joshua Calleja, Ruiz Sierra Remix)  6:10
+03.  BFVR  -  Feel The Groove (Original Mix)  7:21
+04.  John Glassey  -  Imbalanced (Original Mix)  6:04(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C44A2BD2B80286A94C165516D1922F94CAF1CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204412   (784884) от 05.02.2018
 
 WinTools.net  Premium 18.2.1  [Multi/Ru]
@@ -659,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2618278D51A64DF4F4790FBDC35429C6DC4DD47D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204674   (784633) от 06.02.2018
-
-FreeFileSync 9.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784633.jpg" />
-</div>
-
-
-###  Подробнее
-
-FreeFileSync - это утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5464E7CBD60B7AE26DBC9531085F02E480A9BD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

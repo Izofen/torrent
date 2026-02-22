@@ -1,3 +1,32 @@
+###  Публикация: 1677066   (153445) от 16.11.2023
+
+Willis Jackson - Bar Wars (1977) 1989, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Later [5:56]
+02. Blue & Sentimental [3:04]
+03. Bar Wars [7:03]
+04. The Breeze and I [4:56](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB6355CFC3CBE234E030627EA4FC330C1E941D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 738126   (153401) от 25.12.2013
 
 Joya Mooi - Crystal Growth (2013) [MP3|320 кб/с]<Jazz, Vocal Jazz>
@@ -770,35 +799,6 @@ VA - Blues Happy Christmas (2021) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8432F82F74BADEAADE083F7963D6665977818D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194976   (152195) от 27.12.2017
-
-Henry Mancini - Combo! (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moanin' [02:54]
-02. Sidewalks of Cuba [03:23]
-03. Dream of You [02:57]
-04. Swing Lightly [04:20](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E119F8641653A21090041FBB53C074A218CD376
 ```
 
 https://mybot314.ru/tekegram_catalog/

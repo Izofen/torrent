@@ -1,3 +1,36 @@
+###  Публикация: 863012   (927512) от 25.01.2015
+
+Earl Klugh - Wishful Thinking (1984) [FLAC|Lossless]<Jazz, Smooth, Pop-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Wishful Thinking [03:58]
+02. Tropical Legs [05:32]
+03. All The Time [04:39]
+04. A Natural Thing [02:57]
+05. Once Again [04:18]
+06. Take It From The Top [04:00]
+07. The Only One For Me [04:51]
+08. Right From The Start [05:29]Жанр: Jazz, Smooth, Pop-JazzПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A081A8269BAE39D2EFF309795F82368D4DADC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365831   (927482) от 09.03.2020
 
 Claude Bolling Big Band - A Drum Is A Woman (1996) Milan Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
@@ -721,35 +754,6 @@ Chico Hamilton - The Master (1973) 2016, Culture Factory[FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FA25A0B5DD25A3E7D9D7250C130AE42EA5CCEAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095636   (924561) от 21.01.2017
-
-Monty Alexander - Saturday Night (1985) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bolivia [06:33]
- 02.Body And Soul [06:35]
- 03.Close Enough [07:02]
- 04.Funji Mamma [10:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC6E2B207A13D110DFCDCC1D0BA985F01E4A1D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

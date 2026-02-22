@@ -1,3 +1,131 @@
+###  Публикация: 940542   (462396) от 27.09.2015
+
+VA - Radio 538 Hitzone 75 (2015) [FLAC|Lossless]<Top 40, Pop, Rock, Dance, R&B, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R. City feat. Adam Levine - Locked Away (3:46)
+02. Adam Lambert - Ghost Town (3:28)
+03. Shaggy feat. Mohombi, Faydee & Costi - I Need Your Love (3:37)
+04. Pharrell Williams - Freedom (2:43)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Electronic, Electronic, Dancepop, Electro, House, R&B, Soul, LatinПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8D2F631AFE38C17C632367427280CDB9A0B89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549201   (462382) от 20.09.2012
+
+VA - Ciao Italia: The ultimate Italian collection (2012) 4CD[MP3|320 кб/с]<Pop, Oldes>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nada - Il re di denari [02:34]
+02. Nico Fidenco - A casa di Irene [03:11]
+03. Nicola Di Bari - La prima cosa bella [03:11]
+04. Patty Pravo - La spada nel cuore [04:30]
+05. Tony Renis - Quando quando quando [02:48]
+06. Luigi Tenco - Ciao amore [03:04]
+07. Riccardo Cocciante - Io canto [04:29]
+08. The Rokes - Eccola di nuovo [03:30]
+09. Bruno Lauzi - Amore caro, amore bello [03:12]
+10. Franco Califano - Tutto il resto e' noia [04:41](   Читать дальше...   )Жанр: Pop, OldesПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74199E0D814C9C59C0C1EC831D0AD2254A3D362E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549251   (462377) от 20.09.2012
+
+VA - Ciao Italia! 2 The ultimate Italian collection (2012) 4CD [MP3|320 кб/с]<Pop, Rock, Disco, Oldes>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paolo Conte - Via con me [02:49]
+02. Giusy Ferrari - Novembre [03:11]
+03. Gigi D’Alessio - Amore mio [04:04]
+04. Lucio Dalla - L' anno che verra [04:25]
+05. Milva - Per cosa [04:21]
+06. Marino Marini - Piccolissima serenata [03:08]
+07. Jimmy Fontana - Pensiamoci ogni sera [03:36]
+08. Bruno Lauzi - Il tuo amore [02:46]
+09. Bobby Solo - Non c' e piu niente da fare [03:00]
+10. Mal - Pensiero d' amore [03:21](   Читать дальше...   )Жанр: Pop, Rock, Disco, OldesФормат: BoxSet 4CD Premium CD - Not For SaleПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AAAD695614F47F5DFC8F6104352E6610AA039A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059654   (461832) от 04.10.2016
+
+Venus Gang - Galactic Soul (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект известного французского музыканта, композитора и продюсера - Jean-Pierre Massiera.01. Cosmic Daddy (5:19)
+02. Space Inferno (3:41)
+03. Take Me Back To My Planet (3:43)
+04. Telstar (3:22)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699AE570D9EFC7F9E9F9BE4AACDA257A0A4BE276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059286   (461720) от 04.10.2016
 
 Supermax - Love Machine (1996) [FLAC|Lossless|image + .cue] <Electronic, Funk/Soul>
@@ -636,122 +764,6 @@ Liz Mitchell (ex. Boney M) - No One Will Force You (1988) Reissue, ESonCD, 2008 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE78D02F06D05DF75139252F36D52975D8247C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321446   (458937) от 24.08.2019
-
-Taylor Swift - Lover (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Forgot That You Existed
-02. Cruel Summer
-03. Lover
-04. The Man(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236B1FB0165DEFA232A069459D0CA6BD3966BE25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568793   (457908) от 10.08.2022
-
-VA - NOW That's What I Call Music! Vol. 83 (2022) [MP3|320 Kbps] <Hip Hop, Rock, Afro Beat, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kendrick Lamar - N95
-02. Dove Cameron - Boyfriend
-03. Em Beihold - Numb Little Bug
-04. Tyga, Doja Cat - Freaky Deaky(   Читать дальше...   )Жанр: Hip Hop, Rock, Afro Beat, SynthpopПродолжительность: 01:06:53 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49858AE5CD3B0BB9342363F71E549E5F20447E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568725   (457802) от 10.08.2022
-
-Fancy - Contact (1986) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reaving Queen (4:21)
-02. Don't Want To Go (4:07)
-03. Bolero (Hold Me In Your Arms Again) (4:05)
-04. Feedback, Feedback (5:05)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B24AFFB894F97F9D78EC4821CD251836B4125CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568684   (457800) от 10.08.2022
-
-Bad Boys Blue - The Fifth (1989) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady In Black 3:46
-02. Someone To Love 3:05
-03. A Train To Nowhere 3:53
-04. I'm Not A Fool 3:49(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D694A21866E0D048ED927B7FF6822E472B30B7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

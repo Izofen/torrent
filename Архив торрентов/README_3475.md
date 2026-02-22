@@ -1,3 +1,29 @@
+###  Публикация: 1408811   (451150) от 14.09.2020
+
+AAF DCH Optimus Sound 6.0.9013.1 Realtek Mod by AlanFinotty1995 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Realtek AAF DCH Optimus Sound, аудио драйвер "всё в одном". При установке данного аудио драйвера есть варианты выбора установки, таких как Realtek Audio Console, Sound Blaster Connect, Nahimic, Sonic Studio, Dolby Atmos. Цель проекта Realtek AAF Audio Pack DCH аудио драйвера это извлекать превосходное качество звука из музыки, фильмов, игр или другого контента (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA78EA89513C151E4F474C0DB9F7E1D86F2AC993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060803   (451149) от 09.10.2016
 
 VA - Your World (2012) EP [MP3|320 Kbps] <Drum & Bass, Liquid Funk>
@@ -665,32 +691,6 @@ CCleaner - утилита для чистки мусора в операцион
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE0DABFFC2DA680BFB7AAC359A679F5F0F5B2AA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552036   (450948) от 25.09.2012
-
-[Фотография]Photos from Mikaella Speranskaya
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы фотографа Mikaella Speranskaya.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348CCC2828E6CDB85A465F4A50E9D9E43F5F60B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

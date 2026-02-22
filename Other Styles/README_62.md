@@ -1,3 +1,32 @@
+###  Публикация: 1276736   (787614) от 17.01.2019
+
+VA - Yoga Chill Out 2019 [MP3|320 Kbps] <New Age, Ambient, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Sunshine - Alala (Intro Chill Mix)
+02. Illegal Substances - Lost Civillization (Edit)
+03. Ufomatka - Sunrise On Venus
+04. The Same Old Souls - Strange Light Anomalies(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 03:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EF0BA8E934DB69AFD18A8263A2D394BFF6DA9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203643   (787600) от 03.02.2018
 
 Ray Conniff - Музыка хорошего настроения (2005) [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD46E8C0F86EE47A08037105A83F3711084D256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204613   (784350) от 07.02.2018
-
-Armik - Romantic Spanish Guitar Vol. 3 (2016) [FLAC|Lossless|image + .cue] <Instrumental, Nuevo Flamenco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sol De Sevilla (04:33)
-02. Noche De Romance (04:42)
-03. For Every Kiss (04:38)
-04. Only for You (04:37)(   Читать дальше...   )Жанр: Instrumental, Nuevo FlamencoПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9AA334D91C5B083D8351229911421CE189317E
 ```
 
 https://mybot314.ru/tekegram_catalog/

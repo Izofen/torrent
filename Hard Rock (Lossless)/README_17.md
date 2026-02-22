@@ -1,3 +1,38 @@
+###  Публикация: 629885   (930332) от 14.03.2013
+
+Michael Katon - 10 альбомов (1988-2007) [FLAC|Lossless]<Hard Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1988 - Proud To Be Loud (2006)
+1992 - Get On The Boogie Train
+1994 - Rip It Hard
+1996 - Bustin Up The Joint - Live
+1996 - Rub (2006)
+2000 - The Rage Call Rock'N'Roll
+2002 - Bad Machine (2005)
+2006 - MK
+2006 - Diablo Boogie
+2007 - Live & On The Prowl!Жанр: Hard Blues-RockПродолжительность: 09:32:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 286501   (930264) от 24.01.2011
 
 Scorpions - Sting In The Tail (2010) Premium Edition [FLAC|Lossless]<Hard Rock>
@@ -750,34 +785,6 @@ Master Men - Through The Window (2015) [FLAC|Lossless|image + .cue] <Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE25E7185A23F121E620839CCA4CD9F158387027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366456   (922481) от 12.03.2020
-
-State Cows - 2 альбома (2010-2013) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2010 - State Cows
-2013 - The Second OneЖанр: Westcoast, AORПродолжительность: 02:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2324BC3F1B715D830D0EB23010C02E29DF57B640
 ```
 
 https://mybot314.ru/tekegram_catalog/

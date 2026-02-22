@@ -1,3 +1,32 @@
+###  Публикация: 1397024   (741367) от 19.07.2020
+
+VA - German Top 100 Single Charts 17.07.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apache 207 - Bläulich
+02. Kontra K - Tiefschwarz (feat. Samra)
+03. Jawsh 685, Jason Derulo - Savage Love (Laxed - Siren Beat)
+04. KC Rebell, Summer Cem, Loredana - GEH DEIN WEG (feat. Loredana)(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568FB144F98B49B3CDB987FB4BA532D2DC5CE155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397308   (741258) от 19.07.2020
 
 VA - Disco Charm: New Generation (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
@@ -716,35 +745,6 @@ VA - Высшая лига. Весна выпуск № 4 (2017) [MP3|256 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1825A9F4ECD0281FDD0393D96D56A1A98D13BD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127757   (731136) от 22.04.2017
-
-VA - Топовая сотня весенняя версия № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Пающие Трусы - Давай Туси 3:01
-002. Леля - Грешная 3:43
-003. Ваня Чебанов - Ты №1 3:41
-004. Кейс - Держать Тебя За Руку 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC148303E262BD503D758C5B342C6C9D2C6784F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

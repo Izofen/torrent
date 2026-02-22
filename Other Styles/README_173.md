@@ -1,3 +1,32 @@
+###  Публикация: 1666235   (180112) от 03.10.2023
+
+VA - The Orient Collective: Ethereal Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FIN Project - Vision (JosSync Remix) (6:15)
+02. Ali Termos - Qartaba (5:38)
+03. Tamer ElDerini - Fagr (5:42)
+04. Kakura - Savannah (7:25)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCD4FB9AC4E8D48B4ACA98A7AD6C4A6766E99FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666125   (180108) от 03.10.2023
 
 VA - The Orient Collective: Agharta (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -714,35 +743,6 @@ Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EAD49E7D1BA747DDDE7A27B61DD0E57D24D2C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515087   (170355) от 06.12.2021
-
-VA - Гармонь России (2005) [FLAC|Lossless|tracks + .cue] <Фольклор, Русские народные песни>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Митрофановна - Никто тебя не любит так, как я (3:19)
-02. Митрофановна - Все татары, кроме я (2:08)
-03. Валентина Гуряшина - Одуванчик (2:23)
-04. Валентина Гуряшина - Ягода-смородина (3:23)(   Читать дальше...   )Жанр: Фольклор, Русские народные песниПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA37C175577DD4F4CC0963EB94F108B21E3A5C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

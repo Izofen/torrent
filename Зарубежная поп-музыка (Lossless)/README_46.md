@@ -1,3 +1,32 @@
+###  Публикация: 1038630   (604923) от 29.07.2016
+
+HONNE - Warm On A Cold Night (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Pop, Soul, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warm On A Cold Night (04:21)
+02. Til The Evening (04:40)
+03. Someone That Loves You (With Izzy Bizu) (04:04)
+04. All In The Value (03:42)(   Читать дальше...   )Жанр: Alternative Pop, Soul, ElectronicПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DB29C4FD7E54681703FB61835129F924C91AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297294   (604736) от 21.04.2019
 
 Bee Gees - Odessa (1969) Deluxe Edition, 2017 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1903D8423F703AEA8A6E6EBA15AC69E003BB8918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150298   (595285) от 14.07.2017
-
-Peter Cornelius - Liederbuch (1998) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Du entschuldige i kenn Di (04:23)
-02. Reif für die Insel (04:41)
-03. Ganz Wien hat den Blues (04:21)
-04. Der Kaffee ist fertig (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163D36185473C2322FFA2B125DC386C97230F76D
 ```
 
 https://mybot314.ru/tekegram_catalog/

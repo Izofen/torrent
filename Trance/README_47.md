@@ -1,3 +1,32 @@
+###  Публикация: 1585028   (223576) от 20.10.2022
+
+VA - 4 Strings - Vocal Trance Hits (2022) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Strings & Susanne Teutenberg - A Brand New Day (Original Mix)
+02. 4 Strings & Susana - Completely (Original Mix)
+03. 4 Strings & Carol Lee - Emotions Away (Radio Edit)
+04. 4 Strings & Trance Classics & Ellie Lawson - Safe From Harm (Omar Sherif Remix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 04:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71E75330561813AC2343B5FEDC1F3A40CC61FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585212   (222824) от 21.10.2022
 
 VA - Gert Records 10 Years Anniversary - (Mixed by DJ OptimuS) (2022) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Nothing But... Trancetopia, Vol. 04 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A034E6C4553CA75D85CCA57C0E01DC1EA6C3E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641656   (210741) от 23.06.2023
-
-VA - Suanda Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Gid Sedgwick - This Is Real (Christopher Corrigan Extended Remix) [7:05]
-02. SMR LVE & Jennifer Rene - Stay (Extended Mix) [5:45]
-03. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
-04. DJ T.H. & Sharon Valerona - Only Now I See (Extended Mix) [5:54](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789263E5DF94EEADEC1DD9728B04E20B3319D347
 ```
 
 https://mybot314.ru/tekegram_catalog/

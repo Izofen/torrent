@@ -1,3 +1,32 @@
+###  Публикация: 1142088   (644474) от 13.06.2017
+
+VA - Summer All Stars NRJ Mix (2017) [MP3|241-320 Kbps] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644474.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Charlie Puth - Dangerously
+002. Clean Bandit feat. Sean Paul & Anne Marie - Rockabye
+003. James Arthur - Say You Won't Let Go
+004. Maroon 5 - Don't Wanna Know feat. Kendrick Lamar(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 07:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C96343504B101CD630CC185ED7E1F2D83760FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142187   (644466) от 13.06.2017
 
 VA - Первый молниеносный (2017) [MP3|320 Kbps] <Pop>
@@ -737,35 +766,6 @@ VA - Русский хит. Летний выпуск №3 (2016) [MP3|256 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B2B69852DBA0C37FC265DCA66D4A33224830583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033497   (637943) от 11.07.2016
-
-VA - Молодежный Сборник Хитов 50x50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637943.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jasmine Thompson - Oasis
-002. Ilona - Я Super
-003. Rasmus Skott - Acted Show
-004. Нетсмысла - Мегаполис(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C391892A4CA6CD8321FAA09E9FA018389428954
 ```
 
 https://mybot314.ru/tekegram_catalog/

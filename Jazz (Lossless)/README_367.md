@@ -1,36 +1,3 @@
-###  Публикация: 447497   (92605) от 07.02.2012
-
-John Clark - Il Suono (1992) [FLAC|Lossless]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Mustang Sally 8:56
-02. Buster's Move 8:58
-03. Groove From the Louvre 6:56
-04. Hot Fried Fish 3:11
-05. Dolphin Dance 6:18
-06. Miradita 6:46
-07. Il Suono Delle Ragazze Che Ridono 2:54
-08. Pretty Loose 2:54Жанр: Post-BopПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 447532   (92499) от 06.02.2012
 
 Joey DeFrancesco - Where Were You? (1990) [FLAC|Lossless]<Jazz, Post-Bop>
@@ -879,6 +846,41 @@ Bebo Best & Super Lounge Orchestra - Saronno On The Rocks (2011) [FLAC|Lossless]
 08.   Now And Ever (5:25)
 09.    Chill Radio Bossa (4:24)
 10.   The Sun Is Shinin' (4:13)(   Читать дальше...   )2011Жанр: Bossa Nova, Nu Jazz, LoungeПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485869   (89767) от 21.04.2012
+
+V.A. - The Mood Mosaic (1999) Vol.8 [FLAC|Lossless]<Easy Listening, Jazz-Funk,   Free Funk, Funk, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Connell dantzler - Bo gha :: 02:29
+02. Little ed - Petite soul :: 02:01
+03. Kenneth wells - Contagious :: 02:30
+04. Tony newman - Soulthing :: 02:26
+05. Elaine delmar - Sneaking up to you :: 02:13
+06. Mohawks - Studio 69 :: 01:47
+07. Ian langley - Chicano chaser :: 03:19
+08. Janko nilovic - Chorus for leslie :: 02:04
+09. The shifters - Ghost :: 02:02
+10. Dave grusin - Gasoline alley :: 02:58(   Читать дальше...   )1999Жанр: Easy Listening, Jazz-Funk, Free Funk, Funk, Latin JazzФормат: CD, CompilationПродолжительность: 00:59:28
 
 ## Скачать торент
 ```bash

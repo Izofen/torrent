@@ -1,3 +1,90 @@
+###  Публикация: 1388758   (786572) от 07.06.2020
+
+Brian Culbertson - XX (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up! (ft. Mr. Talkbox & Marcus Anderson)
+02. Dance Like This (ft. Bootsy Collins)
+03. The Hangout (ft. Ray Parker Jr.)
+04. Prelude to More Than Thankful(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9F4B8852F7453A42DABE5BD4711BE73E49DF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123503   (786416) от 08.04.2017
+
+Eddie Shu / Bob Hardaway - Jazz Practitioners (1954, 1955) 2001, Toshiba [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's Sand, Man! [02:59]
+ 02.Tom, Dick And Jim [03:15]
+ 03.Day By Day [02:09]
+ 04.Blues For Baby [02:21](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C97AB8D1571E5B262AC29998C8A249FCAC9573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123563   (786414) от 08.04.2017
+
+Valery Ponomarev - Trip To Moscow (1988) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Same Place, Same Time [08:15]
+ 02.Gettin' to Bolshoi [07:52]
+ 03.Gorky Park [08:13]
+ 04.Trip to Moscow [09:21](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED0405FDD7644B1314D91FD87B6FEA8FE5C383F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123567   (786411) от 08.04.2017
 
 Ben Webster - Ben Webster's Finest Hour (1934-1964) 2000, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -658,93 +745,6 @@ Devon Coyote - The Wind (2016) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0DDD7F52EEA77FE6FA148FE8002750261842D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124141   (785970) от 10.04.2017
-
-The Naughty Blokes - We Rise (2016) [FLAC|Lossless|WEB-DL|tracks] <British Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Attack  (03:40) 
-02. Move You  (03:29) 
-03. Tenderly Loved Woman  (05:31) 
-04. Constantly  (04:01) (   Читать дальше...   )Жанр: British BluesПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291F2C75DEF980DF5948A79C93715E75D4D8C6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124133   (785963) от 10.04.2017
-
-Pee Wee Crayton - Things I Used To Do (1971) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Night  (02:50) 
-02. But On The Other Hand  (04:06) 
-03. Peace Of Mind  (02:54) 
-04. Let The Good Times Roll  (02:50) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA4DC15530231ADD486FF78EF3C43E0B3DE663C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124246   (785940) от 10.04.2017
-
-Keb' Mo' - Bluesamericana (2014) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Worst Is Yet To Come  (03:57) 
-02. Somebody Hurt You  (03:37) 
-03. Do It Right  (04:08) 
-04. I'm Gonna Be Your Man  (04:34) (   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE107B09DBF55EDDC8DC311258F2B69BF44978FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

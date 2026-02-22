@@ -1,3 +1,32 @@
+###  Публикация: 1376714   (856665) от 19.04.2020
+
+Theodor Bastard - Волчья Ягода (2020) [MP3|320 Kbps] <Trip Hop, Folk Rock, Darkwave>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Flute Song [00:02:08]
+02 Шуми [00:04:30]
+03 Skejgored [00:04:43]
+04 Urzala [00:04:04](   Читать дальше...   )Жанр: Trip Hop, Folk Rock, DarkwaveПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F35002D024C76493D311C3D8EA49409E3F8B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 647661   (856589) от 23.04.2013
 
 Nino Rota - Grand Collection (2003) [MP3|256 кб/с]<Soundtracks, Instrumental>
@@ -779,41 +808,6 @@ Steve Barakatt - The Best of Steve Barakatt (2004) [MP3|320 кб/с]<Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F4B567BD567FD6B668BA3645330EAB74775DA1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648526   (852966) от 25.04.2013
-
-Anthony Ventura - Love Album (2013) [MP3|256 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 I can't stop loving you (04:28)
-02 Stranger On The Shore - Love Is Blue (03:49)
-03 Comme D'habitude (My Way)(03:17)
-04 La vie en rose (03:04)
-05 My Happiness - Only You (04:55)
-06 Love Story (03:40)
-07 When A Man Loves A Woman (02:45)
-08 Speak Softly Love - Somewhere Over The Rainbow (04:12)
-09 Let Your Love Flow - It's a Heartache (04:11)
-10 Apres Toi (03:52)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AE72AF1D2383F509169D4313EA8B33C4B1B1D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

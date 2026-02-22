@@ -1,3 +1,31 @@
+###  Публикация: 1537330   (668720) от 15.03.2022
+
+Microsoft Office 2021 for Mac LTSC v16.59 VL [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко узнаваемый Office, разработанный для Mac
+Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, которые сочетающими в себе знакомый интерфейс Office и уникальные возможности Mac, какие успели вам полюбиться.
+Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2022Разработчик: © 2022 Microsoft CorporationПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74012D165C1D397EE4AC4C012518A90F9D83FC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137040   (668700) от 25.05.2017
 
 Adobe Photoshop Lightroom CC 2015.10.1 (6.10.1) RePack by KpoJIuK [Multi/Ru]
@@ -667,35 +695,6 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEF3531C62D32367F972ABAA62059B60F296F50C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031024   (668574) от 03.07.2016
-
-The String Cheese Incident - 2016-06-26 Electric Forest - Rothbury (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Bluegrass, Neo-Psychedelia, Jam Band>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668574.jpg" />
-</div>
-
-
-###  Подробнее
-
-SET ONE
-1. Miss Brown's Teahouse (12:29)
-2. These Waves (7:44)
-3. Djibouti Bump (3:24)(   Читать дальше...   )Жанр: Progressive Bluegrass, Neo-Psychedelia, Jam BandПродолжительность: 02:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE9B8C4ABDD7FD00AE07E3EF77656408C7F1A5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

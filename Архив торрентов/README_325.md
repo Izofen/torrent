@@ -1,3 +1,29 @@
+###  Публикация: 604946   (995971) от 18.01.2013
+
+Новый Камеди Клаб / Комеди Клаб / Comedy Club/ Выпуск №353 (18.01.2013) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995971.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из КВН. 23 апреля 2005 года «Comedy Club» впервые вышел в эфир телеканала ТНТ. Рейтинги программы стали бить все рекорды и это приносило программе большие доходы, на которые они стали делать другие проекты. Впоследствии они создали свою продюсерскую компанию «Comedy Club Production». 15 апреля 2007 года на ТНТ был показан сотый выпуск программы. Регулярно выходят новые выпуски и другие проекты - например спецвыпуски на Первом канале, юмористические фестивали и продюсирование участниками «Comedy Club» проекты других телепередач. 23 апреля 2010 года «Comedy Club» вышло с новой музыкой и обновлённым оформлением. Также «Comedy Club» выходит на каналах ICTV, (   Читать дальше...   )В выпуске: Продолжительность: ~ 00:43:50Жанр: Телепередача
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EF10AE30263A2AD00C57B1D13107C5386567B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605061   (995957) от 19.01.2013
 
 The Symbioz - 1 альбом + 1 EP (2011-2012) [FLAC|Lossless] <Hardcore / Metal>
@@ -730,39 +756,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47C747CE459F35B6F180742017FE553E96CA1B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605309   (995927) от 19.01.2013
-
-Markus Schulz - Global DJ Broadcast (17-01-2013) [MP3|256 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lange - Hold That Sucker Down (Intro Mix)
- 02. Ferry Corsten - Kudawudashuda
- 03. Aerofoil vs. E&G - One Word (Markus Schulz Big Room Reconstruction)
- 04. Markus Schulz Featuring Ana Diaz - Nothing Without Me (Markus Schulz Return to Coldharbour Remix)
- 05. Gal Abutbul & Sigal Cohen - Patana (Tucandeo Remix)
- 06. Lana Del Rey - Summertime Sadness (Cedric Gervais Remix)
- 07. SkyKeeper - Tornado 2013 (Reload Mix)
- 08. DNS Project - ShatterЖанр: TranceПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F659797979F8DD5BEBEE190584933AEDC5B3DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

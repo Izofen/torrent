@@ -1,3 +1,32 @@
+###  Публикация: 1649784   (228588) от 29.07.2023
+
+Korn - Untitled (2007) Deluxe, 2023, Tempo Music [MP3|320 Kbps] <Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:57]
+02. Starting Over [00:04:02]
+03. Bitch We Got a Problem [00:03:22]
+04. Evolution (Album) [00:03:37](   Читать дальше...   )Жанр: Nu MetalПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5F451CCB267F567A041D02B7137E1CD3426218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583713   (228071) от 16.10.2022
 
 The Most Rated Death Kills - 4 Releases (2017-2022) [MP3|320 Kbps] <Black, Death, Doom Metal>
@@ -732,35 +761,6 @@ Satin - Appetition (2022) [MP3|320 Kbps] <Rock & Metal World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78F7900B2A8EBD2421B9735CA408F1A2F219C761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650468   (225670) от 02.08.2023
-
-Outlanders - From Chaos to Extinction (2023) [MP3|320 Kbps] <Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worship And Control (04:27)
-02. Subliminal Brutality (03:57)
-03. Miss Democracy (04:09)
-04. Keep Thy Religion To Thyself (03:59)(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A796C8E1DBD04D8C06D1BD2C4FFFFACB09CA5C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

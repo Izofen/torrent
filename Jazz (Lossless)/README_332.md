@@ -1,32 +1,3 @@
-###  Публикация: 1698938   (118081) от 11.02.2024
-
-Al Grey & Bjarne Nerem - Al Meets Bjarne (1989) Gemini [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things Ain't What They Used to Be [5:48]
-02. Sad Sam [6:13]
-03. Lester Leaps In [5:29]
-04. Blue and Sentimental [4:06](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E3F1CD409494E193F558F6B71B1C836F04190E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698939   (118077) от 11.02.2024
 
 Pat Martino & Joyous Lake - Stone Blue (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
@@ -745,6 +716,35 @@ Ray Drummond - Excursion (1993) Arabesque Jazz [FLAC|Lossless|image + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F6FB9E550E50CCAA9C2CD5212FFEF914D15F33F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700204   (117145) от 16.02.2024
+
+Donald Byrd & Kenny Burrell - All Night Long (1956) 2003, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night Long [17:15]
+02. Boo-Lu [6:49]
+03. Flickers [6:13]
+04. Li'l Hankie [8:25](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8460AA4E00157436EBD08F8E39C71E0CA6FC879
 ```
 
 https://mybot314.ru/tekegram_catalog/

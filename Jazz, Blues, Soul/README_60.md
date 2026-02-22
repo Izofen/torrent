@@ -1,3 +1,96 @@
+###  Публикация: 976231   (969842) от 17.01.2016
+
+Rahsaan Roland Kirk & Al Hibbler - A Meeting Of The Times (1965) 2004, Rhino[FLAC|tracks+.cue] <Vocal Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Do Nothing Till You Hear From Me [04:40]
+ 02.Daybreak [03:12]
+ 03.Lover Come Back to Me [03:49]
+ 04.Don't Get Around Much Anymore [02:57](   Читать дальше...   )Жанр: Vocal Jazz, Hard BopПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7852E7DAE5886215FFF81FDC493E1B82F0D1E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358244   (969765) от 07.02.2020
+
+John Coltrane - The Last Giant: The John Coltrane Anthology 1946 - 1961 (1993) 2CD, Rhino [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969765.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Hot House (Jam Session) [2:06]
+02. Good Groove [4:11]
+03. We Love to Boogie [2:53](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 02:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3CBC758A5379826EF7C78A425D6537F564AFD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617520   (969735) от 14.02.2013
+
+VA - Blues - The Best of... Radio-Farwater (2013) [MP3|128-320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Alain Berkes & Blues Heritage - 6-35 (6:42)
+ 2. Angela Strehli Band - A Stand By Your Woman Man (3:43)
+ 3. Mark Kendal - Ain't Gone 'n' Give Up On Love (6:06)
+ 4. Fernando Noronha & Black Soul - Ain't That A Shame (7:09)
+ 5. Monster Mike Welch - All The Love In The World (7:16)
+ 6. Robert Cray With Albert Collins - Angel Of Mercy (9:34)
+ 7. Motor City Josh - Back Door Man (4:09)
+ 8. Nuno Mindelis - Back To Memphis (4:31)
+ 9. Fernando Noronha & Black Soul - Bad Boy (5:17)
+ 10. Bo Diddley - Before You Accuse (   Читать дальше...   )Жанр: BluesПродолжительность: 11:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0846FB17C847BEA49816909EA15E9C15A2CAF99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 745126   (969578) от 13.01.2014
 
 Trygve Seim, Andreas Utnem - Purcor (2010) [FLAC|Lossless]<Jazz, ECM>
@@ -730,93 +823,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:769228292D76E2B40181633A012C9D0F8D4DE74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976798   (967833) от 19.01.2016
-
-Maria Schneider Orchestra - Concert In The Garden (2004) ArtistShare[FLAC|tracks+.cue] <Modern Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Concert In The Garden [11:58]
- 02.Three Romances: Part 1 Choro Dancado [09:46]
- 03.Three Romances: Part 2 Pas de Deux [09:03]
- 04.Three Romances: Part 3 Danca Ilusoria [09:06](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6FD64D70273A4E1A37046E7870951D5AC91292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977139   (967795) от 19.01.2016
-
-VA - Luxury Soul (2015) Box set [MP3|320 кб/с] <Funk , Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glen Goldsmith - Don't Delay (12'' Version) (4:48)
-02. Calvin Richardson - Home in a Minute (5:32)
-03. Shirley Jones - Because You Love Me (3:57)
-04. Butch & Rhonda Coleman - Here I Go Again (4:28)(   Читать дальше...   )Жанр: Funk , SoulПродолжительность: 02:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45BDE27037E43A33513237CEA81CCE775286038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976988   (967791) от 19.01.2016
-
-Ray Charles - Original Motion Picture Soundtrack (2004) Rhino[FLAC|tracks+.cue] <Blues, R&B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mess Around [02:42]
- 02.I've Got a Woman [02:53]
- 03.Hallelujah I Love Her So (live) [03:06]
- 04.Drown in My Own Tears [03:22](   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95722C6E07DFBF9E398C3420083DABD1789092E
 ```
 
 https://mybot314.ru/tekegram_catalog/

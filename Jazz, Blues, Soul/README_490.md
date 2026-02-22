@@ -1,3 +1,32 @@
+###  Публикация: 1085612   (156394) от 22.12.2016
+
+VA - Sexy Beach Jazz: The Very Best of Cafe Chill and Summer Relaxing Smooth Jazz Lounge (2016) [MP3|320 Kbps] <Smooth Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soleil Fisher - After the Echoes - Instrumental Bar Mix
+02. Burning Lipps - Near or Far - Erotic Beach Love Mix
+03. Eliane Davis - In the Sun - Chillout Mix
+04. Dial J for Jazz - The Smooth Soul of Life - Guitar Del Mar Mix(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 01:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4589970D6FC53A9A9AC29BDE3B32963522706369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853878   (156350) от 27.12.2014
 
 Vaya Con Dios - Thank You All ! (2014) [FLAC|Lossless|WEB-DL]<Pop, Jazz-Pop, Blues, Vocal>
@@ -724,35 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:487F5D7FC110807A477CF3CF8844DAABAFD0E27F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085831   (154903) от 23.12.2016
-
-John Coltrane - Blue Train (1957) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blue Train [10:44]
- 02.Moment's Notice [09:11]
- 03.Locomotion [07:15]
- 04.I'm Old Fashioned [07:59](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D24C9029E54402E48E1D3D303C6C33855AB068
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1084161   (220402) от 18.12.2016
+
+VA - Alternative Classic Rock (2016) [MP3|320 Kbps] <Alternative, Progressive, Hard Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220402.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Anathema - Restless Oblivion 8:02
+002.Iced Earth - Last December 3:24
+003.Black Sabbath - The Illusion Of Power (Feat. Ice-T) 4:54
+004.Down - Lifer 4:36(   Читать дальше...   )Жанр: Alternative, Progressive, Hard Classic RockПродолжительность: 09:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D695CA3D53C0B0DE8F4ADBCA5AF1B83A6E170C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426099   (216634) от 23.11.2020
 
 VA - Punk Rock: Just The Hits! (2020) [MP3|320 Kbps] <Punk, Punk Rock>
@@ -716,32 +745,6 @@ VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78E80F6435977DD0EA1E6982AB84AD0EFFD40F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356395   (204243) от 10.01.2023
-
-Wildways (ex-Sarah Where Is My Tea) - Коллекция (Дискография) (9 альбомов) (2009-2022) [MP3|128-320 Kbps] <Металкор, Постхардкор, Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wildways — Российская метал-группа была создана в конце августа 2009 года гитаристом Сергеем Новиковым и изначально носила название «Sarah Where Is My Tea». 17 июня 2014 года группа меняет название на Wildways (англ. дикие пути). «Просто захотели сделать новый шаг, стать более серьезными. Название Sarah Where Is My Tea звучало слишком саркастично. В какой-то момент (   Читать дальше...   )Жанр: Постхардкор, Металкор, РокПродолжительность: 07:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7FD9DB49F6326D84C6637A7063680372A37394
 ```
 
 https://mybot314.ru/tekegram_catalog/

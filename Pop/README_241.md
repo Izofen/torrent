@@ -1,3 +1,90 @@
+###  Публикация: 1261548   (303479) от 11.11.2018
+
+VA - DJ Hitparade Jubiläeumsedition: 40 Größe Hits Aus 10 Jahren (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Der Letzte Tag Im Paradies (DJ Mix Extended)
+02. Fantasy - Darling (Foxmix)
+03. Andreas Martin - Ich Fang Dir Den Mond (Fox Fun Mix)
+04. Christian Anders - Gespensterstadt 2009 (3select-Rmx)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A54C367A68447F517E1132BD4671B9EA73C0E59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333437   (303417) от 25.10.2019
+
+Nick Kamen - 4 Albums (1987-1992) Collection [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1987 - Nick Kamen
+1988 - Us
+1990 - Move Until We Fly(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 02:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5893C300577F18F1A19D1A6D541DA40C8E0144CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333583   (303289) от 25.10.2019
+
+Кватро - The Best Of (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Замок из дождя
+2. Если б не было тебя
+3. Твои следы
+4. Как ты красива сегодня(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61745ED7C77713B12A31DCFA558F3D5B47B10112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261547   (303273) от 11.11.2018
 
 Vera - The Collection: Take Me to the Bridge / Joey (2018) 2CD [MP3|320 Kbps] <Disco, Hi NRG, Synthpop>
@@ -659,93 +746,6 @@ Army Of Lovers - Les Greatest Hits (1996) [FLAC|tracks+.cue]<Leftfield, Euro Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD7576F7F59C25EEEA6B66AA2438CF564230BAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078743   (300163) от 01.12.2016
-
-Elvis Vs Spankox - Re:Versions (2008) [MP3|320 Kbps] <Electronic, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Let's Play House (Spankox Re-Version - Highpass Radio Edit)
-02. Don't Be Cruel (Spankox Re-Version - Highpass Radio Edit)
-03. (Let Me Be Your) Teddy Bear (Spankox Re-Version - Highpass Album Cut)
-04. Jailhouse Rock (Spankox Re-Version - Highpass Radio Edit)(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9B402B262DDD8D72560E967C022A93CE0FB79B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078652   (300162) от 01.12.2016
-
-Алексей Петров - Девушка и смерть (2012) [MP3|256-320 Kbps] <Pop, Rock, Lo-fi, Experimental, Indie>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маша и шприц
-02. Под аккомпанемент страстей
-03. Чупакабра
-04. Отыскрит(   Читать дальше...   )Жанр: Pop, Rock, Lo-fi, Experimental, IndieПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB682C6520A13C0DB53074DE5F36F6BCA42F8F20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423393   (300083) от 13.11.2020
-
-Harold Faltermeyer - Harold F (1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prophecy  (4:33)
-02. Appassionata  (3:18)
-03. Them Changes  (4:12)
-04. Must Be Paradise  (4:30)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA1B6388CD59806C2691DDD3898AA19F3947BCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1681441   (132771) от 03.12.2023
+
+VA - The Birth Of Hard Bop (Donald Byrd, Horace Silver, Hank Mobley, Lee Morgan) (1956) 2CD, 2000, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donald Byrd & Hank Mobley - B. for B.B. (previously unissued) [6:31]
+02. Donald Byrd & Hank Mobley - B. for B.B. [6:29]
+03. Hank Mobley & Lee Morgan - Hank's Shout [7:02]
+04. Hank Mobley & Lee Morgan - Bet [7:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44213EC3FDDB3C6488E778DE290969B6FF294A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681525   (132702) от 03.12.2023
 
 Norah Jones - Little Broken Hearts (2012) 2023, 2CD Japan Deluxe Edition, SHM-CD [FLAC|Lossless|image + .cue] <Contemporary Jazz, Pop>
@@ -740,35 +769,6 @@ Toshiyuki Miyama & The New Herd - A Love Story: This Is Latin Music (1970) 2006,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7914E4F49F96AD61FA9118BFB54BEAB50A14261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682302   (131487) от 07.12.2023
-
-Steve Shanahan - Blue Ranchero (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Train Kept a-Rollin' (2:34)
-02. Crazy Mixed up World (2:24)
-03. Driftin' Blues (4:23)
-04. Dangerous Mood (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7685C7712480CCE7351F5C2F8AEB06B2C0CFBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1381094   (829173) от 05.05.2020
+
+Service Pack for ProLiant (SPP) 2020.03.0 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Service Pack for ProLiant (SPP) - пакет обновления HP для серверов ProLiant и Apollo. Это полный набор для обновления  драйверов, утилит и firmware для любых серверов HP семейства ProLiant Gen9/10/10 Plus и Apollo Gen9/10/10 Plus. Эта всеобъемлющая система программного обеспечения и обновления прошивки поставляется в виде одного ISO-образа. Это решение использует (   Читать дальше...   )Язык интерфейса: Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0FA294CC950653B05A0C077E7D5F5843953363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 774309   (829160) от 06.04.2014
 
 В белом плену / Into the White (2012) BDRip [720p]
@@ -691,35 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FBA324B8BBF0ECF6B8085FF8F2280714B3EACA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006308   (828870) от 11.04.2016
-
-Mozart - Horn Concertos (Tuckwell, Marriner - ASMF) (2001) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hornkonzert Nr. 1 D-dur, KV 412
-01 -1- Allegro
-02 -2- Rondo. Allegro
-Hornkonzert Nr. 2 Es-dur, KV 417(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BF9BAD12D0CFABAC59CEADA126CB157E0BD063
 ```
 
 https://mybot314.ru/tekegram_catalog/

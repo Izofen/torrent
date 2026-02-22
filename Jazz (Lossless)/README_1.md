@@ -1,3 +1,32 @@
+###  Публикация: 1603865   (1045584) от 11.01.2023
+
+Herb Alpert - Sunny Side of the Street (2022) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Childhood
+02. Pata Pata
+03. Goo Goo Eyes
+04. I'll Remember You(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D510111EED05706231C7E16E8C0C89E8F65381B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604056   (1045522) от 12.01.2023
 
 Tri-Fi - Postcards (2007) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Woody Herman - The Woody Herman Band! (1954) 2005, Membran Music [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2E4D8FBC2053A03F8491885CDD6E90574EB667B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606716   (1044334) от 23.01.2023
-
-The Jazz Piano Quartet - Let It Happen (1974) 1983, RCA Records [WavPack|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover, Come Back To Me [2:39]
-02. Maiden Voyage [3:56]
-03. Let It Happen [4:22]
-04. Watch It [3:04](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39EEA2295D5958A48A48FA95567985AF31E52DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

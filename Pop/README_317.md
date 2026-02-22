@@ -1,3 +1,90 @@
+###  Публикация: 1684320   (127811) от 15.12.2023
+
+Тайпан - Она говорила (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127811.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Царство моё (feat. Logmarin & MorozKA)
+2. Так влюблена (feat. IL'GIZ)
+3. Лети (feat. NAZAMI)
+4. Не сойти с ума (feat. LI ZA)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2D86854D8F2741BC6EDA097A8361ECEBD0EC40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684324   (127640) от 16.12.2023
+
+VA - M6 Hits 2024 (2023) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris - My Way (3:39)
+02. Rema - Calm Down (3:39)
+03. Hamza - Nocif (3:49)
+04. SDM - Bolide allemand (2:56)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 04:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676DC2CBBAC03776D835E0437F5243BE21CFCE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684668   (127585) от 16.12.2023
+
+Мэйби Бэйби - SHAWTY (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, My Name Is Baby (00:02:20)
+02. DURAGA (00:02:22)
+03. Принцесса Диана (00:03:20)
+04. Ice Baby (00:02:49)(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECFC67FE9109AA38FD207CC404B7A1E2AE8CE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685001   (127422) от 17.12.2023
 
 VA - The Best Christmas Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
@@ -655,91 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10025AF4566BBE8BFF6A551B980796FFD0484F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823665   (125921) от 12.10.2025
-
-Lian Ross - Say You’ll Never (Anniversary Special Edition) (2025) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say You’ll Never
-02. Say You’ll Never (Bobby To Mix)Жанр: Euro-DiscoПродолжительность: 00:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C25CAE081AEB17B61B927392B6D0EA3F2A2CCB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687077   (125737) от 25.12.2023
-
-VA - Bravo Hits 20 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janet Jackson - Together Again
-02. Natalie Imbruglia - Torn
-03. Espen Lind - When Susannah Cries
-04. The Kelly Family - One More Song(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031FC464A0D1E6B51217D3326C11ED854BBCC256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686994   (125727) от 25.12.2023
-
-VA - Bravo Hits 19 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanson - MMMbop
-02. Real McCoy - Party
-03. Squeezer - Saturday Night
-04. Chili feat. Carrapicho - Tic Tic Tac(   Читать дальше...   )Жанр: Electronic, Pop, RockПродолжительность: 02:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2471FF8C502508B1851A0B90689570B276EB92C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

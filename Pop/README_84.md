@@ -1,3 +1,119 @@
+###  Публикация: 1123232   (792336) от 07.04.2017
+
+Gilla - The HQ Vinil Collection (1975-1980) All Studio Albums [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джилла, она же Гизела Вюхингер (Gisela Wuchinger), родилась в 1950 году в австрийском городе Линце. Уже с пяти лет начала играть на бас-гитаре, затем освоила такие инструменты как тромбон и орган. Стала первой успешной исполнительницей в творческой карьере композитора и продюсера Фрэнка Фариана, который  во многом ещё успевал отрабатывать на ней свои будущие основные (   Читать дальше...   )Список альбомов:
+1975 - Willst Du Mit Mir Schlafen Gehn
+1976 - Zieh Mich Aus
+1977 - Help! Help!(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 03:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724377AE312A28C7CAC0493DF84401776336C370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123171   (792335) от 07.04.2017
+
+Денис Майданов - Что оставит ветер (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792335.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Что оставит ветер
+2. Час-пик
+3. Жена
+4. По дороге к богу(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE040B68E691F18B6EB5137082760B3D8817B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274669   (792269) от 08.01.2019
+
+Noel - Is There More To Life Than Dancing? (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Is Dangerous (9:55)
+02. Is There More To Life Than Dancing? (7:55)
+03. The Night They Invented Love (9:06)
+04. Au Revoir (3:19)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E553272E472C58840D3A368D16EC695383B1E8D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201676   (792101) от 25.01.2018
+
+Людмила Сенчина - Золушка (1975) Remastered, 2001, Melodiya Record Company Europe [MP3|320 Kbps] <Pop, Vocal>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Памяти исполнительницы посвящается.01. Золушка (3:45)
+02. Ты дождись меня (3:12)
+03. Я к тебе не вернусь (3:45)
+04. Ты (3:03)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AB6A9B42CF64DB5800A96B1D6A8A8B7B7C2E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509298   (791929) от 15.11.2021
 
 ABBA - Voyage (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop>
@@ -626,122 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3D4F33DB4F41429DEED18E577D61FBDF9F98772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510850   (790147) от 18.11.2021
-
-Modern Talking - Original Album Classics (2011) 5xCD, Box Set, Compilation, Reissue, Sony Music [FLAC|Lossless|image + .cue] <Eurodisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790147.jpg" />
-</div>
-
-
-###  Подробнее
-
-1985 - The First Album
-1985 - The Second Album - Let's Talk About Love
-1986 - The Third Album - Ready for Romance
-1986 - The Fourth Album - In the Middle of Nowhere(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 03:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5513A9D074D42627611945E3F252EB56781F08A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388129   (790039) от 04.06.2020
-
-Britney Spears - Glory (2020) Explicit [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790039.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Invitation [3:20]
- 2. Make Me... (feat. G-Eazy) [3:51]
- 3. Private Show [3:55]
- 4. Man On The Moon [3:47](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D2D2704968BEAFD0A75646DE9D84A699D1D59C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388017   (790038) от 04.06.2020
-
-Randy Newman - Sail Away (1972) 2002, Rhino Records, Reprise Records [FLAC|Lossless|tracks + .cue] <Vocal, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sail Away (2:52)
-02. Lonely At The Top (2:35)
-03. He Gives Us All His Love (1:56)
-04. Last Night I Had A Dream (3:03)(   Читать дальше...   )Жанр: Vocal, PopПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005EB8B76869E18975C8C2311AAF992170CFE93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511043   (789853) от 19.11.2021
-
-Guy Lafleur - Lafleur! (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face Off (5:26)
-02. Skating (5:35)
-03. Checking (6:49)
-04. Power-Play (4:53)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1371278C21AC70DB781F67DA0A4D29C04FB28371
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1454561   (1026261) от 15.03.2021
+
+Nasty Ratz - First Bite (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love At First Fight
+02. Made Of Steel
+03. I Don't Wanna Care
+04. Morning Dreams Come True(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303ACEB4DA34EFF42B6FB82C80DFFCA537B3AF29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454584   (1026253) от 15.03.2021
 
 Michael Bormann's Jaded Hard - Feels Like Yesterday (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -717,35 +746,6 @@ Shannon - Circus Of Lost Souls (2013) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD5DA12D18C31E43AC65B0F241D2B7B96D50E95F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461083   (1022129) от 08.04.2021
-
-Shannon - Shannon (2003) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreaker
-02. Love In Hollywood
-03. Billion Dollars Rain
-04. She’s A Liar(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323EEDF1C1C0A9F0387FC365753D7F1A68759AB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

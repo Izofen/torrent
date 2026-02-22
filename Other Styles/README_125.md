@@ -1,3 +1,30 @@
+###  Публикация: 392412   (450050) от 16.09.2018
+
+Канцлер Ги - 17 альбомов (2002-2017) [MP3|97-320 kbps]<Нео-Фолк/блюз>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя исполнительницы - Майя Вячеславовна Котовская — автор и исполнитель песен. Основатель проекта «Брэган Д’Эрт».
+	Родилась 24 июня 1979 года в Свердловске (ныне Екатеринбург). Пишет песни и музыку с 1995 года. Окончила музыкальную школу по классу фортепиано, гитару освоила самостоятельно в 2000 году. Увлекается музыкой (фолк, соул, джаз), историей Средних (   Читать дальше...   )Жанр: нео-фолк,фьюжн,блюзПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D450C9F4002D76C6C9B9A43642CD9C9B56EFB63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943430   (449448) от 03.10.2015
 
 Contagion - Thrill Kill (1998) [MP3|320 кб/с]<Soundtrack>
@@ -744,35 +771,6 @@ Taylor Davis - Taylor Davis (2015) [MP3|320 кб/с]<Instrumental, Neo-Classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D7B9B9DA590FC76F2B83E23D5EC4AF516C8623B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322412   (444570) от 31.08.2019
-
-Paul Cardall - Peaceful Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444570.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.A New Beginning (4:06)
-2.When Morning Comes (3:04)
-3.Deep Waters (3:24)
-4.Sweet Surrender (3:00)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283902C9A962F62FF389241D0E5E313A0DF5FC9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

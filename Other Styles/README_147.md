@@ -1,3 +1,32 @@
+###  Публикация: 1182841   (312206) от 12.11.2017
+
+VA - Disco Dancer (OST Танцор диско) (1982) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vijay & Chorus - I Am A Disco Dancer  7:51
+02.  Parvati Khan - Jimmy Jimmy Jimmy Aaja  3:04
+03.  Usha Uthup, Bappi Lahiri & Chorus - Auva Auva Koi Yahan Nache  5:24
+04.  Kishore Kumar & Chorus - Ae Oh Aa Zara Mudke  5:47(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B8044B4230C3CFF01BD812999E0AB9B4A8A9A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260321   (312026) от 07.11.2018
 
 Senyawa - Sujud (2018) [MP3|320 Kbps] <World, Other, Folk>
@@ -722,35 +751,6 @@ The O'Neill Brothers - Calming Piano for Comfort (2019) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E49C8E1FE328362F7AF3B7DD9445F62E35ED4EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332992   (307488) от 23.10.2019
-
-Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legacy (01:29)
-02. 29 (02:44)
-03. Rising Star (02:05)
-04. From the Bottom (01:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DB4A7488C9F62C18DEFD0B92947ED27F4A7467
 ```
 
 https://mybot314.ru/tekegram_catalog/

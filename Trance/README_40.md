@@ -1,3 +1,32 @@
+###  Публикация: 1188997   (272439) от 04.12.2017
+
+VA - Redux Presents: The Finest Selection (Mixed by Rene Ablaze) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  TrancEye  -  Distant Dream (Original Mix)  4:10
+02.  UDM  -  Arrival (Original Mix)  3:24
+03.  Miroslav Vrlik  -  Cosmos (Original Mix)  3:26
+04.  Kiyoi & Eky  -  Moon River (Original Mix)  4:16(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348D21E814FA1DEF152301312EA37E779B42D5FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265963   (272070) от 30.11.2018
 
 VA - Vocal Trance Gems - Best of 2018 (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
@@ -716,35 +745,6 @@ VA - Trance - The Vocal Session 2020 (2019) [MP3|320 Kbps] <Trance, Vocal Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA37D96CE9961A7DF1227C497D9A37F96183293B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191184   (264521) от 13.12.2017
-
-VA - Nothing But... The Future Of Trance Vol.05 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Glynn Alan  -  Escaped (Original Mix)  7:34
-02.  Saladin  -  Until We Meet Again (Original Mix)  4:21
-03.  Victor Special  -  Life Is Just Beginning (Original Mix)  7:43
-04.  Alex Immersion  -  Spike (Original Mix)  6:57(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07EF57B393AD81E64F2371F32177023B045B4E9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

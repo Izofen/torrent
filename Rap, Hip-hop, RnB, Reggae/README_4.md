@@ -1,3 +1,58 @@
+###  Публикация: 1360622   (959449) от 16.02.2020
+
+Ресторатор - Непопулярное мнение (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прелюдии (3:04)
+02. Назло (feat. ChipaChip) (4:20)
+03. Ревность (feat. Zorin) (3:11)
+04. Cпасательный круг (2:44)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332935BD2B4919B83E4AAD185A27523777D97EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360623   (959394) от 16.02.2020
+
+Макс Корж - 2 Типа Людей (2019) Single [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Типа Людей (4:16)Жанр: Rap, Hip-HopПродолжительность: 00:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9B80EC16E43935630F234B3F48AFFC4CFB32DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980258   (957035) от 28.01.2016
 
 Rihanna - ANTI (2016) Deluxe Edition [MP3|320 кб/с] <R&B, Pop>
@@ -705,64 +760,6 @@ Scarlxrd - SCARHXURS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17AD8022D3F6DDD1086D848F7521BB948FC67ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987227   (925900) от 17.02.2016
-
-VA - Hip To The Hop: 30th Anniversary Of Hip Hop (2009) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent - In Da Club (3:15)
-02. Kanye West - Love Lockdown (4:31)
-03. Nelly - Hot In Herre (3:49)
-04. Black Eyed Peas - Pump It (3:34)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469E174661E4A3DF04CC06666D361859696BFB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366058   (925815) от 10.03.2020
-
-Twista - Lifetime (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still on Top [02:20]
-02. Danger [03:02]
-03. Wish List [02:42]
-04. Lifetime (feat. Mad Lion) [03:16](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6C2C442708AFCD588AD11649801AADDB0C28A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1034805   (856674) от 19.04.2020
+
+Justin Gain - Techno Ebola (2016) [FLAC|Lossless|image + .cue] <Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aney F. - Something In The Room With Me
+02. E.T.H (Italy) - Reesha
+03. Orlando Tosi, Niccolo Borgi - Bilaterale
+04. Aney F. - Turn It On(   Читать дальше...   )Жанр: Techno, Deep HouseПродолжительность: 01:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5312019892D891D25AECB2E5EE1108DC78FEBD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850633   (856567) от 19.04.2020
+
+Natalia Zamilska - Discography 10 Releases (2014-2020) Mik.Musik.!., Untuned Records [FLAC|Lossless|WEB-DL|tracks]<Techno, Industrial, Glitch, Tribal, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue Live (03:25)Тип издания: WEBЖанр: Techno/IndustrialПродолжительность: 00:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019D7D224F22F65C753E2D3EF7709F7E2046CD76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001446   (853697) от 28.03.2016
 
 Jan Blomqvist - Remote Control (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House>
@@ -683,64 +738,6 @@ Zhestyanshiki (Жестяньщики) - Luxury (2016) [FLAC|Lossless|WEB|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83790DB9C8A79F7AF0CD4CCE99218AC676319337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114902   (829890) от 16.03.2017
-
-XS Project - The New Pumping Attack (2016) [FLAC|Lossless|WEB|tracks] <Pumping House , Hard Bass>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xs Project - 1 Oak (4:04)
-02. Xs Project - Monstro (3:52)
-03. Xs Project - Грозный (4:27)
-04. Xs Project - Mad Magazine (3:31)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018EF88082E2C63201487452F7069F027858D93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380980   (829771) от 05.05.2020
-
-Night Sea - Still (2020) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Techno Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Will Take Time (05:07)
- 02. HDSB (06:41)
- 03. Small Bird (05:38)
- 04. Sukho (05:53)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Techno AmbientПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE065D88793CD218850833FA2601A309A7DF01F
 ```
 
 https://mybot314.ru/tekegram_catalog/

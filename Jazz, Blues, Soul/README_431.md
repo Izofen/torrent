@@ -1,3 +1,32 @@
+###  Публикация: 1626119   (237815) от 13.04.2023
+
+Sidney Bechet - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Royal Garden Blues [6:34]
+02. Slow Blues [6:43]
+03. Old Fashioned Love [5:28]
+04. Fast Blues [6:03](   Читать дальше...   )Жанр: Dixieland, Swing, New Orleans JazzПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4B681873D5F5EC75EC1DC0CCEA71ECBBE7E0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638419   (237791) от 09.06.2023
 
 Mojo Monkeys - Mojofo (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ Wilbur De Paris And His New New Orleans Jazz - Marchin' And Swingin' (1952) 2005
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE911EEA78A79EA2022543E54D22F42C5B910469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627307   (237358) от 19.04.2023
-
-Robbert Duijf - Change Myself (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change Myself (4:01)
-02. Hard Times Killing Floor (4:46)
-03. Trouble Will Soon Be Over (2:29)
-04. Verse 8 (5:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09C361E36B44CD0239BF48AB68B081E338B54CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

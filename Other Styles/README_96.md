@@ -1,3 +1,32 @@
+###  Публикация: 1295022   (624117) от 10.04.2019
+
+Bernward Koch - Walking through Clouds (2014) Real Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touched by Love (3:23)
+ 02. Childhood Hour (4:31)
+ 03. Walking through Clouds (2:40)
+ 04. Deep Green Summer (2:57)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DA8E97DF8FF2252DA8100750CB3CEE58A95C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909676   (624070) от 19.06.2015
 
 David Wright - Beyond the Airwaves, Vol. 2 (2015) [MP3|320 кб/с]<Electronic, New Age>
@@ -752,35 +781,6 @@ VA - The True Nature of Happiness: 50 Calm Relaxing Music (2017) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDECC97C74805F3FD5881AA6E2AC74206CCF6E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145054   (619710) от 26.06.2017
-
-David Thomas - Edheldred (2015-2016) 2 альбома [MP3|320 Kbps] <Epic, New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fidei Defensor (4:56)
-02. Siempre Fidelis (4:08)
-03. In Hoc Signo Vinces (4:06)
-04. Domine Dirige Nos (3:44)(   Читать дальше...   )Жанр: Epic, New Age, EnigmaticПродолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCCDDBD69A164C7E86B5C649CE1C96B7BA416A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

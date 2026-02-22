@@ -1,3 +1,176 @@
+###  Публикация: 1687930   (125430) от 27.12.2023
+
+Gods of Gaia - As Daylight Dies (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:26]
+02. Bow to Me [00:04:09]
+03. I Want Out [00:04:17]
+04. As Daylight Dies [00:03:15](   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31222425CFD084D48FEC2A9D6DEF623B79D58F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687802   (125410) от 27.12.2023
+
+Never Elected - Turbulent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - All Rise (00:04:56)
+02 - Hate Breeds Hate (00:04:20)
+03 - It's Over (00:04:06)
+04 - So Damn Easy (00:05:04)(   Читать дальше...   )Жанр: Hard Rock, GrungeПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFEA7FF28EAD975BB1CB5167F37D1AF21F99361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688236   (125304) от 28.12.2023
+
+Jerusalem - Stygn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gud finns visst (4:42)
+02. Jeremia (10:23)
+03. Stygn (5:37)
+04. Hur kunde vi (5:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A7235674259CCA700D30519C81FC98CB0268AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687955   (125291) от 28.12.2023
+
+Рогатая Нога - Первая кровь, Часть 1-2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Punk, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2023 - Первая кровь, Часть 1
+2023 - Первая кровь, Часть 2Жанр: Heavy Metal, Punk, New WaveПродолжительность: 2 CD, 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C5D95C6186A7A006C0DC156CF62E412F66C278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687948   (125289) от 28.12.2023
+
+Queen Kona - All Hail (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore, Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Flag [00:04:04]
+02. Atomic Diplomacy [00:02:38]
+03. Dreams of Calpurnia [00:04:18]
+04. Flat Six [00:03:21](   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8FBFA7C51DC4BF8B555FA7C697569A9D8370DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688230   (125286) от 28.12.2023
+
+Aeviterne - The Ailing Facade (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Experimental Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125286.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Denature (04:50)
+A2. Stilled the Hollows' Sway (06:11)
+A3. Penitent (05:52)
+A4. The Reeking Suns (07:42)(   Читать дальше...   )Жанр: Experimental Death MetalПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749E5739F5667A55E0031CE70D36F4150631BA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688196   (125282) от 28.12.2023
 
 Dominum - Hey Living People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
@@ -571,179 +744,6 @@ Visions of Morpheus - Lost Within (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88BA0379AAD5C36D7C5029924C40F8B12A74189C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690694   (123809) от 08.01.2024
-
-Armik - Spanish Lover / Illuminate (2021/2022) [FLAC 24/96|Lossless|WEB-DL|tracks] <Flamenco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-2021 - Spanish Lover
-2022 - IlluminateЖанр: Flamenco |Продолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F9FCEB6131436AE75205A700B3D16177A423F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689719   (123651) от 09.01.2024
-
-Ryan Adams - Sword and Stone (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – I Was Here
-02 – Blown Away
-03 – Sword and Stone
-04 – Never Run(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926A44346D8D81F1C64169CCB99CFED9BDDA2463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689504   (123647) от 09.01.2024
-
-Cobra Kraft - The Baptism of Pedro del Zorro (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Rock, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kikuchiyo 6:25
-02. Peder Morset 7:06
-03. Becky Lou 6:28
-04. Elina Akino 7:52(   Читать дальше...   )Жанр: Jazz, Rock, FusionПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545F6EAF00C9934183D559DEF55694686682E0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689520   (123643) от 09.01.2024
-
-Mountain Gators Band - Lemmings (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Door (3:11)
-02. Lemmings (4:29)
-03. Shades of Me (6:14)
-04. Time to Move On (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B80FF432270E3BB29B59D6104B9FBD6E601F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689832   (123626) от 09.01.2024
-
-Ryan Adams - Prisoners (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123626.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Do You Still Love Me? (Live) 00:03:05
-2 Prisoner (Live) 00:04:47
-3 Doomsday (Live) 00:03:01
-4 Haunted House (Live) 00:02:28(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E20065961AEDCB761490F39D47ECC97C480768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689519   (123625) от 09.01.2024
-
-Klipa Trio - Miatanu (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hajuk (5:08)
-02. Debrah (8:32)
-03. Footprints (7:33)
-04. Miatanu Miatnem (3:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895A3B604FBF4CEBA55783E97407D774DDB32A90
 ```
 
 https://mybot314.ru/tekegram_catalog/

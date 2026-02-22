@@ -1,32 +1,3 @@
-###  Публикация: 1434100   (153602) от 23.12.2020
-
-Trijntje Oosterhuis & Jazz Orchestra Of The Concertgebouw - Wonderful Christmastime (2020) Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's the Most Wonderful Time of the Year [3:33]
-02. Wonderful Christmastime (feat. Candy Dulfer) [4:46]
-03. Someday at Christmas (duet with Jeangu Macrooy) [4:11]
-04. Santa Claus Is Coming to Town [4:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE948C56962DB896883A13F6FE78D724B12C6651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677065   (153591) от 16.11.2023
 
 Dizzy Reece - Blues In Trinity (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -776,6 +747,40 @@ VA - Live At The Montreux Jazz Festival: B&W Present (1988) [FLAC|Lossless]<Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCB62A4EBAE6FDE29736973DA6C811DF4E9DDD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853860   (152562) от 28.12.2014
+
+Duke Ellington - The Far East Suite (2004) [FLAC|Lossless]<Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Tourist Point of View [05:10]
+02. Bluebird of Delhi (Mynah) [03:14]
+03. Isfahan [04:05]
+04. Depk [02:49]
+05. Mount Harissa [07:42]
+06. Blue Pepper (Far East of the Blues) [03:02]
+07. Agra [02:35]
+08. Amad [04:27]
+09. Ad Lib on Nippon [11:31]Жанр: Jazz, Swing, Big BandПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CF0D58CFADDEA109B50CC799A03F3C67E6008F
 ```
 
 https://mybot314.ru/tekegram_catalog/

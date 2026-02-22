@@ -1,3 +1,32 @@
+###  Публикация: 1475331   (1012423) от 06.06.2021
+
+Love Life - Goodbye Lady Jane (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Love
+02. Do You Love Me
+03. Hearts On Fire
+04. When Loneliness Comes Knockin'(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C7158A49524233BB5C131ED49F64CF0E8796E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475795   (1012024) от 09.06.2021
 
 Wyatt Olney & The Wreckage - Silver Bullet (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -714,35 +743,6 @@ Jakob Samuel - CoExist (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0550913C5780E57EAC22AC0EDD30C690D5BAD0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481770   (1008027) от 05.07.2021
-
-Band Of Brothers - Band Of Brothers (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eastern Front
-02. Pull The Trigger On PTSD
-03. War Is Strictly Business
-04. Sands Of Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B745F02D74438AE3BF97B5FFE7AE1948FE81225
 ```
 
 https://mybot314.ru/tekegram_catalog/

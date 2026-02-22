@@ -1,3 +1,32 @@
+###  Публикация: 1637464   (239889) от 04.06.2023
+
+Stormburst - III (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up On Your Feet (3:40)
+02. Peace Of Mind (2:59)
+03. When The Worlds Collide (3:51)
+04. Wild And Crazy (3:51)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2758A445E28D7F9550BB76C22C48097C6E1933FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626378   (239888) от 17.04.2023
 
 Gary Moore - Rockin’ Every Night: Live in Japan (1983) Reissue, 2023, Universal, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -717,35 +746,6 @@ Forge the Sun - Heart of the Sunrise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7C4DB929A114225CE3D419771F35DC0FBDCD10F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623211   (238683) от 01.04.2023
-
-Evolution Eden - Sonic Cinema (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On with the Show [00:03:43]
-02. Blood Runs Wild [00:04:03]
-03. Here's to the Good Times [00:03:52]
-04. Love's Got a Mind of It's Own [00:03:13](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40B169F200F6250942295566387836C50570E0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

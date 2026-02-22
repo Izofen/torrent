@@ -1,3 +1,32 @@
+###  Публикация: 1022798   (727856) от 03.06.2016
+
+Jay McShann - The Last Of The Blue Devils (1977) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Piano Jazz, Jump Blues, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Confessin' The Blues [04:46]
+ 02.'Tain't Nobody's Bizness If I Do [07:03]
+ 03.Hootie Blues [04:33]
+ 04.Blue Devil Jump [03:29](   Читать дальше...   )Жанр: Piano Jazz, Jump Blues, Mainstream JazzПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DEA9AB810403BD04BD5824E9070AAC5F559B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022786   (727855) от 03.06.2016
 
 Hank Mobley - Workout (1961) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -716,35 +745,6 @@ Louis Jordan And His Tympany Five - 1946 - 1947 (1998) Classics [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA67951BFC56E2AA0F0C77ABF2A6D63B29C79AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023439   (724416) от 05.06.2016
-
-Andy Williams - The Best Of (1992) [APE|Lossless|image + .cue] <Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Fool Never Learns
-02. Moon River
-03. Happy Heart
-04. Can't Get Used To Losing You(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AB5135CEEBC77A15B0251152BD296C40272832
 ```
 
 https://mybot314.ru/tekegram_catalog/

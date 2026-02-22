@@ -1,3 +1,32 @@
+###  Публикация: 1613568   (1039396) от 19.02.2023
+
+The Sundial - Kaliningrad (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loop [00:04:48]
+02. Gagarin Stayed On The Moon [00:06:59]
+03. Kaliningrad [00:04:35]
+04. I'm Coming Home [00:04:28](   Читать дальше...   )Жанр: RockПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15EEBDAFD94ED35FC47CA3F369D79E847431DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613549   (1039382) от 19.02.2023
 
 YqpY - Near (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Electronic>
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE202E5FFBAB18F373D6382251EF46D48EA003C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443708   (1035163) от 30.01.2021
-
-Танцы Минус - 8 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035163.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мне б уснуть в твоих руках
-2. Девочка
-3. Лыжи
-4. Скриншот(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB5426396474C5BC35C78BCF9C007063E3A2A9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

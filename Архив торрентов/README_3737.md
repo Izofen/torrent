@@ -1,3 +1,38 @@
+###  Публикация: 569633   (392294) от 03.11.2012
+
+Murder Construct - Results (2012) [MP3|320 кб/с]<Death Metal / Grindcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red All Over (2:02)
+ 02. Under The Weight Of The Wood (1:57)
+ 03. No Question, No Comment (1:55)
+ 04. Gold Digger (2:11)
+ 05. Compelled By Mediocrity (2:44)
+ 06. The Next Life (3:33)
+ 07. The Dead Hope (2:00)
+ 08. Feign Ignorance (1:58)
+ 09. Mercy, Mercy (2:17)
+ 10. Malicious Guilt (1:56)(   Читать дальше...   )Жанр: Death Metal / GrindcoreПродолжительность: 00:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7E2973D16DE23DA1DA981AFB9E35746F1C0535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569319   (392293) от 03.11.2012
 
 Sexy Girls Pack Wallpapers (01.11.12) [Wallpapers 16+]
@@ -750,41 +785,6 @@ FileZilla — лучший бесплатный FTP-менеджер, помож
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569741   (392179) от 03.11.2012
-
-Катарсис - Пандемия / Панацея (2012) [MP3|320 кб/с]<Pap,Hip-hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пандемия
-02. Около
-03. На колени только перед Богом
-04. Магнит
-05. Остаемся справа
-06. Вверх -при уч. Анатолий Например
-07. И пусть нас судят-при уч. Анна Хицкова и Анатолий Например
-08. Разжигай, но помни -(Крим)
-09. Панацея
-10. Быть русским(   Читать дальше...   )Жанр: Pap,Hip-hopПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C7BB2DF0A1A21672B9B9966ECAA0C122351B68
 ```
 
 https://mybot314.ru/tekegram_catalog/

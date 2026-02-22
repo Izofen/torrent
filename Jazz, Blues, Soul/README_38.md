@@ -1,3 +1,90 @@
+###  Публикация: 1475929   (1012025) от 09.06.2021
+
+Rodney Whitaker - Outrospection: The Music of Gregg Hill (2021) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outrospection [6:28]
+02. New Sunday [4:12]
+03. Dollah Hollah [3:31]
+04. Bridge to Nashua [7:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10867BA08B170D02C662AF5440AAD166986CE68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476204   (1011854) от 10.06.2021
+
+Ella Fitzgerald - Best Of The BBC Vaults (1940 - 1949) 1992, LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady Is a Tramp [4:46]
+02. Mack the Knife [4:05]
+03. Manhattan [3:14]
+04. Ev'ry Time We Say Goodbye [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77126BC2482F19407E4117A14AE714A39E96977B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476207   (1011853) от 10.06.2021
+
+Ella Fitzgerald - Sing Song Swing (1940 - 1949) 1992, LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying Home [4:30]
+02. Mister Paganini (Swings for Me) [4:19]
+03. How High the Moon [3:35]
+04. Old Mother Hubbard [1:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB665C82BF8B96DE9F3CDBFD57705E6D7D59E40D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476944   (1011292) от 13.06.2021
 
 Tony Joe White - Smoke From The Chimney (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -658,93 +745,6 @@ Rob Strong & Peter Brander  - Stronger Together (2021) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19DD2E4396F058B262612993FAED2FA25C16947C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479509   (1009548) от 24.06.2021
-
-V.A. - Alligator Records 50 Years Of Genuine Houserockin' Music (2021) 3CD [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009548.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Hound Dog Taylor - Give Me Back My Wig (Remastered) (3:35)
-02. Koko Taylor - I'm A Woman (Remastered)
-03. Big Walter Horton;Carey Bell - Have Mercy (Remastered)(   Читать дальше...   )Жанр: Blues, Blues-Rock |Продолжительность: 03:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640ED329373CE58EFC52D9D5479360E55022EEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479523   (1009537) от 24.06.2021
-
-Rozedale - Rozedale (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost for You (4:22)
-02. Brand New Slate (3:49)
-03. Shine (3:54)
-04. Burning (3:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B94520C6785EF1F699E3CE679FFDC8734F3BB93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479525   (1009535) от 24.06.2021
-
-The Poppy Jasper Band - One for the Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mississippi Delta (4:06)
-02. Wanted Man (4:00)
-03. Whiskey River (3:31)
-04. County Line (4:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE847067BCBD3358E789703CA81DA7D434579D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

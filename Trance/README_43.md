@@ -1,3 +1,32 @@
+###  Публикация: 1617539   (250303) от 07.03.2023
+
+Cosmic Gate - MOSAIIK Chapter One (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate with Diana Miro - Blame (03:40)
+02. Cosmic Gate - Feel It (03:28)
+03. Cosmic Gate with Diana Miro - Nothing To Hide (03:36)
+04. Cosmic Gate - Your Mind (03:49)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272294E7E63244A510D47AA6EF0C39DABF3D96F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617540   (250279) от 07.03.2023
 
 Cosmic Gate - MOSAIIK Chapter Two (2023) [MP3|320 Kbps] <Trance>
@@ -711,35 +740,6 @@ Armin van Buuren - Feel Again (2023) [MP3|320 Kbps] <Trance, Progressive, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6CAE07A0D4C5690158D372CB794F03C08C04623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076886   (243587) от 26.11.2016
-
-VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Sestertius [07:38]
-02. Ferry Corsten & Cosmic Gate - Event Horizon (Extended Mix) [05:40]
-03. Alex M.O.R.P.H. & Paul Van Dyk - We Are [07:20]
-04. Andy Moor & Somna - Look Back (Original Mix) [06:00](   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD962B83D3E9B46CD2823836EAA9BF0C9558DE36
 ```
 
 https://mybot314.ru/tekegram_catalog/

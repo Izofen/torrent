@@ -1,3 +1,32 @@
+###  Публикация: 1496435   (872865) от 17.09.2021
+
+VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872865.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blutengel - Hymn
+002. Fame On Fire - It's Okay
+003. Redhook - Kamikaze
+004. Slaves - Like I Do(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3A2341EBC2F690EB4CCEC3A80CB6520105B770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496410   (872864) от 17.09.2021
 
 VA - Hard Punk Review (2021) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
@@ -722,35 +751,6 @@ Alice Cooper - 100% Alice Cooper (2020) [MP3|320 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B46706EA4F3AC18FEE84A4A809B7274A849E13CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497921   (859653) от 25.09.2021
-
-VA - The Brutal Might (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859653.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wolvencrown - A Shadow Of What Once Was
-002. Cyrax - Truemetal
-003. Secret Sphere - Shaping Reality
-004. Purgatory - Grave Of Sorrow(   Читать дальше...   )Жанр: Metal, Hard Rock, HardcoreПродолжительность: 10:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E38526780174F0DF4381CD76136B06C9317AEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

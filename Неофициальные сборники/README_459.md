@@ -1,3 +1,299 @@
+###  Публикация: 1574517   (385614) от 05.09.2022
+
+Redbone - One More Time (2022) Compilation [MP3|320 Kbps] <Rock, Native American>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prehistoric Rhythm [03:59]
+02. Crazy Cajun Cakewalk Band [03:09]
+03. One More Time [03:05]
+04. Tennessee Girl [02:26](   Читать дальше...   )Жанр: Rock, Native AmericanПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFB964BB2DE88BC4E9E245466237980CE2F640B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253105   (385550) от 08.10.2018
+
+Spacekraft - The Legend Of The Samurai (2017) [MP3|~210 Kbps - 320 Kbps] <Synth Pop, Indie Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385550.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. Spacekraft - The Legend Of The Samurai (Continuous Mix)
+01. Cretu - Samurai
+02. The Midnight - Vampires
+03. ZHU - Palm Of My Hand(   Читать дальше...   )Жанр: Synth Pop, Indie Dance, VaporWaveПродолжительность: 03:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F306658A75951F28410C8AB0881294EA815D42A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253319   (385542) от 08.10.2018
+
+VA - German Top 100 Single Charts 08.10.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385542.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynoro Gigi D'Agostino - In My Mind
+002. Bonez MC RAF Camora - Kokain (feat. Gzuz)
+003. Veysel - UFF (feat. Gzuz)
+004. Loredana Mozzik - BONNIE CLYDE(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CF726BD1820DF1321A1318A880C499BE875FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253290   (385538) от 08.10.2018
+
+VA - New Music Releases Week 40 of 2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kim Petras - Close Your Eyes
+002. Lane 8, Poliça - No Captain (Dirty South Remix)
+003. Mario - Goes Like That
+004. J.S. Ondara - American Dream(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 13:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB6A9372E3932E40EA8AC8CB8E9FA61E1533BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414331   (385517) от 08.10.2020
+
+VA - Punk Rock Rolling Style (2020) [MP3|320 Kbps] <Punk, Punk Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385517.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Sharp Shadows - Walkrightpastmedon
+002. This Means War! - I Found The One
+003. Hillview - E.S.A.D.
+004. F.U.A. - Psychotic(   Читать дальше...   )Жанр: Punk, Punk Rock, AlternativeПродолжительность: 07:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3CD7CD26AB216F0F751D2234B7B1DFEEC54BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414335   (385516) от 08.10.2020
+
+VA - Hyperspace: Synth Space Electronic (2020) [MP3|320 Kbps] <Synthspace, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385516.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2qimic - Ghost Ship
+002. Tommy Vega - Blind Justice
+003. Double Reaktion - Ignition
+004. Jopon - Forester(   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 11:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC8713A74A89CFA7548A6C9210E6095CE8E5FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414339   (385511) от 08.10.2020
+
+VA - Beatport Dancehall: Sound Pack #186 (2020) [MP3|320 Kbps] <Dancehall, Riddim, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385511.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Princesse Lea - Pas À Pas
+002. Matieu - Antre Nou
+003. Toxxik - Macavelli
+004. Diligent Cityboss - Big Dream(   Читать дальше...   )Жанр: Dancehall, Riddim, ReggaetonПродолжительность: 08:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7A63C2600FA872690878918A4B35822C88962F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571851   (385471) от 08.11.2012
+
+VA - Армейский Superhit (2012) [MP3|128 кб/с]<Pop, Военная песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385471.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Михаил Шелег - Вперед офицеры
+002 Юрий Шевчук - Господь нас уважает
+003 Вячеслав Малежик - На войне
+004 Александр Маршал - Полем, полем, полем (Вещая судьба)
+005 Катя Огонек - За мальчиков России
+006 Эдуард Сычев - Купола
+007 Жорa Затонский - Дембельская
+008 Владимир Шамбуров - Цена награды
+009 Сергей Любавин - Солдаты удачи
+010 Александр Купаев - Письма из домаЖанр: Pop, Военная песняПродолжительность: 12:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20100F675B76D52523C5A2B608E7866E3A6974E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253223   (385339) от 08.10.2018
+
+VA - Trance Collection Vol.72 (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385339.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Venetica feat. Paige Hammond - Second Chances (Original Mix) 7:18
+002. Ruslan Radriges feat. Cathy Burton - Hearts To Entwine (Jericho Frequency Extended Mix) 6:48
+003. DJ Dean & DJ T.H. feat. Hanna - Find A Road (Extended Mix) 5:49
+004. Giuseppe Ottaviani - Wait Till You Miss Me (OnAir Extended Mix) 5:41(   Читать дальше...   )Жанр: Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 10:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05594AC6D8ECC9BA4E1B8E78FD18A5F4D35AB1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067814   (385222) от 30.10.2016
+
+VA - Beatport Trance Pack  (30.10) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myk Bee - Pressure Point (Extended Mix)  7:53
+02. Aly&Fila Ft. Denise Rivera - My Mind Is With You (Original Mix)  6:58
+03. Denis Kenzo & Angel Falls - Run Away  (Original mix)  6:06
+04. Omnia Ft. Christian Burns - All I See Is You (Extended Mix)  5:37(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 04:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1874F5C7646F83328F70D51BA31CA97CAEB943EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326415   (385213) от 20.09.2019
 
 VA - Club Sounds: Futuristic Electro House (2019) [MP3|320 Kbps] <Future House, Electro>
@@ -500,296 +796,6 @@ VA - Urban Sound: Tech House Set (2019) [MP3|320 Kbps] <Techno, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49E33EA2847D5D804E75DEFF508C343380778BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326417   (383501) от 21.09.2019
-
-VA - Straight Outta Tennessee (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383501.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bbz - Hangover Reeperbahn
-002. Supa - Can't Go Out Bad
-003. Con B - Loyalty (Feat. Kr Moracks)
-004. Stoney Thraxton - Way Back(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1FD180F6F7B675B320C6637FEAA0E67B7DF8B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326562   (383498) от 21.09.2019
-
-VA - Power Trance Surgery: Euphoric Mix (2019) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383498.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Astrofegs - Frameshift
-002. A.R.D.I. - Precious Time
-003. Dj Tiesto - Urban Train (Cosmic Gate Remix)
-004. Matt Bowdidge - Psycho(   Читать дальше...   )Жанр: TranceПродолжительность: 10:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A8ED025FCCA9398C2CDCD46E21F31428AE423D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326680   (383496) от 21.09.2019
-
-VA - Grace & Mercy: Hip-Hop Soul Control (2019) [MP3|320 Kbps] <Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383496.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Awar - Rolex Time
-002. Rhymetown - Bu Son Degil
-003. Sythe - Orthodox Stance
-004. Planet Asia - I Climb(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 08:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0923923D97C3526448712D51E1DABDA9AFAE076D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326431   (383491) от 21.09.2019
-
-VA - Top 100 Drum & Bass Vol.3 (2019) [MP3|320 Kbps] <Liquid Funk, Drumfunk, Soulful D&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383491.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mailky - Flawless (Original Mix)
-002. Boxplot - Voicemail Poems (Original Mix)
-003. Ryo Arue - Tune Your Bass To Ours (Original Mix)
-004. Shockone Feat. Reija Lee - A Dark Machine (Extended Mix)(   Читать дальше...   )Жанр: Liquid Funk, Drumfunk, Soulful D&BПродолжительность: 07:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F55A3381145C55FC4244F0B52857CCEEE210F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414645   (383424) от 09.10.2020
-
-VA - не Громкие новинки недели 84 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Carti - Не Выдыхай (3:00)
-02. DJ Sukhoi - Неболей (4:15)
-03. EDEM & Артём Майзингер - Самолётная (3:02)
-04. Endorfin - Луна (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CEEA547B028D91D4DD4B2ED370AC567A563C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414508   (383408) от 09.10.2020
-
-VA - Background Instrumental Smooth Jazz (2020) [MP3|320 Kbps] <Jazz, Jazz Smooth, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383408.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Miles Davis Quartet - It Never Entered My Mind
-002. Clan Greco - Tilt
-003. Riccardo Arrighini - Autumn Leaves
-004. Tenderlonious - Almost Time(   Читать дальше...   )Жанр: Jazz, Jazz Smooth, InstrumentalПродолжительность: 07:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2635D1BE618289C65937A518FB7F281988D7B702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326561   (383386) от 21.09.2019
-
-VA - In My Feelings: Lyric Rnb Compilation (2019) [MP3|320 Kbps] <Rhythm And Blues, Lyric, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383386.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gabrielle Lynn - Kissing You
-002. Steven A. Clark - Feel This Way
-003. Drax Project - All This Time
-004. Pj Morton - Yearning For Your Love(   Читать дальше...   )Жанр: Rhythm And Blues, Lyric, SoulПродолжительность: 08:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D56C502B3B212DF65E63B0896C03DB6FF27FFC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326414   (383378) от 21.09.2019
-
-VA - Space Patrol: Synth Electronic Compilation (2019) [MP3|320 Kbps] <Synthpop, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383378.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ixen - Lonely Robot In Space
-002. Mats Forsell - Flying Low
-003. Spacehawk - Universe
-004. Sonicforce - Sandstorm(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 08:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210818A852E5935B87CBB2A284A8FE3EADB5BCB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326582   (383375) от 21.09.2019
-
-VA - Empire Records - Acapella (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juan Wauters - El Hombre de la Calle
-02. Natasha Barnes - Dollar Signs
-03. Zigmaester - Zombie Luv
-04. James Blake - Mulholland(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501AE5C410042B97A62CE448BAC9A508794F9994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414518   (383301) от 09.10.2020
-
-VA - Hammond Organ Heroes (2020) [MP3|320 Kbps] <Instrumental Jazz, Hammond>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embryo - Radio Marrakesch / Orient Express
-02. Emerson, Lake & Palmer - Hoedown (Live)
-03. Bernard Estardy - Ala mia thra
-04. Jimmy McGriff - 'Round Midnight(   Читать дальше...   )Жанр: Instrumental Jazz, HammondПродолжительность: 06:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1053D03CF6E77DD89511CC271CA862D913886B50
 ```
 
 https://mybot314.ru/tekegram_catalog/

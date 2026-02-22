@@ -1,3 +1,47 @@
+###  Публикация: 555664   (430566) от 03.10.2012
+
+VA - Супер Дискотека 90-х Vol. 1-3 (3CD) (2012) [MP3|111-320 кб/с]<Retro, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol 1
+01 140 Ударов В Минуту - Une Vie D'Amore
+02 2 Unlimited - Faces
+03 ATC - Around The World
+04 Bellini - Samba De Janeiro
+05 Cher - Believe
+06 Corona - Baby Baby
+07 Culture Beat - Crying In The Rain
+08 Dr. Alban - It's My Life (rmx)
+09 Dr. Alban - Sing Hallelujah(   Читать дальше...   )Жанр: Retro, DanceПродолжительность: 01:43:06
+01 Комбинация - American Boy
+02 Modjo - Lady (Hear Me Tonight)
+03 Maxx - No More (I Can't Stand It)
+04 Кар-Мэн - Чио Чио Сан
+05 Corona - Baby Baby
+06 La Bouche - Be My Lover
+07 Комбинация - Два Кусочека Колбаски
+08 Darude - Sandstorm
+09 Дискотека Авария - Заколебал Ты(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:553FE4AFD72ECC894BCEC2ADA59CD1C7954EF119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063804   (430120) от 18.10.2016
 
 VA - 100 Хитов Популярной Музыки Русский выпуск(2016) [MP3|256 Kbps] <Pop>
@@ -717,35 +761,6 @@ VA - German Top 50 Official Dance Charts 31.10. (2016) [MP3|256-320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE84491BEB20E44E425717BAFC128B66FEB3710B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250047   (419287) от 30.09.2018
-
-VA - Русское ретро 80х -90х от ALEXnROCK часть 1 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419287.jpg" />
-</div>
-
-
-###  Подробнее
-
-В собрание вошла самая клевая музыка конца 80х, начала 90х. Все треки взяты с фирменных CD изданий, некоторые ремастер..Это 1я часть коллекции. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK001 Кар Мэн - Чио Чио Сан
-002 Фристайл - Прощай навеки, последняя любовь
-003 Лада Дэнс - Танцы у моря
-004 Юрий Антонов - Зеркало(   Читать дальше...   )Жанр: PopПродолжительность: 02:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6D265BE4C39C9A0C93D458AD42B8291EC45D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

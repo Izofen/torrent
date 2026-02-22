@@ -1,3 +1,32 @@
+###  Публикация: 1575576   (375407) от 10.09.2022
+
+Zachary Breaux - Uptown Groove (1997) Zebra Records [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakfast at the Epiphany [0:16]
+02. Cafe Reggio [6:06]
+03. I Told You [4:30]
+04. Never Can Say Goodbye [5:06](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE1C65F12C24033E95D61034F699318654297D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575439   (375403) от 10.09.2022
 
 Catherine Russell - Send For Me (2022) Dot Time Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -715,35 +744,6 @@ Joe Barbieri with Luca Aquino and Antonio Fresa - Chet Lives! (2013) /Yamaha/[FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8E6AECAB5BF996DC9460042A3FBD643025D740F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327651   (372623) от 26.09.2019
-
-Paul Bley - Indian Summer (1987) 1991, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black and Blue [6:17]
-02. Blue Waltz [8:32]
-03. Lisbon Lights [10:05]
-04. Long Ago and Far Away [8:28](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A01F5F4A88C418DEFB56E3ED6B28CCACFEB490F
 ```
 
 https://mybot314.ru/tekegram_catalog/

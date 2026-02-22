@@ -1,3 +1,32 @@
+###  Публикация: 947456   (417867) от 17.10.2015
+
+Eric Clapton - Music From The Motion Picture Soundtrack RUSH (1992) [FLAC|image+.cue]<Rock, Blues Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Recruit [01:32]
+02. Tracks And Lines [03:01]
+03. Realization [02:41]
+04. Kristen And Jim [03:40](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A847B5198B971615E705045411051B472D50F3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947575   (417815) от 17.10.2015
 
 VA - Autumn Piano Bar Music Emotional Piano Bar Music Collection Liquid and Sensual Music Relaxing Piano Songs for Dinner Party (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrumental>
@@ -721,35 +750,6 @@ Nature Sounds Nature Music - Zen One: Relaxing Vibes For Sleep & Yoga & Meditati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F28B4AE6F29210E2B148B448C19A38729B72BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168308   (410611) от 23.09.2017
-
-Alan Menken - Enchanted (2007) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - True Love's Kiss (Performed by Amy Adams and James Marsden)
-02 - Happy Working Song (Performed by Amy Adams)
-03 - That's How You Know (Performed by Amy Adams)
-04 - So Close (Performed by Jon McLaughlin)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BB59D4F3AF89E9D565EA2A59C88D022716683F
 ```
 
 https://mybot314.ru/tekegram_catalog/

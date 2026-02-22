@@ -1,3 +1,119 @@
+###  Публикация: 1289834   (684455) от 17.03.2019
+
+VA - Ballermann Award 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684455.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Mickie Krause - Für Die Ewigkeit
+02. Almklausi - Mama Laudaaa
+03. Marry - Vorglühn Nachglühn(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:20:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:581E43099A2AF0AF76A2F63858FA81757C142B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028930   (684421) от 25.06.2016
+
+Мона Лиза - Я уезжаю (1997) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я уезжаю
+02. Давай поговорим
+03. Напиши
+04. Белый город(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90F030D85471484CEE27F235F06F93B6CD224F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028935   (684409) от 25.06.2016
+
+Мона Лиза - Наши бабы лучше Аббы! (1994) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Омон
+02. За океан
+03. Я верю в тебя
+04. Эмансипация(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5DF29A63B9B3744DB69BB15B29F9E931F2157D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289947   (684342) от 17.03.2019
+
+VA - Fruhlings Fox Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Lancaster feat. Onkel J. - So wie im Film
+02. Schlagergold - Flippers Hitmix
+03. Daniela Haake - Liebesrausch
+04. Bernice Ehrlich - Nie wieder missen(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C2A7CCCE028608F729CB5596DEFA63EA45D411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289837   (684337) от 17.03.2019
 
 VA - Ballermann Partyhits 2019 - Das Werden Die Hits Des Sommers (2019) [MP3|320 Kbps] <Pop, Schlager>
@@ -641,122 +757,6 @@ Alle Farben - Music Is My Best Friend (2016) [MP3|320 кб/с] <Electronic, Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2173B1D8F660D96EBEEAFC44C536782AC773903B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290075   (682082) от 18.03.2019
-
-Valverde Brothers - After Midnight (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Midnight (7:51)
-02. Standing In The Shadow Of Love (6:06)
-03. Living A Lie (6:03)
-04. Mexican Taxi Man (4:34)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BAB83B1F6EC00A7D727F475237E2396556DD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290114   (682081) от 18.03.2019
-
-VA - Schlager Total - Die Hits aus den Discotheken 2019 DJ Dance Mixe (2019) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682081.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelique - Lieder der Nacht (Price Tunes Extended DJ Mix)
-002. Pat - Dieser eine Augenblick (DJ Tanz Mix)
-003. Lyane Hegemann - Halt mich fest (Wetcat EDM Mix)
-004. Connor Meister - Liebesvisionen (Price Tunes DJ Mix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 06:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FF211D33A0E3ADC7E599011103D2A854E8ED08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135366   (681188) от 19.05.2017
-
-Boogymann - Delight (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar 05:31
-02. Love 05:14
-03. Take a Chance to Dance 05:42
-04. Come on Back 04:31(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAD5E6A956601595FD4FBDC4A6E04F853497589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796802   (681176) от 16.06.2014
-
-Lana Del Rey - Ultraviolence [Deluxe Edition] (2014) [FLAC|Lossless]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cruel World
-02. Ultraviolence
-03. Shades Of Cool
-04. Brooklyn Baby(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C192EFA692DFB5304E7E8E0BE051E55B2B01FE9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

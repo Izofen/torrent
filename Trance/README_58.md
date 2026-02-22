@@ -1,3 +1,32 @@
+###  Публикация: 1723805   (109302) от 19.05.2024
+
+VA - D.Trance 106 (incl. D-Techno 61) (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ T.H. - Delay to Moscow [05:49]
+02. Solar Vision - Winter (Extended Mix) [05:39]
+03. 4 Strings - Jewel 2.0 (Mike Van Fabio Extended Re-Lift) [05:42]
+04. Megara vs DJ Lee - We Live (Extended Mix) [04:47](   Читать дальше...   )Жанр: TranceПродолжительность: 03:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C746FBDD7F6C6FE33F5B478D3E4317CF9203A067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723720   (109299) от 19.05.2024
 
 VA - Black Hole Trance Music 05-24 (2024) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Redux Selection Vol. 8 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62F4753103101950849A3D6EA5A02B40B04A491B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739110   (106170) от 26.07.2024
-
-VA - Top Summer Uplifting 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Litunov - Drifting Moon (06:32)
-02. Haotic Visions - The Flame (06:05)
-03. Crealta Generation - Cryalta Vision (06:45)
-04. CJ Stereogun - Dolphin Pond (First Version) (06:10)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105D0DDE5DA415F830CB0A027F584AC070A30FF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

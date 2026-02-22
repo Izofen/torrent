@@ -1,25 +1,392 @@
-###  Публикация: 1507708   (798173) от 05.11.2021
+###  Публикация: 1122471   (798870) от 05.04.2017
 
-Воспоминания / Reminiscence (2021) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit]
+VA - Trance April 2017: Melodic Progressive And Vocal, Best Of Collection (2017) [MP3|320 Kbps] <Trance>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798173.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Недалёкое будущее, Майами почти полностью ушёл под воду из-за глобального потепления. Частный детектив Ник Баннистер с помощью специальной технологии выискивает в человеческой памяти нужные моменты, чтобы заказчик мог заново пережить прошлое и вспомнить что-то важное. Однажды на пороге его офиса появляется клиентка с простой просьбой: она забыла, где оставила ключи. (   Читать дальше...   )Производство: США / FilmNation Entertainment, Kilter Films, Michael De Luca ProductionsЖанр: Фантастика, триллер, мелодрама, детективРежиссер: Лиза ДжойАктеры: Хью Джекман, Ребекка Фергюсон, Тандиве Ньютон, Клифф Кёртис, Дэниэл Ву, Моджиан Ариа, Марина Де Тавира, Бретт Каллен, Натали Мартинес, Анджела СарафянПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские
+01.  Rais - Quasar  7:14
+02.  TwoB Project - Do Good  6:45
+03.  CJ RcM - Im Alive (Denis Neve Remix)  7:19
+04.  Alexander Dyomin - Rfe  7:09(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B79EBDE5496609C5C8B0ECD3BAC862E5983B67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122357   (798869) от 05.04.2017
+
+Disembowelment - Transcendence Into the Peripheral (1993) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tree of Life and Death (10:25)
+02. Your Prophetic Throne of Ivory (07:39)
+03. Excoriate (04:43)
+04. Nightside of Eden (02:38)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301A28AF5EBB60C9E161115BCDFF8E5ABE1DDB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122550   (798868) от 05.04.2017
+
+Журнал | AD / Architectural Digest [USА] №3 (март 2017) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFDA5DCBEDB713BAC50712432758146EF768B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122463   (798867) от 05.04.2017
+
+Вечерний Ургант (2017.04.04) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53B2F7E646A524A4072F273CCF5EA1A1D333084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122685   (798866) от 05.04.2017
+
+VA - Jazz Acoustic Chill Classical Playlist: 14 Smooth and Chilled Tracks (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Rolling in the Deep
+02. Chris Snelling - The Earth Prelude
+03. Karizma Duo - Come Away With Me
+04. Ginnie - Next to Me(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5ED7C7A56BBF55A0C135E766DC4C11AAE05F054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122499   (798865) от 05.04.2017
+
+VA - Dutch Wonder Trance Anthems (2017) [MP3|320 Kbps] <Trance, Energy, Uplifting, Emotional, Blissful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mark W - Azrael (Extended Mix)  5:15
+02.  Ronski Speed - Horoscope (Ronski Speed Remix)  6:37
+03.  Lightform - Orbs (Extended Mix)  6:08
+04.  Sneijder & Katty Heath - The Only Place (UCast Remix)  7:10(   Читать дальше...   )Жанр: Trance, Energy, Uplifting, Emotional, BlissfulПродолжительность: 05:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9AAC608A85844FE4CD3230A5F8F35A34634AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122231   (798864) от 05.04.2017
+
+Warbringer - Woe To The Vanquished (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silhouettes
+02. Woe to the Vanquished
+03. Remain Violent
+04. Shellfire(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00: 40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2343D7697936C3EFFD69429FFB6C1592EDF25A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122297   (798863) от 05.04.2017
+
+VA - Deep House April 2017 Top 10 Best of Collections (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CJ RcM - My Love
+02. Macrolev - Deeper
+03. Anton Ishutin - Sunrise
+04. Muxxo - The Calm of the Time(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1CEBE83034D07958844625FE35C0D412012FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122640   (798862) от 05.04.2017
+
+JustBroadcaster for  YouTube 1.7.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798862.jpg" />
+</div>
+
+
+###  Подробнее
+
+JustBroadcaster YTEd - создай трансляцию на YouTube в считанные минуты
+Начало трансляции на YouTube менее чем за 2 минуты.
+Видео-микшер и прямые трансляции на YouTube.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 апреля 2017Разработчик: Mihail GaraninПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895E157230BC5D2CC55CEB9EB63BF7FF3C38E906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122497   (798861) от 05.04.2017
+
+SkyLab Studio 2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798861.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вдохновленный своей собственной любовью к красивому небу".
+SkyLab Studio - изменит ваше представление о небе на фотографии.
+Представьте себе  ошеломляющее небо на ваших фотографиях с этим инновационным новым приложением.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 апреля 2017Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821ECDCC31C38A35C18528D8BF5F83D9FF9F5D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122518   (798860) от 05.04.2017
+
+Billie Holiday - Don't Explain (1956 - 1958) 1990, Magic Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Don't Stand A Ghost Of A Chance With You [03:41]
+ 02.Please Don't Talk About Me When I'm Gone (Version 1) [01:57]
+ 03.Nice Work If You Can Get It [02:36]
+ 04.God Bless The Child [02:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C48C49765DC24624F64EDE1927509EAB7F32E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122306   (798859) от 05.04.2017
+
+Jidenna - The Chief (2017) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798859.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Bull’s Tale
+2. Chief Don’t Run (f. Roman GianArthur)
+3. Trampoline
+4. Bambi(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E059980D9F337B222409158F8AF6DD70B240F95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122283   (798858) от 05.04.2017
+
+В. В. Иванов | Методология исторической науки: Учеб. пособие для студ. вузов, обучающихся по специальности «История» (1985) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798858.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге освещены теоретико-методологические и методические вопросы изучения истории. Автор раскрывает предмет истории как науки, ее социальные функции, понятийный аппарат, рассматривает особенности исторического познания, методы, соотношение методологии и методики в научном исследовании. Особое внимание уделяется раскрытию роли исторических знаний в коммунистическом (   Читать дальше...   )Жанр: История, методология, политология, педагогикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6090E039F54B0CCF2B74CB9DE0C4C3BD9DE6758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122351   (798857) от 05.04.2017
+
+Mountain Duck 1.8.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mountain Duck позволяет монтировать любой удаленный FTP, SFTP, WebDAV, Azure Cloud Storage, S3, Google Cloud Storage, Google Drive и OpenStack Swift как локальный диск в Finder.
 
-Диск на Blu-ray.com
-Просмотр 4K HDR-контента на ПКПродолжительность: 01:55:59
+В приложении реализована поддержка всех основных протоколов для подключения к любому серверу. Открывайте файлы на удаленном сервере любым приложением и работайте как на локальном томе, а (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 апреля 2017Разработчик: iterate GmbHПоддерживаемая ОС: OS X 10.8.3 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0C0A3677A357FA6ADB57BFFC4827C6BF0E2309D
+magnet:?xt=urn:btih:49B73D55B88AF70A3C65C50035EC37F8427720B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,170 +394,192 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507622   (798172) от 05.11.2021
+###  Публикация: 1122574   (798856) от 05.04.2017
 
-Кошачьи миры Луиса Уэйна / The Electrical Life of Louis Wain (2021) WEB-DL [H.264/1080p]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картины эксцентричного аристократа Луиса Уэйна обладают одной общей чертой — он пишет исключительно антропоморфных котов. Благодаря любви своей жены Эмили, Луис навсегда меняет взгляд людей на жизнь и на кошек. Но с каждой новой картиной причудливые миры Луиса начинают всё сильнее заменять ему реальность.Производство: Великобритания / Amazon Studios, Film 4, Shoebox FilmsЖанр: Биография, история, драмаРежиссер: Уилл ШарпАктеры: Бенедикт Камбербэтч, Клэр Фой, Джэми Деметриу, Норбери Экланд, Дороти Эткинсон, Ричард Айоади, Эмбер Виктория Брэй, Азим Чодри, Кристал Кларк, Софи Ди МартиноПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Full)Продолжительность: 01:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A16D8C55BCE6740C0A692A3DD4553686E6AFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507842   (798171) от 06.11.2021
-
-VA - Luxury Lounge Sunset, Vol. 4 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamhunter - Hurricane Bay (3:35)
-02. Lazy Hammock, Ivan M-sax - Clean Slate (5:06)
-03. Schwarz, Funk - Keep On (Remastered Version) (5:49)
-04. Corrado Saija - Sommeil Noir (Extended Version) (14:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA9514DA41F682F8B5871CFA48B22192958B58E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507845   (798170) от 06.11.2021
-
-VA - Best Sound of Chill & Lounge 2021 – Winter Edition (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiozoom - Smooth Mover (3:49)
-02. Soundset City - Nu City (3:43)
-03. Bernon - Around the World (4:15)
-04. Jean Mare - Blue Cascades (4:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162C5FBD4F03CC3805B4C950C0DC19E3A1B36C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507852   (798169) от 06.11.2021
-
-VA - Best Sound of Chill & Lounge 2021 - Summer Edition (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightbar Jazz - Breath of the City (4:50)
-02. Soundset City - Shine On (Funky Lounge Mix) (3:53)
-03. Audiozoom - So Beautiful (3:25)
-04. Jazzy System - China Town (3:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7E69658AD1894FD49AA7BEF217F3B546E656B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507877   (798168) от 06.11.2021
-
-VA - Luxury Buddha Lounge, Vol. 1 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metaharmoniks - From Soul to Soul (3:15)
-02. Sylvering - Domino Dancing (2:47)
-03. 351 Lake Shore Drive, Blueberry - Soirée Rouge (6:47)
-04. Simon Le Grec, Kelly Johnson - Tell Me What Love Can Do (Jorgensen Remix) (8:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E055005559B152589A4F9A32E47D7817768B5C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507953   (798167) от 06.11.2021
-
-SnapMotion 5.0.0 [Multi]
+Allavsoft Video Downloader Converter 3.14.2.6303 RePack by вовава [Multi]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798167.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SnapMotion - приложение, которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
+Video Downloader Converter - это программа от Allavsoft, которая поможет вам скачать видео с разных специализированных сайтов, на странице разработчиков, утверждается, что работает софт более чем с сотней разных видео-хостингов. Эта была первая фишка программы, дальше идет процесс конвертирования, после того как вы загрузили ролик, его можно конвертировать в разные (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5024801151D3F79FA42558F65E18CEFD300046FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122551   (798855) от 05.04.2017
+
+Журнал | AD / Architectural Digest [USА] №5 (май 2017) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A7BDC1B8659F786F441D8F246428A9124DC8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122505   (798854) от 05.04.2017
+
+Mastodon - Emperor of Sand (2017) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Stoner Metal, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultan's Curse (4:10)
+02. Show Yourself (3:03)
+03. Precious Stones (3:46)
+04. Steambreather (5:03)(   Читать дальше...   )Жанр: Stoner Rock, Stoner Metal, Sludge MetalПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AA41A1589BC0C4E9020E595CE32DC0DE434BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122388   (798853) от 05.04.2017
+
+Ike Quebec - The Complete Blue Note 45 Sessions (1959, 1960, 1962) 2CD, 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798853.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A Light Reprieve [4:39]
+02. Buzzard Lope [6:17]
+03. Blue Monday [5:06](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 02:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437B161C28A9DEEAB83ADA23AB5A81EF6D438B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122372   (798852) от 05.04.2017
+
+Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television Series) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samuel Sim - Hourglass (The Halcyon Main Title Theme) (03:17)
+02. Beverley Knight - Marvellous Party (03:46)
+03. Jamie Cullum - Forever (02:57)
+04. Kara Tointon / Chris Egan & The Sonny Sullivan Band - Mr. Heartache (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A10050EC48927144818811B74EA3498EAC786BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122723   (798851) от 05.04.2017
+
+Осторожно, мошенники! От лица заботливого государства (2017.04.04) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, каждый хоть раз становился жертвой мошенников: будь то игра в "моментальные" лотереи, приобретение ненужных, а иногда и вредных пищевых добавок или общение с вымогателями денег по телефону, для пополнения мобильного счёта бедного чада, оставшегося без связи. В помощь нежелающим наступать на старые грабли зрителям на канале "ТВ Центр" (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E3C80454CE6554EBA6C71A7F17B3E16DA33908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122295   (798850) от 05.04.2017
+
+Н. В. Хессин | В. И. Ленин о сущности и основных признаках товарного производства (1968) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография Николая Владимировича Хессина написана по материалам докторской диссертации, защищенной на экономическом факультете МГУ в июне 1967 года. В ней дается развернутый анализ взглядов В. И. Ленина на сущность и основные признаки товарного производства, а также политико-экономическое содержание товара и закона стоимости.
 
-SnapMotion имеет два режима:
-● Ручной режим, где вы можете извлекать изображения точно в установленное время.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2012-2019 NeededAppsПоддерживаемая ОС: macOS 11.0.+Язык интерфейса: Английский, Немецки и др.
+Автор исследует ленинскую методологию (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2894F8CA96F2B7D123EC0AF3907E2B38B7B45C8D
+magnet:?xt=urn:btih:2BB2948E2B91965BB901EEA2BC66C106D2642F48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,27 +587,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507956   (798166) от 06.11.2021
+###  Публикация: 1122529   (798849) от 05.04.2017
 
-SiteSucker 4.2 [Multi]
+Журнал | Interni №4 (57) (апрель 2017) [PDF]
 
->>Архив торрентов
->>Архив 4Apple
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798166.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798849.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SiteSucker. Альтернативный менеджер загрузки сайтов
-SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-SiteSucker умеет загружать сайт (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: © 2021 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
+«Interni» – международное издание о самых важных разработках, проектах и тенденциях в области архитектуры и дизайна. Материалы журнала обращены не только к профессиональным архитекторам, декораторам и дизайнерам, но и ко всем искушенным читателям, интересующимся теорией и практикой современной архитектуры и строительства, а также дизайнерскими решениями, которые (   Читать дальше...   )Жанр: Архитектура, строительство, дизайнФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7D0A1FBDCB963981BC0C7A9271DA56B494805C3
+magnet:?xt=urn:btih:7C7B65BF5DB0ACFA3094D70815FE0F91E136EE61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,26 +613,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508085   (798165) от 06.11.2021
+###  Публикация: 1122005   (798848) от 05.04.2017
 
-Bookends 14.0.2 [En]
+Mammoth Weed Wizard Bastard - Y Proffwyd Dwyll (2016) [MP3|320 Kbps] <Doom, Sludge, Psychedelic,>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798165.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798848.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
-Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: © 2021 Sonny SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+01. Valmasque
+02. Y Proffwyd Dwyll
+03. Gallego
+04. Testudo(   Читать дальше...   )Жанр: Doom, Sludge, Psychedelic,Продолжительность: 00.48.16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E778976FE2DF828884CEFAD3CA1A5EDD883A12E1
+magnet:?xt=urn:btih:25CD4639D19B43A74D14B32CE78C56F0D7BDC622
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,26 +642,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507950   (798164) от 06.11.2021
+###  Публикация: 1122591   (798847) от 05.04.2017
 
-GlueMotion 2.0.1 [Multi]
+Jade 4U - Jade's Dream (1988) LP [MP3|320 Kbps] <Electronic, New Beat>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798164.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798847.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GlueMotion - идеальный инструмент для фотографов. Приложение позволяет редактировать пакетные Deflicker и собирать последовательности изображений в покадровые фильмы.
-GlueMotion был создан, чтобы сэкономить время и помочь вам в процессе работы. Благодаря использованию инструмента пакетного редактирования, нет необходимости использовать дополнительные приложения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2012-2019 NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+01. That Boy (3:28)
+02. Valley Of Kings (3:44)
+03. Midnight Rider (3:49)
+04. The Early Train (3:23)(   Читать дальше...   )Жанр: Electronic, New BeatПродолжительность: 00:37:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:427132F5EC5092D94219A4197E50AF5EDE527E53
+magnet:?xt=urn:btih:00DAF97D2F99C5160A13F6BFAAC60EF71C4A416F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,26 +671,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508073   (798163) от 06.11.2021
+###  Публикация: 1122535   (798846) от 05.04.2017
 
-DropDMG 3.6.2 fix [Multi]
+VA - Acoustic Pop Covers Volume 1 (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Instrumental>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798163.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
-Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2021Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Голландский, Датский и д.р.
+01.  Karizma Duo - Stay With Me  3:48
+02.  Thom Cooper - Use Somebody  3:47
+03.  Shannon & Keast - Toxic  3:36
+04.  Meg Birch - Rude (Acoustic Version)  3:46(   Читать дальше...   )Жанр: Downtempo, Acoustic, InstrumentalПродолжительность: 00:53:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB95E57655DB5587D4D0B5070A73E3BED2A2DF34
+magnet:?xt=urn:btih:3EE74843A48C69C4527148EE2B691E9F20000FB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,420 +700,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508027   (798162) от 06.11.2021
+###  Публикация: 1122307   (798845) от 05.04.2017
 
-MacPilot 13 v13.0.4 [En]
+Royal Crown Revue - Kings Of Gangster Bop (1991) [MP3|320 Kbps] <Swing>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798162.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лёгкое включение и отключение скрытых функций Mac OS X, оптимизация и ремонт вашей системы, выполнение множества рутинных процедур по обслуживанию системы путём простого нажатия на кнопку.
-Независимо от того, профессионал вы или начинающий пользователь, теперь вы сможете повысить производительность компьютера несколькими кликами мыши. В приложении предусмотрено выполнение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+01. Hey Pachuco (03:08)
+02. Inner City Swing (02:40)
+03. Spanky's In The Kitchen (05:45)
+04. Jumpin' In G (02:06)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:36:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0823B7246A0247A48C971730552962B05B88EFB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507907   (798161) от 06.11.2021
-
-VA - Café De La Cita, Vol. 4 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2020) [AAC|~288 Kbps] <Lounge, Chill Out, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightview - Cityscape (Lounge Sound Mix) (3:28)
-02. Soundset City - Break in the City (3:43)
-03. CiYou - I'm Driving (3:21)
-04. Nightzoom - Cool Mixture (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820B5BFE78DD68007B077947A1D35A1B885B3150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508076   (798157) от 06.11.2021
-
-NCH Express Accounts Plus 9.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Express Accounts - это профессиональное программное обеспечение для бухгалтерского учета, идеально подходящее для малых предприятий, которым необходимо документировать и сообщать о входящих и исходящих денежных потоках, включая продажи, квитанции, платежи и покупки.
-• Легко отслеживать платежи и депозитные операции
-• Просматривайте балансы и отчеты, чтобы узнать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE28F779C87B2FC58B887BFBE2030185B7D6ACA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508079   (798156) от 06.11.2021
-
-NCH Express Animate 6.39 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Express Animate - это приложение для анимации, ПО дает вам возможность анимировать формы, текст и импортированные изображения. Вы также можете улучшить свои кинопроекты на этапе пост-обработки, используя анимацию движения по ключевым кадрам , маскирование, фиктивные объекты и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: © 2021 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDF006E93AAE73D8A274E4FDE5964BB850B1BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507904   (798155) от 06.11.2021
-
-VA - Café De La Cita, Vol. 2 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2018) [AAC|~304 Kbps] <Lounge, Chill Out, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Dulcimers Vibes (Chillout Mix) (4:10)
-02. Jean Mare - Down to Underground (Nu Jazzy Smooth Mix) (3:51)
-03. Bernon - Crying (Deep Drive Mix) (5:27)
-04. Nightbar Jazz - Late Night (Drum & Bass Downbeat Mix) (3:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2435EB6A80BF2A5CAFB0430418CED01D65EFB55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507096   (798154) от 06.11.2021
-
-Морн / Mourne (2021) WEBRip [VP9/2160p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершите захватывающее путешествие по 4 временам года в горах Морн, которые являются одними из самых живописных на острове Ирландия.Производство: ИрландияЖанр: Документальный, видовойРежиссер: Richard WatsonПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 00:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E89C87362C02D13C729B0A6D9EF9E1731615E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507903   (798153) от 06.11.2021
-
-VA - Café De La Cita, Vol. 1 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2017) [AAC|~312 Kbps] <Lounge, Chill Out, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Galactic Highway (Nu Chillgroove Mix) (5:03)
-02. Bernon - Suitcases to Space (Jazzy Chillout Version) (5:19)
-03. Dave Neville - The Sun Is Coming (Smooth Jazz Mix) (6:47)
-04. Avalon Project - I Can Read Your Mind (Chill Breeze Mix) (5:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2009BDE91A7B5263CF0613FFB8B652E2F3DA17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508010   (798152) от 06.11.2021
-
-Invisor - Media File Inspector 3.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Invisor – Инспектор файлов мультимедиа
-Отображает техническую информацию о вашем видео и аудио файлов с возможностью сравнения собранных данных.
-Invisor основан на хорошо известной библиотеке MediaInfo и показывает подробную информацию о контейнере файла и потоков данных, включая видео, аудио, субтитры и главы. Поддерживает большинство форматов видео и аудио файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: © 2021 Maxim PozdeevПоддерживаемая ОС: macOS 10.7.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40373F65CBD1AED73DD4DCA5F561CA2D7B2C1654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507880   (798151) от 06.11.2021
-
-VA - Luxury Buddha Lounge, Vol. 3 (2014) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jasmon - Oriental Cafe (4:06)
-02. Man In A Room, Natasha Tsirou - Marveland (5:22)
-03. SoulAvenue - Padmasundari (5:56)
-04. Aqualise - Sonar (Original Version) (7:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE789E1E647C4A6805EDC1035D9FBCBB70FEC4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507887   (798150) от 06.11.2021
-
-VA - Chill Out Nation, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Groove Avenue - Next to the Sun (4:20)
-02. Peter Pearson - Chilled To The Heart (4:34)
-03. Marga Sol - What I Long For (Chill Mix) (5:24)
-04. D-Chill, Paola Cordoni - Are You Still (5:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326B3BF56957595E18D48812281F1E27F901C1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507878   (798149) от 06.11.2021
-
-VA - Luxury Buddha Lounge, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylvering - The Power of Love (4:35)
-02. Smooth Deluxe - My Sweet Aimée (5:36)
-03. Guenter Haas - Lost in a Dream (6:42)
-04. E-Love - You Take My Heart (Gardenhouse Chill Out Edit) (6:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F335974E6B114CBAA57F6FF92A3039D380960A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507908   (798148) от 06.11.2021
-
-VA - Café De La Cita, Vol. 5 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2021) [AAC|~296 Kbps] <Lounge, Chill Out, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzy System - China Town (3:46)
-02. Audiozoom - So Beautiful (3:25)
-03. Cuetec - Around Midnight (4:23)
-04. Jean Mare - Metropolitan Nights (Lounging Electro Cut) (4:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F85E4F8B3F2EC0A4B1B604418BEC80EDDE7768F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508020   (798147) от 06.11.2021
-
-iFlicks 3.8 fix [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как добавить и смотреть фильмы в iTunes, iPhone или iPad? Используйте iFlicks. Добавьте метаданные к фильмам и сериалам и ваша медиатека будет выглядеть просто шикарно. Управление вашей видео коллекцией еще никогда не было такой удобной.
-
-iFlicks — это метаданные к сериалам и фильмам. При помощью добавления метаданных iFlicks поможет сделать вашу iTunes библиотеку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: © 2015-2020 by iFlicks.Поддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3C125A9CA06BC6C25C6C4C4E2EB0AC84B2DE69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507977   (798146) от 06.11.2021
-
-PhotosRevive 2.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798146.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotosRevive автоматически раскрашивает ваши старые черно-белые фотографии. Приложение использует революционный искусственный интеллект, который добавит цвета ультра-реалистичным способом. Приложение очень простое в использовании. Сканируй или импортируй свою фотографию и все. Приложение раскрасит его без каких-либо усилий с вашей стороны.Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2021 NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C477E41AB0E0BEFD231F460C89C86C80FAAA57A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507889   (798145) от 06.11.2021
-
-VA - Chill Out Nation, Vol. 2 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup - Diversities (4:11)
-02. Lemongrass, Jane Maximova - Grapes (Roberto Bronco Remix) (6:20)
-03. Marc Hartman - Mirror Of Love (5:17)
-04. Five Seasons - Caribbean Aquanauts (4:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFED980081E9ECE00535060A489BFABA23DEDC41
+magnet:?xt=urn:btih:D796998A59F29A7AE12806653FDFDA51DD25A1F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

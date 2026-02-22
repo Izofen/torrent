@@ -1,3 +1,32 @@
+###  Публикация: 1654323   (205199) от 20.08.2023
+
+The Defiants - Drive (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Life (4:39)
+02. Go Big Or Go Home (4:06)
+03. 19 Summertime (4:41)
+04. What Are We Waiting For (4:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D565BFB9BB02FADCB04E8B6A32CA7BD702201C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654617   (205133) от 21.08.2023
 
 Fighter - The Waiting (1991) Reissue, Remastered, 2019, Girder Records [FLAC|Lossless|image + .cue] <Hard Rock, Arena Rock>
@@ -715,35 +744,6 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:714F2C4B8DD342B83E79ABC98096E1E60E58EEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642499   (196533) от 27.06.2023
-
-Laura Wilde - Charmed + Dangerous (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Roll (2:11)
-02. Scarlet Woman (3:35)
-03. Wind Me Up (3:32)
-04. I Love This City (2:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439CC8A0114F68FB4B250FB75517E09E9554D7CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

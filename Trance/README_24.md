@@ -1,3 +1,32 @@
+###  Публикация: 1240111   (531398) от 09.08.2018
+
+VA - Infrasonic Summer Selection (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milad E – Intension (Extended Mix)
+02. Nikhil Prakash – Chasing Stars (Extended Mix)
+03. Athom & Nuestro – Space Odyssey (Extended Mix)
+04. Arggic – Dreamyness (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673570992842E06E7D112D7EF112F4FA76FE3F00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240123   (531396) от 09.08.2018
 
 VA - The Best Of Critical Uprising 003 (2018) [MP3|320 Kbps] <Trance>
@@ -713,35 +742,6 @@ VA - Female Vocal Trance 2018 Vol. 2 (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:507639DC594F307D77E69C04DE3381D0F1713E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241502   (519380) от 18.08.2018
-
-VA - Progression Vol.7 (Mixed By Jon Bourne) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Szabo - Budapest (Original Mix)
-02. Danny Chen feat. Nicole Rodriguez - Everything We Lost (Monoverse Remix)
-03. Anden State - Flame (Original Mix)
-04. Westlake (US) - Bengala (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAF2C7C6B74DC2AD9873A5E8DF31FA1B7E075C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

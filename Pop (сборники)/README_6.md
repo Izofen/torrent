@@ -1,3 +1,38 @@
+###  Публикация: 610934   (989227) от 30.01.2013
+
+VA - Дискотека : Зимний Mix Отрыв 50/50 (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Smash & DJ Vengerov - Только Вперед (DJ Noiz & DJ Maxtal Radio Remix)
+02 Basto & Yves V - Cloud Breaker (Basto mix)
+03 Virone - Расстояние (Dj Glazunov remix)
+04 Metrik - Engine Room (original mix)
+05 Дискотека Авария - Ноги-Ноги (DJ Nejtrino & DJ Stranger Remix)
+06 Max Graham feat. Jeza - Still There's You (Tomas Heredia remix)
+07 Чи-Ли - Кошка (Sergei Karpov Minimal Pop remix)
+08 Will.I.Am feat. Jennifer Lopez - T.h.e. (DJ Rich-Art & DJ Kirillich remix)
+09 Alex Akimov & Ivan Flash feat. Dana K - Dance (Original Mix)
+10 Badiizrael - Insomnia (original mix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7930278525E9595B49EEBE9FAEC50D3634FC50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610333   (988292) от 31.01.2013
 
 VA - The Official UK Top 40 Singles Chart (27-01-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
@@ -758,41 +793,6 @@ VA - Радио Шторм - Русский Шторм - 87 (2013) [MP3|128-320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D7015DAA08182994D36544893902FFDC0BB1669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617163   (973411) от 11.02.2013
-
-VA - Best DJ of Radio Records (2013) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Марсель - Остановись (KIDO Dub Step Remix)
-002 Molella - Even In The Rain (Club Edit)
-003 Серебро - Мальчик (DJ Niki Radio Remix)
-004 DJ Agr f. Airbse - Resurron
-005 MC 77 feat. Лукас (Паль-То) - Цыганочка (DJ Amor Remix)
-006 IQ-Talo & Miss Laluna - Sweet Little Lies (AlexKea feat. RainDropz! Remix Edit)
-007 DJ Цветкоff & Mayo - Пусть Будет Так (Amen) (Radio Mix)
-008 Addicted Craze Feat. Kevin Kelly - Drinks Up to the Sky
-009 Диля Даль - Спасибо, мэрси (DJ Nejtrino & DJ Kirill Clash Remix)
-010 Ke$ha- Crazy Kids (D3Y Remix Edit)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAC88551D76784D49D35BB60E6931FC78F6EE9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

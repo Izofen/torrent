@@ -1,3 +1,32 @@
+###  Публикация: 1271194   (150000) от 23.12.2018
+
+London Gay Big Band - Freedom (2018) [MP3|320 Kbps] <Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's A Man's Man's Man's World 03:18
+02. Dancing In The Street 03:27
+03. This Can't Be Love 02:16
+04. Me And Mr. Jones 04:21(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD24562D040C77B82F1570A4A924A8AB1AD24E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434628   (149957) от 25.12.2020
 
 Andy Lindquist - Dead in Your Lies (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -728,35 +757,6 @@ Jaimee Paul - Christmas Time Is Here (2010) [FLAC|Lossless]<Vocal Jazz, Christma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48B5B07A8C8855C858343C4D2178C1153F279620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086852   (148768) от 26.12.2016
-
-Jack Wilson - Song For My Daughter (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Imagine [04:28]
- 02.Herman's Helmet [04:36]
- 03.Changing With The Times [03:05]
- 04.Night Creature [03:58](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE6B41B5ABBF31CFC3536B6E5ACFEB4F5C30395
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1503297   (821241) от 18.10.2021
+
+VA - Calming Acoustic Covers: 14 Chilled and Relaxing Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shannon & Keast - Fireflies (Acoustic) (03:42)
+02. John Burnsby - What a Wonderful World (Acoustic) (02:20)
+03. Karizma Duo - Islands in the Stream (03:30)
+04. Django Wallace - My Future (Acoustic) (03:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144843692198F49B0A93F871D03C4AC0F3FE115C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117041   (821062) от 21.03.2017
+
+VA - Miami Disco 2017  [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Discotron - Clap Your Hands (original mix) (06:40)
+2. Audio Jacker - Rotate (original mix) (05:38)
+3. Disko Junkie - Go Back To Disko (original mix) (05:15)
+4. Jack Le Funk - Funk's Lazy Afternoon (original mix) (06:14)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40DAAD6F9F626C3B7AF8B0F87426A427DC8BD53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116810   (821052) от 21.03.2017
+
+Coeur de Pirate - Roses (2015) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carry On [03:35]
+02. Crier Tout Bas [04:20]
+03. I Don't Want To Break Your Heart [04:05]
+04. Drapeau Blanc [03:24](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39237056906CBCE009BC955CFDA39965C5D8CD59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117099   (820929) от 21.03.2017
+
+НеИгрушки - На Луну (2000) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ерунда
+02. На Луну
+03. Мальчишка
+04. Весна (полная версия)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF0CBD671D5808A202FCDB97BFEBBEA42BA7FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116938   (820803) от 21.03.2017
 
 Secret Star - I Need A Man | Jump In My Car (2 Singles) (1986) [MP3|320 Kbps] <Euro-Disco>
@@ -628,122 +744,6 @@ Fancy - Bolero The Hit Collection & More (2012) [MP3|320 Kbps] <Disco, Italo-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E2DE136A436F34892A8B75D836F35862F9D93AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117249   (818930) от 22.03.2017
-
-VA - Acoustic: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alanis Morissette - Ironic (Acoustic Version) (3:56)
-02. Coldplay - The Scientist (5:10)
-03. Bruno Mars - Grenade (Acoustic) (4:07)
-04. James Blunt - 1973 (Acoustic) (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91BA5E68B9D9B9EF0703A4F8C1CAFA5D82ABAF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196963   (818873) от 05.01.2018
-
-Maroon 5 - Red Pill Blues (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best 4 You
-02. What Lovers Do (Feat. SZA)
-03. Wait
-04. Lips On You(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29881F19FC1D4F153AA678EAB4274FB134410927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117433   (818783) от 22.03.2017
-
-Fancy - Bolero The Hit Collection & More (2012) [FLAC|Lossless|tracks + .cue] <Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames Of Love (5:20)
-02. Colder Than Ice (5:06)
-03. Bolero (Hold Me In Your Arms Again) (5:40)
-04. After Midnight (4:42)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC57D33478DC3AC383F02F908913F491120E1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197024   (818778) от 05.01.2018
-
-Joy - Best (1986) Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch By Touch (3:50)
-02. Kisses Are The Doctor's Order (3:29)
-03. Chinese Girls (3:40)
-04. Valerie (4:12)(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E479A8167AB748C5BD7A78FDEDB57D4BDE7132E
 ```
 
 https://mybot314.ru/tekegram_catalog/

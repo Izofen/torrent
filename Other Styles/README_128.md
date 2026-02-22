@@ -1,3 +1,32 @@
+###  Публикация: 945484   (431570) от 11.10.2015
+
+Francisco Canaro - Charlo - Con Francisco Canaro & Francisco Lomuto (1989) [MP3|160 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiempos viejos
+02. Desconfiale | Desconfiale
+03. Remordimientos
+04. Nelly(   Читать дальше...   )Жанр: TangoПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C32462C524446FE50FA2B458D5C2EDFCB7BD1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945771   (431568) от 11.10.2015
 
 Carly Comando - Dreamlife (2015) [OGG| 400-478 кб/с]<Instrumental, Classical Piano, Minimalism>
@@ -719,35 +748,6 @@ Tariverdiev (Микаэл Таривердиев) - Film Music (2015) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:799F2B9DD1D67ABECBF260A1BE9203B4C3590B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064325   (426080) от 20.10.2016
-
-VA - Gears of War (Collection Original Soundtrack) (2007-2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gears of War (04:31)
-02. 14 Years After E-Day (02:55)
-03. Jacinto Prison (02:50)
-04. Attack of the Drones (02:08)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 05:28:09 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B2B883710722466940001F5D6F9A3C0E780C88
 ```
 
 https://mybot314.ru/tekegram_catalog/

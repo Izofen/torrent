@@ -1,3 +1,32 @@
+###  Публикация: 1262529   (291067) от 17.11.2018
+
+Jean-Michel Jarre - Equinoxe Infinity (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New-Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The watchers (Movement 1)
+02. Flying totems (Movement 2)
+03. Robots don’t cry (Movement 3)
+04. All that you leave behind (Movement 4)(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10532F5359040F7157706553ECE91DC7174598A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185646   (291022) от 22.11.2017
 
 Gregorian - The Platinum Collection (2017) [MP3|320 Kbps] <New Age, Medieval, Other>
@@ -729,35 +758,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F0816EEF795B6DE841DE791E1765C15F71CB329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335808   (284555) от 04.11.2019
-
-Kacey Musgraves - Pageant Material (2015) [FLAC|Lossless|tracks] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - High Time (2:58)
-02 - Dime Store Cowgirl (3:35)
-03 - Late To The Party (3:38)
-04 - Pageant Material (3:54)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EB0E3479949EA89C1630BDB200A121EF011C76
 ```
 
 https://mybot314.ru/tekegram_catalog/

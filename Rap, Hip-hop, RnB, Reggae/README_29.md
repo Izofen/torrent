@@ -1,3 +1,61 @@
+###  Публикация: 1343422   (218058) от 06.12.2019
+
+Бьянка - Волосы (2019) [MP3|320 Kbps] <R&B, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Волосы
+2. Текила бум
+3. Василёк
+4. Кто тут мама(   Читать дальше...   )Жанр: R&B, PopПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037BAB21B68CC3000A4B910539744B630B69534E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425760   (217745) от 22.11.2020
+
+Санчес - Продано, Ч. 2. Конец (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здесь много кто скрывается [04:12]
+02. Равнодушие [02:22]
+03. Джаз Кодеин [01:35]
+04. Пламенем [03:10](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EADBF21231FF189EC1173A6C0152A7F8E83B6D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514343   (217666) от 03.12.2021
 
 RAM - TRIBE (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -684,64 +742,6 @@ VA - The Secret Garden (2012) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF3B75D66F66FB0E226D85BE74557508D6C2C9F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426953   (185099) от 26.11.2020
-
-25/17 - Байки из склепа. Часть 3 (2020) EP [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185099.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Луна
-2. Девочка с бедою
-3. Шей меня
-4. Порядок(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19615BD2F467BD89C36C76E406D3036EA8DDE574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427057   (184362) от 27.11.2020
-
-STED.D - МЫ ДАВНО В АДУ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. БИОМУСОР СУПРИМАСИ [02:38]
-02. МЫ ДАВНО В АДУ [02:50]
-03. С ДВУХ НОГ [02:49]
-04. МЕНЯ НЕТ [03:01](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6FCC8C3951C2FF89DB37FF4E9F50F6879B61E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

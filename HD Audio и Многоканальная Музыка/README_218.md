@@ -1,3 +1,174 @@
+###  Публикация: 1730084   (53297) от 14.06.2024
+
+Lindsey Stirling - Duality (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical Crossover, Pop, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evil Twin (3:48)
+02. Eye Of The Untold Her (3:41)
+03. Surrender (3:22)
+04. Serenity Found (4:24)(   Читать дальше...   )Жанр: Classical Crossover, Pop, InstrumentalПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABCCFD96A39D9E16BF44BA267423EDF830C68DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730360   (53202) от 15.06.2024
+
+Seal - Seal (1994) Deluxe Edition, 2024, Warner Records Inc.[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring It On (Alternate Version) [00:05:35]
+02. Reality [00:04:34]
+03. Prayer for the Dying (Alternate Version) [00:05:30]
+04. Kiss From a Rose (Alternate Version) [00:05:10](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 02:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F913CAA91E895445C395875422EAAF102D9751C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730549   (53101) от 16.06.2024
+
+Fire From The Gods - Soul Revolution - The Collabs (2022) Deluxe, 2024, Better Noise Music [FLAC 24/44.1,96|Lossless|WEB-DL|tracks] <Alternative Metal, Rap Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Revolution (feat. Yung Mo$h) [00:03:34]
+02. SOS (Alternative Version) [00:03:38]
+03. Thousand Lifetimes (feat. Corey Glover of Living Colour) [00:03:10]
+04. Double Edged Sword (feat. Sylar) [00:03:21](   Читать дальше...   )Жанр: Alternative Metal, Rap MetalПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90569A7EB778A4551684A0B16FD54D2540493985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730637   (53089) от 16.06.2024
+
+Bob Dylan - Good As I Been To You (1992) SACD, Reissue, Remastered, 2024, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Folk-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie & Albert
+02. Jim Jones
+03. Blackjack Davey
+04. Canadee-I-O(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF2538A71D0A67B8C906BE357DE33C021223ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730711   (53029) от 17.06.2024
+
+Michael Jackson - Thriller (1982) SACD, Reissue, Remastered, 2022, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Disco, Funk, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin'
+02. Baby Be Mine
+03. The Girl Is Mine (with Paul McCartney)
+04. Thriller(   Читать дальше...   )Жанр: Disco, Funk, Soft RockПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F644A78B3401F6374995F61C380B21BA578003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730670   (53004) от 17.06.2024
+
+Звёздный Ансамбль Бардов России - Песни Нашего Века. Части I - III (1998 - 2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ChansonПродолжительность: 02:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDB51CE020A0A9C1B548DE2E7148EDC658A2C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730692   (53001) от 17.06.2024
 
 Riff Kitten - Chaos Parade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
@@ -571,180 +742,6 @@ Lamb of God — американская грув-метал-группа, об�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84DCB4B26807F062F94437F5BE11D25F6C86356E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733489   (51618) от 29.06.2024
-
-Rhapsody Of Fire - Studio Albums (16 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rhapsody или Rhapsody of Fire — итальянская метал-группа, исполняющая музыку в стиле симфонический пауэр-метал. Коллектив был основан под названием Thundercross, но с 1995 года назывался Rhapsody и под таким названием стал широко известен. В 2006 году из-за проблем с правами группа дополнила название словами «of Fire».1997 - Legendary Tales
-1998 - Symphony Of Enchanted Lands
-2000 - Dawn Of Victory
-2001 - Rain Of A Thousand FlamesЖанр: Symphonic Power MetalПродолжительность: 17:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2C65835422E1FA7AFAA26ED403B9992AAA2D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733557   (51604) от 29.06.2024
-
-Cold Wives - Self-Titled (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <noise-rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unwashed and Misunderstood [00:05:13]
-02. Foreign Matters [00:03:30]
-03. Terra Prime [00:05:22]
-04. Shrink [00:05:04](   Читать дальше...   )Жанр: noise-rockПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC796DE060D22E9856EA40634DB7A03223E39BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733199   (51603) от 29.06.2024
-
-Guided By Voices - Strut Of Kings (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me the Castle [00:04:25]
-02. Dear Onion [00:01:47]
-03. This Will Go On [00:02:09]
-04. Fictional Environment Dream [00:03:55](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55847F3611FA9423B72891CE758D6EA6204D8D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733198   (51601) от 29.06.2024
-
-The Orbweavers - New Moon / Silver Moon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dream Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonee Moonee Chain of Ponds [00:04:58]
-02. Edges of Memory [00:02:25]
-03. In the Evening [00:04:54]
-04. So Much Sorrow [00:04:31](   Читать дальше...   )Жанр: Dream PopПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1B03E7098F42F58682DEE5189C8928AB780E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733401   (51599) от 29.06.2024
-
-Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2024, BMG [FLAC 24/48|Lossless|WEB-DL|tracks] <Ska Revival, 2 Tone Ska, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue: "Mr Beckett Sir..." [00:00:11]
-02. Theatre of the Absurd [00:04:13]
-03. If I Go Mad [00:04:36]
-04. Baby Burglar [00:04:05](   Читать дальше...   )Жанр: Ska Revival, 2 Tone Ska, RockПродолжительность: 01:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15ABB9751DAC3C42E3CBE4697BD81DE9F5280811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733530   (51598) от 29.06.2024
-
-Madeleine Peyroux - Let's Walk (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal jazz Chanson>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Find True Love 04:01
-02 - How I Wish 04:14
-03 - Let's Walk 04:52
-04 - Please Come On Inside 04:52(   Читать дальше...   )Жанр: Vocal jazz ChansonПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7667A10749FAFC21723C502A8231BE30E5D0070
 ```
 
 https://mybot314.ru/tekegram_catalog/

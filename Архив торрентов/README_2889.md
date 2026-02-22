@@ -1,3 +1,29 @@
+###  Публикация: 920295   (579841) от 22.07.2015
+
+Skype 7.7.32.102 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA37EB40C2E096C2F8E68E2DC6EE17E7BA25F9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 894936   (579836) от 22.07.2015
 
 MadOut 9 [Ru]
@@ -666,35 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1158B9CAC75001C1993C255FF54375B106B7BAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042310   (579688) от 12.08.2016
-
-VA - Who's Afraid Of 138?! Top 15 2016-08 (2016) [MP3|320 Kbps] <Trance,  Uplifting Trance, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gareth Emery & Ben Gold  -  Until We Meet Again (Ben Nicky Remix)  3:48
-02. Chris Bekker & Chris Montana & Paul Van Dyk  -  Berlinition (Paul Van Dyk Club Mix)  3:15
-03. Ben Gold & Ruben De Ronde  -  Era Festivus (Mhammed El Alami Remix)  3:51
-04. Vini Vici & Bryan Kearney  -  We Are The Creators  3:34(   Читать дальше...   )Жанр: Trance,  Uplifting Trance, ProgressiveПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003D05B48BF9D242813C21E26DAD42928270321E
 ```
 
 https://mybot314.ru/tekegram_catalog/

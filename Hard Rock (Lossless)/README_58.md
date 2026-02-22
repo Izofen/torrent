@@ -1,3 +1,32 @@
+###  Публикация: 1576662   (364284) от 15.09.2022
+
+Super Vintage - Guardians of Tradition (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southern Ride
+02. Indian Soul
+03. Hero
+04. Rolling Thunder(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079EA7976B0AE5BE954BD2DA0DC7DF73D62BBB39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576679   (364272) от 15.09.2022
 
 Rogue Sharks - In For The Kill (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -722,35 +751,6 @@ ESP (Eric Singer Project) - ESP (1999) [APE|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:144A638F3B08385D4C2F814B9E68F3C845313CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329765   (350269) от 06.10.2019
-
-Lita Ford - Dangerous Curves (1991) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larger Than Life (3:54)
-02. What Do Ya Know About Love (3:53)
-03. Shot Of Poison (3:31)
-04. Bad Love (4:20)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D2FAFF325CBA741119FE761788B545883F0808
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,206 +1,3 @@
-###  Публикация: 1344619   (167563) от 14.12.2019
-
-Act Of God - The Place Of Worship (2005) [FLAC|Lossless|image + .cue] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Worms (03:35)
-02. God Don't Forgive (03:50)
-03. They Re Beside (03:30)
-04. Atheism For Dead (04:14)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F585B6459E2FC30E521DBF92AD3EA2E45AF34C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320984   (167427) от 13.12.2020
-
-Воскресение - Живая Коллекция (1998) [FLAC|Lossless|tracks + .cue] <Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Случилось что-то (4:09)
-02. Всего лишь день назад (3:17)
-03. Когда ты уйдешь (5:06)
-04. Дело дрянь (5:19)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D991EAEF4DD88575C97007DD617EC4EEB11DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853918   (167343) от 13.12.2020
-
-Воскресение - Рок Энциклопедия (Звездная Серия) (2003) [APE|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167343.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Все сначала
-2. Пятна
-3. Последняя любовь
-4. Снежная баба(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E759D508B83D744BC31BA013B049BD55DFB3CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597185   (166923) от 14.12.2022
-
-Komunist - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hardcore, Post Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слава Бо.гу [00:03:39]
-02. Водопад [00:03:24]
-03. Корабли [00:03:16]
-04. Субботник [00:04:05]Жанр: Southern Rock, Hardcore, Post HardcoreПродолжительность: 2 CD, 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C20D6E04D994F8EFF0430E7BCAC6CEAE8E0C6FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597317   (166886) от 14.12.2022
-
-Hellraiser - Dream of Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream of Doom [00:03:48]
-02. Never [00:03:48]
-03. Fb & Sa [00:01:55]
-04. Till the End [00:03:09](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05E5AF07AADD259EE3C79A4986234190559206A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597376   (166883) от 14.12.2022
-
-ТрумэN - Мотиватор (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы стремимся ввысь! 05:16
-02. Дай мне силы 05:43
-03. Моя война 04:46
-04. Не один 05:04(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052766DFD9B7A82ACA7657C92ECD6D62CB9D2319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597295   (166766) от 14.12.2022
-
-КИНОхроника - Только сны (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мои друзья живут в центре [00:04:05]
-02. Сможешь ли ты [00:04:07]
-03. Свет звезды [00:03:36]
-04. Рыба гниёт с головы [00:03:13](   Читать дальше...   )Жанр: Post-Punk, New WaveПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3449BDF45AA865D3ADBF48E9BD1C3619077EF522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345382   (166618) от 15.12.2019
 
 Дисциплина Безбольной Биты - Без боли (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Dream Pop>
@@ -462,35 +259,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673524   (165361) от 01.11.2023
-
-Леонид Фёдоров & Игорь Крутоголов - Ашера (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165361.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Баал
-2. Дагон
-3. Шамшу
-4. Муту(   Читать дальше...   )Жанр: Rock, AvantgardeПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A8EE5BA57DB93BCC85778C9B3FCC62C85D699C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516601   (165337) от 12.12.2021
 
 Старый Приятель - Время (2021) [FLAC|Lossless|image + .cue] <Rock>
@@ -745,6 +513,238 @@ Tol Galen - Swamp Castle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DB6FC4179F21C1EECFBBC43C6882BE10F003B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346549   (163500) от 19.12.2019
+
+Сплин - Тайком (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163500.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Воздушный шар
+2. Тайком
+3. Атом
+4. Гимн(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60E9E08CD7B2212ADAEA609A4D47785EA9090B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598121   (163477) от 18.12.2022
+
+Mare Infinitum - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom, Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Final Bow [00:07:08]
+02. The Flight of No Return [00:08:01]
+03. Event Horizon [00:12:06]
+04. Cryosleep [00:09:30](   Читать дальше...   )Жанр: Atmospheric Doom, Melodic DeathПродолжительность: 3 CD, 02:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230D26CE9CEBFCEF05EB78F2E2BE0800EDA3CF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517102   (163452) от 14.12.2021
+
+Красная плесень - Памяти В. Цоя (2021) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А может это сон (remaster)
+    Первая публикация - альбом «21.12.2012»
+02. Электричество
+     Из альбома «ГОСТ 59-2019» - «ЭлектричествоЖанр: RockПродолжительность: 00:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B36E3F1481C7B89BB0D431E8A6EB2521277511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598157   (163451) от 18.12.2022
+
+STRADIE (STRΛDIE) - Кровоточие (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Катабасис [00:03:07]
+02. Экстирпация [00:04:36]
+03. Вера [00:04:25]
+04. Кровоточие [00:03:56](   Читать дальше...   )Жанр: Gothic Metal, IndustrialПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4080C3B02C7B4F0C037116B5543F354C7FC5E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598163   (163377) от 18.12.2022
+
+Omen - 7851A9 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ритуал [00:01:03]
+02. Вуду [00:05:02]
+03. Бесконечно люблю [00:03:47]
+04. Икар [00:04:00](   Читать дальше...   )Жанр: Progressive Rock, Alternative MetalПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A8E2337F3D36BE1626C538EC6CD4B0FE5105B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598175   (163353) от 18.12.2022
+
+РадиоГалактика - В моей палате (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Добро пожаловать [00:03:42]
+02. Маски [00:03:24]
+03. Декаданс [00:04:10]
+04. Наперекор [00:03:35](   Читать дальше...   )Жанр: RockПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFE77AA51DAB6708843A0D3437CFF03C489809B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517358   (162901) от 15.12.2021
+
+Харизма - Делай рок! (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цусима
+02. Царь
+03. Верный
+04. Прав или нет(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA7AF2FF3D49E355E83E78945359298093C8072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217298   (162608) от 18.12.2020
+
+Андрей Сапунов (Воскресение) - Старый звонарь (Sploshnoff Music / Студия Союз) (2004) [WAVPack|Lossless]<Rock>
+
+>>След.
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Я знаю
+02 Началось
+03 Про бег
+04 Ветер (Дыхание доброго неба)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ADF2A63A3DB72F6887C39FB99C2BCBE65D041BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1135462   (679376) от 20.05.2017
+
+Chris Potter, David Virelles, Joe Martin, Marcus Gilmore - The Dreamer Is The Dream (2017) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart in Hand [08:20]
+02. Ilimba [09:53]
+03. The Dreamer Is The Dream [08:19]
+04. Memory And Desire [07:53](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6ABCC508A37E31C7558CCA89ED682B9C006D7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223056   (679369) от 02.05.2018
+
+The Lanny Morgan Quartet - Pacific Standard (1997) Contemporary [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Still of the Night [06:14]
+02. People Will Say We're in Love [07:43]
+03. Stella by Starlight [07:19]
+04. The Song Is You [07:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3D0A8E832B94AFFC04BF35099713A85C82C6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222956   (679368) от 02.05.2018
+
+Mel Lewis & Friends - Gettin' Together (1957) 1987, Vee Jay [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motif [03:59]
+02. My Buddy [02:35]
+03. Neat Foot [03:03]
+04. The Song Is Ended [02:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DCFC4A31E709017D9AF2E2386ECDD48E090DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 212806   (679321) от 28.06.2010
 
 Nicki Parrott - Fly Me To The Moon (2009) [FLAC|Lossless]<Jazz>
@@ -658,93 +745,6 @@ Maurice Peress & American Composers Orchestra - Four Symphonic Works by Duke Ell
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C094452EE916F2442EE19B0D67F6CD97B612FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136007   (677398) от 21.05.2017
-
-Susie Ibarra - Songbird Suite (2002) Tzadik [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azul [04:16]
-02. Songbird Suite [08:41]
-03. Trance No. 1 [05:32]
-04. Illumination [04:04](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F29D58C266AA458DBDB5FEEA03620C0D8E5C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135996   (677394) от 21.05.2017
-
-Simon Rattle - Classic Ellington (1999) 2000, EMI [FLAC|Lossless|tracks + .cue] <Swing, Modern Creative, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [09:10]
-02. You're the One [02:59]
-03. Sophisticated Lady [05:15]
-04. Harlem [14:13](   Читать дальше...   )Жанр: Swing, Modern Creative, Third StreamПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6E5FEFF95BB09F3B74621D83F095C7EF1ABD12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135851   (677392) от 21.05.2017
-
-Duke Ellington - The Essential Duke Ellington (1929 - 1960) 2CD, 2005, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677392.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. East St. Louis Toodle-Oo [03:07]
-02. Black and Tan Fantasy [03:27]
-03. Take It Easy [02:38](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BAC747977A23F11744D21A69935342DC232B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

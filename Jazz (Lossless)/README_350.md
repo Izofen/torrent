@@ -1,32 +1,3 @@
-###  Публикация: 1727139   (108549) от 01.06.2024
-
-Mary Lou Williams - Solo Recital: Montreux Jazz Festival (1978) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley [11:26]
-02. Over the Rainbow [4:20]
-03. Offertory Meditation [5:47]
-04. Tea for Two [1:56](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD89FCE25A7B87EFEED06F1E3084B33A4D15B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727142   (108545) от 01.06.2024
 
 Houston Person & Ron Carter - The Complete Muse Sessions (1989, 1990) 2CD, 1997, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
@@ -745,6 +716,35 @@ Sonny Stitt - 1946 – 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5DB1E451D335E407DBE883A330B2FDBBDB90168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728512   (108323) от 07.06.2024
+
+Jack McDuff - Legends of Acid Jazz: Brother Jack (1960, 1961) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brother Jack [4:04]
+02. Mr. Wonderful [3:57]
+03. Noon Train [5:56]
+04. Drowsy [3:42](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A953044CA44A2592EC3424C3B91BAAA7D0189145
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 784726   (740273) от 08.05.2014
+
+DelaDap - This Is DelaDap (2014) [FLAC|Lossless]<Ethnopop, World, Electronic, Urban Gypsy, Balkan>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Goal In The End (3:54)
+02. Cash & Chaos (4:03)
+03. Listen Up (feat. Yola B) (3:28)
+04. I Know (3:44)(   Читать дальше...   )Жанр: Ethnopop, World, Electronic, Urban Gypsy, BalkanПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E6DB1376B7E9512B36778CEB6F55D1FF803471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218129   (740232) от 07.04.2018
 
 Ric Sandler - Hey Good Lookin' (Original Motion Picture Soundtrack) (2006) [MP3|320 Kbps] <Soundtrack>
@@ -716,35 +745,6 @@ John Carpenter, Cody Carpenter and Daniel Davies - Halloween (Original 2018 Moti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC4453334C33B5677D38C90E5A7A29B68293B2E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127618   (730981) от 22.04.2017
-
-VA - Los clasicos argentinos - Tango - Vol.14 - Eladia Blazquez: La cuidad y su gente (1996) [MP3|192 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troilo y su orquesta - Inspiracion
-02. Charlo - Las cuarente
-03. Jorge Vidal - Tres esperanzas
-04. Demare y su orquesta (canta Horacio Quintana) - Manana zarpa un barco(   Читать дальше...   )Жанр: TangoПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79532E43745F432E3CA02F0AEFCF903A4FAEA7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

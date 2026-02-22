@@ -1,3 +1,32 @@
+###  Публикация: 1606930   (1044257) от 24.01.2023
+
+Padre Cuervo - Padre Cuervo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Soga [00:03:17]
+02. Chacal [00:03:37]
+03. The Cookbook for the Destruction [00:03:16]
+04. You Can't Escape from Hell [00:03:11](   Читать дальше...   )Жанр: Heavy Rock, Stoner MetalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9368E973AB691E6B68FA9AD5FBC5C92F775B4A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606935   (1044216) от 24.01.2023
 
 Teresa James - With a Little Help from Her Friends (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
@@ -718,35 +747,6 @@ Strange Omen - Marasma (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B9063F7DC49D341AFAEE1014F1F7E0347C719B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439075   (1040374) от 11.01.2021
-
-Autumn's Child - Angel's Gate (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Angels Cry
-02. Aquarius Sky
-03. Don't Say That It's Love
-04. Tear From The Sky(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100C9D152F962D78058A9B08A5063A3B3D1FE21B
 ```
 
 https://mybot314.ru/tekegram_catalog/

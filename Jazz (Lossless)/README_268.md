@@ -1,32 +1,3 @@
-###  Публикация: 1111461   (241685) от 05.03.2017
-
-Dave Lambert & Jon Hendricks - Sing & Swing Along / Evolution of the Blues Song (1960) 2014, El Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dave Lambert - All Alone [05:02]
- 02.Dave Lambert - The Best Thing For You [02:21]
- 03.Dave Lambert - Autumn Nocturne [02:16]
- 04.Dave Lambert - Blues [03:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53B33066DE3A6DB271FADF0E016506A1035439D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111321   (241680) от 05.03.2017
 
 Andrew Cyrille Quartet - The Declaration of Musical Independence (2016) ECM [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
@@ -745,6 +716,35 @@ Armin Marmolejo - Boarding Pass (1994) 1997, Igmod [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0EC390F8316540E230B9392153A7A009A8AD486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462349   (241184) от 14.04.2021
+
+Red Nichols - Wail Of The Winds (1939 - 1940) 1998, Hep Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hour of Parting [2:57]
+02. Our Love [3:24]
+03. You're So Desireable [2:58]
+04. The King Kong [2:51](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754DB80316719B6600179D8D59BD2C295AFC45C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

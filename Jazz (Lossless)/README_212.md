@@ -1,3 +1,32 @@
+###  Публикация: 948334   (411788) от 20.10.2015
+
+Ray Bryant - Trio (1956) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cubano Chant [03:07]
+ 02.Off Shore [03:57]
+ 03.Well, You Needn't [03:19]
+ 04.Cry Me A River [03:52](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379BCA055470FBF14180D86181B5ABDBE69A7410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948604   (411612) от 20.10.2015
 
 Johnny "Hammond" Smith Trio plus Seldon Powell - Black Coffee (1962) /2012, Universal/[FLAC|tracks+.cue]<Soul-Jazz, Hard Bop>
@@ -716,35 +745,6 @@ Jeff Lorber & Chuck Loeb - Bop (2015) /Agate/[FLAC|tracks+.cue]<Bop, Mainstream 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91501D550EDFA82746318A862B39FEB92D538147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252530   (409436) от 05.10.2018
-
-The Four Freshmen - Greatest Hits (1993) Curb Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graduation Day [3:06]
-02. Day by Day [1:59]
-03. It's a Blue World [2:58]
-04. Charmaine [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC217A6CF2B5F20BBA59D907F181B11FE116EF0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

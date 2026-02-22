@@ -1,3 +1,32 @@
+###  Публикация: 1053801   (524375) от 18.09.2016
+
+VA - Acoustic Hour - We Are Independent Vol.2 (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gnash feat. Olivia O'Brien - I Hate U, I Love U 03:47
+02. Jonas Blue feat. Dakota - Fast Car 03:33
+03. James Bay - Hold Back The River 03:59
+04. The Lumineers - Ophelia 02:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7233C24D1F4DC2F832F96F2302DE4CB9616EBECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559563   (524148) от 25.06.2022
 
 VA - Новички в попсе Vol 13 (2022) [MP3|320 Kbps] <Pop>
@@ -718,35 +747,6 @@ VA - Synthpop Multimix (2019) [MP3|320 Kbps] <Pop, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C8B41A03E2A3BC9102925800863282C6F60917C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315327   (513548) от 19.07.2019
-
-VA - Summer Ahead: Party Pop Music 90s (2019) [MP3|213-273 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rhythm Crew - If You Need Somebody
-002. Scott & Louise Dorsey - Love Is Gonna Last Forever
-003. Ofra Haza - Fatamorgana (Mirage)
-004. Bee Gees - Ordinary Lives(   Читать дальше...   )Жанр: PopПродолжительность: 13:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDAC35A8F377F45EE6E9E8164B0B2EDDA09DC1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

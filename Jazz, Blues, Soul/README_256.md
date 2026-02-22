@@ -1,3 +1,90 @@
+###  Публикация: 1298927   (601638) от 29.04.2019
+
+Tia Fuller - Healing Space (2007) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakthrough [6:14]
+02. Just A Journey [5:12]
+03. Ebonics [5:49]
+04. Katrina's Prayer [1:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63DE8E11B05EAF53ABA93BA67065F765F82306F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913841   (601361) от 30.06.2015
+
+Howlin' Wolf - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  California Boogie (3:01)
+02.  Look A Here Baby (2:12)
+03.  Everybody's In The Mood (3:01)
+04.  Color And Kind (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8F620CDFCD4D1AAF15C207D39932CF96E43EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913833   (601359) от 30.06.2015
+
+Fats Domino - Jazz & Blues collection (1995) [MP3|320 кб/с]<Rhythm & Blues, Rock & Roll, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Gonna Be A Wheel Someday (2:20)
+02.  I Want To Walk You Home (2:32)
+03.  Whole Lotta Lovin' (1:09)
+04.  The Fat Man (2:33)(   Читать дальше...   )Жанр: Rhythm & Blues, Rock & Roll, Blues RockПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C976E01DFBB40F5088B33FCDDA2844C08699EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913935   (601355) от 30.06.2015
 
 Illinois Jacquet with Kenny Burrell - Desert Winds (2004) [FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
@@ -658,93 +745,6 @@ Chet Baker & Philip Catherine - There'll Never Be Another You (1985) Remaster, 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E583444AEC8FEDDB885CDC774D3C53BFC236ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038987   (599678) от 30.07.2016
-
-Mick Kolassa - Taylor Made Blues (2016) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Faced Louise (03:04)
-02. Taylor Made Blues (05:12)
-03. Prison Song (04:16)
-04. I'm Getting Late (02:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00FD351FB6EE84D0EE2776465D1FA31FC70EEF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149804   (598637) от 12.07.2017
-
-Donald Byrd & Doug Watkins - The Transition Sessions (1955, 1956) 2CD, 2002, Capitol Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598637.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Doug's Blues [12:10]
-02. El Sino [10:06]
-03. Crazy Rhythm [07:38](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E173B96D0747E80766BA822BE19B118524181F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149800   (598633) от 12.07.2017
-
-Bria Skonberg - So Is The Day {ECD} (2012) Random Act Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep Me in the Back of Your Mind [04:11]
-02. So Is the Day [07:36]
-03. Hip Check [07:31]
-04. I Wish I Hadn't Forgotten [04:04](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 01:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D55AF19373D500EFA1286F263B10685FE5C05EE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

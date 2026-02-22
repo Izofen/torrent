@@ -1,3 +1,120 @@
+###  Публикация: 1021126   (742190) от 28.05.2016
+
+Azoto - 2 Albums (1978, 1980) [MP3|320 кб/с] <Electronic, Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянская группа Azoto - еще один проект композитора, аранжировщика и продюсера Celso Valli, являющимся одним из пионеров итальянской диско-сцены и известным по работе с Macho, Passengers и Tantra.01. Havah Nagilah   (8:51)
+02. Rainfall   (5:52)
+03. Discomedley   (7:06)
+04. Zorba's Dance   (3:23)(   Читать дальше...   )Жанр: Electronic, Disco, Funk, SoulПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C95D3CDB84C587894EE71C5B51FA01D278D441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021200   (741720) от 28.05.2016
+
+Sandra - The Very Best Of Sandra (2016) 2CD, Compilation [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741720.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. (I'll Never Be) Maria Magdalena (Single Version) (Remastered 2016) (03:58)
+02. Everlasting Love (Remastered 2016) (03:42)
+03. We'll Be Together ('89 Remix Single Version) (Remastered 2016) (03:46)(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51400D4EBCD4C4B3C22C07A477BD57423276639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 890997   (741581) от 22.04.2015
+
+Яак Йоала - Grand Collection (2003) [MP3|320 кб/с]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здравствуй
+02. Я тебя рисую
+03. Солнечные часы
+04. Предсказание
+05. Не забывай(   Читать дальше...   )Жанр: RetroПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAD5ABA2416DB8E2BD04AB798F462898224ED81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397140   (741340) от 19.07.2020
+
+VA - Holiday Body Workout Hits (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amy Phillips - Sorry Not Sorry (3:23)
+02. Jonas Gerard - I'm Upset (3:18)
+03. Little Play, Layla Young - Girls Like You (4:14)
+04. Tia Matthews - Most Girls (3:23)(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558B43781E0A68BC308300EA857F75F5935AF140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283154   (741168) от 15.02.2019
 
 Bodies Without Organs - Prototype (2004) [MP3|320 Kbps] <Pop, Synth-pop, Disco>
@@ -629,122 +746,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:188904177A7E626AFE9ABB163DD44E51B8282752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283600   (739783) от 17.02.2019
-
-The Day - Midnight Parade (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Dream-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Island.flac
-02. Where the Wild Things Are.flac
-03. Grow.flac
-04. The Golden Glow.flac(   Читать дальше...   )Жанр: Indie, Dream-popПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411AFFEA861F9C5405EEF3E036D4CD79539F1D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283603   (739727) от 17.02.2019
-
-Bogart - Brandnew... (1980) LP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance When The Music Plays (5:09)
-02. Sweet Darlin' (4:04)
-03. Spend A Night In Love With Me (3:31)
-04. Overnight, On Broadway (6:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AD89104C53A9B0DB613E9D168447B92EA021AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283654   (739725) от 17.02.2019
-
-Hideki Matsutake - Space Fantasy (1978) LP [MP3|320 Kbps] <Electronic, Classical, Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture - Space Cruiser Yamato (3:41)
-02. Nocturnal Pursuit (3:41)
-03. Iskandall (5:25)
-04. White Morning After (3:16)(   Читать дальше...   )Жанр: Electronic, Classical, Disco, Synth-popПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648958D44017AB8D803784E2A8CA52D3E5C7688F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526150   (738832) от 23.01.2022
-
-Sam Martin - Alpha Omega (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Omega (40:43)
- 02. The Birth (1:10)
- 03. Come On! (0:35)
- 04. Summer Days (3:09)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6A2964FBFAD084C0B20BEBDE826A2D64AA5E5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

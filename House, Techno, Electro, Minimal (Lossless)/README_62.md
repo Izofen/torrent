@@ -1,3 +1,59 @@
+###  Публикация: 1724181   (109285) от 19.05.2024
+
+VA - Electronica Confessions, Vol. 4 (2014) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony S - Not the Droids You're Looking For (6:40)
+02. DGL.Co. - Music.Life.Solutons (5:20)
+03. J Dovy - Once Upon a Night (7:24)
+04. Makvillian - Luciano's Dream (5:19)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E043357CD8EEF904042818036E96745CDD9875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724237   (109278) от 19.05.2024
+
+Ootkeen - Voo Da Borboleta EP (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voo Da Borboleta
+02.O Sussurro Das MontanhasЖанр: Tech House, Deep House, ProgressiveПродолжительность: 00:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBD1F551A0CBDD4928D849C896DA655D49583C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724218   (109272) от 19.05.2024
 
 Soul Button - Tranquility: Ethereal Techno (DJ Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -675,64 +731,6 @@ Christian Loffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94B798B0CD45BAA8C6C6375133182859BC31068B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732335   (107490) от 24.06.2024
-
-No Mana - I Contain Flashing Images (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Contain Flashing Images [00:00:29]
-02. Solarpunk [00:03:59]
-03. Falling in Love [00:03:37]
-04. Digital Friends [00:03:41](   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07144AC269188891C6112B62629D8BEF69A6CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733604   (107215) от 30.06.2024
-
-Dwson - Jewels (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Long [00:06:24]
-02. Topaz [00:06:30]
-03. Ghetto Lover [00:06:57]
-04. Ruby [00:06:46](   Читать дальше...   )Жанр: HouseПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8DC6F95979B86D2B201717A29D7B3CF3617C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

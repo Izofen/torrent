@@ -1,3 +1,119 @@
+###  Публикация: 1603295   (1045682) от 10.01.2023
+
+Billy Joel - Streetlife Serenade (1974) Reissue, Remastered, 2015, Audio Fidelity [OGG Vorbis|500 Kbps] <Rock, Folk Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streetlife Serenader
+02. Los Angelenos
+03. The Great Suburban Showdown
+04. Root Beer Rag(   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EE7278BF9E753F9DD32E57547FDA90098C73E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603346   (1045635) от 10.01.2023
+
+DJ Bobo - Instrumentals (2020) [MP3|320 Kbps] <Eurodance, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1000 Dreams (Instrumental) (03:29)
+02. 1000 Miles (Instrumental) (03:46)
+03. A Good Heart (Instrumental) (04:44)
+04. A Moment to Remember (Instrumental) (03:23)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 17:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85047F74ACF0C710E13A09E67971314D98D3A6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603822   (1045552) от 11.01.2023
+
+VA - Winter Club Hits 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geo Da Silva feat. DJ Combo - Gimme Sunshine (Extended Mix) (4:55)
+02. Danilo Orsini & Ariel El Leon - Vive Tu Vida (Original Mix) (3:04)
+03. DJ Pasi - Verano Forever (Extended Mix) (3:43)
+04. Bbx feat. Kari B - Self Control (Bakun Remix) (3:17)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 03:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C407763891EFF4385C0909D1515350638019EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604154   (1045485) от 12.01.2023
+
+Альберт Сигалов - Красавчик Беня (1995) [MP3|320 Kbps] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хава Нагила
+02. Семь сорок
+03. Бабушка здорова
+04. Бублички(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E97A34DA8185160FD322C62C184B2EBD980B0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604247   (1045417) от 13.01.2023
 
 Peter Gabriel - Up (2002) [OGG Vorbis|430 Kbps] <Electronic, Rock, Pop Rock>
@@ -626,122 +742,6 @@ VA — Танцуют все! / Оригинальные записи 1962-1988 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C1734272C6D9464397D1B007F476C60C3F65222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606400   (1044389) от 22.01.2023
-
-VA - Disco Nights (The Collection) (2009) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musique - In the Bush (3:32)
-02. Shalamar - The Second Time Around (3:41)
-03. Sharon Redd - In the Name of Love (4:10)
-04. Bumblebee Unlimited - Love Bug (3:36)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 07:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36F570793C961B4A363FEB08A8D85DE31CB0159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606774   (1044316) от 23.01.2023
-
-Shania Twain - Up! (2002) [OGG Vorbis|480 Kbps] <Rock, Country Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up!
-02. I'm Gonna Getcha Good!
-03. She's Not Just A Pretty Face
-04. Juanita(   Читать дальше...   )Жанр: Rock, Country Rock, Pop RockПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157D5B4056AEA9653F64E086865F7F510107F5D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606340   (1044238) от 24.01.2023
-
-Seal - Seal (1991) 4CD, Deluxe Edition, Remastered, 2022, Rhino - Warner Records [MP3|320 Kbps] <RnB, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Water (7:56)
-02. The Beginning (5:38)
-03. Future Love Paradise (5:08)
-04. Violet (4:56)(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 04:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB0BA4FC5F9A68490C7A0F53FA3162A2CB87374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607205   (1044062) от 26.01.2023
-
-Sting - Brand New Day (1999) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Thousand Years
-02. Desert Rose
-03. Big Lie Small World
-04. After the Rain has Fallen(   Читать дальше...   )Жанр: Rock, Pop, Pop RockПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3082EB96DAF6C863FC9F84CD55567D459C645DFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

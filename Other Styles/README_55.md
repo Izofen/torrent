@@ -1,3 +1,32 @@
+###  Публикация: 1009475   (808110) от 22.04.2016
+
+Trailer Radio - Country Girls Ain't Cheap (2016) [MP3|320 кб/с] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Granny's Got the Baby (Cause Mama's Doin' Time) (03:42)
+02. Country Girls Ain't Cheap (04:09)
+03. Dirt Queen (04:30)
+04. Woe Is Me (04:23)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED64DA8CF560CCFE48C11718DACD410B2CDB1F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383507   (807999) от 17.05.2020
 
 Dr. Jeffrey Thompson - Ambient Music For Sleep (2004) [FLAC|Lossless|tracks + .cue] <New Age, Ambient, Healing>
@@ -713,35 +742,6 @@ Clinton Shorter - The Expanse / Пространство - Season One (Original 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0D34BC278818AABA31C62F21E7D9C621222A4A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119632   (805015) от 29.03.2017
-
-Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survival of the Fittest (02:24)
-02. Baby Brother (03:58)
-03. Welcome to Baby Corp (03:12)
-04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F9D3FB3C4F89AF53ECFAC62E50A92AB33754D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

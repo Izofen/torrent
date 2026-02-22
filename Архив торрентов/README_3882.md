@@ -1,3 +1,38 @@
+###  Публикация: 576804   (360197) от 18.11.2012
+
+HIM - XX - Two Decades of Love Metal (2012) [FLAC|Lossless]<Love Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange World (4:10)
+02. Join Me (In Death) (3:38)
+03. Heartkiller (3:30)
+04. Wings Of A Butterfly (3:30)
+05. The Kiss Of Dawn (4:00)
+06. The Funeral Of Hearts (3:39)
+07. Right Here In My Arms (3:25)
+08. Pretending (3:42)
+09. Buried Alive By Love (4:01)
+10. Gone With The Sin (4:23)(   Читать дальше...   )Жанр: Love MetalПродолжительность: 01:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0B12ABE83A391048459905B0F1C12A5B487671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 407719   (360194) от 07.11.2011
 
 Hugo Retro Mania v1.0.3 [En]
@@ -656,32 +691,6 @@ BELOFF [dp] 2020.10.1 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF3A804F65F5BBE9B6123A9C2890C50D817359F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417052   (359973) от 19.10.2020
-
-TrustViewer 2.3.0.3881 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359973.jpg" />
-</div>
-
-
-###  Подробнее
-
-TrustViewer - это комплексное решение для удаленного доступа и поддержки пользователей через интернет. TrustViewer работает на всех версиях операционной системы Windows 32/64 бит (техническая поддержка осуществляется начиная с версии Windows XP SP3) и позволяет через интернет демонстрировать свой рабочий стол, управлять удаленным компьютером, обмениваться файлами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982D955660A061E146F218A20B551353B948039D
 ```
 
 https://mybot314.ru/tekegram_catalog/

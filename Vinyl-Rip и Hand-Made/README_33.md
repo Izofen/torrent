@@ -1,3 +1,176 @@
+###  Публикация: 1072908   (349829) от 14.11.2016
+
+Святослав Рихтер - Сергей Рахманинов – Тринадцать прелюдий (1985) [WavPack|96/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Шесть прелюдий из соч. 23
+01. Фа Диез Минор. Largo (№1)  3:50
+02. Си-Бемоль Мажор. Maestoso (№2)  3:26(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F63D89CDCD569479C8D0A620B3130E10F1477FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418325   (349096) от 24.10.2020
+
+Зодчие - Мусор Из Избы (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349096.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Демонстрация (1 Мая 1982 Года) • Demonstration (The 1st Of May 1982)
+A2 Металлист Петров • Metalist Petrov
+A3 Землекоп • Havvy
+A4 Девушка В Белом • A. Girl In White(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4207DEC35430C0DBC66FD70EF84F7EE3AE3FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418334   (348959) от 24.10.2020
+
+Джоэл Шпигельман (синтезатор "Курцвейль 250") - Бах В Стиле ''Нью Эйдж'' (Ария с вариациями 1 - 30) (1991) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Classical, New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ария С Вариациями (Гольдберг-Вариации)
+A. Ария. Вариации 1 — 15	27:30
+B. Вариации 16 — 30. Ария 26:30Жанр: Electronic, Classical, New AgeПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC2E6412BEE348F10DD94AE8C445F25A6BC3A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179263   (348773) от 31.10.2017
+
+Весёлые Ребята - Перекрёсток Судьбы (2015) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Выше неба (А.Добронравов – В.Пеленягрэ)
+02. Ты летела ко мне (А.Добронравов – Н.Пляцковская)
+03. Одинокая птица (П.Слободкин – Н.Пляцковская)
+04. Светлая ночь (А.Виста – А.Виста)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558FB2CA57D2652980F2A6F6E83DFD47B253470F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418636   (346793) от 25.10.2020
+
+Klaus Schulze & Rainer Bloss - Dziekuje Poland Live '83 (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Berlin-School>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346793.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Katowice (Iris)
+B Warszawa (Halina)
+C Lodz (Janina)
+D1 Gdansk (Tina)(   Читать дальше...   )Жанр: Electronic, Berlin-SchoolПродолжительность: 01:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF1C9A94ADE865987476D01A3875C882A18B7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073541   (345064) от 16.11.2016
+
+Sting - 57TH & 9TH (2016) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345064.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. I Can't Stop Thinking About You (3:31)
+A2. 50,000 (4:44)
+A3. Down, Down, Down (3:48)
+A4. One Fine Day (3:29)(   Читать дальше...   )Производство: A&M Records – B0025617-01Жанр: RockПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A1EB9397DDC99578E447B43FAA1ACC517D74F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418905   (344299) от 26.10.2020
 
 Yes - Time And A Word (1970) 1991 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Symphonic Rock>
@@ -570,180 +743,6 @@ James Last - With Compliments (1970) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Eas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DD2D5A6E1311620EAFA9775CF28329A2426C987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581788   (324413) от 08.10.2022
-
-VA - Музикална Стълбица 1 (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324413.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Йордан Георгиев - Откривание • Открытие
-A2 Майкъл Джексън И Мик Джагър - Шоково Състояние • Шоковое состояние
-A3 Лора Бранигън - Самоконтрол • Самоконтроль
-A4 Стиви Уондър - Не Карай Кола, Когато Си Пил • Если ты пил, не управляй машиной(   Читать дальше...   )Жанр: Hard Rock, Pop Rock, Synth-popПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FB4255553EA15F3134C1B9681F2C2950479B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181381   (323378) от 07.11.2017
-
-Рома Жуков - D.I.S.C.O. (2013) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323378.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:07] 01. Рома Жуков - Моя звезда
-[3:47] 02. Рома Жуков - Бриллиантовый дождь
-[3:31] 03. Рома Жуков - Переливы
-[3:25] 04. Рома Жуков - Слушай(   Читать дальше...   )Продолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C52251CE9B7F099D860699B0E695E54D119DE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181366   (323362) от 07.11.2017
-
-Ласковый Май - 8 Марта (5 альбом) (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323362.jpg" />
-</div>
-
-
-###  Подробнее
-
-[1:11] 01. Ласковый Май - Интро
-[5:35] 02. Ласковый Май - Тающий снег
-[5:06] 03. Ласковый Май - Несколько часов вдвоём
-[4:37] 04. Ласковый Май - Мне больше не нужно(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEF313BB98328F32BBC3F42071466A1FC146A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259091   (323245) от 02.11.2018
-
-Mozart - The Best Of... (unknown year) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. From Symphony №40 in G minor K 550; Molto Allegro, Menueto allegro
-02. From Symphony №29 in A major K 201; Allegro moderato
-03. Menuetto from The Divertismento in D major, K 334(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83DFD9D94E49714D3753916CAB247CB1FEE1133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181126   (323187) от 07.11.2017
-
-Кар-Мэн - Вокруг Света (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323187.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:02] 01. Чио-Чио-Сан
-[4:20] 02. Эй, ухнем
-[4:59] 03. Дели
-[3:58] 04. Знойный Истамбул(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FA9FF347B4F1AAA4C072672C61DB7060B54E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181362   (323186) от 07.11.2017
-
-Технология - Нажми на кнопку (1991) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Techno-Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Нажми на кнопку
-03. Интро
-04. Всё, что ты хочешь(   Читать дальше...   )Жанр: Techno-PopПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C03E4276109C1644BA065810D1ACE0900D64992
 ```
 
 https://mybot314.ru/tekegram_catalog/

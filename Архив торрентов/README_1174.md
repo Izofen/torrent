@@ -1,3 +1,35 @@
+###  Публикация: 182467   (893901) от 17.03.2010
+
+1200 Micrograms - 5 Albums (2002-2007) [FLAC|Lossless]<Goa , Psychedelic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  The Magic Numbers Theme (4:08)
+02.  Numberstruck (6:07)
+03.  Let's Get This Party Started (6:32)
+04.  God Of Rock (6:40)
+05.  This Is A Joint (6:57)
+06.  Double Helix (6:19)
+07.  Numbers Are Alive (24:51)Жанр: Goa , PsychedelicПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 184099   (893894) от 17.03.2010
 
 [EN] Теория хаоса / Order of Chaos (2010) DVDRip
@@ -662,33 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493817   (893756) от 04.09.2021
-
-Sumatra PDF 3.4.14111 Pre-release + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D2BACC4870D94918D3B23E061EADF2203A54EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

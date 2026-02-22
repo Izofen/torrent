@@ -1,3 +1,32 @@
+###  Публикация: 1640520   (236221) от 18.06.2023
+
+Miles Davis & Gil Evans - Concierto de Aranjuez (1961) 1990, Giants Of Jazz [FLAC|Lossless|image + .cue] <Cool, Third Stream, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concierto de Aranjuez (Part 1 & 2) [16:52]
+02. Teo [9:18]
+03. Walkin' [9:23]
+04. I Thought About You [4:46](   Читать дальше...   )Жанр: Cool, Third Stream, Big BandПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406149FB0E068E66ED7CE0B7F6AFC93743C9EF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641793   (236169) от 24.06.2023
 
 Eddie Gomez Trio - Palermo (2007) Jazz Eyes [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -716,35 +745,6 @@ Arlen Roth, Jerry Jemmott - Super Soul Session! (2023) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:609D878827D2D1517BAE9FE063B36AA5EBE9652D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641073   (235811) от 20.06.2023
-
-Granvil Poynter - Cigarettes and Gin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Rod Baby (2:15)
-02. Cigarettes and Gin (6:02)
-03. Texas Girl (2:39)
-04. The Hurt (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B19B8E3EC9B1986954FA26DF797DECE884A7B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

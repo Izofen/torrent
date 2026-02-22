@@ -1,3 +1,88 @@
+###  Публикация: 1103992   (883699) от 13.02.2017
+
+Johnnie Bassett & The Blues Insurgents - I Gave My Life To The Blues (1996) [FLAC|Lossless|image + .cue] <Blues, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Get Over You - 6:38
+02. Mean Feeling - 5:41
+03. Drink Muddy Water - 3:17
+04. Blowing The Horn - 3:16(   Читать дальше...   )Жанр: Blues, Modern Electric BluesПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707C90F5EDCFE90D261A0DB75A60CE245538C1C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185374   (883661) от 24.03.2010
+
+Miles Davis (Майлз Дэвис) - Chronicle (The Complete Prestige Recordings 1951-1956) (8 CD Boxset) (1993) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JazzПродолжительность: 09:10:29
+.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103997   (883637) от 13.02.2017
+
+Johnnie Bassett & The Blues Insurgents - Cadillac Blues (1998) [FLAC|Lossless|image + .cue] <Blues, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Do, What I'm Gonna Do (4:11)
+02. Cadillac Blues (5:13)
+03. Broke In Pieces (5:54)
+04. I Can't Get It Together (4:46)(   Читать дальше...   )Жанр: Blues, Modern Electric BluesПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B49074996E8F8EC35D4B944F7E824A7A9B8CBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 763817   (883603) от 07.03.2014
 
 VA - Henry Mancini Songbook (2007) [FLAC|Lossless]<Jazz, Pop, Vocal, Easy Listening, Cool Jazz, Smooth Jazz>
@@ -705,93 +790,6 @@ Billy's Band - Когда был один (2013) [MP3|192 кб/с]<Rock, Jazz, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25136C12451DFD5290600EC546B8599398FEF208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995947   (882835) от 12.03.2016
-
-Chris Standring - Ten (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882835.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ready Steady Flow
-2. Snake Oil
-3. Magic Carpet Ride
-4. Carousel(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441B88CFBD4EE7AF5A7B890A8C380F806DE8E405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495131   (882269) от 11.09.2021
-
-The Kyle Asche Organ Trio - Five Down Blues (2021) [FLAC 2.0|88/24|tracks|WEB-DL] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Five Down Blues 07:02
-02 - Dorothy 06:45
-03 - Pretty Eyes 07:30
-04 - Delirium 05:28(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF7BAFE0315245CEB201C6DF2C512948D4B857B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373046   (882211) от 05.04.2020
-
-Vincent Gardner - The Good Book Chapter Three: The Book of Bebop (2012) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Talk [6:07]
-02. Another Hair-Do [7:34]
-03. I Waited for You [6:28]
-04. Compulsion [6:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1326B7CA0859CA3FA897FD3747CD6BE2FDA6EA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

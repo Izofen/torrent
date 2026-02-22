@@ -1,3 +1,32 @@
+###  Публикация: 1072949   (349852) от 14.11.2016
+
+VA - Музыкальные новинки mp3. Версия 2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349852.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Витольд Петровский - Память Из Прошлого 3:26
+002.Alunageorge - Hold Your Head High 4:00
+003.Shami Feat. Арни Saveolla - Танцуем 5:13
+004.Deorro - Goin Up 4:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07EF648759E953AE7112F864CED7EA4EE658D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072736   (349850) от 14.11.2016
 
 VA - А у нас все пучком с Русским радио (2016) [MP3|256 Kbps] <Pop>
@@ -722,35 +751,6 @@ VA - Осторожно!!! Лавина хитов (2016) [MP3|256~320 Kbps] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FA412DD8F14F1235DF78E3A3DF034D63A132B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954543   (340107) от 08.11.2015
-
-VA - Feuerwerk der Schlagerhits (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foxpiraten - Sommer in der Stadt (04:15)
-02. Ben Luca - Weil man dich lieben muss (03:39)
-03. Rene Christian - Manchmal weint auch ein Mann (03:23)
-04. Lea Marie Kaiser - Du hast mein Herz (Heuf Nacht beruhrt) - Radio Mix (03:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAECD8EAED6489E036DEA192E5A4ED45D5214E2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

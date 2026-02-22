@@ -1,3 +1,29 @@
+###  Публикация: 1191255   (264998) от 12.12.2017
+
+Проекты - VideoHive - CubeWorld - 9614533 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абстрактный, многофункциональный проект. Можно использовать в качестве презентации высокотехнологичной продукции, научных исследований и разработок, корпоративного видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B21F0A2FFA85229C6BAA51F9C6C2A54DC78EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191130   (264977) от 12.12.2017
 
 Проекты - Motion Array - Awards Ceremony Slideshow - 52682 [AEP]
@@ -652,33 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85AFDF5B7D89EA1BB00E50D099C358C2AEE3BD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965591   (225255) от 14.12.2015
-
-Проекты - VideoHive - Freelancer Portfolio - Hi, My Name is... [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания портфолио.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02660C359E63F27E83BAAED36BA9B03039F73BD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

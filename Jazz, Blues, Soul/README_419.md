@@ -1,3 +1,32 @@
+###  Публикация: 1076521   (243680) от 26.11.2016
+
+Patti Austin - Havana Candy (1977) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Enough For Me (5:50)
+02. Little Baby (4:15)
+03. I Just Want To Know (4:57)
+04. Havana Candy (4:37)(   Читать дальше...   )Жанр: Vocal Jazz, R&BПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39DB9B7E6E0906E3B3F1304B048480C88D203D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076503   (243629) от 26.11.2016
 
 Grover Washington, Jr. - Next Exit (1992) [FLAC|Lossless|image + .cue] <Smooth Jazz>
@@ -716,35 +745,6 @@ Mitch Watkins - Curves (1990) Enja Records[FLAC|Lossless|tracks + .cue] <Jazz Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6F1CFF654050FC29B0AD76EF2B4A58B28C4DB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078203   (243390) от 01.12.2016
-
-Mongo Santamaria - Mongo at the Village Gate (1963) 1990, Riverside[FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction by 'Symphony Sid' [00:43]
- 02.El Toro [06:35]
- 03.Fatback [06:00]
- 04.Mongo's Groove [03:20](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBAFF71FB31B6F1DD60461EE30D9736BDA38208
 ```
 
 https://mybot314.ru/tekegram_catalog/

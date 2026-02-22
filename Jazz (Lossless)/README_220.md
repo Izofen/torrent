@@ -1,3 +1,32 @@
+###  Публикация: 1068697   (378527) от 02.11.2016
+
+John Hicks, Elise Wood, Walter Booker - Single Petal of a Rose (1994) Mapleshade Productions[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sometime Ago [05:27]
+ 02.Infant Eyes [08:46]
+ 03.Yes or No [04:17]
+ 04.Ballad of Black Man [03:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E738D7D9B051EEE4ABA0596479F3A19AE6AF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068704   (378525) от 02.11.2016
 
 Ernestine Anderson - Nightlife: Live at Dizzy's Club Coca-Cola (2011) HighNote Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -722,35 +751,6 @@ Amy Winehouse - At The BBC (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Soul>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575576   (375407) от 10.09.2022
-
-Zachary Breaux - Uptown Groove (1997) Zebra Records [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakfast at the Epiphany [0:16]
-02. Cafe Reggio [6:06]
-03. I Told You [4:30]
-04. Never Can Say Goodbye [5:06](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1C65F12C24033E95D61034F699318654297D11
 ```
 
 https://mybot314.ru/tekegram_catalog/

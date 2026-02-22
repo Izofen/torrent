@@ -1,32 +1,3 @@
-###  Публикация: 1635380   (236256) от 25.05.2023
-
-Black Art Jazz Collective - Ascension (2020) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascension [5:37]
-02. Mr. Willis [4:16]
-03. Involuntary Servitude [6:46]
-04. Twin Towers [6:28](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4771DAD93DB30CC235B472F710C73D6C55121DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635175   (236228) от 25.05.2023
 
 Artie Shaw - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -745,6 +716,35 @@ John Beasley - MONK'estra Plays John Beasley (2020) Mack Avenue [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBF409E940B915B35FC94AC693440948B5DF5503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636266   (235643) от 29.05.2023
+
+People Like Us - In Heaven (1997) Koch Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight Ahead [7:35]
+02. Think... Pretty [8:45]
+03. Hofstra Goes to Heaven [8:05]
+04. The Road Ahead [12:55](   Читать дальше...   )Жанр: Mainstream Jazz, Post BopПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A82485A266CCCE3714C72BEA7594D085AE309C
 ```
 
 https://mybot314.ru/tekegram_catalog/

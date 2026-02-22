@@ -1,3 +1,81 @@
+###  Публикация: 577916   (358044) от 19.11.2012
+
+Madonna - Turn Up The Radio (Explicit) (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDEA2F3A68C4C92CE99E6A651E6EBC29E1C6412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577730   (358040) от 19.11.2012
+
+ПРЕМЬЕРА! Анастасия Стоцкая - Преступник (2012)  [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4C4415D7F5BD586D6521D6FA3734D7309EBCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577886   (358038) от 19.11.2012
+
+Чай Вдвоем - Время-вода (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E6F19898E2419CDCB352C34C7F13A37A30D2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577908   (358028) от 19.11.2012
 
 Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
@@ -639,95 +717,6 @@ AC/DC - Live At Donington (1991) DVD-9
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577882   (354767) от 20.11.2012
-
-Led Zeppelin - Celebration Day (Bonus DVD) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_354767.jpg" />
-</div>
-
-
-###  Подробнее
-
-A bonus DVD in the deluxe versions features the dress rehearsal at Shepperton Studios, filmed a few days before the O2 concert. The band play the entire set that was to be performed at the O2, and this DVD gives the customer a unique insight into the final rehearsal. The rehearsal is filmed by a single camera in SD and recorded in stereo.1. Shepperton Rehearsal 06.12.07
-2. Zeppelin Media Moment
-3. Tampa Opening FilmЖанр: Hard RockПродолжительность: 1:56:45 + 0:03:39 + 0:01:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577993   (354760) от 20.11.2012
-
-Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_354760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Led Zeppelin - Celebration Day (Live at London O2 Arena 2007)
-
-01. Good Times Bad Times
-02. Ramble On
-03. Black Dog
-04. In My Time Of Dying
-05. For Your Life
-06. Trampled Under Foot
-07. Nobody's Fault But Mine
-08. No Quarter(   Читать дальше...   )Жанр: RockПродолжительность: 2:04:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255918   (354389) от 08.11.2010
-
-Юрий Антонов - От печали до радости... (2005) DVD-9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354389.jpg" />
-</div>
-
-
-###  Подробнее
-
-18-19 февраля 2005 г. в Государственном Кремлевском Дворце состоялись юбилейные концерты Юрия Михайловича Антонова, приуроченные к 60-летию мэтра отечественной эстрады. Первый канал неоднократно показывал их телеверсии, но всякий раз демонстрировались различные варианты. Здесь представлена полная телеверсияЖанр: поп, рокРежиссер: ОРТАктеры: Юрий Антонов +Перевод: оригиналСубтитры: нетФормат: DVD-9Продолжительность: 02:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CB1FDF0E1CABFC43C50B49C06AF92B9930323A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1385402   (797866) от 24.05.2020
+
+Pretty Maids - Maid in Japan: Future World Live 30 Anniversary (2020) [MP3|320 Kbps] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797866.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. FW30 (Live) [1:34]
+ 2. Future World (Live) [5:59]
+ 3. We Came to Rock (Live) [4:57]
+ 4. Love Games (Live) [4:51](   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23632D0A83F074A16AE95C33DA2F0F1128E941E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199853   (797483) от 18.01.2018
 
 Black Label Society - Grimmest Hits (2018) [MP3|320 Kbps] <Heavy Metal, Southern Metal>
@@ -717,35 +746,6 @@ Anvil - Pounding The Pavement (2018) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D4A5F317A083B1012B771BC40216B8156E2E094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201757   (791633) от 26.01.2018
-
-In Vain - Currents (2018) [MP3|320 Kbps] <Melodic Black Metal, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791633.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Seekers Of The Truth
-2. Soul Adventurer
-3. Blood We Shed
-4. En Forgangen Tid (Times Of Yore Pt II)(   Читать дальше...   )Жанр: Melodic Black Metal, Progressive Death MetalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29908F199792F1CFADE49BBD07E2F766D56701F
 ```
 
 https://mybot314.ru/tekegram_catalog/

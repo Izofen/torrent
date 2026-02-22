@@ -1,3 +1,88 @@
+###  Публикация: 1236549   (554067) от 19.07.2018
+
+Joe Marsala - 1944 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clairinet Marmalade [2:46]
+02. Joe's Blues [2:55]
+03. Village Blues [2:51]
+04. Tiger Rag [2:54](   Читать дальше...   )Жанр: SwingПродолжительность: 01:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD53F1E4F733091DD1A4556E57816969A82103A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236673   (554066) от 19.07.2018
+
+Sonny Rollins - The Solo Album (1985) 1997, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soloscope Part 1 [28:18]
+02. Soloscope Part 2 [28:00]Жанр: Post-BopПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3D8D52321660B0AB46FFA5294AD93CB92B6D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308406   (553983) от 14.06.2019
+
+Frank Foster - Leo Rising (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Only As Old As You Look [8:08]
+02. Simone [12:14]
+03. Gray Thursday [7:18]
+04. Cidade Alto [3:30](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A042BE11B5B9E985902E7EAFF0C462B946E8E72E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308387   (553921) от 14.06.2019
 
 Keb' Mo' - Oklahoma (2019) [MP3|320 Kbps] <Blues>
@@ -657,92 +742,6 @@ Royal Southern Brotherhood - американская блюзовая рок-г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF67DE113E25368BC0E9AE967DC15687CD400FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237405   (552400) от 23.07.2018
-
-Simon McBride - 4 альбома (2008 - 2012) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Simon McBride (родился 9 апреля 1979 года, Белфаст, Северная Ирландия) - певец, автор песен, продюсер и гитарист. В десять лет McBride начал играть на гитаре. В возрасте 15 лет он выиграл организованный журналом "Guitarist Magazine" конкурс "Молодой гитарист года", проходивший  в конференц-центре "Уэмбли". Спустя несколько месяцев после (   Читать дальше...   )2008 - Rich Man Falling (NUG804)\
-2010 - Since Then (NUG1004)\
-2012 - Crossing The Line (NUG1203)\Жанр: Blues-RockПродолжительность: 03:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAF2F01E114462ACF056DA006E199168173B1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309247   (552236) от 18.06.2019
-
-Christian McBride Big Band - Bringin' It (2017) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gettin’ To It [6:37]
-02. Thermo [5:59]
-03. Youthful Bliss [7:00]
-04. I Thought About You [6:09](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D3E23CE89624E867526AC3DB169B268448C418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046529   (552204) от 27.08.2016
-
-Art Tatum - More Of The Greatest Piano Of Them All (1954, 1955) 2015, Poll Winners Records[FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sweet Lorraine [04:24]
- 02.Crazy Rhythm [02:59]
- 03.Isn't It Romantic? [04:36]
- 04.Indiana [03:06](   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 01:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D944486265C43A4C9E4FA855CBE129FE0926E5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

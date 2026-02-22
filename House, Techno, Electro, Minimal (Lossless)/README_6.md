@@ -1,3 +1,61 @@
+###  Публикация: 1487163   (1004147) от 03.08.2021
+
+Nils Hoffmann - Once in a Blue Moon (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1.16699016 x 10^-8 hertz (Niklas Paschburg Remix) (4:12)
+ 02. Wherever You Are (Tinlicker Remix) (5:48)
+ 03. The Clouds Silver Lining (Joachim Pastor Remix) (6:50)
+ 04. Once in a Blue Moon (Eightfold Remix) (5:56)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FB16C9E8FBE4D553EC66DE693996CB368F12F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349846   (1004109) от 03.01.2020
+
+Disco Deejays - Stayin' Alive / Night Fever (2006) [FLAC|Lossless|image + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004109.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Stayin' Alive (Radio Mix) 3:39
+2 Night Fever (Radio Mix) 3:41
+3 Stayin' Alive (Club Mix) 5:09
+4 Night Fever (Club Mix) 5:22Жанр: HouseПродолжительность: 00:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C93B4ACE109D684B4DBBF698403FFBF5CC4A284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487335   (1003882) от 04.08.2021
 
 Midub - The Story Dub (2017) [FLAC|Lossless|tracks] <Dub Techno, Deep Techno, Ambient>
@@ -676,68 +734,6 @@ Will.I.Am & Britney Spears - Scream & Shout (CD Single) (2013) [FLAC|Lossless]<H
 
 01. Scream & Shout (Dirty Main)
 02. Scream & Shout (Clean Edit)Жанр: House, Electro, PopПродолжительность: 00:08:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603418   (995891) от 19.01.2013
-
-Dusky - Stick By This (2011) [FLAC|Lossless]<Progressive House, House, Downtempo, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Silence Never Heard (2:53)
-02. - Lost In You (feat. Janai) (5:15)
-03. - Stick By This (5:51)
-04. - Plastique (4:12)
-05. - I'm Running (feat. Soloman) (5:44)
-06. - Falling (7:00)
-07. - Grain (4:06)
-08. - Lost Highway (6:47)
-09. - Mr Miyagi (4:51)
-10. - Thoughts & Motions (4:40)(   Читать дальше...   )Жанр: Progressive House, House, Downtempo, Deep HouseПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605635   (995662) от 20.01.2013
-
-David West Feat. Andreas Hermansson - Larry Mountains 54 (2005) [FLAC|Lossless]<Deep House, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Larry Mountains 54 (Original Mix) (8:43)
-02.  Larry Mountains 54 (Inkfish Remix) (7:32)Жанр: Deep House, Progressive TranceПродолжительность: 00:16:15
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,29 @@
+###  Публикация: 1126822   (764246) от 19.04.2017
+
+Viber 6.7.1.3 Portable by punsh [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6C985C0C7FF7743E8D239C90B26CB1251D5153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126966   (764244) от 19.04.2017
 
 Wifi Radar v3.03 Ad-Free [En/Ru]
@@ -661,35 +687,6 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.01.03 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9338AEBDF8E747DE63C9A26D985CD2B68944B352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214515   (764002) от 22.03.2018
-
-Ontal - Amass (2017) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Rhythmic Noise>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Sign (06:32)
-02. Improvidence (05:48)
-03. M134 (06:21)
-04. Defeated Obstacles (04:27)(   Читать дальше...   )Жанр: Techno, Industrial, Rhythmic NoiseПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7677DC8B227863DBA592201A5BF6DEB8AEBCC85
 ```
 
 https://mybot314.ru/tekegram_catalog/

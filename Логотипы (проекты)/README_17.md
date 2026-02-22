@@ -1,3 +1,81 @@
+###  Публикация: 1282968   (741997) от 14.02.2019
+
+Проекты - VideoHive - Thunderbolt Reveal - 5209563 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и захватывающий проект для того, что бы произвести впечатление на зрителя при показе вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC710F8AC091931B8D9EB9B383BEA5BAC175F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021181   (741800) от 28.05.2016
+
+Проекты - VideoHive - Fire Logo Opener [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fire Logo Opener - мультипликационный огненный проявитель вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4434E0D17C3B0E8BE5F5E3D40610A11EC07BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021182   (741796) от 28.05.2016
+
+Проекты - VideoHive - Glitch Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glitch Logo Reveal - появление вашего логотипа через цифровые глюки.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0BCA26B65B43B5F7C75854ED1F633937BF7FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021021   (741714) от 28.05.2016
 
 Проекты - VideoHive - Cinematic Logo (2 in 1) [AEP]
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:487306159BA936344AD935623E1EBD6F4CE33E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022530   (728346) от 02.06.2016
-
-Проекты - VideoHive - Arrow Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F185C640AF90311CE3DB6855A3D29EE3473B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022858   (727472) от 03.06.2016
-
-Проекты - VideoHive - Sound Fusion [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sound Fusion - cтильный "звуковой" логотип, неплохо также будет работать как переход.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61452BE436E72153FD8C14D2E14F51DB3B3F1811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022809   (727468) от 03.06.2016
-
-Проекты - VideoHive - Deep Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Logo Reveal - логотип, собирающийся из частиц.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D1CF74A1BA99D8F04B464F295EF247126D5DD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

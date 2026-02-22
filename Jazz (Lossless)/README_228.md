@@ -1,3 +1,32 @@
+###  Публикация: 1072626   (352281) от 13.11.2016
+
+Paolo Conte - Psiche (2008) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psiche (3:17)
+02. Il quadrato e il cerchio (3:17)
+03. Intimita' (3:28)
+04. Big Bill (3:44)(   Читать дальше...   )Жанр: Jazz-Pop, VocalПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2295AF55F6999040D2BCEB1872347857DCFD71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072641   (352277) от 13.11.2016
 
 Papik - Papik Presents: Cocktail Martino (2013) [FLAC|Lossless|image + .cue] <Vocal Jazz, Nu Jazz>
@@ -716,35 +745,6 @@ Dinah Washington - The Swingin' Miss "D" (1956) 2000, Азбука Звука [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5305E2099E5DF2EBC571DCB8FBFCDF10131A7FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179394   (349342) от 31.10.2017
-
-Camille Thurman - Inside The Moment (2017) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Has a Thousand Eyes [07:22]
-02. Sassy's Blues [07:41]
-03. Road Song [06:14]
-04. Detour Ahead [07:44](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C266B8F253757EDD735A2508664472F8CF1EE9C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

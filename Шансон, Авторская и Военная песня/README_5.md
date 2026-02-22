@@ -1,3 +1,73 @@
+###  Публикация: 433916   (987552) от 09.01.2012
+
+Edith Piaf - 2 альбома (2007-2008) [MP3|320 kbps]<Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01.  Non, Je Ne Regrette Rien (2:22)
+02. Milord (4:30)
+03. La Vie en Rose (3:10)
+04. Padam Padam (3:17)
+05. Sous le Ciel de Paris (3:31)
+06. L' Accordeoniste (4:03)
+07. Johnny Tu N'Es Pas un Ange (2:11)
+08. La Foule (2:57)
+09. La Goualante du Pauvre Jean (2:02)(   Читать дальше...   )2007-2008Жанр: ChansonПродолжительность: 01:18:25 + 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AC39C80477D29710C86C3AAE167C2D757FE124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 433918   (987502) от 09.01.2012
+
+VA - La Vie En Rose (2008) [MP3|256 kbps]<French Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Edith Piaf - La Vie En Rose
+02. Dean Martin - La Vie En Rose
+03. In-Grid - La Vie En Rose
+04. Milva - La Vie En Rose
+05. Bola De Nieve - La Vie En Rose
+06. Cyndi Lauper - La Vie En Rose
+07. Victoria Abril - La Vie En Rose
+08. Africando - La Vie En Rose
+09. Alberto Rabagliati - La Vie En Rose
+10. Connie Francis - La Vie En Rose(   Читать дальше...   )2008Жанр: French ChansonПродолжительность: 01:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097C53BA32333C36F6A413246D0C7A56BB97334B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 433915   (987492) от 09.01.2012
 
 Georges Brassens — Les 100 Plus Belles Chansons (BoxSet 5 CDs) (2006) [MP3|320 kbps]<French Chanson>
@@ -764,64 +834,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7E415B256283F4BAB0CDAE084586323CE9E48CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972649   (980688) от 07.01.2016
-
-Ян Марти (Ян Мартынов) - На перекрёстке счастья (2015) [MP3|320 кб/с] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Леночка
-02. Постоянно непостоянна
-03. И любовь любила нас
-04. За тебя (дуэт с Еленой Ваенгой)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B6AC98E9879555D3D83453B1A52EBF4F67F4F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972953   (980686) от 07.01.2016
-
-Александр Вестов - Слеза упала в кофе (2015) [MP3|320 кб/с] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слеза упала в кофе
-02. Сто тысяч слов
-03. Вино не спасёт
-04. К тебе хочу(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B0CD3916BE0D835F9635D616828A8CBF81B924
 ```
 
 https://mybot314.ru/tekegram_catalog/

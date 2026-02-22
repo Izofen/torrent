@@ -1,3 +1,38 @@
+###  Публикация: 765519   (873500) от 13.03.2014
+
+Monstercat - 016 Expedition (2014) [MP3|~260 кб/с (V0)]<Drum n Bass, Electro, Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1.Tristam - Once Again 03:39
+2.PIXL - Rat Twist 04:00
+3.Nitro Fun - New Game 04:19
+4.Astronaut - Apollo (Electro Mix) 04:22
+5.7 Minutes Dead - Peacock (Haywyre Remix) 04:25
+6.Droptek - What's Going On (feat. Isabel Higuero) 03:25
+7.Pegboard Nerds - Bassline Kickin (Dzeko & Torres Remix) 03:22
+8.Case & Point - Savage 04:02
+9.Atmozfears - State of Mind (feat. In-Phase) 05:10
+10.Lets Be Friends - FTW 04:17(   Читать дальше...   )Жанр: Drum n Bass, Electro, DubstepПродолжительность: 04:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F103055C0468AB9237E5C803233982148A6F96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765918   (873495) от 13.03.2014
 
 Alfred 2.2 (243) [En]
@@ -730,32 +765,6 @@ VA - Dance hits Vol 159 (2011) [MP3|320 kbps]<Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5997A143FB45360DDBE35A6A66852A7A740ABA7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997279   (873419) от 17.03.2016
-
-AIMP 4.01 Build 1703 Final RePack (& Portable) by D!akov (with Bongiovi Acoustics DPS | DFX Audio Enhancer) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873419.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643439C6AAB87E247DC7D8A0458275BA5AF22BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

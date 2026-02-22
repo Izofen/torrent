@@ -1,3 +1,120 @@
+###  Публикация: 1024558   (716026) от 09.06.2016
+
+Laid Back - Happy Dreamer (2007) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Day [07:37]
+02. Universe Lovesong [03:46]
+03. Groovin On A Feeling [04:08]
+04. Once [04:10](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFACE0BBCBD40255B0264D26C0A8A1AA83C940B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024528   (715955) от 09.06.2016
+
+Auto Reverse - Surfing On Dream Waves (2015) [MP3|320 кб/с] <Electronic, Disco, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Break (4:43)
+02. Neptune Beach (4:17)
+03. Lifeguard Theme (4:42)
+04. Surfer Girls (5:07)(   Читать дальше...   )Жанр: Electronic, Disco, SynthpopПродолжительность: 00:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DF5A5E95D929905FB1D5BCBA8233E5666AF371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219116   (715603) от 13.04.2018
+
+Tina Turner - The Best (2018) 2CD, Compilation [MP3|320 Kbps] <Pop, Rock, Soul, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best (Extended Mix) (6:37)
+02. Nutbush City Limits (The 90's Version) (3:44)
+03. Afterglow (12'' Dance Mix) (7:13)
+04. We Don't Need Another Hero (6:10)(   Читать дальше...   )Жанр: Pop, Rock, Soul, BluesПродолжительность: 02:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57641F3A051C27FF7A3C3D91AECBA54A1AD65FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 328126   (715567) от 26.04.2011
+
+Мурат Насыров - Золотая коллекция (2000) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_715567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мурат Насыров (Мурат Исмаилович Насыров) - Казахстанский Уйгур, родился в простой рабочей семье, окончил Гнесинское музыкальное училище.
+На конкурсе «Ялта-91» получил Гран-при, после конкурса Игорь Крутой предложил певцу раскрутку, от которой Мурат отказался, считая что подписав контракт, он не сможет исполнять песни собственного сочинения, что противоречило его (   Читать дальше...   )01. Туда - сюда
+02. Мальчик хочет в Тамбов
+03. Я дедушка мороз
+04. Вчера(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024776   (715448) от 09.06.2016
 
 Филипп Киркоров - Я (2016) [MP3|320 кб/с] <Pop>
@@ -629,122 +746,6 @@ Sun - Sun Over The Universe (1980) LP [MP3|320 Kbps] <Funk, Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:865A2F8DCCCBE294EC5A5B208DAF4570A47F49DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401147   (713374) от 08.08.2020
-
-Monk Higgins - Dance To The Disco Sax Of Monk Higgins (1974) LP [MP3|320 Kbps] <Funk Soul, Jazz, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showdown (4:41)
-02. I Believe In Music (3:40)
-03. Untill You Come Back To Me (That's What I'm Gonna Do) (3:49)
-04. If Found Sunshine (4:27)(   Читать дальше...   )Жанр: Funk Soul, Jazz, DiscoПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0FCF6AC3BB6EE5608709F6F7CE703E815055B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286364   (713045) от 02.03.2019
-
-Вельвет - Тонкая красная линия (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Сердце мое
-03. Тонкая красная линия
-04. Не молчи(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54990F3C2C13CE5C6EDCCC4C22058A94B460FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286275   (713008) от 02.03.2019
-
-DiscoBonus - Nothing Is Forever (2017) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spend Your Money
-02. Do You Want To Live Forever?
-03. Love Me
-04. The Grand Illusion I: Share The Fantasy(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881737C0D412A8912F3860309F03ED78FC639999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286378   (712886) от 02.03.2019
-
-Donna Summer - Endless Summer (Donna Summers Greatest Hits) (1994) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melody of Love (Wanna Be Loved)
-02. Love To Love You Baby
-03. Could It Be Magic
-04. I Feel Love(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0BBEFCACC9415DB3C486D5118D0538298418D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

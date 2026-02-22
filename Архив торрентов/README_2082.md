@@ -1,3 +1,32 @@
+###  Публикация: 1214515   (764002) от 22.03.2018
+
+Ontal - Amass (2017) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Rhythmic Noise>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Sign (06:32)
+02. Improvidence (05:48)
+03. M134 (06:21)
+04. Defeated Obstacles (04:27)(   Читать дальше...   )Жанр: Techno, Industrial, Rhythmic NoiseПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7677DC8B227863DBA592201A5BF6DEB8AEBCC85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214550   (763994) от 22.03.2018
 
 Mellel 4.1.0 [Multi/Ru]
@@ -652,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4207CDF09EA5C0D7E784464D8A5282C51DFA648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394599   (763724) от 05.07.2020
-
-Advanced Installer 17.2 RePack by xetrin [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Installer - приложение, с помощью которого, разработчики и системные администраторы смогут без труда создавать инсталляционные пакеты в формате MSI. Программа функционирует под управлением ОС Windows 7/8/8.1/10, а создаваемые с ее помощью пакеты могут использоваться для развертывания приложений на платформах Microsoft Windows XP/2003/2008/2012 Server/Vista/7/8/8.1/10.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC781440923FB14218B25F8C3119E27D11D15D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

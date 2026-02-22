@@ -1,32 +1,3 @@
-###  Публикация: 1348538   (143784) от 28.12.2019
-
-Urbie Green - Five Classic Albums 1953 - 1956 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143784.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cherokee [2:42]
-02. I Ain´t Got Nobody [3:31]
-03. Stella By Starlight [3:06](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E85C78B27DC673597F4A0170ACEE761DC48166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969265   (143778) от 29.12.2015
 
 The Frank Wright Quartet - Church Number Nine (1970) 2002, Black Keys[FLAC|tracks+.cue] <Avant-Garde Jazz, Free Improvisation>
@@ -783,6 +754,35 @@ Charly Antolini - 2 альбома (1999-2011) [FLAC|Lossless]<Contemporary Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F1C0D34B1387CB7AEC87080D5ADFAD7E9EE0C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272649   (141550) от 29.12.2018
+
+Claude Hopkins - 1937 - 1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday [3:12]
+02. Swingin' Down The Lane [2:57]
+03. Honey [3:10]
+04. June Night [2:36](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21695DA30C5E778F91E739F17603E1420269AFE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

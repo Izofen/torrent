@@ -1,3 +1,32 @@
+###  Публикация: 1768160   (101129) от 24.12.2024
+
+Flickering Alley - Lanterns in the Fog (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streets of Saffron Glow (3:54)
+02. Footsteps Beneath Amber (2:33)
+03. The Lightkeeper's Trail (2:41)
+04. Fragments Beneath the Glow (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C8EB14AD719FAE793032E56FD0287828C0F52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768745   (100888) от 26.12.2024
 
 Bill Harris - Holiday Improvisations (1998) Daddy Jazz Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -728,41 +757,6 @@ A Ton of Blues - Crooked Avenue (2012) [FLAC|Lossless]<Blues>
 06. When It Comes to Love (4:10)
 07. Sweetie Pie (4:36)
 08. Colleen (5:52)Жанр: BluesПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487571   (100437) от 24.04.2012
-
-VA - The Essence of Jazz Vocals (2012) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01..  Etta James -  It's A Man's Man's World  (4:55)
-02..  Tony Bennett -  Because Of You (with K.D. Lang)  (4:07)
-03..  Sarah Vaughan -  The Man I Love  (4:06)
-04..  Nina Simone -  I Put A Spell On You  (2:37)
-05..  Betty Carter & Ray Charles -  Alone Together  (4:48)
-06..  Dinah Washington -  Mad About the Boy  (2:48)
-07..  Al Jarreau -  Your Song  (5:38)
-08..  Ella Fitzgerald -  Dream a Little Dream of Me - with Count Basie  (4:09)
-09..  Nat King Cole -  Unforgettable  (3:30)
-10..  Nicki Parrott -  Besame Mucho  (4:45)(   Читать дальше...   )2012Жанр: Vocal JazzПродолжительность: 01:10:54
 
 ## Скачать торент
 ```bash

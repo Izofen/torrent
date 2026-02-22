@@ -1,37 +1,3 @@
-###  Публикация: 853860   (152562) от 28.12.2014
-
-Duke Ellington - The Far East Suite (2004) [FLAC|Lossless]<Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Tourist Point of View [05:10]
-02. Bluebird of Delhi (Mynah) [03:14]
-03. Isfahan [04:05]
-04. Depk [02:49]
-05. Mount Harissa [07:42]
-06. Blue Pepper (Far East of the Blues) [03:02]
-07. Agra [02:35]
-08. Amad [04:27]
-09. Ad Lib on Nippon [11:31]Жанр: Jazz, Swing, Big BandПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CF0D58CFADDEA109B50CC799A03F3C67E6008F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347473   (152491) от 23.12.2019
 
 Larry Clinton & His Orchestra - The Uncollected 1937 - 1938 (1977) Hindsight Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -767,6 +733,35 @@ Caravan Palace - <I°_°I> (2015) 2025, 10th Anniversary Edition [FLAC 24/44.1|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:439C7FE74CFDCCB65C35A07D8014DCCD75F5D33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826049   (150697) от 18.10.2025
+
+Papik, Laura Lanzillo & Claudio Fiori - Yes I Know My Way (A Tribute To Pino Daniele) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik, Laura Lanzillo - Keep On Movin'
+02. Vento Di Passione
+03. Femmena
+04. Anna Verrà(   Читать дальше...   )Жанр: Pop Jazz, PopПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F557F215727E075699399E04CFCB06BFE97A24F
 ```
 
 https://mybot314.ru/tekegram_catalog/

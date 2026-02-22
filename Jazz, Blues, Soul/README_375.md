@@ -1,3 +1,61 @@
+###  Публикация: 957169   (327654) от 17.11.2015
+
+Louis Armstrong - The Complete Town Hall Concert (1983) 2014, Sony Music[FLAC|tracks+.cue]<New Orleans Jazz, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327654.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Introduction by Fred Robbins [00:45]
+02.Cornet Chop Suey [02:56]
+03.Our Monday Date [03:01](   Читать дальше...   )Жанр: New Orleans Jazz, DixielandПродолжительность: 01:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7B5A86352613C9429D0C4624A2E8E045B298C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957047   (327653) от 17.11.2015
+
+Miles Davis Quintet with John Coltrane - The 1960 German Concerts (2010) Jazz Lips Music[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.So What [10:37]
+ 02.Round Midnight [05:43]
+ 03.Walkin [11:04]
+ 04.So What (2nd Performance) [10:11](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3CAC071C5D9E8CB4DC1987C10F8BD6D4A946FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957069   (327652) от 17.11.2015
 
 VA - Clifford Brown Brownie Speaks: The Complete Blue Note Recordings (2014) [MP3|320 кб/с]<Jazz>
@@ -683,64 +741,6 @@ Shelli LaTorre - Full Circle (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8BF23699C4DAC1436C96875FB128CBB484BC816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958589   (324036) от 21.11.2015
-
-Claudia Franco - Soul Dance (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night And Day
-02. The Man I Love
-03. Day In Day Out
-04. The Boy Next Door(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553DB4BE98E56A77179633DF8960FB9A5C519E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958569   (324030) от 21.11.2015
-
-Claudia Koval - With Heart and Soul (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body and Soul
-02. Moody's Mood / I'm in the Mood for Love
-03. Ain't Misbehavin
-04. Can't Help Falling in Love(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D247EA915EC180A5068F984990A0A615CA17947
 ```
 
 https://mybot314.ru/tekegram_catalog/

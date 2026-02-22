@@ -1,3 +1,177 @@
+###  Публикация: 1813927   (6396) от 22.08.2025
+
+Jack The Joker - The Devil To Pay In The Backlands (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Devir (05:15)
+ 02 - Between the Sky Lines (05:17)
+ 03 - Denied (05:54)
+ 04 - XV (08:56)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D6D65BD55686BA6BFA54B2E5C3538205AD8F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578636   (6367) от 23.08.2025
+
+Three Days Grace - Studio Albums (8 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Three Days Grace — канадская рок-группа, исполняющая альтернативный метал и постгранж. Была сформирована под названием Groundswell в Норвуде, Онтарио, Канада в 1992 году. В 1997 году коллектив в составе гитариста и вокалиста Адама Гонтье, барабанщика Нила Сандерсона и басиста Брэда Уолста сменил название на нынешнее.2003 - Three Days Grace
+2006 - One-X
+2009 - Life Starts Now
+2012 - Transit Of VenusЖанр: Post-grunge, Nu MetalПродолжительность: 06:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A82A1540DC5E02CB8C0930D0898A163112A12D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814124   (6299) от 23.08.2025
+
+John Fogerty - Legacy: the Creedence Clearwater Revival years (John's Version) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Up Around The Bend (John's Version) (02:44)
+ 02 - Who'll Stop The Rain (John's Version) (02:29)
+ 03 - Proud Mary (John's Version) (03:06)
+ 04 - Have You Ever Seen The Rain (John's Version) (02:42)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139771C57198C05372DD52DFC3ADB884CB708AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814146   (6278) от 23.08.2025
+
+Three Days Grace - Alienation (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dominate [3:15]
+02 - Apologies [3:07]
+03 - Mayday [3:24]
+04 - Kill Me Fast [3:18](   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8338FF32392F73FED2FD3EDFFE22BA886BCD1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814269   (6264) от 23.08.2025
+
+Fabia Mantwill Orchestra - IN.SIGHT (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Satoyama (6:13)
+02.  Whirl The Wheel (6:08)
+03.  Circular (5:53)
+04.  Sleeping Giant (7:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705B34FFD932046548CA91DDFB2AA7C42FB0E7C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814293   (6262) от 23.08.2025
+
+Helloijan - Senja di Pantai Morib (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Senja di Pantai Morib (3:16)
+02.  Cinta Satu Malam (3:05)
+03.  Desiran Ombak (3:02)
+04.  Dunia Tipu-Tipu (2:17)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21B3848D01517D2251888585D35F662D6F7EB44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814279   (6248) от 23.08.2025
 
 Greenberg Group - More Swans! (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -571,180 +745,6 @@ Suotana - Ounas II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ADCDB54C183A8F82A47A3C5ADA07FB7874E89C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815127   (5482) от 28.08.2025
-
-Manegarm - Edsvuren (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Viking-Black-Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I skogsfruns famn (feat. Lea Grawsiö Lindström) (5:22)
-02. Lögrinns värn (4:12)
-03. En Blodvittneskrans (4:04)
-04. Rodhins hav (feat. Ellinor Videfors) (2:40)(   Читать дальше...   )Жанр: Viking-Black-Folk MetalПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3F7C81D2EC1B7ED28C3231C1A4828529F9D493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815134   (5481) от 28.08.2025
-
-Headless - Transitional Objects (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weightless (4:44)
-02. Losing Power (4:27)
-03. Fall To Pieces (5:24)
-04. Misery (4:29)(   Читать дальше...   )Жанр: Progressive Metal, Hard RockПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCA8E4B4A2FEF216C92EFAE9B02F612A9435390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707627   (5373) от 29.08.2025
-
-Vicious Rumors - Studio Albums (10 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal, Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vicious Rumors - метал-группа из США (Санта-Роза, Калифорния) основана в 1980 году.1994 - Word Of Mouth
-1996 - Something Burning
-1998 - Cyberchrist
-2001 - Sadistic SymphonyЖанр: Heavy/Power Metal, Groove MetalПродолжительность: 08:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:913192E0AFA562CF7F783EC968C28A2F266DDC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815302   (5370) от 29.08.2025
-
-Bryan Adams - Roll With The Punches (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll With The Punches
-02. Make Up Your Mind
-03. Never Ever Let You Go
-04. A Little More Understanding(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714CD4598CB19DC4065730E38A3E1964C4E70086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815310   (5353) от 29.08.2025
-
-Belinda Carlisle - Once Upon a Time in California (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyone Who Had a Heart
-02. If You Could Read My Mind
-03. One
-04. Never My Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC0A7519A35110605A8299D7B88A51E390C6728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815307   (5346) от 29.08.2025
-
-Helloween - Giants & Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Giants On The Run [6:21]
-02 - Savior Of The World [4:15]
-03 - A Little Is A Little Too Much [3:31]
-04 - We Can Be Gods [5:11](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9709D2419C17F911EB5E9087DFA3979813B68A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

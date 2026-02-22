@@ -1,3 +1,90 @@
+###  Публикация: 1743590   (105325) от 18.08.2024
+
+Стас Пьеха - Одна Звезда (2005) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105325.jpg" />
+</div>
+
+
+###  Подробнее
+
+10. Одна Звезда
+ 02. Ты Грустишь
+ 03. Где Буду Я
+  04. Уличная Фея(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D90F8E613B6C7022C9FFFA3C5871AC2FA93ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743593   (105322) от 18.08.2024
+
+SuperDетки - Бикини-Мини (2007) Саундтрек к к/ф "Свободное Плавание" [WavPack|Lossless|image + .cue] <Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мама, не ругайся
+ 02. Бикини-мини (Version 2007)
+ 03. Буду танцевать (Саундтрек к к/ф "Свободное Плавание")
+ 04. Лето без вопросов(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1561C5B0F0DB435C2271D3CD0CB46A096B051ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744846   (105229) от 23.08.2024
+
+Duran Duran - Duran Duran (1981) Deluxe Edition, 2010, Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girls on Film (AIR Studio Version - Early Demo) [00:04:00]
+02. Tel Aviv (AIR Studio Version) [00:06:03]
+03. Anyone out There (Manchester Square Demo) [00:04:11]
+04. Planet Earth (Manchester Square Demo) [00:05:03](   Читать дальше...   )Жанр: New Wave, Synth-pop, DiscoПродолжительность: 2 CD, 02:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264C3FA326FF032D7B64F9FD87D550A7A4E59635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745004   (105199) от 24.08.2024
 
 Duran Duran - The Reflex (1984) Remaster, 2024, Rhino Records [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop>
@@ -656,93 +743,6 @@ David Hasselhoff - 2 Albums (1989-1990) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83216A82BDAD7389C9606FC096BEA3D4CE25C7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747592   (104708) от 06.09.2024
-
-VA - Autumn Chill 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benson Boone - Beautiful Things (Acoustic) (3:21)
-02. Zach Bryan - Pink Skies (3:14)
-03. Teddy Swims - Lose Control (Strings Version) (3:28)
-04. Dasha - Austin (Boots Stop Workin') (Stripped) (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF75D28994A3F665F9EBE6647BF452C6B5E8D9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747624   (104703) от 06.09.2024
-
-The Cardigans - The Rest Of The Best (2024) Vol. 2 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War (3:56)
-02. Deuce (3:33)
-03. Das Model ('00) (2:55)
-04. For What It's Worth (Polar Session '01) (4:15)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CACDC46138E38ACF60384D4ECFFF9FBB2A6C714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747671   (104660) от 07.09.2024
-
-Niall Horan - The Show: Live On Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice To Meet Ya (Live From Łódź, Poland) [00:04:39]
-02. Save My Life (Live From Tampa) [00:03:14]
-03. Heartbreak Weather (Live From Dublin) [00:03:34]
-04. You Could Start A Cult (Live From Tokyo) [00:03:01](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37BB554110EDC1C83AE5DA1AB7B395D44C71EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

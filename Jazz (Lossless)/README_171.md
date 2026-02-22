@@ -1,3 +1,32 @@
+###  Публикация: 1046399   (553064) от 26.08.2016
+
+Organ Freeman - Organ Freeman (2015) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go by Richard, Not by Dick (5:02)
+02. Verve (5:32)
+03. Only If You Mean It (6:18)
+04. Verve - Go by Richard, Not by Dick (6:02)(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F6C0E0FF71F8841ECC21A92B95FEDE5BA2824C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046146   (553039) от 26.08.2016
 
 Billy Cobham - Spectrum (1973) 1992, Remasters Series [WavPack|Lossless|image + .cue] <Fusion, Jazz-Funk>
@@ -716,35 +745,6 @@ Ilonka - To Be Loved (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A918344141C67C91E7990A1BB8C73036FCE65B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047257   (550257) от 29.08.2016
-
-Bud Shank, Clare Fischer, Joe Pass - Brasamba! (1962) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Brasamba [03:55]
- 02.Otem A Note [04:06]
- 03.Autumn Leaves [04:04]
- 04.Sambinha [03:41](   Читать дальше...   )Жанр: Bossa Nova, Cool, Latin JazzПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADAA94035FB7E05BC079BA0C215B07D82755F82
 ```
 
 https://mybot314.ru/tekegram_catalog/

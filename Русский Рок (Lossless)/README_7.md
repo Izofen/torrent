@@ -1,3 +1,38 @@
+###  Публикация: 599914   (998919) от 08.01.2013
+
+Олеся Троянская - Квартирник (1985) [FLAC|Lossless]<Acoustic/Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Враги 2:04
+02. Когда вели Антуаннету 1:48
+03. Магазин "Берёзка" 1:34
+04. Диссиденты 2:05
+05. Песня русских эмигрантов 2:27
+06. Прощальная 2:06
+07. Я пью... 1:52
+08. Песня о Москве 1:21
+09. Медный колокол 1:32
+10. Поручик Голицын 1:55(   Читать дальше...   )Жанр: Acoustic/RockПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599928   (998890) от 08.01.2013
 
 Автоматические удовлетворители и Олеся Троянская - Пейте С Нами! (1995) [FLAC|Lossless]<Rock>
@@ -735,35 +770,6 @@ Sergey Golovin - Sculpture (2018) [FLAC|Lossless|Web-DL|tracks] <Progressive Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDAB6BA698566575557B9830973E9524290E097F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977337   (965596) от 21.01.2016
-
-Борис Гребенщиков - Radio Silence (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radio Silence (3:56)
-02. The Postcard (4:32)
-03. The Wind (4:37)
-04. The Time (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E09EB0EFAC3E5BD1880BA6B95ED47752DFE6EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

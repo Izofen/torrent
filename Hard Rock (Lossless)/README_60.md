@@ -1,3 +1,32 @@
+###  Публикация: 1578955   (340944) от 25.09.2022
+
+Liar - Set The World On Fire (1978) Reissue, 2020, Escape Music [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340944.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Set The World On fire (3:54)
+2. Town Of Evil People (5:51)
+3. I'm Calling (4:32)
+4. Midnight Promises (4:56)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AE236CB887DB14F507AD4C66E5010CE1D147E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954671   (339731) от 08.11.2015
 
 Billy Gibbons And The BFGs - Perfectamundo (2015) [FLAC|tracks|WEB-DL]<Blues Rock, Hard Rock>
@@ -716,35 +745,6 @@ Free Spirit - All The Shades Of Darkened Light (2014) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14BE3DB141D2CB52236E451057C6DE77A0C3B0C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580948   (329049) от 03.10.2022
-
-Monster Truck - Warriors (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warriors (03:34)
-02. Fuzz Mountain (03:42)
-03. Golden Woman (03:09)
-04. Live Free (02:59)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F7F917CE362B3C91CC7A0CA4538D35376670D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

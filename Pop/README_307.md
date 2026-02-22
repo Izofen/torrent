@@ -1,3 +1,90 @@
+###  Публикация: 1085897   (152548) от 24.12.2016
+
+VA - Christmas Pop (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas, Funk & Soul, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meghan Trainor - I'll Be Home (3:39)
+02. Little Mix - Love Me Like You (Christmas Mix) (3:29)
+03. Kelly Clarkson - Underneath The Tree (3:50)
+04. Mariah Carey - Christmas (Baby Please Come Home) (2:34)(   Читать дальше...   )Жанр: Pop, Holiday, Christmas, Funk & Soul, Pop RockПродолжительность: 02:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FDD4CB2F88F1D51E5650D75C087CC83EB599436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086135   (152543) от 24.12.2016
+
+Thomas Anders - Christmas For You (2012) Deluxe Edition [APE|Lossless|image + .cue] <Pop, Holiday, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Must Have Been The Mistletoe (3:04)
+02. Christmas Is Just Around The Corner (from "Cranberry Christmas") (2:43)
+03. Sleigh Ride (2:41)
+04. The Christmas Song (3:13)(   Читать дальше...   )Жанр: Pop, Europop, Holiday, Christmas, Vocal, Spoken WordПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6324DC15277BDEEB8E6E0CD46D4CA1D6A2B633F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086302   (152526) от 24.12.2016
+
+Laura Pausini - Laura Xmas (2016) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop, Jazz, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Beginning To Look A Lot Like Christmas (3:57)
+02. Let It Snow! Let It Snow! Let It Snow! (3:01)
+03. Santa Claus Is Coming To Town (2:07)
+04. Jingle Bell Rock (3:47)(   Читать дальше...   )Жанр: Pop, Jazz, Holiday, Christmas, Swing, Easy Listening, VocalПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858D7FCED3F761CA8834A5C5605F2FBE1F85E77A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271227   (152494) от 22.12.2018
 
 VA - La Chanson de l'Annee 2018 Vol.2 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -661,93 +748,6 @@ Sam Ryder - Heartland (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49C71997F5FD5264A53ED09D233F30A38A9B56D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825944   (150717) от 18.10.2025
-
-Thomas Anders - …Sings Modern Talking: Romantic Warriors - Thomas' Version (2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150717.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jet Airliner (Thomas' Version)
-02. Like a Hero (Thomas' Version)
-03. Don't Worry (Thomas' Version)(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24CBF1D428864E8C028C74D7FD82D5CC13A6EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826120   (150670) от 18.10.2025
-
-Thomas Anders - …Sings Modern Talking: Romantic Warriors (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jet Airliner (Thomas') (4:21)
-02. Like a Hero (Thomas') (3:45)
-03. Don't Worry (Thomas') (3:37)
-04. Blinded by Your Love (Thomas') (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67B04E09C9168FB9B0FBE456EFEC50B186E4C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677324   (150649) от 17.11.2023
-
-Vaya Con Dios - Shades of Joy (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kissing Slow
-02. Shades of Joy
-03. Leaving Home
-04. La Vie(   Читать дальше...   )Жанр: Pop-JazzПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493C1FD545622B4DAE488D240D815E826BB450E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

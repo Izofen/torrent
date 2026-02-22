@@ -1,3 +1,29 @@
+###  Публикация: 1356395   (204243) от 10.01.2023
+
+Wildways (ex-Sarah Where Is My Tea) - Коллекция (Дискография) (9 альбомов) (2009-2022) [MP3|128-320 Kbps] <Металкор, Постхардкор, Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wildways — Российская метал-группа была создана в конце августа 2009 года гитаристом Сергеем Новиковым и изначально носила название «Sarah Where Is My Tea». 17 июня 2014 года группа меняет название на Wildways (англ. дикие пути). «Просто захотели сделать новый шаг, стать более серьезными. Название Sarah Where Is My Tea звучало слишком саркастично. В какой-то момент (   Читать дальше...   )Жанр: Постхардкор, Металкор, РокПродолжительность: 07:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7FD9DB49F6326D84C6637A7063680372A37394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655996   (203472) от 30.08.2023
 
 VA - Compilation  Blues Rock Part 31 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
@@ -716,35 +742,6 @@ VA - Instrumental Rock Classic (2020) [MP3|192-320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:455A3B9201EDFD823F3E471A6234B4CCAAF93CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428119   (180750) от 01.12.2020
-
-Brian Connolly - Do It Again (Compilation) (2020) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballroom Blitz
-02. Fox On The Run
-03. Rock&Roll Disgrace
-04. Action(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A24E03640D9408FBA06A298AEB1522CD80806A
 ```
 
 https://mybot314.ru/tekegram_catalog/

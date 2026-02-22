@@ -1,3 +1,125 @@
+###  Публикация: 531884   (539946) от 06.08.2012
+
+VA - The Best Of Italo Disco - Живая классика (2012) [MP3|320 кб/с]<Pop, Disco>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Betty Miranda - Dance
+ 02.Max Him - Lady Fantasy(Remix)
+ 03.Koto - Visitors
+ 04.Camaro's Gang - Fuerza Major
+ 05.Jonathan Gable - Central Park(Dub Mix)
+ 06.Katy Gray - Hold Me Tight
+ 07.Flexi Cowboys - Domination(Extended)
+ 08.Amanda Lear - No Credit Card
+ 09.Hugh Bullen - Alisand
+ 10.Cruisin' Gang Feat. Laura Fadinger - On The Beach Tonight(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 05:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57971D06587C76A6DBAE2C9A29EA01EFE642854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925844   (539104) от 07.08.2015
+
+Ivy Levan - No Good (2015) [MP3|320 кб/с]<Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dame Says
+ 02. Biscuit
+ 03. No Good
+ 04. Champagne Taste(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C55D4EF213C643A88D85716D5510D79EB1717D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925791   (539100) от 07.08.2015
+
+VA - From Russia With Italo Disco (2012) [FLAC|mage+.cue]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Touch Your Body Now (Extended Version) (Magic System D.J.) [06:44]
+02. Flute Cries (Maxi Version) (Siberian Heat) [08:11]
+03. Harsh Wind (Duro Mix) (Dyva) [07:01]
+04. When I Close My Eyes (Squash Gang) [06:16](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6639E56136E67D098D396D1010296809D2CEC45A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154822   (539074) от 31.07.2017
+
+Blackwell - Boogie Down (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogie Down And Mess Around (5:14)
+02. Put The Funk Back (4:09)
+03. That's What It's All About (4:30)
+04. Move Your Ass Gringo (3:58)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF0DA67D0021F17D5344C674E35109C850C8D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239430   (538983) от 05.08.2018
 
 Tracey Thorn - SOLO : Songs And Collaborations 1982 - 2015 (2015) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Trip Hop, House, Acoustic, Ballad>
@@ -635,119 +757,6 @@ A 60-as 70-es évek legnagyobb slágerei
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49435B77F307D11C829EF74CC5301A9D2FB54D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312045   (536234) от 02.07.2019
-
-Братья Грим - Необитаемый остров (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лелею (4:43)
- 02. Ближе (4:36)
- 03. Робинзон (4:28)
- 04. По дороге домой (3:33)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540ECA4E931F5E7B586509EA740A2D5D29FBC357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050747   (536198) от 09.09.2016
-
-Imany - The Wrong Kind Of War (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Folk, Singer-Songwriter>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Our Soul (3:28)
-02. No Reason, No Rhyme (4:45)
-03. You Don't Belong To Me (3:37)
-04. I Long For You (3:18)(   Читать дальше...   )Жанр: Pop, Soul, Folk, Singer-SongwriterПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EF3A54BEEF1143CCC7B53D0D417C3A30DCFE98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050706   (536191) от 09.09.2016
-
-Lian Ross - And The Beat Goes On (2016) 2CD [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. All We Need Is Love
-02. Game Of Love
-03. You're My Heart You're My Soul ft. Big Daddi(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB6FD62CEB660B8DF4BD8F118037AC7EE294136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312050   (536093) от 02.07.2019
-
-Мот, Zivert - Паруса (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Паруса (3:31)Жанр: PopПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB6B89CDDA2C0370C1D481B0E14C6D9C683FB20
 ```
 
 https://mybot314.ru/tekegram_catalog/

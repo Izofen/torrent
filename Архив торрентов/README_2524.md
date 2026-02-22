@@ -1,3 +1,29 @@
+###  Публикация: 1226477   (655370) от 20.05.2018
+
+All in One Runtimes 2.4.6 Portable [De]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655370.jpg" />
+</div>
+
+
+###  Подробнее
+
+All in One Runtimes - пакет приложений, необходимый для запуска и автономной работы большинства современных программ и игр, содержащий в себе .NET Framework (включая hotfixes), DirectX 9.0c, Adobe Flash Player, Microsoft Silverlight, Shockwave Player, Java Runtime Environment, Microsoft Visual C++ Runtimes и Microsoft Visual J# SE. После запуска программа автоматически (   Читать дальше...   )Язык интерфейса: Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070F65CCE1F8A5F7086028A2A49FE5911E7D49BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515550   (655318) от 26.06.2012
 
 Откровения / Elles (2011) [720p] BDRip
@@ -665,32 +691,6 @@ Icecream Ebook Reader 1.62 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F97B8127CC4C76F9122D59EA9C87997ABBD6B3E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904231   (655167) от 02.06.2015
-
-SpeedyFox 2.0.12 Build 85 Portable by DenSE [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655167.jpg" />
-</div>
-
-
-###  Подробнее
-
-SpeedyFox - небольшая утилита, предназначенная для ускорения работы браузеров. Позволяет увеличить скорость загрузки, оптимизирует sqlite-базы, в которых хранятся закладки, cookies, различные настройки, журналы загрузок, журналы посещения ресурсов и многое другое, удаляет пустые ячейки из файлов и оставляет в них только нужную информацию. С версии 2.x добавлена поддержка (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5285918801D35F13D996E6C0F6074025A18D23
 ```
 
 https://mybot314.ru/tekegram_catalog/

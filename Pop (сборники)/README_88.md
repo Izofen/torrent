@@ -1,3 +1,38 @@
+###  Публикация: 566982   (398197) от 28.10.2012
+
+VA - Новое на Europa Plus (2012) [MP3|256 кб/с]<pop, dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ M.E.G. - Stock-Holm
+02. Оксана Почепа - По подоконнику дождь
+03. gor Garnier feat. Minja & Mondo - Ajde Romale
+04. DJ Шанс feat. JayB (D.Lemma) - Ярче
+05. All Давай feat. DJ Ihlas - Москва-Дубай
+06. T-Killah feat. Лоя - Вернись (Fire Flame & Horizont Remix)
+07. Джиган - Нас больше нет (Michael Yousher Remix)
+08. Винтаж feat. Bobina - На-На-На
+09. DJ Simon Weeks feat. Los Tiburones - Rumbero
+10. Rihanna - Where Have You Been(   Читать дальше...   )Жанр: pop, danceПродолжительность: 06:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD2886D4AC0CBE77DD49649388E66903B685511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566770   (398196) от 28.10.2012
 
 VA - Новые Хиты Дискотек Vol. 2 (2012) [MP3|128 кб/с]<Pop>
@@ -866,41 +901,6 @@ VA - Танцевальный Динамит осенний (2012) [MP3|256 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24E1CFE4DAFCEA0B6F67B969A8B7B106AC386F6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569498   (392122) от 03.11.2012
-
-VA - Лучшее от МУЗ-ТВ (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392122.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Animal ДжаZ и МакSим - Живи.mp3
-002. NikitA - Давай, Стреляй!.mp3
-003. Бондарчук - Бег По Краю.mp3
-004. Ева Польна - Весь Мир На Ладони Моей.mp3
-005. Shami & MX - Мы Небо-Земля.mp3
-006. Республика - Самба-Румба.mp3
-007. Юлия Ковальчук - Между Нами.mp3
-008. Driu Mc Feat. Funky & Inlite - Только Тебе.mp3
-009. Varda - Я Тебе Не Верю.mp3
-010. Hi-Fi - Хорошие Песни.mp3(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 6:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8A98C4E1BAFA40342CF1FA59ABA3B1D21D1863
 ```
 
 https://mybot314.ru/tekegram_catalog/

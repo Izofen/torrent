@@ -1,3 +1,32 @@
+###  Публикация: 1665619   (181574) от 01.10.2023
+
+Kaoru Nakasone - Fragrance (2000) M&I [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy [5:20]
+02. I Didn't Know What Time It Was [3:51]
+03. Fever [5:04]
+04. Love Is Like That [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C100BB8A4DDB67AB5D8D8FBA6608AE98BAC8BEF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427625   (181573) от 30.11.2020
 
 Tab Smith - Jump Time (1951, 1952) 1991, Delmark Records [FLAC|Lossless|image + .cue] <Swing, Jump Blues>
@@ -716,35 +745,6 @@ Hal Galper Quintet - Live At The Berlin Philharmonic (1977, 19768) 2CD, 2021, Or
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE3A6A832B5FC0C6BBEC73468A5B7207B061CFB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666112   (180333) от 03.10.2023
-
-Jeff Michaels - Late Night & Low Down (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Feels Right (9:08)
-02. Late Night (7:30)
-03. Not This Time (6:40)
-04. I Don't Recall (6:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E016C09AFC759E28F15C212A64D1B2D8E311777
 ```
 
 https://mybot314.ru/tekegram_catalog/

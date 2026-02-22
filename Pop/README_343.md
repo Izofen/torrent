@@ -1,3 +1,90 @@
+###  Публикация: 1784193   (69633) от 09.03.2025
+
+VA - One Shot '80 Volume 19 (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bandolero - Paris Latino
+02. Mike Oldfield - Foreign Affair
+03. Doctor & The Medics - Spirit In The Sky
+04. The Belle Stars - Iko Iko(   Читать дальше...   )Жанр: Rock, Pop, Pop Rock, Synth-popПродолжительность: 01:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37939F605989B1F2A3770A0CB531E424F2F49820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784729   (69540) от 12.03.2025
+
+Heidi Montag - Superficial (2010) Anniversary Edition, 2025, Pratt Productions [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look How I'm Doin [00:03:28]
+02. Turn Ya Head [00:03:37]
+03. Fanatic [00:03:25]
+04. Superficial [00:03:08](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7989613652ABF4F1DD01024486792258AA8AC3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784934   (69517) от 13.03.2025
+
+ТУ-134 - Ненаглядная (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ненаглядная [00:03:28]
+02 - Без любви твоей [00:03:10]
+03 - Замело [00:03:35]
+04 - Даже если на небе [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81F45D292A6C5A0EE0A7A110696FB166FCC1A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784922   (69515) от 13.03.2025
 
 Mancol - First Look (2024) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
@@ -658,92 +745,6 @@ VA - I Love ZYX Italo Disco Collection 3 (2005) 3 CD [OGG Vorbis|480 Kbps] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B1FE05C5C7CD437A69515BB9241E26519C7D9A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786930   (68860) от 23.03.2025
-
-Олег Погудин - Надежды маленький оркестрик (2025) Песни Булата Окуджавы [MP3|320 Kbps] <Русская эстрада, Вокал>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Надежды маленький оркестрик [00:02:46]
-02 - Ещё один романс [00:02:25]
-03 - Живописцы [00:02:01]
-04 - Вот так она любит меня [00:01:48](   Читать дальше...   )Жанр: Русская эстрада, ВокалПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F270BA5D89240E06EF019920210A27192EA3BBAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786993   (68822) от 24.03.2025
-
-RaiNao - Capicu (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, jazz, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. logout de riíto con la gata [00:02:23]
-02. readysita pal party en casa [00:02:11]
-03. Gualero de jangueo en El Gandúl [00:03:03]Жанр: Alternative Pop, jazz, R&BПродолжительность: 2 CD, 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A86AB1D624839D671B4BE5704358525CBA11B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787457   (68795) от 25.03.2025
-
-Marina Kapuro (Марина Капуро) - Happy New Year (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterloo (2:55)
-02. Mamma Mia (3:36)
-03. Knowing Me, Knowing You (3:40)
-04. I Have a Dream (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA872A5E9AB9928BE4304A74364E62BB96391900
 ```
 
 https://mybot314.ru/tekegram_catalog/

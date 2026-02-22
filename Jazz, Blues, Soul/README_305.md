@@ -1,3 +1,96 @@
+###  Публикация: 1242992   (496207) от 25.08.2018
+
+D.D.Lowka & Band - Mini Jazz (2013) GLM GMBH [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manteca [3:18]
+02. Stomping At The Savoy [3:52]
+03. Latin Lovers [4:04]
+04. Overload [3:51](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257F7D2BB6E0435476D10B93DD2F4F75A7EE35B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243113   (496201) от 25.08.2018
+
+Zoot Sims - Quartets (1950 - 1951) 2008, Prestige [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zoot Swings the Blues (take 1) [8:39]
+02. Zoot Swings the Blues (take 2) [2:28]
+03. Trotting [3:48]
+04. I Wonder Who [2:38](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93E0197713A115189B5786F69B2909C00FBE02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543142   (496200) от 05.09.2012
+
+VA - Kings Of The Blues (1993) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muddy Waters - Rollin' Stone    [03:08]
+02. Elmore James - Dust My Broom    [02:55]
+03. John Lee Hooker - One Bourbon, One Scotch, One Beer    [02:58]
+04. Albert King - I Got The Blues    [09:08]
+05. Sonny Boy Williamson - Bring It On Home    [02:35]
+06. Buddy Guy - Ten Years Ago    [02:38]
+07. Jimmy Reed - Baby What You Want Me To Do    [02:23]
+08. T-Bone Walker - Stormy Monday Blues    [02:50]
+09. Howlin' Wolf - Smokestack Lightning    [03:06]
+10. Little Walter - My Babe    [02:34](   Читать дальше...   )Жанр: Blues
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936439   (496157) от 11.09.2015
 
 David Gogo - Vicksburg Call (2015) [MP3|320 кб/с]<Blues Rock>
@@ -676,92 +769,6 @@ Big Boss Band - Love Wins (2018) [MP3|320 Kbps] <Blues, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13556864B4A15F7CEFE94EA04E591E5AEF870EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243317   (493972) от 26.08.2018
-
-Cafe R&B - 4 Albums (1998 - 2012) [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Blues-Rock, Rhythm & Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cafe R&B родом из Южной Калифорнии. Вокалистка "Roach" известна в начале 80ых по коллективу "Roach and the White Boys". Критики отмечают ее потрясающий хардроковый вокал и сравнивают с такими звездами, как Etta James, Tina Turner и Aretha Franklin. Продюсер, гитарист и муж Roach пишет оригинальный материал для группы. Вдохновленные Howlin (   Читать дальше...   )1998 - Black & White
-2002 - Blues and all the Rest
-2005 - Very LiveЖанр: Modern Electric, Blues-Rock, Rhythm & BluesПродолжительность: 04:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F87CD726022B96A9AC4451EA17CE599FF1CDFF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158308   (493836) от 15.08.2017
-
-Edna McGriff - Start Movin' In My Direction (1954 - 1959) 2012, Bear Family Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start Movin' (In My Direction) [02:36]
-02. Confidental [02:43]
-03. The Fool [02:47]
-04. Freight Train [02:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B9512995B8C507F373FCCC9F2C42C75E598F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158344   (493823) от 15.08.2017
-
-Harrison Kennedy - This Is From Here (2015) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Walkin' Or Ridin'   (03:29) 
-02.  Shake The Hand   (04:18) 
-03.  Falling Down   (03:28) 
-04.  Jimmy Lee   (03:42) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14313543235CEDEC1E793E8DCDEFA461F02A6264
 ```
 
 https://mybot314.ru/tekegram_catalog/

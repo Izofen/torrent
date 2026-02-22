@@ -1,3 +1,38 @@
+###  Публикация: 740720   (986052) от 01.01.2014
+
+VA - Baroque Profile 2013 [MP3|320 кб/с]<Techno, Minimal, Tech House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. MUUI - Tsssh (06:45)
+ 02. Alex Villanueva - Goodfellas (David Granha remix) (07:39)
+ 03. Beat Factory - Big City Siren (Andre Sobota dub) (06:42)
+ 04. Robert Mint - Afterglow (07:26)
+ 05. Stuart King - A New Beginning (06:44)
+ 06. Aji Mon Nair - Lights Out (Lank remix) (06:54)
+ 07. Ticon - Nefertiti (Rafael Osmo & Hezi Rachmani remix) (08:34)
+ 08. Makau & Kagl - We Need (Karl Kyrill remix) (05:42)
+ 09. Paul Martinez & Fiddler - Hell Raise (07:10)
+ 10. Filth & Splendour - Life Time (Matan Caspi dub) (07:06)(   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 11:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E96F3FD7C157EB85B4F3740971912BFB3D25D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 740744   (986049) от 01.01.2014
 
 NG. Суперсооружения Третьего рейха / Nazi megastructures (2013) HDTVRip [H.264/720p-LQ] [1 сезон: 5 серия из 6]
@@ -663,33 +698,6 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB533DA1768FF5961DE6BF2417883AEBFE0D3D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971491   (985948) от 03.01.2016
-
-Хоккей. Молодёжный Чемпионат мира. 1/4 финала. Канада - Финляндия. 02.01.2016 HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985948.jpg" />
-</div>
-
-
-###  Подробнее
-
-02 января 2016, суббота. 19:05 МСК. 1/4 финала. Стадион: Хартвалл-Арена (Хельсинки, Финляндия) , 13 464 зрителя (100 % при вместимости 13 464). Главный судья: Даниэль Пехачек (Германия) ;
-Главный судья: Кристофер Питошия (США)Телекомпания: Спорт 1 HDЖанр: СпортПродолжительность: 2:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECC2BECCF9BFDE459D9FE40EDB24E0B0C201986
 ```
 
 https://mybot314.ru/tekegram_catalog/

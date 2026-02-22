@@ -1,3 +1,32 @@
+###  Публикация: 1526503   (738489) от 24.01.2022
+
+Sam Martin - Blue Tuesday (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Was Always You (4:00)
+ 02. All My Tears (2:41)
+ 03. I Still Haven't Found What I'm Looking For (3:39)
+ 04. A Day In The Life (3:58)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94058FC10A61408234BCC418CC679E2DB2A22A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526413   (738487) от 24.01.2022
 
 Madeline Juno - Besser kann ich es nicht erklaren (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -715,35 +744,6 @@ Yumi Zouma - Yoncalla (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FBA12096BEF83F3EA2C6E7D3FB3C05D33F2984D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127391   (731854) от 21.04.2017
-
-DJ BoBo - 25 Years Greatest Hits (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom
-02. Everybody
-03. Somebody Dance with Me
-04. Pray(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83BBA7320194BF0E92307FC3DB3CEA6749D23C39
 ```
 
 https://mybot314.ru/tekegram_catalog/

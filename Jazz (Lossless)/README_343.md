@@ -1,32 +1,3 @@
-###  Публикация: 1715891   (111456) от 13.04.2024
-
-Halie Loren - Dreams Lost and Found (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For All We Know
-02. How High the Moon
-03. Dance Me to the End of Love
-04. Sabor a Mi(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D9F75FCFBBB619C3C902DA3BB1E5D74C3EA23B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715768   (111435) от 13.04.2024
 
 Joel Ross - Nublues (2024) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -745,6 +716,35 @@ Pat Martino - Starbright (1976) 2008, Warner Music [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EC38836120658612B309AB418F31F02F7A1B76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717237   (111226) от 19.04.2024
+
+Paul Motian And The Electric Bebop Band - Flight Of The Blue Jay (1997) Winter & Winter [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight of the Blue Jay [3:06]
+02. Pannonica [4:33]
+03. Brad's Bag [5:51]
+04. Celia [5:07](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246494B16E9FB8C9B2181CC0FBC960F532E3FD8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 298244   (883919) от 20.02.2011
+
+VA - Clubbers Guide 2011 Mixed By Jean Elan (19.02.2011) [MP3|~200 kbps]<House/Disco House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Elan - Clubbers Guide 2011 Intro
+ 02. Armin Van Buuren Feat Christian Burns - This Light Between Us (Dabruck And Klein Remix)
+ 03. EDX - Szeplo
+ 04. Cosmic Gate - Fire Wire (Dimitri Vegas And Like Mike Remix)
+ 05. Eric Prydz - Niton (The Reason)(Extended Mix)
+ 06. Moguai - We Want Your Soul (Thomas Gold Remix)
+ 07. Jean Elan - Flashed
+ 08. Amloop - Caminhando E Cantando (Deniz Koyu Remix)
+ 09. Dimitri Vegas Like Mike Dada Life And Tara McDonald - Tomorrow (Dabruck And Klein Remix)
+ 10. Nadia Ali - Rapture (Avicii New Generation Extended Mix)(   Читать дальше...   )Жанр: House/Disco HouseПродолжительность: 03:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC24CC74238A0E25AC894EA8001FF9124732D06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 297901   (883917) от 20.02.2011
 
 VA - Вселенная Хитов  (2011) [MP3|256 kbps]<Dance/Pop>
@@ -728,34 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA53AFF81D1F8C3641EC2426960790FCD24C4B8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372711   (883862) от 04.04.2020
-
-Slidepad 1.0.29 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883862.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
-Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
-Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.04.2020Разработчик: SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E9A914B62854824234CA6AA40E52A35FCF85AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

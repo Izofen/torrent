@@ -1,3 +1,30 @@
+###  Публикация: 1302699   (579066) от 17.05.2019
+
+CCleaner Professional 5.57.7182 Portable by SanLex [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579066.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - простое в использовании решение, позволяющее даже неопытным пользователям оптимизировать свои ПК за считанные секунды. Для продвинутых пользователей продукт включает расширенные функции.
+С его помощью вы можете защитить свою конфиденциальность, ускорить работу и повысить безопасность компьютера!Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB94D1B1888ABEAE58A4CDBE79CDC481B7EDD42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302649   (579061) от 17.05.2019
 
 Microsoft Visual Studio 2017 Community 15.9.12 (Offline Cache, Unofficial) [Ru/En]
@@ -677,35 +704,6 @@ Smart Defrag — БЕСПЛАТНЫЙ дефрагментатор, позвол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF4A9F69C986907468B3D5EB1C03BDB3A7D4C8F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920737   (578926) от 23.07.2015
-
-Symphony X - Underworld (2015) [FLAC|tracks+.cue]<Progressive Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture
-02. Nevermore
-03. Underworld
-04. Without You(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F83D224A3A750C36574B7831782EC0F70D8831D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1683753   (128239) от 12.12.2023
-
-VA - Smooth Jazz Beats & Modern Fusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulstance - Around Me (4:35)
-02. Lo Greco Bros - Bella M'Briana (4:23)
-03. David Florio - Lost Numbers (5:21)
-04. Papik - Feelings (4:12)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D0BC4FF60A798E58B187689612FF13CA448AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683754   (128233) от 12.12.2023
 
 VA - Electro Swing Back to Old School Volume 2 (Jazzy Electro and Vintage Swing Reloaded) (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Electro Swing, Broken Beat>
@@ -745,6 +716,35 @@ Ahmad Jamal - Four Classic Albums (1955 - 1960) 2CD, 2023, Avid Jazz [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93712E50E917EE9785DB2A85F1655CBCDBA9C993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684860   (127354) от 17.12.2023
+
+Bob Brookmeyer New Art Orchestra - New Works: Celebration (1997) 1999, Challenge Records [FLAC|Lossless|tracks + .cue] <Cool, Third Stream, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celebration Jig [2:32]
+02. Celebration Slow Dance [8:24]
+03. Celebration Remembering [10:59]
+04. Celebration Two And [10:16](   Читать дальше...   )Жанр: Cool, Third Stream, Big BandПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8902A5522CD997F440EF03A2285AF2ED859E4D37
 ```
 
 https://mybot314.ru/tekegram_catalog/

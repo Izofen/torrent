@@ -1,3 +1,32 @@
+###  Публикация: 761511   (896372) от 28.02.2014
+
+Axxis - Kingdom of the Night II (2014) 2 CD [MP3|320 кб/с]<Melodic Heavy / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kingdom of the Night II
+02. Venom
+03. Beyond the Sky
+04. The War(   Читать дальше...   )Жанр: Melodic Heavy / Power Metal |Продолжительность: 01:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D2B137C5499B38F022B7CAF0DFA5FE37EA9AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101281   (896312) от 06.02.2017
 
 Ocean Grove - The Rhapsody Tapes (2017) [MP3|320 Kbps] <Nu-Metal>
@@ -750,35 +779,6 @@ Warpath - Bullets for a Desert Session (2017) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57B77E92837F7739DED5C1F59D0A246E316B10D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102231   (891288) от 09.02.2017
-
-Soen - Lykaia (2017) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sectarian (5:55)
-02. Orison (7:08)
-03. Lucidity (6:37)
-04. Opal (6:46)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B15D9D9ECE2ADD8B8ADBBAC4897396E2EAEBA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

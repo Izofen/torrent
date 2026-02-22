@@ -1,3 +1,90 @@
+###  Публикация: 1242801   (513059) от 24.08.2018
+
+Erin Harpe & The Delta Swingers - Big Road (2017) [MP3|320 Kbps] <Electric Blues, Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kokomo (05:35)
+02. Lonely Leavin' Town (05:55)
+03. Big Road (04:13)
+04. Frankie (03:42)(   Читать дальше...   )Жанр: Electric Blues, Jump BluesПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1DDC947BFE3FC61290B00A49CCCBBE2030863B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931285   (513023) от 25.08.2015
+
+Coleman Hawkins - Father Bean (1956/1960) /1990, Jazzlab/[FLAC|tracks+.cue]<Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moodsville [06:15]
+02. After Midnight [04:48]
+03. Bean In Orbit [06:06]
+04. Almost Down [08:57](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B2109A4F76845C80C246E49F9245ECE3E6D5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242777   (512982) от 24.08.2018
+
+Universal Hippies - Evolution of Karma (2018) [MP3|320 Kbps] <Heavy Psychedelic Blues Rock, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evolution
+02. Wings of Pegasus
+03. Journey of the Impossible Hero
+04. Ophelia's Dream(   Читать дальше...   )Жанр: Heavy Psychedelic Blues Rock, InstrumentalПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE18873021A96623C7E2F53D15691F42A9CCC142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561928   (512588) от 07.07.2022
 
 Sarah Vaughan - Young Sassy (1944 - 1950) 4CD, 2006, Proper Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -695,93 +782,6 @@ Bruno Angelini - Instant Sharings (2015) [FLAC|tracks+.cue]<Contemporary Jazz, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCC5A054E0C5B13D013167B9DDB9705FDBF7288D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932374   (509553) от 29.08.2015
-
-The Lew Tabackin Quartet - Desert Lady (1990) /Concord Jazz/[FLAC|tracks+.cue]<Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot House [04:09]
-02. Pyramid [09:41]
-03. Serenade To Sweden [08:05]
-04. Chelsea Bridge [07:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08A50E1B202FC51FB402A1F22E1FB5CD38DFAF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932426   (509551) от 29.08.2015
-
-Marie Seferian Quartett - Mille Nuits (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La plainte des fontaines
-02. Nos regards
-03. Myosotis I
-04. Myosotis II(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB85BFA10913AB93A5038FE2B47E305119B1C992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932369   (509549) от 29.08.2015
-
-Ted Curson - Quicksand (1974) /2013, Warner/[FLAC|tracks+.cue]<Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiderlegs [07:54]
-02. Tears For Dolphy [08:17]
-03. Typical Ted [07:27]
-04. Greasy As A Porkchop [05:56](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5845C6E57F7B52E774CED6EB4FE56C26339781FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

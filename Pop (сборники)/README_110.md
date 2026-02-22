@@ -1,3 +1,32 @@
+###  Публикация: 1574444   (208796) от 06.09.2022
+
+VA - Workout Motivation (Retro Edition)[Mixed by Sergey Sychev ] (2018-2022) [MP3|320 Kbps] <Remix ,EuroDance ,90e ,80e>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Michael Jackson Vous - Billie Jean (80 s Cardio Workout Remix
+2. AC DC - Highway to Hell (KaktuZ Remix)
+3. Global Rockerz feat. Michael Reynaldo - Died In Your Arms
+4. C.C.Catch - Strangers By Night [2017 Remix](   Читать дальше...   )Жанр: Remix ,EuroDance ,90e ,80eПродолжительность: 03:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4299A9466A301300969419F33E57D2B80A0AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649369   (207811) от 28.07.2023
 
 Sinead O'Connor - How Nice A Woman Can Be (2023) 2 CD Compilation  [MP3|320 Kbps] <Rock, Pop>
@@ -716,35 +745,6 @@ VA - Свежий Русский Хит от ALEXnROCK часть 13 (2023) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12E3F55CB0B5176B0AD5607EF7DF6AD4342F7FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640782   (193648) от 27.08.2023
-
-VA - Виниловый бублик (1901-2019) [MP3|128-320 Kbps] <Classic, Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-копия музыкальной коллекции с удалённого YouTube канала Виниловый бублик / UCxS1inqcdR8Zwf2x5CzAjjA
-
-Канал "Виниловый бублик" был открыт в 2017 году и посвящался записям на виниловых пластинках.
-За 6 лет работы канала было опубликовано более 4 тысяч аудиозаписей.(   Читать дальше...   )Жанр: Classic, Pop, RockПродолжительность: 1250:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423AAD3102B5930012DEFE0E74B28EF5F71EDD62
 ```
 
 https://mybot314.ru/tekegram_catalog/

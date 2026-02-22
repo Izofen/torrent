@@ -1,3 +1,90 @@
+###  Публикация: 1074734   (336356) от 20.11.2016
+
+VA - Gleaming Rhythms: Glamorous Vibes Only (2016) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piece Grade - Jazzy Company - Supa Trumpet Mix
+02. Edo Romani - Syntomatique - Flying Mix
+03. Norma Reagan - Livin' on a Stick - Natural Soul Mix
+04. Piece Grade - Kiss on the Moon - Babylon Man Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D951BC9CE38852BFB6715D34F17BDDA81700BD3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074742   (336355) от 20.11.2016
+
+VA - Afterglow Vol.2: Deep Electronic Sounds (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Dassi - The Right Side
+02. Sascha Braemer - Touchdown
+03. Marcio Kantana - Fresh
+04. Alexander Koning - Out of Firsts(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49B9628E7C583A55C24C2A0E85AEC63BB5962BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074400   (336351) от 20.11.2016
+
+VA - This Is Deep House Vol.1 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slippy Beats & Terri B! - Deep In The Night (Maui's Tropical Beach Remix) 3:48
+02. Aleksey & Alexandra Prince - Sunrise (Summerbreeze Mix) 4:32
+03. Robbi Altidore - Moving 5:08
+04. Soul Traumer - Distraction 5:17(   Читать дальше...   )Жанр: HouseПродолжительность: 02:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAFBDE8746452115BF2824D9AD8BE010BDD240E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331045   (335114) от 13.10.2019
 
 SCSI-9 - Squares And Circles LP (2019) [MP3|320 Kbps] <Deep House , Tech House , Minimal>
@@ -664,93 +751,6 @@ VA - Milk & Sugar Winter Sessions 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DDC94B8192FC67AC939FF418896EB42D0E8E208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959352   (317381) от 24.11.2015
-
-VA - 55 Dancefloor Minimal Hits (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corner - Jellyfish (Stefan F Remix) [05:42]
-02. Ochu Laross - Hell And Purgatory And Paradise (Sadder Remix) [07:44]
-03. Copyzor - Minimal Terminal [06:31]
-04. Jose Solano - Bam Motherfucker [06:23](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD4BBB7DB454FF9861F6DE6D75AF0241C8DAFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959340   (317316) от 24.11.2015
-
-VA - 55 Bombs Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus Escobar Kiffen - King [06:41]
-02. Efeckt Mnml - Feel The Reeverb [06:35]
-03. Whisperer - Gibbons [05:36]
-04. The Mnml Robots - Where Is My Sputnik [06:56](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68E733104AA44CFCEA53B066238646F4265653F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959356   (317303) от 24.11.2015
-
-VA - 55 Hits Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Js Music - Cat Dress [06:18]
-02. Claudio Colbert - Smooth (Extended Mix) [06:47]
-03. Will Konen - Youll Be Rock [06:06]
-04. Whisperer - Melodic World [07:07](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B35B0F6B7CEF9F4A7CB3D9A9B976418A161780E
 ```
 
 https://mybot314.ru/tekegram_catalog/

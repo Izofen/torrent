@@ -1,3 +1,87 @@
+###  Публикация: 1200289   (796459) от 20.01.2018
+
+VA - Urban Party Alarm 11 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nick Le Funk  -  Leaving  3:30
+02.  The Boogeyman  -  The Bass Poem (Radio Edit)  3:21
+03.  Roger Horton & Slippy Beats  -  Feel Fine (Radio Edit)  3:07
+04.  Project Weekend Sound  -  Girls & Boys (Radio Edit)  3:26(   Читать дальше...   )Жанр: HouseПродолжительность: 02:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5097F7DB50A4D03DC16BEA45389D86DB69CC5BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011620   (796441) от 28.04.2016
+
+VA - Dance Map, Electro Stops Vol.3 (2016) [MP3|320 кб/с] <House, Progressve House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuji -  Burn  6:39
+02. KountDown Project -  Moon Bass  7:56
+03. Sello -  Such as More  7:25
+04. DJ Afreek -  Orgasmo  6:30(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F78ECD807F9B493B94EDC8E91BFDA070E353B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200284   (796424) от 20.01.2018
+
+VA - Dance Hits (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66998614DB3904FB7C64A0974017B354297AA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274130   (795065) от 05.01.2019
 
 VA - Best Of Soulful (2018) [MP3|320 Kbps] <House>
@@ -658,93 +742,6 @@ VA - Best Of LW Soulful House III (2019) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3CF7DB8DF1FA257C3F73D3241D1475C8DA21483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275200   (791157) от 10.01.2019
-
-VA - Winter Super Beats '19 (2019) [MP3|320 Kbps] <Electronic, Future House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Walker - Ocean (Original Mix) 5:09
-02. WDX - Late Night Kiss (Original Mix) 4:17
-03. Ian Deluxe - Feels Like This (Original Mix) 4:40
-04. Steven Turner & Murrell - So Close (Original Mix) 4:53(   Читать дальше...   )Жанр: Electronic, Future House, DanceПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F5498947EEC3BD14C2E3DA6DC0D08F62B36E00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275207   (791154) от 10.01.2019
-
-VA - Deep House Grooves, Vol. 14 (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loic Hoffman & Brrak - The Wind (Brrak Remix)
-02. Mert Avci - Forget Me Not (Original Mix)
-03. Superkluster - Timelapse (Original Mix)
-04. Lawrence Dix & Matt Prehn - Anima (Matt Prehn Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD26567AFDD90E9EC31F834C3CA7FD08D30996AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201928   (790904) от 27.01.2018
-
-VA - Best of Ibiza 2018 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MYNC - I Feel Love (Illyus & Barrientos Remix - Radio Edit) (Feat. Wynter Gordon) [4:25]
-02. Carl Cox - I Want You (Forever) (Josh Butler Remix - Radio Edit) [4:06]
-03. Fedde Le Grand - Put Your Hands Up for Detroit (TV Rock & Dirty South Remix) [6:50]
-04. DJ Wady - Hulk (Camelphat 2017 Re-Fix - Radio Edit) [3:31](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6E4EB3D4A53274B1D03A6EF409F5855F440776
 ```
 
 https://mybot314.ru/tekegram_catalog/

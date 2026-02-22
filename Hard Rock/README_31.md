@@ -1,32 +1,3 @@
-###  Публикация: 1432482   (162885) от 18.12.2020
-
-Sweet - Isolation Boulevard (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fox on the Run [00:03:42]
-02 - Still Got the Rock [00:03:40]
-03 - Action [00:03:42]
-04 - Love Is Like Oxygen [00:04:24](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A656996ABACA69F595203FFE46E33E869A0C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517716   (162041) от 16.12.2021
 
 Black Hammer Voodoo - The Year of the Rat (2021) [MP3|320 Kbps] <Blues Rock, Hard Rock>
@@ -762,6 +733,35 @@ Rydell & Quick - 2 альбома Discography (2006-2012) [MP3|320 Kbps] <Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1EF096DEF1D854C1ADCE7878907B288F1380BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088063   (141059) от 30.12.2016
+
+Epitaph - Danger Man (1982) Reissue, 2012,  M.I.G. Music Gmbh [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141059.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Long Live The Children
+2. Heartless
+3. High Wire
+4. Snake Charmer(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1F8D424D18EA3FF752A74231D31508D807A974
 ```
 
 https://mybot314.ru/tekegram_catalog/

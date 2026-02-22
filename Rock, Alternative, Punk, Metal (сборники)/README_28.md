@@ -1,3 +1,32 @@
+###  Публикация: 1566646   (476403) от 01.08.2022
+
+VA - Impressive Sound 2022.1: Volume III (2022) Compilation [MP3|320 Kbps] <Post-metal, post-rock, sludge metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aequorea - Talus
+02. Morrow - Rejoice This Quiet Earth
+03. Mt. Echo - Automaton
+04. Point Mort - Pretoria…(   Читать дальше...   )Жанр: Post-metal, post-rock, sludge metalПродолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772D392AB77009FCCD4D26F140F05091B6124571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566638   (476397) от 01.08.2022
 
 VA - Impressive Sound 2022.1: Volume II (2022) Compilation [MP3|320 Kbps] <Technical death metal, progressive death metal, progressive black metal>
@@ -722,35 +751,6 @@ The Pretty Reckless - Compilation (2022) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1780C26F4B57F38161B60A80C31926242165CEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942633   (453250) от 01.10.2015
-
-VA - Rock Хит. Высокое Напряжение (2015) [MP3|256 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeff Buckley - Hallelujah
-02. Би-2 - Три сантиметра над землёй
-03. Сплин - Сын
-04. Мара - Где-то моя любовь(   Читать дальше...   )Жанр: RockПродолжительность: 06:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2512D9ECA724EAA59BF6AE57A7C6563AEE36A8DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

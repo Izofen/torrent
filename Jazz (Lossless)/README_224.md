@@ -1,3 +1,32 @@
+###  Публикация: 1070365   (366996) от 07.11.2016
+
+Anat Cohen & Trio Brasileiro - Alegria Da Casa (2016) [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murmurando (4:50)
+02. Waiting For Amalia (3:21)
+03. Alegria Da Casa (3:27)
+04. Baiao Guri (3:15)(   Читать дальше...   )Жанр: World Fusion, Latin Jazz, Brazilian JazzПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53EAC5BAB7556EB8D27408CF2994AFDBA167D576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070623   (366881) от 07.11.2016
 
 Mich Gerber - The Endless String (2003) [FLAC|Lossless|tracks + .cue] <Jazz, World Fusion, Trip-Hop, Electronic, Downtempo, Acoustic Bass>
@@ -722,35 +751,6 @@ Johnny Hodges - With Billy Strayhorn And The Orchestra (1961) /1999, Verve/[FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:977C2BDD0873EE3F190E2DC17CFCE44A3F8CB812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951492   (363664) от 29.10.2015
-
-Nat King Cole Trio - Live at the Circle Room & More (1946/1949) /1999, Definitive Records/[FLAC|tracks+.cue]<Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Opening Theme [00:40]
- 02.Oh, But I Do [02:58]
- 03.I'm Thru With Love [03:11]
- 04.'C' Jam Blues [03:50](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F109A2A49EA46F9EDCACDD9F81365E650B03564
 ```
 
 https://mybot314.ru/tekegram_catalog/

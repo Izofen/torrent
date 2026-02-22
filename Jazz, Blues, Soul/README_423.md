@@ -1,3 +1,32 @@
+###  Публикация: 1617693   (242006) от 08.03.2023
+
+Andrews Sisters - BD Voices (1937 - 1952) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora [2:53]
+02. Any Bonds Today? [2:24]
+03. Don't Sit Under the Apple Tree [2:59]
+04. Three Little Sisters [2:19](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FAA4865EBCE0A39B229100ED88AFC8E38455270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617683   (241991) от 08.03.2023
 
 Walter Beasley - Ready For Love (2007) Heads Up [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
@@ -716,35 +745,6 @@ Andrew Cyrille Quartet - The Declaration of Musical Independence (2016) ECM [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E54391EFEA4B8BF517DB9F7FCF2E17DB40055CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111291   (241628) от 05.03.2017
-
-Brinklz - How do you like my hairdo? (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horrow Show (3:57)
-02. How Do You Like My Hairdo? (3:28)
-03. Temperature (6:15)
-04. Killing Snakes (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126B7E930EDCC14463C42992B138E8D16B2379EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

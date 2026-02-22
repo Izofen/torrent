@@ -1,3 +1,32 @@
+###  Публикация: 1545345   (612897) от 20.04.2022
+
+Howard Rumsey's Lighthouse All-Stars - Volume 6 (1954, 1955) Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who's Sleepy [3:10]
+02. Isn't It Romantic [3:17]
+03. Mad at the World [3:30]
+04. East of the Sun [4:05](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6643ED0F5400A702F8C73B461B44DFC38BB9EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912300   (612895) от 25.06.2015
 
 Pee Wee Russell Sextet - Complete Live At Bovi's Town Tavern (1964) /2011, Gambit Records/[FLAC|tracks+.cue]<Jazz, New Orleans Jazz, Dixieland, Swing>
@@ -731,35 +760,6 @@ Clare Fischer - First Time Out + Jazz (1961, 1962) 2013, Poll Winners Records [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D90C34BA845E6DBCEBD19AD63C3BD3D6EA0EBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147403   (609871) от 02.07.2017
-
-Harry Allen & Keith Ingham - The Back Room Romp (1995) [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Back Room Romp [3:52]
-02 Sweet Lotus Blossom [5:30]
-03 One Sweet Letter from You [5:21]
-04 Elephant Stomp [3:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A567735AC9E9921C3B0D03F38E3FB19F28B70F3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

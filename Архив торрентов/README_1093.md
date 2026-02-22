@@ -1,3 +1,29 @@
+###  Публикация: 292826   (905206) от 08.02.2011
+
+[Wallpapers]Обои для рабочего стола - Beautiful Wallpaper Collection Of High Quality[1280х1024-2560х1600]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Формат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C832EC9BE59B43C0CCC078C237F32B97E39E9D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 181648   (905205) от 10.03.2010
 
 Стая 8.1.6 - Часы (2009) [MP3|320 kbps]<Rap>
@@ -710,36 +736,6 @@ CD1:
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865390   (905128) от 07.02.2015
-
-Wickaman Presents - Bug In The_Jungle Vol.1 (2014) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Righteous Jungalist (Original Mix) 5:36
-02. Who's With Me (Original Mix) 5:15
-03. Too Tough (Original Mix) 4:35
-04. We Drop It Down Low (Original Mix) 4:05
-05. It's Strange (Original Mix) 4:30Жанр: Drum and BassПродолжительность: 00:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E1A4C4893B56E048B8566C10B9C0FF0AADBCDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1026692   (700207) от 17.06.2016
+
+Waterbone - (1997-2015) (5 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eastern Girl (Remix) (6:23)
+02. River Of Souls (Remix) (6:02)
+03. Tantra (Remix) (6:06)
+04. Song For The Mountain (Remix) (5:59)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 04:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E4FF6A8DC45E0A7A8A5C27D1803A2CCF326D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026819   (700205) от 17.06.2016
 
 Yanni - Dare to Dream (1992) [FLAC|Lossless|tracks] <New Age, Instrumental>
@@ -722,41 +751,6 @@ Kavin Hoo - Chi: Music for Balance & Relaxation (2011) [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F749E95BBABA092B4FE33AB77465A4DE373C353E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211771   (694820) от 20.06.2010
-
-Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694820.jpg" />
-</div>
-
-
-###  Подробнее
-
-(7:40) 01. Trois Gymnopedies
-(7:00) 02. Mondscheinsonate
-(5:00) 03. Konzert fur Flote
-(7:27) 04. Konzert fur Violine
-(5:05) 05. Italienisches Konzert
-(4:25) 06. Largo
-(2:29) 07. Klavierkonzert
-(4:09) 08. Konzert fur Flautino
-(2:32) 09. Siciliano
-(2:29) 10. Trinklied(   Читать дальше...   )Жанр: New ageПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

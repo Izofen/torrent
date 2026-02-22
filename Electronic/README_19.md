@@ -1,3 +1,377 @@
+###  Публикация: 1443880   (1035191) от 30.01.2021
+
+VA - Azura Trance Selections (2021) [MP3|320 Kbps] <Uplifting-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aevus - God's Particle (Time Machine Mix) (07:36)
+02. Andrea Ribeca - Firewire (Andrea Ribeca 2020 Remix) (06:48)
+03. Mario Piu - The Vision 2020 (Les Hemstock Remix) (06:16)
+04. Aevus - Amaterasu (Original Mix) (08:21)(   Читать дальше...   )Жанр: Uplifting-TranceПродолжительность: 03:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D84177C3933AFDA45B1703BF2A111589F53A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443743   (1035190) от 30.01.2021
+
+VA - Talla 2XLC - Carpe Diem (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC - Into The Wormhole (Album Mix)
+02. Talla 2XLC - Mantra (Original Mix)
+03. Talla 2XLC - All The Dreams We Shared (Original Mix)
+04. Alpha Breed - Epic Future (Extended Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27667A61EC31C8D14148F53FD7E8D94727CD0D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443710   (1035183) от 30.01.2021
+
+VA - Pure Synthwave Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Compilerbau - Tachyon (4:37)
+02. The Affirmation - Future Tides (5:40)
+03. Midnight Danger - He Won't Come Back (4:01)
+04. September 87 - Meet Me At The Dance (5:03)(   Читать дальше...   )Жанр: Synthwave, Retrosynth, OutrunПродолжительность: 01:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F53D1227E2661EBD24777FE8D662BC32702E7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443684   (1035148) от 30.01.2021
+
+Martin Gore (from Depeche Mode) - The Third Chimpanzee E.P. (2021) [FLAC|Lossless|Web-DL|tracks] <Electro, Dub Techno, Experimental, Leftfield>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Howler (4:53)
+02. Mandrill (3:59)
+03. Capuchin (3:51)
+04. Vervet (8:28)(   Читать дальше...   )Производство: Mute/Grabbing HandsЖанр: Electro, Dub Techno, Experimental, Leftfield, Modular SynthПродолжительность: 00:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250450A8381CD61AD651D96AE99534D3206C982E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443739   (1035128) от 30.01.2021
+
+VA - A State Of Trance 1000 - Celebration Mix (Mixed by Armin van Buuren) (2021) [MP3|320 Kbps] <Trance, Classic Trance, Progressive Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035128.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Intro - The Boy On His Bike
+002. Andain - Beautiful Things (Gabriel & Dresden Unplugged Mix)
+003. Gareth Emery & Standerwick feat. HALIENE - Saving Light (Extended Mix)
+004. Yuri Kane - Right Back (Extended Mix)(   Читать дальше...   )Жанр: Trance, Classic Trance, Progressive Trance, Uplifting TranceПродолжительность: 15:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ABBA4F92061CE9BA9254A9AEEEBB436684AA693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239854   (1035122) от 30.01.2021
+
+Syndromeda - Discography 34 Releases (1997-2020) SynGate, Luna [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Berlin-School, Dark Ambient, Space>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sparkle (07:00)Тип издания: CD, WebЖанр: Ambient/New AgeПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C52A36318CD46B47740DA7D88DFA966BDBE485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252375   (1035106) от 30.01.2021
+
+VA - Steyoyoke Perception, Vol. 1-8 (2017-2021) Steyoyoke Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Husa & Mustafa Ismaeel - Young, Wild And Free (08:08)
+ 02. Reboq - Aftermath (07:09)
+ 03. Monarke - Magenta (06:43)
+ 04. Dominik Gehringer - Natural Way (06:20)(   Читать дальше...   )Жанр: Tech House/Deep House/Progressive HouseПродолжительность: 02:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BE7F79C22080C3C09352961E4A8149AFBF3A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444039   (1034915) от 31.01.2021
+
+VA - I Know This Track! Vol 1 (Best Of Trance Covers) (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo Van Goch & The Sixth Sense feat. Sevda B - Blinding Lights (Extended Mix)
+02. Kenan Teke - Colossus (Extended Mix)
+03. Claudio Suara - The Purge (Extended Mix)
+04. Madwave & Chris SX - Departure (Chris SX Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48770ED862AF34B34466F178653C1185C4B1FC87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444065   (1034906) от 31.01.2021
+
+VA - Talla 2Xlc - Carpe Diem 2CD (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC - Into The Wormhole (Album Mix)
+02. Talla 2XLC - Mantra (Original Mix)
+03. Talla 2XLC - All The Dreams We Shared (Original Mix)
+04. Alpha Breed - Epic Future (Talla 2XLC Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDAECC1C5807CDF95E6C0BA308DB16A5EE4BA25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444306   (1034666) от 01.02.2021
+
+VA - Silent Shore: Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Lyf - Alive (Extended Mix)
+02. Christopher Corrigan - Sleepless Nights (James Kitcher & Adam Taylor Remix)
+03. Andy Kern (DE) - Accelerate (Original Mix)
+04. Drival - Momentum (Triode Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94861E05647C8CE52DB7887C28AEB6D85E5F038B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618059   (1034566) от 09.03.2023
+
+Arom - A La Vie (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Electronic, Indie Pop, Acid Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A La Vie [00:04:34]
+02. Area [00:06:15]
+03. Jardin D'eden (Ver 2) [00:03:41]
+04. Why [00:02:23](   Читать дальше...   )Жанр: Trip-Hop, Electronic, Indie Pop, Acid JazzПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BD43B47D620EE6F65BBA16FDD7A99C32D98E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617766   (1034561) от 09.03.2023
+
+Acryl madness - Blood Rage Hurricane (2023) [MP3|320 Kbps] <Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Voyage En Enfer [00:03:16]
+02 - Bloody Disco [00:02:43]
+03 - Hurricane [00:04:42]
+04 - Sidewalks [00:02:27](   Читать дальше...   )Жанр: DarksynthПродолжительность: 00:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAD1457E940D1BFF9224AE05E2667723D114970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993253   (1034541) от 01.02.2021
+
+Sonic Area - Collection 11 Releases (2004-2021) [FLAC|Lossless|tracks+.cue, tracks ] <Industrial, Experimental, IDM, Modern Classical>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soot Spirit (03:34)
+ 02. The Silent Way (04:26)
+ 03. The Praying Mantis (05:57)
+ 04. Lotus (04:07)(   Читать дальше...   )Тип издания: CD, WebЖанр: Industrial, Experimental, IDM, Modern Classical •Продолжительность: 10:35:40 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5CD591032FBF7062F53021EEB3E3EC0E1FEDAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444502   (1034460) от 02.02.2021
 
 Bop - Etudes 2008​-​2013 (2020) Microfunk Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Dub, IDM, Microfunk>
@@ -365,383 +739,6 @@ VA - Liquid Drum & Bass Sessions, Vol. 3 (2015) [FLAC|Lossless|WEB-DL|tracks] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A433ED6AECAD3C7DAE5142E0C7BE7C9764DE7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444863   (1034218) от 03.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 1 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denial, Shiva - Don't Forget About Me (Furney Remix) (05:34)
-02. MSdoS, A.k.A - It's You (Original Mix) (05:58)
-03. Swiss, Struz - Together (Original Mix) (05:45)
-04. Exper1menT - Live Already (Original Mix) (07:09)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363510D968D84670AB8F01766D230F3D103ED9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444924   (1034207) от 03.02.2021
-
-Mr.Kitty - -+ (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurt (4:33)
- 02. Let Go (4:05)
- 03. In Loving Memory (3:55)
- 04. Everything Will Be Okay (4:54)(   Читать дальше...   )Жанр: Electronic, Synthwave, DarkwaveПродолжительность: 00:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B125C04A44FB54DFF0C95D4AFF5F913EF81B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618479   (1034124) от 11.03.2023
-
-V.A. - The Best of Chillout Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Komplextum - Drops Of Mystery
-02. Pikomos - Adorning Your Dreams
-03. Aktnuance - Windy Morning
-04. Eulenspiegel - Unique Flowers(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1169AAC04234CEAE04E3DD98E4A5A141242E781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445134   (1034016) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 13 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Extravabaseza - Far Away (Original Mix) (06:26)
-02. Mystific - Letters For Okamura (Original Mix) (05:24)
-03. MSdoS - La Boutique (Original Mix) (06:21)
-04. The Magget - Conveyor Belt (Sonicblast Remix) (03:12)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BD97F37E6DA989CC6E5681AC1332C6D5C2E4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445148   (1034014) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 14 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dub Defense - Early Morning Sun (Original Mix) (06:34)
-02. nCamargo - Evenness (Original Mix) (05:21)
-03. Soulful Nature - Still Love U (Original Mix) (05:03)
-04. Fishy - World Keeps Turning (Original Mix) (05:19)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04B71E573B4E76B67DE3806BB2405E6B0179F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445126   (1034012) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 12 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bronski - Something (Original Mix) (05:23)
-02. Phase 2 - Glissando (Original Mix) (06:01)
-03. Guillotine - Where You Are (Original Mix) (04:29)
-04. Rolfey - Soul Mate (Original Mix) (05:01)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB30B3F9420F6ED825D69F4CEB1F3C653DB70231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445111   (1034010) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 11 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joakim Carley, Reece Lemonius - Warrior (Still A Fighter) (Original Mix) (03:41)
-02. Peyo - Ceremony (Original Mix) (05:47)
-03. Dan Guidance, Marvel Cinema - Sumerians (Original Mix) (06:38)
-04. Nectar - Time To (Original Mix) (05:25)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C637053100252822A65567E705F98962CBCF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445157   (1034008) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 15 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Illusion - Imperia (Original Mix) (05:25)
-02. Geoff Keating - Born Again (Original Mix) (04:44)
-03. Horidark - This Craft (Original Mix) (03:27)
-04. Midst - Touch The Sky (Original Mix) (04:45)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC99CA27F23E16489A5A9CA6C117C5EDDB8C20BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444955   (1034007) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 6 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence Groove - Shine Through (Original Mix) (05:40)
-02. Al Menos - Could Be, Can Be (Original Mix) (07:28)
-03. Ha-Zb - Inside Us (Original Mix) (04:59)
-04. Madcap - Existence (Original Mix) (06:27)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F9F17485036EA7C2AEB7A89753C07FDC292365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444991   (1034006) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Ransome, SynthForce - On The Seafront (Original Mix) (06:21)
-02. Liquid Waves - I Don't Know Why (Original Mix) (05:24)
-03. Shiva, mr porter - She Walks In The Fire (Revolver & Leona Remix) (05:17)
-04. Abstract Illusion - Never Gonna Stop (Original Mix) (05:16)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7247A464AAFE3A77574CAA6D2C9EBAACE4E2B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445000   (1034002) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 9 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redemptive - Within Nature (Original Mix) (07:52)
-02. Payback - Love So Blind (Original Mix) (05:44)
-03. CHILL COLLECTIVE - L.S.D (Original Mix) (05:16)
-04. Critical Event, Azuto - Changes (Original Mix) (06:18)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B442A4A402F0D0F79365001C846D9A2B29D8BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445001   (1034000) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Physics - Far Away (Original Mix) (06:18)
-02. Audioholic - Northside Funk (Original Mix) (05:52)
-03. Tony Future - Chinas (Original Mix) (06:40)
-04. Afferent - Close To You (Original Mix) (04:34)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3EEE9CA47D878751DE62E66EB3C15C70361DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445019   (1033991) от 04.02.2021
-
-VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & HALIENE - Tidal Wave (Extended Mix)
-02. Fonzerelli - Hope (Extended Mix)
-03. F. Massif - Understatement (Arkham Knights Extended Remix)
-04. Kamaya Painters - Wasteland (Nifra & Fisherman Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6436799CEDE8EF2595FD188D9FE51D35EAA7C38F
 ```
 
 https://mybot314.ru/tekegram_catalog/

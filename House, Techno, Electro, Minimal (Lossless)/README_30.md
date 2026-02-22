@@ -1,3 +1,58 @@
+###  Публикация: 1224064   (668112) от 08.05.2018
+
+Carl Craig - Versus & Remixes Vol. 1 & Vol. 2 (2017-2018) Infiné | Beat Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Techno, Neo-Classical, Experimental, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Melody (Henrik Schwarz Remix) (07:42)
+ 02. The Melody (Ishmael Ensemble Remix) (06:25)
+ 03. At Les (Abul Mogard Remix) (10:26)
+ 04. Desire (Secret Of Elements Remix) (09:12)(   Читать дальше...   )Тип издания: CD, WebЖанр: Tech House/Ambient/Techno/Deep HouseПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D55956C2264C5800B87F53829AC584A7B28409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339069   (667412) от 20.05.2011
+
+Class B Band - Movie T (2011) /WRL005CD/ [FLAC|Lossless]<Tech House, Nu-Disco, Techno, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_667412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech House, Nu-Disco, Techno, ElectronicПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224324   (667184) от 09.05.2018
 
 VA - The Sound Of NYLO, Vol. 2 (Compiled & Mixed By Vicent Ballester & The Nurk) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Downtempo>
@@ -687,64 +742,6 @@ VA - Chill House Ibiza 2016 (Finest Chill House Music) (2016) [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EAC1B243523D838AD99D0BDC703A88F8513B6CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227189   (650490) от 24.05.2018
-
-Answer Code Request - Gens (2018) Ostgut Ton [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Breakbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gens (04:08)
- 02. Sphera (06:17)
- 03. Ab Intus (05:05)
- 04. Sensa (07:54)(   Читать дальше...   )Жанр: Ambient, Techno, BreakbeatПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3DE9CE711D94D723048CC6E397EB07D2A803D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031919   (649830) от 05.07.2016
-
-VA - Dezza Pres. Best of Progressive House, Vol. 07 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dezza - Silk Selections 07 (Continuous DJ Mix) [57:54]
-02. Vintage & Morelli - Daydream (Original Mix) [08:51]
-03. Sound Quelle - Allarg (Original Mix) [06:34]
-04. LTN & Roni Joni - In Between (eleven.five Remix) [06:57](   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E08BB2904EEF7A0BF6BD0D4163A7BDCC42AD0BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

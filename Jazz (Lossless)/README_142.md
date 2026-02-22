@@ -1,3 +1,32 @@
+###  Публикация: 1227344   (646936) от 26.05.2018
+
+James P. Johnson - 1921 - 1928 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ragtime, Stride, Early Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Harlem Strut [2:35]
+02. Keep Of The Grass [3:15]
+03. Carolina Shout [2:47]
+04. Carolina Shout [3:00](   Читать дальше...   )Жанр: Ragtime, Stride, Early JazzПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAB8AFAF2C6A0E38E7946EFA87A998FFE4DB318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227466   (646934) от 26.05.2018
 
 Dave Ferris - The Quiet One (1991) Nine Winds Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -724,41 +753,6 @@ Lambert, Hendricks & Ross - Everybody's Boppin' (1989) [FLAC|Lossless]<Jazz, Bop
 08 Sermonette J. Adderley, J. Hendricks [03:47]
 09 Summertime - D. Heyward, G. Gershwin [01:43]
 10 Everybody's Boppin' - J. Hendricks [04:11](   Читать дальше...   )Жанр: Jazz, Bop, VocalФормат: CDПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516563   (643736) от 03.07.2012
-
-Laurindo Almeida & Baden Powell - Brasil Guitar Magic! (1999) [FLAC|Lossless]<Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laurindo Almeida
-01. Samba Medley [05:20]
-02. O Barquinho [04:09]
-03. The Busy Bee [01:20]
-04. Canto Do Ossanha [05:31]
-05. Samba Triste [03:19]
-06. Escadoo [03:06]
-07. Air On A G-String [04:52]
-08. Dorival [05:05]
-(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:00:42
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,33 @@
+###  Публикация: 873836   (866884) от 01.03.2015
+
+First Fragment - The Afterthought Ecstasy EP (2010) [MP3|320 кб/с]<Technical/Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Ordnance 03:43
+2. Fake Repentance 03:59
+3. Obsolete Ascendancy 04:42
+4. Quintessential Rebirth 04:35
+5. The Afterthought Ecstasy 05:05(   Читать дальше...   )Жанр: Technical/Progressive Death MetalПродолжительность: 00:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D128377AC2EB7D3D385CE2524040961BBE1E54CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999127   (866728) от 21.03.2016
 
 Existence - When Tomorrow Comes (2016) [MP3|320 кб/с] <Thrash Metal, Death Metal>
@@ -744,41 +774,6 @@ Heaven Shall Burn - Veto (2013) Ltd. Edition, 3CD Box Set [MP3|320 кб/с]<Melo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6A3C3BE38B227087E95B539BCE0D53699843F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643079   (863587) от 19.04.2013
-
-Amorphis - Circle (2013) [MP3|320 кб/с]<Extreme Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Shades Of Gray 05:27
-02. Mission 04:33
-03. The Wanderer 04:43
-04. Narrow Path 04:23
-05. Hopeless Days 05:08
-06. Nightbird's Song 05:00
-07. Into The Abyss 05:36
-08. Enchanted By The Moon 05:32
-09. A New Day 06:00
-10. Dead Man's Dream 04:03Жанр: Extreme Progressive MetalПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43424515B9D57DE1E2400D716E7A2C0CC674626
 ```
 
 https://mybot314.ru/tekegram_catalog/

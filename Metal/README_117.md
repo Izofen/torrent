@@ -1,3 +1,32 @@
+###  Публикация: 1428706   (179206) от 03.12.2020
+
+Majestica - A Christmas Carol (2020) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_179206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Christmas Carol (01:44)
+ 02. A Christmas Story (05:02)
+ 03. Ghost of Marley (04:39)
+ 04. Ghost of Christmas Past (05:09)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25E39BC7C8FC153DB0722AE3FEA8BEBD90A69B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666750   (179044) от 05.10.2023
 
 L' impero delle ombre - I compagni di Baal (2011) [MP3|320 Kbps] <Doom Metal>
@@ -716,35 +745,6 @@ Decembre Noir - Your Sunset | My Sunrise (2023) [MP3|320 Kbps] <Melodic Doom, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C783D90F8D23243B9BB8C0065FD3BCFF2954D21D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669592   (172642) от 17.10.2023
-
-Dominance - Slaughter of Human Offerings in the New Age Of Pan (2023) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battlefield
-02. Blood Countess
-03. Deadly Winter
-04. Ritual(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD92A97B966BE07896B1CA1551B1E47CE3A48CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

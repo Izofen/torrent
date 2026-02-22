@@ -1,3 +1,119 @@
+###  Публикация: 954738   (339711) от 08.11.2015
+
+Sabrina - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys (Summertime Love) (03:53)
+02. Hot Girl (03:38)
+03. Get Ready (Holiday Rock) (03:20)
+04. Kiss (03:37)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4A6C9DA0E76B1BB3FE1084D550B5C7699AE268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419441   (339708) от 28.10.2020
+
+Earth, Wind & Fire - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339708.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Earth Wind And Fire and The Emotions - Boogie Wonderland (4:50)
+02. Let's Groove (5:33)
+03. Shining Star (2:50)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 03:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0442B744D41625B9481C4B0FE9AD1A19FC70DD83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419427   (339695) от 28.10.2020
+
+VA - 90s Megamix Vol.1: Die Grossten Hits Der 90er (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - 90s Megamix Vol. 1, Pt.1 [1:18:26]
+02. VA - 90s Megamix Vol. 1, Pt.2 [1:19:46]
+03. Robin S. - Luv 4 Luv (Stone's Radio Edit) [4:13]
+04. East Side Beat - Ride Like The Wind (Radio Editing) [3:49](   Читать дальше...   )Жанр: Eurodance, Euro-House, Electronic, DanceПродолжительность: 08:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E790B79C17EA9CC625081AEF2BF52B033DC3886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 839403   (339683) от 10.11.2014
+
+VA - 1981 The Collection (Time Life) (1993) 2CD [FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следующий диск из серии Time Life Music. Решил поделиться. Может кто молодость вспомнит.01. REO Speedwagon - Keep On Loving You  (3:21)
+02. Foreigner - Waiting For A Girl Like You  (4:36)
+03. Robert Palmer - Looking For Clues  (4:19)
+04. Steve Winwood - While You See A Chance  (5:12)(   Читать дальше...   )Жанр: Pop, Rock, Jazz, Electronic
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF88C19502EE8BB082037544D27AF1D476590CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954666   (339594) от 08.11.2015
 
 Gazebo - Reset (2015) [MP3|~245 кб/с (V0)]<Italo Disco, Synthpop>
@@ -632,123 +748,6 @@ Ricchi E Poveri - Perdutamente Amore (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8DE02E58D05628B39DA3BDAC470A9DCE6B20018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419611   (337695) от 29.10.2020
-
-VA - Christmas 2020 Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gwen Stefani - Jingle Bells
- 02. The Vamps - We Wish You A Merry Christmas
- 03. Justin Bieber - Mistletoe
- 04. Brenda Lee - Rockin' Around The Christmas Tree (Single Version)(   Читать дальше...   )Жанр: Pop, Rock, ChristmasПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2113136AF159E42FE3AB51C1753E85568A161542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413145   (337684) от 29.10.2020
-
-Missio - Discography (2016-2020) 3 Albums, 2 EP's, 14 Singles [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Synth-Pop, Future Bass>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337684.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Animal 3:30
-2. I Do What I Want 3:37
-3. Middle Fingers 3:35
-4. I Don't Even Care About You 3:35(   Читать дальше...   )Жанр: Pop-Rock, Synth-Pop, Future BassПродолжительность: 04:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370F6C3127BCB777419624BC919C643BFC3C6180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840092   (337524) от 11.11.2014
-
-VA - 1982 The Collection (Time Life) (1994) [FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий диск из серии Time Life Music. Решил поделиться. Может кто молодость вспомнит.01. Survivor - Eye Of The Tiger  (4:06)
-02. Dexy`s Midnight Runners - Come On Eileen  (4:01)
-03. Asia - Heat Of The Moment  (3:49)
-04. Kim Wilde - View From A Bridge  (3:32)(   Читать дальше...   )Жанр: Pop, Rock, Jazz, ElectronicПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E67AADE6C3D52F950E742B6988436A113D18BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581487   (337430) от 27.11.2012
-
-Enrique Iglesias - 12 альбомов + 7 синглов (1995-2011) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_337430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glam As You Club Mix by Guena LG [07:59]
-02. Junior Caldera Club Mix [05:20]
-03. Jody Den Broeder Club Mix [07:51]
-04. Jody Den Broeder Dub Mix [07:51]
-05. Jody Den Broeder Radio Mix [03:59]Жанр: Pop, DanceПродолжительность: 00:33:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

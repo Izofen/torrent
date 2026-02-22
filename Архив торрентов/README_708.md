@@ -1,3 +1,34 @@
+###  Публикация: 614149   (966051) от 17.02.2013
+
+Семь чудес Crysis 3 / The 7 Wonders of Crysis 3 (Русский трейлер) 1080p
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966051.jpg" />
+</div>
+
+
+###  Подробнее
+
+The 7 Wonders of Crysis 3, которая была создана силами компании
+Crytek и EA при участии голливудского сценариста и продюсера Альберта Хьюза (Albert Hughes).
+
+The 7 Wonders of Crysis 3 рассказывает об основных локациях Crysis 3,
+представит поклонникам игры: оружие, нанокостюм, маскировку, которое позволит сражаться с врагами,
+а также поведает о нововведениях в игровом процессе.Жанр: Action (Shooter) / 3D / 1st PersonПеревод: субтитрыПродолжительность: Эпизод-1: "Адовый город" (00:04:53)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF1FC75B0101AECF97D695EA82718118286F036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359020   (966025) от 10.02.2020
 
 LuLu 1.2.3 [En]
@@ -659,35 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18377D97DF82CCE1FB2577E9930F3EDFE1EB836B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977489   (965780) от 21.01.2016
-
-VA - Looking Back LP Pt 1 (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capsika - Moscow (Original Mix)
-02. Euphorics - We Will Win (Original Mix)
-03. Innaself - Colours In Time (Original Mix)
-04. Levite - Radio (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9347227DFFA7D7C5F0325F32D9FEE0730C286B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 563170   (410800) от 20.10.2015
+
+Ace Of Base - 25 Best Songs (2012) [MP3|320 кб/с]<Pop,Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop,EurodanceПродолжительность: 01:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F96B1D8829D5F31A7B6F37F627EACF3A1114BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168263   (410353) от 23.09.2017
+
+Fergie - Double Dutchess (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hungry (feat. Rick Ross)
+02. Like It Ain't Nuttin'
+03. You Already Know (feat. Nicki Minaj) (Interlude Version)
+04. Just Like You(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA49AA2576545E221EF97FD7B31F7F194301B47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573766   (410329) от 01.09.2022
+
+Modern Talking - In The Middle Of Nowhere - The 4th Album (1986) [OGG Vorbis|485 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geronimo's Cadillac	3:16
+02. Riding On A White Swan	3:52
+03. Give Me Peace On Earth	4:11
+04. Sweet Little Sheila	3:03(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:522C021F848BB4C14D8E3AAB6AE6DEDC3A01E647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066702   (410177) от 27.10.2016
+
+Buck Lucky - The American Way (2015) [MP3|320 Kbps] <Traditional American Pop, Country Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The American Way
+02. Crown the K1ng (feat. Boots)
+03. College Girls
+04. Interlude (feat. Yung Peavy)(   Читать дальше...   )Жанр: Traditional American Pop, Country PopПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE53776A715B9C8191A2861959B3EF93A1AC150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413303   (410002) от 03.10.2020
 
 Robson Green - Moment In Time (2002) [FLAC|Lossless|image + .cue] <Rock, Pop Rock, Folk Rock, Ballad>
@@ -627,122 +740,6 @@ VA - Sad Songs 2020 [MP3|320 Kbps] <Pop, Ballads, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A63FB579BB8253D59AC380A8D686CF3EF9842243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413598   (408430) от 04.10.2020
-
-It's Immaterial - Life's Hard And Then You Die (1986) 2016, Deluxe Edition, 30th Anniversary Edition [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space (Peel Session) (03:49)
-02. Hang On Sleepy Town (Peel Session) (04:11)
-03. Festival Time (Peel Session) (03:31)
-04. Rope (Peel Session) (03:32)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 02:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D6077BE84187C28C6FF429DDFA0602DCC05681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413655   (408341) от 04.10.2020
-
-VA - Euro Disco - The Lost Legends Vol. 30 (2019) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spin - We Sacrifice (Dub Mix) [00:05:45]
-02. Manige - Romeo Love [00:03:10]
-03. Pierre Groscolas - She's A Lady (Mix Long Version) [00:05:31]
-04. Tony Caso - All The Love In My Heart [00:05:09](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9589A1E9B52028891012BE0C1193EE2DCD5C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188056   (408278) от 02.09.2022
-
-ВИА Песняры - Лучшее (2009) [FLAC|Lossless]<РОР>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОРПродолжительность: 01:19:45
-
-01. Белая Русь Ты Моя [02:38.25]
-02. Любовь [03:44.58](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0D8D07406F48B99A5E1ED5CB297FA75E175C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413541   (408208) от 04.10.2020
-
-Melanie C - Melanie C (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who I Am
-02. Blame It On Me
-03. Good Enough
-04. Escape(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AEC9DABC15D864819F7B92DB662978E2CF39356
 ```
 
 https://mybot314.ru/tekegram_catalog/

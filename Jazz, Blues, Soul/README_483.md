@@ -1,3 +1,32 @@
+###  Публикация: 1597592   (165872) от 15.12.2022
+
+Goodbye June - See Where The Night Goes (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Step Aside (4:08)
+02. See Where The Night Goes (3:49)
+03. Breathe And Attack (4:01)
+04. Take A Ride (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB360C5F985F4E5A6C0F481B16C64C3F184BD8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 341515   (165837) от 15.12.2020
 
 Berk & The Virtual Band - Jazz Chill / Jazz Chill Vol.2 (2006, 2007) [APE, FLAC|Lossless|image + .cue]<Jazz, Smooth Jazz>
@@ -713,35 +742,6 @@ Erroll Garner - 1946-1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45829B6E55B4516E536EC941CD1104A4723261FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346126   (164631) от 18.12.2019
-
-Toshiko Akiyoshi And Charlie Mariano - East & West 1963 (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haru-No-Umi [7:17]
-02. Stone Garden of Ryoan Temple [14:27]
-03. Tonight [6:13]
-04. Something's Coming [2:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621C4BFE620095CE8ECD5F1330C0C220E431290A
 ```
 
 https://mybot314.ru/tekegram_catalog/

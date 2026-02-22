@@ -1,3 +1,90 @@
+###  Публикация: 1609967   (1042611) от 06.02.2023
+
+Brother Kerry & the Hoptones - Into the Pocket (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them Changes (3:56)
+02. Going Down (4:07)
+03. 32-20 Blues (4:53)
+04. Dimples (feat. James Montgomery) (2:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:4029
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1B3083A0CAAA7384D4B121802E7CF9E792BFBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609982   (1042608) от 06.02.2023
+
+Graywolf Blues Band - Best of Graywolf Blues Band (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thin Line (feat. Ellen Todleben) (3:29)
+02. Dancing in the Rain (feat. Angel Moore) (4:24)
+03. Stormy Monday (feat. Ellen Todleben & Angel Moore) (4:31)
+04. Women Across the River (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66FB170558464970790E1204C89AA2CAE36E4694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609983   (1042600) от 06.02.2023
+
+Lex Grey and The Urban Pioneers - How Many Roads (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In It Together (5:02)
+02. How Many Roads? (3:50)
+03. Ain't from Mississippi (3:58)
+04. Old Crookedy Broom (4:27)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E44B8FF1BA4FC21D6C417A8651AFE024B4467D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437050   (1042517) от 03.01.2021
 
 Enrico Pieranunzi - Live In Paris (2001) 2CD, 2005, Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -658,93 +745,6 @@ Andy Seagrave - The Jungle (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CD83B58793D87C0122A1EEC502669355EA63F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437938   (1041693) от 06.01.2021
-
-Mick Clarke - Relentless Boogie Pt. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Settle on It (4:32)
-02. Break It Down (4:34)
-03. Little by Little (5:25)
-04. Rollin' on (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7098CA41886775B775C4784CCD6CD32AABB2D124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437823   (1041689) от 06.01.2021
-
-Bad Mileage - A Bridge Too Far (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Checking up on my baby (04:44)
- 02. Got my eyes on you (03:46)
- 03. Cry for me (04:38)
- 04. Got home last night (04:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2395BEEFC79CF80F95854168E8B50D2BB8AD7C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611086   (1041680) от 10.02.2023
-
-Art Blakey & The Jazz Messengers - Buhaina's Delight (1961) 2004, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backstage Sally [5:58]
-02. Contemplation [6:16]
-03. Bu's Delight [9:22]
-04. Reincarnation Blues [6:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFF109A7A9232BF91BDD8260A5D78D74160A8D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

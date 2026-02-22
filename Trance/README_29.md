@@ -1,3 +1,32 @@
+###  Публикация: 1165767   (430611) от 14.09.2017
+
+Paul Oakenfold - Generations - Three Decades Of Dance (2017) 3 CD[Box set] [MP3|320 Kbps]<Trance,House,Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sueno Latuni, Manuel Goettsching & E2E4 – Sueno Latino (Paradise Version) (05:00)
+02. M/A/R/R/S – Pump Up The Volume (02:03)
+03. Steve "Silk" Hurley – Jack Your Body (Club Your Body) (03:52)
+04. Joe Smooth – Promised Land (02:18)(   Читать дальше...   )Жанр: Trance,House,ElectronicПродолжительность: 03:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FA3A1747AF8308C67767A36F022E2AEB351749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166002   (428655) от 15.09.2017
 
 VA - Trance International (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -716,35 +745,6 @@ VA - A State Of Trance Classics Vol.12 (The Full Unmixed Versions) (2017) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8716DE5B6911DFCD7B0B985E9266BFAAE62519FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413060   (411901) от 02.10.2020
-
-VA - Individual Collection Vol.9 (2020) [MP3|320 Kbps] <Trance, Big Room, Drum & Bass>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5Beat - Tesla (Original Mix)
-02. 5Beat & Nuaro - Overpressure (Original Mix)
-03. 5Beat & Trivia - Universal Language (Original Mix)
-04. Alex Kudryavtsev - Alienation (Original Mix)(   Читать дальше...   )Жанр: Trance, Big Room, Drum & BassПродолжительность: 03:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51770614642E3A527015A0FE4D3690EE5987457C
 ```
 
 https://mybot314.ru/tekegram_catalog/

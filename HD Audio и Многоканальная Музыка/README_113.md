@@ -1,3 +1,174 @@
+###  Публикация: 1713676   (111895) от 06.04.2024
+
+Garbage - Bleed Like Me (2005) Remaster, 2024, Liberator Music [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative rock, post-grunge, electro-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boyfriend (2024 Remaster) (3:47)
+02. Run Baby Run (2024 Remaster) (3:58)
+03. Right Between the Eyes (2024 Remaster) (3:56)
+04. Why Do You Love Me (2024 Remaster) (3:54)(   Читать дальше...   )Жанр: Alternative rock, post-grunge, electro-rockПродолжительность: 01:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0181FB9CEAD37030FD4BDF573FC28D2D0916549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713739   (111894) от 06.04.2024
+
+Джоконда (DЖОКОНDА, Елена Минина) - Коллекция (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111894.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Джоконда» - российская рок-группа, главным образом работающая в жанре симфонического метала. Вокалисткой и лидером группы является Елена Минина.2021 - Каждый Охотник Желает Знать
+2024 - Последний законЖанр: Symphonic Metal/RockПродолжительность: 01:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA8D2A14151DCE3F81C3BDAE081E59736F9F63F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713533   (111882) от 06.04.2024
+
+Attic - Return of the Witchfinder (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Covenant
+02. Darkest Rites
+03. Hailstorm And Tempest
+04. The Thief's Candle(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF0CC6ACB8F00EFF2D58BD4B24B43E3C5083AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713681   (111867) от 06.04.2024
+
+The Bravery - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-punk Revival>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111867.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bravery — американская рок-группа из Нью-Йорка.2005 - The Bravery
+2008 - The Sun And The Moon Complete
+2009 - Stir the BloodЖанр: Post-punk RevivalПродолжительность: 02:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD05AD42A0C4186167B8C21AA8E32A632276429F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713655   (111857) от 06.04.2024
+
+The KVB - Tremors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <New Wave, Synthwave, post punk, shoegaze, coldwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Negative Drive
+02 – Words
+03 – Tremors
+04 – Labyrinths(   Читать дальше...   )Жанр: New Wave, Synthwave, post punk, shoegaze, coldwaveПродолжительность: 00:35:3003
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF5EB2774D006D6635D19E4D4920DABBCBE3A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713734   (111799) от 07.04.2024
+
+Eunuchs - Harbour Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Death Sea Nemesis (6:08)
+02. Pat a Dragon (4:20)
+03. Estuary of Dream (4:30)
+04. Siren (4:48)(   Читать дальше...   )Жанр: Avant-prog, jazz-rock, baroque popПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1758C22ED882FCD71236E6AB90ED2F51BE0DE855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713994   (111797) от 07.04.2024
 
 Symakya - Project 11: The Landing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic, Progressive Metal>
@@ -568,180 +739,6 @@ The Mind Sweepers - All This Too Shall Pass (2024) [FLAC 24/44.1|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:646FD47601FDF0A656563F2DE97E934B7F69ACDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714676   (111652) от 10.04.2024
-
-The Dirty Nil - Free Rein To Passions (2023) Deluxe, 2024, Dine Alone Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Celebration (00:03:31)
-02 - Nicer Guy (00:02:44)
-03 - Undefeated (00:02:50)
-04 - Atomize Me (00:03:01)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AFDCCF7112BBA5475AC0F931F6CA2783A5882C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714886   (111650) от 10.04.2024
-
-Hubert Dorigatti - The Nashville Sessions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Low Down (4:21)
-02. Whiskey Drinkin Woman (3:48)
-03. You Are My Root (4:18)
-04. Freedom (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE5D955537529AE5B988E8879EA2D9BE45AD1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714882   (111649) от 10.04.2024
-
-Charlie Parr - Little Sun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Portland Avenue (4:30)
-02. Little Sun (3:57)
-03. Bear Head Lake (7:21)
-04. Boombox (3:56)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0679E731A6FC89667785C4CCA6E03A84506B5C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714896   (111612) от 11.04.2024
-
-Nienke Dingemans - Ain't No Hollywood Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood Girl (2:51)
-02. The House of Lily Jones (2:31)
-03. Southern Way (4:07)
-04. Blue Eyed Dreams (2:31)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22590F0771A15CBF4C6981313BBFF2D9320016DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714946   (111605) от 11.04.2024
-
-Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Math Metal, Djent>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Periphery — американская группа, играющая в жанре прогрессивный метал. Возникла в 2005 году в городе Бетесда. Группа популяризовала современный прогрессивный метал, в особенности поджанр джент.2010 - Periphery
-2011 - Icarus (EP)
-2012 - Periphery II: This Time It's Personal
-2014 - Clear (EP)Жанр: Progressive/Math Metal, DjentПродолжительность: 08:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC09D39B5C765154131DE943D3A59AD10BBD084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714903   (111601) от 11.04.2024
-
-Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm a Little Mixed Up (3:18)
-02. 99 1/2 (3:40)
-03. San Francisco (4:12)
-04. Don't Let Me Be Misunderstood (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB6E554A0A20CD14FD5EDB09CB32AD960A82CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

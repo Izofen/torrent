@@ -1,3 +1,32 @@
+###  Публикация: 1201175   (792880) от 24.01.2018
+
+VA - True Hits Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer  -  True (Temple One Radio Edit)  3:34
+02.  Alpha Force & Mike Van Fabio feat. Robin Vane  -  Save Me (Radio Edit)  3:40
+03.  LTN & Attila Syah  -  B29 (Original Mix)  4:24
+04.  Christian Zechner & Three Faces  -  Lost In Time (Steve Allen Radio Edit)  4:23(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB92CEF6DA583F3A9FD02D9BDD12E8C515AFEA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201247   (792691) от 24.01.2018
 
 VA - Vocal Trance Hits 2018 Vol.1 (2018) [MP3|320 Kbps] <Vocal Trance>
@@ -715,35 +744,6 @@ VA - Silk Music Pres. Talamanca 01 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B3A8F5761965524C1CF4F62652C564ED0E264E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204117   (785384) от 04.02.2018
-
-Aelyn - Voice Of Suanda Vol. 5 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Aelyn & Feel - If You Feel Love (Original Mix)
-02.Aelyn - Game Over (Ruslan Radriges Remix)
-03.Aelyn & Universal Sense - Be Where You Are (Vocal Mix)
-04.Aelyn - Water & Fire (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234A16E83E38ABC99EE3CD08C14C7FC54E194598
 ```
 
 https://mybot314.ru/tekegram_catalog/

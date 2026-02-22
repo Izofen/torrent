@@ -1,3 +1,32 @@
+###  Публикация: 1184188   (303525) от 16.11.2017
+
+Cavalera Conspiracy - Psychosis (2017) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303525.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 	Insane
+2. 	Terror Tactics
+3. 	Impalement Execution
+4. 	Spectral War(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD29A203F5056CB6A250E700E37C5B6E0C1886F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261513   (303430) от 11.11.2018
 
 1914 - The Blind Leading The Blind (2018) [MP3|320 Kbps] <Blackened Death Metal>
@@ -728,35 +757,6 @@ Megaherz - Erdwarts (2015) EP [MP3|320 кб/с]<Industrial Metal, NDH>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FB4578ECF406AB28F094A267A9ACAAE7145D380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424131   (296029) от 15.11.2020
-
-Sombre Holiday - The Failed Sun (2020) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Second Son (04:09)
- 02. Man of the Earth (04:30)
- 03. Masterpiece (07:58)
- 04. New Darkness (06:21)(   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F515D885C7F9734CF51FF0D94C0C2709B9AAA65
 ```
 
 https://mybot314.ru/tekegram_catalog/

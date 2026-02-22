@@ -1,3 +1,31 @@
+###  Публикация: 1526922   (737809) от 26.01.2022
+
+Downie 4 v4.4.6 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE331C0A716273F4C9E4BD151FE9BCF556148AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526905   (737791) от 26.01.2022
 
 AusLogics Disk Defrag Ultimate 4.12.0.2 RePack (& Portable) by 9649 [Multi/Ru]
@@ -653,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:375E936385ECF2887B19519A9CF42CEA2F3AE553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786751   (737541) от 15.05.2014
-
-Google Nik Software Complete Collection 1.2.0.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Nik Collection — это наиболее полная коллекция плагинов от одного из лучших производителей плагинов для Adobe Photoshop. Complete Collection включает в себя полный набор плагинов для Adobe Photoshop®, Lightroom® and Aperture® including: Dfine® , Viveza® , HDR Efex Pro™, Color Efex Pro™, Silver Efex Pro™and Sharpener Pro™ . С помощью этих плагинов вы сможете (   Читать дальше...   )Язык интерфейса: Русский, English и пр.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE9BDB0401C2DFA562F1B673BC0F6FD3B818170
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,115 @@
+###  Публикация: 1851211   (1054988) от 01.02.2026
+
+Savage - Eternity (2026) 2CD [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Italo Disco, Synthpop>
+
+>>Pop
+>>Eurodance, Disco (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Savage - Eternity (2026) FLAC (24-Bit, 48 kHz)
+Savage - Eternity (Remixes) (2026) FLAC (24-Bit, 44.1 kHz)Жанр: Italo Disco, SynthpopПродолжительность: 2 CD, 01:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59B87788E1C8E90CDA93693E058BFE03312F57F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849411   (1054878) от 31.01.2026
+
+VA - The Biggest Songs of 2000s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coldplay - Viva La Vida - (04:02)
+ 02. David Guetta - Sexy Bitch (feat. Akon) - (03:16)
+ 03. B.O.B - Nothin’ on You (feat. Bruno Mars) - (04:28)
+ 04. Roxette - Milk and Toast and Honey - (04:05)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 04:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CFF68E93208A9939F6223D53CF4CC2BC35FE3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850967   (1054777) от 31.01.2026
+
+Polnalyubvi - Коллекция (2018-2024) [FLAC|Lossless|tracks] <Pop, Indie>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, IndieПродолжительность: 02:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40F992B514B330DA048701962438BEF2427E1DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850243   (1054253) от 26.01.2026
+
+Alexander Rybak - Fairytales (2009) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roll with the Wind [00:03:34]
+02. Fairytale [00:03:03]
+03. Dolphin [00:04:15]
+04. Kiss and Tell [00:03:21](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208987B9D52D14FABBF021276DED791715D94FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850231   (1054249) от 26.01.2026
 
 Alexander Rybak - Fairytales Too (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +741,6 @@ VA - Today’s Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A962A06732B3AA23DFCFC05FD2815B1FD65A8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848796   (1053084) от 18.01.2026
-
-VA - Disco Hits of The '70s, '80s & '90s (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballad, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thea Austin SNAP! - Rhythm Is Dancer (3:44)
-02. Company B - Fascinated (Re-Recorded) (4:43)
-03. Jagged Edge - Where the Party At? (Re-Recorded) (4:24)
-04. Leif Garret - Play That Funky Music (4:28)(   Читать дальше...   )Жанр: Pop, Ballad, DiscoПродолжительность: 05:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94219E3AF657AD833AAE0533352B0D78DA357BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848240   (1052842) от 16.01.2026
-
-Robbie Williams - Britpop (2026) [MP3|320 Kbps] <Pop, Soft Rock, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocket (02:47)
-02. Spies (03:24)
-03. Pretty Face (03:47)
-04. Bite Your Tongue (02:50)(   Читать дальше...   )Жанр: Pop, Soft Rock, Dance-popПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA710D1336FDEB927CAD7796DFE60CA063FBF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848471   (1052695) от 17.01.2026
-
-Robbie Williams - BRITPOP (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocket
-02. Spies
-03. Pretty Face
-04. Bite Your Tongue(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14436AD425D3402180B3C2D73992EB3FB51D4F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848474   (1052693) от 17.01.2026
-
-Dj Bobo - The Great Adventure (2026) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro-The Great Adventure
-02. The Great Adventure
-03. Without You
-04. Sombrero(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B343D906202D9A883A1FA08B36144C59B515AE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1082570   (277255) от 13.12.2016
+
+VA - Снегопад новинок (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277255.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.John Legend - What You Do To Me 3:22
+002.Craig David - Louder Than Words 4:06
+003.Mainstream One - Сойти От Тебя С Ума 3:19
+004.Clean Bandit Feat. Sean Paul & Anne-Marie - Rockabye 4:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FF3E935C49D813016BAF6B14AA652D61CAA649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187884   (277158) от 30.11.2017
 
 VA - German Top 100 Single Charts 01.12.2017 [MP3|320 Kbps] <Pop>
@@ -692,35 +721,6 @@ VA - New Releases of the 24th Week of 2018 (2018) [MP3|320 Kbps] <Pop, Tropical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A54AF428921A63DCB4348A8C2EF9FA97B0277899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265368   (274134) от 28.11.2018
-
-VA - New Music Releases Week 47 of 2018 (2018) [MP3|~229 - 320 Kbps] <Dance, Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274134.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Rose, Jory Boy - More More
-002. Ferreck Dawn, Robosonic - In Arms (A-Trak Remix)
-003. Busta K - Want Your Body
-004. Borgeous, Morgan St. Jean - Famous (Riggi & Piros Remix)(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 08:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0FE2565D318D3476862C7A9DF7E80C9AB51794
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1270605   (157548) от 19.12.2018
+
+Swizz Beatz - Poison (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Conscious, Trap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poison Intro (feat. Áine Zion) (1:43)
+02. Pistol On My Side (P.O.M.S.) (feat. Lil Wayne) (2:34)
+03. Come Again (feat. Giggs) (2:59)
+04. Something Dirty / Pic Got Us (feat. Jadakiss, Kendrick Lamar & Styles P) (2:46)(   Читать дальше...   )Производство: Epic ,Swizz Beatz Productions - 886447147726Жанр: Hip-Hop, Conscious, TrapПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DA575CA4CEF5484422DD726B0A5ED3BD54FAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270542   (156980) от 19.12.2018
+
+Lindemann - Mathematik (2018) Single [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156980.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mathematik (A19) (feat. Haftbefehl)
+2. Mathematik Sture Mix
+3. Mathematik (Remix A4) (feat. Haftbefehl)
+4. Mathematik (Benson Remix) (feat. Haftbefehl)Жанр: Rap, Hip-HopПродолжительность: 00:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44DF811C6F332887F7D24AD681A62E39237148E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600651   (155607) от 28.12.2022
 
 Pra(Killa'Gramm) - БЕЗОБРАЗИЕ (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -699,64 +757,6 @@ Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF015636699C691C9258C717D5B7AF4321180F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823116   (117637) от 10.10.2025
-
-Заточка - Опять за старое (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Country>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117637.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. С горы
-2. Одинаковые лица
-3. Останемся (skit)
-4. Из 90-х(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66FB81EDE05E9E900127C8B22B5F49AE481FD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823112   (117633) от 10.10.2025
-
-Заточка - Опять за старое (2025) [MP3|320 Kbps] <Rap, Hip-Hop, Country>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117633.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. С горы
-2. Одинаковые лица
-3. Останемся (skit)
-4. Из 90-х(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDECB54B3826EA90290737F532CB40111932608
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1185624   (291596) от 22.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 025 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Удача - Не Мечтайте И Не Гадайте ( 1993 )
+02. Гаврош ( Владимир Харламов-Тютиков ) - Пускай Немного Жаль ( 1991 )
+03. Компания ( Вячеслав Диденко ) - Парусник ( 1989 )
+04. А-Я ( Валерий Чистяков ) - Мари ( 1991 )(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BE16EBC03F8CA2E69CA5D64ED8160E41514764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185625   (291589) от 22.11.2017
 
 VA - Русская Дискотека ХХ Века от Ovvod7 - 026 (2017) [MP3|320 Kbps]<Pop>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A20D99BC85276DBA0008D57146B1428D0E41EBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336236   (280667) от 06.11.2019
-
-VA - Ballad About Love Vol. 02 (2019) [MP3|320 Kbps] <Pop, Lyric, Romantic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280667.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marlon Roudette - Come Along
-002. Lea Michele - Gone Tonight
-003. Cheryl Cole - Only Human
-004. Sebastian Wijk - Just Say(   Читать дальше...   )Жанр: Pop, Lyric, RomanticПродолжительность: 09:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0898281C9A533F1EC10407589E3BF184F00DEEAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

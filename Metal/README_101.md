@@ -1,3 +1,32 @@
+###  Публикация: 1376564   (241764) от 18.04.2020
+
+Throwdown - Take Cover (2020) [MP3|320 Kbps] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Becoming [00:03:18]
+02 - Propaganda [00:03:38]
+03 - London Dungeon [00:04:04]
+04 - Planets Collide [00:04:35](   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D672B89B800133510D8C2E91C13D735CF63C31C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617903   (241689) от 10.03.2023
 
 Septicflesh - A Fallen Temple (1998) [MP3|320 Kbps] <Atmospheric, Symphonic Death Metal>
@@ -717,35 +746,6 @@ Terrifier - Trample the Weak, Devour the Dead (2023) [MP3|320 Kbps] <Thrash Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:491B0374D5D676FA6D051E3FA76880C186523656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635492   (239702) от 26.05.2023
-
-The Silent Rage - Nuances Of Life (2023) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Serpent Lord
-02. Code Of Destruction
-03. Carve Your Rage
-04. Crows Fly Back(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1556E0AB79E7A1F36FEDD0AC31BD58030328DB50
 ```
 
 https://mybot314.ru/tekegram_catalog/

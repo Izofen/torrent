@@ -1,3 +1,32 @@
+###  Публикация: 1195824   (138290) от 31.12.2017
+
+Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138290.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Guru Puja (5:03)
+2. Sundhara Chalisa (17:48)
+3. Namoh (10:24)
+4. Devi Chant (10:14)(   Читать дальше...   )Жанр: Meditative, Mantras, EthnicПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACA517BA436E103D2EE13B04432A8E49FBFFC7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195762   (138081) от 31.12.2017
 
 Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electronic, Pop Rock>
@@ -800,35 +829,6 @@ Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681768   (132348) от 04.12.2023
-
-Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dendera (11:05)
-02. Pillars of Eternity (9:28)
-03. Of Lapis and Gold (11:36)
-04. Hieroglyphs and Mysteries (10:00)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D105DD6AF02AC95796DE260F103CC6366D0583A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 936132   (493442) от 12.09.2015
+
+25/17 - Пар (2015) EP [MP3|320 кб/с]<Rap-Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Торт
+02. Каток
+03. Людмила
+04. Пар(   Читать дальше...   )Жанр: Rap-RockПродолжительность: 00:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3DA0A123EFD75016BDF724DC534DAE79D70F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054015   (491946) от 20.09.2016
+
+Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Have Candy
+02. Daddy
+03. Banana Brain
+04. Shit Just Got Real (Feat. Sen Dog)(   Читать дальше...   )Жанр: Hip-Hop, ElectronicПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5504BA87C1C2371A2BA5207F77911A96A7B90AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054888   (491446) от 20.09.2016
 
 MiyaGi & Эндшпиль - HAJIME Part.2 (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -693,64 +751,6 @@ Apollo Brown & Skyzoo - The Easy Truth (2016) [FLAC|Lossless|tracks] <Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63A53EA45F59F78D715781A6E11B35CE21A4F995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322008   (450631) от 28.08.2019
-
-Kaisa - K.M.K. (2010) Bonus Edition [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K.M.K.
-02. Endlich Klartext
-03. Donnie Brasco
-04. So Krank Kann Der Typ Nicht Sein(   Читать дальше...   )Жанр: German Hip-Hop, RapПродолжительность: 01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14067DE5B48A68728B70183CDD2D897322BDBCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061625   (448214) от 10.10.2016
-
-VA - Chillhop Essentials - Fall (2016) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Hop, Chillhop, Instrumental Jazz>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aso – Seasons (4:26)
-02. The Cancel – Point (2:39)
-03. Brock Berrigan – Owl Farm (2:46)
-04. Philanthrope – Things Fall Apart (2:17)(   Читать дальше...   )Производство: Chillhop RecordsЖанр: Hip-Hop, Instrumental Hip-Hop, Fusion, Chillhop, Instrumental Jazz, Trip HopПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C846ACFC7CA027FA9D69395B0ECD3B3E47B1CEF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

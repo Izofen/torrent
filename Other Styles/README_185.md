@@ -1,3 +1,32 @@
+###  Публикация: 1720924   (109797) от 10.05.2024
+
+Elyanna - WOLEDTO (2024) [MP3|320 Kbps] <World, Arabic, R&B>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woledto [02:03]
+02. Ganeni [02:57]
+03. Callin' U (Tamally Maak) [01:57]
+04. Al Sham [02:46](   Читать дальше...   )Жанр: World, Arabic, R&BПродолжительность: 00:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C61B4F7B790846A18C1DBE245093B3737E48D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722754   (109604) от 14.05.2024
 
 Mark Ashley - Instrumentals Vol. 2 (2024) [MP3|320 Kbps] <Instrumental Pop>
@@ -709,35 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C458B78F841D847019834360D7A2055BB8C7BBFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747207   (104775) от 04.09.2024
-
-VA - Music for Yoga & Meditation (Soft, Soothing Instrumentals) (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike L Scott - For Better Times (2:43)
-02. Jaywalker6 - Your Melody (3:59)
-03. Rushana - Vøringsfossen (2:46)
-04. Guido Zitti - Risvegli (3:22)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 01:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391DC54F19F4405835BF310AD7B6A311BFE85D31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1189864   (269622) от 07.12.2017
-
-Yusef Lateef - Hush 'N' Thunder (1972) 1998, 32Jazz [WavPack|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Sunday [02:34]
-02. The Hump [04:43]
-03. Opus Pt.I/Opus Pt.II [08:09]
-04. This Old Building [02:43](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421D81CD1C0D7B423F0B37966B00A058DFCFD93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266776   (269227) от 03.12.2018
 
 Wilbur Harden & John Coltrane - Tanganyika Strut (1958) 1991, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -745,6 +716,35 @@ Art Van Damme - State Of Art (1967 - 1970) 2000, MPS [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7338F385202F1EC9A63BA29B79C75EF4B4344282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 429373   (266615) от 29.12.2011
+
+Nicki Parrott - Moon River (2008) [FLAC|Lossless]<Mainstream Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon River (4:03)
+02. Is You Is Or Is You Ain't My Baby? (4:09)
+03. Say It Isn't So (3:22)
+04. You'd Be So Nice To Come Home To (3:41)(   Читать дальше...   )Жанр: Mainstream Jazz, Vocal JazzПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

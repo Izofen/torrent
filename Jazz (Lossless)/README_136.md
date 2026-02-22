@@ -1,3 +1,32 @@
+###  Публикация: 1537902   (665586) от 18.03.2022
+
+Junior Mance Trio - Live At Cafe Loup (2007) JunGlo Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broadway [5:12]
+02. Blue Monk [8:51]
+03. For Dancers Only [9:06]
+04. What Is This Thing Called Love? [12:24](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D9BD8BF9B90694B0BE9C93CB68284580A8E2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224634   (664894) от 11.05.2018
 
 Helen Merrill - Parole E Musica (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -713,35 +742,6 @@ Chie Ayado & Junior Mance - Only You (1996) 2010, Ewe Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5229ACD1CDF703E68ACAEE6C397CCDEBCE8300D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139127   (661194) от 01.06.2017
-
-Tape Five - Soiree Deluxe (2017) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Step into My Time Machine
-02. Hush Hush Magazine
-03. Love Gun
-04. Get Down Luna Park(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E8BBC9473B4F2CA3DE71976468929C7255C675
 ```
 
 https://mybot314.ru/tekegram_catalog/

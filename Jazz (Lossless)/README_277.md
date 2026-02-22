@@ -1,32 +1,3 @@
-###  Публикация: 1637244   (235163) от 03.06.2023
-
-Anita Baker - Christmas Fantasy (2005) Par Media Music [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frosty's Rag (Frosty The Snowman) [3:48]
-02. Christmas Time Is Here [4:40]
-03. I'll Be Home For Christmas [5:26]
-04. Christmas Fantasy [4:36](   Читать дальше...   )Жанр: Smooth Jazz, Soul, R&BПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3A8D0856E36E8465BC78C418EB665FF7E7DEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620146   (235143) от 19.03.2023
 
 Charles Mingus - Let My Children Hear Music (1971) 1988, Sony [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
@@ -742,6 +713,35 @@ Roberto Gatto - Replay (2012) Parco Della Musica Records [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9878E3F2CD610E0869C0D39AAD2D565EC92F9D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642898   (234387) от 29.06.2023
+
+Igor Fedotov - Believe in Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Classic You (5:18)
+02. Soul Master (4:29)
+03. It’s All About Love (4:12)
+04. Believe In Love (5:18)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08AA4E8C219221ADEA9037EDDBD1021300B1B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

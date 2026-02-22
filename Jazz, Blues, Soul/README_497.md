@@ -1,3 +1,32 @@
+###  Публикация: 1086852   (148768) от 26.12.2016
+
+Jack Wilson - Song For My Daughter (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Imagine [04:28]
+ 02.Herman's Helmet [04:36]
+ 03.Changing With The Times [03:05]
+ 04.Night Creature [03:58](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE6B41B5ABBF31CFC3536B6E5ACFEB4F5C30395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589364   (148766) от 15.12.2012
 
 Vargas Blues Band - Vargas Blues Band & Company (2012) [MP3|320 кб/с]<Blues Rock>
@@ -733,35 +762,6 @@ Clement Simon - Man on the Moon (2018) jazz family [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F805B958360D3EBFC905CED24929D5F19B4542C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347853   (147612) от 25.12.2019
-
-Gerry Mulligan - Four Classic Albums: Third Set 1955 - 1957 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147612.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Mud Bug [5:08]
-02. Sweet And Lovely [5:08]
-03. Apple Core [5:29](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321CFACBB3FE5B496E6A419DD5FEEA1DFD58B572
 ```
 
 https://mybot314.ru/tekegram_catalog/

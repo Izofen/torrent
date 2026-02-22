@@ -1,3 +1,32 @@
+###  Публикация: 815924   (550610) от 25.08.2014
+
+AGYA - ANEMOΣ (2014) [FLAC|Lossless|WEB-DL]<Industrial, IDM, Experimental, Power Noise>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hal (4:49)
+ 02. Giggle (4:27)
+ 03. Jaws (4:12)
+ 04. Is That You? (4:52)(   Читать дальше...   )Жанр: Industrial, IDM, Experimental, Power NoiseПродолжительность: 01:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12169C9020574F67EDE576B05BEB815B79F8683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 748404   (550576) от 25.07.2018
 
 Geomatic & Lagowski - Cosmochemistry (2014) M-Tronic [FLAC|Lossless|tracks+.cue]<IDM, Tribal, Industrial>
@@ -685,32 +714,6 @@ AnyMP4 Video Enhancement - Видеоредактор для повышения 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54A91FEC046ADA6A8AD59D86579EF831AD19EE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309547   (550346) от 20.06.2019
-
-Tipard HD Video Converter 9.2.18 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tipard HD Video Converter - программа, видео конвертер файлов различных форматов в HD видео, поддержка HD TS, HD MTS, HD WMV, HD MPG, HD MPEG4, H.264/AVC , HD AVI, HD ASF и других видео форматов, поддержка High-Definition (HD) видео кодирования и декодирования, извлечение аудио в AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA и другие аудио форматы, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C183682E11AFF2F7679E4B2A598BE199BA7A1A52
 ```
 
 https://mybot314.ru/tekegram_catalog/

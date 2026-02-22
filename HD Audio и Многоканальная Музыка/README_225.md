@@ -1,3 +1,177 @@
+###  Публикация: 1752467   (41884) от 30.09.2024
+
+Urban Rivers - Rockin' The Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackwater (6:46)
+02. Can't do the Time (4:30)
+03. City Lights (4:46)
+04. Devil's Daughter (7:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358FADF162F4C627747B89904A83DD6EE16DB4F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752469   (41881) от 30.09.2024
+
+Will Gunnell - I Dooz the Blooz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyway (3:56)
+02. Sihpmem Ot Thgindim (0:33)
+03. Can't Give You Up (3:09)
+04. I Dooz the Blooz (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6543358E4A3077545A188642C7D342D9C1303EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752452   (41877) от 30.09.2024
+
+Kiko & the Blues Refugees - Ghosts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lockdown (5:49)
+02. Not my enemy (4:29)
+03. Ghosts (4:09)
+04. Cheap shot (4:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186DF128E58E7B1CF262C61033114DD6E1AB43FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752418   (41873) от 30.09.2024
+
+Serj Tankian - Foundations (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal, Electronic, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.F. Day (3:47)
+02. Justice Will Shine On (3:50)
+03. Appropriations (3:02)
+04. Cartoon Buyer (3:58)(   Читать дальше...   )Жанр: Alt.Metal, Electronic, ExperimentalПродолжительность: 00:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A444409481D9DB14F7B7F1AD30CA835C0F3B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317601   (41834) от 01.10.2024
+
+Вячеслав Добрынин - Золотая Коллекция (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не ревнуй
+02. Не сыпь мне соль на раны
+03. Наивная ошибка
+04. Синий туман(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B110EDC9629BF34E9642C25CD968FEEBDE481C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752518   (41788) от 01.10.2024
+
+Alphaville - Forever! Best Of 40 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big in Japan (Single Version; 2019 Remaster) [00:03:54]
+02. Forever Young (2019 Remaster) [00:03:46]
+03. A Victory of Love (2019 Remaster) [00:04:17]
+04. Jerusalem (Single Version) (2021 Remaster) [00:03:44](   Читать дальше...   )Жанр: Synth-popПродолжительность: 03:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56E14407B8CFCD40F42233CA422227C9E70F36C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752603   (41787) от 01.10.2024
 
 Helloween - Better Than Raw (1998) Remastered, 2024, Sanctuary Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Power metal>
@@ -571,177 +745,6 @@ The Smile - Cutouts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F3789DDF927CAF4B971C090C33456071D1BC49F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754427   (40811) от 10.10.2024
-
-The Suspenders - Funky Love Affair (Starry Night Fever) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funky Love Affair (4:00)
-02. Get Down Get Down (3:38)
-03. Feel The Night (2:30)
-04. Stay All Night (2:59)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79CCC8DD1E398A08CA1B74557000A4B95DA07BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754424   (40805) от 10.10.2024
-
-E-Rotic - The Hits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Eurodance, Euro House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Don't Have Sex with Your Ex (Radio EditЖанр: Eurodance, Euro HouseПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CAB79D56C20C52B8A93D90ACA31129725E4255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754466   (40791) от 10.10.2024
-
-Crossbone Skully - High On You (feat. Nikki Sixx) (2024) (EP) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - High On You (feat. Nikki Sixx) [3:50]
-02 - Everyone's On Dope [3:18]
-03 - Money, Sex, or God [3:40]
-04 - I'm Unbreakable [3:38](   Читать дальше...   )Жанр: Hard Rock, RockПродолжительность: 00:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3FA7396239F7B37F650E16DC0DCD0D032E2E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754401   (40789) от 10.10.2024
-
-The Chickens - Fused Minds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust in My Shoes (3:06)
-02. Whiskey In My Tea (4:00)
-03. Walking Cats (2:59)
-04. Angela (2:23)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26306E5E10F83C97E47709316E4038F0F783AEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754475   (40788) от 10.10.2024
-
-Mario Le Mole - Evolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolution (4:25)
-02. Revenge Of Pharaoh (4:35)
-03. Chase The Buck (3:45)
-04. Carved In Stone (5:03)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6A1B148AA791FA8410550C350DC57FFD742B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754441   (40787) от 10.10.2024
-
-Inertia - Estranged Icon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Rock, Synthpop, EBM>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inertia, Seiben - New Format (5:26)
-02. Inertia - Scowl (4:02)
-03. Inertia - Siren Call (6:01)
-04. Inertia, This Morn' Omina - Heartbeat (5:52)(   Читать дальше...   )Жанр: Industrial Rock, Synthpop, EBMПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055BEF8F561E79D27C0F85F96FE32F9CC622829F
 ```
 
 https://mybot314.ru/tekegram_catalog/

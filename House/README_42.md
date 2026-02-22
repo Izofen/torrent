@@ -1,3 +1,90 @@
+###  Публикация: 1142579   (641065) от 15.06.2017
+
+VA - Champagne Lounge Deep House (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microwave Monkeys - Twist in My Sobriety - Radio Edit
+02. Mykel Mars - L.A. Nights - Eddy Chrome Marina Del Rey Remix
+03. Klangkubik - Sumbesi
+04. Michael Ruland - Dreamer - Ibiza Dub Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D539D7855285C071C80405B412B06963EE40926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142736   (641064) от 15.06.2017
+
+VA - Chill House Ibiza 2017 (Finest Chill House Music) (2017) [MP3|320 Kbps] <House, Deep House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max TenRoM - Aurores (Extended Mix)  6:38
+02.  Frans Strandberg - Tropical Dreams  5:47
+03.  Shottle - Way Out  3:10
+04.  Adala - Audi (Extended Mix)  6:52(   Читать дальше...   )Жанр: House, Deep House, ChillhouseПродолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F5C9C0FFF121B0CEC09236B16862EBFDADF00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142633   (641061) от 15.06.2017
+
+VA - Ibiza Beach Chill House Club Party Del Mar (2017) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterhour FlicFlac - Into Silence - Beach Summer Ibiza House Mix
+02. Beachsurfer Reloaded - Beachball - Extended Del Mar Version
+03. Robin Rhodes - Falling in the Ocean - No Chainsmokers Mix
+04. Dimitrova Burak - Balkan Express - Bucovina Yeter Clubmix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655A1D0BF66174CF2AD3187E62DE13F03DC1C00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142608   (641053) от 15.06.2017
 
 VA - Clubfete 2017.02 (63 Summer Club & Party Hits)  [MP3|320 Kbps] <Funky, Club House>
@@ -676,93 +763,6 @@ VA - Summer Swagging Vol.3 (Ibiza Electronic Tunes) (2017) [MP3|320 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA530688944DBA2750AA59A2CCB155EACA119697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144236   (629654) от 21.06.2017
-
-VA - Paris Fashion Beats Vol.1 (Finest Electronic Style Beats Collection) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Project Weekend Sound - Close To You (Instrumental)  4:17
-02.  After Sunrise - Deep Blue Something (Club Mix)  5:59
-03.  Bildertal - Sunder Uul (Stefan Reh Remix)  7:11
-04.  Svendaq - Golden Patch  5:40(   Читать дальше...   )Жанр: HouseПродолжительность: 02:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69B7E496071FD857EF011E4C7E600845621381C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144158   (628902) от 21.06.2017
-
-VA - Dance Therapy, Vol. 1 (These Bangers Push You To The Limit) (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - Free (feat Wilton De Grey - Dancecom Project radio cut)
-02. Tydra - Sunshine (Mavaro & Maxtreme remix)
-03. Amoon - Since You've Been Gone (feat Pit Bailey - Club mix)
-04. Fooh Funk - Be In Love (Mario Chris remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB83800C6BC495BDECDFACF3DF31056453B681A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144471   (627907) от 22.06.2017
-
-VA - Clinique Sampler (Part 94) (2017) [MP3|320 Kbps] <House,Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Philipp - Be U (Nico Ferrero Remix)
-02. Bob Zopp - Durch Die Nie (Juan Astudillo Remix)
-03. John Cosani - World For All (Original Mix)
-04. Michael A - Frankield (Original Mix)(   Читать дальше...   )Жанр: House,Progressive HouseПродолжительность: 01:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E611B20B6AB0A369ABE1D1C000A1F48FC58728DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1516037   (167809) от 09.12.2021
+
+The Gil Evans Orchestra - Plays The Music Of Jimi Hendrix (1988) [FLAC|Lossless|tracks + .cue]<Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel 4:09
+02. Crosstown Traffic/Little Miss Lover 6:32
+03. Castles Made Of Sand/Foxey Lady 11:26
+04. Up From The Skies ( Take 1-Original Master ) 9:16(   Читать дальше...   )Жанр: Jazz RockПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8785ADB954081A5759E2F8B2AE69121AF6243803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596934   (167720) от 13.12.2022
 
 TNYFBB - Trio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
@@ -716,35 +745,6 @@ Ely Bruna & Papik - In Sweet Harmony (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B35CC2BC5C768EE99D7C56A2C1A437CDF638BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597351   (166821) от 14.12.2022
-
-Paul Candow - Mechanics of Manipulation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Me Down (3:22)
-02. Last Time (3:09)
-03. Whiskey (3:53)
-04. Information Overload (3:32)(   Читать дальше...   )Жанр: Blues,RockПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFA9CC45AF29C4AD185A513B6FD1C9EAA0B3634
 ```
 
 https://mybot314.ru/tekegram_catalog/

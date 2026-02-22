@@ -1,3 +1,90 @@
+###  Публикация: 1419205   (342044) от 27.10.2020
+
+Nina Simone - The Nina Simone Anthology (1960-e - 1970-e) 2013, 2CD, Salvo [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342044.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. My Baby Just Cares for Me [3:39]
+02. I Want a Little Sugar in My Bowl [2:35]
+03. Ain't Got No - I Got Life [2:11](   Читать дальше...   )Жанр: Vocal Jazz, Soul-JazzПродолжительность: 02:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB518B5050E877DD5BA44BB0E098E993CF5B89AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418999   (341925) от 27.10.2020
+
+Joe Bonamassa - Royal Tea (2020) Target Special Edition [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When One Door Opens
+02. Royal Tea
+03. Why Does It Take So Long To Say Goodbye
+04. Lookout Man!(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4CCC492399476A2B05DA969FE209884581E714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257964   (341443) от 28.10.2018
+
+Lee Konitz & Dan Tepfer - Decade (2010 - 2016) 2018, Verve [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thrill [2:33]
+02. 9/11 Suite, Part I [3:49]
+03. 9/11 Suite, Part II [2:40]
+04. 9/11 Suite, Part III [4:26](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A326D93491A46327984910B76D3AC43CF44252F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257961   (341441) от 28.10.2018
 
 Johnny Griffin - Seven Classic Albums, Vol.2 (1958 - 1962) 4CD, 2014, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop>
@@ -670,93 +757,6 @@ Marion Brown - Capricorn Moon To Juba Lee Revisited (1965, 1966) 2019, Hat Hut R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF0936A8D005C307971C5E090379D4E9396C5C52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954491   (340100) от 08.11.2015
-
-Nicholas Bridgman - Wheel of Life (2015) [MP3|320 кб/с]<Contemporary Jazz, Smooth Jazz, Piano>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Spiral Staircase
-02.  Wheel of Life
-03.  Swingtown
-04.  Planar Texture for Gloria(   Читать дальше...   )Жанр: Contemporary Jazz, Smooth Jazz, PianoПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D1C923CF7E549D8BB980DE7A34EFD20C4F4B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180592   (340026) от 04.11.2017
-
-Samantha Fish - Belle Of The West (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Dream
-02. Blood In The Water
-03. Need You More
-04. Cowtown(   Читать дальше...   )Жанр: Modern BluesПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F799CE26AFF5A0BA907159C836A0FDEFE7A50123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419455   (339987) от 28.10.2020
-
-Jeremiah Johnson - Unemployed Highly Annoyed (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn Down The Garden (05:31)
- 02. Muddy Black Water (03:49)
- 03. Cherry Red Wine (04:53)
- 04. Daddy’s Going Out Tonight (04:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E4379AB7092B74B102E80EAA1DACE795CF2A6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1080850   (286630) от 08.12.2016
+
+VA - A Guy In Buenos Aires (Mixed by Guy Mantzur) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khen - Authentica
+02. Chicola - The Night We Call It the Day
+03. Kastis Torrau - Chasing You
+04. Monkey Safari - Boris (Guy Mantzur Remix)(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415EF435B207A5C89773AA648685097430C5226C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263640   (286538) от 20.11.2018
+
+VA - 3xA Mixed Series VI (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Alfred - Cygnus (Th Moy Remix)                              [07:59]
+02. Experimental Feelings and Joy - Run (Christian Monique Remix)   [10:04]
+03. Dziathy - Festiv4l (Mendexx Remix)                              [07:36]
+04. Kade B - Shemyaza (PushnBall Remix)                             [07:40](   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E2E70F1714243635F3E957824BE89A97702553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080879   (286432) от 08.12.2016
 
 VA - Alpine Grooves, Vol. 8 (Kristallhutte) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -684,64 +742,6 @@ Mr. Cloudy - Memoria / Sprayer (2017) Local Traffic [FLAC|Lossless|tracks] <Dub 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEABE3EF7805F733317DB9F908AB082A419684D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188655   (273679) от 03.12.2017
-
-Mr. Cloudy - Perceived 2 (Magnetic Tide) (2017) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnetic Tide 1 (17:50)
-02. Magnetic Tide 1 (Toki Fuko ReDub) (17:50)
-03. Magnetic Tide 2 (19:00)
-04. Magnetic Tide 2 (Toki Fuko Reshape) (18:44)Жанр: Ambient, Drone, Dub TechnoПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00A5232B38E9F51502E691690B1EEFEA61E3045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188651   (273677) от 03.12.2017
-
-Joachim Spieth - Irradiance (2017) Affin LTD [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iliachtides (05:17)
-02. Dispersion (07:08)
-03. Luciferin (07:29)
-04. Candela (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95611C0CEC645A033C701AD977DBFC7D94063439
 ```
 
 https://mybot314.ru/tekegram_catalog/

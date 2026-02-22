@@ -1,3 +1,107 @@
+###  Публикация: 433451   (987742) от 09.01.2012
+
+The Amsterdam Baroque Orchestra & Choir (Bach Johann Sebastian) "Matthew Passion" (2005) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Страсти по Матфею в исполнении The Amsterdam Baroque Orchestra & Choir. Запись концерта состоялась 22 и 23 марта 2005 в средневековой церкви Sint-Joris города Амерсфорт (Amersfoort) в Нидерландах.
+Исполняют:
+Оркестр и хор: The Amsterdam Baroque Orchestra & Choir
+Хор мальчиков: Boys Choir of Sacraments-Church Breda
+Дирижер: Ton Koopman
+Солисты: Jörg Dürmüller (Евангелист), Ekkehard Abele (Иисус), Cornelia Samuelis (Сопрано), Bogna Bartosz (Альт), Paul Agnew (Тенор), Klaus Mertens (Бас)
+Режиссер: Hans Hulscher
+Замысел звука: Tini Mathot, Adriaan Verstijnen
+Редакторы: Ton Koopman, Ruud Moll1. Coro I & II & Chorale: Kommt, ihr Tochter, helft mir klagen – O Lamm Gottes unschuldig (Chorale sung only in 1742 and 1743–1746 versions)
+2a. Evangelist, Jesus: Da Jesus diese Rede vollendet hatte
+3. Chorale: Herzliebster Jesu, was hast du verbrochen
+4a. Evangelist: Da versammleten sich die Hohenpriester und Schriftgelehrten
+4b. Coro I & II: Ja nicht auf das Fest
+4c. Evangelist: Da nun Jesus war zu Bethanien
+4d. Coro I: Wozu dienet dieser Unrat?
+4e. Evangelist, Jesus: Da das Jesus merkete, sprach er zu ihnen
+5. Recitativo (alto, flutes): Du lieber Heiland du
+6. Aria (alto, flutes): Bu? und Reu(   Читать дальше...   )Жанр: КонцертЯзык субтитров: РусскиеПродолжительность: 02:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D1FA934D26E88A0E9E5221DF1386F29AEC227B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971410   (987510) от 02.01.2016
+
+Александр Пушкин - Домик в Коломне. Из последних лет (1974) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987510.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе телеспектакля поэма "Домик в Коломне", стихи и письма Александра Сергеевича Пушкина. Романс на стихи Пушкина исполняет Евгений Нестеренко.Производство: СССР, Гостелерадио СССРЖанр: Телеспектакль, поэзияРежиссер: Лев ЕлагинАктеры: Сергей Юрский, Эммануил Виторган, Алла Покровская, Станислав Садальский, Александр ВокачПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C797F8A50ED9DDC0991A6E4F0627ED310F2F7A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163580   (987369) от 06.01.2010
+
+Chris Rea - The Road To Hell & Back - The Farewell Tour (2006) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzy Blue
+02. That's The Way It Goes
+03. Where The Blues Come From
+04. Josephine
+05. Work Gang
+06. Head Out On The Highway
+07. Easy Rider
+08. ‘Til The Morning
+09. Stony Road
+10. KKK Blues(   Читать дальше...   )Жанр: Концерт, Rock, bluesПродолжительность: 01:50:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970064   (987310) от 02.01.2016
 
 Концерт в Париже / Evanescence - Anywhere But Home (2004) DVD9
@@ -662,86 +766,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:350CF6223E2502343BC3385F2920628AB7B9640B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740762   (985820) от 01.01.2014
-
-Дискотека 80-х (2014.01.01) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985820.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Дискотека 80-х" - яркое и захватывающее шоу, ультрасовременная сценография, оригинальные творческие находки и, конечно же, незабываемая встреча с кумирами. Двадцать звездных имен, двадцать лучших, по мнению слушателей и команды радиостанции "Авторадио": Rick Astley, Ten Sharp, Sandra, Alphaville, Tomas Anders, Boney M, F.R. David, Pupo, Joy, (   Читать дальше...   )Жанр: КонцертАктеры: Олег Газманов, Игорь Николаев, Сергей Минаев, Владимир Маркин, Мираж, OttawanПродолжительность: 03:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D09602A00DDB7A603FEA9564A528C655AA0B3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740802   (985721) от 01.01.2014
-
-Дискотека 80-х (2014.01.01) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985721.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Дискотека 80-х" - яркое и захватывающее шоу, ультрасовременная сценография, оригинальные творческие находки и, конечно же, незабываемая встреча с кумирами. Двадцать звездных имен, двадцать лучших, по мнению слушателей и команды радиостанции "Авторадио": Rick Astley, Ten Sharp, Sandra, Alphaville, Tomas Anders, Boney M, F.R. David, Pupo, Joy, (   Читать дальше...   )Жанр: КонцертАктеры: Олег Газманов, Игорь Николаев, Сергей Минаев, Владимир Маркин, Мираж, OttawanПродолжительность: 03:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8746B805BC24D0575141779DB20080033D7B4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971501   (985686) от 03.01.2016
-
-Песня года 2015  (2016.01.01-02) HDTV [1080i-LQ] (части 1-2 из 2)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985686.jpg" />
-</div>
-
-
-###  Подробнее
-
-На телеканале "Россия" - главный концерт страны. Участвуют все звезды!
-Каждый год в первые дни нового года мы с радостью слышим позывные любимой программы: "Через годы, через расстояния, на любой дороге, в стороне любой песне ты не скажешь "до свидания", песня не прощается с тобой…"
-На сцене "Олимпийского" соберутся лучшие (   Читать дальше...   )Телекомпания: Россия HDЖанр: КонцертПродолжительность: 04:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAA598D86D8FF016246DD3D1133C6AC9BF65D87
 ```
 
 https://mybot314.ru/tekegram_catalog/

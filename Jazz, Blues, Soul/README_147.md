@@ -1,3 +1,90 @@
+###  Публикация: 1009524   (810164) от 21.04.2016
+
+Lonnie Johnson - Stompin' At The Penny (1994) [FLAC|Lossless|tracks + .cue] <Blues, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. China Boy
+02. Mr. Blues Walks
+03. Dippermouth Blues
+04. Trouble In Mind(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473FF43C25090DE40E74BFAE77202AE4BBF88DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009541   (810161) от 21.04.2016
+
+Bobby Womack - Resurrection (Japanese Edition) (1995) [FLAC|Lossless|image + .cue] <Soul, Smooth Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Ole Days 04:09
+02. You Made Me Love Again 04:12
+03. So High On Your Love 04:55
+04. Don't Break Your Promise (Too Soon) 04:59(   Читать дальше...   )Жанр: Soul, Smooth SoulПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2938175A84873E4B8CB4C76A7B06FCD43C17EDEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008990   (810160) от 21.04.2016
+
+Return To Forever - Romantic Warrior (1976) Remastered 1990 [APE|Lossless|image + .cue] <Jazz-Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medieval Overture
+02. Sorceress
+03. The Romantic Warrior
+04. Majestic Dance(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87CDAC2DEB494C063694FE2F33BD8CC995FDF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198075   (810132) от 10.01.2018
 
 Nai Palm - Needle Paw (2017) [FLAC|Lossless|tracks + .cue] <Soul, Female Vocal>
@@ -653,93 +740,6 @@ Jeffery Smith - Down Here Below (1999) Verve Records [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FE4CD2D938367434706C2AA2C4F5DB309FF078B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383803   (808277) от 17.05.2020
-
-Miles Davis - Filles de Kilimanjaro 1968 (1990) Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frelon Brun (Brown Hornet) [5:43]
-02. Tout de Suite [14:10]
-03. Petits Machins (Little Stuff) [8:12]
-04. Filles de Kilimanjaro (Girls of Kilimanjaro) [12:06](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6F59BFB53A33C48D817CAF9ACF2696D4B4ECA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009676   (808243) от 22.04.2016
-
-Phil Woods, Gene Quill, Jackie McLean, John Jenkins, Hal McKusick - Bird Feathers (1957) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Solar [05:53]
- 02.Bird Feathers [10:26]
- 03.Interim [05:52]
- 04.Airegin [06:28](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B96BCB984A4A6A368CE5C99F0913806B608F2BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383794   (808140) от 17.05.2020
-
-VA - Quarantine Doom Jazz vol. 2 (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Finger - Das Zeit (10:43)
-02. Gamardah Fungus - Opium (8:32)
-03. Misantronics -  Tilting (10:39)
-04. Shadowed Silhouette - Just A Passerby (5:01)(   Читать дальше...   )Производство: Signora Ward RecordsЖанр: Dark Jazz, Doom Jazz, Jazz Noir, ExperimentalПродолжительность: 01:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974CA0CFD1A7C724C233FB9CF2AF26325B98B5EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

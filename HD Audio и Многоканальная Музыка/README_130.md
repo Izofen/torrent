@@ -1,3 +1,177 @@
+###  Публикация: 1727667   (108403) от 03.06.2024
+
+Young Acid - Murder At Maple Mountain (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Depths [00:02:52]
+02. Bitter Little Man [00:03:32]
+03. Fightmaker Street [00:02:49]
+04. PV 444 [00:03:25](   Читать дальше...   )Жанр: Alternative Rock, Garage RockПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922E8A66A841F0B46B1F2F7508F1C334BD2E13E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727928   (108392) от 04.06.2024
+
+Channel Zero - Studio Albums (8 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Channel Zero — бельгийская метал-группа, образованная в Брюсселе в 1990 году. На пике своей карьеры в 1997 году, группа приостановила детельность, однако в 2009 произошло воссоединение коллектива.1992 - Channel Zero
+1993 - Stigmatized For Life
+1994 - Unsafe
+1996 - Black FuelЖанр: Thrash/Groove MetalПродолжительность: 06:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A5F19740E499FA19EC48ED9D579F25ECAA0F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727866   (108380) от 04.06.2024
+
+Kreator - Terrible Certainty (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blind Faith (04:06)
+02 - Storming With Menace (04:26)
+03 - Terrible Certainty (04:28)
+04 - As The World Burns (03:51)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA834B1AE0427B304A8D19C590199FBAEDADFC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728418   (108346) от 07.06.2024
+
+Chorus and Orchestra of Teatro Communale, Firenze, cond. E. Ghili - Bizet – Carmen (1966) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical, Opera, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Act I
+A1 Habanera: L'amour Est Un Oiseau Rebelle
+A2 Parlez-Moi De Ma Mere
+A3 Seguidilla: Pres Des Rampart De Seville(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B8E051941F5B10140DEC7251090EEEC3D4E70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728449   (108345) от 07.06.2024
+
+VA - Bubblegum Is Back (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108345.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 1910 Fruitgum Company – Simon Says
+A2 1910 Fruitgum Company – Indian Giver
+A3 1910 Fruitgum Company – Goody Goody Gumdrops
+A4 The Lemon Pipers – Jelly Jungle(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DFED17E6073EB62A7E8FC3819F09C9FDF099FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728562   (108342) от 07.06.2024
+
+DarWin - Five Steps On The Sun (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Police (3:53)
+02. Inside This Zoo (5:23)
+03. Be That Man (5:18)
+04. One Step on the Sun (1:32)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69EC687915CD5476C92255D91ABA6B1E1B72869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728539   (108335) от 07.06.2024
 
 Cactus - Temple Of Blues: Influences And Friends (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
@@ -567,180 +741,6 @@ Withering Surface - Exit Plan (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A560DFB41FF40C2E0FB43CF5BF22D222E65BD530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728754   (108188) от 09.06.2024
-
-Lamb Shelter - Out The Cage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambience (3:49)
-02. Harvest (1:27)
-03. Make (3:21)
-04. Port Wine Cherry Sauce (3:02)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E8DC2049150D5A7D75C4789415892E02C3A7A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728944   (108187) от 09.06.2024
-
-Paul Kleber - Little Home (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Loving (8:00)
-02. Fourty (4:34)
-03. Poisson d´or (5:47)
-04. Nachteule (6:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9EAE93C3A4CBBF1806395E937281438E40657EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728946   (108184) от 09.06.2024
-
-Relaxing Jazz Music, Cuban Latin Collection - Nostalgic Cuban Nights: Soft Instrumental Latin Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuban Coffee (3:35)
-02. Slow Pace (3:07)
-03. Tango Fusion (3:26)
-04. Rumba Summer (3:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF15E0BCF14A22A8D584444907968A759F5876D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728947   (108177) от 09.06.2024
-
-Rikard From - In My Own Time (2024) [FLAC 24/48|Lossless|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can Never Get Enough (3:57)
-02. Keeping Up With Life (6:05)
-03. In My Own Time (4:57)
-04. When I Hold Your Hand (2:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F9F7B280357477837C420F09D62EECF48C9D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728990   (108174) от 09.06.2024
-
-Euge Valovirta - Hardtones (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Testify (feat. Samy Elbanna) (3:54)
-02. The Game (feat. Joonas Kosonen & Ben Varon) (3:44)
-03. Gone Without A Trace (feat. Nico Hartonen) (3:33)
-04. Pasadena '78 (feat. Jules Näveri) (3:05)(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09215456C5F0819A81DEB36CDF672DE217908E73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728994   (108173) от 09.06.2024
-
-Dying Fetus - War of Attrition (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brutal Death Metal, Grindcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108173.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Homicidal Retribution
-A2 Fate Of The Condemned
-A3 Raping The System
-A4 Insidious Repression(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EA09B73307699C8A9EA7937EFA8396C76CFF4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

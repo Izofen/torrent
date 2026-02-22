@@ -1,3 +1,32 @@
+###  Публикация: 1536820   (672790) от 13.03.2022
+
+Heartwind - Strangers (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strangers In The Night
+02. Line Of Fire
+03. Amanda
+04. Angels Cry Again(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E72DC4096B67C3BB8BCC391324511AF2A8E4F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536583   (670977) от 14.03.2022
 
 D'or - Veni Vidi Ignis (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -721,37 +750,6 @@ Bonfire - Temple of Lies (2018) Ltd. Ed. [FLAC|Lossless|image + .cue] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D5EAD57B13E0AAD923BF77DB2340AEC702A8C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140343   (655789) от 06.06.2017
-
-Jorn - Life on Death Road (2017) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лейбл Frontiers Music Srl выпустит новый студийный альбом норвежского вокалиста Йорна Ланде (Jorn Lande) "Life On Death Road" 2 июня.
-
-Йорн – однозначно один из величайших рок-певцов XXI века, и его голос вновь звучит во всю мощь на его девятом сольном диске с оригинальным материалом. Ему аккомпанирует новый состав музыкантов, который обеспечил релизу более (   Читать дальше...   )01. Life on Death Road (7:20)
-02. Hammered to the Cross (The Business) (5:29)
-03. Love Is the Remedy (4:53)
-04. Dreamwalker (4:59)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9008E6F0E0827F0C8CA5E9949DA1DA46F3816832
 ```
 
 https://mybot314.ru/tekegram_catalog/

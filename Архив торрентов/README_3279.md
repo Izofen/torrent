@@ -1,3 +1,29 @@
+###  Публикация: 543754   (494178) от 06.09.2012
+
+Desktop wallpapers (06.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE5563B062888DDAE248E2F0F7D5AF32931573E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936627   (494177) от 12.09.2015
 
 Обои - Обои с девушками 1920x1200 (6 часть) [JPG]
@@ -666,39 +692,6 @@ Captain Crimson - Dancing Madly Backwards (2012) [FLAC|Lossless]<Hard Blues Rock
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543460   (494037) от 06.09.2012
-
-Jagjit Singh - A Spiritual Journey (2CD) (2011) [MP3|320 кб/с]<Folk, Meditative, Mantras>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494037.jpg" />
-</div>
-
-
-###  Подробнее
-
-(02:25) 01. Om Jaap
-(02:19) 02. Vakratunda Mahakaya
-(05:01) 03. Hare Krishna Hare Krishna
-(03:24) 04. Arogya Mantra
-(03:01) 05. Aarogya Gayatri
-(05:32) 06. OM Gam Ganpataye Namah
-(07:28) 07. Kabir Dohe
-(19:49) 08. Jai Shri Ram SurmalaЖанр: Folk, Meditative, MantrasПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F78D7834C0E485DBF7A2A5FEED63156C7F2C66F
 ```
 
 https://mybot314.ru/tekegram_catalog/

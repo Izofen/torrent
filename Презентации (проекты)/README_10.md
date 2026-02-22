@@ -1,3 +1,29 @@
+###  Публикация: 1376535   (858264) от 18.04.2020
+
+Проекты - VideoHive - Awards - 20645417 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858264.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Awards" - пакет, который включает все, что будет необходимо для создания ролика с церемонии награждения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AF776A87B6F2F92ABEB05E50CCC1223165F768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109709   (856916) от 28.02.2017
 
 Проекты - Motion Array - Minimal Presentation - 26356 [AEP]
@@ -657,33 +683,6 @@ Library or Bookstore Presentation - это простая, энергичная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78EA9F3C8246D984F9BE3BA12D2E2B01E6B95517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002511   (846583) от 01.04.2016
-
-Проекты - VideoHive - Industrial Impact [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Предназначен для редактирования в АЕ.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0388DBEE829F06FF148A6068B7A2F941AB0C0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

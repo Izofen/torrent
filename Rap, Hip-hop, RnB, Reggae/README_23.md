@@ -1,3 +1,67 @@
+###  Публикация: 1178100   (357646) от 27.10.2017
+
+Макс Корж - Малый повзрослел ч.2 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357646.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вспоминай меня
+2. Молодость всё прощает
+3. Пьяный дождь
+4. Малиновый закат(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D0A215894BCFBA4017F1E3A3FA35D33C94163A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577117   (356995) от 19.11.2012
+
+Rihanna - Unapologetic (2012) [FLAC|Lossless]<Pop, R&B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_356995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fresh Out The Runway (03:42)
+02. Diamonds (03:45)
+03. Numb (feat. Eminem) (03:25)
+04. Pour It Up (02:41)
+05. Loveeeeeee Song (feat. Future) (04:16)
+06. Jump (04:24)
+07. Right Now (feat. David Guetta) (03:02)
+08. What Now (04:03)
+09. Stay (feat. Mikky Ekko) (04:01)
+10. Nobody's Business (feat. Chris Brown) (03:36)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256234   (356674) от 21.10.2018
 
 6ix9ine - Day69: Graduation Day (2018) [MP3|320 Kbps] <Hip-Hop>
@@ -684,64 +748,6 @@ Pra(Killa'Gramm) - Рэп этот (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8870A68FB8E734063E1F26A3ABE6D30E7760BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332484   (313647) от 20.10.2019
-
-Alai Oli - Sad Princess (2019) [MP3|320 Kbps] <Reggae, Alternative Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313647.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дурге 2
-2. Sad Princess
-3. So Bad
-4. Howl in Despair(   Читать дальше...   )Жанр: Reggae, Alternative RockПродолжительность: 00:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B33BB51213F04518FB0F3B531B97B4995C50780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076282   (313536) от 25.11.2016
-
-Триада - 9 (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Руки выше
-02 - Онемел
-03 - Не забудь
-04 - Однажды(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5D0D6977D93D72115BC4D4D1A2BB5B9261C3E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 1756233   (39666) от 21.10.2024
+
+Luttrell - Life at Full Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We First Met
+02. Life at Full Speed
+03. Make U Happy
+04. Sunshine(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E22F523825853600DA56C8590EBB3A3A3804AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757069   (39273) от 25.10.2024
+
+Benassi Bros. x Dhany - Every Single Day (remix) (2021) [FLAC|Lossless|WEB-DL|tracks] <Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benassi Bros. x Dhany - Every Single Day (club edit) (03:43)
+02. Benassi Bros. x Dhany - Every Single Day (club version) (06:41)
+03. Benassi Bros. x Dhany - Every Single Day (club version instrumental) (06:41)Жанр: Club HouseПродолжительность: 00:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC79D0F4BEABC3D5E8EB5673DBAC1E5F8D65C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757395   (39077) от 27.10.2024
 
 VA - Diamond Fitness - Best Songs For Cardio Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -687,64 +744,6 @@ VA - Winter Car Music Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:381752A302FDFFDF766C33980C95F125A7E597D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775883   (29499) от 28.01.2025
-
-VA - Fitness Motivation 50 Hits to Get You Started 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - Hot In It (feat. Charli XCX) (2:09)
-02. David Guetta - Forever Young (2:36)
-03. Robin Schulz - Only Way Is Up (feat. Izzy Bizu) (2:29)
-04. Madonna - Hung Up (5:37)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64863AD94FF34041CBA16969C4B7CD96536D162A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780230   (27306) от 17.02.2025
-
-Blond:ish - Never Walk Alone (2025) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Walk Alone [00:03:08]
-02. Can't Let You Go [00:02:34]
-03. Self Love [00:02:52]
-04. Shout It Out [00:03:08](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4BDA5699778D916CEB88B7EA9E42774046F878
 ```
 
 https://mybot314.ru/tekegram_catalog/

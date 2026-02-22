@@ -1,61 +1,3 @@
-###  Публикация: 1775931   (29381) от 29.01.2025
-
-Sonny Stitt - The Champ (1973) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Champ [5:21]
-02. Sweet and Lovely [7:11]
-03. The Midgets [5:36]
-04. The Eternal Triangle [5:23](   Читать дальше...   )Жанр: Bop, Hard Bop, Mainstream JazzПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DBF0485CDDFC327D6825BE5A7C810D70D713C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775933   (29380) от 29.01.2025
-
-Joe Pass & John Pisano - Duets (1991) 1996, Pablo [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone Together [6:04]
-02. Baileywick [2:47]
-03. S'il vous plait [2:40]
-04. Lonely Woman [3:40](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E947264D8276698BA617346EF866EF88452ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775927   (29379) от 29.01.2025
 
 Arlee Leonard, Cleave Guyton & Igor Dmitriev Trio - Status Quo (2008) 2024, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
@@ -745,6 +687,64 @@ Konstantin Klashtorni - Summer Favorites (2025) [FLAC|Lossless|WEB-DL|tracks] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C08529FC38D52FE8B9FCFF28E286929752FAE532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811024   (16652) от 07.08.2025
+
+Lemek - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Say What (4:00)
+02.  Adrian Crutchfield - Boundless (3:43)
+03.  Chris ‘Big Dog’ Davis - Solid Contact (4:24)
+04.  Nathan Mitchell - Stepping Hot (4:41)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E179832C800882E529781A110CA90E497FD337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811026   (16650) от 07.08.2025
+
+Love Suggestions - Chilly Summertime (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Life Is Love (4:44)
+02.  It's Our Time (5:46)
+03.  What Makes You Beautiful (4:37)
+04.  Clarity (4:36)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5FC65A4B8DE5840ED2E93F318240D6AB95B253
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1111773   (846465) от 06.03.2017
+
+Your Universal MultiBoot Installer UEFI 0.0.0.4 Beta Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846465.jpg" />
+</div>
+
+
+###  Подробнее
+
+YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58085B972965C42F646B3059408463BFDC054153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378427   (846454) от 25.04.2020
 
 Microsoft Visual Studio 2019 Professional 16.5.1 (Offline Cache, Unofficial) [Ru/En]
@@ -653,32 +679,6 @@ WSCC (Windows System Control Center) - портативная программа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D06DD29D4E4CB5BE512A44616F912BC0DDC218ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378563   (846283) от 25.04.2020
-
-Topaz DeNoise AI 2.1.7 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снимайте в любом месте при любом освещении без оговорок. Устраните шум и восстановите четкие детали на ваших изображениях с помощью первого инструмента для подавления шума - DeNoise AI. Вы можете быть удивлены полученными результатами.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E103CFC94B7EB6945271681CF8E9A3A9FC7057
 ```
 
 https://mybot314.ru/tekegram_catalog/

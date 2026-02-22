@@ -1,3 +1,89 @@
+###  Публикация: 285705   (932281) от 23.01.2011
+
+Cedar Walton Trio - Midnight Waltz (2005) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JazzПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754466   (932266) от 08.02.2014
+
+Johnny Griffin - Return Of The Griffin (1979) /1996 Remastered, Galaxy/ [FLAC|Lossless]<Jazz, Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Autumn Leaves   (5:38)
+02.  When We Were One   (7:44)
+03.  A Monk's Dream   (6:20)
+04.  The Way It Is   (5:08)
+05.  Fifty Six   (9:28)
+06.  I Should Care   (5:27)Жанр: Jazz, Post BopПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E579C6AEFEBE3B3EEE559642CA4D32F019C61555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093814   (932256) от 16.01.2017
+
+Wily Bo Walker - The Wily Bo Walker Story (2016) 2CD WEB [FLAC|Lossless|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Storm Warning (feat. E D Brayshaw) 06:46
+02 Walking with the Devil (Voodoo Mix) - (feat. Graham Hine) 04:00
+03 I Want To Know (NY Funk Mix) 04:15
+04 Walk in Chinese Footsteps (Free Tibet Mix) 04:19(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 01:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5B0F3E455137A54CBA2A209FEB9CAE1C6DAFD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 177278   (932187) от 20.02.2010
 
 Fourplay - Energy (2008) [FLAC|Lossless]<Smooth-Jazz>
@@ -680,99 +766,6 @@ Enrico Pieranunzi, Andre Ceccarelli, Diego Imbert - Menage A Trois (2016) Bonsai
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98A5E0B72DE7BD7524F887F26135DEA572A76C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094186   (930930) от 17.01.2017
-
-Miles Davis - Sketches Of Spain / And The Modern Jazz Giants (1954, 1956, 1959) 2CD, 2011, Not Now Music[FLAC|Lossless|image + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_930930.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Sketches Of Spain:
-01.Concierto De Aranjuez (Adagio) [16:25]
-02.Will O' The Wisp [03:52]
-03.The Pan Piper [03:59](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604FE3607575D73BED3A32C7DA8B0ED536E93149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094078   (930924) от 17.01.2017
-
-Eliana Cargnelutti - Electric Woman (2015) [FLAC|Lossless|image + .cue] <Modern Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Why Do I Sing The Blues  (03:47) 
-02|  Just For Me  (04:14) 
-03|  Street Corner Talking  (03:48) 
-04|  Soulshine  (05:09) (   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22D45D9AF5BBDBC2227ADFE29A0DC43AE390C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177300   (930877) от 21.02.2010
-
-George Thorogood & The Destroyers - The Dirty Dozen (2009) [FLAC|Lossless]<Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Tail Dragger (3:41)
-2. Drop Down Mama (4:20)
-3. Run Myself Out Of Town (3:02)
-4. Born Lover (4:13)
-5. Twenty Dollar Gig (3:16)
-6. Let Me Pass (3:39)
-7. Howlin' For My Baby (5:13)
-8. Highway 49 (5:48)
-9. Six Days On The Road (4:23)
-10. Treat Her Right (2:59)(   Читать дальше...   )2009Жанр: Blues, Blues-RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

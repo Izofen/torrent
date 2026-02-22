@@ -1,21 +1,47 @@
-###  Публикация: 1477599   (1011003) от 15.06.2021
+###  Публикация: 1476360   (1011705) от 11.06.2021
 
-VA - MPM Synthwave: Electronic Mixtape (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+Журнал | 4x4 Magazine Australia [Australia] №6 (июнь 2021) [PDF] [En]
 
->>
->>
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011003.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011705.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cuprite - Form
-002. Detroit's Filthiest - Dark Shadows
-003. The Oddness - Distant Voices
-004. Zendlo - So OK(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:31:40
+4X4 Australia - это библия энтузиастов бездорожья с 1979 года, благодаря которой ее преданные читатели получили самые надежные обзоры автомобилей 4x4, оценки продуктов для отдыха на свежем воздухе, а также необычные маршруты и экспедиции.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDD3121C6E71C8E5F8A15B3D682E0506857CD69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476463   (1011704) от 11.06.2021
+
+Art Pepper - 12 Classic Albums (1954 - 1962) 6CD, 2015, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011704.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Blues In [6:01]
+02. Bewitched, Bothered and Bewildered [4:25]
+03. Stompin' at the Savoy [5:04](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 07:31:00
 
 ## Скачать торент
 ```bash
@@ -27,622 +53,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477585   (1011002) от 15.06.2021
+###  Публикация: 1476121   (1011703) от 11.06.2021
 
-Valance Drakes - A Patternless And Endless Soul (2021) YUKU Records [FLAC|Lossless|WEB-DL|tracks] <Glitch-Hop, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grown Weary Of Their Kindness (03:58)
- 02. Awaken Old Memories From Their Slumber (03:39)
- 03. Angels Can Still Feel Fear (03:40)
- 04. Those That Tell You Winning Lies (03:50)(   Читать дальше...   )Жанр: Glitch-Hop, IDM, AmbientПродолжительность: 00:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3B5DAC82DF8316786ACB65B6A8BC6740DF57B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477450   (1011001) от 15.06.2021
-
-Jeff Coffey - This Time Around (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black and Blue
-02. All I Need Is Love
-03. Someday
-04. This Time Around(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58705572BFBB4174CE153318E17204751350C742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477457   (1011000) от 15.06.2021
-
-LATE - Far North Eleven (2021) Amek Collective [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Industrial>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Lived Falling Out Of The Skin Into The Soul (05:06)
- 02. Far North Eleven (04:18)
- 03. Circles (03:42)
- 04. Kharon (02:36)(   Читать дальше...   )Жанр: Ambient, Experimental, IndustrialПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495209F75FE7869DFB1C2DFE0B70200831637FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477344   (1010999) от 15.06.2021
-
-Леонс Перре. На рельсах / Sur les rails (1913) DVDRip
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трактирщица и рабочий с вокзала собираются пожениться. Но в неё влюблён и друг жениха, который, подпоив приятеля, решается осуществить свой преступный план... Что не сделаешь ради искусства - актёру пришлось реально побывать под проходящим составом!Производство: ФранцияЖанр: Драма, короткометражный, немое киноРежиссер: Леонс ПерреАктеры: Юджин Бреон, Эмиль Кеппенс, Валентайн ПетиПеревод: Немой с интертитрамиСубтитры: Французские и русские интертитрыПродолжительность: 00:13:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477580   (1010998) от 15.06.2021
-
-Леонс Перре. Дитя Парижа / L'enfant de Paris (1913) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полнометражная криминальная мелодрама, рассказывающая о злоключениях маленькой девочки из состоятельной буржуазной семьи на улицах Парижа. А также о хитроумном и безжалостном мошеннике по кличке Бакалавр и благородном подмастерье сапожника по имени Боско. Место действия Париж и Ницца, время действия – последние годы Прекрасной эпохи (Belle Époque). Продолжительность (   Читать дальше...   )Производство: Франция, GaumontЖанр: Мелодрама, криминалРежиссер: Леонс ПерреАктеры: Леонс Перре, Луи Лебас, Maurice Lagrenée, Эмиль Кеппенс, Марк Жерар, Анри Дюваль, Мари Дорли, Сюзанн Ле Брэт, Джинн Мари-Лорен, Эдриан ПетиПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B09DF86163F868F61F79AC9C39318A3DEE8697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477405   (1010997) от 15.06.2021
-
-Machine Head - Unto the Locust (2011) Remastered, Reissue, 2021, Nuclear Blast [MP3|320 Kbps] <Thrash Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Hell (Sonata In C#) (8:26)
-02. Be Still and Know (5:44)
-03. Locust (7:36)
-04. This Is the End (6:11)(   Читать дальше...   )Жанр: Thrash Metal, Groove MetalПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2395D86C22744910CAD6198357FFEDB858EBBD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477572   (1010996) от 15.06.2021
-
-Мэйбл Норманд. День его свадьбы / On His Wedding Day (1913) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010996.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Главным героем" этой комедии по праву можно назвать красный перец, подсыпанный жениху в букет с цветами, когда он спешил на свою свадебную церемонию. Доставленный женихом по месту назначения букет стал причиной безудержного чихания cреди гостей, в результате чего торжественная церемония оказалась на гране срыва...Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Форд Стерлинг, Дот Фарли, Ник Когли, Hale Studebaker, Мэйбл Норманд, Чарльз Эйвери, Честер М. Франклин, Хелен Холмс, Берт Ханн, Кармен ФиллипсПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C15281B9849C97C1939BFA1784294F9268D1A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477277   (1010995) от 15.06.2021
-
-Bloody Six - In The Name Of Blood (1984) Unofficial Release, 2020, Ambush Records [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Starchaser
-03. High Class n' Wild
-04. Let It Burn(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09EE9CCB6A5ECB5E2A2BE0B90BF965B15984513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477484   (1010994) от 15.06.2021
-
-??? ??????? - {{{{{{{{{{{{ (2020) Schematic [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. } (07:01)
- 02. }} (08:03)
- 03. }}} (03:16)
- 04. }}}} (05:27)(   Читать дальше...   )Жанр: Electro, Acid, IDM, ExperimentalПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46DC21817E8BEC8607EB949CD0D26641B6B1036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477275   (1010993) от 15.06.2021
-
-All Is Ashes - What Comes Next (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove, Thrash Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waves of Change [00:03:59]
-02. Made for More [00:03:50]
-03. Empty Tales [00:03:07]
-04. Locked Down [00:04:26](   Читать дальше...   )Жанр: Groove, Thrash MetalПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477451   (1010992) от 15.06.2021
-
-Flotsam And Jetsam - High (1997) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final Step
-02. Hallucinational
-03. It's On Me
-04. High Noon(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477286   (1010991) от 15.06.2021
-
-Flotsam And Jetsam - Cuatro (1992) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural Enemies
-02. Swatting At Flies
-03. The Message
-04. Cradle Me Now(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320956B3109C95C28F90E5FE3B88A90838BFF1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477367   (1010990) от 15.06.2021
-
-Stormwind - 2 Albums (2001-2004) Remastered, Reissue, 2021, Black Lodge Records [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis (Remastered) [00:01:12]
-02. War of Troy (Remastered) [00:04:15]
-03. The Man Behind the Iron Mask (Remastered) [00:03:54]
-04. Reflections (Remastered) [00:05:11](   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 2 CD, 01:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFA3BD17BEF8497690B93346FD17053525761E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477272   (1010989) от 15.06.2021
-
-Black Sun - Silent Enemy (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moebius
-02. Resist
-03. Terror Zone
-04. Dark Mirror(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD022015528476345D68854B84BDB471E90344C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477613   (1010988) от 15.06.2021
-
-VA - Drum And Bass Jungle Party (2021) [MP3|320 Kbps] <D&B, Jungle, Bassline>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010988.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rafiki, Draize - Plateau
-002. Bartholomew Kind - Would You Do That To Me!
-003. Stillz - White Sombrero
-004. Harry Shotta - Timeless(   Читать дальше...   )Жанр: D&B, Jungle, BasslineПродолжительность: 08:24:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477507   (1010987) от 15.06.2021
-
-Claus Waidtlow Quartet - Claustrophobia (1996) Stunt Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go [7:04]
-02. Miss K's Favourite [8:21]
-03. Dad's Dance [7:22]
-04. Night Nurse [5:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477291   (1010986) от 15.06.2021
-
-Flotsam And Jetsam - When The Storm Comes Down (1990) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Master Sleeps
-02. Burned Device
-03. Deviation
-04. October Thorns(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477299   (1010985) от 15.06.2021
-
-Flotsam And Jetsam - Doomsday For The Deceiver (1986) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hammer Head
-02. Iron Tears
-03. Desecrator
-04. Fade to Black(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477294   (1010984) от 15.06.2021
-
-Flotsam And Jetsam - No Place For Disgrace (1988) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Place For Disgrace
-02. Dreams Of Death
-03. N.E. Terror
-04. Escape From Within(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475316   (1010983) от 15.06.2021
-
-Twisted Rose - Now (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rising Rose (Intro) [00:02:30]
-02. Sandstorm [00:03:36]
-03. Metal Souls [00:04:14]
-04. Scorpion Stings [00:03:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:28:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477346   (1010982) от 15.06.2021
-
-Национальное первенство Великобритании по шоссейно-кольцевым автогонкам БТСС 2021. Снеттертон 300, Гонка 1-3 / BTCC. Snetterton 300, Race 1-3 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Великобритании по шоссейно-кольцевым гонкам среди легковых автомобилей (англ. British Touring Car Championship, BTCC) — это национальное туринговое автомобильное первенство, существующее с 1958 года. Серия базируется в Великобритании.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 42:31 + 45:43 + 43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD97DCE8B5B73F2FD7F5ED08C48D5FC1894F1C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477587   (1010981) от 15.06.2021
-
-О. Рожнева (сост.) | Дела житейские и духовные. Мудрость, доброта и юмор духовников и старцев XIX–XX веков (2020) [FB2, EPUB]
+Воскресная школа | Пасха. Двунадесятые Праздники [PDF, DJVU]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010981.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Православные подвижники умели дела житейские наполнить духовным смыслом. И делали это не нарочито, а с улыбкой, используя добрую шутку. Рассказанные в книге истории из жизни разных прославленных и непрославленных подвижников Церкви помогут найти правильное направление духовной жизни современным христианам. Без мечтательности, высокопарности, в духе православного (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+Двунадесятые Праздники — это двенадцать (двунадесять, церк.-слав.) Великих Праздников в году, установленных в честь Господа Бога и Спаса нашего Иисуса Христа и Пресвятой Богородицы.
+
+Книга содержит описание Двунадесятых переходящих и непереходящих Праздников и Праздника всех Праздников — Пасхи — Светлого Христова Воскресения с прибавлением Тропарей.Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC3CC763E745B56BF862CD67F00F48F3DFB514E3
+magnet:?xt=urn:btih:509BCFBE62E7B398F225F7E06E2714A0541BF90B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,74 +81,635 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477441   (1010980) от 15.06.2021
+###  Публикация: 1476550   (1011702) от 11.06.2021
 
-Google Chrome 91.0.4472.106 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67FF3922DE2616DE4081CB9BADC8B3CFBCF2E352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477541   (1010979) от 15.06.2021
-
-Opera 77.0.4054.80 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5F5C29E45B6D8BB204227D0FAA2315EEFB39AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477545   (1010978) от 15.06.2021
-
-Pain - Party in My Head (2021) Single [MP3|320 Kbps] <Industrial Metal>
+Fennesz - Endless Summer (2006) Editions Mego, Remastered [FLAC|Lossless|tracks+.cue] <Glitch, Experimental, Noise, Ambient>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010978.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Party in My Head
-2. Gimme ShelterЖанр: Industrial MetalПродолжительность: 00:07:06
+01. Made In Hong Kong (04:23)
+ 02. Endless Summer (08:30)
+ 03. A Year In A Minute (06:00)
+ 04. Caecilia (03:51)(   Читать дальше...   )Жанр: Glitch, Experimental, Noise, AmbientПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476545   (1011701) от 11.06.2021
+
+FBackup 9.0.317 [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011701.jpg" />
+</div>
+
+
+###  Подробнее
+
+FBackup — это свободно распространяемое программное обеспечение для резервного копирования. Предназначена программа и для личного и для коммерческого использования. Она защищает важные данные, сохраняя их автоматически на любой USB / Firewire накопитель, локальную или сетевую папку. Резервное копирование данных может быть сжатым, при этом, используется стандарт сжатия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476569   (1011700) от 11.06.2021
+
+Eiga Sayonara Watashi no Cramer: First Touch | Farewell, My Dear Cramer: First Touch | Прощай, мой дорогой Крамер (фильм) [2021, Movie] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нозоми Онда перешла в среднюю школу и продолжила заниматься своим любимым спортом. И если в детстве она могла спокойно играть с мальчишками, то теперь это попросту опасно, ведь разница в силе и сложении стала очевидна. Тренер не хочет рисковать её здоровьем, но Нозоми сделает всё, чтобы доказать, что она футболист ничуть не хуже парней.
+
+Рекомендуем так же посмотреть (   Читать дальше...   )Производство: Студия Liden Films / ライデンフィルムЖанр: комедия, спортРежиссер: Такуно СэйкиПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1ECD216AFFF9E1EB331CA967B723B7DB7F5AC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476553   (1011699) от 11.06.2021
+
+Леонс Перре. Спиритический сеанс / Seance de spiritisme (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая киношутка о спиритических сеансах по вызыванию потусторонних духов. Подобные сеансы получили необычайную популярность в начале 20-го века.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Леонс ПерреАктеры: Джинн Мари-Лорен, Леонс ПерреПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6322C6B1C9ABB70BD4FC1CE1799B4C780012C462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476350   (1011698) от 11.06.2021
+
+Тени свободы - Лучше хуже (2021) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011698.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Контроль
+2. Что это за хрень (Происходит со мной каждый день)
+3. Поговори со мной
+4. Лучше хуже(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E31B84E994E42D46084E616D194612AFF4C5D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476404   (1011697) от 11.06.2021
+
+Hammer King - Hammer King (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaken The Thunder
+02. Baptized By The Hammer
+03. Onward To Victory
+04. Hammerschlag(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DDE2FA20E768541D2EDABAF546DBA433C968577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476508   (1011696) от 11.06.2021
+
+Записки юности (Подросток) / Shonenki / Boyhood (1951) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ителлигентная токийская семья в конце Второй мировой войны вынуждена эвакуироваться в сельскую местность. Старший сын Итиро не хочет расставаться с любимой школой. Он утверждает, что хочет быть самостоятельным, и может прожить один. Мать с тяжелым сердцем оставляет сына в Токио, но и жизнь эвакуированных в окружении враждебных чужаков не дает никому ни спокойствия, (   Читать дальше...   )Производство: Япония, Shochiku Films Ltd.Жанр: Драма, военныйРежиссер: Кэйсукэ КиноситаАктеры: Акико Тамура, Акира Исихама, Тисю Рю, Рэнтаро Микуни, Тосико Кобаяси, Мицуко Сакура, Такэси Сакамото, Рюдзи Кита, Дзюндзи Масуда, Эико МиёсиПеревод: Многоголосый любительский (STEPonee)Субтитры: Английские - hardsub (неотключаемые)Продолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0ECC1DB3F2DB40C3AED36C42890D12B6541E78A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476523   (1011695) от 11.06.2021
+
+Opera GX 75.0.3969.285 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
+Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
+Но вот зачем-то разработчики отказались от этой функции (впрочем, она ещё может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4325DB051EE5D5B11CAF442C7B10924E091874EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476300   (1011694) от 11.06.2021
+
+Ed-El - Deprision (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prision (Intro)
+02. Deprisión
+03. El Regreso
+04. Tu Eres Senor(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0A39C4B9DA6EF8B0B55E76C9DB0672CF4D1002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476378   (1011693) от 11.06.2021
+
+Журнал | Auto Bild [España] №630 (июнь 2021) [PDF] [Es]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый продаваемый еженедельный универсальный автомобильный журнал в Испании. Направленный на всех поклонников автомобильного мира, он очаровывает даже читателей, которые не привыкли покупать автомобильные журналы. Надежный и строгий в обработке информации. Это практично, понятно, просто и прямо во всех темах. Он предлагает читателю все, что его интересует: эксклюзивные (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECFCE503EAC8C17EDD11048C8B7F4C55FEB04AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476289   (1011692) от 11.06.2021
+
+Kens Dojo - The Future Looks Bright (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wait For Nothing (ft. Age Sten Nilsen)
+02. Raining Down (ft. Rasmus Andersen)
+03. Touch The Sky (ft. Brandon Baumann)
+04. Gone (ft. Chesney Hawkes)(   Читать дальше...   )Жанр: Melodic Metal, Hard RockПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332B113A80EE5E7E71FBC31472D648B0F93D0B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476555   (1011691) от 11.06.2021
+
+FreeFileSync 11.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011691.jpg" />
+</div>
+
+
+###  Подробнее
+
+FreeFileSync - это утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101F48DEDB9F22918B5346A8ECA27E6D3FDBE160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476188   (1011690) от 11.06.2021
+
+Lofft - Start a Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lick It Up
+02. You Are The Rock
+03. Start a Fire
+04. Swap For A Good One(   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC5EA3415F729B6809B8CDDECEB3300D8B705AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476312   (1011689) от 11.06.2021
+
+Dramah - Alter Ego (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volar (04:29)
+02. Nueva Era (04:02)
+03. Siete Vidas (04:05)
+04. Alter Ego (04:25)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476558   (1011688) от 11.06.2021
+
+Balabolka 2.15.0.787 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Балаболка" предназначена для чтения вслух текстовых файлов.
+Для воспроизведения звуков человеческого голоса могут использоваться
+любые речевые синтезаторы, установленные на компьютере.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694FE8760B996BF47B8B5F4C923FB9785EAD85BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476393   (1011687) от 11.06.2021
+
+Vallendusk - Heralds of Strife (2021) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Soar as the Feathers Fall [09:28]
+02. Towards the Shimmering Dawn [09:32]
+03. Ethereal Echoes of Devotion [09:16]
+04. Solivagant Heart [07:35](   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55EFD22E24C38D81F29962DD614B978DE2E7EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475869   (1011686) от 11.06.2021
+
+Серия Кубков NASCAR 2021. Этап 15. Сонома. Гонка / NASCAR Cup Series 2021. Toyota Save Mart 350, Sonoma Raceway (2021) WEB-DL [H.264/720p-LQ]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:41:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476402   (1011685) от 11.06.2021
+
+Brother Against Brother - Brother Against Brother (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Brothers
+02. What If
+03. City Of Gold
+04. Heaven Sent(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D78644F7765FBAAE06D8BEC1E1F02686CF3F4C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476529   (1011684) от 11.06.2021
+
+Vivaldi 4.0.2312.25 + Автономная версия (standalone) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9574ABD7398CDD6EA77B54BA36DA2610972FA59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476337   (1011683) от 11.06.2021
+
+Distant - Aeons of Oblivion (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Pandemonium [00:00:29]
+02 Hellmøuth [00:03:39]
+03 Temple of Taglaroth [00:03:24]
+04 Aeons of Oblivion [00:03:41](   Читать дальше...   )Жанр: Downtempo DeathcoreПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9D5D24AB3146882945D9AE91BF2ACE00CB1F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476427   (1011682) от 11.06.2021
+
+Spiro And Wix - Save The Robot Two (2001) KPM Music [FLAC|Lossless|tracks+.cue] <Downtempo, Ambient, Trip Hop, Leftfield>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Of Souls (A) (04:16)
+ 02. City Of Souls (B) (02:12)
+ 03. Welcome To Your World (A) (03:09)
+ 04. Welcome To Your World (B) (02:56)(   Читать дальше...   )Жанр: Downtempo, Ambient, Trip Hop, LeftfieldПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6994A5EAF1C92474E1215C7EFDC81086F10572AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476297   (1011681) от 11.06.2021
+
+The Negatrons - Stumblebum (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Girl For Me (00:03:59)
+02. Teenage Love Song (00:02:50)
+03. No Place I'd Rather Be (00:05:00)
+04. A Million Miles Away (00:04:25)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476450   (1011680) от 11.06.2021
+
+Солнечное затмение с российских спутников
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011680.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 июня 2021 года, произошло кольцеобразное затмение Солнца. Оно впервые за полвека было доступно для наблюдений из России, лучше всего его было видно из Якутии и Чукотки. Российские спутники дистанционного зондирования Земли «Метеор-М» и «Арктика-М» смогли запечатлеть это астрономическое явление (тень по поверхности планеты) с околоземной орбиты.Частные фазы затмения (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,32 @@
+###  Публикация: 1748705   (43903) от 11.09.2024
+
+VA - Trance 2024, Vol. 7 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila & Richard Durand - Nebula (Original Mix) [4:12]
+02. BiXX & Stargazers & Sarah Russell - A River Runs Through Me (Original Mix) [3:32]
+03. Stoneface & Terminal - Sun & Soul (Original Mix) [3:52]
+04. Kaimo K & Ellie Lawson - Till I Found You (Original Mix) [3:35](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C2E4B0DF930E249EDF1257C88F602BFD411B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748676   (43874) от 11.09.2024
 
 VA - Uplifting Only Top 15: September 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -710,35 +739,6 @@ VA - Deep Trance Showcase IV (2024) [MP3|320 Kbps] <Trance, Progressive, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F352546785042CCBDD859B94D728F61FA86C4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763618   (35415) от 02.12.2024
-
-VA - Nocturnal Knights Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Wilks - Voice In The Dark (Extended Mix) (07:18)
-02. Dan Cooper - Electra (Extended Mix) (06:48)
-03. RAM, Richard Durand, Digital Culture, Spacefrog & Derb - Follow Me 2024 (Extended Mix) (07:49)
-04. 0Gravity & Lucas Deyong - Interfusion (Extended Mix) (06:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE56D27138D2E00517966AFEF4DF80A28FEB4FAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

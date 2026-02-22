@@ -1,3 +1,32 @@
+###  Публикация: 1240758   (523589) от 13.08.2018
+
+VA - Goa World 2018.1 (2018) [MP3|320 Kbps] <Trance, Psy-Trance,Goa-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Va - Goa World 2018.1 (Continuous Mix, Pt. 1) 01:17:58
+02. Va - Goa World 2018.1 (Continuous Mix, Pt. 2) 01:17:31
+03. Freedom Fighters, Astrix - Burning Stones 08:07
+04. Coming Soon!!! - Ready To Get High (Vibe Tribe & Somnia Remix) 07:04(   Читать дальше...   )Жанр: Trance, Psy-Trance,Goa-TranceПродолжительность: 05:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA95798829245E07138ED1C80423C98DD906AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240721   (523582) от 13.08.2018
 
 Zentimo xStorage Manager 2.1.1.1273 RePack by KpoJIuK [Multi/Ru]
@@ -656,32 +685,6 @@ Windows Vista, 7, Windows 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2, 2016,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E75A7ABE49C06EEBA3CFD63F42B6138C29BC99E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927496   (523290) от 15.08.2015
-
-MotoGP. Этап 10/18. Гран-При США Индианаполис. Гонка (2015) HDTVRip [720p/50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десятый этап США. Гонки чемпионата мира MotoGP 2015 в королевском классе. Чемпионат мира по шоссейно-кольцевым мотогонкам (англ. FIM Road Racing World Championship Grand Prix) — высшая категория спортивных гонок на мотоциклах. Проводится Международной мотоциклетной федерацией с 1949 года. Этапы MotoGP (класс Moto Grand Prix) состоит из 3-х свободных практик, квалификации (   Читать дальше...   )Телекомпания: Dorna Sports S.L. (видео), Авто+ (голос)Жанр: Спорт, мотогонкиПеревод: Двухголосый профессиональный (Андрей Бойко, Дмитрий Дьяченко) + ОригиналПродолжительность: 01:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7082ECB34BD6A9C692910403BEE2ABA4D3A4BF80
 ```
 
 https://mybot314.ru/tekegram_catalog/

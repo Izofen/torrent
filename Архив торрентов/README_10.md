@@ -1,3 +1,30 @@
+###  Публикация: 1605856   (1044688) от 19.01.2023
+
+SanDisk SSD Dashboard 3.8.2.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044688.jpg" />
+</div>
+
+
+###  Подробнее
+
+SanDisk SSD Dashboard - официальная программа от Western Digital, которая предназначена для работы с твердотельными SSD накопителями SanDisk. По функциональным возможностям, программа схожа с инструментом Western Digital SSD Dashboard, а начиная с версии 2.5.1.0 полноценно поддерживает работу с накопителями брэнда WD.
+Программа SanDisk SSD Dashboard отображает подробную (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3477C68E0588E3478DA48C5108D1EA5D210DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605901   (1044685) от 19.01.2023
 
 R-Drive Image System Recovery Media Creator Technician 7.0 Build 7010 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -643,34 +670,6 @@ FolderSizes 9.5.409 Enterprise [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C60920BF62819E9EC2BA06A5803D984CF62B92BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606282   (1044487) от 21.01.2023
-
-RisohEditor 5.7.2 + portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044487.jpg" />
-</div>
-
-
-###  Подробнее
-
-RisohEditor это бесплатный редактор ресурсов для среды Win32, созданный Katayama Hirofumi MZ. RisohEditor задумывался как идеальный редактор ресурсов. В японском языке "Risoh" означает "идеал".
-RisohEditor позволяет добавлять, редактировать, извлекать, клонировать и удалять данные ресурсов в файлах EXE/DLL/RC/RES.
-С помощью RisohEditor можно редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83491AE7FBB71E492EEBCEC49D4257D19BF79E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

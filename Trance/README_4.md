@@ -1,3 +1,32 @@
+###  Публикация: 1448896   (1030473) от 19.02.2021
+
+VA - Global Trance Masters Vol.2 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rafael Osmo - Into The Night (Original Mix)
+02. René Ablaze vs. Pluton & Alex Trinnity - Air Tones (Club Mix)
+03. Matt Skyer - Green (Rob Corbo Remix)
+04. André Visior - Moonraker (Alexander Popov & Broning Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9745F55E5364F3FD3726F7D73ADEDF9EA312D92E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448870   (1030472) от 19.02.2021
 
 VA - Black Hole Trance Music 02-21 (2021) [MP3|320 Kbps] <Trance>
@@ -736,35 +765,6 @@ VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D29763D2D1123346F019ED0326F33CF07AB75D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090407   (947531) от 06.01.2017
-
-VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. CeCe Peniston - Make You Fall 04:31
-02. Dash Berlin feat. Kate Walsh - When You Were Around 02:59
-03. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (Den Rize Remix) 03:45
-04. MaRLo feat. Sarah Swagger - Always Be Around 03:57(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0615B328DC0FE778B4171032DF61CB43B583CEEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

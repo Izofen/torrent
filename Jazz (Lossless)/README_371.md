@@ -1,61 +1,3 @@
-###  Публикация: 1776082   (71332) от 30.01.2025
-
-Tran Manh Tuan - Ve que (Coming Home) (2003) Self-Released [FLAC|Lossless|tracks + .cue] <Smooth Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ve que (Coming Home) [6:15]
-02. Nguoc dong Huong Giang (Going Up Stream the Perfumed River) [4:36]
-03. Chi toi (My Lovely Sister) [7:23]
-04. Chi toi (My Lovely Sister) [5:36](   Читать дальше...   )Жанр: Smooth Jazz, World FusionПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA50DBBA8CB07C8FFE3DD40FA8CFE72757D0921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776079   (71331) от 30.01.2025
-
-Laura Caviani - Going There (2005) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going There [6:12]
-02. In the Interim [4:25]
-03. This Is My Song [3:09]
-04. Tobacco Blues [4:32](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52EA22C2AF63F2335DA66E0CF46DB25661582206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776300   (71306) от 31.01.2025
 
 Art Farmer - Something To Live For: The Music Of Billy Strayhorn (1987) Contemporary Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Post-Bop>
@@ -745,6 +687,64 @@ Clifford Jordan, Richard Davis, James Williams, Ronnie Burrage - Four Play (1990
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7920612BFBDBD29C53B6B7C120CC740CAD64400D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777265   (71063) от 05.02.2025
+
+Red Mitchell - Chocolate Cadillac (1976) 1992, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Idrees [8:43]
+02. U.A.I. (You Are Invited) [15:39]
+03. These Foolish Things [5:17]
+04. A Theme for Ahmad [10:04](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C70F77B10C8EFC1ACE4486D059595BBFFD37E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777270   (71062) от 05.02.2025
+
+Buddy Rich - Big Band Machine (1975) 2005, LRC [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Day Sucker [6:55]
+02. Tommy Medley [12:29]
+03. On Broadway [3:54]
+04. Pieces of Dreams [4:36](   Читать дальше...   )Жанр: Jazz-Funk, Big BandПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E37FAE149714E861135F2B287FB03ACDFE7E5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

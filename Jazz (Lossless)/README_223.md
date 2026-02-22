@@ -1,3 +1,32 @@
+###  Публикация: 1176508   (370150) от 22.10.2017
+
+The Duke Pearson Nonet - Honeybuns (1965) 2012, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honeybuns [07:11]
+02. New Girl [05:18]
+03. You Know I Care [04:19]
+04. Is That So? [04:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926222E412DD63F60B8C069DAAA38F3023C57870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176515   (370148) от 22.10.2017
 
 Volker Kriegel - Journal & Palazzo Blue (1981, 1987) 2CD, 2010, Inakustik [APE|Lossless|image + .cue] <Jazz Fusion, Jazz Rock>
@@ -716,35 +745,6 @@ Chet Baker - With Fifty Italian Strings (1959) 1990, Jazzland[FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE8182933E516DE278197C886C5475ED9F9DC43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070365   (366996) от 07.11.2016
-
-Anat Cohen & Trio Brasileiro - Alegria Da Casa (2016) [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murmurando (4:50)
-02. Waiting For Amalia (3:21)
-03. Alegria Da Casa (3:27)
-04. Baiao Guri (3:15)(   Читать дальше...   )Жанр: World Fusion, Latin Jazz, Brazilian JazzПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EAC5BAB7556EB8D27408CF2994AFDBA167D576
 ```
 
 https://mybot314.ru/tekegram_catalog/

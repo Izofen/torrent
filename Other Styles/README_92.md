@@ -1,3 +1,32 @@
+###  Публикация: 1292820   (643184) от 31.03.2019
+
+Андрей Дергачев - Возвращение (2004) [FLAC|Lossless|tracks + .cue] <Soundtrack, Ambient, Non-Music>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Под водой (2:04)
+02. Старик (1:43)
+03. Мелкий (0:13)
+04. В спальне (5:04)(   Читать дальше...   )Жанр: Soundtrack, Ambient, Non-MusicПродолжительность: 0:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB21847BF950E16EE6EBE34EDF84286E22FB88D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227868   (642902) от 28.05.2018
 
 Loreena McKennitt - Lost Souls (2018) [MP3|320 Kbps] <New Age>
@@ -756,35 +785,6 @@ CD1
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033373   (638229) от 11.07.2016
-
-Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638229.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Au Dessous Des Nuages 10:47
-2. Brooklyn 5:19
-3. Movements In Love 8:20
-4. Futura 5:03(   Читать дальше...   )Жанр: Trance, AmbientПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFFD21C3E67A247C59DD83F517F9AABF5753F33
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,178 @@
+###  Публикация: 1759964   (37570) от 11.11.2024
+
+Shaka Ponk - Shaka Ponk (2023) Deluxe Edition, 2024, Tot Ou Tard [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Electro-Rock, Pop Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell of a Sad Song [00:02:07]
+02. The Underground [00:03:06]
+03. We Don't Give a Fuck [00:06:17]
+04. Sex Ball LGBT + (Live on Uranus) [00:09:50](   Читать дальше...   )Жанр: Alternative Rock, Electro-Rock, Pop PunkПродолжительность: 2 CD, 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCA9DD7B1542B3D07EC405BDC172E78CDF52E34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583521   (37545) от 12.11.2024
+
+Blind Guardian - Studio Albums (13 releases) (1988-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Speed/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blind Guardian — немецкая метал-группа, образованная в 1984 году в городе Крефельд. Считается одним из пионеров пауэр-метала, однако музыка группы часто выходит за рамки этого жанра.
+Тексты многих песен группы, которые пишет вокалист Ханси Кюрш, основаны на сюжетах фантастических произведений: книг Джона Толкина, Майкла Муркока, Стивена Кинга, а также на легендах (   Читать дальше...   )1988 - Battalions Of Fear
+1989 - Follow The Blind
+1990 - Tales From The Twilight World
+1992 - Somewhere Far Beyond(   Читать дальше...   )Жанр: Speed/Power MetalПродолжительность: 14:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B3C75E32148359B23793D347F09EC6C8C2B949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552689   (37507) от 12.11.2024
+
+Kreator - Studio Albums (9 releases) (1995-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kreator — немецкая трэш-метал-группа, основанная в 1982 году в Эссене. Название группы происходит от лат. create — «создавать», «творец», а также от имени демона в древненемецкой мифологии. Однако существует и иная трактовка этого названия («Kreatur» с немецкого языка переводится как «тварь» или «создание»). В 1980-х годах группа приложила много усилий к распространению (   Читать дальше...   )1995 - Cause For Conflict
+1997 - Outcast
+1999 - Endorama
+2001 - Violent Revolution(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 09:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E766A677B505A92D94E77AB6748E446F2DB29AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760323   (37370) от 13.11.2024
+
+Citizen Soldier - Icarus (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Letdown [00:03:51]
+02. Everybody Hates You [00:03:18]
+03. Where Were You [00:03:35]
+04. Feels Like a Funeral [00:03:08](   Читать дальше...   )Жанр: Alt.Metal, Modern RockПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F442862D9259E26CD669B77DF3C0E7F4F0F4F958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760498   (37313) от 14.11.2024
+
+The Black Keys - Ohio Players (Trophy Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Nowhere (3:44)
+02. Don't Let Me Go (2:35)
+03. Beautiful People (Stay High) (2:47)
+04. On The Game (4:03)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F530F520C45EB716478B5ACAB5D7D284352D11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732828   (37312) от 14.11.2024
+
+di liberta - Dictum (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indi Folk, Dark Folk, Folk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Кто здесь [00:03:36]
+02 - Колея [00:02:19]
+03 - Небожители [00:03:14]
+04 - Весна [00:03:17](   Читать дальше...   )Жанр: Indi Folk, Dark Folk, Folk RockПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619F0D5ABD43397EAA7174147D31EE054917444B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760488   (37302) от 14.11.2024
 
 Linkin Park - From Zero (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -565,177 +740,6 @@ Fritz Kalkbrenner - Third Place (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80F6C6451C920B594D55C0684FDE36E8816A759E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761445   (36723) от 20.11.2024
-
-VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Ballad, Hard Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Soft Rock, Ballad, Hard Rock, Blues RockПродолжительность: 01:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1610288ECB9F0CB78BCAFDC715F00A68E87B0581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761527   (36683) от 20.11.2024
-
-Luke Watt - Luke Watt (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paddy (3:13)
-02. In Plain Sight (4:25)
-03. The Creek (5:56)
-04. Liza Jean (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01932BCCB9607F5EC6FC443117CFCE05E0FDA42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761459   (36659) от 20.11.2024
-
-Sandy Hall - Full Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock, Singer-Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Feeble Words (03:59)
-02. Love Still Remains (03:35)
-03. The River Calls Me Home (03:51)
-04. Break The Cycle (03:57)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Singer-SongwriterПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D56C58F8B5A6911D46D16ACF6E2B429505CF3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761526   (36657) от 20.11.2024
-
-Dan T. and the Crew - LEGACY (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MIGHTY LONG TIME (4:55)
-02. TEARS (3:28)
-03. MY BLUES (3:33)
-04. BRAND NEW DAY (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9367CFFC58DD59873D1C6A9A710E3D7B0AAA055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761711   (36589) от 21.11.2024
-
-Jazz Romantica, Sexual Music Collection - Jazz Room of Seduction (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Romantica - All of You (3:38)
-02. Jazz Romantica - Chill Lounge (4:05)
-03. Jazz Romantica - Touch of Jazz (3:43)
-04. Jazz Romantica - Coffee (4:11)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8A73578E94610AD9CC2CDA45B7430058CEA348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761679   (36581) от 21.11.2024
-
-Marilyn Manson - One Assassination Under God - Chapter 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Industrial metal, gothic rock, alternative metal, shock rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Assassination Under God (5:28)
-02. No Funeral Without Applause (4:07)
-03. Nod If You Understand (4:05)
-04. As Sick As The Secrets Within (5:36)(   Читать дальше...   )Жанр: Industrial metal, gothic rock, alternative metal, shock rockПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0196A7E1E1BA53562A4C0490FD8EEAE00EBB7984
 ```
 
 https://mybot314.ru/tekegram_catalog/

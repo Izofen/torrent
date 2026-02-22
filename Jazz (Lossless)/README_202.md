@@ -1,3 +1,32 @@
+###  Публикация: 944282   (443115) от 06.10.2015
+
+Wes Montgomery - In The Beginning (2014) 2CD /2014, Resonance Records/ [FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443115.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.After You've Gone [05:02]
+02.Fascinating Rhythm [04:23]
+03.Brazil [04:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB0C8CD6CC8B17006F74C0DD15D2335549D48EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570436   (443033) от 17.08.2022
 
 Art Davis - A Time Remembered (1995) Jazz Planet [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -716,35 +745,6 @@ VA - Music For A Bachelor's Den Vol. 8: Sex Kittens In Hi-Fi - The Brunettes (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB38D1984A768F0797B6C6E6AF7AE55CA66192CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062667   (440116) от 14.10.2016
-
-Duke Ellington - Unknown Session (1960) 1991, Columbia[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Everything But You [03:33]
- 02.Black Beauty [03:17]
- 03.All Too Soon [03:13]
- 04.Something To Live For [02:46](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4C43045048EF6776C2D16D9717CFD76C27D90B
 ```
 
 https://mybot314.ru/tekegram_catalog/

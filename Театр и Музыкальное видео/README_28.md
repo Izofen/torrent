@@ -1,3 +1,93 @@
+###  Публикация: 983710   (938140) от 09.02.2016
+
+Modern Talking - Music & Video Stars (2013) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938140.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You're My Heart, You're My Soul
+2. You Can Win If You Want (Original No 1 Mix '84)
+3. There's Too Much Blue In Missing You
+4. Cheri Cheri Lady(   Читать дальше...   )Производство: EUЖанр: МузыкальныйПродолжительность: 01:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47591FB65E85880261ABC7B4B9EF17C2CAD06447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628046   (938111) от 09.03.2013
+
+Foreigner - Live In Chicago (2011/2012) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Foreigner — американский хард-рок-секстет, который был сформирован в 1976 году Миком Джонсом (прежде работавшим с Джорджем Харрисоном) и Ианом Макдональдом из King Crimson. Их первые шесть альбомов (1977—1984) стали мультиплатиновыми и в целом продавались в США лучше, чем записи их конкурентов из мира хард-рока. Группа продолжает существовать и по сей день, однако из первоначального состава в ней остался только Джонс.01. Double Vision
+02. Head Games
+03. Cold As Ice
+04. Waiting For A Girl Like You
+05. Blue Morning, Blue Day
+06. Dirty White Boy
+07. When It Comes To Love
+08. Starrider
+09. Feels Like The First Time
+10. Urgent(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:18:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 627641   (938073) от 09.03.2013
+
+Helene Fischer – Best of Live/So wie ich bin (2010) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938073.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках Live Tour 23 октября 2010 года Хлене Фишер дала концерт в Берлине в концертном зале "02 World", где были исполнены все лучшие хиты в живую.Производство: Werner Kimmig GmbH / EMI Music Germany GmbHЖанр: PopПеревод: ОтсутствуетПродолжительность: 02:27:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 626316   (938052) от 09.03.2013
 
 Русский ХИТ - Клипы в навал Vol. 03 (2013) HDTVRip
@@ -659,93 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61FD0613A1CF017A8B54DD09BCF38DECBA61A7DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284823   (935991) от 20.01.2011
-
-Потап и Настя Каменских - Не люби мне мозги (2009) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Видеоклип великолепного хита Потапа и Насти КаменскихЖанр: Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B870D16587223248E2FBF8F530F55617B4E0C93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284114   (935860) от 20.01.2011
-
-Epica - Видеография (2004-2010) DVD9
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Unleashed
-02. Solitary Ground
-03. Quietus
-04. The Haunting (Kamelot feat. Simone Simmons)
-05. Never Enough
-06. Cry For The Moon (Wolverine Edit)
-07. The Phantom Agony
-08. Tides Of Time (Live Amstelveen, Netherlands 2010)
-09. Unleashed (Live Philadelphia, USA 2010)
-10. The Obsessive Devotion (Blue Bird Theater, Denver 2010)(   Читать дальше...   )Жанр: Symphonic / Gothic MetalПродолжительность: 02:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A6BDB60036D09C9EA9F3966CC885315F9F06AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628623   (935316) от 11.03.2013
-
-Danielle - Pat It Up (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ReggaeПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A9094AC13BF9A5BDF5232E3BBC2972AE93E09C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,91 @@
+###  Публикация: 875309   (852862) от 09.03.2015
+
+VA - Anjunadeep pres. Deep House 02 (2014) [MP3|256 кб/с]<Progressive House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Dusky - Mr Man
+02. Lane 8 - Be Mine
+03. Davi - The Bay 6, Pt. 2
+04. Lancelot - Givin' It Up (feat. Antony & Cleopatra)
+05. Beckwith - Back To Love (feat. Catherine Porter)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2684C8D964044DF2D9FF5655B3235162DD4BA4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498720   (852424) от 29.09.2021
+
+VA - House vs. Deep House Show Love (2021) [MP3|320 Kbps] <House, Deep House, TechHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RaviGauly - House Of Shiva (Full Moon Mix)
+02. Trip2 Universe - Fake Reality (Original Mix)
+03. WiNeSk feat. Carmen Miller - Business (Original Mix)
+04. Thomas Dur - One Way (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, TechHouseПродолжительность: 02:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBA4555498A6933225629D11C188D4DFA25A49E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110789   (852272) от 03.03.2017
+
+VA - Enhanced Miami (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tritonal & Sj ft. Emma Gatsby - Hung Up (Original Mix)  3:40
+02.  LEVV - Collateral Damage (Original Mix)  4:25
+03.  Vanrip - Find Your Love (Original Mix)  2:57
+04.  No Way Back - Minute (Original Mix) (feat. Sophia Black)  3:40(   Читать дальше...   )Жанр: HouseПродолжительность: 03:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93733253A480F4B86E760CFADE183C3DBC1DF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110401   (852176) от 03.03.2017
 
 VA - Deep House Paris Vol 3 (2017) [MP3|320 Kbps] <Deep House>
@@ -655,94 +743,6 @@ VA - The Tribal House of Istanbul (2017) [MP3|320 Kbps] <House, Tech House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BF62499DEEA0AA73229923F3C44F548FED88E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112176   (844853) от 07.03.2017
-
-Moby - Suara Remixes (2017) [MP3|320 Kbps] <Techno, Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go (Victor Ruiz Remix) 09:19
-02. Porcelain (Julian Jeweil Remix) 06:31
-03. Natural Blues (Reinier Zonneveld's Homage Remix) 07:17
-04. Go (Victor Ruiz Warehouse Mix) 07:43(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AEDF228A52E063F9C2C9B49C7CDCC166AE394D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003162   (843571) от 03.04.2016
-
-VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Thomas Feijk - Hi (Original Mix) 08:30
-02 Hazem Beltagui - She Came (Terry Da Libra Remix) 08:26
-03 Atlantis Ocean - Fuji (Original Mix) 07:15
-04 Labtracks - Robotic Love (Lenno Remix) 04:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE4668A1C63600DB04A288FE51860C216E6108D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112498   (843386) от 08.03.2017
-
-VA - Summer Is Coming So Get Ready For Some Running (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midimute — Idea [04:02]
-02. Mike Goldberg — Simon [03:45]
-03. Karasto — Plus [04:30]
-04. Klinikum — Stronger [04:32](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:50:09
-Лейбл: Skyheels - 10118910
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7946D771CF603196B5B56DEAB3B1E303EE19AF54
 ```
 
 https://mybot314.ru/tekegram_catalog/

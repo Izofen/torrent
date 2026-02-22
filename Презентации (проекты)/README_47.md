@@ -1,3 +1,29 @@
+###  Публикация: 1073827   (342371) от 17.11.2016
+
+Проекты - VideoHive - Gold Broadcast Package - 18529274 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gold Broadcast Package - анимационный пакет для вещательных программ.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B902D23E98B22278869A2D93178F0B9419310F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073663   (342282) от 17.11.2016
 
 Проекты - VideoHive - Fashion Diamond - 2778412 [AEP]
@@ -657,33 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2FE4E41E3EEF40E90AF17DEA640740046936C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956220   (330831) от 13.11.2015
-
-Проекты - VideoHive - Music Event Promo - 8137225 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания презентации музыкального события.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A2265D64E1CED7C8DCD678A0378B65AD4F8318
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1226638   (653694) от 22.05.2018
+
+PDFMate PDF Converter Professional 1.87 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653694.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFMate PDF Converter Professional - является очень действенным решением, предназначенным для конвертирования PDF-документов в различные форматы, включая EPUB, TXT, JPG, HTML, SWF и DOC. Преобразует PDF в текст, EPUB книги, изображения (JPG файлы), HTML и SWF файлы. Вам больше не нужно беспокоиться о проблемах копирования и редактирования PDF файлов. Теперь Вы можете (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77A13390DFDBBC1DF8E94476B90B564AA7E4ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226790   (653686) от 22.05.2018
 
 MetaProducts Offline Explorer Enterprise 7.5.4620 SR1 Portable by punsh [Multi/Ru]
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8422E87F1CDC8783CFC2670D8EB583A19BE9957B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516269   (653540) от 28.06.2012
-
-[Графика] Японский художник Rie Nakajima
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Японский художник Rie Nakajima
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C430558611027D34C54C3712BA5D062CA78F5D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

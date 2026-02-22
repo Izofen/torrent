@@ -1,3 +1,32 @@
+###  Публикация: 1028499   (688589) от 23.06.2016
+
+The Browning - Isolation (2016) [MP3|~245 кб/с (V0)] <Deathcore, Electronic, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cynica (3:10)
+02. Pure Evil (4:11)
+03. Isolation (3:37)
+04. Dragon (4:04)(   Читать дальше...   )Жанр: Deathcore, Electronic, MetalcoreПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0D7A8B0B7F986DC468F008C7CA179216C8F5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403601   (688562) от 21.08.2020
 
 (hed) Planet Earth - Class of 2020 (2020) [MP3|320 Kbps] <Nu Metal, Rapcore>
@@ -733,35 +762,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78AE690572786698C3014F362A9C93EB65832D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029953   (678609) от 28.06.2016
-
-Widow - Carved In Stone (2016) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678609.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Burning Star
-2. Carved In Stone
-3. Another Time And Place
-4. Wisdom(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C322BE181ED2853BD334CA8E7F22537598B67225
 ```
 
 https://mybot314.ru/tekegram_catalog/

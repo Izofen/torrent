@@ -1,3 +1,32 @@
+###  Публикация: 1209013   (779533) от 25.02.2018
+
+VA - Subculture (Mixed By John O'Callaghan & Cold Blue) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John O'Callaghan  -  Permutations (Intro Mix Edit)  1:58
+02.  Liam Wilson  -  Always With Me (Edit)  5:37
+03.  Temple One feat. Deidre Mclaughlin  -  Reaching For A Dream (Edit)  3:33
+04.  John O'Callaghan  -  Choice Of The Angels (Edit)  5:34(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7790F72E6D0E0362B308D64C4ECE14D126F3904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208647   (779525) от 25.02.2018
 
 VA - Black Hole Presents Best Of Vocal Trance 2018 Vol 1 [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Trance Mission (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87D827C967587C63B84D94FEA2DB479B466B845C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125541   (768106) от 15.04.2017
-
-VA - Unique Sense In Miami (Mixed by Abstract Vision) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Abstract Vision - Vertex (Radio Edit)  3:36
-02.  D'Jaeger - Genesis (Radio Edit)  2:38
-03.  Iversoon & Alex Daf vs Aurora Night - Hover (Radio Edit)  3:49
-04.  D'Jaeger - Chronicle (Radio Edit)  2:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1E09494534FB19C952754FE65E48ACB3120F8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

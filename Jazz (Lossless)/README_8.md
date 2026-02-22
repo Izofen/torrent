@@ -1,3 +1,32 @@
+###  Публикация: 1446392   (1033042) от 08.02.2021
+
+Yussef Dayes Trio - Welcome to the Hills (2020) [FLAC|Lossless|tracks] <Jazz Fusion,  Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Love ~ Amazonian Springs (05:17)
+02. Jamaican Links (01:46)
+03. Odyssey (03:45)
+04. Gully Side (12:30)(   Читать дальше...   )Жанр: Jazz Fusion,  Jazz-FunkПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85690D1DF38BCB230BE1AD1295606924413AD356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619450   (1033012) от 16.03.2023
 
 Fats Waller - 1942 - 1943 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
@@ -716,35 +745,6 @@ Sonny Rollins Trio - Live in Munich (1965) 2011, Domino Records [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:699F2681AFB8F5593FD8CA5C93977422CFD66733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447259   (1031929) от 13.02.2021
-
-Charlie Christian - Jazz Guitar Hero (1939 - 1941) 2010, Grammercy Records [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ad Lib Blues [3:20]
-02. Flying Home [3:08]
-03. Dinah [2:56]
-04. Sheik of Araby [3:52](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331369372237C688EA1E90BB930DA2B8E472C5F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

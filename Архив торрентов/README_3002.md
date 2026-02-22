@@ -1,3 +1,32 @@
+###  Публикация: 1305593   (556439) от 31.05.2019
+
+DJ Ruby - Live @ Secret Garden Party, Zurrieq, Malta 2019-05-11 [MP3|256 Kbps] <Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airwave - A Touch Of Grace (Zankee Gulati Remix)
+02. Piemont - Endless Sea
+03. Juan Deminicis - Life On The Moon (Lucas Rossi Remix)
+04. Dmitry Molosh - Compass(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2455767E8E9B466AE77E4A87CE83B02782EF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557048   (556437) от 12.06.2022
 
 O&O DiskImage Professional 17.4 Build 474 RePack by elchupacabra [Ru/En]
@@ -665,32 +694,6 @@ Infix PDF Editor Pro 7.4.0 RePack (& Portable) by TryRooM [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4721D44699CC3147A471847E4C0FB4FEE1ED850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305777   (556135) от 01.06.2019
-
-ReviverSoft Driver Reviver 5.28.0.4 RePack (& Portable) by TryRooM [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Reviver – это приложение, которое просканирует вашу систему на предмет устаревших драйверов и предложит их обновить. Сканирование производится по одной из самых больших баз драйверов, что гарантирует поддержку очень многих устройств. С использованием Driver Reviver все ваши устройства ПК будут работать максимально быстро и эффективно. Устаревшие драйвера могут (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A209B3EF77330B650F04BB6270C430BF4D75576E
 ```
 
 https://mybot314.ru/tekegram_catalog/

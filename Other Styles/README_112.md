@@ -1,3 +1,32 @@
+###  Публикация: 1311625   (536387) от 02.07.2019
+
+Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epiphany [03:03]
+02. Turning Point [03:17]
+03. Reflection [03:23]
+04. Innocence [02:55](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2C31713C78A248D82E7BC1B0732A32D7A14624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311630   (536318) от 02.07.2019
 
 Atom Music Audio - EON II (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -733,35 +762,6 @@ Joseph Bishara - Annabelle Comes Home / Проклятие Аннабель 3 (O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A478A203E43DC9F5DB3D0FA3F1D5D6D0863DD09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312205   (530816) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я твой хороший друг (02:05)
-02. Ты не вздумай (02:09)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FFE5C462ACE91464C32947ADB8EF5112F4AEC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

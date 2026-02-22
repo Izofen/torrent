@@ -1,3 +1,31 @@
+###  Публикация: 1233052   (567417) от 07.07.2018
+
+Evangelion Shin Gekijouban: Q | Evangelion: 3.33 You Can (Not) Redo | Евангелион 3.33: Ты (не) исправишь [2012, Movie] BDRip 1080p rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир изменился... Для Синдзи знакомство с ним после пробуждения оказывается оглушающе болезненным. Герою предстоит увидеть, куда ведут благие намерения вчерашних союзников и слепая решимость бывших близких друзей. Но когда рядом сверкнет надежда, у него все-таки найдутся силы что-то изменить - и это может оказаться важнее всего остального.
+
+Третий фильм, штормом захвативший (   Читать дальше...   )Производство: Япония, Studio KharaЖанр: драма, фантастика, мехаРежиссер: Анно ХидэакиЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 1 эп. по 95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6B1063F929C38018277A159D2BB48978B9F64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529565   (567415) от 31.07.2012
 
 VA - Tribal Fires. Contemporary Native American Music (1997) [MP3|320 кб/с]<Native American, Ethno, Folk>
@@ -677,35 +705,6 @@ Algonaut - Atlas 2 2.2.2 STANDALONE, VSTi, VSTi3 (x64) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F883F1804B0BEF6BAB63F0F9C0F13C684E50BF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044280   (567143) от 19.08.2016
-
-VA - Goa Session by Outsiders (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outsiders vs Symbolic  -  Life on Earth  8:40
-02. Circuit Breakers  -  Square Stomp (Outside the Universe Remix)  8:34
-03. Outsiders  -  Our Moment Has Arrived  7:50
-04. Sonic Species  -  The First and the Last (Mad Maxx Remix)  7:57(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 02:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F34FF1FB1495C5D5BC7F6616D028349F1E8C2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1403231   (694270) от 18.08.2020
+
+VA - Vocal Trance feat. Jess Morgan (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Morris feat. Jess Morgan - Made Of Light (Radio Edit)
+02. Amir Hussain feat. Jess Morgan - Set Your Heaven Free (Radio Edit)
+03. Allen & Envy feat. Jess Morgan - The Heart That Never Sleeps (Radio Edit)
+04. Dark Matters feat. Jess Morgan - The Perfect Lie (Beat Service Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106612D17A6DD62C4D26480FF64C9E9512C3ABF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403223   (694156) от 18.08.2020
 
 VA - A State Of Trance (Mixed by Armin van Buuren) (2020) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive Trance>
@@ -713,35 +742,6 @@ VA - Trance Nation (2019) [MP3|320 Kbps] <Trance, Electronic, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEBD82EC6D67E63A1F4EEB7B678C63C25A5EC00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291429   (670702) от 24.03.2019
-
-VA - Miami Dance & Trance: WMC (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Cooper feat. Natasha Burnett - Eyes Shut (O.B.M Notion Remix) 6:56
-02. Milosh K feat. Paula P'cay & Victor Special - Your Choice (NyTiGen Remix) 6:40
-03. Ward Palmen & Adam Cooper - Flames (Adam Cooper WMC Miami Club Mix) 6:12
-04. Em Appelgren - Game Over (Adam Cooper Remix) 6:17(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Progressive House, DanceПродолжительность: 03:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC90689ED493DEE813EE2D78A0CD0D576DE2C4C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

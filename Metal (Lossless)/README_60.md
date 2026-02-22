@@ -1,3 +1,275 @@
+###  Публикация: 1494164   (889334) от 07.09.2021
+
+Euge Valovirta - Shooting From The Hip (2021) [FLAC|Lossless|WEB-DL|tracks] <Shred, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scary Frankie
+02. Bogrenious
+03. Pasadena '78
+04. The Bad Boy(   Читать дальше...   )Жанр: Shred, Heavy MetalПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C518A0E0B562BACA81747D1514236F14FD9A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494366   (889200) от 07.09.2021
+
+Eisbrecher - Maximum Monster (2021) [FLAC|Lossless|image + .cue] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889200.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fakk
+2. Anfang (Demo Version)
+3. Im Guten Im Bösen (Radio Version)
+4. Eiszeit (Live @ Mera Luna)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4086334196BD90D242FD7E4DFE120D9D5F58954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494142   (889192) от 07.09.2021
+
+Tragedy - Disco Balls to the Wall (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Disco>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme! Gimme! Gimme! (A Man After Midnight)
+02. You're the One That I Want
+03. Evil / Baker Street
+04. Stayin' Alive(   Читать дальше...   )Жанр: Heavy Metal, DiscoПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5416DAC17CC6B9AD9CC0A1408FE5104A1EABC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184210   (889165) от 20.03.2010
+
+Sabaton - Дискография (5 альбомов) (2000-2008) [FLAC|Lossless]<Military Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Sun Tzu Says
+02 - Ghost Division
+03 - The Art Of War
+04 - 40:1
+05 - Unbreakable
+06 - The Nature Of Warfare
+07 - Cliffs Of Gallipoli
+08 - Talvisota
+09 - Panzerkampf
+10 - Union (Slopes Of St. Benedict)(   Читать дальше...)Жанр: Military Heavy Power Metal
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762773   (889110) от 04.03.2014
+
+Axenstar - Perpetual Twilight (2002) [APE|Lossless]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  All I Could Ever Be [04:32]
+02.  The Cross We Bear [05:44]
+03.  King Of Tragedy [05:32]
+04.  Scars [05:04]
+05.  Enchantment [04:39]
+06.  New Revelations [07:14]
+07.  Secrets Revealed [03:10]
+08.  Confess Thy Sins [04:06]
+09.  Perpetual Twilight [08:29]Жанр: Power MetalПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8B39326F6FF7BD6B07493C5A679C09D1FF49E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371884   (888715) от 01.04.2020
+
+Dead by Monday - Dead by Monday (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lost Generation
+02 American Horror Story
+03 Dreamseeker
+04 Bed of Nails(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0C6FE1FFFE22D834BC4595ECA42451BAE49FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371754   (888713) от 01.04.2020
+
+Reactory - Collapse to Come (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Hex [02:34]
+02. Speedboat Piracy [02:22]
+03. Graves of Concrete [03:02]
+04. Misantropical Island [04:37](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9627D5AE29BFA76705D958F8F94C3952A8040F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371915   (888441) от 01.04.2020
+
+Leaves' Eyes - 7 Albums, 1 Live, 10 EPs (2004-2019) 20CD [FLAC|Lossless|image + .cue|tracks + .cue] <Heavy Metal, Folk Metal, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Leaves' Eyes - (с англ. - «Глаза листьев») — германо-норвежская симфоник-метал-группа, основанная в 2003 году вокалистами Александром Круллом и Лив Кристин. Группа исполняет мелодичный метал с использованием клавишных и иногда народных инструментов, симфоническими аранжировками и влиянием средневековой музыки. Тексты песен посвящены главным образом средневековой (   Читать дальше...   )Список альбомов:
+2004 - Into Your Light
+2004 - Lovelorn
+2005 - Elegy(   Читать дальше...   )Жанр: Heavy Metal, Folk Metal, Symphonic RockПродолжительность: 11:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD6752908B3C57E3EC5E38FB8CEB7D548087283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166400   (888252) от 01.04.2020
+
+Threshold - 11 Albums, 4 Compilations, 6 Lives, 3 Singles (1993 - 2018) 39CD [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Threshold (с англ. - «Порог») — английская рок-группа, играющая в стиле «прогрессивный метал». Основана в 1988 году в городе Суррей (Англия). Threshold — одна из ведущих групп прогрессив-металла, которая существует уже более 20 лет.Список альбомов:
+1993 - Wounded Land
+1994 - Psychedelicatessen
+1997 - Extinct Instinct(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 30:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0737DC6F0A0337F48F12A00253166DAE166BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994686   (888243) от 09.03.2016
 
 Fight - Mutations (1994) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -493,281 +765,6 @@ Cabal - Drag Me Down (2020) [FLAC|Lossless|tracks] <Deathcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8DC41103DED30CFB1299E0D8000F10EE622A230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372351   (885611) от 03.04.2020
-
-Pigs Pigs Pigs Pigs Pigs Pigs Pigs - Viscerals (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reducer [04:28]
-02. Rubbernecker [04:27]
-03. New Body [07:10]
-04. Blood and Butter [01:39](   Читать дальше...   )Жанр: Heavy Metal, Psychedelic RockПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163D3EC2AFB2944504A126218B3CC9933EBAAE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372172   (885285) от 03.04.2020
-
-Testament - Titans of Creation (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children of the Next Level (06:13)
-02. WWIII (04:48)
-03. Dream Deceiver (04:58)
-04. Night of the Witch (06:32)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC838705648EA3F2B5A9579C1AAEAB27FF7F2A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372382   (885283) от 03.04.2020
-
-Sepultura - Beneath The Remains (1989) 2CD Remastered, 2020, Roadrunner Records [FLAC|Lossless|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Original Album
-1-01	Beneath The Remains
-1-02	Inner Self
-1-03	Stronger Than Hate(   Читать дальше...   )Жанр: Thrash MetalФормат: 2 × CD, Album, Reissue, RemasteredПродолжительность: 02:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804959D15FFCCCB6514E82B19F9C7B2B690EA16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264098   (885196) от 03.04.2020
-
-Sinergy - 3 Albums (1999-2002) 4CD [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sinergy — финская супергруппа, исполнявшая музыку в стиле пауэр-метал. Группа основана американской вокалисткой Кимберли Госс и гитаристом группы In Flames Еспером Стрёмбладом в 1998 году.Список альбомов:
-1999 - Beware The Heavens
-2000 - To Hell And Back
-2002 - Suicide By My SideЖанр: Power MetalПродолжительность: 02:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072560887CC9CA8A2342076E978619CC7E4DBB29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 297655   (885114) от 19.02.2011
-
-Savatage - Дискография (1983 - 2010) [FLAC|Lossless]<Heavy/Power/Progressive Metal>
-
->>След.
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Power Of The Night (5:16)
-02. Hall Of The Mountain King (5:33)
-03. 24 Hours Ago (4:56)
-04. Legions (4:52)(   Читать дальше...   )Жанр: Heavy/Power/Progressive MetalПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640617   (884920) от 08.04.2013
-
-Chrome Molly - 3 альбома (2CD) (1985/87 - 2013) [FLAC|Lossless]<Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Corporation Fear [03:32]
-02.TV Cops [04:38]
-03.Stop Love! [04:14]
-04.Short Sharp Shock [03:41]
-05.Clean Outta Luck [04:15]
-06.Supercharged [04:39]
-07.Complicated [03:35]
-08.All In My Mind [05:02]
-09.Billion Dollar Heart Attack [03:43]
-10.Bulletproof [03:59](   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641367   (884835) от 08.04.2013
-
-Corroded - 3 Альбома (2009-2012) Дискография [FLAC|Lossless]<Alt.Metal | Hard Rock >
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-<<<
-----------------------------------------------------------------------------
-01. Oderint Dum Meduant
-02. Let Them Hate As Long As They Fear
-03. More Than You Can Chew
-04. I Will Not
-05. Uncommon Sense
-06. I Am The God
-07. Believe In Me
-08. Beautiful Revolution(   Читать дальше...   )Тип издания: ДискографияЖанр: Alt.Metal | Hard RockПродолжительность: 00:43:37 >>>
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995371   (884817) от 11.03.2016
-
-Mike Dimareli Artical - Fantasy (2004) [FLAC|Lossless|image + .cue] <Shred Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into Fantasy (Instrumental)
-02. The Magic Times (Instrumental)
-03. Tears from Your Eyes (Instrumental)
-04. Feel the Melody (Instrumental)(   Читать дальше...   )Жанр: Shred Power MetalПродолжительность: 00:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F93A5EB4277923AD867BABA17B458D0423722DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870534   (884553) от 19.02.2015
-
-Oomph! - Unrein (1998) [FLAC|Lossless]<Industrial Metal / Industrial Rock / NDH>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1 Mutters Schoss
-2 Unsere Rettung
-3 Die Maske
-4 My Hell
-5 Gekreuzigt(   Читать дальше...   )Жанр: Industrial Metal / Industrial Rock / NDHПродолжительность: 01:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD8D8045CCFC5FF60A8EA74C42F92A2BC4C3787
 ```
 
 https://mybot314.ru/tekegram_catalog/

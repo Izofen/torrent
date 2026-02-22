@@ -1,3 +1,32 @@
+###  Публикация: 1182362   (317163) от 10.11.2017
+
+VA - Grotesque Reworked & Remixed - (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JES – People Will Go (M.I.K.E. Push Remix)
+02. DJ Ton T.B. – Dream Machine (Factor B's Back To The Future Remix)
+03. Salt Tank – Eugina (Ciaran McAuley Remix)
+04. Mr. Sam – Lyteo (Stoneface & Terminal Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D570BF4253731BC811A05CA7F5152A479A5E4B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182237   (317063) от 10.11.2017
 
 VA - Vocal Trance Classics Top 40 (2017) [MP3|320 Kbps] <Vocal Trance>
@@ -714,35 +743,6 @@ VA - Amsterdam Trance Sessions Vol.13 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0647FF64178819477377B3096DC065164274ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185436   (293744) от 21.11.2017
-
-VA - The Best Of Deepsink Digital Trance Vol 2 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4Joann - Connected For Eternity (Original Mix)
-02. Dan Delaforce - Falling Rocks (Theølogy) & Jon Fast Remix
-03. DJ Da Dominator - Enlightenment (DJ Da Dominator Remix)
-04. DjjhonnyVergel - One Way (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFE26EB7DD917105877953C744C6CA96B0D0E4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

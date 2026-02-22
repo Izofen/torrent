@@ -1,3 +1,38 @@
+###  Публикация: 539177   (503801) от 29.08.2012
+
+DJ Kocmoc - Euphoria Summer Dance vol.8 (2012) [MP3|320 кб/с]<Electro House, Club House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503801.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Syntheticsax Mike Prado Feelings of Spring Extended Mix
+ 2. SEREBRO - Мама Люба (DJ Sheron & Serg Shenon remix)
+ 3. Алисия & Влад Корса - Здесь и сейчас
+ 4. Global Deejays - Hardcore Vibes (Dj Viduta Olive Schulz Remix) [2012]
+ 5. Playmen - Fallin (Extended Mix)
+ 6. Far East Movement Feat Justin Bieber - Live My Life (Uk Pop Extended Mix) [2012]
+ 7. DJ Fisun - FCSM Детская
+ 8. Dada Life - Rolling Stone T-Shirt (Cazzette 'Approaching Starry Homes' Mix)
+ 9. Carl Tricks - Mad Dash (Bingo Players Edit)
+ 10. DJ Sergey Fisun feat. IKA - Москва Слезам Не Верит (Original mix)Жанр: Electro House, Club HouseПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6564377F1FA8BE9E53184298F3493B6FCF11449A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540614   (503798) от 29.08.2012
 
 Журнал | Joy №№ 8, 9 [август, сентябрь 2012] [PDF]
@@ -649,32 +684,6 @@ The Pretty Reckless - Light Me Up (2010) [FLAC|Lossless]<Alternative Rock/Post G
 ###  Подробнее
 
 Жанр: Alternative Rock/Post GrungeПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 233756   (503677) от 06.09.2010
-
-Teorex Inpaint 2.4.1. RePack by elchupacabra [RuS]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503677.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПрограммаЯзык интерфейса: RuS
 
 ## Скачать торент
 ```bash

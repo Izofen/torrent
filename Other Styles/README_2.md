@@ -1,3 +1,32 @@
+###  Публикация: 214614   (1030578) от 18.02.2021
+
+VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chillout>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man Behind C. feat. Miriam - See You Again 	(06:08)
+02. Magica Fe - Words					(06:47)
+03. Soulcraft feat. Jill Noom - Rain In My Hair		(05:34)
+04. Sine - Always					(05:03)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 04:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9092AF1C9FFEC87046D39C28CAAFAEBFD474F521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288278   (1030576) от 18.02.2021
 
 Harry Holland ‎– Superhits '85 Im Magic Accordion-Sound (1985) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96621891A2841174A42362D35F58BB7FB2D64405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351111   (1030102) от 20.02.2021
-
-Алексей Рыбников - Музыка любви (2006) [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тема любви (из к/ф "Шанс") 			     (03:57)
-02. Сны Татьяны (из к/ф "Шла собака по роялю") 	     (01:10)
-03. Финал (из к/ф "Вам и не снилось") 		     (02:43)
-04. Тема на титрах (из к/ф "Шанс") 		     (01:49)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645BAF44F70D6993F0D72B4E6E88F6AAA54F8BBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

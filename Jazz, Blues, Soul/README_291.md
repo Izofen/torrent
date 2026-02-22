@@ -1,3 +1,90 @@
+###  Публикация: 1156206   (528410) от 06.08.2017
+
+V.A. - The Complete 'Blue Cover' Series (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Broken Beat, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pisk - Minnie The Moocher
+02. Fab Samperi - The Big Swing (feat Lil Hardin Armstrong - radio edit)
+03. Charlie Beale - Stop Breakin' Down Blues
+04. DJ Dunya - Xyloswing(   Читать дальше...   )Жанр: Electro Swing, Broken Beat, Nu JazzПродолжительность: 01:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA5F9DC1EF7889A9D4914ECC41336E607DAE2CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313074   (528290) от 07.07.2019
+
+Marty Ehrlich's Traveler's Tales - Malinke's Dance (2000) [FLAC|Lossless|tracks + .cue] <Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhymes (8:41)
+ 02. The Cry Of (9:52)
+ 03. Malinke's Dance (8:19)
+ 04. Line on Love (7:42)(   Читать дальше...   )Жанр: Free JazzПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D5A3F75429F9CCE94354849DF30036590CA510F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052429   (528199) от 14.09.2016
+
+The Don Pullen & George Adams Quartet - Breakthrough (1986) Blue Note[APE|Lossless|image + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mr. Smoothie [06:10]
+ 02.Just Foolin' Around [06:21]
+ 03.Song From The Old Country [08:15]
+ 04.We've Been Here All The Time [09:10](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1DF480419E07FD607E873E9AD5703BD4CF039E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052396   (528198) от 14.09.2016
 
 Raphael Imbert & Co - Music Is My Home (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Blues>
@@ -658,93 +745,6 @@ Tommy Emmanuel - The Guitar Mastery of Tommy Emmanuel (2014) 2 CD, Compilation [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B2A5BDC1710AA5763AF73426D14D2B0BE02D8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157116   (525883) от 10.08.2017
-
-Paul Whiteman - Greatest Hits (1920 - 1928) 1999, Collector's Choice [FLAC|Lossless|tracks + .cue] <Early Jazz, Dance Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Japanese Sandman [02:58]
-02. Whispering [03:14]
-03. Say It With Music [03:15]
-04. Hot Lips (He's Got Hot Lips When He Plays Jazz) [03:21](   Читать дальше...   )Жанр: Early Jazz, Dance BandПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FE28E56BA3B45B2DA087D14C020848BA1944B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157117   (525882) от 10.08.2017
-
-Duke Pearson - Profile (1959) 1999, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Someone in Love [05:31]
-02. Black Coffee [04:32]
-03. Taboo [04:58]
-04. I'm Glad There Is You [04:53](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8727FE68AA568E88BEC7D45A74B3971277FDF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157115   (525878) от 10.08.2017
-
-Dmitry Baevsky - The Day After (2017) Jazz Family [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Would You? [06:40]
-02. Minor Blues 012 [06:38]
-03. Chant [05:31]
-04. Minor Delay [06:39](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48549599A4B5215430C6A42B39B92DD88535F22
 ```
 
 https://mybot314.ru/tekegram_catalog/

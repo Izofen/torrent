@@ -1,3 +1,29 @@
+###  Публикация: 535001   (518623) от 14.08.2012
+
+The Amazing Spider-Man (NoDVD/1.0) 2012 | SKIDROW
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Позволяет поиграть в игру, под наванием The Amazing Spider-Man. Приятной игры!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D482E1F094122E55A2F0A0647EBE9B9D6AC82C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534836   (518622) от 14.08.2012
 
 Adobe Reader X 10.1.4 Final [RUS]
@@ -677,33 +703,6 @@ Ashbury Heights - The Looking Glass Society (2015) [MP3|320 кб/с]<Synthpop, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84A1127076A6F6226EDAFC136A8464C6001AADD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929532   (518467) от 20.08.2015
-
-Fidelia 1.6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fidelia — проигрыватель для сверхкачественного звука
-Главное достоинство программы — удивительная всеядность, естественно необходимая такому плееру. Fidelia помимо стандартного mp3 без проблем понимает AIFF, WAV, CAF, MP3, AAC, ALAC, Ogg Vorbis и FLAC. Кроме того, поддерживаются треки высокого разрешения, вплоть до 192КГц и глубиной в 32-бит с плавающей точкой. В (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 августа 2015Разработчик: Audiofile Engineering, LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480B113D88FEDE29EDA47E9CC50617EF9CA22307
 ```
 
 https://mybot314.ru/tekegram_catalog/

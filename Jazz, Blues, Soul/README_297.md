@@ -1,3 +1,90 @@
+###  Публикация: 1561458   (514674) от 05.07.2022
+
+Xander and the Peace Pirates - Order out of Chaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Cry (4:52)
+02. Leave The Light On (4:04)
+03. Soul Sailing (3:17)
+04. I'm No Good At Being Bad (5:10)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8EE9DE6ACFB01B90814F4F5DC2221B61F6B1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561546   (514673) от 05.07.2022
+
+Steve Tibbetts - Hellbound Train: An Anthology (2022) Remastered[FLAC|Lossless|WEB-DL|tracks] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Full Moon Dogs (00:09:19)
+02 - Chandoha (00:05:57)
+03 - Lochana (00:03:41)
+04 - Black Temple (00:09:57)(   Читать дальше...   )Жанр: FusionПродолжительность: 02:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDB9DD9C58946EA2F4A0CD6546DC1E014ABBED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561445   (514672) от 05.07.2022
+
+Brad Wilson - Brad "Guitar" Wilson (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballad of John Lee (4:00)
+02. Walkin' Thru the Park (3:41)
+03. Rock Me Baby (4:04)
+04. House Is Rockin' (2:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19137A97D8F150F1D6722D0519D3AD37C1E56703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561444   (514577) от 05.07.2022
 
 Bonnie Raitt - Just Like That (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
@@ -656,93 +743,6 @@ City West Quartet - First Bite Live (1990) /Suisa/[FLAC|tracks+.cue]<Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C27CD1D29507A160EFE13BF1202A47DFEF279B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242801   (513059) от 24.08.2018
-
-Erin Harpe & The Delta Swingers - Big Road (2017) [MP3|320 Kbps] <Electric Blues, Jump Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kokomo (05:35)
-02. Lonely Leavin' Town (05:55)
-03. Big Road (04:13)
-04. Frankie (03:42)(   Читать дальше...   )Жанр: Electric Blues, Jump BluesПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1DDC947BFE3FC61290B00A49CCCBBE2030863B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931285   (513023) от 25.08.2015
-
-Coleman Hawkins - Father Bean (1956/1960) /1990, Jazzlab/[FLAC|tracks+.cue]<Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moodsville [06:15]
-02. After Midnight [04:48]
-03. Bean In Orbit [06:06]
-04. Almost Down [08:57](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B2109A4F76845C80C246E49F9245ECE3E6D5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242777   (512982) от 24.08.2018
-
-Universal Hippies - Evolution of Karma (2018) [MP3|320 Kbps] <Heavy Psychedelic Blues Rock, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolution
-02. Wings of Pegasus
-03. Journey of the Impossible Hero
-04. Ophelia's Dream(   Читать дальше...   )Жанр: Heavy Psychedelic Blues Rock, InstrumentalПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE18873021A96623C7E2F53D15691F42A9CCC142
 ```
 
 https://mybot314.ru/tekegram_catalog/

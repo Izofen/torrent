@@ -665,35 +665,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670152   (172228) от 19.10.2023
-
-Blink-182 - One More Time... (2023) [MP3|320 Kbps] <Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthem Part 3
-02. Dance With Me
-03. Fell In Love
-04. Terrified(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63825157357D40E749E322B3EB0228DC5132EDBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670269   (172103) от 20.10.2023
 
 The Haxans - The Dead And Restless (2023) [MP3|320 Kbps] <Alternative Rock, Goth Industrial Rock, Female & Male Vocal>
@@ -723,28 +694,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504247   (170634) от 08.12.2022
+###  Публикация: 1672169   (170008) от 27.10.2023
 
-Тартак (Тричі, Був'Є) - 19 Albums + 6 Single (2001-2022) [MP3|320 kbps] <RapCore, Alternative, Rapunk>
+Nirvana - In Utero (1993) 30th Anniversary Super Deluxe, 2023, Geffen [MP3|320 Kbps] <Rock, Grunge>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170634.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2001 - Демо_Графічний_Вибух
-2003 - Система Нервiв
-2004 - Музичний лист щастя
-2005 - 1й Комерційний(   Читать дальше...   )Жанр: RapCore, Alternative, RapunkПродолжительность: 17:56:39
+Список альбомов:
+01 - In Utero (30th Anniversary Super Deluxe)
+02 - In Utero (30th Anniversary Super Deluxe)
+03 - In Utero (30th Anniversary Super Deluxe)Жанр: GrungeПродолжительность: 3 CD, 04:26:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D91BF7CBD7C83FDC726615B324471E4F4B1AD81C
+magnet:?xt=urn:btih:4FFCE6E139D8EE949905ABA452AC6C0F7C033125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596701   (169295) от 11.12.2022
+
+Vella - 3 Albums (2020-2022) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2020 - Coma
+2022 - Entity (Vol. 1)
+2022 - Entity (Vol. 2)Жанр: MetalcoreПродолжительность: 3 CD, 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FB06D096C446726F9084C7488FC4459A406BA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

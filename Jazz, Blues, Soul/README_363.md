@@ -1,3 +1,90 @@
+###  Публикация: 1329066   (356522) от 03.10.2019
+
+Don Ray Band - 4 альбома (2009 - 2013) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Don Ray Band основан в 2009 году в Нэшвилле, штат Теннесси авторами песен и музыкантами мирового класса: Will McFarlane (Bonnie Raitt, Muscle Shoals Rhythm Section), Gary Dales (Leon Russell, 38 Special, The Van Zant Brothers), Jonathan Armstrong (Earl Thomas Conley), Jeff Offutt (Little Freddie King, Stan Hedges, Chicago Charlie). Don Ray родился в музыкальной семье (   Читать дальше...   )Список альбомов:
+2009 - On Top Of The Heap
+2010 - Lonesome Rider
+2012 - Full ThrottleЖанр: Blues-RockПродолжительность: 02:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2074EE25671965C5D70CBE7437B86E5F90962C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952218   (356337) от 01.11.2015
+
+Thad Jones - Mad Thad (1957) /1999, OJC/[FLAC|image+.cue]<Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Whisper Not [05:39]
+ 02.Quiet Slip [09:05]
+ 03.If You Were Mine / I'm Through With Love / Love Walked In [07:27]
+ 04.Cat Meets Chick [05:27](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88167A0DC56A760B554B313BBAD74BB908098839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952214   (356336) от 01.11.2015
+
+Sonny Criss - The Joy Of Sax (1999) /Ars Nova/[APE|tracks+.cue]<Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You've Lost That Lovin' Feeling [04:18]
+ 02.Don't You Worry 'Bout A Thing [05:38]
+ 03.You Are So Beautiful [05:25]
+ 04.Turn Me Loose [05:57](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6322F99DA91564298A81DCDF99DA5719F70B176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951855   (356332) от 01.11.2015
 
 Ray Brown - Bass Hit! (1956) /1999, Verve/[FLAC|tracks+.cue]<Bop, Mainstream Jazz>
@@ -658,93 +745,6 @@ Harry Connick, Jr. - That Would Be Me (2015) /Columbia Records/[FLAC|image+.cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A8E1DA51D080E88B241341B8C44C3C31FBA558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952542   (353664) от 02.11.2015
-
-Rehab Allstars - Feel the Blues (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get Next To You (04:24)
-02. Jesus Just Left Chicago (04:31)
-03. Burden (05:05)
-04. Look On Yonder Wall (04:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91702C89BFD57B5B9DC6570DFE6F8F677AD393BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952818   (353660) от 02.11.2015
-
-Pat Metheny - Selected Recordings ECM (2004) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Bright Size Life		04:52
-02.	Phase Dance		08:22
-03.	New Chautauqua		05:18
-04.	Airstream		06:21(   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E8BF7A5A8EAF7BC0C6A3989FE93C1A2F496E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952537   (353656) от 02.11.2015
-
-VA - The Future Sound of Jazz 3 (1998) [FLAC|tracks +.cue]<Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pressure Drop – Unify (ripped)
-02. Truby Trio – Donaueschingen
-03. As One – The Hideout
-04. Tosca – Ocean Beat(   Читать дальше...   )Жанр: Future JazzПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F05BC4CC9A5A227621BC9AB7389C4C0981BA079
 ```
 
 https://mybot314.ru/tekegram_catalog/

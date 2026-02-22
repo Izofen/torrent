@@ -1,29 +1,3 @@
-###  Публикация: 1579478   (336413) от 27.09.2022
-
-The Art of Mankind - Archetype (2018) 2CD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Melodic Death MetalПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A46EC58244140806D3F8857A1C2269DD31342E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074821   (335764) от 20.11.2016
 
 Loudness - Lightning Strikes (2016) 30th Anniversary Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -758,6 +732,35 @@ Crystal Lake - True North (2016) [MP3|320 Kbps] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9128C9A472A401B56B75FD740D6E911BF5B32D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962122   (296977) от 03.12.2015
+
+Younoumi - 15 альбомов (2008-2015) Touhou Vocal, KanColle /Doujin/ [FLAC|tracks] <J-Pop, J-Metal, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2013.12.30 (IOY-0016) Wadatsumi (C85)
+2014.12.29 (IOY-0019) Shigo Risutora ni au — God never knows, but you know me (C87)
+2015.08.14 (IOY-0020) Toho Warfare：BLACK SPARK (C88)Тип издания: DoujinЖанр: J-Pop, J-Metal, ElectronicФормат: Touhou VocalПродолжительность: 00:10:12:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28219604430450051D8DCDB3367C6C0D45E344F
 ```
 
 https://mybot314.ru/tekegram_catalog/

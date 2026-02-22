@@ -1,3 +1,38 @@
+###  Публикация: 736598   (225153) от 20.12.2013
+
+House of Dues - Cross That Line (2013) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Addicted 04:16
+02. Treble and Bass 04:35
+03. Left Lane 04:47
+04. Cross That Line 05:32
+05. Ransom:the Ballad of Billy Hobbs 05:02
+06. Space Is the Ra Place 04:14
+07. It's You 05:12
+08. Comfortable Shoes 03:19
+09. Dues Cruise 07:38
+10. Ain't Over Yet 07:33(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15FC8BB183636A02BE1450AEB372F174C6777D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650709   (225014) от 03.08.2023
 
 Hal Singer With Charlie Shavers - Blue Stompin' (1957) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -770,35 +805,6 @@ Tom Bacon - The Flipside: Jazz Horn Solos (1989) Summit Records [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC3528D744CFDDD65D960A39BA04B0816D826ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269089   (223510) от 13.12.2018
-
-Bunny Berigan - 1938 - 1942 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Dark [2:46]
-02. Walkin' The Dog [3:07]
-03. Patty Cake, Patty Cake [3:31]
-04. Jazz Me Blues [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE79954FF30CB325A7B6E97315F6B3000F416A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1343130   (219594) от 05.12.2019
+
+VA - Golden Hits Of Soulful Dynamics / Disco (2019) [MP3|320 Kbps] <Dance Disco, Pop, Disco House, Funky>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219594.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Double B - Disco Modulations
+002. 2lovers - El Sol (Radio Mix)
+003. Antoine Clamaran - Tonight (Original Mix)
+004. Luca Debonaire & Crazibiza - Dance (Crazibiza Mia Mix)(   Читать дальше...   )Жанр: Dance Disco, Pop, Disco House, FunkyПродолжительность: 12:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE0755DF0AE03F42E6A5287343EDA165F202A9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585806   (219113) от 24.10.2022
 
 No Angels - Compilation (2022) [MP3|320 Kbps] <Pop>
@@ -722,35 +751,6 @@ VA - Pop Hits (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04CDCB82ED9BA2379E24387F7F41D18BA7F39AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574444   (208796) от 06.09.2022
-
-VA - Workout Motivation (Retro Edition)[Mixed by Sergey Sychev ] (2018-2022) [MP3|320 Kbps] <Remix ,EuroDance ,90e ,80e>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208796.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Michael Jackson Vous - Billie Jean (80 s Cardio Workout Remix
-2. AC DC - Highway to Hell (KaktuZ Remix)
-3. Global Rockerz feat. Michael Reynaldo - Died In Your Arms
-4. C.C.Catch - Strangers By Night [2017 Remix](   Читать дальше...   )Жанр: Remix ,EuroDance ,90e ,80eПродолжительность: 03:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4299A9466A301300969419F33E57D2B80A0AFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

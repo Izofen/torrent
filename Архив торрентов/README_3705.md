@@ -1,3 +1,29 @@
+###  Публикация: 1169793   (401559) от 29.09.2017
+
+Студия Союз (2017.09.28) WEB-DLRip (выпуск 8)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_401559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742405CB940893A8E7A73D511283181E0E5BDBAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169805   (401558) от 29.09.2017
 
 Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.09.28) HDTV [H.264/1080i] (сезон 3, выпуск 13)
@@ -660,41 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41267F89074D198D6715B6C82AE88BF6EAB0411F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564859   (401379) от 25.10.2012
-
-VA - Latin Grooves Tunes Edition (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401379.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Club Camarillo - Saudade da Bahia (Feat. Don Gorda Project) (5:24)
-2. Rey Salinero - Meu Universo da Felicidade (5:25)
-3. The Sura Quintet - Your Smile (5:23)
-4. Baghira - Molto linda (5:42)
-5. Don Gorda Project - Bossa 'n' Jazz (5:40)
-6. Enrico Donner - Side Chain Reactions (5:55)
-7. Saba Rock - Euforia do Amor (5:29)
-8. Christian Hornbostel - Schakunta - Bossamba Mix (6:12)
-9. Suntheca Prod. - Ziriguidrum (4:58)
-10. Matrix III - Amor Ilimitado (6:07)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F2D4A2C9C4F4E186DD0201406C94666E6856DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

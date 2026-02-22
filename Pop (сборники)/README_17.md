@@ -1,3 +1,32 @@
+###  Публикация: 1493663   (893813) от 04.09.2021
+
+VA - German Top 100 Single Charts 03.09.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893813.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Kid Laroi & Justin Bieber - Stay (2:21)
+002. Ed Sheeran - Bad Habits (3:51)
+003. Montez - Auf & Ab (2:45)
+004. Shouse - Love Tonight (Edit) (4:01)(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6667AEC2F7B49AA19C9C23FA6E31321FDE64D0B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370844   (893548) от 29.03.2020
 
 VA - German Top 100 Single Charts 27.03.2020 [MP3|320 Kbps] <Pop>
@@ -715,35 +744,6 @@ VA - Roller Disco: Remix And New Generation (2020) [MP3|320 Kbps] <Disco, Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:913D3F86E61203F4455183514DF3BD4BDC1305C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103845   (883642) от 13.02.2017
-
-VA - Снегопад новинок. Часть № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883642.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Зара - Забыть О Тебе 3:32
-002. Alex 67 - Сумасшедшая 3:18
-003. Alvarez - Sin Miedo 4:12
-004. Far East Movement Feat. Yoonmirae & Autolaser - Fighter 4:14(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42ED724DB9CDC717AD7B161F983D67A481B2806A
 ```
 
 https://mybot314.ru/tekegram_catalog/

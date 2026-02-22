@@ -1,3 +1,178 @@
+###  Публикация: 1037018   (616882) от 22.07.2016
+
+Gentle Giant - Octopus (1972) 2015, Alucard Music [DTS 5.1|LPCM 2.0|96/24|Blu-ray]  <Rock, Prog Rock, Sympho Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remixed By Steven Wilson (96/24 Stereo LPCM, DTS-HD MA 5.1)
+01. The Advent of Panurge
+02. Raconteur Troubadour
+03. A Cry For Everyone(   Читать дальше...   )Жанр: Rock, Prog Rock, Sympho Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16597DC706D6221599C01E95D9832CF8051EA4CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036869   (616864) от 22.07.2016
+
+Yes - Fragile (1971) 2015, Atlantic [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray] <Rock, Art Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fragile — четвёртый студийный альбом британской прогрессив-рок-группы Yes, выпущенный в 1971 году лейблом Atlantic Records.
+Альбом занимает 11 место в списке Топ-25 лучших альбомов прогрессивного рока по версии Progarchives.com.
+Диск стал первым для клавишника Рика Уэйкмана в составе группы Yes, который пришёл вместо Тони Кэя, начавшего работать над альбомом Fragile, (   Читать дальше...   )01. Roundabout
+02. Cans And Brahms
+03. We Have Heaven
+04. South Side Of The Sky(   Читать дальше...   )Жанр: Rock, Art Rock, Prog RockПродолжительность: 00:51:55 + 00:47:44 + 00:41:13 + 00:41:08 + 00:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8A44649F0DB34A078ADDE778031A9618A50311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295809   (616836) от 14.04.2019
+
+Louis Armstrong - Collection (Unofficial Release, Unknown Year) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Do You Know What It Means To
+02. La Vie En Rose
+03. Same Of These Days(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A9651751BD0F69B2327200917F8A558178502F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036932   (616795) от 22.07.2016
+
+Pink Floyd - The Division Bell (1994) 2014, Rhino Music [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616795.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Division Bell — четырнадцатый студийный альбом английской прогрессив-рок-группы Pink Floyd. На территории Великобритании диск вышел 28 марта 1994 года на лейбле EMI, в США релиз состоялся 4 апреля того же года на Columbia Records.
+
+Музыка по большей части написана Дэвидом Гилмором и Ричардом Райтом, тексты песен посвящены преимущественно теме общения. Запись (   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D234FEA3943D57044FB75A0DA3251F2DF7132E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039511   (616381) от 18.04.2022
+
+VA - Jazz Mix Evening Conversation 1950-2008 (2016) [WavPack|96/32|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gene Ammons - Hittin' The Jug (1960)
+02. Billy Holiday - I’m A Fool To Want You (1958)
+03. Wild Bill Davis & Buddy Tate - Memories Of You (1965)
+04. Ernestine Anderson - As Long As I Live (1981)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B83E215337AA6AC61C7C872E52742747E8FD84B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022492   (616253) от 18.04.2022
+
+Benny Goodman / Бенни Гудмен - Как Глубок Океан (1940-1950) 1987 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616253.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Каприс
+A2	Как Глубок Океан
+A3	Граф
+A4	Я Здесь(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286D1278B5E58FA18EAE110F4DA4CD4C1B74DEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039203   (616246) от 18.04.2022
 
 Joan Baez/Джоан Баэз - Поёт Джоан Баэз (1970) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
@@ -570,180 +745,6 @@ Empyrean Isles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DBCBD76B7F0DFDA7ED4018B609771A73FE6DBB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038235   (607945) от 27.07.2016
-
-Steven Wilson - 4 ½ (2016) [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray]  <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Book of Regrets 9.23
-02. Year of the Plague 4.15
-03. Happiness III 4.31
-04. Sunday Rain Sets In 3.50(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:46 + 00:36:54 + 00:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919F6BB56AD54ED5EBD0A575A362D421D048AC49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941398   (607676) от 23.04.2022
-
-Harry Secombe - At Your Request (1958) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607676.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Song Of Songs
-A2	At The Balalaika
-A3	Granada
-A4	Shine Through My Dreams(   Читать дальше...   )Жанр: Pop/Easy ListeningПродолжительность: 00:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD39C66E482673A37C083EF65F671EC48BD8C106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945141   (607675) от 23.04.2022
-
-VA - Soul Meeting Vol. II - The Sound Of Young America (1966) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Funk, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607675.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Diana Ross & The Supremes -	Reflections
-A2	Stevie Wonder -	I'm Wondering
-A3	The Temptations -	You're My Everything
-A4	Marvin Gaye & Tammi Terrell -	Ain't No Mountain High Enough(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7E8F2BECD8B6C041C5B1A5BEF52A5267F73396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939700   (607671) от 23.04.2022
-
-Al Martino - Spanish Eyes (1965) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Spanish Eyes
-Written-By – Kaempfert, Singleton, Snyder
-02.	Melody Of Love
-Written-By – Englemann, GlazerЖанр: PopПродолжительность: 00:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B0A4F335979C66628A17454F13F21D74BD4B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941322   (607553) от 23.04.2022
-
-VA - Rock Линия (2004) [FLAC 2.0 16/44,1|image+.cue (MC Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звери - Всё, что касается
-Р. Зверь
-02. Рок-Группа - Попса
-Ю. Собелев/А. Сон(   Читать дальше...   )Жанр: RockПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CA95F9EB30DDD9BDF6D73F28E9E700EDFF1BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941066   (607552) от 23.04.2022
-
-VA - Послушай музыку (1983) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607552.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Проказница (Babooshka) - Кейт Буш
-A2 Долгая поездка в поезде (Long Train Runnin) - Группа "Братья Дуби"
-B1 Рок на шоссе - Группа "Братья Дуби"
-B2 Будь со мной - Группа "Братья Дуби"Жанр: Pop RockПродолжительность: 00:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8701F53B77DB1CE65C35EE19C6B025B7A60C681
 ```
 
 https://mybot314.ru/tekegram_catalog/

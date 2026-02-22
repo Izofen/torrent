@@ -1,3 +1,90 @@
+###  Публикация: 988879   (919095) от 21.02.2016
+
+Anni Piper - More Guitars Than Friends (2016) [MP3|320 кб/с] <Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonder Woman (02:40)
+02. Just A Little Bit (03:04)
+03. Buckle Bunny (02:39)
+04. More Guitars Than Friends (04:27)(   Читать дальше...   )Жанр: Rockin' BluesПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0473752D2C9F5D41A214B7FBCBFD302B611C17B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988725   (919090) от 21.02.2016
+
+J.J. Cale - Okie (1974) Japan Edition, 2013, Mercury [FLAC|Lossless|tracks + .cue] <Blues, Americana, Tulsa Sound>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crying (02:38)
+02. I'll Be There (If You Ever Want Me) (02:25)
+03. Starbound (02:01)
+04. Rock And Roll Records (02:08)(   Читать дальше...   )Жанр: Blues, Americana, Tulsa SoundПродолжительность: 00:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2173244C49A12D749BFF67DDF076155222FFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367204   (918965) от 14.03.2020
+
+VA - Women Of Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ruth Brown - Takin' Care Of Business (2:19)
+02 Betty Lavette - Here I Am (Single Version) (2:48)
+03 Louise Hoffsten - When It Rains It Really Pours (4:34)
+04 Aretha Franklin - Today I Sing The Blues (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC301434754CE9C0F005E35C05FE1A85DC211CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289507   (918754) от 31.01.2011
 
 Danilo Rea Trio - Romantica (2004) [FLAC|Lossless]<Modern Jazz, Piano>
@@ -676,93 +763,6 @@ Becca Stevens Band - Perfect Animal (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BA6B1F75D82507F57D1948CA58C8473F6FA600A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989516   (917131) от 22.02.2016
-
-Dorantes & Renaud Garcia-Fons - Paseo A Dos (2015) [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz, Flamenco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Molto enrollado (Bulerías) (5:18)
-02. Palabras de ensueño (Malagueña) (7:48)
-03. Entre las rosas (Guajiras) (3:35)
-04. En el crisol de la noche (Soleá) (6:25)(   Читать дальше...   )Жанр: World Fusion, Ethnic Jazz, FlamencoПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FE4073C5C3E939B8E0B1F7F6047629C067A842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989369   (917128) от 22.02.2016
-
-Tasha Taylor - Honey For The Biscuit (2016) [MP3|320 кб/с] <Contemporary Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feels So Good (04:00)
-02. Wedding Bells (04:29)
-03. Family Tree (03:52)
-04. Weatherman (02:57)(   Читать дальше...   )Жанр: Contemporary BluesПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF6AE82C9F0F55DEFCCB9BBABDD71EE9696BC06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989216   (917123) от 22.02.2016
-
-Sambada - Tropicale (1997) [FLAC|Lossless|tracks + .cue] <Acid Jazz, Trip Hop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rush Hour (4:25)
-02. Street Walk (4:21)
-03. South of the Border (3:57)
-04. Sunburst (4:14)(   Читать дальше...   )Жанр: Acid Jazz, Trip HopПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1A417A0B4F757EAB71361AAA32E659A5AC283B
 ```
 
 https://mybot314.ru/tekegram_catalog/

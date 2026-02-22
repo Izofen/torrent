@@ -1,3 +1,32 @@
+###  Публикация: 1490176   (920859) от 19.08.2021
+
+Brainstorm - Wall of Skulls (2021) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chamber Thirteen
+02. Where Ravens Fly
+03. Solitude
+04. Escape The Silence(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2F80305ECCA3B1E396662DBF073DEB4A2FF222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366728   (920720) от 13.03.2020
 
 DED - 2 Releases (Mis-An-Thrope (CD) / Mannequin Eyes (EP)) (2017-2020) [MP3|320 Kbps] <Nu Metal>
@@ -726,35 +755,6 @@ The Murder of My Sweet - Echoes of the Aftermath (2017) [MP3|320 Kbps] <Gothic M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68C55589D4F9E1A3AEC73B6937AF0CAF795D48FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367732   (914256) от 17.03.2020
-
-Ethir Anduin - Pathway To Eternity. The Agony (2020) [MP3|320 Kbps] <Black, Doom Metal, Hardcore, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awareness Of The Frailty Of Being
-02. Pandemonium
-03. The Invisible Veil Of The Cold Silence
-04. The Agony(   Читать дальше...   )Жанр: Black, Doom Metal, Hardcore, Female VocalПродолжительность: 01:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA44CD483C3A1B27424DA7AA900AC1A395ADF248
 ```
 
 https://mybot314.ru/tekegram_catalog/

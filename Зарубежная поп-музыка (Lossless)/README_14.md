@@ -1,3 +1,32 @@
+###  Публикация: 1364797   (933710) от 05.03.2020
+
+Vanessa Daou - Welcome to My Blues: An Anthology (1994-2017) (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Soul, Acid Jazz, Trip-Hop, Lounge>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once in a While (5:24)
+ 02. Trouble Comes (5:09)
+ 03. Snow (A Deeper Drift) (3:56)
+ 04. How Do You Feel (3:51)(   Читать дальше...   )Жанр: Electronic, Soul, Acid Jazz, Trip-Hop, LoungeПродолжительность: 02:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E258FD9CB1011852470F7CAAC3EEA732F43415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365065   (933555) от 05.03.2020
 
 VA - Retro 80s Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
@@ -732,35 +761,6 @@ VA - 2017 Grammy Nominees (2017) [FLAC|Lossless|tracks + .cue] <Pop, Dance, Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C46E910EB4429E5CAA1656A6AC7F3CD4BBBC3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366738   (922359) от 12.03.2020
-
-Yumi Zouma - Truth or Consequences (2020) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely After (03:40)
-02. Right Track / Wrong Man (02:56)
-03. Southwark (03:22)
-04. Sage (03:01)(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA0C0A8C4F6943C76AF89FA2936ED791AB8CE7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

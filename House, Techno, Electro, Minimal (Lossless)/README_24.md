@@ -1,3 +1,61 @@
+###  Публикация: 1522083   (761915) от 05.01.2022
+
+Riccicomoto - Huge Distances (2021) LP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Dub Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interception (Prelude) (6:58)
+ 02. The Inner Perception (ft. Gustavo Varela) (6:43)
+ 03. Huge Distances (E-Dub Session) (8:05)
+ 04. 20thousand Miles (7:43)(   Читать дальше...   )Жанр: Deep House, Dub Techno, Minimal, AmbientПродолжительность: 04:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DD204DBE217A90BB5540B99A44222187E0E826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214885   (761819) от 24.03.2018
+
+VA - Back To Love 03.02 (2002) [FLAC|Lossless|tracks] <House, Breakbeat, Hip-Hop, Garage House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Turntable Orchestra - You're Gonna Miss Me (Original Mix) (5:57)
+02.Victor Romero feat. Latrice Brown - Love Will Find A Way (4:24)
+03.Ann Consuelo - See The Day (Stonebridge Mix) (8:36)
+04.Aftershock - Slave To The Vibe (12' Club Mix) (8:00)(   Читать дальше...   )Жанр: House, Breakbeat, Hip-Hop, Garage HouseПродолжительность: 02:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78AC96E44990E50BD9052FD578245F4B175882B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280525   (760628) от 03.02.2019
 
 Fortunato & Montresor - Imagine (Original & Reissue) (1997 / 2003) Elektrolux, Bedrock Records [FLAC|Lossless|tracks+.cue, tracks] <Progressive House, Breaks, Deep House>
@@ -680,64 +738,6 @@ Matt Fax - Contrast (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42E2B8EAE24EDC27C641E93650EF689E1986CF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396601   (745579) от 16.07.2020
-
-Matt Fax - Progressions (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax - Vanishing (1:16)
-02. Matt Fax & LEVV - Always You (4:17)
-03. Matt Fax - Light On (4:29)
-04. Matt Fax - Abenaki (3:20)(   Читать дальше...   )Жанр: Progressive House, Tech House, ElectroПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FA38206333A3C74635312A330C576C6FB98EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282422   (745407) от 12.02.2019
-
-Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Techno, Electro, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land Of The Highway (05:55)
- 02. Sonar Conversation (08:15)
- 03. Robotic Arm Wrestle (07:32)
- 04. Love Hate (08:10)(   Читать дальше...   )Жанр: Techno, Electro, Dub TechnoПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB13ECE40671BEDB858D662E47A8A3BF814A2F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

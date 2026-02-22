@@ -1,237 +1,25 @@
-###  Публикация: 1792413   (67721) от 19.04.2025
+###  Публикация: 1793453   (67503) от 24.04.2025
 
-Сумерки. Сага. Затмение / The Twilight Saga: Eclipse (2010) WEB-DLRip [AV1/2160p] [Open Matte] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сиэтл охвачен чередой таинственных убийств, а обуреваемая жаждой мести вампирша продолжает поиски Беллы, снова оказавшейся в смертельной опасности. Кроме того, находясь в эпицентре всех событий, Белла вынуждена делать выбор между любовью к Эдварду и дружбой с Джейкобом, зная что ее решение может послужить толчком к возобновлению давнего противостояния между вампирами (   Читать дальше...   )Производство: США / Imprint Entertainment, Maverick Films, Summit Entertainment, Sunswept Entertainment, Temple Hill EntertainmentЖанр: фэнтези, триллер, мелодрамаРежиссер: Дэвид СлэйдАктеры: Кристен Стюарт, Роберт Паттинсон, Тейлор Лотнер, Брайс Даллас Ховард, Билли Бёрк, Эшли Грин, Питер Фачинелли, Сара Кларк, Дакота Фаннинг, Никки РидПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 02:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CDB4465F0E6711367B216F07BD61DB15992B41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792458   (67720) от 19.04.2025
-
-Photo Studio PRO v2.8.1.4152 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 19.04.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90698FA6FB0FECEB5ED15DAE0935AF4F081E1DB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792444   (67719) от 19.04.2025
-
-OCCT 14.0.3 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29500B21C72433CE896A4F81D9904AE4D762501D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776578   (67718) от 19.04.2025
-
-Борцы / Kämpfer (1936) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский антифашистский фильм.
-Начало 1933-го года. В маленьком немецком городе убит рабочий Ганс Лемке, узнавший о секретном военном производстве на местной парфюмерной фабрике. Его брат, Фриц, мечтавший о футбольной карьере, оставляет свои планы ради того, чтобы вывести убийц Ганса на чистую воду...
-Фильм был сделан немцами, эмигрировавшими в СССР после прихода (   Читать дальше...   )Производство: СССР, Германия / Межрабпомфильм, студия "Рот-Фронт"Жанр: драма, историяРежиссер: Густав фон ВангенхаймАктеры: Лотта Лёбингер, Бруно Шмидтсдорф, Грегор Гог, Ингеборг Франке, Генрих Грейф, Александр Тимонтаев, Роберт Трёш, Александр Гранах, Евгения Мезенцева, Людмила ГлазоваСубтитры: в некоторых сценах поясняющие интертитрыПродолжительность: 01:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FEDE5E23B1ED8D22114BB3474E40620D1B45AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792414   (67717) от 19.04.2025
-
-Сумерки. Сага. Рассвет: Часть 1 / The Twilight Saga: Breaking Dawn - Part 1 (2011) WEB-DLRip [AV1/2160p] [Open Matte] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67717.jpg" />
-</div>
-
-
-###  Подробнее
-
-В четвертой части Белла Свон оказывается перед непростым выбором — сохранить жизнь себе или своему ребенку (наполовину вампиру, наполовину человеку). Она решает оставить малыша, но Эдвард и остальные члены семьи Каллен категорически против.
-
-Помощи Белле ждать не от кого, но она приходит неожиданно, от того, от кого её совсем не ждали. Вдвоем Белла и Розали пытаются (   Читать дальше...   )Производство: США / Imprint Entertainment, Summit Entertainment, Total Entertainment, TSBD Canada Productions, TSBD Louisiana, TSBD Productions, Zohar InternationalЖанр: фэнтези, драма, мелодрамаРежиссер: Билл КондонАктеры: Кристен Стюарт, Роберт Паттинсон, Тейлор Лотнер, Билли Бёрк, Питер Фачинелли, Элизабет Ризер, Келлан Латс, Никки Рид, Джексон Рэтбоун, Эшли ГринПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B86C72E11AA4FE4F774EF0BADB9C7A2055CD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792481   (67716) от 19.04.2025
-
-Инна Романина | Понять себя и других. Психологические знания, которые нужны каждому человеку (2025) [MP3, Александра Максимова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие из нас откладывают визит к психологу, опасаясь осуждения, сомневаясь в серьезности своих проблем или не зная, с чего начать разговор. Аудиокнига Инны Романиной, практикующего психолога с многолетним стажем, поможет вам сделать первый шаг к пониманию себя. Вы получаете безопасный гид по самым волнующим вопросам: что делать с тревогой и паническими атаками, (   Читать дальше...   )Жанр: ПсихологияИздательство: Альпина ПаблишерПродолжительность: 09:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6839DC9248E44551D3CC8BD9697D07F28977CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792401   (67715) от 19.04.2025
-
-Американский пирог: Все в сборе / American Reunion (2012) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои «Американского пирога» встречаются вновь спустя несколько лет. Они докажут, что даже время и расстояние не в силах разрушить их дружбу. Летом 1999-го четверо мичиганских парней решили расстаться с невинностью. Прошли годы, и теперь друзья вернулись домой уже повзрослевшими, чтобы вспомнить прошлое и оторваться на полную катушку.Производство: США / Practical Pictures, Relativity Media, Universal Pictures, Zoe PicturesЖанр: комедияРежиссер: Джон Харвитц, Хейден ШлоссбергАктеры: Джейсон Биггз, Элисон Хэннигэн, Шонн Уильям Скотт, Крис Клейн, Томас Иэн Николас, Эдди Кэй Томас, Тара Рид, Мена Сувари, Юджин Леви, Дженнифер КулиджПеревод: Дублированный (Пифагор) со вставками AVO (А.Дасевич)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83A94FF4A84680B95F7E53A9CD2F1B5C3FB3C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792501   (67714) от 19.04.2025
-
-Shazam v15.18.0-250410 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shazam (шазам) распознает любую песню за секунды. Открывайте для себя новых артистов, видео, слова песен, плейлисты — и все бесплатно. Приложение уже загрузили более миллиарда раз, и это число продолжает расти.Тип издания: Mod ExtraРелиз состоялся: 19.04.2025Разработчик: Apple, Inc.Поддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62556ED19E61B1BFE4D2BF9B9795CBA30EAE0EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792378   (67713) от 19.04.2025
-
-VA - Sonic Space (2024) [MP3|320 Kbps] <Space Music, Ambient>
+VA - TOP 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 
 >>Electronic
->>Synthpop, New Wave
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67713.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Аэросса - Время полёта (5:30)
-02. Angelo Taylor - Space Station (3:43)
-03. Олег Гуртовой И Группа Vega - Космопорт Москва (4:13)
-04. Dmitry Zavalishin - Space Apprentice (5:42)(   Читать дальше...   )Жанр: Space Music, AmbientПродолжительность: 00:54:05
+01. MATA - Slowdown (Extended Mix) (05:40)
+02. Jacoob - Estilo Estelar (Extended Mix) (06:37)
+03. Jacoob - Epifania (Extended Mix) (05:52)
+04. Jacoob - Fiction (Extended Mix) (05:38)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:05:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:337C0541BD10260F608C723B95970969EECD85EE
+magnet:?xt=urn:btih:B305D9C12AC05F5B082FCA698F30E200CCF5F4B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792633   (67712) от 19.04.2025
+###  Публикация: 1793490   (67502) от 24.04.2025
 
-VA - Music News For Forum vol.075 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+Primal Fear - Far Away (2025) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67712.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. NONNA - Vibe (02:41)
- 002. 104 feat. Alisha & Innasounnd - Королева (Remix) (03:07)
- 003. Adanowsky - La Pareja Y La Neurosis (03:28)
- 004. Adele And Robin - Courage (02:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:35:35
+01. Far Away (4:18)Жанр: Heavy MetalПродолжительность: 00:04:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDDF2109B35DD28E2451F6962A96DDA1280BBAA8
+magnet:?xt=urn:btih:6F39DDD0ABFCF2839E7585E32C918D1790A0F15C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -268,296 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792412   (67711) от 19.04.2025
+###  Публикация: 1793359   (67501) от 24.04.2025
 
-Сумерки. Сага. Новолуние / The Twilight Saga: New Moon (2009) WEB-DLRip [AV1/2160p] [Open Matte] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влюбиться в вампира - страшно и романтично. Но потерять любимого, решившего ценой разрыва спасти свою девушку от роли пешки в вечном противостоянии кланов «ночных охотников», - это просто невыносимо. Белла Свон мучительно переживает исчезновение Эдварда и безуспешно ищет забвения в дружбе с мальчишкой-индейцем Джейкобом Блэком. Она даже не подозревает, что её лучший (   Читать дальше...   )Производство: США / Millennium Films, Sunswept Entertainment, Temple Hill EntertainmentЖанр: фэнтези, драма, мелодрама, приключенияРежиссер: Крис ВайцАктеры: Кристен Стюарт, Роберт Паттинсон, Тейлор Лотнер, Эшли Грин, Рашель Лефевр, Билли Бёрк, Питер Фачинелли, Никки Рид, Джексон Рэтбоун, Майкл ШинПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 02:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC75CC20725BECF339DC8181EDFD52D65D618E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792567   (67710) от 19.04.2025
-
-VA - Compilation Part 157 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muvi - Tears Are Flowing From My Cheeks
-02. Jambeats & Dova Music - This Ain’t Love
-03. Umar Keyn - Still There
-04. Davvi - Dance Away(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:725541ACE99A47A7BBD616068BA9D0AFF76CAB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792415   (67709) от 19.04.2025
-
-Сумерки. Сага. Рассвет: Часть 2 / The Twilight Saga: Breaking Dawn - Part 2 (2012) WEB-DLRip [AV1/2160p] [Open Matte] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Белла, став вампиром, постепенно свыкается со своей новой природой. В этом ей помогают Эдвард и остальные члены семьи Калленов. К тому же теперь у Беллы есть дочь Ренесми и вечность впереди. Джейкоб, запечатленный с Ренесми, становится для девочки другом и наставником. Ненадолго для героев наступают спокойные, счастливые дни.
-
-Все заканчивается, когда вести о Ренесми (   Читать дальше...   )Производство: США / Summit Entertainment, Sunswept Entertainment, Temple Hill EntertainmentЖанр: фэнтези, драма, мелодрама, приключенияРежиссер: Билл КондонАктеры: Кристен Стюарт, Роберт Паттинсон, Тейлор Лотнер, Маккензи Фой, Эшли Грин, Джексон Рэтбоун, Питер Фачинелли, Элизабет Ризер, Келлан Латс, Майкл ШинПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700FF69E4BCF67F208201C679ECE8AC7BFB95C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792503   (67708) от 19.04.2025
-
-Smart AudioBook Player Pro v11.2.6 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: Pro / FullРелиз состоялся: 19.04.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053863DC29A36DBDD8E1AE89528A68B05B48430C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792400   (67707) от 19.04.2025
-
-Американский пирог: Книга любви / American Pie Presents: The Book of Love (2009) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассники Роб, Нейтан и Льюб решили любой ценой добиться девушек своей мечты. Они случайно находят легендарное руководство по соблазнению, составленное предыдущими учениками и спрятанное в школьной библиотеке. Но из-за нескольких недостающих страниц друзей ждет масса смешных сюрпризов.Производство: США / Capital Arts Entertainment, Universal Studios Home EntertainmentЖанр: комедияРежиссер: Джон ПутчАктеры: Юджин Леви, Баг Холл, Кевин М. Хортон, Брэндон Хардести, Бет Берс, Мелани Папалиа, Дженнифер Холлэнд, Джон Патрик Джордан, Луиза Литтон, Розанна АркеттПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DED6434F4FF57C63A8835F002CC07056AA8697F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792502   (67706) от 19.04.2025
-
-Стихи русских поэтов v2.0.5.7 Mod by vadj [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихи русских поэтов - содержит более 19000 стихи 260 русских поэтов.
-
-Александр Пушкин
-Сергей Есенин(   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 19.04.2025Разработчик: TTdictionaryПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1304491322E15433AA28569C1514C0162FDE4B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792621   (67705) от 19.04.2025
-
-InnoExtractor Ultra 10.2.1.134 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67705.jpg" />
-</div>
-
-
-###  Подробнее
-
-InnoExtractor - это мощное приложение, которое поможет вам распаковать инсталляторы Inno Setup, используя технологию InnoUnp.
-С помощью InnoExtractor вы можете изучить внутреннюю структуру и содержимое программы установки, а также извлечь их в локальную папку или на портативные устройства без необходимости запуска программы установки.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3292C135C07C987BF30C2CF269F0F461E02794BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792566   (67704) от 19.04.2025
-
-Фоны - Artnoy - Creative Fabrica - Keychain Gradient Colorful Background [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Градиентные красочные фоны для брелоков для ключей.Формат: PNGРазрешение файлов: 2401 x 2401
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00663092AFA428E16DA45D43F0629BC4DECD6D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792529   (67703) от 19.04.2025
-
-Главная дорога (19.04.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сезон открыт: в Подмосковье байкер не успел среагировать на легковушку, зацепился за седан и отлетел на встречную под колеса другой машины. Мотоциклист сломал руку и ударился головой об асфальт.
-  Ремень-удавка: в Башкирии инспектор ГАИ избил и едва не задушил водителя. Что довело полицейского до нападения на автомобилиста?
-  Оскорбительная вежливость: правила общения (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14D81CFA3BC9F3949D705CC7792DAE77FF04A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792563   (67702) от 19.04.2025
-
-Фоны - Artnoy - Creative Fabrica - Metallic Glitter Digital Papers [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны с металлическим блеском на цифровой бумаге.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DA150A689045A3AD9D07C2276637192A647584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792644   (67701) от 19.04.2025
-
-Растровый клипарт - Tom Chalky - Retro Patterns [JPG]
+Растровый клипарт - STCrafts - Creative Fabrica - Iridescent Pattern Tumbler Wrap [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67701.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные узоры в ретро-стиле.Формат: JPGРазрешение файлов: 8000 x 8000
+Обертка для стаканов с радужным рисунком.Формат: PNGРазрешение файлов: 2790 x 2460
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FF5FF94A652D99EC25F5A2FE2B8C8BF781860A3
+magnet:?xt=urn:btih:DCE762FCB6F5A2F1EB1D9B87AF3F5B52001A909F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792553   (67700) от 19.04.2025
+###  Публикация: 1793510   (67500) от 24.04.2025
 
-Pixel Music AI - Electro Swing, but in Japanese (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz,  Electro Swing>
+Ancient Bards - Artifex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67700.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Breaking the Loop v2 (3:39)
-02. The Train That Never Stops (2:48)
-03. Green Robot (2:18)
-04. Usoko No Kage (3:05)(   Читать дальше...   )Жанр: Jazz,  Electro SwingПродолжительность: 00:35:35
+01. Luminance and Abyss (3:08)
+02. My Prima Nox (5:40)
+03. The Vessel (5:58)
+04. The Empire of Black Death (5:10)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:03:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E34BD715212B5B3B40C365F119739950B7180631
+magnet:?xt=urn:btih:330396B94D573BA6C73445625CFEC30ED53CBC6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,25 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792650   (67699) от 19.04.2025
+###  Публикация: 1792958   (67499) от 24.04.2025
 
-Фоны - retroqueen - Creative Fabrica - Golden Glittering Background Bundle [JPG]
+Soulfly - Primitive (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67699.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор золотых фонов с блёстками.Формат: JPGРазрешение файлов: 4500 x 3000
+A1. Back To The Primitive
+A2. Pain
+A3. Bring It
+A4. Jumpdafuckup(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 00:52{33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE1BB622B0BDEF159542DA9FF76B46970F756DA1
+magnet:?xt=urn:btih:3CA8B0D0700FFB19EC69B448304603F53A3E0990
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,25 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792641   (67698) от 19.04.2025
+###  Публикация: 1792937   (67498) от 24.04.2025
 
-Текстуры - Ivana Tomasevic Nikolic - Behance - Linen Papers Package - 114729667 [JPG]
+Samael - Blood Ritual (1992) Reissue, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67698.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это набор из 14 высококачественных цифровых листов бумаги с текстурой холста в пастельных тонах.Формат: JPGРазрешение файлов: 3600 x 3600
+A1 Epilogue
+A2 Beyond The Nothingness
+A3 Poison Infiltration
+A4 After The Sepulture(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0411DCF707816291DBCDB7DD7E19C39C1EA66945
+magnet:?xt=urn:btih:ECCF188262971A46E1F542335356873E7D982DE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,25 +166,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792627   (67697) от 19.04.2025
+###  Публикация: 1793414   (67497) от 24.04.2025
 
-Следствие вели... (19.04.2025) WEBRip [H.264/1080p]
+System Shock - Studio Albums (3 releases) (2004-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67697.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Две мамы». 1980 г., Волгоградская область. В собственном доме была жестоко убита пенсионерка. Скорее всего, преступник действовал в одиночку. Кто мог желать смерти старушке? Кому понадобились ее закрутки? Как след привел сыщиков в Сочи? И какую роль в этом деле сыграл пуховый платок?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:07
+System Shock - группа из Норрчёпинга, Швеция. Основана в 2003 году.2004 - Arctic Inside
+2006 - Escape
+2008 - Urban RageЖанр: Melodic Death MetalПродолжительность: 02:04:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6249957D89761ED146BE7DFAB81157FF3D657966
+magnet:?xt=urn:btih:EC6080A6E0A9083B2BBB289CB07A8EE4AF827E72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,27 +194,523 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792398   (67696) от 19.04.2025
+###  Публикация: 1793246   (67496) от 24.04.2025
 
-Hall of Gods - A Tribute to the Gods of Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Hilastherion - Studio Albums (3 releases) (2007-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hilastherion - метал-группа из Ваасы, Финляндия, основана в 2003 году.2007 - Taken From Darkness
+2014 - Signs Of The End
+2019 - Psalm 59 (EP)Жанр: Melodic Death MetalПродолжительность: 02:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29F081AB93076B68DF849FC02E47D19B6AEA357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793435   (67495) от 24.04.2025
+
+Mayhemic - Toba (2024) [FLAC|Lossless|image + .cue] <Black Metal, Thrash>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67696.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Requiem (feat. Zak Stevens) [00:07:45]
-02. Madness by the Moonlight (feat. Ralf Scheepers & Chris Caffery) [00:07:36]
-03. Guarany (Sons of The Forest)Жанр: Heavy MetalПродолжительность: 00:40:41
+1. Kollarbone Crushed Neanderthal 5:48
+2. Extinction & Mystery 2:28
+3. Valley Of The Tundra 3:38
+4. Triumph Portrait 4:54(   Читать дальше...   )Жанр: Black Metal, ThrashПродолжительность: 00:36:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F4D1A45C9A92FC3DE5FD1CC7CD20448178E902D
+magnet:?xt=urn:btih:F27805B4E7EBDCFCCDA82673AC2DB69DDBEC6641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793385   (67494) от 24.04.2025
+
+Darkness By Oath - Studio Albums (4 releases) (2005-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darkness By Oath - испанская метал-группа. Основана в 2002 году в г. Аррасате.2005 - Confidential World Of Lies
+2009 - Fear Yourself
+2012 - Near Death Experience
+2014 - Seeds Of DesolationЖанр: Melodic Death MetalПродолжительность: 02:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9CC669AC4F7ED6ACA7CC188939FC64EB106332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792906   (67493) от 24.04.2025
+
+Fractal Gates - Studio Albums (4 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fractal Gates - французская метал-группа, образована в Париже в 2007 году.2009 - Altered State Of Consciousness
+2013 - Beyond The Self
+2018 - The Light That Shines
+2024 - One With DawnЖанр: Progressive Melodic Death MetalПродолжительность: 03:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB10FA859A3C6C71F719489FD8DD642742800F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793450   (67492) от 24.04.2025
+
+Gedanken toten Lebens - Essenz der Urwunde (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Essenz der Urwunde (06:01)
+02. Geist (07:25)
+03. Generationstrauma (05:07)
+04. Aristokrat (06:14)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDE7BA6D8D713BDFDCF28665C77FCE9DA74B206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793447   (67491) от 24.04.2025
+
+Zmarłym (Zmarlym) - Wielkie Zanikanie (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miejsca (05:45)
+02. Sny o Lataniu (03:38)
+03. Idziemy w Mgłę (03:50)
+04. Ludzie Schronu (2034) (03:56)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4A32E1DCAFF6AA062783D31F80EA6BE3D021FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793543   (67490) от 25.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Hot Pink Galaxy Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изображения для сублимационного дизайна ярко-розовой расцветки.Формат: PNGРазрешение файлов: 2925 x 1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682CF51EEE9A5CE22CE958D20D99502E08C4CFF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793542   (67489) от 25.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Hand Drawn Loving Heart Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесшовные узоры в виде сердец. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC0E100BDFD5C70E2128BEADBB2B2BF2A5226AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793579   (67488) от 25.04.2025
+
+Оглянись во гневе / Look Back in Anger (1959) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на одноимённой пьесе Джона Осборна... Портер любит свою жену Элисон, но не может удержаться, чтобы постоянно не задевать её в разговоре. Элисон терпит сколько может, но потом, чтобы не сойти с ума, оставляет Портера, поддавшись уговорам своей лучшей подруги Хелены. Оставшись один, Портер берётся за Хелену. Элисон была беременна, но не говорила об этом (   Читать дальше...   )Производство: Великобритания / Woodfall Film ProductionsЖанр: драмаРежиссер: Тони РичардсонАктеры: Ричард Бёртон, Клер Блум, Мэри Юр, Эдит Эванс, Гари Рэймонд, Глен Байем Шоу, Филлис Нильсон-Терри, Дональд Плезенс, Джейн Экклс, С.П КапурПеревод: профессиональный многоголосый (Творческая группа Союза работников дубляжа)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED5A312DD72CD3799A45CC028A9C1C23B9A2122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793528   (67487) от 25.04.2025
+
+VA - The Best of Classic Jazz 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Lounge, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Cosmic Junk - Day Relax (Original Mix)(03:13)
+02 James Voorn - Soul Terminal (Original Mix)(03:14)
+03 Lofi Shifters - Jazzy Invitation (Original Mix)(03:16)
+04 Code2875 - Da Vinchi (Original Mix)(03:08)(   Читать дальше...   )Жанр: Jazz, Lounge, Bossa NovaПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E70140EE4A6D70B3C882C23B8AA951E9B5D09F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793541   (67486) от 25.04.2025
+
+Растровый клипарт - Designworld - Creative Fabrica - Watercolor Jolly Snowman Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт со снеговиком.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA927617E0EE203F610CA6A50C33C09E4302887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793640   (67485) от 25.04.2025
+
+DS2 - Electro Swing Dance (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  dancing swing (3:27)
+02.  Party Party Party (2:41)
+03.  Dance Party Swing Electro (3:09)
+04.  Jazz Swing Electro (1:46)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9535C0B9D0A2A665405C1001C7472030F12759A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793705   (67484) от 25.04.2025
+
+Russ Ballard - Songs From The Warehouse - The Hits Rewired (2025) 2 x CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67484.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+ 01 - Resurrection (03:17)
+ 02 - Courageous (03:15)
+ 03 - Journey Man (03:24)(   Читать дальше...   )Жанр: RockПродолжительность: 01:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01566844DD2CF3A3B9B0B534F20A19E2096DA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793678   (67483) от 25.04.2025
+
+PowerDirector – Video Editor v15.1.0 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25.04.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42F550B9989DD927DFD411AC4524F8208609440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793519   (67482) от 25.04.2025
+
+Паттерны - Behance - Hawaiian Tiki Patterns - 184491561 [PNG, AI, EPS, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные гавайские узоры.
+Материал раздаётся с официальной документацией.Формат: PNG, AI, EPS, PSDРазрешение файлов: 2084 x 2084 - 2085 x 2085
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667427717B1D7A814AFCC4F51564C5C783BB3D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793538   (67481) от 25.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Mix Chunky Glitter Sparkle Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изображения с блёстками для сублимационного дизайна.Формат: PNGРазрешение файлов: 2925 x 1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477217647E59BA79F8AD633996B8A1A093830C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654748   (67480) от 25.04.2025
+
+Джанни Родари | Зеленое яйцо (2023) [MP3, Puffin Сafe]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67480.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Старый крестьянин Омобоно обнаружил, что его курица снесла зеленое яйцо. Но необычный цвет это еще полбеды. Яйцо жужжит как какой-то механизм и внутри него находится целый мир." (с)Жанр: Детская литература, ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E563013582BF3E3640B3CF07ACC38AB5706908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793436   (67479) от 25.04.2025
+
+Футбол. FONBET Кубок России 2024/25. Путь РПЛ 1/2 финала (2-й матч). Динамо (Москва) - ЦСКА (Москва) (16.04.2025) TVRip [H.264] [50 FPS]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый матч ЦСКА выиграл со счётом 2:1. Московское «Динамо» штормит на протяжении всего сезона. Зимняя пауза не помогла Личке найти баланс и избавиться от хронических проблем. Полтора весенних месяца развернули ситуацию для «Динамо» и ЦСКА. На зимнюю паузу бело-голубые уходили с отрывом в четыре очка от армейцев. Спустя шесть туров уже красно-синие впереди на те (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98246811D696148B3048C78E64D2C6DE81B3EC93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793588   (67478) от 25.04.2025
+
+Machine Head - Unatoned (2025) [MP3|320 Kbps] <Groove Metal, Thrash Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LANDSCAPE OF THORNS (00:31)
+ 02. ATOMIC REVELATIONS (03:42)
+ 03. UNBOUND (03:57)
+ 04. OUTSIDER (03:57)(   Читать дальше...   )Жанр: Groove Metal, Thrash Metal, Alternative MetalПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E51AF8C2448524257D486A98B83D6556F99BFF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

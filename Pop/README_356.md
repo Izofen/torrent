@@ -1,3 +1,90 @@
+###  Публикация: 1750940   (42711) от 22.09.2024
+
+VA - 90s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spice Girls - Wannabe
+02. Shania Twain - Man! I Feel Like A Woman!
+03. M.C. Hammer - U Can't Touch This
+04. Lenny Kravitz - Fly Away(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 05:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568A68681B84F335610EB3B605894563C73B2DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751075   (42616) от 23.09.2024
+
+Linda Jo Rizzo - Best Of Linda Jo Rizzo (1999) [OGG Vorbis|480 Kbps] <Electronic, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My First, You're My Last
+02. I've Got The Night
+03. Heartflash (Tonight)
+04. Just One World(   Читать дальше...   )Жанр: Electronic, Euro-DiscoПродолжительность: 01:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AEB9ECF819A83C6732AFFA283AA1C1B7F26945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751387   (42538) от 24.09.2024
+
+VA - Powermix Vol. 001+002 (1990) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Hi NRG, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Power Intro
+02. The Fans - Ole, Ole, Ole
+03. Mike Mareen - Stand Up
+04. Sinery - Don't You Ever Run Away(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Hi NRG, Synth-popПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288EB886B9883F085EBB5C2462D1DE3AED074E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751378   (42506) от 24.09.2024
 
 VA - Powermix Part IV (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House, Disco>
@@ -655,93 +742,6 @@ VA - Суперхиты Дискотеки 90-х Vol.3 (2011) [OGG Vorbis|480 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F559C3F02796829EF6970DA88B03494C6488008A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753544   (41354) от 05.10.2024
-
-VA - Союз 21 (1997) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алёна Апина и Мурат Насыров - Лунные ночи
-02. Максим Леонидoв - Видение
-03. Татьяна Буланова - Серебристый тополь
-04. Кай Метов - Где-то далеко идут дожди(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C2DB27CDB79FFE244DB8BEF8533ACDAE059F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753663   (41250) от 06.10.2024
-
-VA - Суперхиты Дискотеки 90-х Vol.4 (2012) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace of Base - Happy Nation
-02. Corona - The Rhythm Of The Night
-03. Mr. President - Up'n Away
-04. Cappella - U Got 2 let the Music(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB1FFEF7B38E800C7EDA59C9C1FAA67C868E115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753914   (41201) от 07.10.2024
-
-VA - Союз 16  (1995) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Филипп Киркоров - Милая
-02. Александр Буйнов - Падают листья
-03. Лариса Долина - До свидания
-04. Нэнси - Дым сигарет с ментолом(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E5627C3B2B9DC372E5BB37A1A2DEC1846A9948
 ```
 
 https://mybot314.ru/tekegram_catalog/

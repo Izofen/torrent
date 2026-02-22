@@ -1,3 +1,90 @@
+###  Публикация: 1078954   (297661) от 02.12.2016
+
+Alekseev - Пьяное солнце (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Океанами стали
+02. Чувствую душой
+03. Пьяное солнце
+04. Больно как в раю(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8ADF4642CAC47581665F6A044241F20BA796FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078973   (297263) от 02.12.2016
+
+VA - New Generation Italo Disco: The Lost Files Vol.1 (2016) [MP3|320 Kbps] <Hi-NRG, Synthpop, Post-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ranger - Don't Play Games (BCR Extended Disco Mix) 9:04
+02. Valerie Star - Flash in the Night 6:32
+03. Casanova - I Love You 6:35
+04. Alan Brando - Don't Let My Heart Say Goodbye 6:31(   Читать дальше...   )Жанр: Hi-NRG, Synthpop, Post-DiscoПродолжительность: 01:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:259E487BCBE78E5530E63A18120D957C036223C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185108   (297040) от 19.11.2017
+
+Оркестр Павла Овсянникова - Звёздный Вираж (1985) [APE|Lossless|WEB-DL|tracks] <Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звездный вираж
+02. Северное сияние
+03. Горные лыжи
+04. У старого дома(   Читать дальше...   )Жанр: RetroПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB925961BE5EA607E719C10F2A42F4A77F3DEC30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262262   (297012) от 14.11.2018
 
 Egotrya - Egotrya (1981) [MP3|320 Kbps] <Electronic, Disco, Space Rock>
@@ -657,93 +744,6 @@ Little Mix - LM5 (2018) Japanese Edition [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:189B39DC142E4B1147DB495D3EC8112190A1463A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185225   (294916) от 20.11.2017
-
-Eros Ramazzotti - Eros Duets (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eros Ramazzotti Duet With Tina Turner – Cosas De La Vida (Can't Stop Thinking Of You)
-02. Eros Ramazzotti & Nicole Scherzinger – Hasta El Extasis
-03. Giorgia feat. Eros Ramazzotti – Inevitabile
-04. Eros Ramazzotti & Anastacia – I Belong To You (El Ritmo De La Pasion)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579494ADC9AF5E57380B2810231F3C6EB918C884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262477   (294915) от 15.11.2018
-
-Mariah Carey - Caution (2018) [MP3|320 Kbps] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GTFO
-02. With You
-03. Caution
-04. A No No(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7DF94DDF68F9941CA550297E6DC3F744E90E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184884   (294902) от 20.11.2017
-
-Bjork (Björk) - Utopia (2017) [MP3|320 Kbps] <Electronic, indie, Experimental, trip-Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arisen My Senses
-02. Blissing Me
-03. The Gate
-04. Utopia(   Читать дальше...   )Жанр: Electronic, indie, Experimental, trip-HopПродолжительность: 01:11:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A66AC07A440C4257400839A74F1F66D200D1AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

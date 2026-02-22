@@ -1,3 +1,38 @@
+###  Публикация: 255054   (359651) от 06.11.2010
+
+Shakta Kaur Khalsa - Women's Yoga Music (2010) [MP3|320 kbps]<New Age, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359651.jpg" />
+</div>
+
+
+###  Подробнее
+
+(05:35) 01. Aadays Tisai Aadays
+(04:37) 02. Listen, Listen, Listen
+(05:34) 03. Ra Ma Da Sa
+(06:10) 04. Blessed Is My Soul
+(06:13) 05. Where I Sit Is Holy
+(05:34) 06. Ajai Alai
+(03:46) 07. Kanekotsytha
+(07:07) 08. Hanshan Temple
+(02:05) 09. Sa Ta Na Ma Celebration
+(04:36) 10. Circle of LightЖанр: New Age, Easy ListeningПродолжительность: 01:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E01D054886815031B09472979C62585DE975E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071392   (359347) от 10.11.2016
 
 Geoff Knorr, Roland Rizzo, Phill Boucher - Sid Meier's Civilization VI (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -724,35 +759,6 @@ Davide Brullo - Life (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAEA5F61B7C90D11A26D107BBC2DCEBE28CEE5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329025   (355959) от 03.10.2019
-
-Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoyt's Office (01:25)
-02. Defeated Clown (02:39)
-03. Following Sophie (01:33)
-04. Penny in the Hospital (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95ECDD5FC991EAA221A7ADCB422D02943B7054B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1642898   (234387) от 29.06.2023
-
-Igor Fedotov - Believe in Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Classic You (5:18)
-02. Soul Master (4:29)
-03. It’s All About Love (4:12)
-04. Believe In Love (5:18)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08AA4E8C219221ADEA9037EDDBD1021300B1B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639857   (234359) от 15.06.2023
 
 Jeff Coffin - Between Dreaming And Joy (2022) Ear Up Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
@@ -745,6 +716,35 @@ Stanley Turrentine - The Best of Stanley Turrentine (1990) Epic [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B907A4EF16298504D1EF5ED12FEC2499DA7DEAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623545   (233819) от 02.04.2023
+
+Dinah Washington - La Reine - The Queen (1943 - 1957) 2CD, 2008, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pillow Blues [2:58]
+02. I Cried for You [2:31]
+03. Feel Like I Wanna Cry [3:22]
+04. Am I Blue [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D3949CAE1A2D42D804E15E281C523DAF337B97
 ```
 
 https://mybot314.ru/tekegram_catalog/

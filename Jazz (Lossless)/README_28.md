@@ -1,3 +1,38 @@
+###  Публикация: 439267   (974054) от 20.01.2012
+
+Bebel Gilberto - Momento (2007) [FLAC|Lossless]<Nu Jazz, Lounge, Bossa>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Momento (5:17)
+02. Bring Back The Love (feat. Brazilian Girls) (4:29)
+03. Close To You (3:21)
+04. Os Novos Yorkinos (3:42)
+05. Azul (3:13)
+06. Caзada (4:35)
+07. Night And Day (4:57)
+08. Tranquilo (feat. Orquestra Imperial) (4:06)
+09. Um Segundo (3:12)
+10. Cadк Vocк? (3:33)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, BossaПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 439269   (974053) от 20.01.2012
 
 Oscar Castro-Neves - Live At Blue Note Tokyo (2012) [FLAC|Lossless]<Jazz, Latin>
@@ -788,35 +823,6 @@ Joe Gilman Trio with Joe Henderson - Treasure Chest (1991) Remaster, 2015, Timel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE1B0FD42D7F53652EE9D3A9B11A8EE3D0CD5ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975981   (970931) от 16.01.2016
-
-Bob James - Rhodes Scholar: Jazz-Funk Classics (1974-1982) 2CD Compilation, 2013 [FLAC|Lossless|tracks + .cue] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Nautilus (5:00)
-02. Valley Of The Shadows (9:37)
-03. Farandole (L'arlesienne Suite #2) (8:24)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF9EA8CA07911750ED29188E57636A8DAA7C3FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

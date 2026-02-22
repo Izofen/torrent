@@ -1,3 +1,32 @@
+###  Публикация: 1212761   (775222) от 13.03.2018
+
+Sonia Cat-Berro - Lonely Siren (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Return
+02. Very Simple Song
+03. Around My Shoulders
+04. Babooshka(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBFE81803496A942201604D8971DB25C4ABDC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212819   (775214) от 13.03.2018
 
 Lyn Stanley - Interludes (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -715,35 +744,6 @@ Nguyen Le & Ngo Hong Quang - Ha Noi Duo (2017) [FLAC|Lossless|tracks + .cue] <Wo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A82C2643F599E27BCE5B3D836211B695AECBB504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213420   (772008) от 16.03.2018
-
-The BBC Big Band - Harlem Nocturne (2004) Galaxy Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Getting Sentimental Over You [03:35]
-02. Harlem Nocturne [02:50]
-03. Leave Us Leap [03:30]
-04. You Made Me Love You [03:19](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2153D6FF0D87F316DF4524ADC96AB99F0D88C7DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

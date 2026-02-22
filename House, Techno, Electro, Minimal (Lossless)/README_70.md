@@ -1,3 +1,61 @@
+###  Публикация: 1800439   (15730) от 03.06.2025
+
+VA - Ibiza Summer 2025 (House Hotties from the Heart) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex A - Solar (Stream Edit) (3:15)
+02. Jerry Ropero - In Time (6:36)
+03. Hi.5 - Right Now (Extended Mix) (5:38)
+04. W.A.N. - Bay Of Love (Thomas Montevideo Remix) (9:05)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171449BC84C52C94292EEC78B072F1BE68C87900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800558   (15664) от 04.06.2025
+
+Anyma - The End Of Genesys (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucente (1:53)
+02. Voices In My Head (2:26)
+03. Hypnotized (3:00)
+04. Taratata (3:22)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6DA0DCFB96ECEB8D6B49F48D9C0751A03FD037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800583   (15657) от 04.06.2025
 
 Filatov & Karas - Collection (2014-2025) [FLAC|Lossless|tracks] <House, Deep House, Electro House>

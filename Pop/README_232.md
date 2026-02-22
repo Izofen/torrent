@@ -1,3 +1,90 @@
+###  Публикация: 1420545   (331268) от 02.11.2020
+
+VA - Acoustic Classic Rock Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shannon & Keast - Free Fallin’ (04:17)
+02. Meg Birch - Never Tear Us Apart (03:02)
+03. Karizma Duo - Somebody Told Me (03:36)
+04. Thom Cooper - Sex on Fire (03:19)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3CE7D4AE91B19B59EBFA2F87ABBDA58BE9AAA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955886   (331207) от 13.11.2015
+
+Hedley - Hello (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Pop,Punk,Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost In Translation (2:49)
+02. Hello (4:12)
+03. Quit (3:30)
+04. Can't Slow Down (3:36)(   Читать дальше...   )Жанр: Pop,Punk,RockПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9DF2E0FA903890C028F4EC395F9DDAD591DDBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956106   (331149) от 13.11.2015
+
+Дуэт Однажды - Гром (2000) [APE|image+.cue]<Pop,Lounge>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гром [03:38]
+02. Падаю я [03:48]
+03. Я одна [04:19]
+04. Поцелуй [03:51](   Читать дальше...   )Жанр: Pop,LoungeПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769CFE1C5DD3ED3122EA139AC2295D8E282B7DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956025   (331140) от 13.11.2015
 
 The Dark Tenor - Symphony Of Light (2014) Deluxe Version [OGG|469-528 кб/с]<Neo-Classical Crossover Pop, Ballad, Vocal>
@@ -661,93 +748,6 @@ One Direction - Made In The A.M. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8A3959C0A5FE9F39347CC46C0F25F34372FDCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842205   (328179) от 18.11.2014
-
-Гоша Куценко - Музыка (2014) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Музыка
- 02. Танцы
- 03. Голая
- 04. Береты(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79ABBBC47F4D08D32107DDBD88A3BDA0489BB810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581089   (328065) от 04.10.2022
-
-Robbie Williams - Intensive Care (2005) [OGG Vorbis|484 Kbps] <Electronic, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghosts	3:42
-02. Tripping	4:37
-03. Make Me Pure	4:33
-04. Spread Your Wings	3:51(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697341F0C0CF243C65944EDD6D4530275A8512E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581145   (328064) от 04.10.2022
-
-Robbie Williams - Heavy Entertainment Show (2016) [OGG Vorbis|484 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Heavy Entertainment Show
-02. Party Like a Russian
-03. Mixed Signals
-04. Love My Life(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2968BF4B23BE5684F8C2F1872089EFE418FE5F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

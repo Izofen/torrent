@@ -1,3 +1,61 @@
+###  Публикация: 1114902   (829890) от 16.03.2017
+
+XS Project - The New Pumping Attack (2016) [FLAC|Lossless|WEB|tracks] <Pumping House , Hard Bass>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xs Project - 1 Oak (4:04)
+02. Xs Project - Monstro (3:52)
+03. Xs Project - Грозный (4:27)
+04. Xs Project - Mad Magazine (3:31)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018EF88082E2C63201487452F7069F027858D93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380980   (829771) от 05.05.2020
+
+Night Sea - Still (2020) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Will Take Time (05:07)
+ 02. HDSB (06:41)
+ 03. Small Bird (05:38)
+ 04. Sukho (05:53)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Techno AmbientПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE065D88793CD218850833FA2601A309A7DF01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006392   (829209) от 11.04.2016
 
 Richard Davis - Safety (2002) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
@@ -685,62 +743,6 @@ Jonas Blue - Fast Car (feat. Dakota) (2016) [FLAC|Lossless|WEB-DL|tracks] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC66C4BFB8B020CD74213F16222E9403D4915B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007525   (819453) от 16.04.2016
-
-VA - Urban Dance, Vol. 16 (2016) Scene [FLAC|Lossless|WEB-DL|tracks] <Dance, Deep House, EDM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819453.jpg" />
-</div>
-
-
-###  Подробнее
-
-04. Another Lonely Night (3:46)
-01. Faded (3:32)
-18. Little Swing (2:43)
-11. The Horns (Radio Remix) (3:32)(   Читать дальше...   )Жанр: Dance, Deep House, EDM, HouseПродолжительность: 03:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D241F3822FEFEF494F1C8F54029DADA0399BC9D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196863   (819205) от 05.01.2018
-
-Alpha Delta Division - Outer Rim (2017) Sloboda [FLAC|Lossless|tracks|Vinyl] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outer Rim (13:36)
- 02. Region 114 (12:51)Жанр: TechnoПродолжительность: 00:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42A3400B7B946EC37701C26B5EC32B9A344CFE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

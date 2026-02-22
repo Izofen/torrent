@@ -1,3 +1,87 @@
+###  Публикация: 1739602   (106047) от 28.07.2024
+
+Army Of Lovers - Remixodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexodus (Maxim Andreev Radio Edit) (3:22)
+02. Love Is Blue (Sagi Kariv Radio Edit) (3:55)
+03. What's That Look (SoundFactory Radio Edit) (2:59)
+04. Romanism (SoundFactory Radio Edit) (2:26)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC398E76189B866B1A9970411CB209960E4D3300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739217   (106041) от 28.07.2024
+
+VA - Now Yearbook Extra '90 3 x CD, Compilation, Collectors Edition (2024) [MP3|320 Kbps] <Electronic, Hip Hop, Jazz, Rock, Reggae, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106041.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-01	George Michael–Freedom! '90	6:29
+1-02	The B-52's–Roam	4:05
+1-03	Duran Duran–Serious (Single Edit)	3:57
+1-04	Belinda Carlisle–Runaway Horses	4:12(   Читать дальше...   )Жанр: Electronic, Hip Hop, Jazz, Rock, Reggae, Funk / Soul, PopПродолжительность: 04:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D307DC1E49AEC4BF58CF156653E719242D765941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739251   (106039) от 28.07.2024
+
+VA - Now Yearbook Extra '85 (60 More Essential Hits From 1985) (2023) [MP3|320 Kbps] <Electronic, Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electronic, Rock, Funk / Soul, PopПродолжительность: 04:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6768FFB83515BBF7BCF73CB80D1F99A739CF22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739032   (106030) от 28.07.2024
 
 Gloria Gaynor - Never Can Say Goodbye (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
@@ -655,93 +739,6 @@ La Banda Salsa - Viva La Salsa (1976) LP [MP3|320 Kbps] <Latin, Funk Soul, Salsa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7013198736AD043437F29F087A48CC1C9695AF5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743590   (105325) от 18.08.2024
-
-Стас Пьеха - Одна Звезда (2005) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105325.jpg" />
-</div>
-
-
-###  Подробнее
-
-10. Одна Звезда
- 02. Ты Грустишь
- 03. Где Буду Я
-  04. Уличная Фея(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D90F8E613B6C7022C9FFFA3C5871AC2FA93ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743593   (105322) от 18.08.2024
-
-SuperDетки - Бикини-Мини (2007) Саундтрек к к/ф "Свободное Плавание" [WavPack|Lossless|image + .cue] <Europop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мама, не ругайся
- 02. Бикини-мини (Version 2007)
- 03. Буду танцевать (Саундтрек к к/ф "Свободное Плавание")
- 04. Лето без вопросов(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1561C5B0F0DB435C2271D3CD0CB46A096B051ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744846   (105229) от 23.08.2024
-
-Duran Duran - Duran Duran (1981) Deluxe Edition, 2010, Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girls on Film (AIR Studio Version - Early Demo) [00:04:00]
-02. Tel Aviv (AIR Studio Version) [00:06:03]
-03. Anyone out There (Manchester Square Demo) [00:04:11]
-04. Planet Earth (Manchester Square Demo) [00:05:03](   Читать дальше...   )Жанр: New Wave, Synth-pop, DiscoПродолжительность: 2 CD, 02:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264C3FA326FF032D7B64F9FD87D550A7A4E59635
 ```
 
 https://mybot314.ru/tekegram_catalog/

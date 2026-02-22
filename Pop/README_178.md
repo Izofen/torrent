@@ -1,3 +1,116 @@
+###  Публикация: 1312045   (536234) от 02.07.2019
+
+Братья Грим - Необитаемый остров (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лелею (4:43)
+ 02. Ближе (4:36)
+ 03. Робинзон (4:28)
+ 04. По дороге домой (3:33)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540ECA4E931F5E7B586509EA740A2D5D29FBC357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050747   (536198) от 09.09.2016
+
+Imany - The Wrong Kind Of War (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Folk, Singer-Songwriter>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Our Soul (3:28)
+02. No Reason, No Rhyme (4:45)
+03. You Don't Belong To Me (3:37)
+04. I Long For You (3:18)(   Читать дальше...   )Жанр: Pop, Soul, Folk, Singer-SongwriterПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EF3A54BEEF1143CCC7B53D0D417C3A30DCFE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050706   (536191) от 09.09.2016
+
+Lian Ross - And The Beat Goes On (2016) 2CD [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. All We Need Is Love
+02. Game Of Love
+03. You're My Heart You're My Soul ft. Big Daddi(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB6FD62CEB660B8DF4BD8F118037AC7EE294136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312050   (536093) от 02.07.2019
+
+Мот, Zivert - Паруса (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Паруса (3:31)Жанр: PopПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB6B89CDDA2C0370C1D481B0E14C6D9C683FB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312049   (535984) от 02.07.2019
 
 Zivert - Сияй (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -632,122 +745,6 @@ Cerrone - Cerrone by Bob Sinclar (2001) Partially Mixed [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3C578870FA80C1DE227A3068A29C8811EC63A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050932   (532577) от 11.09.2016
-
-VA - Ministry of Sound - Good Vibes (2016) [MP3|320 Kbps] <Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532577.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1. Kungs & Cookin’ On 3 Burners – This Girl
-2. The Chainsmokers Feat. Daya – Don’t Let Me Down
-3. Sia Feat. Sean Paul – Cheap Thrills(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 03:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1343C1ED5E9A9D7B8E95BCA64D748D69C5FD6BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312595   (532250) от 04.07.2019
-
-VA - NOW 100 Hits Forgotten 80s (2019) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно не согласиться с авторами заголовка этого бокс-сета. В нем собраны не позабытые, а, для нашего не искушенного советского слушателя, вовсе почти не известные хиты из 80-х годов прошлого столетия. Десяток западных групп, которые были на слуху у интересующейся молодежи, конечно же не исчерпывали всего "хитового" многообразия того времени. Давайте восполним (   Читать дальше...   )CD1:
-01. Amazulu - Too Good To Be Forgotten  (3:06)
-02. F.R. David - Words  (3:27)
-03. Aneka - Japanese Boy  (3:56)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 06:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED389777498B68DFEEB8AEC1B1AF73D6E6BD671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926803   (531722) от 11.08.2015
-
-Heather Bond - So Long (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Enough
- 02. Secrets
- 03. Some Other Lover
- 04. So Long(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6977788CF5B67BABAAFCFC7D7DDCC5DA919521ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558375   (531644) от 20.06.2022
-
-VA - Radio Hits 2022 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Animals - Heat Waves (3:58)
-02. OneRepublic - Sunshine (2:43)
-03. Deve - Cold Life (2:37)
-04. Alesso - When I'm Gone (2:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF20AD2FA27B2314C7FD87071F965931851B0C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

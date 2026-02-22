@@ -1,3 +1,119 @@
+###  Публикация: 543985   (493162) от 06.09.2012
+
+VA - Disco Discharge. Disco Boogie (2010) 2CD[FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toto featCheryl Lynn - Georgy Porgy (Special 12' Disco Mix) [05:08]
+02. Terri Wells - You Make It Heaven (Original 12' Mix) [05:26]
+03. Illusion Orchestra - Autumn Leaves (Original 12' Mix) [04:27]
+04. Deodato - Night Cruiser (Original 12' Mix) [06:16]
+05. Skyy - Call Me (Original 12' Mix) [06:21]
+06. Maxine Singleton - You Can't Run From Love (Original 12' Club Mix) [06:42]
+07. Conquest - Give It To Me (If You Don't Mind) (Original 12' Mix) [06:54]
+08. DTrain - Keep On (Francois Kevorkian 12' Remix) [09:28]
+09. Nick Straker Band - Straight Ahead (Original 12' Mix) [06:43]
+10. Alisha - Baby Talk (Special 12' Remix by Shep Pettibone) [06:47]Жанр: Disco, PopПродолжительность: 01:04:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541582   (492903) от 06.09.2012
+
+VA - Русская Коллекция. ХИТЫ 60-х Часть I, II (2009) [WavPack|Lossless]<Pop, Ретро, CCCP>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Ретро, CCCPПродолжительность: 2:36:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318764   (492842) от 07.08.2019
+
+Julio Iglesias Jr. - Por La Mitad (2008) Parlophone Spain [FLAC|Lossless|WEB-DL|tracks] <Pop Latin Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Por La Mitad (3:53)
+ 02. Angel (4:13)
+ 03. Promete Decir La Verdad (4:11)
+ 04. Una Vida Sencilla Sin Más (4:35)(   Читать дальше...   )Жанр: Pop Latin MusicПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25C69503F93C4AB67F964A6FB39686952496E88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318782   (492839) от 07.08.2019
+
+VA - Italo Made In Spain 5 (2018) 2xCD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Italo Made In Spain 5Жанр: Italo-DiscoПродолжительность: 02:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF5A4D30065CC1D4DCBCA47C1128591BD561285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318784   (492838) от 07.08.2019
 
 VA - Italo Made In Spain 6 (2019) 2xCD, Mixed [MP3|~245 Kbps (V0)] <Italo-Disco>
@@ -635,122 +751,6 @@ Sandra - Everlasting Love (PWL Remix) (1988) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E14E40812BF0A7CAAF13F9E3A172FB6890D0876F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243643   (490227) от 28.08.2018
-
-VA - Big Room Sessions, Vol. 3 (2018) [MP3|320 Kbps] <Club, Funky, Progressive, Groove, Tribal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disfunktion - Wokkasaki (Rocking J Remix)
-02. Peter Brown, Ann Bailey - Let Me Go (Instrumental Mix)
-03. Reza, Nicole Tyler - Take Me Home (Original Mix)
-04. Jay Ronko, Josh Newson - Push (Original Mix)(   Читать дальше...   )Жанр: Club, Funky, Progressive, Groove, TribalПродолжительность: 05:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7702707C06532B91CCC4B7DE99835F8C8F864100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054710   (490209) от 21.09.2016
-
-Фанки - 3 альбома (2000-2005) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Только тебе
-02 - Игрушка
-03 - Птицы
-04 - Планета(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588DB0985CC6243093E553AFCCC4445E469DB690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055177   (490113) от 21.09.2016
-
-VA - NOW That's What I Call Music! 93 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Electronic, Pop-Rock, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bieber - Sorry (3:22)
-02. The Weeknd - The Hills (4:04)
-03. Coldplay - Adventure Of A Lifetime (3:45)
-04. 99 Souls feat. Destiny's Child & Brandy - The Girl Is Mine (3:35)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Pop-Rock, Dancepop, Funk, Soul, Synthpop, House, R&B, Hip-HopПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8D5D3465231F8AC75AFAAF87700E663F9524AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937334   (490054) от 14.09.2015
-
-Сёстры Роуз - Бродяга (1996) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бродяга
-02. Твой поцелуй
-03. Ты - чужой
-04. Осень(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185402BD885BACBD8A7D752016F70844D756194A
 ```
 
 https://mybot314.ru/tekegram_catalog/

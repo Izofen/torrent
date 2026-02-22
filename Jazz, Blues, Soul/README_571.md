@@ -1,3 +1,32 @@
+###  Публикация: 1763467   (102815) от 01.12.2024
+
+Amber Rachelle & The Sweet Potatoes - Pipin' Hot! (2024) [FLAC|Lossless|WEB-DL|tracks] <Rhythm & Blues, Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Shot The Lala (3:33)
+02. As Long As I'm Moving (3:10)
+03. My Old Man (4:33)
+04. Mama He Treats Your Daughter Mean (3:09)(   Читать дальше...   )Жанр: Rhythm & Blues, Swing, JazzПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78CFC7BFF16BD758BF2D1DAE03BC81FA682C391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763491   (102814) от 01.12.2024
 
 Stormin' Norman and the Cyclones - Road Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ Mel Torme & The Marty Paich Dek-Tette - In Concert Tokyo (1989) Concord Jazz [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E76C4A15E3EE16FE8D82239B6F5616F3E11389A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764068   (102760) от 05.12.2024
-
-Peter MacInnis - Late Night Blues Vibe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Remember How to Dance? (3:31)
-02. Something to Sell (3:31)
-03. HollyHood Tay - Focusing on Me (2:32)
-04. Gotta Slow It Down (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A770F92C69FAE46257A38C3F685960F95E3CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

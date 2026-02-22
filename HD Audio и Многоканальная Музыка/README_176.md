@@ -1,3 +1,177 @@
+###  Публикация: 1774852   (71532) от 23.01.2025
+
+Witchwood (ex-Buttered Bacon Biscuits) - Studio Albums (4 releases) (2009-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Prog Rock, Southern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Witchwood — итальянская хард-рок-группа, основанная в 2014 году.2009 - From The Solitary Woods (as Buttered Bacon Biscuits)
+2015 - Litanies From The Woods
+2016 - Handful of Stars
+2020 - Before the WinterЖанр: Hard Rock, Prog Rock, Southern RockПродолжительность: 03:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBD40BD5CF113A7E7760072782A0A0DAA916B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774888   (71522) от 23.01.2025
+
+Bonfire - Higher Ground (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nostradamus (01:30)
+ 02 - I Will Rise (04:37)
+ 03 - Higher Ground (04:13)
+ 04 - I Died Tonight (04:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FBEAA36DC4C9B4974FD5B8EC91BAEAAFD33CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775040   (71514) от 24.01.2025
+
+The Great Old Ones - Kadath (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me, the Dreamer (10:55)
+02. Those from Ulthar (9:10)
+03. In the Mouth of Madness (7:11)
+04. Under the Sign of Koth (8:46)(   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851DF21D1350201F106C1D8484E59F714FC29905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775053   (71509) от 24.01.2025
+
+Avatarium - Between You, God, The Devil and The Dead (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom Metal, Heavy Rock, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Long Black Waves (06:10)
+ 02 - I See You Better in the Dark (03:43)
+ 03 - My Hair Is on Fire (But I'll Take Your Hand) (05:30)
+ 04 - Lovers Give a Kingdom to Each Other (05:02)(   Читать дальше...   )Жанр: Doom Metal, Heavy Rock, Female VocalПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DCF0C090D071D0B4A245E333CA970540315E59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775153   (71504) от 25.01.2025
+
+Armik - Gitano Amor (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Flamenco, Instrumental, Guitar>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gitano Amor (04:18)
+02 - Tears In Paradise (04:56)
+03 - Libertad (04:00)
+04 - Intro To Donatella (03:05)(   Читать дальше...   )Жанр: Flamenco, Instrumental, GuitarПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970E21E93F079F7BAFF43889B8D3F4362CC9EE03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775162   (71501) от 25.01.2025
+
+Wardruna - Birna (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nordic folk, ambient, dark folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hertan (6:13)
+02. Birna (6:25)
+03. Ljos til Jord (5:01)
+04. Dvaledraumar (15:25)(   Читать дальше...   )Жанр: Nordic folk, ambient, dark folkПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3503A348BC3DDDE1BF92C6283562CAEB0626D02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775195   (71499) от 25.01.2025
 
 VA - To My Valentine: Romantic Lounge Tunes (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -571,180 +745,6 @@ In Extremo - Kompass zur Sonne (2020) Extended Edition [FLAC 24/44.1|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B893FE1B8C80750781C5123DADC2186D68FE932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775815   (71400) от 28.01.2025
-
-David Rose - My Happy Space (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Happy Space (2:24)
-02.  String 'em Up Boys (2:15)
-03.  Can't Live Without Music (3:24)
-04.  Whispers In The Breeze (3:25)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BDE073B6A6A8A2E0D05ED8169DFB4FEE43B4C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775817   (71386) от 28.01.2025
-
-Fontamar Consort - Ramour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roberto Gagliardi - Perdue (3:54)
-02.  Vito De Lorenzi - En somme (3:21)
-03.  Roberto Gagliardi - Ravage (3:27)
-04.  Vito De Lorenzi - Honfleur (2:49)(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B337FFCA0407FF5559459C88350B827E66111AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775807   (71385) от 28.01.2025
-
-Andy Middleton Quartet - Water and Sky (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Slant of the Sun (7:07)
-02.  Desert Blossom (5:29)
-03.  And Again (6:49)
-04.  Water and Sky (6:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8EE7581BC39E7C9C3498011D741C37E643BCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775810   (71384) от 28.01.2025
-
-Atmospheric Trio - Following Polaris (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Following Polaris (5:41)
-02.  Green Chimneys (4:58)
-03.  When The Sky Turns Blue (7:30)
-04.  Absurd Arnold (3:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE59D90C12352A068E95FC39498D71B69CE7BF13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775820   (71383) от 28.01.2025
-
-Hvalfugl - Bag Vore Øjne Strømmer Drømme Sagte Forbi (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Evig (2:04)
-02.  Mønstre I Verden (4:44)
-03.  Iturevet Almanak (3:48)
-04.  Lange Skygger (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A2161AD01796784CB7D4D8325F5740FB101C52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775829   (71381) от 28.01.2025
-
-Jesper Zeuthen Empty Pocket Sextet - GNIST (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fanden Sover Aldrig (5:20)
-02. XYZ (1:31)
-03. Bestraffningsvaggvisa (3:58)
-04. Fornuftens Kvalfulde Endeligt (3:24)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5FE0119ED63C12923A115F7BE287171A59E41C
 ```
 
 https://mybot314.ru/tekegram_catalog/

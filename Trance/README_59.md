@@ -1,3 +1,32 @@
+###  Публикация: 1739110   (106170) от 26.07.2024
+
+VA - Top Summer Uplifting 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Litunov - Drifting Moon (06:32)
+02. Haotic Visions - The Flame (06:05)
+03. Crealta Generation - Cryalta Vision (06:45)
+04. CJ Stereogun - Dolphin Pond (First Version) (06:10)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105D0DDE5DA415F830CB0A027F584AC070A30FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739884   (105948) от 31.07.2024
 
 VA - Nothing But... Trancetopia Vol. 17 (2024) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Trance Clubbers, Vol. 2 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A768DCB571D6FB29982A3018CAF2113A435B81EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750727   (104169) от 21.09.2024
-
-VA - Trance Clubbers, Vol. 1 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaron Inc. & Wavetraxx - Cloudsurfer (Radio-Edit) (03:26)
-02. Marc Dawn - Random Walk (Factor B's Back to the Future Remix Edit) (04:17)
-03. Stefano Negrini, Anthya & Alaera - Love Has Gone (Radio-Edit) (03:11)
-04. Solid Sleep - Tears (Edit) (03:19)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E38C70A8C75F721C7B5FECD321818A49ED717A
 ```
 
 https://mybot314.ru/tekegram_catalog/

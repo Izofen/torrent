@@ -1,3 +1,35 @@
+###  Публикация: 176186   (937688) от 16.02.2010
+
+Muvee Reveal Multilanguage 8.0.0.12674 [Multilanguage] + Addons + Templates
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Программа для домашнего создания видео muvee Reveal 8 теперь до 8 раз быстрее с графическими процессорами NVIDIA GeForce
+Компания NVIDIA и компания muvee, пионер в области программного обеспечения для создания фильмов в домашних условиях, сегодня объявили, что владельцы компьютеров на базе графических процессоров NVIDIA GeForce и NVIDIA ION с NVIDIA CUDA получат восьмикратный прирост скорости рендеринга фильмов, создаваемых в программе для автоматического редактирования видео muvee Reveal версии 8.
+
+Среди новых возможностей восьмой версии – поддержка нескольких звуковых дорожек, мгновенная загрузка видеороликов с Youtube и Facebook и многое другое.
+
+Всего за несколько минут пользователи могут создать фильм профессионального уровня в muvee Reveal в три шага, загрузив фото и видео и выбрав музыку и стиль. Благодаря технологии распознавания лиц и движения muvee Reveal автоматически отбирает лучшие сцены и выстраивает их в такт музыке.
+Уже восемь лет muvee создает программное обеспечение и услуги в области автоматической (   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 176009   (937686) от 16.02.2010
 
 Raxco PerfectDisk Professional 10 Build 129 + RePack Professional/Server/Exchange/VMWare/Home Edition [x86 & x64] Eng/Rus / 2010
@@ -695,41 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2024B6E0188B5D78980189A787B0EA8146A32193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628469   (937570) от 10.03.2013
-
-Mihales Sound & Sunles - ATRIUM (mix) (2013) [MP3|320 кб/с]<Chillout, Chillstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Lime Time & Nistirenko - Found You (Lime TIme Remix)
-02 Aleksey Beloozerov – For Those Who Sleeps (Jane Maximova remix)
-03 Soarsweep - If There Was Love (Original Mix)
-04 Chris Wonderful - With You Forever
-05 East Cafe & Resistance - Never Let Me Go (East Cafe Chill Reverse)
-06 Timewave - Stayings (Original Mix)
-07 Mina Fedora & ChromaChords - Windy Dream (Chillout Mix)
-08 Essay & CoMa – Deceptive (Original Mix)
-09 Dmitry Aeolus - Memories of Versailles (Original Mix)
-10 Tiero - Childhood(   Читать дальше...   )Жанр: Chillout, ChillstepПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80AF0B2591A5EE4AEE1F203DF6EACB28C94F999
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1854607   (1057663) от 20.02.2026
+
+Bryan Adams - Compilation (1980-2026) [MP3|320 Kbps] <Soft rock, Pop rock, Arena rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kick Ass ❂ So Happy It Hurts 2022
+02. Summer Of '69 ❂ Reckless 1984
+03. (Everything I Do) I Do It For You ❂ Waking Up The Neighbours 1991
+04. Lonely Nights ❂ You Want It-You Got It 1981(   Читать дальше...   )Жанр: Soft rock, Pop rock, Arena rockПродолжительность: 08:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F94D8BAB954D3E9EEC7B6B00E4116E49193560E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852965   (1056283) от 10.02.2026
 
 Агата Кристи & Братья Самойловы - Compilation (1988-2025) [MP3|320 Kbps] <Alternative, Gothic rock, Art rock>
@@ -717,35 +746,6 @@ VA - The Rock Meeting Vol.02 (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06A5A58AABE5123E7B231AA533E2498BD7DBA2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610383   (1042436) от 07.02.2023
-
-VA - Impressive Sound 2022.2: Volume II (2022) [MP3|320 Kbps] <Technical death metal, progressive black metal, deathcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xenobiotic - The Wretched Strive
-02. Sigh - Shoujahitsumetsu
-03. Psycroptic - Enslavement
-04. Sun Eater - Vermin (feat. Charles Pierron & Daniel Bramley)(   Читать дальше...   )Жанр: Technical death metal, progressive death metal, progressive black metal, deathcoreПродолжительность: 01:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EB1E81BD5CCB2E6BBE48C19282BC2A89665176
 ```
 
 https://mybot314.ru/tekegram_catalog/

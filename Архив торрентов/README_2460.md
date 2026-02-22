@@ -1,3 +1,29 @@
+###  Публикация: 898353   (669108) от 21.05.2015
+
+Призраки Энфилда / The Enfield Haunting (2015) HDTVRip (сезон 1, серии 1-3 из 3) (kiitos)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669108.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1977 году в обычном доме на севере Лондона, в Энфилде, произошли странные и необъяснимые события, потрясшие всю Англию. Об этом загадочном феномене спорили ученые, писали в газетах журналисты, рассказывали друг другу обычные люди. Но тяжелее всех пришлось тем, кто жил в этом доме.Производство: Великобритания, Eleven FilmsЖанр: мистикаРежиссер: Кристоффер НайхолмАктеры: Элеонор Вортингтон-Кокс, Мэттью Макфэйден, Тимоти Сполл, Фёрн Дикон, Джульет Стивенсон, Рози Кавальеро, Саймон Чендлер и др.Перевод: Двухголосый закадровый, любительский - kiitosОзвучка: kiitos, ChertenokПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1985A5EB7AF18468738BBC233CB26B257FAF8C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537271   (669088) от 15.03.2022
 
 Transparent clock & weather / Прозрачные часы и погода 6.2.1 Mod by Balatan [Ru/Multi]
@@ -670,35 +696,6 @@ Torn Relics - The Poisoned Chalice (2019) Sacred Court [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDD100384721B82B53B071F7AEC20B3884DE6563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031216   (668898) от 03.07.2016
-
-VA - Nothing But... Pure Trance Vol.15 (2016) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Van Reeve -  Firestorm (Radio Edit) 4:20
-02. Rodrigo Deem -  Anything (Extended Mix) (feat. Emily Harder) 5:45
-03. DJ Dani -  Beautiful Angels (Original Mix) 7:39
-04. Alex Ender -  KSU (Radio Edit) 3:51(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4371AC0E7293805518CAC9966C23B94EE8BE6EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

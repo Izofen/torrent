@@ -1,3 +1,32 @@
+###  Публикация: 1313847   (522358) от 11.07.2019
+
+John McLean & Clark Sommers Band - Parts Unknown (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blondie Roundabout [8:23]
+02. Labor Day [5:31]
+03. Time Window [8:43]
+04. Parts Unknown [5:31](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7EDC345AD80657B218956EA9DC41F95D7575E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241094   (522202) от 15.08.2018
 
 Alexis French - The Cut (2014) Rattle [FLAC|Lossless|tracks + .cue] <Post-Bop, Trumpet Jazz>
@@ -724,35 +753,6 @@ Cousin Joe - The Complete Recordings, Vol.1 (1945 - 1947) 1995, Blue Moon [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE5F7B7261B5615EDE8D125F9D179DB2A5324269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929609   (518524) от 20.08.2015
-
-Bob Wilber & Kenny Davern - Summit Reunion (1990) /Chiaroscuro Records/ [FLAC|image+.cue]<Jazz, Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Long As I Live [05:39]
-02. Love Come Back To Me [06:11]
-03. St. Louis Blues [11:25]
-04. Black And Blue [04:57](   Читать дальше...   )Жанр: Jazz, Swing, Mainstream JazzПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED44BF41CE43A2BAE625F2CA2074AB0969BB799
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1771249   (71923) от 05.01.2025
+
+Gustav Lundgren Trio - Sofo Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Giant Steps (2:37)
+02.  The Times They Are A-Changin' (2:38)
+03.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - O Amor Em Paz (3:21)
+04.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Sunny (4:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C73B9F14303A3BE0ABB133C41D2CB2EF7B22878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771224   (71922) от 05.01.2025
+
+Catlvish - Jazzthematics (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Algebra Anthem (2:50)
+02.  Automatic arithmetic (1:57)
+03.  Coordinate geometry (2:36)
+04.  The geometry (1:49)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AEFEE339C1F26921DF86BBA4BEA552CD0F3269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771267   (71920) от 05.01.2025
+
+Unusual Suspects - At The Australian Jazz Museum Vol. 9 (Live) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ain't Misbehavin' (5:14)
+02.  East of the Sun (and West of the Moon) (5:42)
+03.  Out of Nowhere (5:14)
+04.  'S Wonderful (5:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBBFCFE143D39FB00C5AA26E61B64646694A4AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771223   (71918) от 05.01.2025
+
+Ari Karason - Melodies for us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lovely Day (3:32)
+02.  It Runs Through Me (3:04)
+03.  Until The End of Time (4:30)
+04.  Stars (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E642651C4DF980AF9352640FC5EAC9F5F96D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771264   (71913) от 05.01.2025
+
+The Blue Moods - Force & Grace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Crisis (4:42)
+02.  First Light (4:19)
+03.  Latina (4:04)
+04.  Brigitte (4:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A918C443F12BF82E1F6A74FE8D0A8F1AEC320D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771013   (71909) от 05.01.2025
+
+Pink Floyd - Live At Odeon (Newcastle-upon-Tyne, UK, 9 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shine On You Crazy Diamond (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [22:00]
+02 - Raving And Drooling (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [13:10]
+03 - You've Got To Be Crazy (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [16:25]
+04 - Speak to Me (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [1:13](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BB19E6BEDE15E44FE3F705E0BA411BE55576B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771012   (71908) от 05.01.2025
 
 Pink Floyd - Live at Empire Pool (Wembley, London, UK, 17 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
@@ -571,175 +745,6 @@ A4 Mary In The Morning(   Читать дальше...   )Жанр: Pop Rock, Gl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A869FCE7BD10D9FB1748344D68FA9A2CEECF52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772963   (71743) от 12.01.2025
-
-GTO Trio featuring Gadi Lehavi, Tal Mashiach and Ofri Nehemya - GTO TRIO: Within (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Like Water (5:05)
-02.  One for G (4:17)
-03.  Merengue Mediterráneo (5:01)
-04.  Vv & Zaco (3:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6070BB6D98E3033601391CEDEB08A6DC5F1585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772960   (71740) от 12.01.2025
-
-Diogo M. Jr. - Rock com Maestria (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  João Kurk, o Maestro do Rock (4:00)
-02.  Ana Elisa Fom FomЖанр: Hard RockПродолжительность: 00:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D0418CBB1B1E6B8D6B59354C61294F6E47E83F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772964   (71739) от 12.01.2025
-
-Kemas - Deus X Machina (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  SmokescreenЖанр: Progressive MetalПродолжительность: 00:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616E43EA74CF4B8DE78CE90DC832EB3A9503EEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772912   (71730) от 12.01.2025
-
-Olivia Rox - Super Cool Songs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything Changes [00:03:34]
-02. Bubble Pop [00:03:03]
-03. Ignite [00:02:52]
-04. Pheromones [00:02:40](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C83D65E9FFA8DF49E2D29E8CF294297D143339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773043   (71726) от 13.01.2025
-
-Starchilde - Jupiter Brain (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Singularity (4:14)
-02.  Jupiter Brain (4:56)
-03.  Demon Core (1:15)
-04.  Drowning Machine (6:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4FD94324A1DB08DCD00DB7C134574286B10796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773407   (71717) от 15.01.2025
-
-Aldo Farias with Mario Nappi, Tommaso Scannapieco & Pietro Iodice - Worlds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  How Deep Is the Ocean (5:12)
-02.  Edoardo (5:00)
-03.  Walzer New (5:59)
-04.  Lorenzo e la vela (5:04)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548E4A3AB029BC3B1D35FA9F6892D319F1C48F74
 ```
 
 https://mybot314.ru/tekegram_catalog/

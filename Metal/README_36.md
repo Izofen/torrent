@@ -1,3 +1,31 @@
+###  Публикация: 1376848   (855198) от 20.04.2020
+
+In Dying Arms - 3 Albums (2011-2016) [MP3|320 Kbps] <Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855198.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 - In Dying Arms (Remake 2017)
+2012 - Boundaries
+2016 - Original SinЖанр: Deathcore, MetalcoreПродолжительность: 02:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84490FD0FDA9C26FE98E087C2389D45EBB0E19B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 769423   (855153) от 23.03.2014
 
 Echoterra - A Sanguinary Greed (2014) EP [MP3|320 кб/с]<Symphonic Heavy Metal>
@@ -745,36 +773,6 @@ Sodom - Epitome Of Torture (2013) [MP3|320 кб/с]<Thrash Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876172   (851051) от 10.03.2015
-
-Worhol - The Awakening (2015) [MP3|320 кб/с]<Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Voices from Above
-02. Bowing Before You
-03. Time to Say Goodbye
-04. Already Forgotten
-05. Rage and Revenge(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2637164ED2451AB1D0C50923F95BE311362EAC39
 ```
 
 https://mybot314.ru/tekegram_catalog/

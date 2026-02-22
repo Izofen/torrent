@@ -1,3 +1,119 @@
+###  Публикация: 1296585   (610256) от 18.04.2019
+
+Beyonce - Homecoming: The Live Album (2019) [MP3|320 Kbps] <Pop, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome (Homecoming Live)
+02. Crazy In Love (Homecoming Live)
+03. Freedom (Homecoming Live)
+04. Lift Every Voice and Sing (Homecoming Live)(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 01:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F110A99FDCA7EC4FF9DF0E5F4671E9BB293BC5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296728   (610243) от 18.04.2019
+
+VA - NOW Thats What I Call Music! 2 (2019) [MP3|320 Kbps] <Synthpop, Reggae, Dancehall>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610243.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Queen - Radio Ga Ga
+02. Nik Kershaw - Wouldn't It Be Good(   Читать дальше...   )Жанр: Synthpop, Reggae, DancehallПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4A1A7AD7EE6004D90C2BCDA587EC4F8DD116E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295756   (610122) от 18.04.2019
+
+2 Unlimited - Let The Beat Control Your Body (1994) [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Let The Beat Control Your Body (Airplay Edit) 3:38
+2	Let The Beat Control Your Body (X-Out In Trance Remix) 5:11
+3	Let The Beat Control Your Body (Extended) 5:58
+4	Let The Beat Control Your Body (X-Out In Rio) 5:06(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B067CFAD7D46293CBC985A810C674E84DB81E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684680   (609893) от 26.07.2016
+
+Пающие Трусы (Пающіє Труси) - Интимнепредлагать (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Девчонки олигархов (3:31)
+02. Интимнепредлагать (4:00)
+03. Как Алла (3:48)
+04. Василёк (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEED764045AE8D60C6DF33D19AA4F9504C07DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146652   (609490) от 02.07.2017
 
 The Human League - Greatest Hits (1995) [MP3|320 Kbps] <Pop>
@@ -637,122 +753,6 @@ Renee Harris - I'm A Music-Machine (1978) LP [MP3|320 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2A7F89D2D0A9B18759D91C8E1C6DEB9D9184CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296976   (606798) от 20.04.2019
-
-Everything but the Girl - Amplified Heart (1994) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rollercoaster (03:13)
-02. Troubled Mind (03:34)
-03. I Don't Understand Anything (04:25)
-04. Walking To You (03:30)(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAA33F9764D12BC175C11E1B0EBE636E21C9BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297180   (606680) от 20.04.2019
-
-VA - Eurovision Song Contest Tel Aviv (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Jonida Maliqi - Ktheju tokes (Albania)
-02 Srbuk  - Walking Out (Armenia)
-03 Paenga - Limits (Austria)
-04 Kate Miller-Heidke - Zero Gravity (Australia)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824AA0B5AA9DDB24169801433819A5E926E4CE9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297158   (606678) от 20.04.2019
-
-VA - ZYX Italo Disco Spacesynth Collection 5 (2019) [MP3|320 Kbps] <Italo-Disco, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606678.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Laserdance — Trans Space Express 05:59
-02.Italove — At The Disco (Bellatrix Dub Space Remix) 06:09
-03.Victor Ark — Lost In Time 05:08(   Читать дальше...   )Жанр: Italo-Disco, Synth-PopПродолжительность: 02:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F25584CD23972A6BCF3403FEC975882B1963ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546504   (606273) от 24.04.2022
-
-VA - DMC Dance Mixes 291 Pop (2021) [MP3|320 Kbps] <House, Dance-pop, Drum n Bass, Progressive House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diana Ross - If The World Just Danced (Moti Extended)
-02. Dj Z - Finally (Extended)
-03. Ed Sheeran - Shivers (Alok Extended Remix)
-04. Fucou - Lie Machine (Extended)(   Читать дальше...   )Жанр: House, Dance-pop, Drum n Bass, Progressive HouseПродолжительность: 01:19:56 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6168D4F8FA563687CEB07252E8EFADCFAD8553
 ```
 
 https://mybot314.ru/tekegram_catalog/

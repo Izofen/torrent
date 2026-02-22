@@ -1,3 +1,58 @@
+###  Публикация: 1517738   (161580) от 17.12.2021
+
+Above & Beyond - 10 Years of Group Therapy (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filmic (CRi Remix) (5:06)
+ 02. Sun & Moon (ilan Bluestone Remix) (feat. Richard Bedford) (4:41)
+ 03. Prelude (Above & Beyond Future Summer Mix) (3:05)
+ 04. Love Is Not Enough (Hybrid Minds Remix) (feat. Zoë Johnston) (5:03)(   Читать дальше...   )Жанр: Progressive House, Trance, DowntempoПродолжительность: 01:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF66F359D995575B869B25915D58D62FDA9EB083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674387   (161352) от 05.11.2023
+
+Oliver Koletzki - Trip to Sanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666DF7D87DC45BCB7A1933E4246523FB113A2753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674259   (161349) от 05.11.2023
 
 VA - Anjunadeep Explorations 24 (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal/Tech House>
@@ -683,64 +738,6 @@ VA - Anjunadeep. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30F33320B699BBC9E4DA5347BDDAEB9E08F86FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087282   (146572) от 27.12.2016
-
-VA - AFTR:HRS (Mixed by Tiesto) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuits D'Etoiles feat. Noemie - Un Autre Monde [4:24]
-02. Niklas Ibach feat. Dan Reeder - The Blues [2:23]
-03. Florian Paetzold - Easy [4:12]
-04. Autograf - Heartbeat (Alex Schulz Remix) [2:52](   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 01:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685A0219C1E2DEA38BF64328007A3DB08DC09853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520107   (145509) от 26.12.2021
-
-VA - Anjunabeats. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Lange – Rift (Alex O'Rion remix) (07:59)
-02. Jordin Post – Azure (04:42)
-03. Above & Beyond & Andy Moor – Air For Life (Dosem remix) (04:38)
-04. PROFF & Mokka – Your Light (Mixed) (06:32)(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 02:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6FE198DFB38E15D84FC0C1CA72F65CDA42E3128
 ```
 
 https://mybot314.ru/tekegram_catalog/

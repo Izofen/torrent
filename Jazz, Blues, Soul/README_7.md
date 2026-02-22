@@ -1,3 +1,90 @@
+###  Публикация: 1603095   (1045833) от 08.01.2023
+
+Soul Blaque - Shhh.. Hush (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Rock With You Baby (4:48)
+02. Whatever You Want (3:55)
+03. Goodmorning Sunshine (5:20)
+04. Anything You Want (3:26)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2903E5D8BE347380A4B23F1363F71EDD07431E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603057   (1045832) от 08.01.2023
+
+Ian Matthew Harper - Cyan Colonel - Cyan Colonel (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Degree (4:16)
+02. Two To Tango (3:07)
+03. Devil's Satisfied (3:15)
+04. Orange From Green (2:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87CEDCFA08E05F14FA16D733813B9CFF06C507D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603100   (1045826) от 08.01.2023
+
+The Groove Krewe feat. Nick Daniels III - Run to Daylight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run to Daylight  (4:00)
+02. That's New Orleans  (4:21)
+03. Have a Party  (3:36)
+04. In the Groove Zone  (3:19)(   Читать дальше...   )Жанр: Blues, Soul, FunkПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B671B4E93F7AB6466B02F9445F740840DC09D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603054   (1045824) от 08.01.2023
 
 Gary Eisenbraun - Stepping Stones (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -658,93 +745,6 @@ Hank Jones & Frank Wess - Hank And Frank (2003) 2006, Lineage [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84ABE6BB7CB30B71C29515CE2AC0108B2DCE0579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603876   (1045604) от 11.01.2023
-
-Hank Jones, Milt Hinton, Bob Rosengarden - The Trio (1977) 2003, Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'S Wonderful [5:04]
-02. Queen of Hearts [3:58]
-03. Mona's Feeling Lonely [5:24]
-04. Right Here, Right Now [6:00](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3E75C62538B4A4310D3984630835B26CE8BED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603869   (1045599) от 11.01.2023
-
-Scott Hamilton & Karin Krog - The Best Things In Life (2015) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Things in Life Are Free [3:22]
-02. I Must Have That Man [5:24]
-03. Will You Still Be Mine [8:11]
-04. How Am I to Know [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E35DCD2E9AE1DF98D34D0FE7423191C730ED2F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603865   (1045584) от 11.01.2023
-
-Herb Alpert - Sunny Side of the Street (2022) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Childhood
-02. Pata Pata
-03. Goo Goo Eyes
-04. I'll Remember You(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D510111EED05706231C7E16E8C0C89E8F65381B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1131920   (704926) от 07.05.2017
+
+Saraya - Saraya [LP] (1989) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704926.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Love Has Taken Its Toll
+A2 Healing Touch
+A3 Get U Ready
+A4 Gypsy Child(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5126E710D04761AE8D882E63902B6E0B569D43DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220077   (704410) от 19.04.2018
+
+Виктор Березинский - Третий концерт (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704410.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1:11] 01. Виктор Березинский - Интро
+[2:43] 02. Виктор Березинский - Дуня
+[3:17] 03. Виктор Березинский - Мани-Мани
+[2:43] 04. Виктор Березинский - Чемодан(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11842F6D9B4748E61EC6ADFB614BEECE2D6C6C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 671587   (704345) от 24.06.2013
+
+Ария - Герой Асфальта (2013) Limited Edition (Vinyl-Rip) [FLAC|2.0 24/96]<Hard Rock, Heavy Metal>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_704345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На Службе Силы Зла [07:12]
+ 02. Герой Асфальта [05:12]
+ 03. Мёртвая Зона [06:37]
+ 04. 1100 [04:54](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151816   (703076) от 25.02.2022
+
+Axe - Offering (1982) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703076.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Rock 'N' Roll Party In The Streets
+A2 Video Inspiration
+A3 Steal Another Fantasy
+A4 Jennifer(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC3E4981565D49CBAD6435161EC100A7D0E8EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126080   (702915) от 25.02.2022
+
+Van Halen - Fair Warning (1981) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702915.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mean Street
+A2 ''Dirty Movies''
+A3 Sinner's Swing!
+A4 Hear About It Later(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA78E60A5E8A89BD5959016B8EA513DA20996B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472133   (702796) от 25.02.2022
+
+Annihilator - Дискография (24 releases) (1985-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Speed/Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Annihilator — трэш-метал группа, основанная в 1984 году в городе Оттава, Канада. Основателем «Annihilator» является гитарист Джефф Уотерс.1989 - Alice in Hell
+1990 - Never, Neverland
+1993 - Set the World on Fire
+1994 - King of the KillЖанр: Technical Speed/Thrash/Groove MetalПродолжительность: 26:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193B72E44DD9C24FEF082A7C379DDB4D32964E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027018   (699842) от 17.06.2016
 
 VA - Архив Популярной Музыки 1-12 (1988-1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock-n-Roll, Hard Rock, Pop Rock, Soul>
@@ -579,183 +753,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:057AA7BA1444A9D075D2CE7CA0B8301ED5C5D489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797168   (677622) от 18.06.2014
-
-Stevie Wonder - Солнце моей жизни (1988) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Jazz-Funk, Soul, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Место под солнцем (A Place In The Sun)  2:50
-2. Я не понимаю (I'm Wondering)  2:54
-3. Я был создан, чтобы любить её (I Was Made To Love Her)  2:36
-4. Моя дорогая возлюбленная (My Cherie Amour)  2:52
-5. Не знаю, почему я тебя люблю (Don't Know Why I Love You)  2:46
-6. Мои сны никогда не сбываются (Never Had A Dream Come True)  3:12
-Сторона 2
-1. Я - твой (Signed, Sealed, Delivered I'm Yours)  2:40
-2. Я никогда не думал, что ты уйдешь летом (Never Dreamed You'd Leave In Summer)  2:54(   Читать дальше...   )Жанр: Jazz-Funk, Soul, FunkПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E2E6334FBB479D2081A94AE7C7ACCE071F762F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797480   (677546) от 18.06.2014
-
-Electric Light Orchestra - A New World Record (1976)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677546.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Tightrope (5:05)
-A2. Telephone Line (4:39)
-A3. Rockaria! (3:12)
-A4. Mission(A World Record) (4:26)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA838D758940C33A349AA194B3023C52A9E5973E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136158   (676600) от 21.05.2017
-
-Михаил Круг - Жиган-лимон (1995) 2014 (remastered) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Шансон>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676600.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Электричка
-A2. Девочка-пай
-A3. Кольщик
-A4. Фраер(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C354E53981B27B79F50C89DC76B467A7461E3FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536181   (676576) от 11.03.2022
-
-Paul McCartney - Pipes Of Peace (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676576.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Pipes Of Peace
-A2 Say Say Say
-A3 The Other Me
-A4 Keep Under Cover(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58EC3C3A96884ACFF9C82E25F0F8B9AFD2A1FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 677840   (673980) от 09.07.2013
-
-Slade - Slade In Flame (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Rock/Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Glam Rock/Rock & RollПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B910A87E95E5C39AEED52011781DDAE2022C47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030478   (673808) от 30.06.2016
-
-Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Alternative Rock, Funk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673808.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. The Getaway (4:08)
-A2. Dark Necessities (5:00)
-A3. We Turn Red (3:19)
-A4. The Longest Wave (3:32)(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE8D9C2A58EEFBB07C9210F6D6F5930FD78F698
 ```
 
 https://mybot314.ru/tekegram_catalog/

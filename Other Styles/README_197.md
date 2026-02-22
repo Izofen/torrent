@@ -1,3 +1,32 @@
+###  Публикация: 1780247   (27316) от 17.02.2025
+
+Stive Morgan - Serenity (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above the Heavens, Pt. 1
+02. Sky Energy
+03. The Blue Sky in Your Eyes
+04. Serenity(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13244FF8ED4AFFABC099B308D36D0AEC07410375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780259   (27292) от 17.02.2025
 
 Stive Morgan - Philosophy of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Electronic>
@@ -723,35 +752,6 @@ Joan Baez - Gone From Danger (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:749FF62F2BF88DC1119DF9A8B5A58B27141B04A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805810   (12025) от 09.07.2025
-
-VA - 101 Greatest Country Hits - Vol. Two: Country Sunshine (1994) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dottie West / Country Sunshine    [0:02:06.05]
-02. Ray Stevens / Misty    [0:02:55.70]
-03. B.J. Thomas / (Hey Won’t You Play) Another Somebody Done Somebody Wrong Song    [0:03:26.02]
-04. Tanya Tucker / Delta Dawn    [0:02:57.30](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2109B6CA87707CDE33889E5376D408BA9673070
 ```
 
 https://mybot314.ru/tekegram_catalog/

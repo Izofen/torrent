@@ -1,3 +1,32 @@
+###  Публикация: 1599878   (159433) от 25.12.2022
+
+Pete Rugolo - Adventures In Rhythm (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's Pete [2:25]
+02. My Funny Valentine [2:49]
+03. Mixin' The Blues [3:13]
+04. Poinciana (Song Of The Tree) [2:17](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B1678BD3E3ADABB59B2BA89F806D4849222F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599876   (159427) от 25.12.2022
 
 Nat King Cole - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,34 +745,6 @@ Stan Getz - Getz Plays Jobim: The Girl From Ipanema (2002) [APE|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BEB98570C3685ACFF967ADD1E72F85BA1D84214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194269   (157963) от 24.12.2017
-
-Billy Harper - The Believer (1980) 2009, BMG [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is It Not True, Simply Because You Cannot Believe It? [19:56]
-02. I Do Believe [04:37]
-03. Believe, For It Is True! [12:12]Жанр: Post-BopПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F80D46CBD80E393016846BE6976087AA4335B69
 ```
 
 https://mybot314.ru/tekegram_catalog/

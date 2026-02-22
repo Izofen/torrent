@@ -1,3 +1,38 @@
+###  Публикация: 735230   (228458) от 18.12.2013
+
+Paul Mauriat - The best of Paul Mauriat Vol.1 (2013)/K2HD Mastering, Japan/ [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Love Is Blue
+2. Mamy Blue
+3. Un Banc, Un Arbre, Une Rue
+4. The Way We Were
+5. The Green Lake
+6. Have You Never Been Mellow
+7. Nadia's Theme
+8. I'll Go On Loving Her
+9. Feel Like Making Love
+10. You Are The Sunshine Of My Life(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78475D7527EDB1C1F1E2C5D0FB6A882CBA4E4B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616019   (228448) от 18.12.2013
 
 VA - Орел и Решка Unofficial Soundtrack (2012) [MP3|94,5-320 кб/с]<OST>
@@ -783,35 +818,6 @@ Georg Philipp Telemann, Markus Kuikka - Fantasias For Viola Da Gamba (2021) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72620AC933A17BCCC220DFAFCFC860AAE6B7619A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811661   (225052) от 18.11.2020
-
-Collapse Under The Empire - 7 Albums, 4 EP, 3 Singles (2009-2020) [MP3|320 кб/с] <Post-Rock, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Albums:
-2009 - Systembreakdown
-2010 - Find A Place To Be Safe
-2011 - Shoulders & Giants(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 07:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9D80954B96F92ADD34DCB6E4A45432478453EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

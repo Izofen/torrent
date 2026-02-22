@@ -1,3 +1,177 @@
+###  Публикация: 1735891   (106764) от 10.07.2024
+
+The Roses - Out Of The Fear (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raise It Up (3:11)
+02. Groove In (3:32)
+03. Nowhere (3:08)
+04. Girls Out (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11BCF7CF4F289850DA97DA651EE1C2BD5EC0589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735883   (106763) от 10.07.2024
+
+Sean Webster - Summer Has Gone (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Gone Away (4:34)
+02. Won't Lay Down (3:40)
+03. Can't Be Alone (4:38)
+04. Lost And Alone (4:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC71F2EA2C67F85E630CCB86AC86FE688738D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735888   (106761) от 10.07.2024
+
+Seth Lee Jones - Tulsa Custom (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 110 (3:53)
+02. All That I Ask (2:53)
+03. Bird of Paradise (3:45)
+04. Good Dog (2:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C953E4975E6478541DB8229AC755338CC6848315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736255   (106740) от 11.07.2024
+
+Jacob Banks - Our Time Together: The Live Album (2024) (Live) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Take My Hand Precious Lord - Intro [1:25]
+02 - Just When I Thought [4:37]
+03 - Mercy [3:40]
+04 - Monster [3:30](   Читать дальше...   )Жанр: SoulПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC5EF076F536B1D05D810F60F2E81103E6A811A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736162   (106738) от 11.07.2024
+
+Forbidden Society - Lonely Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise [00:02:04]
+02. Lonely Road [00:03:27]
+03. Addict [00:03:14]
+04. Wish [00:03:41](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD3F5819AB0987F6256145C2CD4884539D21EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736269   (106732) от 11.07.2024
+
+Sebastian Barbosa - Burning on the road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning on the road (3:00)
+02. Hey Man! (2:12)
+03. Ride the blues highway (3:00)
+04. Two Wolves (2:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BFE362E6B69ED28C65169777C733BBBF1A4B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736127   (106731) от 11.07.2024
 
 Bart Graft - Jewel in the Crown (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Electronic, Synthpop, Synthwave>
@@ -568,177 +742,6 @@ Status Quo - Official Archive Series Vol. 3: Live at Westonbirt Arboretum 2008 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B691CA49EA3CFB82FA7E645CB4F5E39CC3F6E27E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736917   (106599) от 14.07.2024
-
-Status Quo - Official Archive Series Vol. 1: Live in Amsterdam 2010 (2023) New Mix, 2023, earMUSIC [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:39)
-02. Caroline (4:46)
-03. Something 'Bout You Baby I Like (2:12)
-04. Rain (5:26)(   Читать дальше...   )Жанр: RockПродолжительность: 01:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CC987152DCCB11C3AE6283A7A35BA717454C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736902   (106595) от 14.07.2024
-
-Eric Ladish - Songs from In Between (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Lifetime (5:09)
-02. Dream Garden (5:28)
-03. Stranger Path (3:58)
-04. Frame of Reference (4:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8FB45CCD1960F817A4047EE93B0A69D094831E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736879   (106594) от 14.07.2024
-
-Bay City Rollers - 2 Albums (1974, 1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop Rock, Rock & RollПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94BA56AEF5B4162000C2EC96B2C4C926F984449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736930   (106591) от 14.07.2024
-
-Kucka - Can You Hear Me Dreaming? (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasting Time (til the end of the world) [00:03:00]
-02. Heaven [00:03:42]
-03. Can't Help It [00:03:09]
-04. Cry Cry Cry [00:03:22](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4A9749E869DEC2078E451C1B1ACA1EFFBF9526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736906   (106583) от 14.07.2024
-
-Hami Cho - My Season (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (4:21)
-02. Wild Flower (5:26)
-03. It's Okay (8:05)
-04. Clouds Are Gone (5:56)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B090387D7038F16E11BE7565A6231934BBE25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736908   (106580) от 14.07.2024
-
-Sylvan - Back To Live (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Neo-Prog>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Between (Live) (11:32)
-02. Encoded at Heart (Live) (6:54)
-03. Trust in Yourself (Live) (5:53)
-04. Given, Used, Forgotten (Live) (13:07)(   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 01:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA6F908489390A9B61C729B57A1EA5BBEAE70DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

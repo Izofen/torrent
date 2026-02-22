@@ -1,3 +1,119 @@
+###  Публикация: 1248366   (444311) от 19.09.2018
+
+VA - Lady In Red - A Collection Of Great Ballads Vol.2 (1996) [FLAC|Lossless|tracks + .cue] <Pop,Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo Sayer - More Than I Can Say
+02. George Baker - Paris Nights
+03. Vanessa Paradis - Joe Le taxi
+04. Glenn Medeiros - Nothing's Gonna Change My Love For You(   Читать дальше...   )Жанр: Pop,RockПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646CCF4BC5DC496CD69C493B00C82E85E8E3D59C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062173   (444258) от 12.10.2016
+
+Nazia & Zoheb Hassan - 3 Albums (1980-1995) [MP3|320 Kbps] <Electronic, Pop, Disco, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nazia & Zoheb Hassan - брат и сестра, популярнейшие в 80-х годах  исполнители "диско" и музыки к "Боливудским" кинофильмам. Родом из богатой пакистанской семьи, выпустили свой первый альбом в Британии у известного индийского композитора и продюсера - Biddu, заслужили признание не только в Вест-Индии, но и в Латинской Америке и СССР.Список альбомов:
+1980 - Nazia Hassan - Disco Deewane
+1982 - Nazia & Zoheb Hassan - Star
+1995 - Nazia & Zoheb Hassan - Boom Boom - The Biddu Experience(   Читать дальше...   )Жанр: Electronic, Pop, Disco, BalladПродолжительность: 01:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FFE8FE574182E1C2A9F2DBD9DF35BB22B0F961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248357   (444136) от 19.09.2018
+
+Silent Circle - Chapter 80ies Unreleased (2018) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Ask Me Why (Unreleased Track)
+02. Sign of Love (Unreleased Track)
+03. 2Night 1989 (Unreleased Version)
+04. Can You Hear Me (Unreleased Track)(   Читать дальше...   )Жанр: Eurodance, Italo-DiscoПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3A40EEFD49AA9D6E4C2D3999EC0E258A3348C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164068   (444108) от 08.09.2017
+
+A Taste Of Honey - 4 Albums (1978-1982) Reissue CD [MP3|320 Kbps] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444108.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Taste of Honey - американская музыкальная группа, известная по хитам в стилях Disco и Soul. Была основана в 1971 году певицей/бас-гитаристкой/гитаристкой Джа́нис-Мари́ Джонсон и клавишником Перри Кибблом. Их первый сингл, танцевальный диско-номер «Boogie Oogie Oogie», осенью 1978 года три недели возглавлял американский чарт (Billboard Hot 100) и продался (   Читать дальше...   )Список альбомов:
+1978 - A Taste Of Honey
+1979 - Another Taste
+1980 - Twice As Sweet(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 03:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D836486C49D0C588759C971B06E59B8406C142C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409643   (443148) от 18.09.2020
 
 Тина Кароль - Найти своих (2020) [MP3|320 Kbps] <Pop>
@@ -641,122 +757,6 @@ Londonbeat - Londonbeat (2019) [OGG|485 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:464FC43A51A5A9901BC54C0B5BCA1EBFAFA25F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944954   (438312) от 08.10.2015
-
-Janet Jackson - Unbreakable (2015) [FLAC|tracks]<Pop, Soul, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438312.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:38] (01) Unbreakable
- [4:10] (02) BURNITUP! (feat. Missy Elliott)
- [3:55] (03) Dammn Baby
- [4:18] (04) The Great Forever(   Читать дальше...   )Жанр: Pop, Soul, RnBПродолжительность: 01:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8462D4A8B680029E5F0F34524FE1D2BD51656518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570837   (438295) от 19.08.2022
-
-Shania Twain - Greatest Hits (2014) [OGG|485 Kbps] <Pop, Folk, World, & Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever And For Always	4:03
-02. I'm Gonna Getcha Good!	4:02
-03. Up!	2:53
-04. Ka-Ching!	3:21(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBA77D82B27B34876A7D30023AEDF9505EA6CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410190   (438228) от 20.09.2020
-
-VA - 90er Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Doubt - Don't Speak (04:22)
-02. Vanilla Ice - Ice Ice Baby (04:29)
-03. 4 Non Blondes - What's Up? (04:55)
-04. 3 Doors Down - Kryptonite (03:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA898E1EB21148624CF4457B047C5641FCBA448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571049   (438192) от 19.08.2022
-
-Sandra - The Long Play (1985) [OGG|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Heat Of The Night	5:20
-02. On The Tray (Seven Years)	3:45
-03. Little Girl	3:11
-04. You And I	6:44(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FFB3AD000826BA8145134B30FAF8DE49FF37AE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

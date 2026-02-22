@@ -1,3 +1,185 @@
+###  Публикация: 1798499   (66496) от 26.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Princess Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображениями принцесс.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B27B6A6B779AEBBBD16D9F2BCBA4543AC1ED2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798712   (66495) от 26.05.2025
+
+Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-3 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E7ADC601249886A648931156CE99F6D8D6E0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798528   (66492) от 26.05.2025
+
+Растровый клипарт - DoodleBox - Creative Fabrica - Gingerbreads Watercolor Christmas [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный рождественский клипарт с имбирными пряниками и не только.Формат: PNGРазрешение файлов: 1157 x 2500 - 4608 x 3456
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF4DB34AB3C9762FBADB400C2ED55113D4348C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799294   (66488) от 27.05.2025
+
+Растровый клипарт - Venture Studio - Creative Fabrica - Purple Butterfly Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с фиолетовыми бабочками.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0FF4258AF973214B9B148645478CB6647922D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799295   (66486) от 27.05.2025
+
+Растровый клипарт - Venture Studio - Creative Fabrica - Space Elements Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт на космическую тему.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D97F5E7ADAAB1C8512A24099E54DC6F582290EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799296   (66483) от 27.05.2025
+
+Растровый клипарт - Venture Studio - Creative Fabrica - Fish Watercolor Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с рыбами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2615D3C2DF9B8888B98EBFD07BBF8121E439F3FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799302   (66480) от 27.05.2025
+
+Фоны - sagorarts - Creative Fabrica - Rainbow Glitter Agate Background [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радужные блестящие фоны под агат.Формат: JPGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC59B33C2C8496EF2736FE1FFB198EF3E6A1BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799301   (66476) от 27.05.2025
 
 Текстуры - TijanaARTStudio88 - Creative Fabrica - Pastel Grainy Surface Paper Texture [JPG]
@@ -485,188 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:112AB9CF1DD4D732A05A3A8D91B901F5FFA07C41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803425   (65877) от 22.06.2025
-
-Текстуры - TexturesStore - Envato - 30 Knitted Background Textures - 8RFFUJA [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 30 вязаных текстур.Формат: JPGРазрешение файлов: 8000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05AD9E66A85D16FD822305A032F83F4BEB0B7EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803240   (65874) от 22.06.2025
-
-Текстуры - Zeppelin_Graphics - Envato - 50 Paper Textures Set - 78GBAZ [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор текстур разнообразной бумаги различных цветов.Формат: JPGРазрешение файлов: 4500 x 3500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B7F65D7F8D2B71FBC4A58ACB39D0501C771B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803229   (65869) от 22.06.2025
-
-Шрифты - Sentavio - Creative Market - Neoverse Sans - 196299429 [OTF, EOT, SVG, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футуристическое семейство с 30 шрифтами и 1 вариативной версией для максимальной универсальности, c полной расширенной поддержкой латиницы, кириллицы и новогреческого языков, точным кернингом.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617AEC98F7683F200CB1E40C5A7612CA83C7C835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803242   (65864) от 22.06.2025
-
-Растровый клипарт - cherrydesign - Creative Fabrica - Watercolor Sea Animals Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с морскими животными.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC480B10BCD1F5E674F0E7B8D6060898C9F70B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803241   (65861) от 22.06.2025
-
-Растровый клипарт - cherrydesign - Creative Fabrica - Ocean Sea Shell Sublimation Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с морскими раковинами для сублимации.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:011116A38F0A79A23A2358D0564271422C9B7808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803233   (65852) от 22.06.2025
-
-Текстуры - TexturesStore - Envato - 30 Felt Textures - EQFMT36 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65852.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 разноцветных войлочных текстур.Формат: JPGРазрешение файлов: 8000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38377C83A984B7FEE8B26B10322F0E76E30346D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803236   (65851) от 22.06.2025
-
-Текстуры - CCpreset - Envato - 30 Sand Texture HQ - 9A8WMXX [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор песчаных текстур с высоким разрешением.Формат: JPGРазрешение файлов: 6720 x 4480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35F26F57B8DA87EF748982B04405B3CBF9C8B7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

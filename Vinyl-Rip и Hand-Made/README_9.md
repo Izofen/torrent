@@ -1,3 +1,177 @@
+###  Публикация: 1494092   (890865) от 06.09.2021
+
+Locomotiv GT. - In Warsaw. Recorded live at the Congress Hall (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz-Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890865.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tape Signal
+A2 Intro
+A3 Enfeleitett Szo • Forgotten Word
+A4 Es Jott A Dokto • And The Doctor Came(   Читать дальше...   )Жанр: Jazz-Rock, Prog RockПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2632D83DD71A5EC607A8CBCDDADC8E2DB2C3C62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494111   (890699) от 06.09.2021
+
+Поющие сердца - Зима любви (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890699.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Зима Любви
+A2 Где Найти Любовь
+A3 Все, Что Было
+A4 Стучись В Любую Дверь(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D67C4A9E97236D4B232BA33B1624E130E1A45B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102512   (887401) от 11.02.2017
+
+VA - RETROспектива, часть X: Эстрадные оркестры X (1935-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оркестр п.у. М. Вебера - Голубой дунай (вальс)
+02. Оркестр п.у. М. Вебера - Золото и серебро (вальс)
+03. Оркестр п.у. Ж. Бредли - Пасмурный день (танго)
+04. Танцевальный оркестр - Аргентина (пасадобль)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 01:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1A445C7801A8952923B459350A71355AF1E7CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103046   (887065) от 11.02.2017
+
+The Alan Parsons Project - Eve (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887065.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Lucifer (5:05)
+A2. You Lie Down With Dogs (3:48)
+A3. I'd Rather Be A Man (3:54)
+A4. You Won't Be There (3:42)(   Читать дальше...   )Производство: Arista / EMI Electrola - 1C 064-63 063Жанр: Progressive RockПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16501523C3C41FA298C507A141E98D842DA0FCFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871055   (882829) от 20.02.2015
+
+Звуки Му - Транснадежность (1991) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Psychedelic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882829.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Транснадежность (3:18)
+A2. Турист (2:22)
+A3. Забытый секс (6:19)
+A4. Пробковый пояс (5:15)(   Читать дальше...   )Жанр: PsychedelicПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27959F65A685D2657CBF9D7608BA013D309EF820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996399   (880732) от 13.03.2016
+
+Владимир Кузьмин - Ромео и Джульетта (1987) 1989, Мелодия ТЗГ [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880732.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Ромео и Джульетта (4:13)
+A2. Долгая ночь (4:19)
+A3. Блеск в ее глазах (3:51)
+A4. Когда меня ты позовёшь (5:30)(   Читать дальше...   )Производство: Мелодия ТЗГ - С60 27991 004Жанр: RockПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507A90084A700B8FEDED72B5489EE7AAC14E1B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495449   (880530) от 12.09.2021
 
 VA - Love Power vol.1 (1997) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
@@ -577,177 +751,6 @@ Ken Hensley - Proud Words On A Dusty Shelf (1973) [WavPack|192/32|image+.cue|Vin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8FD3C6E85140FE239F14BF4C99B443B5DD2EAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001585   (852186) от 29.03.2016
-
-VA - The Great Singers Of The Jazz/Големите Вокалисти На Джаза (1977) [FLAC 2.0|96/24|tracks+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella Fitzgerald - A Tisket, A Tasket
-02. Ella Fitzgerald - Undecided
-03. Ella Fitzgerald - Flying Home
-04. Ella Fitzgerald - Smooth Sailing(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E98D6DAB0D5FE1BA5F019FD1F8D46D7635B033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110767   (851754) от 03.03.2017
-
-Sam Brown - Stop! (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851754.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Walking Back To Me (3:43)
-A2. Your Love Is All (4:10)
-A3. Stop (4:56)
-A4. It Makes Me Wonder (4:36)(   Читать дальше...   )Производство: A&M Records - 395 195-1Жанр: RockПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D7B74C9687207F5BCF687A193EC843CBB9B74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498981   (851019) от 30.09.2021
-
-Кино - Ночь (1986) 2LP Reissue 2021 [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Alternative Rock, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Wave, Alternative Rock, Post-Punk
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40BB283B82A4D442549D97DB437185B8B260542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110805   (850179) от 04.03.2017
-
-Passengers - Casino (1981) [FLAC|96/24|image+.cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была популярна в начале 80-х, в основном благодаря своему основателю и идейному вдохновителю Kim Arena, который по слухам, был племянником телеведущей Ave Ninchi. Группа получила свою известность благодаря синглу "Casino", в 1981 году вышел и одноименный виниловый диск-гигант. Именно этот сингл вдохновил Вечяслава Добрынина написать свое "Казино-казино-казино". (   Читать дальше...   )01. Casino (3:32)
-02. Mister Mouse (3:58)
-03. Touch And Go (5:27)
-04. Annalisa (3:33)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8F9C9C63354292D7A3CC369D8281FCD251AA5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776615   (850127) от 30.03.2016
-
-Electric Light Orchestra - Discovery (1979)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850127.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Shine A Little Love (4:40)
-A2. Confusion (3:41)
-A3. Need Her Love (5:09)
-A4. The Diary Of Horace Wimp (4:22)(   Читать дальше...   )Производство: Jet Records - FZ 35769Жанр: Progressive RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0409C9979B742FE6F320BD4223B7C9C18EDFAF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377896   (849794) от 23.04.2020
-
-Frank Sinatra - Portrait Of Sinatra: Forty Songs From The Life Of A Man (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849794.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Let's Face The Music
-(Berlin)
-A2 Nancy (With The Laughing Face)
-(Van Heusen, Silvers)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02336EA0A829CF4CFEE91C33486053D831570B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

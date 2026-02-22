@@ -1,3 +1,29 @@
+###  Публикация: 304478   (858883) от 06.03.2011
+
+VA - Armada Presents: the Miami Soundtrack 2011 (04.03.2011) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 05:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C8EB9D84D426853D3937A573D643AC44B4A7D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 305152   (858882) от 06.03.2011
 
 Моторы: Jeep Rubicon и Honda Gold Wing (2010) SATRip
@@ -671,41 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C73DABDB49FF236A3D81BCC2DAD9FF30BF8C76A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647282   (858828) от 22.04.2013
-
-Kukan Dub Lagan - Step Ina Rasta Step (2007) [FLAC|Lossless]<Electronic, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Life 06:07
-02. Spirit Of The Wind 05:51
-03. Dreams Of Heaven 07:13
-04. It's All About Her 01:45
-05. Tomerik Trick 07:25
-06. What A Day 07:28
-07. Electric Shocking Dub 07:00
-08. Bed Time Story 06:59
-09. Step Ina Rasta Step 08:33
-10. Roots Of Passion 07:10(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 01:15:23
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

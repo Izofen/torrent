@@ -1,3 +1,29 @@
+###  Публикация: 228331   (521299) от 19.08.2010
+
+VA - Лучшие хиты НАШЕ РАДИО-3 (2010) [MP3|128 kbps]<pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: popПродолжительность: 12:31:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315350   (513898) от 19.07.2019
 
 VA - Sin Compromiso: Indie Punk Rock (2019) [MP3|320 Kbps] <Indi, Punk Rock, Alternative>
@@ -728,35 +754,6 @@ VA - Metal Goes Acoustic (2014-2015) [MP3 l 192-320 кб/с]<Acoustic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8803BB8E8F130C05A9F9835A7CE273001ECC660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566646   (476403) от 01.08.2022
-
-VA - Impressive Sound 2022.1: Volume III (2022) Compilation [MP3|320 Kbps] <Post-metal, post-rock, sludge metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aequorea - Talus
-02. Morrow - Rejoice This Quiet Earth
-03. Mt. Echo - Automaton
-04. Point Mort - Pretoria…(   Читать дальше...   )Жанр: Post-metal, post-rock, sludge metalПродолжительность: 01:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772D392AB77009FCCD4D26F140F05091B6124571
 ```
 
 https://mybot314.ru/tekegram_catalog/

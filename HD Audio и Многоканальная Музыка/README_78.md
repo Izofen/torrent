@@ -1,3 +1,177 @@
+###  Публикация: 1680983   (133133) от 02.12.2023
+
+Daisy Jones & The Six - Aurora (2023) Super Deluxe Edition [FLAC 24/48,96|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora (3:25)
+02. Let Me Down Easy (3:24)
+03. Kill You To Try (5:12)
+04. Two Against Three (3:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B684BF5413A937344BE1AAD36B4E56952AA1A9DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681215   (133116) от 02.12.2023
+
+Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133116.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Krach
+A2 Gorace Telefony
+A3 China Boy
+Music By – C. Szlazak(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F77F0378226E9E6B0BD4D19E76C21B47C29B5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680997   (133106) от 02.12.2023
+
+Britny Fox - Britny Fox (1988) Remaster, Expanded Edition, 2023,  SBCMG [FLAC 24/192|Lossless|WEB-DL|tracks] <Heavy Metal, Glam, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girlschool (4:23)
+02. Long Way To Love (4:53)
+03. Kick 'N' Fight (3:36)
+04. Save The Weak (5:29)(   Читать дальше...   )Жанр: Heavy Metal, Glam, Hard RockПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE000B0D09EA90078EE059C7C0B849B4AD97A9D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680988   (133091) от 02.12.2023
+
+Status Quo - Official Archive Series Vol. 2 (Live in London 2012) (2023) New Mix, 2023, earMUSIC [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:45)
+02. Caroline (4:50)
+03. Paper Plane (3:27)
+04. Hold You Back (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FB5090D87A2D9CE0DB029B8CFFA6E8B1D9E3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680986   (133077) от 02.12.2023
+
+The Alan Parsons Project - The Sicilian Defence (2014) Reissue, 2023, Arista - Legacy [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive rock, classical, electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P-K4 (5:07)
+02. P-QB4 (6:23)
+03. Kt-KB3 (3:07)
+04. ...Kt-QB3 (1:16)(   Читать дальше...   )Жанр: Progressive rock, classical, electronicПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E64FB71DCCE58C2787E1797E8689B238E47E5DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680998   (133066) от 02.12.2023
+
+Fate - If Not For The Devil (2013) Remastered Version, 2023, Frontiers Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reaping (4:33)
+02. If Not For The Devil (4:57)
+03. Bridges Are Burning (4:12)
+04. Feel Like Making Love (4:19)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A688D6F8C309C7281F9D181980EE8612D060F2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680980   (133062) от 02.12.2023
 
 Fate - Ghosts From The Past (2011) remastered version, 2023, Frontiers Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
@@ -579,180 +753,6 @@ Neil Young - Before and After (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F738B24A0005E9B24CE37E70AF518E707695C8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682682   (131078) от 08.12.2023
-
-The Killers - Rebel Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative rock, indie rock, post-punk, pop rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jenny Was A Friend Of Mine (4:04)
-02. Mr. Brightside (3:43)
-03. All These Things That I've Done (5:02)
-04. Somebody Told Me (3:18)(   Читать дальше...   )Жанр: Alternative rock, indie rock, post-punk, pop rockПродолжительность: 01:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885C417086ED6029383797E8D6445AD55E85F211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620165   (130690) от 09.12.2023
-
-КняZz (Князь; Андрей Князев; Король и Шут) - Студийные альбомы (10 релизов) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130690.jpg" />
-</div>
-
-
-###  Подробнее
-
-«КняZz» — российская рок-группа из Санкт-Петербурга, созданная в 2011 году Андреем Князевым, являвшимся на момент её создания участником панк-группы «Король и Шут». Весной того же года Андрей Сергеевич отказался от работы в театре над рок-оперой «TODD» совместно с Михаилом Горшенёвым и решил создать сайд-проект для реализации собственного творческого потенциала. (   Читать дальше...   )2005 - Любовь негодяя
-2011 - Письмо из Трансильвании
-2012 - Тайна кривых зеркал
-2013 - Роковой карнавалЖанр: Punk RockПродолжительность: 07:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D277B86D06D3816C4F580DA1E4B71CF5CE764C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525239   (130132) от 19.01.2022
-
-Devin Townsend - Empath (2019) 2020 [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audio] <Progressive Metal, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что поклонником Металла не являюсь, мне эта музыка показалась интересной. Чувствуется стиль большого мастера, даже на таком материале.
-Первоначально альбом вышел в марте 2019 года, на CD. В июне 2020 года состоялось переиздание - 4-х дисковый The Ultimate Edition, в состав которого входил блюр с многоканальным звуком, из которого, собственно, и сделан (   Читать дальше...   )01. Castaway 2:29
-02. Genesis 6:06
-03. Spirits Will Collide 4:40
-04. Evermore 5:30(   Читать дальше...   )Жанр: Progressive Metal, Symphonic RockПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCB2DF173AA2E6C2404A0686CBFEB2BB4B1117E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682878   (129887) от 09.12.2023
-
-Kylie Minogue - Extension (2023) The Extended Mixes [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-01 - Various Albums
-02 - Extension (The Extended Mixes)Жанр: PopПродолжительность: 2CD, 01:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3477823AEAFC1A4852355CDC4BD137F641AFDF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682999   (129862) от 09.12.2023
-
-Cher - Cher's Greatest Hits 1965-1992. Volume 1 (1993) Compilation, Unofficial Release [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129862.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Oh No Not My Baby
-A2 Whenever You're Near
-A3 Many Rivers To Cross (Live From The Mirage)
-A4 Love And Understanding(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9190965DDD45DA2D9002C6F8CBC92C5D19BD4122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683004   (129831) от 09.12.2023
-
-Everdawn - Venera (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cassiopeia [00:03:46]
-02. Century Black [00:03:15]
-03. Silver Lining [00:03:38]
-04. Karmic Partner [00:03:30](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775E70FF6ADA9C7F0C1C76513BB801094D87053D
 ```
 
 https://mybot314.ru/tekegram_catalog/

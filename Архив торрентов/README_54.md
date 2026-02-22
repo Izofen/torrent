@@ -1,3 +1,29 @@
+###  Публикация: 1615143   (1038029) от 24.02.2023
+
+Ungoogled Chromium 110.0.5481.100-1.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ungoogled Chromium - версия веб-браузера Chromium без интеграции сервисов Google, ориентированная на приватность. Включает улучшения для конфиденциальности, прозрачности и контроля онлайн-активности.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD1347EEE0DEC7AA6675A2326EDE7C700518538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441081   (1038016) от 20.01.2021
 
 Emurasoft EmEditor Professional 20.4.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -657,35 +683,6 @@ Invisor основан на хорошо известной библиотеке
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D75F4D8887F0D596FE71BAAF31695C694AEA5DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441473   (1037792) от 21.01.2021
-
-Mikel Andrew & JP90 - Colors Of Utopia (2021) Single [MP3|320 Kbps] <Synthpop, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037792.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Colors Of Utopia (3:38)
-2. Colors Of Utopia (DATA Remix) (7:22)
-3. Colors Of Utopia (DMT Berzerk Remix) (5:54)
-4. Colors Of Utopia (Vyrtual Zociety Remix) (4:29)Жанр: Synthpop, ElectronicПродолжительность: 00:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432F4046B97A6257DB53224BCA6BA2FAD837E4E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

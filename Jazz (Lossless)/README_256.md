@@ -1,32 +1,3 @@
-###  Публикация: 1193713   (261997) от 22.12.2017
-
-Buddy Tate - Swinging Like Tate (1959) 1988, Decca Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bottle It [06:04]
-02. Walk That Walk [08:37]
-03. Miss Sadie Brown [06:00]
-04. Moon Eyes [07:41](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4922FD0EBEA78A315CAAD7A9178CA26D874EACF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193515   (261993) от 22.12.2017
 
 Benny Goodman - Benny In Brussels (1958) 1989, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -801,6 +772,41 @@ Marcel Loeffler - Images (2012) [FLAC|Lossless]<Swing, Jazz Manouche, Accordion>
 08. Olmo (3:56)
 09. Vago (4:28)
 10. Quai des pecheurs (4:30)(   Читать дальше...   )2012Жанр: Swing, Jazz Manouche, AccordionПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501441   (258787) от 27.05.2012
+
+Quincy Jones & Stan Getz - Big Bossa Nova Band with Quincy Jones & Stan Getz (2000) [APE|Lossless]<Big Band, Cool, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Bossa Nova
+02. Boogie stop Shuffle
+03. Desafinado
+04. Manha de Carnaval
+05. Se E Tarde Me Pardoa
+06. On The Street Where You Live
+07. Samba de Una Nota So
+08. Lalo Bossa Nova
+09. Serenata
+10. Chega de Saudade(   Читать дальше...   )2000Жанр: Big Band, Cool, Bossa NovaПродолжительность: 01:08:29
 
 ## Скачать торент
 ```bash

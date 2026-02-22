@@ -1,3 +1,119 @@
+###  Публикация: 1375982   (862170) от 16.04.2020
+
+VA - Best Pop (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (03:29)
+02. Dua Lipa - Future Nostalgia (03:04)
+03. Jess Glynne - I'll Be There (Banx & Ranx Remix) (03:07)
+04. Lizzo - Good as Hell (02:39)(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F21D365BE9912AEDA7DE8C601826A2E9E065D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375892   (862168) от 16.04.2020
+
+VA - Cay Hume And His Music Productions 1-3 (2016-2017) Remastered [FLAC|Lossless|tracks + .cue] <Euro-Disco, Synth-pop, Euro-House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cay Hume - Call Me Up (House Music Version) (6:46)
+02. Top Secret - Let It Be (12'' Version) (5:59)
+03. Jean & Jill - Blue Blue Eyes (12'' Version) (6:59)
+04. T. Ark - Count On Me (12'' Version) (6:31)(   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, Euro-HouseПродолжительность: 03:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FA7BB4AF162A5D9610E1C29708F4583112774C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375650   (861934) от 16.04.2020
+
+Леонид Агутин - Тайна склеенных страниц (2013) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пора домой (3:32)
+02. Ай-ай-ай (feat. Thomas Nevergreen) (3:39)
+03. Авторское кино (feat. Анжелика Варум) (4:49)
+04. Мама-река (5:09)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3275994AD183DC02FC7A61441D39F758A95BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376090   (861791) от 16.04.2020
+
+VA - Eurodisco 80's Maxi Hits & Remixes 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Lime - I Don't Wanna Lose You (Extended Dance Remix) (6:39)
+02. London Boys - I'm Gonna Give My Heart (Special Long Remix Version) (9:22)
+03. Fun Gang - Just for Fun (Radio Remix) (4:02)
+04. Geff Harrison - Bad New York City (Special Mix) (6:11)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83455D61BCEE90205A6DB26EBC457FCE04534768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497932   (861365) от 24.09.2021
 
 Adolescent's Orquestra - Millenium Hits (1999) [FLAC|Lossless|image + .cue] <Salsa>
@@ -629,122 +745,6 @@ Spatial Vox - Cause Of Shining In Your Eyes (The 1'st Album) (2019) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6F0BF952A9A079225B95E38DE43CF2960DDC4B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109310   (858660) от 27.02.2017
-
-VA - The Best Disco '80 (Syndicate) (1980) Unofficial Release [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Ocean - Stay The Night (4:01)
-02. La Flavour - Mandolay (6:21)
-03. Lipps, Inc. - Funky Town (8:08)
-04. Ottawan - You're O.K. (5:13)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F25E9D2D0CD3CC0A9DDF4F39219802C89693AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319179   (858120) от 18.04.2020
-
-Bad Boys Blue - In The Mix (80s Best) (2002) [FLAC|Lossless|tracks + .cue]<Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Woman (Maxi Version)
-02. Pretty Young Girl (Extended Version)
-03. Kisses And Tears (Remix 1994)
-04. I Wanna Hear Your Heartbeat - Sunday Girl (Maxi Version)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592E1BB83B548F97247FD39A08B23AB8249E81F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000596   (857502) от 26.03.2016
-
-Masha Qrella - Keys (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticket To My Heart
-02. Pale Days
-03. Keys
-04. Simple Song(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, ElectronicПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A47D5663A979ED2B85C8C9E3290BB71EC284CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000839   (857498) от 26.03.2016
-
-Ardis - Love Addict (1994) [APE|Lossless|image + .cue] <Electronic, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer For Africa [03:41]
-02. Sweet As Candy [04:00]
-03. Ain't Nobody's Business [03:12]
-04. Fugitive [03:21](   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA54DA67BB4CE9106F990009F976DF8FBEA5AA9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

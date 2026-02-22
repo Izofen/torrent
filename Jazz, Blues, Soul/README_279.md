@@ -1,3 +1,87 @@
+###  Публикация: 1235995   (556282) от 15.07.2018
+
+Keb Mo - Live - That Hot Pink Blues Album (2016) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: BluesПродолжительность: 01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318AB95C4E4431131501415487930492439329EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305707   (556216) от 01.06.2019
+
+Scott Hamilton Quartet - Dean Street Nights (2014) Woodville Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Found Out About Love [7:42]
+02. Sweet & Lovely [8:52]
+03. Jitterbug Waltz [13:13]
+04. If I Had You [5:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963AA070D240105CD6E1B5BE3BBE3FA899478919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306048   (555941) от 02.06.2019
+
+Sofia Hoffmann - One Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Easy
+02 – One Last Time
+03 – Push It Or Pull It
+04 – Vaisakhan(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1A36ACA63BE2D047F6B69BDEEA63FDDFBF93CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305994   (555911) от 02.06.2019
 
 Mary Stallings - Songs Were Made to Sing (2019) [FLAC|24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -660,91 +744,6 @@ Tony Bennett - Life Is Beautiful (1975) Reissue, Remastered 2003 [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37F33CB977D1B90CED98D3012D2F0E3B5B6CCB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236549   (554067) от 19.07.2018
-
-Joe Marsala - 1944 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clairinet Marmalade [2:46]
-02. Joe's Blues [2:55]
-03. Village Blues [2:51]
-04. Tiger Rag [2:54](   Читать дальше...   )Жанр: SwingПродолжительность: 01:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD53F1E4F733091DD1A4556E57816969A82103A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236673   (554066) от 19.07.2018
-
-Sonny Rollins - The Solo Album (1985) 1997, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soloscope Part 1 [28:18]
-02. Soloscope Part 2 [28:00]Жанр: Post-BopПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3D8D52321660B0AB46FFA5294AD93CB92B6D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308406   (553983) от 14.06.2019
-
-Frank Foster - Leo Rising (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Only As Old As You Look [8:08]
-02. Simone [12:14]
-03. Gray Thursday [7:18]
-04. Cidade Alto [3:30](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A042BE11B5B9E985902E7EAFF0C462B946E8E72E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1114030   (833505) от 14.03.2017
+
+Bino Dola, Luna Blanca, Fuegoitaliano - New Flamenco (2014) [MP3|320 Kbps] <Flamenco, Latin, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luna Blanca - El Dorado
+02. Fuegoitaliano - Rumba Del Sol
+03. Bino Dola - Venta De Vargas
+04. Luna Blanca - Rio Mamoré(   Читать дальше...   )Жанр: Flamenco, Latin, InstrumentalПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE14E9240E2A76465641230318FD29D710015A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114304   (833502) от 14.03.2017
 
 Oliver Scheffner - Relax Lounge. Soothing Music for Recreation (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -719,35 +748,6 @@ Salvador Candel & Carlos Fiel - Tengo Un Gran Amor (2020) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79BB95385943A55093BA33CFCF4077E089BBEDEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381012   (827807) от 06.05.2020
-
-David Hollandsworth - Imagine a World (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827807.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A New Horizon 03:06
-2. Depths of Love 02:43
-3. Limitless	 02:10
-4. Imagine a World 03:44(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EE00000C7E00AECA103D6D0CE729A6560C05A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1511772   (788411) от 22.11.2021
+
+Tania Kikidi - Rock & Roll Paradise (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock & Roll Paradise (6:14)
+02. Queen Rider (3:41)
+03. Freedom Highway (3:55)
+04. Night Burner (3:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD2E3F55B2470C27E9FD1648B5C56FD9EBF27BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511833   (788385) от 22.11.2021
 
 Change Of Heart - Last Tiger (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -715,35 +744,6 @@ Andrew W.K. - You're Not Alone (2018) [FLAC|Lossless|tracks] <Hard Rock, Arena R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23088CE1A868B71634F12EF7D1171EA734C028AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210673   (778500) от 04.03.2018
-
-Arcade - 3 альбома (1993 - 2001) [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arcade была супергруппой glam metal, созданной в 1992 году бывшим вокалистом "Ratt" Stephen Pearcy и барабанщиком "Cinderella" Fred Coury, а также известным гитаристом ex-"Sea Hags" Frankie Wilsex, ex-"Gypsy Rose" гитаристом Donny Syracuse и басистом ex-"9.0" Michael Andrews. Arcade выпустили два официальных студийных (   Читать дальше...   )Список альбомов:
-1993 - Arcade
-1994 - A/2
-2001 - A/3: Live And UnreleasedЖанр: Hard Rock, GlamПродолжительность: 02:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DFCF0705B3031867266C956FF95F80E0E3D2D4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

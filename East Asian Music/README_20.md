@@ -1,38 +1,3 @@
-###  Публикация: 736899   (221978) от 21.12.2013
-
-Sun Flower Field - 4 альбомa (2009-2011) [FLAC|Lossless] <Touhou, Vocal, Instrumental, Doujin Ongaku, J-Pop, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221978.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:19] 01. Sun Flower Field - 幻想の世界へ
-[03:36] 02. 姫 - ストレイ・ガール
-[03:31] 03. clame - JUNCTION
-[02:54] 04. clame - 神社から始まる大騒動 - Album mix.
-[04:02] 05. mineko - TRIP
-[04:13] 06. clame - Blow my mind - Album mix.
-[03:41] 07. 姫 - Sun Flower Field - Album mix.
-[04:01] 08. mineko - 彼の岸に咲く花
-[05:16] 09. mineko - Motherland - Album mix.
-[04:52] 10. 姫 - 星空ドライブ(   Читать дальше...   )Жанр: Touhou, Vocal, Instrumental, Doujin Ongaku, J-Pop, J-RockПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A938DAEA635B1356FF5D09913F32BB186B2DEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 736904   (221668) от 21.12.2013
 
 Bloody Sword - 3 альбома (2011-2013) Touhou Vocal /Doujin/ [FLAC|Lossless] <J-Metal, Death Metal>
@@ -749,6 +714,35 @@ Eizo Sakamoto - Shout Drunker (2002) [WavPack|Lossless|image + .cue] <Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1E96EEF1CF0D1090354DB4172368E939AD741FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597291   (166719) от 14.12.2022
+
+Eizo Sakamoto - Metal icchokusen (2000) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guten Tag 2:39
+02. Metal Daze 4:22
+03. Cry Baby Cry 4:56
+04. Mr. Lonely 5:26(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791BCFB1B6E80BA951D2518EA1CEF4012F5A7291
 ```
 
 https://mybot314.ru/tekegram_catalog/

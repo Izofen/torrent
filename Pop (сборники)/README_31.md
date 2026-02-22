@@ -1,3 +1,32 @@
+###  Публикация: 1390855   (781800) от 18.06.2020
+
+VA - 100 Greatest Pop Ballads (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781800.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Hello
+002. John Legend - All of Me
+003. Mariah Carey - Hero
+004. Whitney Houston - I Will Always Love You(   Читать дальше...   )Жанр: PopПродолжительность: 06:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3511F9CE2E683E26A805F1C520250A313E886AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206979   (781293) от 16.02.2018
 
 VA - German Top 100 Single Charts 16.02.2018 [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - 8 марта: Лучшие песни для неё (2018) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFB7151A03003AC3CF944684153E0432B39A22A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013772   (777314) от 05.05.2016
-
-VA - International Web-Radio Playlist (Dance) (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danky & Brain - Chasing Cars (Radio Mix) (feat. Jenny Joao)
-02. Empir3 - Ride Like the Wind (Blutraxx's Remix) (feat. Pit Bailay)
-03. Marc Mounier - There Were Times (Radio Version)
-04. Honeyz - Definitely Something (Soulshaker Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D489F06754E85F022197CBDF55F6C3D7E3A85685
 ```
 
 https://mybot314.ru/tekegram_catalog/

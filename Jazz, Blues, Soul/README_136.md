@@ -1,3 +1,90 @@
+###  Публикация: 1005140   (834842) от 08.04.2016
+
+Nat Adderley - Autobiography (1964-1965) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sermonette [05:56]
+ 02.Work Song [04:00]
+ 03.The Old Country [04:29]
+ 04.Junkanoo [03:05](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5020FEAC92C0E3F1A937ABAAFA63921F3A33F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005132   (834839) от 08.04.2016
+
+Joachim Kuhn New Trio - Beauty & Truth (2016) ACT[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Beauty and Truth [01:25]
+ 02.The End [04:05]
+ 03.Because of Mouloud [03:50]
+ 04.Sleep on it [04:19](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46A93700223D66FCB9F19BD6B62F61D4C033E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005137   (834833) от 08.04.2016
+
+Stanley Turrentine - Always Something There (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.(There's) Always Something There [02:50]
+ 02.Little Green Apples [04:22]
+ 03.When I Look Into Your Eyes [02:36]
+ 04.Light My Fire [03:15](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FC4EE0FEC5C4FC841BB4279AAEE213F9AA71D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005122   (834828) от 08.04.2016
 
 Charlie Haden & Gonzalo Rubalcaba - Tokyo Adagio (2005) 2015, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -657,93 +744,6 @@ Bill Wyman's Rhythm Kings - Kings of Rhythm, Vol. 2: Keep on Truckin (2016) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B766CB9BA78B1ECFD7B1DFBADA71F1798A57AFD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005596   (832561) от 09.04.2016
-
-Jane Monheit - The Songbook Sessions Ella Fitzgerald (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Too Soon
-02. Somebody Loves Me
-03. Chelsea Mood
-04. Something's Gotta Give(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D02614027612DFE82DFE4B987B4F0E52733E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005549   (832546) от 09.04.2016
-
-Rodney Jones & Tommy Flanagan Quartet - My Funny Valentine (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Giant Steps [04:31]
- 02.Oleo [03:36]
- 03.I'll Remember April [07:20]
- 04.Yesterday [01:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57B2273358E81DAA10EFF4E3C099C4478D290E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114571   (832149) от 15.03.2017
-
-Big Black Bible Blues Band - Holy Roller Woman (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный альбом христианских блюз-рокеров из Луизианы. Если абстрагироваться от содержания, то в общем совсем не плохо. Или не совсем уж и плохо. ИМХО. Решайте сами)))01. Holy Roller Woman (3:29)
-02. Sho Shuda Stay'd (Rollin' Like A Train) (3:48)
-03. Forever You Remain (3:23)
-04. Capsized (4:03)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8EE1540DEBEEB3CC3780C6B1C6B69E4CC66E20
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 998734   (868439) от 20.03.2016
+
+Celtic Woman - Solo (2015) [MP3|320 кб/с] <Celtic folk, World, New age>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chloe - To Where You Are
+02. Lisa Kelly - Home and the Heartland
+03. Lynn Hillary - Carolina Rua
+04. Meav - Marble Halls(   Читать дальше...   )Жанр: Celtic folk, World, New ageПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9659DA7613E1BEF7E7838CD733870D92487111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998755   (868437) от 20.03.2016
 
 Roc Chen, Rob King, Paul Romero - Might & Magic Heroes VII (2015) [FLAC|Lossless|image + .cue] <Score, Soundtrack>
@@ -772,35 +801,6 @@ Metronomy - Love Letters (2014) [FLAC|Lossless]<Indie Pop, Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BF2CBD41A6D46BE8937066D095DFA541CF38EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999132   (865724) от 21.03.2016
-
-Jason Graves - Far Cry Primal (Original Game Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shaman's Story
-02. Save the Wenja
-03. Prowl of the Snowblood Wolves
-04. The Fires of Conquest(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F16F3ADB1117A0751960FC7BD15175E8087F407
 ```
 
 https://mybot314.ru/tekegram_catalog/

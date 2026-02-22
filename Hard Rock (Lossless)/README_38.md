@@ -1,3 +1,34 @@
+###  Публикация: 1140343   (655789) от 06.06.2017
+
+Jorn - Life on Death Road (2017) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейбл Frontiers Music Srl выпустит новый студийный альбом норвежского вокалиста Йорна Ланде (Jorn Lande) "Life On Death Road" 2 июня.
+
+Йорн – однозначно один из величайших рок-певцов XXI века, и его голос вновь звучит во всю мощь на его девятом сольном диске с оригинальным материалом. Ему аккомпанирует новый состав музыкантов, который обеспечил релизу более (   Читать дальше...   )01. Life on Death Road (7:20)
+02. Hammered to the Cross (The Business) (5:29)
+03. Love Is the Remedy (4:53)
+04. Dreamwalker (4:59)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9008E6F0E0827F0C8CA5E9949DA1DA46F3816832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904101   (655571) от 02.06.2015
 
 Room Experience - Room Experience (2015) [FLAC|Lossless]<Melodic Hard Rock / AOR>
@@ -730,35 +761,6 @@ Jetboy - Born To Fly (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EFA76AAF78D6A3955DE039CB805C2272DB07DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541960   (641215) от 05.04.2022
-
-The Hellacopters - Eyes Of Oblivion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Reap A Hurricane (00:03:15)
-02 - Can It Wait (00:01:59)
-03 - So Sorry I Could Die (00:04:21)
-04 - Eyes Of Oblivion (00:03:59)(   Читать дальше...   )Жанр: Hard Rock, Garage RockПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E78A37D0BB9BA3D3723D7C9202F64DCD5A0B889
 ```
 
 https://mybot314.ru/tekegram_catalog/

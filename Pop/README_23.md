@@ -1,3 +1,119 @@
+###  Публикация: 1470920   (1015474) от 18.05.2021
+
+Bonnie Tyler - The RCA Years (2019) 4CD, Box Set, Compilation, Cherry Red Records [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015474.jpg" />
+</div>
+
+
+###  Подробнее
+
+1977 - The World Starts Tonight
+1978 - Natural Force
+1979 - Diamond Cut
+1981 - Goodbye To The IslandЖанр: Pop, Pop Rock, Soft RockПродолжительность: 03:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8632BC642B888744BF6B32999CD14FEC96E795F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470927   (1015442) от 18.05.2021
+
+Boney M. - Rasputin - Lover Of The Russian Queen (2021) [MP3|320 Kbps] <Retro, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rasputin [00:03:41]
+02. Daddy Cool [00:03:28]
+03. Rasputin [00:03:06]
+04. Ma Baker [00:04:35](   Читать дальше...   )Жанр: Retro, Pop, DiscoПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC9F925352CD9785F9A77B3CB7A6D384CCB8A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470935   (1015412) от 18.05.2021
+
+Boney M. - Rasputin - Lover Of The Russian Queen (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rasputin [00:03:41]
+02. Daddy Cool [00:03:28]
+03. Rasputin [00:03:06]
+04. Ma Baker [00:04:35](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BACF792866203CF97A88B9D72C23DF329ADFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471189   (1015297) от 19.05.2021
+
+Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015297.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Random Love (House Mix) 6:02
+2. Random Love (Maxi Mix) 6:31
+3. Random Love (Progressive Mix) 7:48
+4. Random Love (Radio Mix) 4:00Жанр: Euro HouseПродолжительность: 00:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1E2D450E99ADAFFDE5CAFC1531F53A1C1D4F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471201   (1015296) от 19.05.2021
 
 AlimkhanOV A. - Right Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
@@ -626,121 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DE0697B2EE4766575D9382FDFE761A53FD1FDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473144   (1013795) от 28.05.2021
-
-Moby - Reprise (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everloving (3:19)
-02. Natural Blues (4:30)
-03. Go (3:42)
-04. Porcelain (5:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF26C480B0F199728669C67514E9C32395EF42B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473400   (1013712) от 29.05.2021
-
-Claude Denjean - 3 Albums (1970-1976) Collection [MP3|320 Kbps] <Electronic, Downtempo, Lounge, Space-Age, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский скрипач, композитор и аранжировщик Клод Денжан, вероятно, наиболее известен оркестровыми аранжировками, которые он написал для Шарля Азнавура, включая "Idiote je t'aime" и меланхоличную "Non, je n'ai rien oublie". Денжан писал партитуры для других артистов, в том числе для Моник Тюберт и Макса Фурнье. Он также работал в качестве композитора (   Читать дальше...   )Список альбомов:
-1970 - Moog!
-1973 - Open Circuit
-1976 - Moods(   Читать дальше...   )Жанр: Electronic, Downtempo, Lounge, Space-Age, DiscoПродолжительность: 01:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB8912480402A9449FCF8769997695CB0A8ED8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473502   (1013681) от 29.05.2021
-
-Fancy - I'm Still A Fool (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m Still A Fool
-02. I’m Still A Fool (Extended)
-03. Lovers (Split Mirrors Remix)Жанр: Euro-DiscoПродолжительность: 00:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122D1245142113F51A8CA35F589749456CA66DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473435   (1013680) от 29.05.2021
-
-Леонид Агутин - Включите свет (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013680.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Включите свет
-2. Счастье не вешает нос
-3. Сочи (feat. Jimmy Rosenberg)
-4. Цветы(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAF7124CD58EA41E8ACD341299151F5C08789D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

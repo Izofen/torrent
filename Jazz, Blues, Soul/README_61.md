@@ -1,3 +1,90 @@
+###  Публикация: 976798   (967833) от 19.01.2016
+
+Maria Schneider Orchestra - Concert In The Garden (2004) ArtistShare[FLAC|tracks+.cue] <Modern Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Concert In The Garden [11:58]
+ 02.Three Romances: Part 1 Choro Dancado [09:46]
+ 03.Three Romances: Part 2 Pas de Deux [09:03]
+ 04.Three Romances: Part 3 Danca Ilusoria [09:06](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6FD64D70273A4E1A37046E7870951D5AC91292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977139   (967795) от 19.01.2016
+
+VA - Luxury Soul (2015) Box set [MP3|320 кб/с] <Funk , Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glen Goldsmith - Don't Delay (12'' Version) (4:48)
+02. Calvin Richardson - Home in a Minute (5:32)
+03. Shirley Jones - Because You Love Me (3:57)
+04. Butch & Rhonda Coleman - Here I Go Again (4:28)(   Читать дальше...   )Жанр: Funk , SoulПродолжительность: 02:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45BDE27037E43A33513237CEA81CCE775286038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976988   (967791) от 19.01.2016
+
+Ray Charles - Original Motion Picture Soundtrack (2004) Rhino[FLAC|tracks+.cue] <Blues, R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mess Around [02:42]
+ 02.I've Got a Woman [02:53]
+ 03.Hallelujah I Love Her So (live) [03:06]
+ 04.Drown in My Own Tears [03:22](   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95722C6E07DFBF9E398C3420083DABD1789092E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358804   (967234) от 09.02.2020
 
 Vintage Gramola - Welcome to the Vintage Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Blues>
@@ -665,93 +752,6 @@ Ariane Nielsen - It's About Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D3F9A2C811FFCAAE899909B657BCF0294B346E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978432   (963719) от 23.01.2016
-
-Anandi - Anandi (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchained Melody
-02. Night & Day
-03. Perennial
-04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E1789C43AA0675E026511355EB831AC03DFF59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978314   (963717) от 23.01.2016
-
-Wes Montgomery & The Billy Taylor Trio (1963/1965) 2005, Lonehill[FLAC|tracks+.cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.There Will Never Be Another You [03:07]
- 02.The More I See You [02:09]
- 03.A Night For Swinging [02:25]
- 04.A Bientot [02:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2401C91F9758FE30FAB2654079B436753388E37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978300   (963704) от 23.01.2016
-
-Quincy Jones - The Big Sound Of Quincy Jones (1956/1957/1960) 2CD, 2011, Not Now Music[FLAC|tracks+.cue] <Big Band, Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963704.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Go West, Man!:
-01.Dancin' Pants [03:51]
-02.Blues Day [04:44]
-03.Bright Moon [05:21](   Читать дальше...   )Жанр: Big Band, Swing, Mainstream JazzПродолжительность: 01:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537C512CD658CCC4B23895EF6C0763E1888EE155
 ```
 
 https://mybot314.ru/tekegram_catalog/

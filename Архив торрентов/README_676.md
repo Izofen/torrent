@@ -1,3 +1,35 @@
+###  Публикация: 618743   (969902) от 14.02.2013
+
+Dubit & Fran_Demien - X-Rizoma EP (2011) [MP3|320 кб/с]<Techno, Minimal, IDM, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. X-Rizoma (Original Mix) (07:44)
+02. X-Rizoma (Insect Elektrika's Mercy Remix) (07:19)
+04. X-Rizoma (FMControl Remix) (09:44)
+04. X-Rizoma (JFrank Remix) (05:24)
+05. X-Rizoma (Hanchi Remix) (10:17)
+06. X-Rizoma (Yoma Remix) (07:36)
+07. X-Rizoma (Flint LSD25's dub Remix) (09:03)Жанр: Techno, Minimal, IDM, ExperimentalПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F8155F6DC99BE6490CCA9DD2D3480C3C32E5E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 618586   (969901) от 14.02.2013
 
 Каникулы в Мексике - 2. Ночь на вилле. Выпуск №264 (2013.02.13) (2013) SATRip
@@ -741,35 +773,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F07BD03B76B8C52AD7E9BE4DC149714385B3FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976004   (969870) от 17.01.2016
-
-Хоккей. КХЛ 2015-2016. Йокерит (Финляндия) - Сибирь (Новосибирск) (15.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969870.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 января 2016, пятница. 19:30 МСК
-
-Стадион: Хартвалл-Арена (Хельсинки, Финляндия) , 10 087 зрителей (75 % при вместимости 13 464)
-Главный судья: Алексей Раводин (Москва, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортПродолжительность: 02:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B474EEBA8326A6D93E17D0A81C21A33F7A6DFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

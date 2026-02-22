@@ -1,3 +1,32 @@
+###  Публикация: 924440   (559178) от 03.08.2015
+
+Gary Burton Quintet - Whiz Kids (1987) /ECM/[FLAC|image+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Clown [08:58]
+02. Yellow Fever [06:53]
+03. Soulful Bill [08:12]
+04. La Divetta [08:35](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48D989BB8BD61FB837F66FAF644CB24CB56A234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 365184   (559125) от 19.07.2011
 
 Bohren & der Club of Gore - 8 Альбомов (1994-2011) [FLAC|Lossless|tracks + .cue] <Jazz Noir, Ambient, Experimental>
@@ -712,35 +741,6 @@ Gary Peacock & Ralph Towner - Oracle (1994) [FLAC|Lossless|tracks + .cue] <Conte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B590416135CBB8E85B9D726056C05CBF5C6C1F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306668   (555494) от 06.06.2019
-
-Evan Parker - Time Lapse (2006) Composer Series [FLAC|Lossless|tracks + .cue] <Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ak-Kok-Deer (4:30)
- 02. Monkey's Fist (6:46)
- 03. Threnody for Steve Lacy (2:43)
- 04. Gees Bend (3:50)(   Читать дальше...   )Жанр: Free ImprovisationПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83AED8A12E940407F454EC784FA98481BBB5FBD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

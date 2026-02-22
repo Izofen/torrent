@@ -1,3 +1,38 @@
+###  Публикация: 190371   (854807) от 10.04.2010
+
+Slash - Slash (2010) Canadian Deluxe Edition [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost (Ian Astbury)
+02. Crucify The Dead (Ozzy Osbourne)
+03. Beautiful Dangerous (Fergie)
+04. Back From Cali (Myles Kennedy)
+05. Promise (Chris Cornell)
+06. By The Sword (Andrew Stockdale)
+07. Gotten (Adam Levine)
+08. Doctor Alibi (Lemmy)
+09. Watch This Dave (Dave Grohl & Duff McKagan)
+10. I Hold On (Kid Rock)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 647967   (854569) от 24.04.2013
 
 Whitesnake - Made In Japan (2013) [FLAC|Lossless]<Hard rock, Rock>
@@ -725,35 +760,6 @@ Marc Quee - Better Late Than Never (2017) [FLAC|Lossless|tracks + .cue] <Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3E5B2440B98CF64824D1A9D53D79F64C1C392F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500934   (838235) от 08.10.2021
-
-Cormada - Music For Generations To Com (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakout 03:56
-02. I Got You 03:26
-03. I Will Not (Wait To See You Fall) 04:00
-04. Dancing All Over My Heart 05:01(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4520D76A6E4A168AA4F7EEE2B15541FBC60C8CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

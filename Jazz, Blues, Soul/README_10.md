@@ -1,3 +1,90 @@
+###  Публикация: 1606973   (1044221) от 24.01.2023
+
+Beiztegui & The Hammond Lovers - Get it Loud (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marked Cards (3:11)
+02. Tell Me (7:25)
+03. Double Crossing (3:09)
+04. Please Come Back Home (6:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B36B62099599EC2CCFEFCB9144700C09F1EEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606977   (1044208) от 24.01.2023
+
+Don P. & The Blue Jags - Lu-Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lu-Town (2:33)
+02. I Wanna Know (5:06)
+03. Sharp Dressed Gumshoe (3:06)
+04. Rattlesnake Boogie (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F4418DDE6D7F2C2CAD6B915E0E5B296BB15361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607117   (1044172) от 25.01.2023
+
+Kim Waters - What I Like (2018) Shanachie [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Touch of Love [4:29]
+02. That's What I Like [4:22]
+03. Walking on Air [4:06]
+04. Sumthin' Sumthin' [4:36](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D2E17D035D2F94A2BF6E8E0DC9E03A98E517D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607115   (1044170) от 25.01.2023
 
 Betty Carter - Four Classic Albums (1955 - 1961) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -658,93 +745,6 @@ Eric Aakula - Free to Choose (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABD27B7C1E67A7F4E8336CFA29EDE4315D05BCF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608688   (1043465) от 01.02.2023
-
-Barbara Blue - From the Shoals (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shoals (3:20)
-02. Nutthouse Blues (7:11)
-03. Tell Mama (3:23)
-04. Steal Away (4:04)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952DFDC2EF39EB6127ECBA68476D2D189DDB17BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608706   (1043457) от 01.02.2023
-
-Dr. Helander & Third Ward - Shining Pearls (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Wanna Wake up from My Dream (3:18)
-02. Unwanted Person (5:00)
-03. War Is Starting Again (4:21)
-04. 61 Highway (4:42)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FE51FEEDAE3206646B8BE37145F13441297758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608702   (1043453) от 01.02.2023
-
-Delta Wires - If Somebody Told Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Win for Losin' (4:27)
-02. If Somebody Told Me... (6:32)
-03. I Tried (3:50)
-04. Bring Me Up (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:045D945FD68266BEBD2E31C85C6E358F14AA256B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1490404   (915509) от 22.08.2021
+
+VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Activa - Polestar (Extended Mix) [6:53]
+02. Andy Moor & Somna with Linney - More Than Love (Craig Connelly Extended Remix) [6:50]
+03. Richard Durand - White Dolphins (Extended Mix) [5:17]
+04. Dennis Sheperd & EKe & Alex Di Stefano - Playing With Fire (Alex Di Stefano Extended Remix) [7:01](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F76DD3DF86696FD9537E7C3E405DA026D56CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991239   (908019) от 27.02.2016
 
 Ferry Corsten - Hello World (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
@@ -744,41 +773,6 @@ VA - Hi-Octane Originals (2014) [MP3|320 кб/с]<Trance, Uplifting>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:139077B4F8610829A33CCED811695A2DDDC92FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768351   (862560) от 19.03.2014
-
-VA - Pure Trance Bliss 2014 [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. Arty - Twilight Tonight - Original Mix
-002. Estiva - Reach For The Sky - Original Mix
-003. Juventa - The Strip - Original Mix
-004. Aruna - Reason To Believe - Speed Limits Remix
-005. Super8 & Tab - Teardrops - Original Mix
-006. Daniel Kandi - Change The World - Original Mix
-007. D-Mad - Must Be Together - Original Mix
-008. AWD - Summer's End - Original Mix
-009. Jjoo - Sakura - Original Mix
-010. Estiva - Smiley Smilesworth - Original Mix(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB71E4B696EE6D2DBC0E17F1B81A6E0C1AD44E65
 ```
 
 https://mybot314.ru/tekegram_catalog/

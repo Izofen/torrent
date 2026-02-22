@@ -1,3 +1,32 @@
+###  Публикация: 1653452   (206094) от 16.08.2023
+
+VA - Vintage Café - The Remixes Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Lounge>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anakelly - Speed of Sound (Ronan Remix) (3:25)
+02. Asonne - Flowers (Javier Penna Remix) (2:18)
+03. Nikko Mad - Die for You (3:13)
+04. No.On - What a Wonderful World (Krister Remix) (1:35)(   Читать дальше...   )Жанр: Pop, Easy Listening, LoungeПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B364E341A02468A565BA41A302E515CF0F2B47D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616138   (206084) от 01.03.2023
 
 VA - 80s Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
@@ -716,35 +745,6 @@ Roisin Murphy - Hit Parade (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Art
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C670388E125D9456D9323D3D1A4EBDEEC40917C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658716   (190884) от 09.09.2023
-
-VA - ¡90's Rockstars Hits! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shania Twain - Man! I Feel Like A Woman! (3:53)
-02. R.E.M. - Losing My Religion (4:28)
-03. The Cranberries - Zombie (5:07)
-04. The Cardigans - Carnival (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22305D0BCB193EE3EC19DB85A3B5A76B17269FEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

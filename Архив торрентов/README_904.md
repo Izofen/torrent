@@ -1,3 +1,29 @@
+###  Публикация: 754117   (934987) от 06.02.2014
+
+Эстафета Олимпийского огня. Сочи. Обратный отсчет (2014.02.06)  SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ТелепередачаПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E29875DB226FEA3994781AC177DBF51FD95E50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 284573   (934984) от 21.01.2011
 
 Загадай желание / Aao Wish Karen (2009) DVDRip
@@ -669,41 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E2B6C27693AEEAB6AB994D80D47210BE5CADE32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176360   (934898) от 18.02.2010
-
-Bill Evans - Portrait in Jazz (DCC GZS-1059) (1959) [FLAC|Lossless]<Jazz/ Modal Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934898.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Come Rain or Come Shine
-2 Autumn Leaves
-3 Witchcraft
-4 When I Fall in Love
-5 Peri's Scope
-6 What Is This Thing Called Love?
-7 Spring Is Here
-8 Someday My Prince Will Come
-9 Blue in Green
-10 Autumn LeavesЖанр: Jazz/ Modal Jazz
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

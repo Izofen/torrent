@@ -1,3 +1,119 @@
+###  Публикация: 1308516   (553776) от 15.06.2019
+
+NEЯ - 2 альбома (2001-2002) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вечерок (4:21)
+02. Нет, яне верю (3:43)
+03. Холодно мне (4:26)
+04. Ой-ёй-ёй (4:32)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD7CC5DEF333CC8F60C539DF896EFD3BA4527D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308628   (553775) от 15.06.2019
+
+VA - No Schlager No Party (Von Discofox bis Mallorca - Die besten Hits 2019 im Mallorcastyle bis zum Karneval, Fasching und Oktoberfest 2020) (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kay Dörfel - Malinconia
+02. Michael Fischer - Unser Moment
+03. Justin Winter - Die Spannung steigt
+04. Neon - 100.000 Volt(   Читать дальше...   )Жанр: PopПродолжительность: 04:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C7607719DEA357F8ABF8FBCB84C3ABB807801F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236866   (553769) от 20.07.2018
+
+Монеточка - Раскраски для взрослых (2018) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Teen Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Русский ковчег (3:34)
+02. Каждый раз (3:28)
+03. Нимфоманка (2:41)
+04. Нет монет (4:38)(   Читать дальше...   )Жанр: Pop, Indie Pop, Teen PopПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C761406FA493723998964B5F8F1C70E80B3004AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308399   (553746) от 15.06.2019
+
+VA - Discofox Stars (Die besten Schlager Hits 2019 für deine Fox Party) (2019) [MP3|320 Kbps] <Disco, Schlager & Volksmusik, Neue Deutsche Welle>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Fischer - Unser Moment
+02. Neon - 100.000 Volt
+03. Andreas Lawo - Verlorenes Glück
+04. Axel Fischer - Bella Ciao (Radio Edit)(   Читать дальше...   )Жанр: Disco, Schlager & Volksmusik, Neue Deutsche WelleПродолжительность: 04:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268796B36713B43C50583192E743B423EDE1E6E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308612   (553733) от 15.06.2019
 
 VA - Discofox 2019 (Die besten Fox Schlager Hits zu deiner Sommer Tanz Party) (2019) [MP3|320 Kbps] <Schlager & Volksmusik, Neue Deutsche Welle, Disco>
@@ -635,122 +751,6 @@ Celine Dion - Encore un soir (2016) Deluxe Edition [MP3|320 Kbps] <Pop, French C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5222CF4F550D55FFBE09E97B8D8BB8802A2E88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046217   (552779) от 26.08.2016
-
-Britney Spears - Glory (2016) Deluxe Edition (Explicit) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Electro, Vocal, Ballad, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invitation (3:19)
-02. Make Me... (feat. G-Eazy) (3:51)
-03. Private Show (3:55)
-04. Man On The Moon (3:46)(   Читать дальше...   )Жанр: Pop, Electronic, Electro, Vocal, Ballad, SynthpopПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91754673CBD01BBA73CFE480A2BBD462264E0353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237370   (552473) от 23.07.2018
-
-Gayalaxy - EP & Album (2017, 2018) [MP3|320 Kbps] <Electronic, Ambient, Downtempo, Progressive Trance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Португальский композитор и музыкант. Настоящее имя Hélder José Martins. Мастеринг Дмитрия Редько в студии Astropilot Mastering.01. Ashes Of Time (11:50)
-02. Hang On The Moon (10:22)
-03. Duduk Spell (10:18)
-04. Triskel Gateway (Feat. Joyfull Natives) (6:56)(   Читать дальше...   )Жанр: Electronic, Ambient, Downtempo, Progressive TranceПродолжительность: 01:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D613A39A2FA05E93DBB8329EF14B37EC3A5349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046609   (551858) от 27.08.2016
-
-VA - Unclassics: Obscure Electronic Funk & Disco 1978-1985 (2004) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Deep House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untro -  Untro (0:07)
-02. Discotheque -  Disco Special (4:54)
-03. Zodiac -  Pacific (3:49)
-04. Pluton & Humanoids -  World Invaders (4:46)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Deep House, DiscoПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78441F2EE157C72E74E3C9A898D279AE855327B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046468   (551847) от 27.08.2016
-
-Moon Birds - 2 Albums (1977, 1978) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский студийный проект в стиле "спейс-диско" композитора, продюсера и режиссера Гумберта Ибахе (Humbert Ibach, настоящее имя Умберто Петруччи) с привлечением сессионных музыкантов.01. Cosmos No. 1 (2:20)
-02. Fly In The Night (3:08)
-03. Safari Rock 1 (2:17)
-04. Safari Rock 2 (2:20)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A0C5FD5E3C4E5E08FAC1DBB3C0BC6CC1D1BDD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

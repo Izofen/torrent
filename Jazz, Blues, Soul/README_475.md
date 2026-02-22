@@ -1,3 +1,32 @@
+###  Публикация: 1596084   (174017) от 08.12.2022
+
+Fay Claassen, David Linx, WDR Big Band Cologne - And Still We Sing (2021) Jazzline [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sum It Up (Disturbing the Peace) [5:33]
+02. Along Goes Betty [5:18]
+03. Waterfalls [5:49]
+04. Good Times [5:20](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61DF372FDB0EB60894ACC426655D787276FCB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596078   (174004) от 08.12.2022
 
 VA - Electro Swing Disco of the Alps (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing>
@@ -714,35 +743,6 @@ Robert Conti - Comin' On Strong! (1990) Time Is Records [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5816734CD6ABCD04F0DDAFC545B168D42DD1D745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669376   (172877) от 16.10.2023
-
-Andre Previn - Four Classic Albums (1957 - 1959) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Much Too Late [9:31]
-02. You'd Be So Nice To Come Home To [7:05]
-03. It Could Happen To You [5:58]
-04. Low And Inside [9:00](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream Jazz, Piano JazzПродолжительность: 02:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006C51A90CA4588B98614B97A3A8C2505295ABF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

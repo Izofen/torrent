@@ -1,3 +1,29 @@
+###  Публикация: 1315415   (513630) от 19.07.2019
+
+Topaz DeNoise AI 1.2.0 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снимайте в любом месте при любом освещении без оговорок. Устраните шум и восстановите четкие детали на ваших изображениях с помощью первого инструмента для подавления шума - DeNoise AI. Вы можете быть удивлены полученными результатами.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA362A2588913D8F992169728487C9FD3C31C7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561817   (513613) от 06.07.2022
 
 Glary Utilities Pro 5.191.0.220 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEED01FC8E44ED93409D98452B5B87CDB5C31141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536696   (513515) от 19.08.2012
-
-Design and interior of the wallpaper (18.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5103F55FF208190426506CC05494095B4295EFEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

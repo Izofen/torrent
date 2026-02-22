@@ -1,3 +1,38 @@
+###  Публикация: 598967   (999120) от 07.01.2013
+
+Jesse Cook - Greatest Hits (2CD) (2010) [MP3|320 кб/с]<New Age, Flamenco, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999120.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Продолжительность: 01:19:34
+01. [03:49] Mario Takes a Walk
+02. [03:01] Tempest
+03. [04:10] Paloma
+04. [03:06] Bogota by Bus
+05. [03:29] Matisse the Cat
+06. [04:08] Virtue
+07. [03:48] Rattle and Burn
+08. [03:58] Gravity(   Читать дальше...   )Жанр: New Age, Flamenco, InstrumentalПродолжительность: 02:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBBC911DF331113F9E476EF046940E229CB052B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598659   (999119) от 07.01.2013
 
 Fausto Papetti - Movie Land (2011) [MP3|320 кб/с]<Instrumental>
@@ -853,38 +888,6 @@ Enya, Delerium, Conjure One, Amethystium…Имена, которые безус
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430662   (993811) от 02.01.2012
-
-Donna de Lory - Sanctuary (2009) [MP3|320 кб/с]<New Age, World, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(07:11) 1. Aham Prema
-(06:30) 2. Sanctuary
-(07:11) 3. Guru Om
-(06:27) 4. Jai Ma
-(06:41) 5. Bathe In These Waters
-(10:10) 6. Lokah Samasta Sukhino Bhavantu
-(09:31) 7. Om Namah Shivaya (Thy Will Be Done)Жанр: New Age, World, MantrasПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0F97266A333ABE84CDD6F1956A7115D737229A
 ```
 
 https://mybot314.ru/tekegram_catalog/

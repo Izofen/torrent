@@ -1,3 +1,90 @@
+###  Публикация: 1816128   (4522) от 03.09.2025
+
+VA - 25 Years Of Anjuna Mixed By CRi (2025) [MP3|320 Kbps] <Deep House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Sun In Your Eyes (Original Mix) [4:52]
+02. Lane 8 feat. Lulu James - Loving You (Original Mix) [4:02]
+03. Ben Böhmer - After Earth (Original Mix) [7:38]
+04. YOTTO - Personal Space (Extended Mix) [6:52](   Читать дальше...   )Жанр: Deep House, Melodic House & Techno, ElectronicПродолжительность: 02:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89639531E806208E08FC26B8F803C1595A18DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816892   (3878) от 07.09.2025
+
+VA - BC Deep Summer 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jdub (Us) - Man In The Mirror 08:32
+02. Nightly Closures - Sol De La Mañana 06:00
+03. Beto Ruve - Gllitter Room 06:57
+04. Martin Luciuk & Noe Menendez - Blue Lake 05:22(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E08D73F90C86481745D5FBAE35523C84CE6C464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816980   (3843) от 07.09.2025
+
+Faithless - Champion Sound (2025) [MP3|320 Kbps] <House, Trance, Trip-Hop>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Faithless - Forever Free [00:01:35]
+02 - Faithless - Meeting (feat. Nathan Ball & Amelia Fox) [00:05:30]
+03 - Faithless - Champion Sound Side 3 Book of Hours [00:24:05]
+04 - Faithless - Find A Way (feat. Suli Breaks) [00:03:02](   Читать дальше...   )Жанр: House, Trance, Trip-HopПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD43965B5847F54A7B82EF87C27CA086E941150C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817376   (3463) от 10.09.2025
 
 VA - The Best of Viva Electronica Music Year One Anniversary (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>

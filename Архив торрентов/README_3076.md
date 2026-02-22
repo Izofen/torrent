@@ -1,3 +1,32 @@
+###  Публикация: 1154721   (537076) от 01.08.2017
+
+Armin van Buuren - A State Of Trance 823 (20.07.2017) Radioshow [MP3|256 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tune Of The Week:
+01 Armin van Buuren & Sunnery James & Ryan Marciano – You Are (ARMIND (ARMADA))
+02 Rodrigo Deem – Tearsdrope (ASOT (ARMADA))
+03 Andrew Rayel ft. Angelika Vee – Never Let Me Go (ARMIND (ARMADA))(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35CB17E49934E35F9526CC3DE1AF3FB7D027176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154862   (537075) от 01.08.2017
 
 Mega Drive - Seas Of Infinity (2017) [MP3|256 Kbps] <Synthwave, New Retro Wave>
@@ -665,32 +694,6 @@ Cockos Reaper является одной из самых продвинутых
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E59490E3A97BD0056D1022A6611BDA8FA76D82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532604   (536852) от 08.08.2012
-
-Журнал | Cosmopolitan Shopping № 08 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cosmopolitan Shopping — незаменимый гид по стильным покупкам. Это модный, интересный и полезный журнал, который всегда готов ответить на три главных вопроса в жизни женщины: что купить? Где купить? С чем носить?Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CA78F1FC74DC02320B04581116CCF576921679
 ```
 
 https://mybot314.ru/tekegram_catalog/

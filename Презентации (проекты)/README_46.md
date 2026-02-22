@@ -1,3 +1,29 @@
+###  Публикация: 1328790   (360661) от 01.10.2019
+
+ProShow Producer - Cooking Channel [PSH]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон презентация "Кулинарного Шоу"... Дерзайте!Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4EFB67953295F5D39B409964A64DA8D88CC058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951575   (360290) от 30.10.2015
 
 Проекты - VideoHive - Company Promotion [AEP]
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9160A2734130F0F717AAC755DC8CAD0391131FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073827   (342371) от 17.11.2016
-
-Проекты - VideoHive - Gold Broadcast Package - 18529274 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gold Broadcast Package - анимационный пакет для вещательных программ.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B902D23E98B22278869A2D93178F0B9419310F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

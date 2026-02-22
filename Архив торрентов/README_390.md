@@ -1,3 +1,38 @@
+###  Публикация: 430513   (991582) от 05.01.2012
+
+VA - 100 Hits RTL (5 CD) (1960-2000) (2000) [MP3|320 kbps]<Pop, Chanson, Sclager>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+2000Жанр: Pop, Chanson, SclagerПродолжительность: 01:05:54
+1 Renaud & Axelle Red – Manhattan-Kaboul
+2 Mika – Relax (Take It Easy)
+3 Christophe Willem – Double Jeu
+4 Yannick Noa – Donne-Moi Une Vie
+5 Calogero – Si Seulement Je Pouvais Lui Manquer
+6 Marc Lavoine & Cristina Marocco – J’ai Tout Oublie
+7 Seal – Love’s Divine
+8 Gerald De Palmas – J’en Reve Encore
+9 Jean-Jacques Goldman – Tournent Les Violons(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E1E8EEB90FC714F501BA5E43A06A5142F5E65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353367   (991570) от 18.01.2020
 
 Realtek High Definition Audio Driver 6.0.8844.1 WHQL (Unofficial) [Multi/Ru]
@@ -666,32 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF4A4E11AAC7C2F6BB7E12355A628ABD2EE17DA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432101   (991476) от 05.01.2012
-
-Comedy Баттл. Сезон №2. Выпуск №16. Турнир / Комеди Клаб / Comedy Club  (05.01.2012) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Пятеро лучших юмористов по итогам отборочного раунда составят сборную, которая на втором этапе шоу сразится за главный приз с командами "Убойной Лиги" и "Комеди Клаб".Жанр: ТВ-ШоуПродолжительность: ~ 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AAF1E05E9D0ED9247D6F13FA0F83D0B144DF058
 ```
 
 https://mybot314.ru/tekegram_catalog/

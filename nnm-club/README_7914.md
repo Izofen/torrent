@@ -1,112 +1,25 @@
-###  Публикация: 1127009   (731159) от 22.04.2017
+###  Публикация: 1127263   (732236) от 21.04.2017
 
-Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). Плей-офф. Шотландия — Швеция (25.03.2017) IPTV [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731159.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 марта 2017 года, суббота
-Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай). Плей-офф
-Система плей-офф Пейджа
-Шотландия — Швеция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453BFF6C2224A18F94129A6AD5DB4483A5CAB74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127889   (731158) от 22.04.2017
-
-WellenVorm - Petrified Forest (2016) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731158.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Perm - 6:21
-2. Twilight - 5:11
-3. Thunder - 10:00
-4. Blust Wave - 0:55(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6EF46B787F158B2672CCC386D4FDD62A6A6DE33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127772   (731157) от 22.04.2017
-
-Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Universe [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modus Operandi [09:38]
-02. Come Sunday [05:28]
-03. Gap Sealer [05:48]
-04. Jeep's Blues [06:29](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828223038A621EBB4D12FEEF17DF68733A5B2FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127480   (731156) от 22.04.2017
-
-Футбол. Лига Европы УЕФА 2016-2017. 1/4 финала. 2-й матч. Бешикташ (Турция) – Лион (Франция) (20.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Хоккей. НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Восток. 1/4 финала. 4-й матч. Нью-Йорк Рейнджерс – Монреаль Канадиенс (18.04.2017) IPTV [H.264/1080p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731156.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 апреля 2017, четверг. 22:05 МСК
-Лига Европы УЕФА 2016-2017. Плей-офф. 1/4 финала. 2-й матч
-Бешикташ (Стамбул, Турция) – Лион (Лион, Франция)
-Стадион: Водафон Арена (Стамбул, Турция), вместимость: 43500(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:40:39
+19 апреля 2017, среда. 02:00 МСК
+НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Восточная конференция. Первый раунд.
+1/4 финала. 4-й матч
+Нью-Йорк Рейнджерс – Монреаль Канадиенс(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:06:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:543B901DE2422D8458FDEADE83CF0E0F665D28DF
+magnet:?xt=urn:btih:70A0D42EB5F52E4FA02FC8B002979230C1C7A25F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +27,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127655   (731155) от 22.04.2017
+###  Публикация: 1127272   (732235) от 21.04.2017
 
-Valery Ponomarev & Feelin's (2006) Монолит [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Хоккей. НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Восток. 1/4 финала. 4-й матч. Коламбус Блю Джекетс – Питтсбург Пингвинз (18.04.2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732235.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 апреля 2017, среда. 02:30 МСК
+НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Восточная конференция. Первый раунд.
+1/4 финала. 4-й матч
+Коламбус Блю Джекетс – Питтсбург Пингвинз(   Читать дальше...   )Телекомпания: CNBCЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EE1D249C02666E08548A274B9AD890290B56A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127281   (732234) от 21.04.2017
+
+Хоккей. НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Запад. 1/4 финала. 4-й матч. Сан-Хосе Шаркс – Эдмонтон Ойлерз (18.04.2017) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732234.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 апреля 2017, среда. 05:00 МСК
+НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Западная конференция. Первый раунд.
+1/4 финала. 4-й матч
+Сан-Хосе Шаркс – Эдмонтон Ойлерз(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C8F7410B21B2B0B9939886D31CB293D41A07DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127496   (732233) от 21.04.2017
+
+Eric Alexander - Dead Center (2004) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731155.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Valery Ponomarev [01:14]
-02. Feelin's (I) [04:35]
-03. Cat Dancing on the Piano [04:53]
-04. Take 7 [03:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:42
+01. One For Steve [06:50]
+02. Sonrisa [06:47]
+03. Almost Like Being In Love [06:42]
+04. It's Magic [06:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAFC6E9430C19673E81B0D889603095583F6A5B5
+magnet:?xt=urn:btih:EB1DA7250947D42484FE87AA3796732A6A8ADFD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +114,140 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127600   (731154) от 22.04.2017
+###  Публикация: 1127223   (732232) от 21.04.2017
 
-Kenny Barron - Sambao (1992) [WavPack|Lossless|image + .cue] <Latin Jazz, Post-Bop>
+Хоккей. КХЛ 2016-2017. Кубок Гагарина. Финал. 5-й матч. Металлург (Магнитогорск) — СКА (Санкт-Петербург) (16.04.2017) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732232.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 апреля 2017, воскресенье. 15:00 МСК
+КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 5-й матч
+Металлург (Магнитогорск) — СКА (Санкт-Петербург)
+Стадион: Арена-Металлург (Магнитогорск, Россия), 7500 зрителей (97 % при вместимости 7700)(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5475F59A094A6EB71A867D55D321139981C53229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127287   (732230) от 21.04.2017
+
+Nagelfar - Als die Tore sich öffnen... / Jagd (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skölls Jagd
+02. Nacht der Rache
+03. Srontgorrth - Kapitel 2: Die Existenz jenseits der ToreЖанр: Black MetalПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6B1E80B68CC9502CE335315F917B8D36A31BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127382   (732229) от 21.04.2017
+
+Invisor Media File Inspector 3.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Invisor – Инспектор файлов мультимедиа
+Отображает техническую информацию о вашем видео и аудио файлов с возможностью сравнения собранных данных.
+Invisor основан на хорошо известной библиотеке MediaInfo и показывает подробную информацию о контейнере файла и потоков данных, включая видео, аудио, субтитры и главы.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 апреля 2017Разработчик: Maxim PozdeevПоддерживаемая ОС: OS X 10.7.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EA242540BB1F5D402EF3C0C26BD1C832C0CBDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126927   (732228) от 21.04.2017
+
+В. В. Адоратский | Избранные произведения (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Викторович Адоратский (1878—1945), видный большевик и крупный ученый, внес существенный вклад в дело разработки истории марксизма, истории международного рабочего движения. Главным содержанием его деятельности была научная подготовка изданий Сочинений К. Маркса, Ф. Энгельса, В. И. Ленина, пропаганда идей марксизма-ленинизма. Много сил он отдавал подготовке (   Читать дальше...   )Жанр: История, политология, философия, экономика, логика, правоведение, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B899DF31E6C47E37FCB8D8C7E88780D3E187FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127380   (732227) от 21.04.2017
+
+Kenny Barron - Sunset To Dawn (1973) 1990 [WavPack|Lossless|image + .cue] <Jazz, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731154.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Sambao (6:21)
-2. Yalelel (5:51)
-3. Bacchanal (6:38)
-4. Belem (5:43)(   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 00:59:56
+1. Sunset (9:07)
+2. A Flower (6:53)
+3. Swamp Demon (4:44)
+4. Al-Kifha (6:17)(   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:39:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5E5D8BDAA64649508C2115F0CF27D81468F9400
+magnet:?xt=urn:btih:2998D97B658383BDE1335371A49D45279827C815
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +255,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127673   (731153) от 22.04.2017
+###  Публикация: 1127485   (732226) от 21.04.2017
 
-Kahil El'Zabar's Ritual Trio - Africa N' da Blues (2000) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+The Pixel Door - 4/4 (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Contemporary>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732226.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Illness 03:06
+2. I miss you 02:20
+3. The string mischievous child 02:51
+4. Confrontation with the wind 02:19(   Читать дальше...   )Жанр: IDM, Ambient, ContemporaryПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63823A7A73C36071C7DFB309B5B21E9A2B7CEAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127436   (732225) от 21.04.2017
+
+VA - Black Hole Trance Music 04-17 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Evgeny Lebedev & Djiva - Beam Of Light (Extended Mix)  6:11
+02.  Awain & RULA - Springboard (Extended Mix)  6:17
+03.  Andy Moor & Somna - Look Back (LTN Remix)  5:05
+04.  Filterheadz present Orange 3 - In Your Eyes (Marcus Santoro Remode)  6:37(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41B8DD3CE8A3C12307052C1DA94C744D446399D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127174   (732224) от 21.04.2017
+
+Chronosphere - Red N' Roll (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alu Card 02:12
+02. Demonized 04:39
+03. Before It's Gone 03:33
+04. Picking Up My Pieces 04:23(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FDCE9003649C5CC4B1F99A7D582C3B4382A7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127347   (732223) от 21.04.2017
+
+Swoop - The Woxo Principle (1995) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Swingbeat>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woxo Prelude (0:41)
+02. Living How I'm Living (3:12)
+03. Ephemera (Drop The Vibe) (3:20)
+04. Rock Dog (5:50)(   Читать дальше...   )Жанр: Funk, Soul, SwingbeatПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4E8613E001C288FACE3654020DAEF491519B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127254   (732222) от 21.04.2017
+
+Emerald Edge - Surreal (2017) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ladder Of Some Dream 05:31
+02. Lost (Chapter II) 11:02
+03. Am I 07:27
+04. Be Careful On The Secret Path 08:25(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B2F6D54936F4C1F2C39D235009CF7497F58E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127543   (732221) от 21.04.2017
+
+Charles Mingus - Complete 1945-1949 West Coast Recordings (2001) Jazz Factory [FLAC|Lossless|tracks + .cue] <Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731153.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ka-Real (Take 2) [12:39]
-02. Africanos / Latinos [09:53]
-03. Miles' Mode [07:22]
-04. Autumn Leaves [11:27](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:11:22
+01. The Texas Hop [02:50]
+02. Baby, Take a Chance With Me [03:07]
+03. Lonesome Woman Blues [03:12]
+04. Swingin' An Echo [03:08](   Читать дальше...   )Жанр: BopПродолжительность: 01:09:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D2377EA61F65D6DF52E0B70FDD4E6439C1EF554
+magnet:?xt=urn:btih:97B763BDFA42EB3FA0A6CE5FDB307B3B341B38B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +429,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127621   (731152) от 22.04.2017
+###  Публикация: 1127490   (732219) от 21.04.2017
 
-VA - Big Room Bass Vol.2 (2017) [MP3|320 Kbps] <Trance, Tech Trance>
+Miles Davis - Collectors' Items (1953, 1956) 2004, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731152.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Frainbreeze & Thoba - Border Lines (Radio Edit)  3:16
-02.  Roman Messer & Denis Sender - Don't Give Up (Radio Edit)  3:05
-03.  Aelyn - Game Over (Ruslan Radriges Radio Edit)  3:22
-04.  Feel - The Razor (Hydrogenio Radio Edit)  3:41(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 00:58:49
+01. The Serpent's Tooth (take 1) [07:04]
+02. The Serpent's Tooth (take 2) [06:20]
+03. Round Midnight [07:07]
+04. Compulsion [05:48](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57348DC55B30FA70947D9AF3B8A9BAE5C790C2B3
+magnet:?xt=urn:btih:EB1B0F0D5925EC5FBE1C2C2F472D5B7F7F152D03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +458,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127563   (731151) от 22.04.2017
+###  Публикация: 1127465   (732218) от 21.04.2017
 
-VA - Trancespotting Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Журнал | Всему свету по совету №9 (236) (апрель 2017) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731151.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Tranc Eye - When The Sun Goes Down (Miroslav Vrlik Radio Cut)  3:19
-02.  Puma Scorz - Amanita (Radio Cut)  3:30
-03.  Martin Everson & Bprime - Waterfall (Radio Cut)  3:47
-04.  George Harrold - The Gateway (Radio Cut)  4:14(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:31:08
+Журнал "Всему свету по совету" - содержит информацию познавательного характера, а также практические советы как редакции, так и читателей в области здоровья, красоты, кулинарии, домоводства, садоводства. В каждом номере – актуальная тема сезона: будь то встреча Нового года или празднование Пасхи, защита от простудных заболеваний, секреты высадки рассады (   Читать дальше...   )Жанр: Сад, огород, домоводствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AFDA3A9F975C19D9FF393398468C91C3C3C2896
+magnet:?xt=urn:btih:6AA1DE839E04CBDB91016B8A53E964B2BFCA1A13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +484,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127599   (731150) от 22.04.2017
+###  Публикация: 1127370   (732217) от 21.04.2017
 
-VA - Trance With Sunglasses (2017) [MP3|320 Kbps] <Trance>
+TunesKit Apple Music Converter 1.3.2 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731150.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Jan Jacarta - Wormhole (Jan Jacarta Remix)  6:35
-02.  Art Of Trance - Haagen Daaz (Remastered)  7:48
-03.  Physical Dreams - Lost In Time  8:21
-04.  JayB - Desire (Dub Version)  6:44(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:02
+TunesKit Apple Music Converter - программное обеспечение позволяющее удалять DRM защиту для Apple Music. Программа позволяет разблокировать шифрование DRM Apple Music, и конвертировать защищенные Apple Music M4P в незащищенные форматы, такие как: MP3, AAC, WAV, FLAC, M4A, или M4B с сохранением ID тегов.
+
+Программа преобразует Apple Music файлы на высокой скорости (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 апреля 2017Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B789D299993ECF2DFFFE50964F9896190EB6236
+magnet:?xt=urn:btih:6F0B42F4F712530AB891443C5FD2200DFE25B57F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +512,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127753   (731149) от 22.04.2017
+###  Публикация: 1127387   (732216) от 21.04.2017
 
-VA - Сотка популярных весенних хитов версия № 6 (2017) [MP3|256 Kbps] <Pop>
+Sky High - Stone & Gravel (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty Young Women (& Dirty Old Men. Feat. Jon Paris)  (04:05) 
+02. One Step Back  (04:05) 
+03. A New Old Style ( Old Farts Boogie )  (03:15) 
+04. Holy Grounds (Feat. Per Wiberg)  (06:04) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F567C9336C4627E028AE5535B4DF669544ECE6EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127236   (732215) от 21.04.2017
+
+Hidden Lands - Halcyon (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prince Of Goofs (6:39)
+02. Water Spirit (10:07)
+03. Ulleraker (4:09)
+04. No One Is In This For Love (6:02)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1586D35F9277B392E794FF90BF25712F072934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125665   (732214) от 21.04.2017
+
+VA - Весенняя танцевальная вечеринка выпуск № 12 (2017) [MP3|256 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731149.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Инфинити Feat. Гена Дудин - Воланчик 3:18
-002. Илья Гуров - Геолокация 3:14
-003. Егор Диких - Маэстро 3:55
-004. Владимир - Голливуд 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:07
+001. Регина Тодоренко - Не Обижу 2:58
+002. Milen - Флюиды 4:02
+003. Dj Mrid & Борис Агаджанян - Самая 4:02
+004. Анжелика Варум - Женщина Шла 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A7B603CF98C64D994E059185CFFE8478918EE45
+magnet:?xt=urn:btih:4F76677ED5E13F65761594CA998A94630DE837AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +599,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127577   (731148) от 22.04.2017
+###  Публикация: 1127355   (732213) от 21.04.2017
 
-VA - Black Hole House Music 04-17 (2017) [MP3|320 Kbps] <House>
+Вечерний Ургант (2017.04.20) SATRip
 
->>Electronic
->>House
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731148.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Tyng & KMRN - Cracks On The Wall (feat. Shadisha)  6:27
-02.  James DX - Maximum Effort (Original Mix)  6:01
-03.  RBYN - Angel (Metrush Remix)  3:15
-04.  Bobina & May-Britt Scheffer - Born Again (Filatov & Karas Extended Remix)  4:14(   Читать дальше...   )Жанр: HouseПродолжительность: 01:25:43
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A939B9F601617750A4C40F6273D287A53C2BB67D
+magnet:?xt=urn:btih:7ED9399DEAA46CF9485CE9BAADB2E8FF060F5BDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,21 +625,47 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127667   (731147) от 22.04.2017
+###  Публикация: 1126078   (732212) от 21.04.2017
 
-Новая технология изготовления нанопроводников значительно облегчит процесс записи деятельности отдельных нейронов
+Оставить след (1982) SATRip [H.264] [MP4|744x374]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студентка Нина Денисова вместе с концертной бригадой приезжает на строительство железной дороги. Здесь она встречает своего бывшего одноклассника, в которого тайно влюблена, и решает остаться на стройке.Производство: СССРЖанр: Мелодрама, ДрамаРежиссер: Герман ЛавровАктеры: Светлана Петросьянц, Сергей Проханов,Иван Рыжов, Лев Прыгунов, Александр Сафронов,Татьяна Догилева, Наталья Потапова, Игорь Ясулович, Любовь Соколова, Евгения МельниковаПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81D08467D1D6D15D2A35254F4BC80B9CC3D2258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127351   (732211) от 21.04.2017
+
+Астрономы ЕКА создали карту, включающую данные о движении 2 миллионов звезд нашей галактики
 
 >>Поговорим
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731147.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_732211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Исследовательская группа, возглавляемая учеными из Калифорнийского университета в Сан-Диего, разработала новую технологию изготовления матриц из нанопроводников, использование которой позволит произвести запись электрической деятельности отдельных нейронов в самых мелких деталях. А практическое применение таких матриц наноэлектродов и нанопроводников позволит в будущем (   Читать дальше...   )
+Известно, что с течением времени практически все созвездия изменяют свою форму из-за движения входящих в них звезд. Эти процессы происходят очень медленно по нашим, человеческим меркам времени, и в течение времени жизни одного и даже нескольких поколений изменения форм созвездий можно уловить только при помощи высокоточных астрономических инструментов. К счастью, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -372,288 +677,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127731   (731146) от 22.04.2017
+###  Публикация: 1019835   (732181) от 30.05.2016
 
-Nice Clipboard - a cloud synced clipboard manager 1.4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nice Clipboard - Отличная реализация менеджера буфера обмена
-Nice Clipboard - Чистый, привлекательны и простой в использовании.
-
-Nice Clipboard - менеджер буфера обмена, который всегда ждет вас под значком Menubar на вашем Mac или на главном экране на вашем iPhone. Он синхронизируется с помощью iCloud между вашими компьютерами Mac и  iOS устройствами и написан с использованием (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 апреля 2017Разработчик: Jedrzej GronekПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D77E629E20586BA7EA272081747DA097B24C4BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127747   (731145) от 22.04.2017
-
-VA - Звездная тусовочка. Отдыхаем с лучшими хитами. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Диана Громова - Не Хочется 2:58
-002. Mike Perry Feat. Casso - Inside The Lines 3:25
-003. Катерина Sky - Мне Тебя Не Хватает 3:21
-004. Sigala & Digital Farm Animals - Only One 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9A6761CB1FA8CD3400D41DD14B87F25ACE8A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127755   (731144) от 22.04.2017
-
-VA - Лучший весенний хит. Версия № 11 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731144.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Швец - Фиолент 2:27
-002. Тина Кароль - Lost In The Rain 3:18
-003. Ольга Бузова - Привыкаю 3:49
-004. Катерина Корс - Так Близко 3:49(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE0AD65191035BF58AF24E60E4B08802BB382A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127685   (731143) от 22.04.2017
-
-VA - Living Room’s Just Good Mood (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worldtraveller - Deep Ocean Dive [00:03:38]
-02. Art Stoner - Breakwater [00:07:35]
-03. Living Room - Living Jazz [00:04:22]
-04. Omegaman - Paradiso [00:04:15](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD826ECB632F0F31EADB602171875AAED41A8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127455   (731142) от 22.04.2017
-
-VA - Ferry Corsten Presents Corstenas Countdown April (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ferry Corsten presents Gouryella - Venera (Vee's Theme)  3:08
-02.  DIM3NSION - Voorpret  7:02
-03.  Dan Dobson - Black Magic (Extended Mix)  6:15
-04.  Venaccio - Apollo (Extended Mix)  6:20(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543A69E9715615088B7649693533B2594FB519D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127699   (731141) от 22.04.2017
-
-IooN-Cosmic Downtempo - Masters Of The Universe (2017) [MP3|320 Kbps] <Ambient, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731141.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Passing Horizontal 16:04
-2.Nanomeditative Submersion 08:42
-3.Ascending To Master Stillness 07:11
-4.Masters Of Universal Equilibrium 08:07(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED67F9263A6C68F92190D6AE50FAD600EE7C0708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127588   (731140) от 22.04.2017
-
-VA - EDM Base Vol.2 (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Attila Syah & Cari - Dark Side Of The Moon (Radio Edit)  4:00
-02.  Audino - Beat Maniac (Original Mix)  3:47
-03.  Frainbreeze & Lucid Blue - World Of Nothing (Radio Edit)  2:33
-04.  Moroshka - 4AM (Original Mix)  4:44(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE2A918B8F933A152CA0EDD717F426D1C78AE0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127639   (731139) от 22.04.2017
-
-Маина Боборико | За круглым оконцем (1972) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть Маины Боборико «За круглым оконцем» рассказывает о жизни сегодняшних школьников, их дружбе и учебе, о любви к природе.
-
-Для детей среднего и старшего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78143E4E5F9FBC99A1E860EA4DF4E6DF506B8740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127764   (731138) от 22.04.2017
-
-VA - Высшая лига. Весна выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731138.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Непара - Половинки 3:44
-002. Nina Ann - Ты Спросишь Однажды 3:30
-003. Лена Семенова - Уверен Ли Ты 3:46
-004. Лаурита - Пока Пока 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1825A9F4ECD0281FDD0393D96D56A1A98D13BD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127005   (731137) от 22.04.2017
-
-Биатлон. Чемпионат России 2017. Уват (Россия). Спринт (25.03.2017) WEB-DL [H.264/720p-LQ]
+Футбол. Чемпионат Германии 2015-2016. Переходные матчи. Ответный матч. Нюрнберг - Айнтрахт (Франкфурт) (23.05.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731137.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-25 марта 2017 года, суббота
-Чемпионат России по биатлону 2017 года. Уват (Россия)
-1. Женщины. Спринт 7,5 км
-2. Мужчины. Спринт 10 км(   Читать дальше...   )Телекомпания: АСН “Тюменская арена"Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:12 - 01:38:04
+23 мая 2016, понедельник. 21:30 МСК
+Переходные матчи. 2-й матч
+
+Стадион: Грундиг (Нюрнберг, Германия) , 50 000 зрителей (100 % при вместимости 50 000)(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Роман Нагучев)Продолжительность: 01:46:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:276AB8F3BE6DDBC055C3F6CBABC47E114C57929F
+magnet:?xt=urn:btih:F1D3C660709B34D4E2D176A88931FCA59A8724EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,83 +706,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127757   (731136) от 22.04.2017
+###  Публикация: 1020018   (732180) от 30.05.2016
 
-VA - Топовая сотня весенняя версия № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Пающие Трусы - Давай Туси 3:01
-002. Леля - Грешная 3:43
-003. Ваня Чебанов - Ты №1 3:41
-004. Кейс - Держать Тебя За Руку 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC148303E262BD503D758C5B342C6C9D2C6784F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127578   (731134) от 22.04.2017
-
-Quiver: The Programmer's Notebook 3.0.6 [En]
+Футбол. Чемпионат России 2015-2016. Переходные матчи. Первый матч. Волгарь - Анжи (24.05.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731134.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Quiver — это записная книжка, специально созданная для программиста.
+24 мая 2016, вторник. 18:00 МСК
+Переходные матчи. 1-й матч
 
-Основные возможности:
-	•	С помощью Quiver вы легко можете объединить текст, код и Markdown в одной заметке.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: HappenApps, Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+Стадион: Центральный (Астрахань, Россия) , 10 500 зрителей (60 % при вместимости 17 500)(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Владислав Батурин)Продолжительность: 01:52:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8A52C60770BEA4CA29BADEB52DC84C197442569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127506   (731133) от 22.04.2017
-
-Козельская Введенская Оптина пустынь (изд.) | «Житие и писания молдавскаго старца Паисия Величковскаго» [Репринт 2001] (1847) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5C08F72C0E39D20B2881D2D304A53269E8EC97
+magnet:?xt=urn:btih:3C169D0644DA94A6625631819AFEAD15C43EFD0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

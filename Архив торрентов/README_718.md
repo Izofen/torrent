@@ -1,3 +1,38 @@
+###  Публикация: 746852   (964208) от 18.01.2014
+
+Evile - Infected Nations (2009) [WavPack|Lossless]<Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Infected Nation [05:33]
+02.  Now Demolition [05:46]
+03.  Nosophoros [05:29]
+04.  Genocide [07:42]
+05.  Plague To End All Plagues [05:55]
+06.  Devoid Of Thought [05:37]
+07.  Time No More [04:00]
+08.  Metamorphosis [07:39]
+09.  Hundred Wrathful Deities [11:15]
+10.  My Parasite [04:17]Жанр: Thrash MetalПродолжительность: 01:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD3F1A9474B96143634D013DCDB82D473770DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747152   (964203) от 18.01.2014
 
 Минута славы. Дорога на Олимп. Выпуск №16 (2014.01.18) SATRip
@@ -692,41 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B25C87C0A4ED96B07D5B77999D61965007FB2575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 746955   (964140) от 18.01.2014
-
-Cirkus - One (1973) Reissue /1986, 5 Hours Back/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock/Progressive Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Side1:
-01.  You Are  (3:23)
-02.  Seasons  (3:39)
-03.  April '73  (5:06)
-04.  Song For Tavish  (4:38)
-05.  A Prayer  (5:41)
-Side2:
-01.  Brotherly Love  (3:51)
-02.  Those Were The Days  (3:55)
-03.  Jenny  (4:14)(   Читать дальше...   )Жанр: Rock/Progressive RockПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8977123FE9B67D5BF4DF5214C7B95F3917A0F0FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

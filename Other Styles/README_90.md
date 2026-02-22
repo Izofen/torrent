@@ -1,3 +1,32 @@
+###  Публикация: 1031468   (651807) от 04.07.2016
+
+Paul Sills - Night Spa (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Space [00:18:02]
+02. Angelic Whispers [00:11:14]
+03. Lit by Stars [00:12:35]
+04. Floating Spa [00:12:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F834A88065C4083719463A607C451BF6CCE69EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031043   (651789) от 04.07.2016
 
 Llewellyn - Angel Sleep: Music for Blissful Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -719,35 +748,6 @@ Phil Thornton - Tribale (2015) [MP3|320 кб/с]<New Age, Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75244019D01523D631A87FDA816B10ABAA9501BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905944   (647540) от 07.06.2015
-
-Kerani - Equilibrium (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equilibrium
-02. Fragrant Mountain
-03. Anchoress
-04. Bouddica, Heart On Fire(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DECE6D817D7ADEAE2E08FD930974BA9ABCD9E39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 1405875   (478977) от 01.09.2020
+
+VA - 80s Road Trip (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UB40 - Red Red Wine (7” Version) (05:20)
+02. Tears For Fears - Everybody Wants To Rule The World (04:10)
+03. R.E.M. - Losing My Religion (04:28)
+04. Bryan Adams - Summer Of '69 (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 02:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D654F29DB29241034FF6F55D96E7B4B85E4D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406044   (478968) от 01.09.2020
+
+VA - DanceNet (1998) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Eurodance, Euro-Disco, Euro-House, Trance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking feat. Eric Singleton - You're My Heart, You're My Soul '98 (3:18)
+02. Ace of Base - Life is A Flower (3:43)
+03. The Tamperer feat. Maya - Feel It (3:14)
+04. Solid Harmonie - I Want You to Want Me (3:29)(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, Euro-House, TranceПродолжительность: 01:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C15D09E19B2C6DC12CF87043852930C7B2416B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 385233   (478425) от 08.09.2011
+
+Inna - I Am The Club Rocker (2011) [MP3|320 kbps]<Electropop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Momento
+02. Club Rocker
+03. House Is Going On
+04. Endless
+05. Sun Is Up
+06. W.O.W.
+07. Senorita
+08. We're Going In The Club
+09. July
+10. No Limit (Play & Win Club Mix)(   Читать дальше...   )2011Жанр: Electropop, DanceПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2DCB878F3B69D480EE582DDEBC372D5BCA430AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566728   (478335) от 31.07.2022
+
+Beyonce - RENAISSANCE (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'M THAT GIRL
+02. COZY
+03. ALIEN SUPERSTAR
+04. CUFF IT(   Читать дальше...   )Жанр: Pop, R&B, HouseПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2B7B696E1DAADC60020F4B0723280A613E2877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160157   (478196) от 23.08.2017
 
 VA - Future Soundz (2017) [MP3|320 Kbps] <Pop, Dance>
@@ -632,122 +754,6 @@ Radiorama - The 2nd Album [30th Anniversary Edition] (1987) Reissue, 2016, Analo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65816CCC28BFA68EC5F20FE6E12F5EBAFE9E8C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554685   (474323) от 02.08.2022
-
-The Chainsmokers - So Far So Good (+ Time Bomb) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fall
-02. Why Can't You Wait
-03. Time Bomb
-04. Riptide(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5780F36D02B3B806899A78095459D95F62373B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160687   (474141) от 25.08.2017
-
-VA - Festivalbar '78  (1978) 2LP [MP3|320 Kbps] <Electronic, Disco, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umberto Tozzi - Tu (4:02)
-02. Leano Morelli - Cantare Gridare... (3:31)
-03. Lina Savona' - Maya (3:50)
-04. El Pasador - Mucho Mucho (3:04)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 01:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A340E049436904EDB1BF9BF65BD151508469E44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160678   (474011) от 25.08.2017
-
-Sabrina - Golden Disco Hits (2003) [APE|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys (Summertime Love)
-02. Hot Girl
-03. Get Ready (Holiday Rock)
-04. Kiss(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA19597C609AD8868DC2BD75BC9E7D0369EB42FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245251   (473992) от 05.09.2018
-
-Ani Lorak (Ани Лорак) - Smile (2005) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Away
-02. Smile
-03. A Little Shot Of Love
-04. Car Song(   Читать дальше...   )Жанр: РорПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A57D1F2A6524500D942D370344DDE876052969
 ```
 
 https://mybot314.ru/tekegram_catalog/

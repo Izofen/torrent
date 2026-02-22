@@ -1,3 +1,32 @@
+###  Публикация: 1397522   (739900) от 21.07.2020
+
+Nat King Cole - The Quintessence, Vol.2: New York - Hollywood (1944 - 1946) 1998, 2CD, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739900.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Candy [2:13]
+02. You're Nobody 'Til Somebody Loves You [2:51]
+03. Don't Blame Me [3:25](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Piano JazzПродолжительность: 02:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A62CF4BB83F32D68371FC2052D4CEF9FE91DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283612   (739846) от 17.02.2019
 
 Paul Bley - Four Classic Albums (1954 - 1961) 2CD, 2016, Avid Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Freddie Hubbard - Fastball: "Live" At The Left Bank (1967) 2005, Hyena Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACB68AA6A2548138EBBFE785DD4306361A1F3F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776703   (735483) от 02.02.2025
-
-The Art Farmer Quartet - Warm Valley (1983) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moose the Mooche [4:37]
-02. And Now There's You [5:14]
-03. Three Little Words [4:55]
-04. Eclypso [5:32](   Читать дальше...   )Жанр: Bop, Hard Bop, CoolПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31197970887DD9F6F9EB0E7D9B69914267BF8239
 ```
 
 https://mybot314.ru/tekegram_catalog/

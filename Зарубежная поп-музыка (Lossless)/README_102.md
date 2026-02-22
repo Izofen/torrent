@@ -1,3 +1,32 @@
+###  Публикация: 1801504   (14924) от 11.06.2025
+
+VA - Some Great 20s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14924.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Benson Boone - Beautiful Things (3:00)
+002. Rose - APT. (2:49)
+003. Teddy Swims - Lose Control (3:30)
+004. Ed Sheeran - Azizam (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 05:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4701B24D3BC0DF5932159596EE89D34A5123E9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801813   (14744) от 13.06.2025
 
 VA - Magical Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -714,35 +743,6 @@ Mylene Farmer - 86/97 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F99572EEDC76537364E3D0DAE9A3AA98B9EEEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813391   (6918) от 19.08.2025
-
-VA - LOVE - Love Songs - Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - The Best (4:10)
-02. A-Ha - Take On Me (3:48)
-03. Roxette - Run to You (3:39)
-04. Frida Gold - Liebe ist meine rebellion (Radio Version) (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2A73C2018B9887F603AF2E85D7DAA7FEE70D23
 ```
 
 https://mybot314.ru/tekegram_catalog/

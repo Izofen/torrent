@@ -1,3 +1,29 @@
+###  Публикация: 1015082   (775600) от 09.05.2016
+
+Проекты - Facebook Mobile [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации вашего профиля на фейсбук.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953A4BDA8FD41DF30731538A039A3287A21EC8C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015079   (775598) от 09.05.2016
 
 Проекты - Pond5 - Fast Fashion Opener - 52188551 [AEP]
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D9ABD4D5810673EFC6DA26E38A41BF3D0C98661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017180   (762629) от 16.05.2016
-
-Проекты - VideoHive - Insurance Services Presentation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Insurance Services Presentation - презентация услуг страховой компании. Стильное решение для коммерческого использования. Простая установка и быстрая настройка! Используйте только те фрагменты, которые нужно или перегруппируйте по своему усмотрению.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7736EB60010A0C0FA526BA36724CB68F597F4F0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

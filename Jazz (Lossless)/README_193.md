@@ -1,3 +1,32 @@
+###  Публикация: 1057846   (473304) от 29.09.2016
+
+Masabumi Kikuchi - Susto +2 (1981) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Circle/Line [14:58]
+ 02.City Snow [07:42]
+ 03.Gumbo [10:15]
+ 04.New Native [15:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8317FEC39E728BB31B16044C5BE37803E35430F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057721   (473303) от 29.09.2016
 
 Dewa Budjana - Home (2005) Remastered, 2016 [FLAC|Lossless|tracks] <World Fusion,  Jazz-Rock>
@@ -717,41 +746,6 @@ Tiziana Ghiglioni - So Long Flores (2004) [FLAC|Lossless]<Jazz>
 06. Versailles [08:19]
 07. Overnight Sight [07:12]
 08. Flying Around You [08:29]Жанр: JazzПродолжительность: 01:06:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548211   (470031) от 17.09.2012
-
-Sarah-Jane Morris - August (2001) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Leave Me This Way [04:26]
-02. I Can't Stand The rain [04:06]
-03. Into My Arms [04:29]
-04. Chelsea Hotel [03:05]
-05. You Can't Put Your Arms Around A Memory [03:16]
-06. Piece Of My Heart [04:21]
-07. Blind Old Friends [04:47]
-08. Move On Up [04:38]
-09. Mercy, Mercy Me [05:01]
-10. Try A Little Tenderness [05:16](   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:42
 
 ## Скачать торент
 ```bash

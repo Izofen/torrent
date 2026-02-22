@@ -1,3 +1,32 @@
+###  Публикация: 1143200   (635510) от 18.06.2017
+
+VA - Ibiza Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tom Exo - Acqua Alta (Original Mix)  3:11
+02.  Frainbreeze & Cari - Stronger (Steve Allen & Enzo Remix)  3:59
+03.  Attila Syah & LTN - Bromo (Radio Edit)  4:25
+04.  Bogdan Vix & Lucid Blue - I Am Now (Radio Edit)  3:36(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F6AE4FCBAE10B0226109D176CBC079A4A2EFCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143238   (635118) от 18.06.2017
 
 VA - Uplifting Trance 2017 Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
@@ -716,35 +745,6 @@ Airwave - 20 Years - Remastered Classics (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C81E57175B397468D305F59ED93AA11C62BB271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296964   (608531) от 19.04.2019
-
-VA - True Hits Vol.3 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O.B.M Notion - Despite Everything (Extended Mix)
-02. Photographer - Infinity (Steve Allen Extended Remix)
-03. HyperPhysics - Nightwalker (Extended Mix)
-04. Michael Milov feat. Claire Willis - Anywhere With You (Tom Exo Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E1B34BAAE1E791E67F0615FFED577613C2FFC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

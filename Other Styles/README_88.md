@@ -1,3 +1,32 @@
+###  Публикация: 1137518   (667810) от 26.05.2017
+
+Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richter & Woodapple) (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take a Deep Breath - Luke Woodapple
+02. Le Onde - Luke Woodapple
+03. Metamorphosis II - Luke Woodapple
+04. Departure (Lullaby) - Luke Woodapple(   Читать дальше...   )Жанр: Classical, Piano, New AgeПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27117DA459CC6D3842820E0718277DEDB09D227A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 339494   (667318) от 20.05.2011
 
 Orquestra Club da Valsa - As Mais Belas Valsas Brasileiras (1999) [MP3|320 Kbps] <Instrumental, Latin, Easy Listening>
@@ -737,35 +766,6 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CADDB831BFD28C4A9325062B5F02323159DE5DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902762   (659611) от 29.05.2015
-
-Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quixotic (Scattle Remix) [03:52]
-02. Dust (Carpenter Brut Remix) [04:59]
-03. Bloodline (M|O|O|N's Extra Cheese Mix) [06:53]
-04. Roller Mobster (Scattle Remix) [03:59](   Читать дальше...   )Жанр: OSTПродолжительность: 03:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4398509BD462B3276C4A74461882B4064D6278E
 ```
 
 https://mybot314.ru/tekegram_catalog/

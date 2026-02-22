@@ -1,3 +1,31 @@
+###  Публикация: 1558978   (527841) от 23.06.2022
+
+Noir – Dark Mode for Safari 2022.1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Noir — это расширение для Safari, которое автоматически добавляет темный режим на каждый посещаемый вами веб-сайт.
+Это делает просмотр веб-страниц ночью намного лучше. С Noir вы больше никогда не будете ослеплены яркими веб-сайтами.
+И результаты тоже выглядят великолепно. Noir создает собственный темный стиль для каждого посещаемого вами веб-сайта на основе цветов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2022Разработчик: © 2021-2022 Jeffrey KuikenПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26BFAD613C49698F678A6693FB60DFF8B727004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559046   (527840) от 23.06.2022
 
 OmniPlayer Pro - Media Player 2.0.3 [Multi]
@@ -658,35 +686,6 @@ Moto GP. Сезон 2017. Monster Energy Grand Prix Ceske Republiky. Этап 10
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0DC8381331898A88714F4FB8176C178BB1E0F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156194   (527643) от 07.08.2017
-
-VA - Ibiza Calling 2017 [MP3|320 Kbps] <Minimal, Tech House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony S - Broken (Angelo Ferreri remix) 06:03
-02. Staniz - Waves (remix) 06:20
-03. Shashaf & Dreve - Revenge (Rethoric Radio remix) 05:57
-04. GRiSHA - The Difficult Conditions (original mix) 06:15(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 04:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681DC0F94F3E425EED07B80ED310EFB6425E111F
 ```
 
 https://mybot314.ru/tekegram_catalog/

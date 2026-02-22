@@ -1,3 +1,177 @@
+###  Публикация: 1668144   (174595) от 11.10.2023
+
+Чёрный Кофе - Белый Ветер (2002) [FLAC|Lossless|image + .cue] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Убытие
+02. Я Не Ранен - Я Убит
+03. Девятый День(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F14EE1F259D198B5DC0EF4D437637AA29DCA3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430188   (174233) от 09.12.2020
+
+VA - Ленинградский Рок-клуб (1988) Записи 1986 - 1987 гг. [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Alternative Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_174233.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Игры - Освобождение (I Want To Be Free)
+A2 Алиса - Мое Поколение (My Generation)
+A3 Присутствие - Выйди Вон (Get Out)
+A4 АВИА - Шла Машина Грузовая (The Passing Lorry)(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668444   (174113) от 12.10.2023
+
+Fraction - Moon Blood (1971) Reissue, 2023, RidingEasy Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanc-Divided [00:03:51]
+02. Come Out Of Her [00:04:56]
+03. Eye Of The Hurricane [00:08:56]
+04. Sons Come To Birth [00:05:26](   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E6BE4763BF603F1841D0AD24D92C9BD36FC4A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668283   (174097) от 12.10.2023
+
+Living Dead Girl - Exorcism (2021) Deluxe Edition, 2023, Buried Alive Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Metal, Female Vocals>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive [00:03:32]
+02. Beautiful [00:03:31]
+03. Give Up [00:04:14]
+04. Exorcism [00:03:53](   Читать дальше...   )Жанр: Alternative Metal, Female VocalsПродолжительность: 01:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903528549CE04CA1320BE4C22C5DD6A5BAD4F5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668550   (174070) от 12.10.2023
+
+Ronnie Atkins - Trinity (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trinity (4:30)
+02. Ode To A Madman (4:33)
+03. Paper Tiger (4:00)
+04. Soul Divine (5:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A146A1325DD9A95DDF512B851D48FD38F8097640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668447   (173960) от 12.10.2023
+
+John Lennon - Imagine (1971) The Raw Studio Mixes, 2023, UMC [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (Take 10 / Raw Studio Mix) [00:03:12]
+02. Crippled Inside (Take 6 / Raw Studio Mix) [00:03:50]
+03. Jealous Guy (Take 29 / Raw Studio Mix) [00:04:21]
+04. It's So Hard (Take 11 / Raw Studio Mix) [00:02:42](   Читать дальше...   )Жанр: RockПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A348C11DC79094EEEDC9EE0B6648E8279737794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668448   (173945) от 12.10.2023
 
 John Lennon - Imagine (1971) The Elements Mixes, 2023, UMC [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -568,177 +742,6 @@ Bullet - шведская хэви-метал группа, основанная
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669236   (173003) от 15.10.2023
-
-The Who - Who’s Next (1971) Steven Wilson remix, 2023, UMC [FLAC 24/96|Lossless|tracks] <Hard-Rock, Classic-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baba O’Riley (5:04)
-02. Bargain (5:35)
-03. Love Ain’t for Keeping (2:12)
-04. My Wife (3:36)(   Читать дальше...   )Жанр: Hard-Rock, Classic-RockПродолжительность: 01:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46A71DF904B1B41813B31AF1CEF6D758105F421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669051   (173002) от 15.10.2023
-
-Meduza - Meduza (2023) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance, EDM, House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD-01 - MEDUZA
-CD-02 - MEDUZAЖанр: Electronic, Dance, EDM, HouseПродолжительность: 2 CD, 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D979D041939552D4B7BF05ADA9582EAA061ED578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669173   (172981) от 15.10.2023
-
-VA - Машина Времени / Самоцветы - Песни Из Кинофильма «Душа» / Зеркало И Шут (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172981.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Машина Времени - За Тех, Кто В Море
-(А. Кутиков, А. Макаревич)
-A2 Машина Времени - Путь
-(А. Макаревич)(   Читать дальше...   )Жанр: Rock, PopФормат: FLAC, TracksПродолжительность: 00:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA2192E2F02FFA62F1DCFADE4DF814872045F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669484   (172878) от 16.10.2023
-
-Isengard - Høstmørke (1995) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172878.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Neslepaks
-A2 Landet Og Havet
-A3 I Kamp Med Kvitekrist
-A4 I Ei Gran Borti Nordre Asen(   Читать дальше...   )Жанр: Black Folk MetalПродолжительность: 00:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A7C03D6F8C5E8D7848014A49042F67B3AA0911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669651   (172684) от 17.10.2023
-
-Sieges Even - Steps (1990)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Progressive Thrash Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172684.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1a Alba (Instrumental)
-A1b Epitome
-A1c Apotheosis
-A1d Seasons Of Seclusion (The Prison)(   Читать дальше...   )Жанр: Progressive Thrash Metal, Progressive MetalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8923432A52D32990EDE7E67455F82C62975E5B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669512   (172683) от 17.10.2023
-
-Isengard - Traditional Doom Cult (2016) EP [FLAC|24/192|tracks|Vinyl-Rip] <Black Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172683.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Light
-B1 The FrightЖанр: Black Folk MetalПродолжительность: 00:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A886DDBFF03D3C7ECFAC8C49F90F5501A1DFB3C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

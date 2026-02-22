@@ -1,3 +1,32 @@
+###  Публикация: 1364291   (936399) от 03.03.2020
+
+Felix Slovacek - Con amore (1998) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run To You
+02. Con amore
+03. Tell Him
+04. My Heart Will Go On(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A02CC919E7CD474F332A53F534F4727F505C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364472   (936391) от 03.03.2020
 
 Max Arnald - Piano Covers (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
@@ -779,41 +808,6 @@ Timothy Wenzel - 4 альбома (2011-2014) [MP3|320 кб/с]<New age, Relax, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38509A32A7EE3FC48ACA66F2F470AC8882E11C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 233622   (934182) от 20.01.2015
-
-Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New age, Ethnic, Fusion>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2014 - Kashi. Songs From the India Within (with Chintan) --- добавлен 18.01.2015
-2010 - Luminous Secrets (with Band)
-2008 - In Concert (with Band)
-2006 - Taranga
-2006 - Ahir (with Chintan)
-2005 - Yatri - Mystics of Sound
-2003 - Water Down the Ganges (with Manish Vyas)
-2003 - Shiva Moon (Remixed by Maneesh De Moor)(   Читать дальше...   )Жанр: World, New age, Ethnic, FusionПродолжительность: 17:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB1091317CB88BBEEE2A7B584D1820F8A1A6DD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

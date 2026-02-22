@@ -1,3 +1,32 @@
+###  Публикация: 1108106   (864647) от 24.02.2017
+
+Freddie Hubbard - Anthology: The Soul-Jazz And Fusion Years (1966-1982) 2CD, 2002, Soul Brother Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864647.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Return Of The Prodigal Son [05:42]
+02.Little Sunflower (Original) [07:52]
+03.Latina [04:48](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBEEBBECCCAAE3846F49A0CB487BA6EC1123E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874306   (864607) от 02.03.2015
 
 V.A. - Best Of Audiophile Sax 2 (2008) [FLAC|Lossless]<Jazz, Instrumental>
@@ -744,36 +773,6 @@ Oliver Nelson - Stolen Moments (2015) [FLAC|Lossless]<Jazz, Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04C5147ACE006E8664DCD23F2D6EF74E61DDCCA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874879   (861375) от 04.03.2015
-
-Nikolay Sidorenko Trio - Troika (2014) [FLAC|Lossless]<Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Abkhazia
-02. To Mom with Love
-03. Carusel
-04. Clown
-05. Tunes(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2738D9AEDA4C5936A712CB978EF46BFA45A1B12
 ```
 
 https://mybot314.ru/tekegram_catalog/

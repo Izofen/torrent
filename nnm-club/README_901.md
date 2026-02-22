@@ -1,22 +1,22 @@
-###  Публикация: 1446054   (1033319) от 07.02.2021
+###  Публикация: 1607544   (1034023) от 11.03.2023
 
-Goldie Ap‪p 1.6 [En]
+Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.8.39/dlc) License GOG [Gold Edition]
 
->>Программы для macOS
->>Графика для macOS
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033319.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Goldie Ap‪p поможет вам легко визуализировать или рассчитать золотое сечение и многие другие пропорции прямо на экране монитора.Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Ignazio LacitignolaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+2036 год. Прошло четверть века с тех пор, как ядерная война опустошила землю. Москва лежит в руинах, и несколько тысяч выживших вынуждены бороться за существование в тоннелях метро. Их не убила отравленная природа и мутировавшие чудовища, они пережили сверхъестественный кошмар и ужасы гражданской войны.Тип издания: LicenseРазработчик: 4A GamesЖанр: Шутеры, От первого лица, ФантаcтикаЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A11F9D1CB4E45E8154AA48DA1C52AAE245ECF5FA
+magnet:?xt=urn:btih:09C67BA24F476E2867A7F50108DC82B86149BBA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445952   (1033318) от 07.02.2021
+###  Публикация: 1094696   (1034022) от 11.03.2023
 
-MSM Schmidt - Life (Laika Records) (2017) [FLAC|Lossless|WEB-DL|tracks] <Fusion>
+Lineage II: Essence  (2015) [Ru] (P.221116.230307.1) License (обновляемая)
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033318.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Trance - 06:01
-2. Saudade City - 07:32
-3. Vista (Dedicated to Allan Holdsworth) - 08:19
-4. Life (Long Version) - 08:11(   Читать дальше...   )Жанр: FusionПродолжительность: 01:10:36
+Lineage II: Essence  - легендарная онлайн игра, проверенная временем, собравшая более 6 миллионов пользователей из разных стран, одна из самых популярных в мире массовых ролевых онлайн-игр. Проект, пользующийся небывалым успехом, стал примером для подражания, но ни один клон не завоевал стольких поклонников. Секрет прост: бескрайний мир Lineage 2 полон таинственных (   Читать дальше...   )Тип издания: LicenseРазработчик: NCSoftЖанр: Adventure, MMOFPS, Симулятор, Online-gamesЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2D302C210098EF59B6A2A4AAAE53B3A91C5C1EB
+magnet:?xt=urn:btih:EFAED1B4C61F05EAA70596FE514022E9C9815F70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446057   (1033317) от 07.02.2021
+###  Публикация: 1445075   (1034021) от 04.02.2021
 
-Дмитрий Вишневский | Почемучкины книжки. Что происходит с мусором? (2016) [PDF]
+Роберто Пьюмини | Астралиск (2020) [EPUB]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033317.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга популяризатора науки Дмитрия Вишневского «Что происходит с мусором?» расскажет о том, куда же девается весь тот мусор, который мы выбрасываем каждый день: как его собирают, сортируют, перерабатывают. Во всех этих процессах задействовано множество любопытных устройств: мусоропроводы, мусоровозы, мусоросортировочные заводы, заводы мусоросжигательные, станции (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+Художнику Сакумату поручено расписать изнутри стены дворца, в которых проходит вся жизнь одиннадцатилетнего мальчика, Мадурера. Так начинается путешествие, увлекшее и целиком поглотившее их обоих.
+Общение мальчика и художника вырастает в удивительную дружбу, а мир, рождающийся из их совместного творчества, полный образов, красок и волнующих событий, становится не (   Читать дальше...   )Жанр: Сказки, Приключения для детейПеревод: Татьяна СтамоваФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E1ABAF362643997D8DED8142AF21556945D9CCD
+magnet:?xt=urn:btih:1888264ED5800DA1DBBF6E6E840F05495F41AC5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +77,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445378   (1033316) от 07.02.2021
+###  Публикация: 1445072   (1034020) от 04.02.2021
 
-Bill Fisher - Mass Hypnosis And The Dark Triad (2020) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
+Дмитрий Блейк | Пыльца фей (2017) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиннадцатилетний Майкл пережил серьезную трагедию. Его родители погибают. Все считают это несчастным случаем, но сам мальчик иного мнения, так как накануне их гибели он видел реалистичный страшный сон. Попытка разобраться в произошедшем и раскрыть тайну того, чем занимались его родители на самом деле, приводит Майкла в старый заброшенный дом. Там мальчик сталкивается (   Читать дальше...   )Жанр: Героическое фэнтези, Книги для подростковФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFBDF1D977D23CCC31A72739FE679D05B1EEBCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445038   (1034019) от 04.02.2021
+
+Aeternam - Al Qassam (2020) [FLAC|Lossless|image + .cue] <Symphonic Metal, Folk Metal, Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033316.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.All Through the Night 03:21
-2.Mirror of Tomorrow 02:47
-3.Celador 04:44
-4.The Dark Triad 04:34(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:29:52
+01. Al Qassam
+02. The Bringer Of Rain
+03. Lunar Ceremony
+04. Ithyphallic Spirits Of Procreation(   Читать дальше...   )Жанр: Symphonic Metal, Folk Metal, Melodic Death MetalПродолжительность: 00:44:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:913265C0A51CF6924D3112074A777486A7734FDC
+magnet:?xt=urn:btih:1BBD2D859E1F34C1C1819BD1445D8ADA782853E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,25 +132,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446013   (1033315) от 07.02.2021
+###  Публикация: 1444968   (1034018) от 04.02.2021
 
-Екатерина Амфилохиева | Чудеса света. Рукотворные шедевры (2014) [PDF]
+Pull Down The Sun - Of Valleys And Mountains (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, Sludge Metal, Post Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aka (1:31)
+02. Whare Ra (5:13)
+03. Of Valleys And Mountains (4:30)
+04. Turehu (5:10)(   Читать дальше...   )Жанр: Progressive Metal, Sludge Metal, Post MetalПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5707290D1A052408CC51638CA3613A8179C5B634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445164   (1034017) от 04.02.2021
+
+Беатрикс Поттер | Страна детства. Как сороконожка ходила в гости (2015) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033315.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга «Чудеса света. Рукотворные шедевры» рассказывает о самых удивительных творениях рук человеческих — с древних времен до наших дней. Издавна люди поражались фантастическим сооружениям, которые называли «чудесами света». Сначала таких «чудес» было всего семь. В дальнейшем этот список вырос и изменился. Самые выдающиеся сооружения, тысячелетиями вызывающие удивление (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+Вашему вниманию предлагается сборник детских ярко иллюстрированных сказок. Для чтения взрослыми детям. Для самостоятельного чтения рекомендуется детям с 7 лет.Жанр: Детская литература/СказкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C50A047E7A793B97B955F1834D6E53748C34692
+magnet:?xt=urn:btih:1BF1D0B1CB030E938423D2DEAC1D7861842E7E96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,83 +187,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445878   (1033314) от 07.02.2021
+###  Публикация: 1445134   (1034016) от 04.02.2021
 
-VA - Future House: DJ Harmony Mix (2021) [MP3|320 Kbps] <Future House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корифеи жанра танцевальной музыки одарили нас еще одним чудесным релизом, содержащим все фирменные приметы их стиля. Февральский выпуск DJ микса в новомодном стиле Future House наверняка понравится всем ценителям электронной музыки.001. Protoculture - Out Of Reality
-002. Oxidaksi - Evolution
-003. Klartraum - Travel Pussy
-004. M Da Gawd - Nagas In Space(   Читать дальше...   )Жанр: Future House, ElectroПродолжительность: 10:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB028D19405D6CC0991E7E0337AEDEAC1E4D5F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446048   (1033313) от 07.02.2021
-
-Сергей Цеханский | Энциклопедия техники для мальчиков (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033313.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1783 г. в воздух поднялся первый воздушный шар. Спустя более чем полтора века, в 1936 г., совершил первый полет самый большой в мире дирижабль. А еще через 21 год был произведен запуск первого искусственного спутника Земли. Так от примитивного летательного аппарата, передвигавшегося в воздухе на относительно небольшой высоте, ученые пришли к созданию техники, которая (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851C6E53111AC49919E668EABE49E1531E37CA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445890   (1033312) от 07.02.2021
-
-The 5th Galaxy Orchestra - The Land of Forgotten Tales (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Dream Pop>
+VA - Liquid Drum & Bass Sessions, Vol. 13 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033312.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Open Road Ahead (5:13)
-02. My Shiny Old Space Car (4:01)
-03. Dreaming Telescopes (5:08)
-04. Morning View (5:46)(   Читать дальше...   )Жанр: Balearic, Chillout, Dream PopПродолжительность: 00:58:59
+01. The Extravabaseza - Far Away (Original Mix) (06:26)
+02. Mystific - Letters For Okamura (Original Mix) (05:24)
+03. MSdoS - La Boutique (Original Mix) (06:21)
+04. The Magget - Conveyor Belt (Sonicblast Remix) (03:12)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:22:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77BB8C0132206EFEAA6B4C8A22EA73C7CDDB8C80
+magnet:?xt=urn:btih:44BD97F37E6DA989CC6E5681AC1332C6D5C2E4D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,26 +216,361 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446065   (1033311) от 07.02.2021
+###  Публикация: 1445145   (1034015) от 04.02.2021
 
-XYLIO Future DJ Pro 1.8.4 [En]
+Андрей Кутерницкий | Золотая змея (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой пастух по имени Элли пас овец среди гор и камней и неожиданно услышал в своей голове голос, раздающийся неизвестно откуда с призывом о помощи. Оглядевшись, он заметил на земле придавленную камнем змею необычного золотого цвета. Превозмогая страх, ведь такая змея была олицетворением смерти, он убрал камень. В благодарность за спасение, змея наделила Элли даром (   Читать дальше...   )Жанр: Детская литература. РадиоспектакльПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A38B12EF321E13D7E60ADF7FE8BABEFCC1E5B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445148   (1034014) от 04.02.2021
+
+VA - Liquid Drum & Bass Sessions, Vol. 14 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Defense - Early Morning Sun (Original Mix) (06:34)
+02. nCamargo - Evenness (Original Mix) (05:21)
+03. Soulful Nature - Still Love U (Original Mix) (05:03)
+04. Fishy - World Keeps Turning (Original Mix) (05:19)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04B71E573B4E76B67DE3806BB2405E6B0179F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445156   (1034013) от 04.02.2021
+
+Михаил Колодочкин | Мужчинам до 16 – об автомобиле (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга в доступной для юного читателя форме объясняет для чего понадобилась мультиплексная проводка, что отличает антирадар от радар-детектора, что измеряют в лошадиных силах, а так же многие другие авто- мобильные понятия и термины. Эта книга написана для тех, кому интересно познавать, мечтать и стремиться создать что-то новое.Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91BD73BD03A828BD8BF81E218BFED284471B9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445126   (1034012) от 04.02.2021
+
+VA - Liquid Drum & Bass Sessions, Vol. 12 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bronski - Something (Original Mix) (05:23)
+02. Phase 2 - Glissando (Original Mix) (06:01)
+03. Guillotine - Where You Are (Original Mix) (04:29)
+04. Rolfey - Soul Mate (Original Mix) (05:01)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB30B3F9420F6ED825D69F4CEB1F3C653DB70231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445076   (1034011) от 04.02.2021
+
+Альберт Иванов | Приключения Хомы и Суслика (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034011.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу Альберта Иванова «Приключения Хомы и Суслика. Сказки» вошли сказки о Хитрой Вороне, о Хоме и Суслике и другие истории. Этих сказочных героев можно увидеть на экране, ведь по большинству сказок были сняты мультфильмы: «Приключения Хомы», «Раз – горох, два – горох», «Погоня», «Хитрая Ворона», «Крылья, ноги и хвосты», «Клетка», «Страшная история», «Удивительные (   Читать дальше...   )Жанр: Сказки, Приключения для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7A2204052AEA0865A9ADC9FEE1C3ACE69C7326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445111   (1034010) от 04.02.2021
+
+VA - Liquid Drum & Bass Sessions, Vol. 11 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joakim Carley, Reece Lemonius - Warrior (Still A Fighter) (Original Mix) (03:41)
+02. Peyo - Ceremony (Original Mix) (05:47)
+03. Dan Guidance, Marvel Cinema - Sumerians (Original Mix) (06:38)
+04. Nectar - Time To (Original Mix) (05:25)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C637053100252822A65567E705F98962CBCF31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445137   (1034009) от 04.02.2021
+
+Vered Dekel - Make Way For Love (2004) [FLAC|Lossless|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034009.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One Day I'll Fly Away - 05:43
+2. It Never Entered My Mind - 03:58
+3. Landslide - 05:32
+4. To Dance - 05:57(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3730D7410132217FC2BEF50D0DB2EC624A397690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445157   (1034008) от 04.02.2021
+
+VA - Liquid Drum & Bass Sessions, Vol. 15 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Illusion - Imperia (Original Mix) (05:25)
+02. Geoff Keating - Born Again (Original Mix) (04:44)
+03. Horidark - This Craft (Original Mix) (03:27)
+04. Midst - Touch The Sky (Original Mix) (04:45)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC99CA27F23E16489A5A9CA6C117C5EDDB8C20BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444955   (1034007) от 04.02.2021
+
+VA - Liquid Drum & Bass Sessions, Vol. 6 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence Groove - Shine Through (Original Mix) (05:40)
+02. Al Menos - Could Be, Can Be (Original Mix) (07:28)
+03. Ha-Zb - Inside Us (Original Mix) (04:59)
+04. Madcap - Existence (Original Mix) (06:27)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F9F17485036EA7C2AEB7A89753C07FDC292365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444991   (1034006) от 04.02.2021
+
+VA - Liquid Drum & Bass Sessions, Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Ransome, SynthForce - On The Seafront (Original Mix) (06:21)
+02. Liquid Waves - I Don't Know Why (Original Mix) (05:24)
+03. Shiva, mr porter - She Walks In The Fire (Revolver & Leona Remix) (05:17)
+04. Abstract Illusion - Never Gonna Stop (Original Mix) (05:16)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7247A464AAFE3A77574CAA6D2C9EBAACE4E2B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445028   (1034005) от 04.02.2021
+
+Wig Wam - Never Say Die (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Second Crusade (Intro, Instrumental)
+02. Never Say Die
+03. Hypnotized
+04. Shadowx Of Eternity(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55632C852E97885DBCCFE87AE5351CDCC2CC359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445023   (1034004) от 04.02.2021
+
+Google Chrome 88.0.4324.146 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951439A6FE5D65E2DF7DB88E1867FB47C49FE357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445063   (1034003) от 04.02.2021
+
+Big Sur Cache Cleaner 16.1.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033311.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Future DJ Pro - флагманский продукт от компании XYLIO, упакованный новейшими профессиональными DJ функциями, которые отвечают потребностям как профессиональных, так и начинающих ди-джеев.
-Future DJ Pro - диджейское приложение для профессионального микширования треков. Приложение может микшировать музыку в режиме реального времени как в ручном так и в автоматическом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2021Разработчик: XYLIO INFO SRLПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+Big Sur Cache Cleaner - это отмеченный наградами инструмент общего назначения для macOS. BSCC упрощает обслуживание системы с помощью простого интерфейса для многих функций macOS. Как новички, так и опытные пользователи оценят мощный набор инструментов, который предоставляет BSCC. Big Sur Cache Cleaner - один из ведущих в мире инструментов для обслуживания, который (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2021Разработчик: Northern SoftworksПоддерживаемая ОС: macOS 10.4 - macOS 11.0.1Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:264B1CAB74193D180DC27694A1B9E5697A8674FE
+magnet:?xt=urn:btih:28C322FEE24ED92EBE2C840F2A8CAA6C8F4FC8D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445869   (1033310) от 07.02.2021
+###  Публикация: 1445000   (1034002) от 04.02.2021
 
-VA - The Magic Of The Yellow Day (2021) [MP3|320 Kbps] <Ambient, New Age>
+VA - Liquid Drum & Bass Sessions, Vol. 9 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033310.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Музыкальный микс "The Magic Of The Yellow Day" встретит Вас умиротворенной атмосферой с совершенным медитативным саундом. Хорошая подборка композиций для отдыха и приятного времяпрепровождения наедине с близким человеком.01. Monoder - None Multiplied By Many
-02. Substak - Vita Brevis
-03. Marco Monteverde - Cosmos Meditation
-04. Sami Sivananda - Pure Relaxation(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 07:05:06
+01. Redemptive - Within Nature (Original Mix) (07:52)
+02. Payback - Love So Blind (Original Mix) (05:44)
+03. CHILL COLLECTIVE - L.S.D (Original Mix) (05:16)
+04. Critical Event, Azuto - Changes (Original Mix) (06:18)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:16:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF6677FB4D58BE755ED59FE16847F7F78324DB63
+magnet:?xt=urn:btih:E2B442A4A402F0D0F79365001C846D9A2B29D8BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,27 +607,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446096   (1033309) от 07.02.2021
+###  Публикация: 1445153   (1034001) от 04.02.2021
 
-Александр Тихонов | Энциклопедия малыша. Первая энциклопедия для самых маленьких (2017) [PDF]
+Петр Волцит | Большая энциклопедия юного эколога (2017) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033309.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге "Первая энциклопедия для самых маленьких" собраны простые и интересные даже самым маленьким рассказы о животных, о нашей планете, о смене времен года, о динозаврах и о многом другом. Малыши, которые уже научились читать, смогут сами прочитать текст, данный крупным шрифтом. Запомнить прочитанное помогут замечательные яркие рисунки.
+Мы все – немножко экологи. Ведь каждому хочется видеть на улицах зелёные деревья, жуков и бабочек, слышать пение птиц и с волнением ждать, когда зацветёт посаженный под окнами куст сирени. Всех нас тревожит будущее природы: останется ли наша планета такой же зелёной и живой, как сейчас? Но, чтобы в полной мере наслаждаться общением с природой, чтобы грамотно охранять (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F913D7CBFD4DAE29CCF515BC59030EEB728FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445001   (1034000) от 04.02.2021
+
+VA - Liquid Drum & Bass Sessions, Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Physics - Far Away (Original Mix) (06:18)
+02. Audioholic - Northside Funk (Original Mix) (05:52)
+03. Tony Future - Chinas (Original Mix) (06:40)
+04. Afferent - Close To You (Original Mix) (04:34)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3EEE9CA47D878751DE62E66EB3C15C70361DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444748   (1033999) от 04.02.2021
+
+Фонд Иоанна Чудотворца (изд.) | Не печальтесь, не падайте духом, я с вами. [Свидетельства о помощи и почитании Иоанна Чудотворца] (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иоанн Чудотворец, к сожалению, ещё не все знают это удивительное имя. Но те, кто узнал, однажды обратившись к нему, уже не расстаются с этим дивным небесным помощником и верным другом.
 
-Для старшей группы (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+Наша книга посвящена: Великому чудотворцу XX века; его помощи людям; почитанию святого в различных уголках нашей прекрасной планеты; созданию музея Иоанна Чудотворца в России.
+(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48765755E057E0D507AA66A3868708A5CFEC63DD
+magnet:?xt=urn:btih:DF3C2F22B26D63158B3425CC5C81F1781F46122D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,422 +691,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446031   (1033308) от 07.02.2021
+###  Публикация: 1445081   (1033998) от 04.02.2021
 
-Своя игра (07.02.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: ОтсутствуютПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE8849FF1FD71DBA69FD89342662E8BAFED6EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445881   (1033307) от 07.02.2021
-
-VA - Event Of The Week: Progressive Trance Mix (2021) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это красивая музыка души, это новая гениальная симфония современного мира. Энергичный стиль музыки, который пробирает своим звучанием до глубины души, тела и мозга, это психическое состояние, при котором сознание человека воспринимает лишь малую долю того, что творится вокруг него. Под транс хочется танцевать, его хочется слушать вновь и вновь, он разрушает границы (   Читать дальше...   )001. Allen Watts - High Voltage
-002. Tim Besamusca - Lunaris
-003. Ram - Clockwork Orange
-004. Eldream & Mark Wild - Aura(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 12:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E80DA6BE649DB6A3E6C840BEDBBEDE53EFAA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445849   (1033306) от 07.02.2021
-
-Templates for Pages – DesiGN 7.1  [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткий взгляд на резюме - это все, что нужно потенциальному работодателю для формирования мнения! Шаблоны Resume Lab for Pages от компании Jumsoft предоставляют множество видов резюме, чтобы вы могли представить себя с профессиональным, привлекающим внимание и запоминающимся резюме, для привлечения внимания вашего потенциального работодателя.
-Разнообразие стилей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: JumsoftПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767443C69F87842E0A1268DB85695C75D0D0BF59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445911   (1033305) от 07.02.2021
-
-Первая передача на НТВ. Автомобильная передача (07.02.2020) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033305.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC61A868C3D2BBF6217969D48B45C7AC3EFBD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445834   (1033304) от 07.02.2021
-
-Angelus Apatrida - Angelus Apatrida (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Everdawn - Cleopatra (2021) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033304.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Indoctrinate
-02. Bleed The Crown
-03. The Age Of Disinformation
-04. Rise or Fall(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:35
+01. Ghost Shadow Requiem (05:42)
+ 02. Stranded in Bangalore (03:26)
+ 03. Cleopatra (05:37)
+ 04. Your Majesty Sadness (04:55)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:48:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C459DB35423981DC6E7F320FAE0A49F101D73689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445960   (1033303) от 07.02.2021
-
-VA - Minimal Jam: Techno Clubbing Set (2021) [MP3|320 Kbps] <Minimal, Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличная подборка клубного электро техно от известных ди-джеев европы. Лонгплей наверняка будет интересен поклонникам жанра и просто слушателям, которые находятся в постоянном поиске чего-нибудь нового из мира электронной музыки.001. Jks - Emergence
-002. Lorenzo Colombini - Pasec
-003. Melt - Centrum Beats
-004. Pure Infinity - Pulse(   Читать дальше...   )Жанр: Minimal, Techno, Tech HouseПродолжительность: 11:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C2BB69DF0827DD0C7862B338FC208E1A1F2F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445908   (1033302) от 07.02.2021
-
-Miles Davis - Three Classic Albums Plus (1956 - 1961) 2019, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033302.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. 'Round Midnight [5:58]
-02. Ah-Leu-Cha [5:54]
-03. All Of You [7:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED3EE8BC4DCCBF1630A1D7CAD560385E39B66EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445880   (1033301) от 07.02.2021
-
-VA - Flash Dance Hit: Set Electro House (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неиссякаемое число звуковых инструментальных проигрышей, легкое и не утомляющее звучание глубоких басов и чувственный вокал, которому на альбоме предоставляется не последняя роль. Музыкальный микс "Flash Dance Hit" затронет струны души слушателя своей "танцевальностью" и позитивным настроем.001. Urban Life - Love City
-002. Bart B More And Tai - Night Bus
-003. Superfitness - Only You
-004. Albert Breaker - Birdo(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 09:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222E137E82DC4918EB63615F2A54FDEE7B22EDDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445889   (1033300) от 07.02.2021
-
-The 5th Galaxy Orchestra - From Venus to Mars (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Nu-Disco>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciel Ouvert (5:22)
-02. Approaching Arizona (3:51)
-03. Crystal Teardrops (4:14)
-04. The Fire of Love (5:10)(   Читать дальше...   )Жанр: Balearic, Chillout, Nu-DiscoПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA19BB564F404076C259BB2DAEB685ECDF67184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445842   (1033299) от 07.02.2021
-
-WaiFu2‪x 2.10 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033299.jpg" />
-</div>
-
-
-###  Подробнее
-
-WaiFu2‪x это -  приложение для конвертирования изображения с высоким разрешением, для искусства в стиле аниме, с использованием нейронных сетей.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2021Разработчик: Beijing IncaseDo Education Technology Co., Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED29C249A7778661E30B27D797C7978725BAFBA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445891   (1033298) от 07.02.2021
-
-The 5th Galaxy Orchestra - The Return to Planet Nostalgia (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Earth (3:01)
-02. Life Is so Wonderful as You (5:01)
-03. First Call Memories (3:45)
-04. Isabella's Dream (5:41)(   Читать дальше...   )Жанр: Balearic, Chillout, LoungeПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E8C13EE68803C18C472174BCD450092C69D1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445879   (1033297) от 07.02.2021
-
-VA - Funky House: Crazy Disco Party (2021) [MP3|320 Kbps] <Funky House, Disco House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свежий музыкальный симбиоз танцевальных стилей Disco и Electro House в танцевальном сборнике "Crazy Disco Party" начинает будоражить разум своего слушателя уже с начала первого трека. Музыкальные композиции, вошедшие в микс прекрасно сбалансированы, а также крайне легки для слуха. Саунд микса получился не менее насыщенным и необычайным, чем само содержание (   Читать дальше...   )001. Avrupts & Llolita - Funky Fever
-002. Bass Station - Funky World
-003. Namy F - Bright Eyes
-004. Laser King - Burning Up(   Читать дальше...   )Жанр: Funky House, Disco House, DanceПродолжительность: 08:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3819002B1D16CD94FD9E5129B28E2AD6F0416BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445819   (1033296) от 07.02.2021
-
-MNEKiNG - White After Black (2020) [FLAC|Lossless|WEB-DL|image + .cue] <Acid, Electronic, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denk mit deinem Kopf / Думай головой
-02. Dispute / Спор
-03. Busy night crossroads / Оживленный, ночной перекресток
-04. Flashing half-stations / Мелькание полустанков(   Читать дальше...   )Жанр: Acid, Electronic, Experimental, IndustrialПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4D8F851FADC1DD6AFEF2EC91D7F6822FC9D272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445886   (1033295) от 07.02.2021
-
-VA - Pure Retrowave, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phaserland & Nikki Dodds - Hot Stunner (Original Mix) (3:26)
-02. Freeweights - Lightweight (Original Mix) (4:32)
-03. Lghtnng - Sharks (Original Mix) (4:01)
-04. Adal & Freja - Fire To You (Original Mix) (3:19)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D86FC804E54C9CA3364C1D5EE9221572EA4C4EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446058   (1033294) от 07.02.2021
-
-OmmWriter 1.66 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033294.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmmWriter - скромная попытка вернуть себе то, что технология вырвала у нас сегодня: наша способность концентрироваться.
-OmmWriter - это инструмент, который позволяет снова писать в удовольствие, позволяя пользователям оставаться наедине со своими мыслями; Сконцентрироваться и писать без отвлечения. OmlWriter - это нечто большее, чем текстовый процессор.
-Секрет OmmWriter (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: Herraiz Soto & Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D52F476E236037454FD1753AE70DB26F699284
+magnet:?xt=urn:btih:1B8DDFB3ED6C165EF317A468ADF985548EFA2DA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

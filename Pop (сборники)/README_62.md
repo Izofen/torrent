@@ -1,3 +1,32 @@
+###  Публикация: 917694   (589047) от 12.07.2015
+
+VA - Дискотека забытых хитов (зарубежная) - 14 (2015) [MP3|245 - 268 кб/с]<Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugh Bullen - Night Girl (06:32)
+02. Blu-I Boy - Night Of Ecstasy (Night Version) (04:56)
+03. Helen - Zanzibar (Remix) (06:02)
+04. Marrianne - Passion (06:00)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84052C0345756F9E973F02D8C43D3A3B2E22BEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917704   (589041) от 12.07.2015
 
 VA - Летние super новинки (2015) [MP3|256 кб/с]<Pop>
@@ -683,32 +712,6 @@ VA - Дискотека: Летний отрыв Русский №100 (2011) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DB56A23F93798E49B8BA9C28459E977BE846440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357860   (585763) от 02.07.2011
-
-VA - Gold Retro Hits 80-90-X (2011) [MP3|256 kbps]<Pop / Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop / DiscoПродолжительность: 06:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB31E4869A7947F3637E9BC1FE52CC5E73F2D1C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

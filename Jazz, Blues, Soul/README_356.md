@@ -1,3 +1,90 @@
+###  Публикация: 1575991   (370946) от 12.09.2022
+
+Drew Foust - Good Thing (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After the Rain (2:50)
+02. What's Real (4:08)
+03. These Days (3:36)
+04. Good Thing (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF8C81454623583EBE214277EBE724C3763DC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576011   (370945) от 12.09.2022
+
+Nicholas Payton - Smoke Sessions (2021) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hangin' In and Jivin' [7:43]
+02. Big George [7:03]
+03. Levin's Lope [6:48]
+04. No Lonely Nights [6:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A3B6B7BF55D59FF4BDA005E960EC6FEAABA568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575997   (370943) от 12.09.2022
+
+Liam St. John - stripped back (deluxe) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where The Pines Meet The Palms (Stripped Back) (3:00)
+02. Decanter (Stripped Back) (2:34)
+03. forefathers (Stripped Back) (2:44)
+04. Dipped In Bleach (Stripped Back) (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D09B447121AC2A53C8E0EE5C4C3D9C097E9728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575995   (370942) от 12.09.2022
 
 Howlin' Mojo Bones - One Foot in the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -658,93 +745,6 @@ Fred Hersch & The WDR Big Band - Begin Again (2019) Palmetto Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:475B93B2861195B673B216CF90F95910B15F4E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949690   (370220) от 26.10.2015
-
-Mojo Man - Mojo Man (2015) [MP3|320 кб/с]<Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarecrow
-02. The Ship Is Sinking
-03. I'm a Man
-04. Is It a Crime(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3D9447EFB4BBBBA3BC319DA872CF4EE3F37CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176508   (370150) от 22.10.2017
-
-The Duke Pearson Nonet - Honeybuns (1965) 2012, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeybuns [07:11]
-02. New Girl [05:18]
-03. You Know I Care [04:19]
-04. Is That So? [04:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926222E412DD63F60B8C069DAAA38F3023C57870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176515   (370148) от 22.10.2017
-
-Volker Kriegel - Journal & Palazzo Blue (1981, 1987) 2CD, 2010, Inakustik [APE|Lossless|image + .cue] <Jazz Fusion, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370148.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Journal:
-01. Calcador [03:55]
-02. Storyboard [04:54]
-03. Am Wцrthsee [04:44](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2F0AAF01664FF8C0BEBB314F4C13EF37129817
 ```
 
 https://mybot314.ru/tekegram_catalog/

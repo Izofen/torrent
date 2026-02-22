@@ -1,3 +1,32 @@
+###  Публикация: 1578222   (341076) от 25.09.2022
+
+Phil Thornton - Rhythm of the Rainforest (2009) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Vine Part 1
+02. Heart Of Green
+03. Dietera Dreams
+04. Yage(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43739D1CAE29E751F3BDEC50C361334BA8BEE4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074144   (340563) от 18.11.2016
 
 Robert Thies & Damjan Krajacic - Blue Landscapes II: Discoveries (2016) [MP3|320 Kbps] <NewAge, Relax>
@@ -716,35 +745,6 @@ Kai Rosenkranz - Risen (Game Soundtrack) (2009) [FLAC|Lossless|tracks] <Soundtra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E00FDAF1C5A63E17E34EE3B46033F05BCF6C6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180906   (337500) от 05.11.2017
-
-VA - Latino Top 30 Latin Hits (2017) [MP3|320 Kbps] <Latin, Salsa>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Chicos Playeros – Bamboleo 3:29
-02. Tony Estefano – Livin’ La Vida Loca 4:01
-03. Alessia Limonta – Conga! 4:11
-04. Chateau Pop – Lambada 3:23(   Читать дальше...   )Жанр: Latin, SalsaПродолжительность: 01:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5661E638BC290CE714BA618007FB44BBD4E87EF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

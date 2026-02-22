@@ -1,3 +1,32 @@
+###  Публикация: 1097482   (914134) от 27.01.2017
+
+Tommy Ladnier - Giants Of Jazz (1923 - 1939) 1997, Promo Sound[APE|Lossless|tracks + .cue] <Early Jazz, Swing, Trumpet Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ja-Da [02:58]
+ 02.Really The Blues [03:41]
+ 03.Weary Blues [03:05]
+ 04.When You And I Were Young Maggie [02:47](   Читать дальше...   )Жанр: Early Jazz, Swing, Trumpet JazzПродолжительность: 01:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3738E3E68E0320930CFA692B889B9CD3DC6C89F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367801   (914046) от 17.03.2020
 
 Prince - N.E.W.S (2003) [FLAC|Lossless|image + .cue] <Jazz fusion, funk, instrumental>
@@ -712,35 +741,6 @@ VA - Jazz and Blues on Edison , volume 1 (1920-1929) 2006, Document Records[FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5AE2C677D2786FAAC3B753A1A5EBA9CCE2AF1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991161   (908121) от 27.02.2016
-
-Aziza Mustafa Zadeh - Contrasts II (2007) Jazziza Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction [01:45]
- 02.Mozarts Jazz Ballade [03:29]
- 03.Guarding Dreams [02:27]
- 04.The Queen Of The Night [02:57](   Читать дальше...   )Жанр: Jazz Fusion, Piano JazzПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B91C75568879CAE3448B66C4ED6A6ED8E1BB672
 ```
 
 https://mybot314.ru/tekegram_catalog/

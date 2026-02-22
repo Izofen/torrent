@@ -1,3 +1,32 @@
+###  Публикация: 1494372   (889009) от 07.09.2021
+
+Tina Guo - Dies Irae (2021) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tina Guo (28.10.1985) – американская виолончелистка китайского происхождения. Ее международная карьера музыканта и композитора характеризуется не только тщательно продуманным видеорядом с театральными декорациями и оригинальными костюмами, но и множеством музыкальных жанров (classical, classical crossover, new-age, heavy metal, industrial metal), в которых работает (   Читать дальше...   )01. Moonlight Sonata (4:30)
+02. Moonheart (4:31)
+03. Double Cello Concerto MVT.1 (4:08)
+04. Rivers Flows In Youy (3:55)(   Читать дальше...   )Жанр: New Age, Instrumental, ClassicalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369B839FAA2B99FF840CB313750A924DD746D134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 866852   (889002) от 16.02.2015
 
 Danny Elfman & VA - Пятьдесят оттенков серого / Fifty Shades of Grey  (Original Soundtrack + Original Score) (2015) [MP3|320 кб/с]<Soundtrack>
@@ -759,35 +788,6 @@ Tina Guo - Dies Irae (2021) [MP3|320 Kbps] <New Age, Instrumental, Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14144A716AD853F027F69E763DE2C03C37B85C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494721   (885936) от 09.09.2021
-
-Atom Music Audio - Crime Life (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crime Life [02:03]
-02. Get It Done [02:28]
-03. Dropping Bombs [02:19]
-04. Riding with the Devil [02:02](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B87B9222695615BBDEE6030C569BA22D3A7202
 ```
 
 https://mybot314.ru/tekegram_catalog/

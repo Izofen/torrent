@@ -1,25 +1,25 @@
-###  Публикация: 1722274   (109715) от 11.05.2024
+###  Публикация: 1749625   (104297) от 15.09.2024
 
-Refestramus - Intouríst (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock>
+Roulette - From Now Until Today (2024) EP [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109715.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dmk [00:07:32]
-02. Asunción [00:03:46]
-03. The Devil Returns [00:06:19]
-04. Intourist Suite [00:11:30](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 00:51:38
+1. Love's A Dying Drug (4:52)
+2. Ready For Friday Night (3:45)
+3. Life Will Go On (3:39)
+4. Summer Day (3:57)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:19:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6D7CDDD631FF32F273CD3A64C62C6D10B89C531
+magnet:?xt=urn:btih:8EECD5DE9F27A8C853DDAA2B0B34E9A08A90E0F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722645   (109668) от 12.05.2024
+###  Публикация: 1749641   (104279) от 15.09.2024
 
-The Hazytones - Wild Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, stoner Rock>
+Prayer - Wrong Address (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109668.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wild Fever [00:05:31]
-02. Red [00:05:34]
-03. Inside of Your Brain [00:04:44]
-04. Night is Young [00:05:12](   Читать дальше...   )Жанр: Hard-Rock, stoner RockПродолжительность: 00:40:10
+01. Secrets Of The Night (3:44)
+02. I've Been Loving You (3:36)
+03. Road To Freedom (4:22)
+04. Running Wild In The Night (3:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78C063B182F440E94D44E847802915841BC3064E
+magnet:?xt=urn:btih:C66E863498BFE32CB38F501D41D70DC98991E279
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723542   (109501) от 16.05.2024
+###  Публикация: 1750381   (104247) от 19.09.2024
 
-Red Dead Halo - No Country For Despicable Men (2024) [FLAC|Lossless|WEB-DL|tracks] <southern rock, melodic hard rock>
+Eclipse - Megalomanium II (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109501.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Awake [00:03:18]
-02. Diabolical [00:03:49]
-03. Gunslinger [00:04:41]
-04. Live It Up [00:03:29](   Читать дальше...   )Жанр: southern rock, melodic hard rockПродолжительность: 00:51:44
+01. Apocalypse Blues (3:22)
+02. The Spark (2:51)
+03. Falling to My Knees (2:58)
+04. All I Want (3:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5DAD5CA52D5F0004B9D02C9AF313B6962E0DA57
+magnet:?xt=urn:btih:A2B58AF348B2D8E355AAD4EA803066E20BE3ED9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723761   (109451) от 16.05.2024
+###  Публикация: 1750390   (104240) от 19.09.2024
 
-Universe III - Universe III (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Heavy Metal>
+Skid Row - Live in London (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Glam Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109451.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Am (4:35)
-02. To Serve And Protect (5:35)
-03. Casa De Los Pollos (4:38)
-04. Why (5:40)(   Читать дальше...   )Жанр: Melodic Hard Rock, Heavy MetalПродолжительность: 00:50:53
+01. Slave to the Grind (3:38)
+02. The Threat (3:53)
+03. Big Guns (4:53)
+04. 18 and Life (5:11)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Glam MetalПродолжительность: 01:13:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DD5535E5A2963B6F4DBD07D278BBE87E3CD11B4
+magnet:?xt=urn:btih:C5F42C04AD68F6E02F11218C7D7CE5B12228F266
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723572   (109442) от 16.05.2024
+###  Публикация: 1751059   (104113) от 22.09.2024
 
-Intelligent Music Project - VIII: Miracles Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Fighter V - Heart Of The Young (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109442.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Thunder
-03. Days Rollin'
-04. For You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:41
+01. Eye To Eye
+02. Heart Of The Young
+03. Run N' Hide Away
+04. How Long(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCDCFEE9EAF01CD3232D2028ACA26E4B5DDACFBF
+magnet:?xt=urn:btih:77BA48AC75152724666FCEE1296E9EE9F5172B55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724172   (109352) от 18.05.2024
+###  Публикация: 1750985   (104112) от 22.09.2024
 
-Motörhead - Remorse? No! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+Airstrike - S*x Sells (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109352.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ace of Spades (Alternate Version) (3:02)
-02. Motörhead (Live at Hollywood Palladium, Oct 1984) (2:29)
-03. Jailbait (Alternate Version) (3:31)
-04. Stay Clean (Live at Newcastle City Hall, 29/3/1981) (2:42)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:25:20
+01. Promised Land (3:31)
+02. Sugar (3:52)
+03. Rollercoaster (4:17)
+04. Soul Right (3:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:216D20FF1E2262CCA7AD6458F3EE66B50968CE72
+magnet:?xt=urn:btih:6DDD75EB780F87AAD0B01BAB36071842903A79E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724291   (109255) от 19.05.2024
+###  Публикация: 1751923   (104041) от 27.09.2024
 
-Gjenferd - Gjenferd (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, , Psych, Stoner, 70's>
+Whisky of Blood - Diablesse Of Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock 'N' Roll>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109255.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104041.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. High Octane [00:03:51]
-02. Starless [00:07:17]
-03. Burning Soil [00:04:43]
-04. Restless Nights [00:05:07](   Читать дальше...   )Жанр: Hard Rock, , Psych, Stoner, 70'sПродолжительность: 00:33:01
+01. Nothing More (4:03)
+02. Baby Revolution (4:33)
+03. Crazy Zone (4:36)
+04. Diablesse Of Love (3:46)(   Читать дальше...   )Жанр: Hard Rock, Rock 'N' RollПродолжительность: 00:44:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27D7C432D505EF835E189CF0219A47DB2E69C79D
+magnet:?xt=urn:btih:9288296C1AAA1F31F87F1550D1AB24B4211D0D7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724295   (109248) от 19.05.2024
+###  Публикация: 1751498   (104016) от 28.09.2024
 
-Datcha Mandala - Koda (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Psychedelic, Blues-Rock>
+Find Me - Nightbound (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109248.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. She Said [00:03:30]
-02. Koda [00:03:42]
-03. The Wanderer [00:04:16]
-04. Om Namah Shivaya [00:04:40](   Читать дальше...   )Жанр: Heavy, Psychedelic, Blues-RockПродолжительность: 00:39:14
+Find Me, трансатлантический альянс, в состав которого входят Robbie LaBlanc и Daniel Flores, объявили о своем долгожданном пятом студийном альбоме Nightbound, который вышел 13 сентября 2024 года на лейбле Frontiers Music Srl. Приятно осозновать, что одна из современных групп не боится копаться в прошлом в поисках крутых музыкальных стилей, из которых дуэт выжимает (   Читать дальше...   )01. Never be alone (4:37)
+02. I see you in everyone (4:14)
+03. Cant wait here anymore (4:05)
+04. Distant lovers (3:41)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B76F6FE629659A7D8CD969B1F37FB82A0ABEF508
+magnet:?xt=urn:btih:44ED752F2FF467D58C7225F5E9C25F79401926A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724842   (109161) от 21.05.2024
+###  Публикация: 1752227   (103953) от 29.09.2024
 
-The Jack - Tribute to AC/DC - Live (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Mike Tramp - Songs Of White Lion Vol. II (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109161.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Live Wire (05:55)
-02. Shoot To Thrill (05:31)
-03. Givin' The Dog A Bone (03:58)
-04. Intro (00:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:36
+01. Lights & Thunder (6:41)
+02. Lonely Nights (4:38)
+03. Till Death Do Us Part (4:44)
+04. El Salvador (4:18)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:740FE80B7FEC8D76B32CE43E412B8A5C11E47576
+magnet:?xt=urn:btih:F8BFCD01FB984C8D3C13AED273B41DF4D58ABE47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724939   (109104) от 22.05.2024
+###  Публикация: 1754953   (103640) от 13.10.2024
 
-Rare Touch - Rare Touch (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Keys - The Grand Seduction (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109104.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103640.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Sin City
-2. One Way Ticket
-3. Don’t Forget Me
-4. Fallen From Grace(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:35
+01. The Grand Seduction (9:00)
+02. All I Need (6:50)
+03. Shining Sails (Lead Vocals – Mark Mangold) (5:51)
+04. Switchblade (6:02)(   Читать дальше...   )Жанр: Melodic Hard Rock, Progressive RockПродолжительность: 01:01:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93B8A660AFAFBCCEE7743A7120CC1CECF85FFBBD
+magnet:?xt=urn:btih:F3123869205BF68C3C209244DCF86C4CF19F1F04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,30 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725770   (108904) от 25.05.2024
+###  Публикация: 1754964   (103631) от 13.10.2024
 
-Echo The Beyond - Ambient Noise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Progressive Rock>
+Eclipse - Megalomanium II (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108904.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103631.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Echo The Beyond - это проект, состоящий из Ли Таппера, Дэна Ригли и Джо Маковски. Все они в какой-то момент своей истории работали вместе, но в 2020 году их пути пересеклись, и изначально все началось с написания песен, чтобы наполнить музыкальную душу. Шесть месяцев спустя ETB готовы представить свой дебютный материал поклонникам как рока, так и прог-музыки.
-
-Объединенные (   Читать дальше...   )01. Ambient Noise (4:30)
-02. The Voice (6:15)
-03. Out of the Fire (5:41)
-04. Vaporize (4:35)(   Читать дальше...   )Жанр: Hard Rock, Progressive RockПродолжительность: 00:41:09
+01. Apocalypse Blues (3:23)
+02. The Spark (2:53)
+03. Falling To My Knees (3:00)
+04. All I Want (3:17)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72901F46ADDF5D58435CCCEB3EEBD984F4DAD1C0
+magnet:?xt=urn:btih:6CCB0C54AAEE21D53CC09F56DE1F11D542D4A8B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725627   (108892) от 25.05.2024
+###  Публикация: 1755927   (103589) от 18.10.2024
 
-Street Panther - Muscle Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
+Fate - Reconnect N' Ignite (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108892.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Barbarian (3:15)
-02. Aggro (3:16)
-03. Heathen (2:22)
-04. Flex (2:46)(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:35:31
+01. Around The Sun
+02. Reason For Everything
+03. This Won’t Last
+04. I’m On Fire(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66A39FA31DA4538FBDFFC148BC54D267847C8652
+magnet:?xt=urn:btih:F1AD0324F733B85E744E7551D1A1FE7A49E51055
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725851   (108843) от 26.05.2024
+###  Публикация: 1756954   (103482) от 24.10.2024
 
-Collateral - Should've Known Better (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108843.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Glass Sky
-2. Original Criminal
-3. One Of Those Days
-4. Teenage Dreams(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:35:41
+01. Stranger (5:01)
+02. Impatient (4:54)
+03. Closer to Heaven (5:21)
+04. Ring Me Around (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D25B077BBAD0B81171D9800C5A2772C354697E5B
+magnet:?xt=urn:btih:530F3B4FAF77F36603D8E82E5B3BDCE4832A2D38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725746   (108838) от 26.05.2024
+###  Публикация: 1757403   (103440) от 27.10.2024
 
-The Dirty Denims - Party On! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock'n'Roll, Female Vocal>
+Heartwind - Heartwind III (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock / AOR>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108838.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Party On! [00:04:25]
-02. Victory [00:03:55]
-03. Guestlist [00:03:37]
-04. We Won't Stop [00:03:38](   Читать дальше...   )Жанр: Hard Rock, Rock'n'Roll, Female VocalПродолжительность: 00:38:29
+01. Warrior (3:20)
+02. Facing The Night (3:53)
+03. Struck By Love (3:25)
+04. Now Is The Time (3:48)(   Читать дальше...   )Жанр: Melodic Hard Rock / AORПродолжительность: 00:36:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5E69E2B49232ED5E57D29625F6143AE6C102C06
+magnet:?xt=urn:btih:981EB22967C8D5B2EFAF84C5B70F59BC9B97C823
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726189   (108803) от 27.05.2024
+###  Публикация: 1757404   (103438) от 27.10.2024
 
-Motörhead, Lemmy & Larry Wallis - The Boys of Ladbroke Grove (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock, Heavy Metal, Rock and Roll>
+Danger Zone - Shut Up! (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108803.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lemmy & The Upsetters – Paradise (The Brains Mix) 02:46
-02. Motörhead – Keep Us On The Road (Live) (The Brains Mix) 03:14
-03. Larry Wallis – Police Car ( Re-Recorded) (2023 Mix) 03:25
-04. Pink Fairies – Lone Wolf 03:06(   Читать дальше...   )Жанр: Hard Rock, Rock, Heavy Metal, Rock and RollПродолжительность: 01:04:35
+01. I Like It (3:50)
+02. Evil (4:06)
+03. Tell Me The Truth (4:21)
+04. I Don't Care (4:03)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63F8E2FBE1E38DF87D31448BBCF073C132849849
+magnet:?xt=urn:btih:7033EE2B73267C25BDE2E807E68C25C5AC9A3439
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726311   (108756) от 28.05.2024
+###  Публикация: 1758386   (103398) от 02.11.2024
 
-Silver Horses - Electric Omega (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Scarlet Bandit - Lose Your Blues (Late Night City Feeling Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108756.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Looking So Godd
-02. Bag Of Bones
-03. Endless Circle
-04. Hafa Cafe(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:47
+01 - Everything Will Be Alright I (00:50)
+ 02 - Young and Feral (03:30)
+ 03 - Leak in the Roof (03:34)
+ 04 - California (04:01)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 01:08:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEC42802F68C1944B8A9703D46C4480D8E6C9563
+magnet:?xt=urn:btih:EE248D730760C207DCE828F1F85E721D397FD066
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726474   (108752) от 28.05.2024
+###  Публикация: 1758622   (103341) от 03.11.2024
 
-Theater of Malum - Edge of The Unknown (2024) [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
+Brad Smith - Broken Bones & Bullet Holes (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108752.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - You Stand Alone (04:48)
-02 - The Fallen (04:10)
-03 - Define you (04:22)
-04 - You're Nothing (04:44)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:01
+01. Broken Bones And Bullet Holes 04:42
+02. Late Is The Hour 05:18
+03. Troubles Enough 03:51
+04. Lift Me Up 03:55(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B14BDBBDB9A4BC55A6A0133C5A933E5DE697154C
+magnet:?xt=urn:btih:CD9484D9693E2B67A3E989ADBF0BE474BE64F408
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726663   (108707) от 29.05.2024
+###  Публикация: 1759096   (103329) от 06.11.2024
 
-Freeways - Dark Sky Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Rimbacher - High Hopes On The Rocks (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108707.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Forever Protected (2:26)
-02. Can't Deny Destiny (3:27)
-03. Give Em The Gears (3:45)
-04. Dark Sky Sanctuary (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:17
+01. Worldkiller 04:08
+02. Luxury 04:26
+03. Dry Body Passion 03:36
+04. Loving You (Is Loving A Broken) 03:44(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:507FA4869447A81281D2F7736710857891D19F5B
+magnet:?xt=urn:btih:E71A4475889A2F2822A34950BA2A990553468ACD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -522,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726770   (108651) от 30.05.2024
+###  Публикация: 1759205   (103296) от 07.11.2024
 
-D'Ercole - Near Death Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Sweet Electric - The Monsters Are Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108651.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103296.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lone Survivor (4:42)
-02. Can't Hide the Truth (4:04)
-03. Live to Die Another Day (2:59)
-04. Holy Ground (8:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:48
+01. Heir To The Throne
+02. Leading The Blind
+03. Hey Kid
+04. Killer Katharina(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDF41FBA21B6D61CA64A56221746EFCD9ADEEACF
+magnet:?xt=urn:btih:2AEB1BE6A06035FC9DDA1FB54DDBF11AB5452F82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729717   (108028) от 12.06.2024
+###  Публикация: 1759602   (103276) от 09.11.2024
 
-Libra - Follow The Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Skillet - Revolution (2024) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108028.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Journeying
-02 - Live Yourself
-03 - My Shining Soul
-04 - I'll Breathe For Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:03
+01. Showtime
+02. Unpopular
+03. All That Matters
+04. Not Afraid(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8937EEC07884E4DA832467348E87EEB41FB391C
+magnet:?xt=urn:btih:FBE7D2DFB5BA88ECA3F862410A413518AE600BC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729650   (108020) от 12.06.2024
+###  Публикация: 1759323   (103229) от 10.11.2024
 
-Black Diamonds - Destination Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Seventh Crystal - Entity (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108020.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Through Hell And Back
-02. After The Rain
-03. Everyday Heroes
-04. Bottoms Up(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:54
+01. Oathbreaker (4:16)
+02. Thirteen to One (3:53)
+03. 404 (3:39)
+04. Path of the Absurd (3:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82EFBFA80F89D8F612B0E5C69C3622C361B0F737
+magnet:?xt=urn:btih:4958A692B13330C80B1633B4BA6843B1B8096D8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729749   (107984) от 13.06.2024
+###  Публикация: 1759753   (103206) от 10.11.2024
 
-Grand Slam - Wheel Of Fortune (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Captain Black Beard - Sonic Forces (2020) Reissue, Remastered, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107984.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103206.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. There Goes My Heart
-02. Starcrossed Lovers
-03. Come Together (In Harlem)
-04. Trail Of Tears(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:52
+Mission | A
+01. Headlights (3:32)
+02. Lights & Shadows (3:10)
+03. Disco Volante (3:37)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:49:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBF60F55DDD2E75E706B586BC86FC01DC12B8D92
+magnet:?xt=urn:btih:8578BEA0AB917149DD7EF1219A854DCEC9283DAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730432   (107909) от 15.06.2024
+###  Публикация: 1760837   (103139) от 16.11.2024
 
-Strange Fruit - Once So High (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Lonerider - Down In The Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107909.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lonely-Lonely (6:47)
-02. Ragged Soul (7:16)
-03. Once So High (4:22)
-04. Driving Me Mad (7:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:13
+01. Shiver
+02. Three Steps Back
+03. Getting Closer
+04. Help Me Brother(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:500A9A252FEC1C07BE57A5D2FAFBF68098CC403F
+magnet:?xt=urn:btih:26A8E938A00B3EB3D0629D0A9A7776EF307DAD2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730504   (107875) от 16.06.2024
+###  Публикация: 1761007   (103100) от 17.11.2024
 
-Black Country Communion - V (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
+Eden On Fire - Unresolved (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107875.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Enlighten (5:20)
-02. Stay Free (4:30)
-03. Red Sun (6:33)
-04. Restless (5:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:40
+01 - Brigade (05:49)
+02 - Love Bomb (Remastered) (04:10)
+03 - Parasite (05:58)
+04 - Set Me Free (04:19)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83BCA5BC5CBB48D4B567980B30C5FBCF733CC88F
+magnet:?xt=urn:btih:E80A4EE61913E651172E37A06D59C287F3765659
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730874   (107791) от 18.06.2024
+###  Публикация: 1761162   (103072) от 18.11.2024
 
-The Hollywood Stars - Starstruck (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Skol Bandit - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107791.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Can't Do It Right
-02 - Taxi Driver
-03 - Bad, Bad Man
-04 - I Had a Girlfriend, Now She's Gone(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:20
+01. Claymore Strike 04:16
+02. 20th Century 04:09
+03. Nevermore 05:27
+04. Lovebreak 05:29(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADCA3B6DDFDB3D8EF1129F51D02EA3796A2DA917
+magnet:?xt=urn:btih:BE00D68222B07DCF3986E42FD8B84AAF61436C26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -725,28 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731433   (107773) от 20.06.2024
+###  Публикация: 1762341   (102957) от 24.11.2024
 
-Atlantic - Another World (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
+Torchlight Parade - Children of the Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107773.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102957.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ready or Not (5:45)
-02. Without Love (5:01)
-03. Hold On (3:57)
-04. I’ll Be Waiting (4:04)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:50:24
+01. Children of the Night (01:52)
+02. Howl'n Wolf (04:13)
+03. Frankenstein of Death (04:37)
+04. Shadow Run (01:42)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:35:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78B781576D2F33F80CAECCA3276CB45AD381F6F6
+magnet:?xt=urn:btih:6CF62AF1C817105F54B0A34B547C56396DC5176D
 ```
 
 https://mybot314.ru/tekegram_catalog/

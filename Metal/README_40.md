@@ -1,3 +1,32 @@
+###  Публикация: 1504613   (808214) от 25.10.2021
+
+Тінь Сонця - Тернистий Шлях (2021) [MP3|192 Kbps] <Folk Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808214.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:46] 01. Спалена земля
+[4:30] 02. Над прірвою
+[4:50] 03. У надрах снів
+[4:13] 04. Моя Україна(   Читать дальше...   )Жанр: Folk Rock, Heavy MetalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE911B1E569EF32B10B11D4ACE42A76E49CC5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505459   (804610) от 27.10.2021
 
 Bloodthorne - Let The Bad Times Roll (2021) [MP3|320 Kbps] <Doom Metal, Stoner Metal>
@@ -713,35 +742,6 @@ Kaunis Kuolematon - Vapaus (2017) [MP3|320 Kbps] <Doom Metal, Gothic Metal, Melo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29F2E31DA2F5696E669FD0EBF080C73F6636D33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385402   (797866) от 24.05.2020
-
-Pretty Maids - Maid in Japan: Future World Live 30 Anniversary (2020) [MP3|320 Kbps] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797866.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. FW30 (Live) [1:34]
- 2. Future World (Live) [5:59]
- 3. We Came to Rock (Live) [4:57]
- 4. Love Games (Live) [4:51](   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23632D0A83F074A16AE95C33DA2F0F1128E941E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

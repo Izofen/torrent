@@ -1,3 +1,170 @@
+###  Публикация: 949781   (773924) от 11.05.2016
+
+The Beatles - Let It Be (1970) [FLAC 2.0|192/24|tracks|Vinyl-Rip]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Two Of Us  3:36
+2. Dig A Pony  3:54
+3. Across The Universe  3:48(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1F26D630AF5C5EB577FAF4E2AB95463A30728F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269706   (772790) от 21.06.2020
+
+Кино - Атаман (2018) [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772790.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:15] 01. КИНО - Атаман (версия 2012 г.)
+[3:04] 02. КИНО - Атаман (версия 1990 г.)
+[4:17] 03. КИНО - Атаман (демо-версия 2012 г.) BONUS CDЖанр: RockПродолжительность: 00:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD6BAC84384FED12CF8400D3A33D813975AFC40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616265   (772491) от 21.06.2020
+
+Кино (Виктор Цой) - Неизвестные Песни Виктора Цоя (1992) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCF3778D92E0673B6A03A8630B32D552E81D453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 660735   (771959) от 25.05.2013
+
+Vaya Con Dios - Night Owls (1990) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, Pop-Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Pop-JazzПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3F0249265CBB61A1FF2B0A8C30AB9302B5DC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661199   (770500) от 26.05.2013
+
+Abba - 7 Альбомов (1975-1981) /Polar-Disco mate, Japan/ [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оцифровка японских винилов Великого Квартета.
+Автор оцифровки - неизвестен (источник bazar)
+Аппарат - неизвестен
+Код класса состояния винила - неизвестен(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F46A3A0C00943AFC55E458B73EAFF845F873126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 133323   (769010) от 27.06.2020
+
+Nirvana - Nevermind (1991) (Upmix) [DTS] <Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smells Like Teen Spirit  (5:01)
+02. In Bloom  (4:15)
+03. Come As You Are  (3:39)
+04. Breed  (3:04)(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60201231EA8A30CB4FAD83A9A57208DDB26F67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125419   (768678) от 14.04.2017
 
 Rod Stewart - Tonight I'm Yours (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
@@ -568,192 +735,6 @@ Deep Purple - Turning To Crime (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Rock, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E52485D1D1AD75EF62EDA57DA58A8CA405BE2FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781909   (754029) от 29.04.2014
-
-Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Progressive & Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Shine on You Crazy Diamond  11:46
-2. Learning to Fly 5:34
-3. Yet Another Movie & Round and Around 7:20
-Сторона 2
-1. Sorrow 9:54
-2. The Dogs of War 7:12
-3. On the Turning Away 7:56
-Сторона 3
-1. One Of These Days 6:14(   Читать дальше...   )Жанр: Progressive & Art RockПродолжительность: 01:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD4DEFB6EB1687BA4A15514A3D0CD7F0060A206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523167   (752920) от 10.01.2022
-
-VA - The Absolute Sound (2016) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical, Folk>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Walks In Beauty (03:45) - Saby O'
-02. The Last Rose Of Summer (03:31) - Gary Karr
-03. Black River (03:54) - RUNA
-04. Single Girl (03:46) - Mari Wilson, Barb Jungr, Claire Martin(   Читать дальше...   )Жанр: Classical, FolkПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC52E1E72804233B9DC1B10C63299DF7812E5857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663436   (750797) от 02.06.2013
-
-Калинов Мост - Оружие (1998) [FLAC 2.0 16/44.1|Tracks (Web-DL)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сны Сбываются (6:18)
-02. Иного Не Надо (3:17)
-03. Рудники Свободы (5:11)
-04. Родная (5:10)
-05. Не Вернуться (3:49)
-06. Накричали Птицы (3:28)
-07. Горевать Ночью (3:54)
-08. Юные (Ради Славы Дня) (5:10)
-09. Пропадать Молвой (4:24)
-10. Поминать Бессмертных (5:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17C48478FBE2982789BCD16BE921A53BD36BEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396096   (749948) от 13.07.2020
-
-Ozzy Osbourne - Diary Of A Madman (1981) AnTrop Unofficial Release, 1993 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749948.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Over The Mountain (Выше гор)
-A2 Flying High Again (Уносящийся ввысь)
-A3 You Can't Kill Rock And Roll (Ты не можешь убить рок-н-ролл)
-A4 Believer (Верящий)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1093B42A25CC5F36E0B57C13CFDA653138B1FFB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396183   (748532) от 14.07.2020
-
-Toto - Stranger In Town (Dance Mix) (1984) 12", 45 RPM, Single [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748532.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Stranger In Town (Dance Mix)
-
-
-(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50D1736179C1208ADABB4B60D83FBA6B8EEB0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396333   (748525) от 14.07.2020
-
-Toto - Fahrenheit (1987) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748525.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Till The End
-A2 We Can Make It Tonight
-A3 Without Your Love
-A4 Can't Stand It Any Longer(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7CD35271646095C8214DB499F06230FD7BE04D
 ```
 
 https://mybot314.ru/tekegram_catalog/

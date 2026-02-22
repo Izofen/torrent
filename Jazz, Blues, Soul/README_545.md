@@ -1,3 +1,32 @@
+###  Публикация: 1721457   (109959) от 08.05.2024
+
+Bud Freeman - Newport News (1955) 2013, Solid Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Newport News [2:40]
+02. At Sundown [4:00]
+03. Exactly Like You [4:05]
+04. Let's Do It [3:03](   Читать дальше...   )Жанр: SwingПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F504039353104C24AFE1F8BF95B8E1DBA8D72C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721643   (109956) от 08.05.2024
 
 Jacky Terrasson & Stephane Belmondo - Mother (2016) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -716,35 +745,6 @@ VA - Delightful Cozy Smooth Inviting Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:854E6C9F43F04DDC9AD1A0C834394FFB6666ECAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722851   (109616) от 13.05.2024
-
-Al Lerman - Country-Fried Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Backbug Song (3:57)
-02. Big Bill’s Blues (3:27)
-03. How High Is Up (3:53)
-04. How Much Longer Can A Broken Heart Last (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AEA18F7DDB9F030671510943B05EB8D91E4FC3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

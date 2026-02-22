@@ -1,3 +1,32 @@
+###  Публикация: 1555601   (565010) от 06.06.2022
+
+Godsmack - Collection (2022) [MP3|320 Kbps] <Nu-metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень мощная команда. Энергетика просто чумовая. В машине здорово слушать или в спортзале. Если вы хотите проверить выносливость вашей аудиосистемы и просто её способности и возможности, то лучшего варианта не найти. Сборник лучших композиций группы. Все треки взяты с фирменных CD изданий. Приятного прослушивания. Да пребудет с нами энергия музыки! Все лучшее для (   Читать дальше...   )01. Sick of Life
+02. Saints and Sinners
+03. I Stand Alone
+04. Keep Away(   Читать дальше...   )Жанр: Nu-metalПродолжительность: 03:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FE370C97242A0DE6236406F0669086DC341810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555343   (565002) от 06.06.2022
 
 VA - Soft Rock (2022) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ VA - Dr. Metal Presents: Vol.8 (2016) [MP3|224 Kbps] <Heavy, Speed, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE73CAD34550EE7AADC6FEFCF81224990E82C688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310757   (545178) от 26.06.2019
-
-VA - Warm Memories: Collection Classic Rock (2019) [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545178.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Stranglers - Golden Brown
-002. Simon - Bridge Over Troubled Water
-003. Creedence Clearwater Revival - Up Around The Bend
-004. Jefferson Airplane - White Rabbit(   Читать дальше...   )Жанр: Classic RockПродолжительность: 06:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A819D038C25777AC611ACB22993DB0B0F72547
 ```
 
 https://mybot314.ru/tekegram_catalog/

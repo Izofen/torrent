@@ -1,3 +1,90 @@
+###  Публикация: 1089628   (950766) от 04.01.2017
+
+Pat Martino - Remember: A Tribute To Wes Montgomery (2006) Blue Note[FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Four On Six [06:03]
+ 02.Groove Yard [05:55]
+ 03.Full House [07:03]
+ 04.Heart Strings [06:52](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE9872FFCF029B24E2E5B31D759DA0E7E87494C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089695   (950662) от 04.01.2017
+
+The Blues Mystery - Diesel Rock (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Grimaces On The Bad Mood  (03:51) 
+02|  Don't Get Close To Me Today  (03:35) 
+03|  The Motorbikes Are Roaring  (03:36) 
+04|  Wild Love ( Tamed By The Child )  (04:24) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FF431DC52F8B1350C2F1938DB2E6437382487D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089773   (950654) от 04.01.2017
+
+VA - A Groovy Kind of Sax (1995) авторская раздача [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодние каникулы - благодатное время для того, чтоб ещё раз порыться в своей коллекции. И порою "находишь" диски о которых уже и подзабылось. Из таких "забытых" и этот диск (будут ещё несколько из этой серии), выпущенный в далеком 1995 году сублейблом Demon Music Group и купленных по случаю на Юноне. К сожалению, издатель привел в буклете только (   Читать дальше...   )01. A Groovy Kind of Love  (2:57)
+02. Arthur's Theme (The Best That You Can Do)  (3:48)
+03. Misty  (4:18)
+04. My Cherie Amour  (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B680F361CD0DA6D81682DFA948E319C2F895740E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089393   (950595) от 04.01.2017
 
 Blues Cousins - KGB Blues (2011) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -659,93 +746,6 @@ Tony Joe White - Live In Amsterdam (2010) [FLAC|Lossless|tracks + .cue] <Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B736C7484C7EADB9C0FE82F2E73985646D0C5C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971587   (947592) от 06.01.2017
-
-McCoy Tyner Trio - Infinity (1995) 2004, Impulse![FLAC|tracks+.cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Flying High [10:16]
- 02.I Mean You (Monk) [07:19]
- 03.Where Is Love [05:32]
- 04.Changes [09:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB39F383A8B7D5A797D108748F733C9475BD332E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090370   (947588) от 06.01.2017
-
-Jordan Officer - I'm Free (2014) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  At Least I've Got the Blues  (03:58) 
-02|  A Night of Fun  (03:39) 
-03|  I'm Free  (05:16) 
-04|  When We Were Just Two  (05:02) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9183398C9E95FFD163B5844103FA027CF8C8B392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090311   (947489) от 06.01.2017
-
-72Blues - Said I Would (2004) [FLAC|Lossless|tracks + .cue] <Blues Rock, Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Said I Would  (03:27) 
-02|  Supper Is Waiting  (03:25) 
-03|  My Name  (05:24) 
-04|  That Just Happened  (01:09) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6DD3CEA35EC4A913D1A8E9773B3FECDA7BBC2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,25 @@
-###  Публикация: 1838858   (261506) от 25.11.2025
+###  Публикация: 1193374   (262148) от 21.12.2017
 
-Сёрфер / The Surfer (2024) BDRip [H.264/720p]
+Warfect - Depicting The Macabre (2009) [APE|Lossless|image + .cue] <Thrash Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261506.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прожив несколько лет в США, мужчина возвращается в родной австралийский город на побережье, где собирается купить дом, когда-то принадлежавший его семье. Вместе с сыном-подростком он отправляется поплавать на досках, но сталкивается с сопротивлением банды сёрферов, считающих, что этот пляж — только для местных. Мужчина сдаваться не собирается и вступает с ними в жестокое (   Читать дальше...   )Производство: Австралия, США, Ирландия, Великобритания / Arenamedia, Gramercy Park Media, Lovely Productions, north.five.six., Tea Shop & Film CompanyЖанр: Триллер, драмаРежиссер: Лоркан ФиннеганАктеры: Николас Кейдж, Финн Литтл, Рахель Абдулрахман, Майкл Аберкромби, Александр Бертран, Джулиан Макмэхон, Грег МакНейлл, Рори О’Киф, , Салли Клюн,Перевод: Дублированный (Велес), Многоголосый (HDrezka, заКАДРЫ), Авторский (М.Яроцкий)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:40:32
+01. Creation 03:38
+02. Heathen Reigns 04:19
+03. Depicting the Macabre 03:39
+04. Symbol of Submission 03:32(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F81C7D45FB032B01FD300907E11FFD4A5A894E9A
+magnet:?xt=urn:btih:ECC8A22FDD39CCE1C434985F9DC1535863217210
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,132 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838842   (261505) от 25.11.2025
+###  Публикация: 1193424   (262147) от 21.12.2017
 
-Займёмся любовью / Let's Make Love (1960) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261505.jpg" />
-</div>
-
-
-###  Подробнее
-
-У мультимиллионера Жана-Марка Клемана есть две заветные мечты – сняться в кино и встретить девушку, способную полюбить его самого, а не внушительный банковский счёт. Однажды Клеман узнаёт, что на Бродвее готовится музыкальное ревю, где в образе главного героя будет высмеян он сам. Возмущённый, он отправляется на репетицию, и там режиссёр, не разобравшись, кто есть (   Читать дальше...   )Производство: США / The Company of Artists, Twentieth Century FoxЖанр: мюзикл, мелодрама, комедияРежиссер: Джордж КьюкорАктеры: Мэрилин Монро, Ив Монтан, Тони Рэндалл, Фрэнки Вон, Уилфрид Хайд-Уайт, Дэвид Бёрнс, Майкл Дэвид, Мара Линн, Дэннис Кинг мл., Джо Бессер, Оскар Береги мл., Милтон Берл, Гарри Чешир, Джеки Ли Кохрен, Джон КрэвенПеревод: профессиональный многоголосый (Первый канал), профессиональный двухголосый (R5; Светла)Язык озвучки: русский, английскийСубтитры: русские (надписи, песни и полные), английскиеПродолжительность: 01:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85DD1493EF47F526194BF684F13109066D3194E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838866   (261504) от 25.11.2025
-
-Волна желания / Ondata di piacere (1975) BDRip [H.264] [AVO] [Unrated]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джорджио, самовлюблённый мужчина, вместе со своей подругой Сильвией, новой знакомой Барбарой и с её молодым человеком Иремом отправляются на морскую прогулку на собственной яхте. Вскоре Ирем и Барбара оказываются втянутыми в семейные проблемы Джорджио и Сильвии...Производство: Италия / T.L.D. Sinematografica S.r.l.Жанр: драма, эротикаРежиссер: Руджеро ДеодатоАктеры: Эл Клайвер, Сильвия Дионисио, Джон Стайнер, Элизабет Тернер, Саверио ДеодатоПеревод: авторский (Антон Алексеев)Язык озвучки: русский, итальянскийСубтитры: нетПродолжительность: 01:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BB800EAF7934EF464C366B389B5BF572E5F214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838865   (261503) от 25.11.2025
-
-Полнолуние / Full Moon (2025) WEB-DLRip [H.264] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо бывших школьных друзей собираются в Таиланде, чтобы вспомнить прошлое и снова почувствовать себя свободными. Они проводят ночь, наполненную беспорядочными развлечениями, где перемешались секс, наркотики и музыка, и именно эта беззаботность начинает оборачиваться для них тревогой. На следующее утро на берег выбрасывает тело молодой тайки, и вскоре выясняется, (   Читать дальше...   )Производство: Нидерланды / NL FilmЖанр: триллерРежиссер: Дэвид КошереАктеры: Руслан Батршин, Сонни Чатвириячай, Байрон Гибсон, Кей Грейданус, Жозефина Эрреро, Муангтай Джиравонгнирандон, Янник Йозефсун, Тирават Малвилай, Джоп Падденбург, Раттаначай ПакдиратПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, голландскийСубтитры: русские (full - AI), английские, французские, голландскиеПродолжительность: 01:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB6F3180EECBC82D41DF4DE6899C4CD8DAF7E3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838863   (261502) от 25.11.2025
-
-Nostradamus: The Last Prophecy / Нострадамус: Последнее предсказание (2014) [Ru/Multi] (1.0.2) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nostradamus: The Last Prophecy – квест от первого лица, события которого разворачиваются во Франции в 16 столетии. Екатерина Медичи обращается за помощью к своему астрологу Нострадамусу после того, как близкие ей люди начинают умирать от ужасного проклятия.Тип издания: LicenseРазработчик: MicroidsЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Итальянский, Немецкий, ИспанскийЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19E19E9250D6AE20C337890F7ABB88D608F4D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838864   (261501) от 25.11.2025
-
-VA - Uplifting Only Top 15: November 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+VA - Best of Afterworld (2017) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261501.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ADOVE (CH) - Lavender Field (Intro Mix) [7:55]
-02. Alexander Komarov - The Lion Is Born (Extended Mix) [5:03]
-03. Cedric Paul - Harmonic Skies (Extended Mix) [8:44]
-04. Mhammed El Alami - Dawn (Sunyella Extended Remix) [6:47](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:47:19
+01. Men-D - Vine napoi (Original Mix)
+02. Eric Maes - Circular Time (Original Mix)
+03. Zirenz, Men-D - Valhalla (Original Mix)
+04. NRGFactory - Behind the Light (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79E6D316609985FDB8DD7ABF474923FE33B5E3B8
+magnet:?xt=urn:btih:DCAD17359A3EFB3621687EDEDC2BF658A701BE71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838862   (261500) от 25.11.2025
+###  Публикация: 1193604   (262146) от 21.12.2017
 
-VA - Uplifting Only Top 15: October 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+VA - Subculture - The Singles (2017) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261500.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Poinoir - Motherland (Intro Mix) 08:22
-02. Illitheas - Golden Skies (Extended Mix) 07:07
-03. Manuel Le Saux & Db Mokk - Inferno (Extended Mix) 06:17
-04. Phil Dinner - Epic (Original Mix) 04:57(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:39:19
+01. Paul Denton – Curtain Call (Original Mix)
+02. Bryan Kearney – Adrenaline (Original Mix)
+03. Craig Connelly & Jessica Lawrence – How Can I (John O'Callaghan Extended Remix)
+04. Cold Blue – Once in Time (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BCF12AB3DC0E9C4A0EA35C4580891AF4F9D086B
+magnet:?xt=urn:btih:B367CC838795F3C17E4F07C1BEFD36F781BF608C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838867   (261499) от 25.11.2025
+###  Публикация: 1193390   (262145) от 21.12.2017
 
-Заклятье. Кровь экзорциста / The Crucifix: Blood of the Exorcist (2025) BDRip [H.264/1080p] [MVO]
+Hellwitch - Syzygial Miscreancy (1990) Remastered, 2017 [FLAC|Lossless|image + .cue] <Technical Death Metal, Thrash Metal>
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261499.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сара и Фергюс переезжают на дикое побережье Шотландии, чтобы начать свою жизнь сначала, после трагической гибели их маленького сына. Фергюс ведет блог о раскопках древних захоронений. Он находит и выкапывает череп викинга, тем самым невольно высвобождая злого духа, который дремал веками. Дух викинга вселяется в Сару, она становится одержимой, и Фергюс зовет местного (   Читать дальше...   )Производство: Великобритания / Equalize EntertainmentЖанр: ужасыРежиссер: Стивен РоачАктеры: Ханнаж Бэнг Бендз, Алекс Уолтон, Николас Энскомб, Дин Килбей, Джули Мартис, Даррен Ле Февр, Том Картер, Фред РайтПеревод: Многоголосый (OKKO)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), АнглийскиеПродолжительность: 01:34:10
+01. The Ascent
+02. Nosferatu
+03. Viral Exogence
+04. Sentient Transmography(   Читать дальше...   )Жанр: Technical Death Metal, Thrash MetalПродолжительность: 01:16:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:936FD7CB3F19901C31E09F06A061484E778421AA
+magnet:?xt=urn:btih:4772CBA5298481479B7F4C099303BC2F7895013A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,26 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838845   (261498) от 25.11.2025
+###  Публикация: 1193612   (262144) от 21.12.2017
 
-Марина Михайлова | Маркетолог за 69 дней (2025) [MP3, Ольга Баринова]
+VA - The Best Of Suanda Base (Mixed by Ahmed Helmy) (2017) [MP3|320 Kbps] <Trance>
 
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261498.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга – практическое руководство по маркетингу, основанное на личном опыте автора. Она структурирована в виде пошагового курса из 69 дней, где каждый день посвящен отдельной теме.
-Автор подробно рассказывает, как адаптировать западные методики маркетинга к российским реалиям, демонстрируя на собственных кейсах практические инструменты для создания брендов и работы (   Читать дальше...   )Жанр: БизнесИздательство: КнигиумПродолжительность: 05:35:24
+01. Mantra, Ruslan Radriges & Lucid Blue – Take Me Higher (Club Mix)
+02. Nathia Kate, Robin Vane & Russian Dolls – Always (Ruslan Radriges Remix)
+03. Twin View – Bubblegun (Ruslan Radriges Remix)
+04. UltraNova – V1! Rotate! (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB54F74CF7F4F1EDFB75A9CB4B061ED2BE807320
+magnet:?xt=urn:btih:F6C223810CDFFECA6125D47B5DAAC1A8D40FDBF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838868   (261497) от 25.11.2025
+###  Публикация: 1193586   (262143) от 21.12.2017
 
-Заклятье. Кровь экзорциста / The Crucifix: Blood of the Exorcist (2025) BDRip [MVO]
+VA - DJ Box - Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House>
 
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261497.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сара и Фергюс переезжают на дикое побережье Шотландии, чтобы начать свою жизнь сначала, после трагической гибели их маленького сына. Фергюс ведет блог о раскопках древних захоронений. Он находит и выкапывает череп викинга, тем самым невольно высвобождая злого духа, который дремал веками. Дух викинга вселяется в Сару, она становится одержимой, и Фергюс зовет местного (   Читать дальше...   )Производство: Великобритания / Equalize EntertainmentЖанр: ужасыРежиссер: Стивен РоачАктеры: Ханнаж Бэнг Бендз, Алекс Уолтон, Николас Энскомб, Дин Килбей, Джули Мартис, Даррен Ле Февр, Том Картер, Фред РайтПеревод: Многоголосый (OKKO)Язык озвучки: РусскийСубтитры: Русские (Forced) отдельноПродолжительность: 01:34:10
+01. Paul Oakenfold – Deep Space (Original Mix)
+02. Freejak & Martay M'Kenzy – Out of Breath feat. Martay M'Kenzy (Extended Mix)
+03. Tilt & Ruby Turner – Deeper in Love feat. Ruby Turner (Original Mix)
+04. Cory Enemy & Chris Bushnell – Keep It Coming (Club Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:32:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C260E1B9DCE9A694895609ABFE46C0CFE2F9226
+magnet:?xt=urn:btih:0AA806BED85E36EE1E14667D0CAFF560A8017577
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838841   (261496) от 25.11.2025
+###  Публикация: 1193311   (262142) от 21.12.2017
 
-Журнал | PhotoCASA №4 (82) (сентябрь-октябрь 2025) [PDF]
+Warfect - Exoneration Denied (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Журналы
->>Хобби (журналы)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261496.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoCASA - красочный иллюстрированный журнал о фотографии как для профессионалов, так и для любителей. В каждом номере журнала - новинки фото и видео-техники, интервью с известными фотографами и знакомство с их работами, а также уроки по обработке фотографий, советы по съёмке и ещё много другой полезной информации.Жанр: Фотография, хоббиИздательство: PhotoCASAФормат: PDFКачество: Изначально электронное (ebook)
+01. Exoneration Denied
+02. Drone Wars
+03. Filled with Hate
+04. Inflammatory(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34D775723FCCDF91C71069A5E3169C00FF3D4C84
+magnet:?xt=urn:btih:56D97880F7600466AF09ED3A7ADB2FDAB14F27D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,26 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838832   (261495) от 25.11.2025
+###  Публикация: 1193432   (262141) от 21.12.2017
 
-Борис Романовский | Асура. Новый дом (2024) [MP3, Вадим Пугачев]
+VA - Christmas Trance 2018 (2017) [MP3|320 Kbps] <Trance>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261495.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Асура. Новый дом» – роман Бориса Романовского, жанр попаданцы в магические миры, бояръ-аниме, боевое фэнтези.
-Я – Асура, последний представитель высшего народа. Мой родной мир остался позади, сгинул в горниле апокалипсиса. Впереди – новый мир под названием Земля. Но он уже встал на тот же путь – Первый Катаклизм пришёл на планету, и недалёк час, когда наступит Второй. (   Читать дальше...   )Жанр: ФантастикаИздательство: ИДДКПродолжительность: 13:19:00
+01. Alex Numark - Story of A Little Elf (Original Mix)
+02. CJ Stereogun - Margarita's Heart (Original Mix)
+03. Dreaman - Justice (Original Mix)
+04. Emotion Love - Secrets of Life (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFC02054CEB820FE3DDC6DB6296FADAF41BD390F
+magnet:?xt=urn:btih:6962085561412A43B360AD64B89966EC5CA9CBD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838831   (261494) от 25.11.2025
+###  Публикация: 1193430   (262140) от 21.12.2017
 
-Николай Леонов, Алексей Макеев | Полковник Гуров. Медвежий угол (2020) [MP3, Стефан Пипа]
+afarOne - Lucen (2012) Karlrecords [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Modern Classical, Ambient>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261494.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гуров проснулся от тупой сверлящей боли в висках. В тишине гостиничного номера он явственно слышал, как бухает в груди сердце – в унисон с размеренными щелчками механического будильника, который предоставила в его распоряжение милейшая Алевтина Никаноровна, исполнявшая в этом «отеле» странную смесь обязанностей. Эта женщина совмещала в одном лице портье, коридорную (   Читать дальше...   )Жанр: ДетективИздательство: ЛитРес: чтецПродолжительность: 07:07:35
+01. Apart (05:10)
+02. Due (06:07)
+03. Naked Icon (06:55)
+04. El Sueno De La Razon (05:47)(   Читать дальше...   )Жанр: IDM, Leftfield, Modern Classical, AmbientПродолжительность: 00:46:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB0A1A9BD963BCA83B66F3F7D06DBD5B8DEC23D2
+magnet:?xt=urn:btih:3FC13E3EB1162345F338F9CE9A97DD9EC058DEBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,28 +259,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838824   (261493) от 25.11.2025
+###  Публикация: 1193428   (262139) от 21.12.2017
 
-VA - Club Top 13 International (1988) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Synth-pop, Ballad>
+Andrea Belfi - Ore (2017) Float [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal, Contemporary Jazz, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anticline (10:01)
+ 02. Iso (05:58)
+ 03. Lead (05:54)
+ 04. Ton (12:21)(   Читать дальше...   )Жанр: Ambient, Experimental, Minimal, Contemporary Jazz, DowntempoПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79477BC85C7EF4497A0C80E451F4508FF1B17651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193377   (262138) от 21.12.2017
+
+Warfect - Scavengers (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purveyors of Cadavers
+02. Reptile
+03. Anatomy of Evil
+04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB85A2C4F69E41EE21748AE7E19E990072FF281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193409   (262137) от 21.12.2017
+
+B.E.N.T. - Eleven (2001) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit The Road
+02. Evil Greazer
+03. Brain Trust
+04. Nightscape(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04E921B630489EC5C0B1E52F7F7F97304070B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193425   (262136) от 21.12.2017
+
+Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261493.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yello - The Race
-02. Natalie Cole - Pink Cadillac
-03. Blue System - My Bed Is Too Big
-04. Taylor Dayne - Prove Your Love(   Читать дальше...   )Жанр: Electronic, Rock, Pop, Synth-pop, BalladПродолжительность: 00:59:01
+01. Make You Believe In Love (03:33)
+02. Please Don't Go (03:23)
+03. Next To Me (03:00)
+04. One Flight Away (03:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB86700065D12E0453A75F431DF32A0B7787CA78
+magnet:?xt=urn:btih:CB8CA82D49E75404ADD82A2D0A0554EA3279648E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,26 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838860   (261492) от 25.11.2025
+###  Публикация: 1193444   (262135) от 21.12.2017
 
-Вратарь (1936) DVD5
+Broken Thoughts - Keju Luo (昆明市) - Discography 8 Releases (2011-2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Modern Classical, Ambient, Drone, Minimal>
 
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (DVD)
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261492.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В фильме рассказана история простого парня Антона Кандидова. Сперва он работает на сельскохозяйственных работах — перевозит на лодке по Волге арбузы. Заметив, как ловко Антон ловит и грузит арбузы, ему говорят, что он мог бы стать вратарём и играть в футбол.
-И Антон решает последовать совету. На пути к вратарской славе его ждут и победы и разочарования.Производство: СССР / ЛенфильмЖанр: мюзикл, комедия, спортРежиссер: Семён ТимошенкоАктеры: Григорий Плужник, Татьяна Гурецкая, Людмила Глазова, Анатолий Горюнов, Валерий Соловцов, Яков Гудкин, Владимир Крюгер, Дж. Еразмус, Федор КурихинСубтитры: отсутствуютПродолжительность: 01:11:47
+01. Subatomic Days (05:00)
+ 02. Losslessness (05:00)
+ 03. Douglas Firs (05:00)
+ 04. The Primal Forces Of Nature (05:00)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Experimental, Modern Classical, Ambient, Drone, Minimal •Продолжительность: 00:35:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99D59AC85B7942874C6DA129FBBBAAD8D7A562EC
+magnet:?xt=urn:btih:9527964DBDC05DFBA26031B0C70535C34C0D52AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838805   (261491) от 25.11.2025
+###  Публикация: 1193455   (262134) от 21.12.2017
 
-Green Dolls - Dark Cabaret Nights (2025) [MP3|192-320 Kbps] <Electro Swing, Nu-Jazz, Other>
+Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261491.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The House Always Wins
- 02 - The Black Cat Knows
- 03 - The Corridor Deal
- 04 - Money Laughs Louder(   Читать дальше...   )Жанр: Electro Swing, Nu-Jazz, OtherПродолжительность: 00:33:32
+01. La Verità (05:02)
+02. Luomo Nero (04:28)
+03. Canzone Contro La Paura (03:44)
+04. Lamezia Milano (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A95E29851B5818EA8B53664DD2A21569BC3F8F5C
+magnet:?xt=urn:btih:D4ACB198147C457E1AFB24F337D5B511C425599C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838802   (261490) от 25.11.2025
+###  Публикация: 1193297   (262133) от 21.12.2017
 
-VA - No name compilation Deep Chill Vocal House part 16 (2025) (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+VA - Capriccio All’italiana: Italian Hit Parade Vol.22 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261490.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Треклист:
-01 - Reteox - Guarda Indietro
-02 - Jam Music - Magnetic
-03 - Sardø - Amor Bonita(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:40:46
+01.  Al Bano & Romina Power  -  Il Ballo Del Qua Qua  2:50
+02.  Pupo  -  Vita Da Artista  3:19
+03.  Toto Cutugno  -  Solo Noi  4:07
+04.  Umberto Tozzi  -  Tu Piccolo  4:44(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC29E433A6CB4C394BA446D4BA6C4521212055A4
+magnet:?xt=urn:btih:7FBE19C4C8B4815332E7B3D826AEA34CBF8C7DE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,27 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838871   (261489) от 25.11.2025
+###  Публикация: 1193338   (262132) от 21.12.2017
 
-Максим Гуреев | Булат Окуджава. Просто знать, и с этим жить (2018) [MP3, Андрей Руденский]
+VA - Capriccio All’italiana: Italian Hit Parade Vol.24 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261489.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Эпоха великих людей.
-Рассказ о художнике – символе эпохи!
-При том, что имя этого человека хорошо известно не только на постсоветском пространстве, но и далеко за его пределами притом, что его песни знают даже те, для кого 91-й год находится в одном ряду с 1917-м, жизнь Булата Окуджавы, а речь идет именно о нем, спудом умолчания. Конечно, эпизоды, хронология (   Читать дальше...   )Жанр: Русская литература, воспоминания, биография, мемуарыИздательство: Аудиокнига (АСТ)Продолжительность: 06:16:51
+01.  Tony Dallara  -  Come Prima  2:05
+02.  Schola Cantorum  -  Il Calendario  2:31
+03.  Pupo  -  La Vita E Molto Di Piu  3:15
+04.  Riccardo Fogli  -  Malinconia  4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A3624AEB8E7E2C3BD24E7ABA14CF8E322A4EE86
+magnet:?xt=urn:btih:0AA5A56E4AC0F06439C86160EA3DA701214177CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,25 +491,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838872   (261488) от 25.11.2025
+###  Публикация: 1193396   (262131) от 21.12.2017
 
-Трансформация / The Fix (2024) BDRip [H.264/1080p]
+Журнал | Жилая среда №10 (142) (ноябрь 2017) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261488.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В недалеком будущем воздух на Земле становится столь токсичен, что без специальных масок никуда нельзя выходить. Супермодель по имени Элла получает доступ к экспериментальному препарату, который должен помочь людям снова дышать. Однако из-за него она сама начинает меняться.Производство: ЮАР, США / Angry Cloud, Crave Pictures, Moo Studios, ShowmaxЖанр: фантастика, боевикРежиссер: Келси ИганАктеры: Клэнси Браун, Грэйс Ван Дин, Дэниэл Шарман, Эйдан Скотт, Райан Крюгер, Крис Фишер, Девилль Ванник, Caleb Payne, Natalie Robbie, Robyn RossouwПеревод: Дублированный (Zone Vision)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:38:26
+Все об интерьерном дизайне: от международных выставок до реализованных проектов петербургских архитекторов. Средства реализации идей: товары, материалы, технологии.Жанр: Дизайн интерьеровФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4360F794D2EFAA9E55AD7E58A1058024F1B87892
+magnet:?xt=urn:btih:498749DBF897C4418A8E67788A0232EF5683C23E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,28 +517,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838874   (261487) от 25.11.2025
+###  Публикация: 1193466   (262130) от 21.12.2017
 
-Queen - Live At Wembley Stadium (1990) 2 x CD, SHM-CD, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock, Pop Rock, Arena Rock>
+Сергий Нилус | Святыня под спудом (2005) [FB2, EPUB, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПравославиеФормат: FB2, EPUB, PDF (для Букридеров Amazon Kindle, Sony Reader и др.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10D52B4966D2DDFE85944DD52E27530D4F8BEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193531   (262129) от 21.12.2017
+
+Beegie Adair & Friends - Christmas & Cocktails (2011) Green Hill Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Vocal Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beegie Adair - Let It Snow, Let It Snow, Let It Snow (2:57)
+02. Denis Solee - Winter Wonderland (3:58)
+03. Beegie Adair & Jaimee Paul - Jingle Bells/Jolly Old St. Nicholas (3:22)
+04. Lori Mechem (feat. Jack Jezzro) - White Christmas (4:04)(   Читать дальше...   )Жанр: Mainstream Jazz, Vocal Jazz, ChristmasПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B72F823BDCCF57BB43E73EB1A87AAC2363C003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193324   (262128) от 21.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.23 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Al Bano & Romina Power  -  Libertа  4:21
+02.  Patrizio Puanne  -  You're My World (il Mio Mondo)  3:06
+03.  Bobby Solo  -  Zingara  2:43
+04.  Fausto Leali  -  Ci Sei Solo Tu (I've Been Loving You Too Long)  3:50(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D51E1F7EEE9797741ABF596E0D54ED740F0386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193304   (262127) от 21.12.2017
+
+Radiation Romeos - Radiation Romeos (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261487.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. One Vision
-02. Tie Your Mother Down
-03. In the Lap of the Gods… Revisited(   Читать дальше...   )Жанр: Hard Rock, Pop Rock, Arena RockПродолжительность: 01:51:33
+01. Radiation Romeos
+02. Ocean Drive
+03. Bad Bad Company
+04. Mystic Mountain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59928C9A4A52BD10AE085DAAFFBB8658CAFB580C
+magnet:?xt=urn:btih:C3F18DE7175418F436C92BC743B2FB7770CD3DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,25 +630,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838873   (261486) от 25.11.2025
+###  Публикация: 1193457   (262126) от 21.12.2017
 
-Трансформация / The Fix (2024) BDRip [H.264/720p]
+VA - Capriccio All’italiana: Italian Hit Parade Vol.26 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261486.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В недалеком будущем воздух на Земле становится столь токсичен, что без специальных масок никуда нельзя выходить. Супермодель по имени Элла получает доступ к экспериментальному препарату, который должен помочь людям снова дышать. Однако из-за него она сама начинает меняться.Производство: ЮАР, США / Angry Cloud, Crave Pictures, Moo Studios, Showmax, SlatedЖанр: фантастика, боевикРежиссер: Келси ИганАктеры: Грэйс Ван Дин, Дэниэл Шарман, Кинэн Эррисон, Тина Редман, Робин Россоув, Тафара Ньяцанза, Николь Фортуин, Клэнси Браун, Эрнест Ст. Клэр, Кристиан БеннеттПеревод: Дублированный (Zone Vision)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:38:26
+01.  Raffaella Carra'  -  A Far L'Amore Comincia Tu  2:42
+02.  Carmelo Pagano  -  L'Amore Se Ne Va  2:52
+03.  Umberto Tozzi  -  Notte Chiara  4:15
+04.  Gianni Morandi  -  Se Non Avessi Piu Di Te  2:55(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:043AC03CA65A14FE45A92F525396BAE88719FB95
+magnet:?xt=urn:btih:644F8D2EF2ABFFE4711051AAE71EDB12BAD4C3C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,25 +659,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838876   (261485) от 25.11.2025
+###  Публикация: 1193539   (262125) от 21.12.2017
 
-Трансформация / The Fix (2024) BDRip
+Журнал | Дарья. Биография №13 (декабрь 2017) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261485.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В недалеком будущем воздух на Земле становится столь токсичен, что без специальных масок никуда нельзя выходить. Супермодель по имени Элла получает доступ к экспериментальному препарату, который должен помочь людям снова дышать. Однако из-за него она сама начинает меняться.Производство: ЮАР, США / Angry Cloud, Crave Pictures, Moo Studios, Showmax, SlatedЖанр: фантастика, боевикРежиссер: Келси ИганАктеры: Грэйс Ван Дин, Дэниэл Шарман, Кинэн Эррисон, Тина Редман, Робин Россоув, Тафара Ньяцанза, Николь Фортуин, Клэнси Браун, Эрнест Ст. Клэр, Кристиан БеннеттПеревод: Дублированный (Zone Vision)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:26
+Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
+Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97AF83C66080228AF27D86D20D22DF2E4AEE785A
+magnet:?xt=urn:btih:F11256D4E4073F5EA0CBB779F691EFF8B5FDB56D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,54 +686,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838880   (261484) от 25.11.2025
+###  Публикация: 1193478   (262124) от 21.12.2017
 
-Волна желания / Ondata di piacere (1975) BDRip [H.264/720p] [AVO] [Unrated]
+File Cabinet Pro 5.4.3 [En]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261484.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джорджио, самовлюблённый мужчина, вместе со своей подругой Сильвией, новой знакомой Барбарой и с её молодым человеком Иремом отправляются на морскую прогулку на собственной яхте. Вскоре Ирем и Барбара оказываются втянутыми в семейные проблемы Джорджио и Сильвии...Производство: Италия / T.L.D. Sinematografica S.r.l.Жанр: драма, эротикаРежиссер: Руджеро ДеодатоАктеры: Эл Клайвер, Сильвия Дионисио, Джон Стайнер, Элизабет Тернер, Саверио ДеодатоПеревод: авторский (Антон Алексеев)Язык озвучки: русский, итальянскийСубтитры: нетПродолжительность: 01:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D293EFA1E82158AF30CE58E0938FDB8CF1709F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838886   (261483) от 25.11.2025
-
-Станислав Мюллер | Вспомни всё! Секреты суперпамяти. Книга-тренажер (2010) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станислав Мюллер – практикующий психолог, доктор педагогических наук, руководитель центра «Город талантов», главный редактор журнала «УСПЕХ для всех».
+File Cabinet Pro  - менеджер документов из строки меню
+Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. File Cabinet Pro является универсальным и очень простым в использовании приложением.
 
-Перед вами – принципиально новая технология развития памяти. Эффективность этого метода
-настолько высока, что уже после 30 минут обучения начальным навыкам происходит улучшение вспоминаемости информации в полтора-два (   Читать дальше...   )Жанр: Психология, самосовершенствованиеИздательство: ПитерФормат: FB2, RTFКачество: Изначально электронное (ebook)
+Приложение File Cabinet Pro поставляется со встроенным текстовым редактором, вьювером изображений и PDF файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2017Разработчик: Writes for All Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F922A83422EEEB1FA3F6A1C91E227BF62A046B2C
+magnet:?xt=urn:btih:6901A6C3E185194E4A3DF5A87BE6D0783A608D1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,51 +715,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838884   (261482) от 25.11.2025
+###  Публикация: 1193253   (262123) от 21.12.2017
 
-Семейка с приветом: Вояж через Ла-Манш / God Save the Tuche (2025) BDRip
+VA - Capriccio All’italiana: Italian Hit Parade Vol.21 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261482.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семейство Туше снова ведёт мирную жизнь в Бузоле. Но когда Джиджи, внука Джеффа и Кэти, выбирают для участия в футбольном лагере «Арсенал», семья решает воспользоваться этой возможностью, чтобы открыть для себя Англию и встретиться с королевской семьёй.Производство: Франция / Beside Productions, Beside Tax Shelter, Canal+Жанр: комедияРежиссер: Жан-Поль РувАктеры: Жан-Поль Рув, Изабель Нанти, Клер Надо, Сара Штерн, Пьер Лоттен, Тео Фернандез, Элиза Ларниколь, Бернар Менез, Филипп Дюссо, Аристотель ЛайосПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) отдельноПродолжительность: 01:33:30
+01.  Al Bano & Romina Power  -  Che Angelo Sei (Amore Mio)  3:39
+02.  Tiziano Ferro  -  La Differenza Tra Me E Te  3:52
+03.  Sandro Giacobbe  -  Tu Non Cambiare Mai  4:06
+04.  Umberto Tozzi  -  Stella Stai  4:21(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2DA3DA9410FF995E77C715016B064328BCA378E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838883   (261481) от 25.11.2025
-
-Семейка с приветом: Вояж через Ла-Манш / God Save the Tuche (2025) BDRip [H.264/720p]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейство Туше снова ведёт мирную жизнь в Бузоле. Но когда Джиджи, внука Джеффа и Кэти, выбирают для участия в футбольном лагере «Арсенал», семья решает воспользоваться этой возможностью, чтобы открыть для себя Англию и встретиться с королевской семьёй.Производство: Франция / Beside Productions, Beside Tax Shelter, Canal+Жанр: комедияРежиссер: Жан-Поль РувАктеры: Жан-Поль Рув, Изабель Нанти, Клер Надо, Сара Штерн, Пьер Лоттен, Тео Фернандез, Элиза Ларниколь, Бернар Менез, Филипп Дюссо, Аристотель ЛайосПеревод: Дублированный (Невафильм)Язык озвучки: Русский, французскийСубтитры: Русские (Forced, Full), Французские (Full, SDH), АнглийскиеПродолжительность: 01:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C02781592D6FA81864B38D185B84C3972D47348
+magnet:?xt=urn:btih:0E7A2C296B152F779135767AC4A6CAAAEE94AEAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

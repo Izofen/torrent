@@ -1,3 +1,32 @@
+###  Публикация: 1662946   (187508) от 19.09.2023
+
+Kill Devil Hill - Seas Of Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post-grunge, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood In The Water (3:28)
+02. Before The Devil Knows (3:58)
+03. Playing With FIre (4:48)
+04. Undertow (3:28)(   Читать дальше...   )Жанр: Hard Rock, Post-grunge, Heavy MetalПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CBD509FCCB5B74278033BED33C07601CE39379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662788   (187488) от 19.09.2023
 
 The Bites - Squeeze (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Garage Rock>
@@ -716,35 +745,6 @@ John West - Days Of Destiny (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F94A81802878A9C627BEFFB3B4D273B1976DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664150   (186053) от 25.09.2023
-
-Bang Camaro - Bang Camaro I-III (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_186053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2007 - Bang Camaro I
-2009 - Bang Camaro II
-2023 - Bang Camaro IIIЖанр: Hard RockПродолжительность: 02:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21107725F17C413B62B9742629382486A6A4449
 ```
 
 https://mybot314.ru/tekegram_catalog/

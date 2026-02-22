@@ -1,3 +1,96 @@
+###  Публикация: 1554418   (577377) от 30.05.2022
+
+Maciej Krec (Kręc) - Brothers & Friends (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Love (5:02)
+02. Color of His Skin (5:21)
+03. Cheerful (2:35)
+04. Barn Dance (3:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6983E070265FAC0D4C1A6BB50B993A636E2141A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554422   (577368) от 30.05.2022
+
+Mike Morgan & The Crawl - The Lights Went out in Dallas (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ding Dong Daddy (5:02)
+02. Please Accept My Love (2:57)
+03. A Woman (4:47)
+04. Funkafacation (4:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71637E3A276D3D94D9E9FA171CFDFC0AD4C4DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360976   (577278) от 10.07.2011
+
+Romane - Swing for ninine (2011) [FLAC|Lossless]<Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing for Ninine (Romane)
+02. Antilia (Romane)
+03. Charles Eston (Romane)
+04. Liane (M. Cazes)
+05. Folle Ronde (Romane)
+06. Erevan Valse (J. M. Ekherian)
+07. En Souriant (Romane)
+08. Dans le Regard de Laura (Romane)
+09. Niglo Swing (L. Bajata)
+10. Bibiguine (Romane)(   Читать дальше...)Жанр: Swing, Guitar JazzПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042645   (576736) от 14.08.2016
 
 Alexandre Tharaud - Le Boeuf sur le Toit: Swinging Paris (2012) Virgin Classics[FLAC|Lossless|image + .cue] <Ragtime, Piano Jazz>
@@ -655,93 +748,6 @@ The Count Basie Orchestra - The Legend, The Legacy (1989) Denon [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:599112F53FD25D9B5C3E121EF32263FECA0C68AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151088   (574504) от 18.07.2017
-
-Art Pepper & Shorty Rogers - Complete Lighthouse Sessions (1951) 2001, The Jazz Factory [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Popo [11:30]
-02. What's New? [02:21]
-03. Lullaby in Rhythm [05:36]
-04. All the Things You Are [03:09](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6971E8D619B38DEF22A9E72B09BF597B6FFE330C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303372   (574458) от 20.05.2019
-
-Sonny Stitt - Stitt's It (1949 - 1952) 2001, TIM [APE|Lossless|image + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elora [3:12]
-02. Afternoon in Paris [3:05]
-03. Teapot [3:06]
-04. Blue Mode [3:47](   Читать дальше...   )Жанр: BopПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACB5C1FD42A5AD896E1ECF62331795B2F670058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554671   (574161) от 01.06.2022
-
-Bobby Short - You're The Top: Love Songs Of Cole Porter (1999) Telarc [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est Magnifique [3:54]
-02. I Love You, Samantha [4:22]
-03. You Do Something to Me [2:48]
-04. You'd Be So Nice to Come Home To [2:59](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB84B507E6B89FA9748486D9B12F247B073485CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

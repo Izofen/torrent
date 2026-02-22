@@ -1,3 +1,90 @@
+###  Публикация: 1138646   (662324) от 31.05.2017
+
+Howlin' Wolf - The Back Door Wolf (1973) 1995 [WavPack|Lossless|image + .cue] <Blues, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moving 2:47
+02. Coon On The Moon 3:47
+03. Speak Now Woman 4:53
+04. Trying To Forget You 3:36(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697BA4D806BB8BB260DA84E8BD180FFCF0655E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138745   (662323) от 31.05.2017
+
+VA - Afternoon Jazz Time for You (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Morning Jazz Academy - Afternoon Jazz
+02. Background Music Masters - In a Mellow Tone
+03. Instrumental Jazz Music Ambient - Relaxing Music
+04. Jazz Guitar Club - Chilled Jazz(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B3DC35A59277995029C5A650418FDFA6AE9920F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538513   (662304) от 21.03.2022
+
+Robben Ford & The Blue Line - Live at Yoshi's '96 (2022) 2CD, Live [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philly Blues (Live) (8:03)
+02. Chevrolet (Live) (5:06)
+03. Start It Up (Live) (6:05)
+04. Good Thing (Live) (8:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FB1E641FDFA9B044B09811D04682510ACE41A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138764   (662225) от 31.05.2017
 
 VA - Romantic Night: Erotic Jazz (2017) [MP3|320 Kbps] <Jazz>
@@ -655,93 +742,6 @@ Junior Mance Trio - Happy Time (1962) 1999, Original Jazz Classics [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD75948E074A2282A8A6D25A081D8E80D51E228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902759   (660282) от 29.05.2015
-
-Billie Holiday - Cheek To Cheek (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheek to Cheek [03:31]
-02. Let's Call the Whole Thing Off [03:23]
-03. A Fine Romance [03:32]
-04. April in Paris [03:01](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221B1BF0F201C2B597BDE4D0A30388D612DD37E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139382   (660277) от 02.06.2017
-
-Tom Schuman - Designated Planets (2013) Jazzbridge Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Designated Planets [04:34]
-02. A Piece Of Me [04:01]
-03. Against The Odds [04:52]
-04. Sweet Surrender [04:25](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0A9495086405EDBB7CF9654B184C4E6F7F5AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902849   (660227) от 29.05.2015
-
-Jaga Jazzist - Starfire (2015) [MP3|320 кб/с]<Electronic, Experimental, NuJazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starfire
-02. Big City Music
-03. Shinkansen
-04. Oban(   Читать дальше...   )Жанр: Electronic, Experimental, NuJazzПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88069EDE003A1B60C06D97D706A104ADA130AABF
 ```
 
 https://mybot314.ru/tekegram_catalog/

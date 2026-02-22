@@ -1,3 +1,32 @@
+###  Публикация: 1024459   (718254) от 08.06.2016
+
+Severoth - Solitude (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718254.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Гроза / Storm
+2. Самітність / Solitude
+3. Дихання Осені I / Autumn's Breath I
+4. Останні Птахи / Last Birds(   Читать дальше...   )Жанр: Atmospheric Black Metal, AmbientПродолжительность: 01:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3B954D0A4B34560711E5981EB3A7E8D726D5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024401   (718060) от 08.06.2016
 
 Torrent - Gods Of A Fallen Empire (2016) [MP3|320 кб/с] <Melodic Death Metal, Progressive>
@@ -716,35 +745,6 @@ Orbit Culture - Nija (2020) [MP3|320 Kbps] <Groove Metal, Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:554A621CF258A7BFD7EBAB0646E8AB76EA85421F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025602   (710179) от 12.06.2016
-
-Leecher - Slightless (2016) [MP3|320 кб/с] <Gothic Metal, Symphonic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Damnation
-03. Eclipse
-04. Fading(   Читать дальше...   )Жанр: Gothic Metal, SymphonicПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2D3D4A2611C0A2CD5751B2BBB8FF6A4FA2669C
 ```
 
 https://mybot314.ru/tekegram_catalog/

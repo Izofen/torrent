@@ -1,62 +1,3 @@
-###  Публикация: 664463   (12193) от 08.07.2025
-
-VA - The World's Greatest Jazz Collection (2008) /500 CD Box Set/ [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасное Джазовое собрание на 500-х дисках! Это как Большая Советская Энциклопедия. Никто не читал от начала до конца, но в приличном доме полагалось иметь.
-Каждая серия по 100 CD упакована в картонные коробки с пластиковыми накопителями для дисков. Общее содержимое вложено в коробку из высококачественного прессованного картона размером примерно 42 см х 68 см х (   Читать дальше...   )Бокс-сет поделен на 5 разделов по 100 CD в каждом:
-Classic Jazz
-Swing Time
-Big Bands(   Читать дальше...   )Жанр: JazzПродолжительность: 533:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F6E6AB71689CFE23389AB09B62988BC3679D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805787   (12129) от 08.07.2025
-
-Tomas Lindqvist featuring Per Lindvall and Lars Larry Danielsson - Can´t wait (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Can’t wait (4:32)
-02.  Take my hand (3:53)
-03.  On the Other Side (4:48)
-04.  Almost There (4:54)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB16A20BD8A982BECAC9801401499A1561B30ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805750   (12124) от 08.07.2025
 
 VA - Jazz Bello Fresco (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -749,6 +690,64 @@ Bart&Baker - International (Electro Swing) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BEA10E785B2C2F9429A7EC3C06D2AD093C2DCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813114   (7197) от 17.08.2025
+
+Rick Habana - The Collaborations II (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kim Scott - Welcome In (2:26)
+02.  JJ Sansaverino - Voyage (4:03)
+03.  Marion Meadows - Take You Home (4:06)
+04.  Michael Lington - La Costa (4:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91E7502F5C52A3CB757E7DA7E5E512CA16BD0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813082   (7192) от 17.08.2025
+
+Chillaxonic - Summer Selection (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ineffable (5:22)
+02.  Oasis (4:58)
+03.  Aurora (5:13)
+04.  Within Attraction (3:46)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877B3290DD8042D0CD2F5144F92776702B26D05B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 593311   (135401) от 23.12.2012
+
+Don Grusin & Bill Sharpe - Trans Atlantica (2012) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The London Tube
+02. Exotic Boulevard
+03. Down At St Catherine's
+04. War Zone
+05. Chance Encounters
+06. Night Train To Paris
+07. Un Vuelo
+08. Slow Breeze
+09. Mole Trap Cool
+10. After Hours(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593020   (135374) от 23.12.2012
 
 Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
@@ -745,35 +780,6 @@ Cal Tjader - Gozame! Pero Ya... (1980) 1987, Concord Picante [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3BF9C618575887A19EAC288266A0CE87B97E037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680359   (134365) от 29.11.2023
-
-Herb Ellis / Ray Brown Sextet - Hot Tracks (1976) 1990, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Onion Roll [4:26]
-02. Spherikhal [4:55]
-03. But Beautiful [5:25]
-04. Blues for Minnie [4:41](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D108E0A1C5FA67B766CF5A02C3818C8B5D727A48
 ```
 
 https://mybot314.ru/tekegram_catalog/

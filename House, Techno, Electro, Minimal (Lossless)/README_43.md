@@ -1,3 +1,61 @@
+###  Публикация: 1249570   (433596) от 24.09.2018
+
+Vėjopatis - Belaukiant Saules (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sielu Vainikai (08:44)
+ 02. Ledo Asara (07:50)
+ 03. Dievo Sodas (05:56)
+ 04. Plauku Stygomis (04:34)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Techno, AcidПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCFB5CFA382B587C072EF8BAB8A3321980DD045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063777   (432686) от 17.10.2016
+
+Rauschhaus - The End Of All Things (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End Of All Things [04:53]
+02. The End Of All Things (Franz Alice Stern remix) [05:48]
+03. Afraid Of Us [05:21]
+04. The Beginning Of Nothing [05:24]Жанр: Deep House, Tech HouseПродолжительность: 00:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC0CA14F8E310A6B96DC9F52054E1AE985B9E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165688   (432594) от 13.09.2017
 
 Laid Back - Fuck (2014) EP [FLAC|Lossless|WEB-DL|tracks] <House, Dub, Electronic>
@@ -687,64 +745,6 @@ VA - Technoszene Funf (2018) Raumangst Rec [FLAC|Lossless|WEB-DL|tracks] <Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEFA9298951CFC306F9DF888CD61A25C35E91E4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251264   (417847) от 01.10.2018
-
-VA - Mega Power Lifting 70S Hits Workout Compilation (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Dance, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Mama - Get Down on It (Fitness Version)
-02. Don Pablo's Animals - Give Me the Night (Fitness Version)
-03. Thomas - Kung Fu Fighting (Fitness Version)
-04. Steve - Sir Duke (Fitness Version)(   Читать дальше...   )Жанр: House, Dance, DiscoПродолжительность: 01:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4FB2F0642428225142A6D4BDE387E122D7E3C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180438   (417760) от 01.10.2018
-
-Nomenklatür (Nomenklatur) - Discography 13 Releases (2005-2018) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Electro, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fullness Of Emptyness (01:51)
- 02. Lektrovision (05:00)
- 03. Ransom For A Dead Man (04:13)
- 04. She Likes Dark Hair (06:02)(   Читать дальше...   )Тип издания: CD, WebЖанр: Electro/TechnoПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A528ADA72F8AB0E21B7F29FF4495E1FBE84B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

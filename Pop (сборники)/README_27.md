@@ -1,3 +1,32 @@
+###  Публикация: 1120971   (800555) от 02.04.2017
+
+VA - Музыкальный подарок от Европы Плюс. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ирма Нойман - Я Буду 2:51
+002. Ольга Орлова - Девушка Простая 3:35
+003. А-Студио - Только С Тобой 4:19
+004. Майк Павлов - Лайки 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BFFFDAED399C0AECEFB3902FC50B1A3733000C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121171   (800545) от 02.04.2017
 
 VA - German Top 100 Single Charts 03.04.2017 [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Итоговый Еврохит TOP-100 от Европа Плюс за 201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3F9076BB4BE79963A767BE3CE6B8F8063E1657F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386239   (795271) от 28.05.2020
-
-VA - Beatport Hard Dance: Sound Pack #96 (2020) [MP3|320 Kbps] <Hard Dance, Hardcore>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795271.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rob Iyf - Yade
-002. Francesco Zeta - Different Side
-003. Radical Redemption - Born Killers
-004. Vandal!Sm - Drums Of War(   Читать дальше...   )Жанр: Hard Dance, HardcoreПродолжительность: 08:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6C994F706B613F0552AE859E8B9EF48F7667BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

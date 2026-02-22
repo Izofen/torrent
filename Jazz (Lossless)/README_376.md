@@ -1,61 +1,3 @@
-###  Публикация: 1782963   (69854) от 03.03.2025
-
-Joey DeFrancesco - All Of Me (1989) Columbia [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for J. [4:20]
-02. Close to You [4:32]
-03. Carbon Copy [6:01]
-04. All of Me [7:04](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9495D5A90863A3C72FE52521AE574D54CBC20FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783171   (69850) от 04.03.2025
-
-John Graas & Art Pepper - Complete Small Group Sessions (1951 - 1958) 2CD, 2017, Phono [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Popo [3:05]
-02. Didi [2:30]
-03. Four Mothers [2:52]
-04. Over the Rainbow [3:04](   Читать дальше...   )Жанр: West Coast Jazz, BopПродолжительность: 02:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40BB924DB7E0112E5FBE0AD37BA89410016BB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783174   (69845) от 04.03.2025
 
 The Very Tall Band - What's Up? (1998) 2007, Telarc Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -745,6 +687,64 @@ Sadao Watanabe - A Night With Strings (1993) Elektra [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B26C0514340A49B828D59DE7055C130747027EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784318   (69575) от 10.03.2025
+
+Kenny Burrell - Four Classic Albums (1957 - 1959) 2CD, 2023, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birk's Works [9:48]
+02. Hallelujah [11:42]
+03. Lady Be Good [9:59]
+04. Lover Man [8:22](   Читать дальше...   )Жанр: Bop, Hard Bop, Guitar JazzПродолжительность: 02:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539258FFB87BA4A46C8682635CB258AE30688C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784320   (69557) от 10.03.2025
+
+Art Pepper - Straight Life: The Savoy Sessions (1986) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight Life [2:54]
+02. Chili Pepper [2:59]
+03. Cinnamon [3:09]
+04. Tickle Toe [2:53](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BFAD4E79B25910A94759F237B18AD19D9D084F
 ```
 
 https://mybot314.ru/tekegram_catalog/

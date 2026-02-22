@@ -1,3 +1,118 @@
+###  Публикация: 1053510   (525958) от 17.09.2016
+
+Kygo - Cloud Nine (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:09)
+02. Stole The Show (feat. Parson James) (3:43)
+03. Fiction (feat. Tom Odell) (4:04)
+04. Ringing (feat. Kodaline) (3:44)(   Читать дальше...   )Производство: Kygo MusicЖанр: Pop, DanceПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AB1EE8569D566BA37D05F34810B0FB2B62FE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157202   (525875) от 10.08.2017
+
+My Mine - Stone (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juaresh (4:37)
+02. Crime Of Passion (4:13)
+03. Cupid Girl (4:02)
+04. Triangle (3:43)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Italo-DiscoПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721B776157FEE84233906FA6E81360BC34454635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157389   (525511) от 11.08.2017
+
+Goody Goody - Goody Goody (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #1 Dee Jay (6:58)
+02. Super Jock (6:30)
+03. Bio-Rythms (5:47)
+04. Goody Goody (4:09)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E549C00A4F6A34C559A666A29D71F34151DD7F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157221   (525506) от 11.08.2017
+
+Roger Meno - Collection (1986, 2001, 2010) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What My Heart Wanna Say
+02. What My Heart Wanna Say (Instrumental Version)
+03. What My Heart Wanna Say (Galaxy Version)Жанр: Italo-DiscoПродолжительность: 02:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FDDD052CD16A9F24D2462106FE30AA346C6A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157301   (525157) от 12.08.2017
 
 Kesha - Rainbow (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Electropop>
@@ -635,119 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:772EC51FBD3CE725B01E471B37633BABF759D2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314214   (521331) от 12.07.2019
-
-VA - NRJ Hits Caliente (2019) [Explicit] [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521331.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Benny Blanco - I Can't Get Enough
-02. Maitre Gims - Hola Senorita
-03. Meduza - Piece Of Your Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1A085582ACEA8DD5B7DD104EF6FC3341594CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314150   (521211) от 12.07.2019
-
-Инфинити - Inti (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521211.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Inti (Album Intro)
-2. Океан
-3. Трек
-4. Последний раз(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0122D1F4C97768858DB28B8251EF2A5578AA1069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313993   (521201) от 12.07.2019
-
-VA - 100 Hits Old Skool Anthems (2019) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521201.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jennifer Lopez - Jenny from the Block (2:49)
-02. Britney Spears - I'm a Slave 4 U (3:24)
-03. *NSYNC - Girlfriend (4:14)(   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 06:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422B5E395214FB4284BF4C527D25A234D05FFB70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372360   (521156) от 07.08.2011
-
-Sabrina - All of Me (1988) [APE|Lossless]<Italo dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Italo danceПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1459755   (1022806) от 04.04.2021
+
+Face - Варвар (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Факт [03:22]
+02. Ван Дейк [03:08]
+03. Бизнес [03:24]
+04. Солдат [02:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960762B6C80EA37D1C4B283ADAAD28AE9F26CAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459753   (1022799) от 04.04.2021
+
+StaFFорд63 - Десять историй (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не мороси [02:45]
+02. Вы простите меня [03:19]
+03. Да пошла ты [02:53]
+04. 4 x 4 [02:28](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB08133A433D5CAB720576677628BF6471432AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459757   (1022793) от 04.04.2021
 
 Jah Khalib - Мудрец (Deluxe Version) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -687,64 +745,6 @@ Jah Khalib - Collection 6 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Ra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0182DE544DB7C454A097052986534FB33D15857F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349940   (1003732) от 04.01.2020
-
-VA - 100 Greatest Rap Songs The Greatest Hip-Hop Tracks Ever (2020) [MP3|320 Kbps] <Hip Hop, R&B, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Grandmaster Flash - Sign of the Times (feat. The Furious Five) (6:10)
-2.The Notorious B.I.G. - Hypnotize (2007 Remaster) (3:50)
-3.Ice-T - O.G. Original Gangster (2014 Remaster) (5:01)
-4.Pete Rock - They Reminisce Over You (T.R.O.Y.) (feat. C.L. Smooth) (4:46)(   Читать дальше...   )Жанр: Hip Hop, R&B, RapПродолжительность: 06:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B990E9C50644CD4D250F2F5EB3CBF6D9644E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487597   (1003252) от 06.08.2021
-
-Каста - Альбомба (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003252.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я чувак
-2. Турбочелюсть
-3. Я сам
-4. Дома никого(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7954667F298A6C78E21F9853E096402CA1DC688
 ```
 
 https://mybot314.ru/tekegram_catalog/

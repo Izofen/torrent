@@ -1,22 +1,31 @@
-###  Публикация: 517721   (646749) от 01.07.2012
+###  Публикация: 517366   (647916) от 01.07.2012
 
-Анти СМС вымогатель - Образ для записи на DVD v.4 [Multi]
+VA - Включи Погромче 50/50 Vol. 3 (2012) [MP3|256 kbps]<Pop>
 
->>Архив торрентов
->>Архив Программ
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_646749.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка Live Cd необходимых для корректного лечения зараженного SMS вымогателем ПК.Название программы: Анти СМС вымогательЯзык интерфейса: Multi
+01. Jennifer Lopez feat. Flo Rida - Goin' In
+02. Потап и Настя - Прилелето
+03. Gabry Ponte feat. Pitbull & Sophia Del Carmen - Beat On My Drum (Eu Radio Edit)
+04. Слава - Sex Не Любовь
+05. Dee-Dee ft. Ray Horton & Radu Sirbu - Gimme Your Love (Radio Edit)
+06. Пропаганда & MC Джимми - Хабиби
+07. Dave Aude feat. Lena Katina - Never Forget
+08. Денис Майданов и Филипп Киркоров - Стеклянная любовь
+09. Randi - It Takes Two
+10. Стас Пьеха - Старая История(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:52E9E5960AA79D2373D51FA3BD3BE1A588BEC9B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,136 +33,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541422   (646748) от 02.04.2022
+###  Публикация: 517277   (647915) от 01.07.2012
 
-Perfectly Clear WorkBench 4.1.0.2262 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными воспоминаниями. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1D595C81E163F3F19E58BE8D227A25A2BCFE35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541461   (646746) от 02.04.2022
-
-Илсе Санд | Скучаю по тебе. Как пережить боль расставания, восстановить отношения или отпустить (2020) [MP3, Элнара Салимова]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_646746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Илсе Санд, психотерапевта и автора международных бестселлеров «Близко к сердцу» и «Компас эмоций», — о потере связи с близкими людьми. Мы часто переживаем, что перестали общаться со старыми друзьями. Расстраиваемся, что отношениям с любимым человеком не хватает былой открытости. Сожалеем, что дети отдалились и редко звонят, или, напротив, мы сами так и не помирились (   Читать дальше...   )Жанр: Зарубежная психология, Любовь и отношения, Саморазвитие / личностный рост, Социальная психологияПеревод: Анастасия Наумова, Николай ФитисовПродолжительность: 02:56:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517625   (646745) от 01.07.2012
-
-Шеф (сезон 1, серии 1-24 из 24) (2012) DVB
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_646745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для своих подчиненных он просто Шеф, для уголовников – кость в горле. У него простые правила: честно служить, никого не бояться и не предавать своих. Шефа ждет немало проблем на службе. Он жесткий и непреклонный человек. Многим его методы приходятся не по душе, и в его жизненной копилке врагов прибавится. Но среди огромного количества бандитов есть один по-настоящему (   Читать дальше...   )Жанр: криминалАктеры: Андрей Чубченко, Ян Цапник, Эльдар Лебедев, Кирилл Полухин, Игорь Павлов, Татьяна Черкасова, Аркадий Коваль, Алексей Фокин, Филипп Величко, Евгений Савчук, Валерий Ошомков, Дмитрий Кочкин, Анна Королева, Николай Смирнов, Татьяна Ермилова, Андрей Кузнецов, Александр Саюталин, Олег Алмазов, Олег Куликович, Марьяна (Марианна) Семенова, Сергей Гамов, Максим СергеевПродолжительность: 24 ~00:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430421   (646743) от 01.07.2012
-
-Подшивка журналов | Уральский следопыт (1958-1978) [PDF, DjVu]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_646743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный журнал истории и краеведения, путешествий, приключений и научной фантастики.
-Издается с 1958 года (была попытка издания регулярного ежемесячного журнала в 1935 году, но, после выпуска 9 номеров, печать журнала была прекращена не по вине издательства).
-Журнал стал законодателем моды в области научной фантастики. Все почти без исключения ведущие писатели-фантасты (   Читать дальше...   )Формат: PDF, DjVu
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517035   (646742) от 01.07.2012
-
-London 2012: The Official Video Game of the Olympic Games (RePack) [En] 2012 | Audioslave
+Chronoclasm Chronicles (P) [En] 2012
 
 >>Win Игры
->>Simulation (Sport)
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646742.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647915.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Олимпийские игры связаны с одними из самых запоминающихся сцен в спортивной истории.
-Можно с уверенностью сказать, что это мировая арена, где мечты осуществляются, появляются герои и случаются моменты, которые запомнят на долгие годы, и которые произойдут прямо перед вашими глазами. Отныне вы тоже сможете создать свои собственные незабываемые моменты благодаря London 2012 - The Official Video Game of the Olympic Games.
-Взяв на вооружение новые виды спорта, новые события и новые режимы игры, London 2012 сделает спортивное событие мирового масштаба намного больше и лучше, чем когда-либо прежде. Выйдите на трассу, отправьтесь на велодром и погрузитесь в глубокую атомосферу потрясающего HD разрешения, сейчас самое время побороться за гордость своего народа. Отточите свои навыки в режиме "Олимпийские игры", и сыграйте вместе или против ваших друзей, в различных многопользовательских режимах.
-Вершите судьбу мирового масштаба, вместе с London 2012 - The Official Video Game of the Olympic Games.
-(   Читать дальше...   )Тип издания: RePackЖанр: Casual / Simulation / Racing / SportsЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+Посещая дом своего умершего дяди, Джейн натыкается на машину времени. Она решает воспользоваться ей и вызывает временной конфликт. Будущее и прошлое начали объединяться, вызвав парадокс времени. Судьба человечества лежит на чаше весов, и только Джейн может восстановить равновесие! Отправляйтесь в 17-ое столетие Франции, древнюю Индию и посетите таинственных майя, чтобы исправить парадокс времени и спасти мир в этой увлекательной игре.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D48476098EE54EDCBF9F66BF7C099B23222E302
+magnet:?xt=urn:btih:FD2C4B1452AD6C0FDD693C6078DE1382F9901CC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -161,26 +59,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 517644   (646741) от 01.07.2012
+###  Публикация: 517260   (647914) от 01.07.2012
 
-Джунгли (2012) [H.264/1080p-LQ] HDTVRip [Трейлер]
+VA - Beach Chill Las Salinas. The Ibiza Chill Out Album (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646741.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У Сергея и Марины в семейной жизни наступил кризис. Чтобы спасти брак, Марина уговаривает мужа отправиться в экзотическое путешествие. Всю дорогу между супругами не утихают ссоры, которые в конце концов приводят к тому, что они оказываются на необитаемом острове, затерянном в океане.
-Вместо того, чтобы вместе бороться за выживание, наши герои продолжают выяснять отношения, постепенно переходя к настоящим боевым действиям. Но когда оказывается, что остров населен древним племенем воинствующих туземцев, супруги объединяются, чтобы спастись и вернуться на большую землю.Жанр: Комедия, ПриключенияРежиссер: Александр ВойтинскийАктеры: Сергей Светлаков, Вера Брежнева, Александр ПоловцевПеревод: Не требуется (русский язык)Продолжительность: 00:01:20
+1. Monodeluxe - At the Beach - Original Version
+2. Cosmic Funk - I'll Never Stop - Axel B. Sunset Mix
+3. Treasure Room - Nobody - Original Mix
+4. Stereo Mutants - I Wanna Go - Afterlife Remix
+5. Twentyeight - Hope - Original Mix
+6. Michael E - Barcelona - Original Version
+7. Marc Ozz - Bondai Beach - Original Mix
+8. Lady White - Let Me Try - Original Mix
+9. Mauro Mondello - Bamboja - After Teneriffa Mix
+10. Bang Bang - Hate Fleeting - Da Sunlounge Remix(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:41:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AFB56B1DFB3A805F17AF526F32C6A4CF1056104
+magnet:?xt=urn:btih:38925B07592F95BFBA4A01193E521B8144B2E642
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,25 +94,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 517674   (646740) от 01.07.2012
+###  Публикация: 517354   (647913) от 01.07.2012
 
-Ивашка из Дворца Пионеров (1981) DVDRip
+VA - Самые сливки: Летний спецвыпуск (2012) [MP3|256 kbps]<Pop>
 
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646740.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приключения современного мальчика в стране сказок.Жанр: Детский, Рисованная анимацияРежиссер: Геннадий СокольскийПродолжительность: 00:09:25
+01 Ани Лорак - Обними Меня
+02 Маша Вебер - Всё Для Тебя
+03 Dj Riga & Mc Zali - Дяди И Тети
+04 Афродита - Освободи Свой Телефон
+05 Зэбосы - Загорелая Попка
+06 Наташа Королева - Голая
+07 Лана Ярич - А Ты Потанцуй
+08 Стая - Сердце (Cj Alexey Lavrentev Remix)
+09 Глюкоза - Выстрел В Спину
+10 Елена Терлеева - Боль(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:955AEE38645CF82B5C4439FF099CE7914207629C
+magnet:?xt=urn:btih:3C226B342664260A0FB83CC27989A28B0494CD34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,62 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 517758   (646738) от 01.07.2012
+###  Публикация: 517208   (647911) от 01.07.2012
 
-Adele - 21 (Limited Edition) (2011) [MP3 |320 кб/с]<POP>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646738.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rolling In The Deep (03:49)
-2. Rumor Has It (03:43)
-3. Turning Tabels (04:10)
-4. Don't You Remember (04:03)
-5. Set Fire To The Rain (04:01)
-6. He Won't Go (04:37)
-7. Take It All (03:48)
-8. I'll Be Waiting (04:01)
-9. One And Only (05:48)
-10. Lovesong (05:16)(   Читать дальше...   )Жанр: POPПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5747AB9904622C1D75CD4DA147EB41695AE1379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517704   (646736) от 01.07.2012
-
-Рыба моей мечты / Salmon Fishing in the Yemen (2011) [H.264] HDRip
+Красавица из трущоб / Trishna (2011) DVDRip
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646736.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Доктор Альфред Джонс из Лондонского Центра рыболовства получает от некоего таинственного шейха странное предложение: ввести в Йемене спортивные соревнования по ловле лосося. Доктор Джонс отказывается, но абсурдный с научной точки зрения проект попадается на глаза британским политикам, видящим в предложении шейха почти неограниченные возможности.
-
-И тут начинается бурная эпистолярная деятельность всех персонажей от премьер-министра до стенографисток, ловля лосося в которой не имеет ровно никакого значения, кроме как отвлечь общественность от более важных вещей, например, от войны в Ираке. Доводы доктора Джонса о громком провале громкого проекта никого не волнуют, впрочем, герой продолжает пытаться жить своей жизнью, будучи сначала пешкой, а затем и жертвой политической игры.Жанр: Драма, Мелодрама, КомедияРежиссер: Лассе ХалльстрёмАктеры: Юэн МакГрегор, Эмили Блант, Кристин Скотт Томас, Амр Вакид, Катрин Стэдмен, Том Мисон, Рэйчел Стирлинг, Том Бирд, Джилл Бейкер, Конлет ХиллПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: АнглийскийПродолжительность: 01:47:22
+Тришна — девушка из бедной деревни в современной Индии. История начинается с автомобильной аварии. Отец Тришны попал в больницу, нужны деньги. Из Англии как турист приезжает Джей — сын местного богача. Джей соблазняет Тришну и продолжает использовать как сексуальную игрушку и одновременно прислугу. Тришна надеется, что Джей изменится и снова будет ее любить. Она ему предана и не может вернуться домой.Жанр: ДрамаРежиссер: Майкл УинтерботтомАктеры: Фрида Пинто, Риз Ахмед, Калки Коечлин, Анураг Кашьяп, Рошан Сет, Аакаш Дахиуа, Хэриш ХаннаПеревод: Многоголосый закадровыйПродолжительность: 01:48:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DA4AA7DE673035171702FAA43FBD8F369B6C35E
+magnet:?xt=urn:btih:75AA4317C9B623CB0ACCEEDEE96B6DB0AAE4D05F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,25 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 517605   (646735) от 01.07.2012
+###  Публикация: 1032075   (647910) от 06.07.2016
 
-Право на «лево» / Les infideles (2012) [H.264] HDRip
+Компания Faraday Future присоединяется к участию в гонках электрических автомобилей Formula-E
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646735.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_647910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мужская неверность, во всех ее отчаянно абсурдных, умопомрачительно смешных проявлениях — чем не тема для новой комедии? Жан и Жиль в погоне за приключениями готовы на все. Жизнь их изрядно помотала, калейдоскопом меняя декорации вокруг: небольшой отель на окраине города сменялся клиникой для сексуально зависимых, а шикарный парижский ночной клуб роскошными казино Лас-Вегаса… Испробовав все возможные прелести бытия, приятели решают поближе заняться прекрасным полом, соблазняя и заманивая девушек в постель…Жанр: Мелодрама, КомедияРежиссер: Эмманюэль Берко, Фред Кавайе, Александр КортесАктеры: Жан Дюжарден, Жиль Леллуш, Лионель Абелански, Фабрис Агоге, Пьер Бенуа, Вайолетт Бланкер, Венсан Боннассо, Бастьен Буллон, Гийом Кане, Селестин ШапленПеревод: ДублированныйПродолжительность: 01:47:30
+Компания Faraday Future, которая получила известность в определенных кругах благодаря весьма необычному концепту электрического автомобиля FFZERO1, присоединяется к участию в четвертом сезоне гонок электрических автомобилей Formula-E. Компания Faraday Future, к сожалению, не станет создавать свою собственную команду, она станет главным техническим партнером и спонсором (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF0266C74E482F70E4DB7ED67EF5D364C83DEB4C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,28 +181,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141779   (646734) от 12.06.2017
+###  Публикация: 1032180   (647909) от 06.07.2016
 
-VA - Yogamatte Vol.1 Yoga Meditation Chill Out Tunes (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+VA - Зарубежная Дискотека ХХ Века - 66 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
->>Electronic
->>Easy listening
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646734.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Guna Nada Das - Krishna Trance
-02. Alexander S. Karlov - Fish Brother
-03. Emotive - Street Waves
-04. Ucp Berlin - Arrival In Sechet-Hetep(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:27:18
+01. Digital Mind - Count Down ( 1985 )
+02. Charly Danone - Take Me To Bed ( 1988 )
+03. Martinelli - Voice ( In The Night ) ( 1983 )
+04. Noe Willer - Toi Femme Publique ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A61C88858283332691C33132CE28C65EE049F123
+magnet:?xt=urn:btih:1C929E1DE7CD09A6D9CDB2BC2D9C02332EEEAE04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,28 +210,373 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141597   (646733) от 12.06.2017
+###  Публикация: 1032125   (647908) от 06.07.2016
 
-VA - Essential Guide Progressive Trance Vol.13 (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+Emil Viklicky Trio - Kafka On The Shore: Tribute To Haruki Murakami (2011) Japan Edition [FLAC|Lossless|image + .cue] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Afterdark    07:08
+02.  Dolphine Dance    07:16
+03.  Eleanor Rigby    03:58
+04.  Peacocks    06:16(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43D7C834D9F927518E663CB28B0D8AE801BA833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032176   (647907) от 06.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 65 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divine - I'm So Beautiful ( Original 12'' Mix 1984 )
+02. Limbo Koblaz - Doctor Edison ( 1984 )
+03. Wow - The ABC's Of Love ( 1996 )
+04. Fancy - Save The Moment ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECB0B87A909F7320AE29307604DA31F3BFEC7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032170   (647906) от 06.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 62 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riccardo Fogli - Le Donne Degli Amici ( 1985 )
+02. Max Mix - Version Megamix ( Vol. 1 ) ( 1984 )
+03. Sandra - Change Your Mind ( 1985 )
+04. Radar - China Darling ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32800E9246D74225B8B01FFC51F1546111BA6A96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032172   (647905) от 06.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 63 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddy Huntington - May Day ( 1989 )
+02. LLL - Republika ( 1990 )
+03. Joy Peters - You`re So Vain ( 1986 )
+04. Beatles - Something ( 1969 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80884B0885042FD44F31B9A6DF58930925887719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032255   (647904) от 06.07.2016
+
+Lee Morgan - Midtown Blues (1957, 1960) 2CD, 2011, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647904.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Cooker:
+01.A Night In Tunisia [09:25]
+02.Heavy Dipper [07:07]
+03.Just One Of Those Things [07:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56F9CD0B9F641251A66FE81959E7ED07EDE1F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031820   (647903) от 06.07.2016
+
+VA - 1995 Grammy Nominees (1995) Series Grammy Nominees [APE|Lossless|image + .cue] <Folk Rock, Pop Rock, Blues Rock, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boyz II Men - I’ll Make Love to You
+02. Mary Chapin Carpenter - He Thinks He’ll Keep Her
+03. Sheryl Crow - All I Wanna Do
+04. Bonnie Raitt - Love Sneakin’ Up on You(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, Blues Rock, SoulПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954AAB94CE9228B054299EBF8B4C6D8AC1D1F495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032205   (647902) от 06.07.2016
+
+VA - Best of Lounge, Ambient and Chill Out, Vol. 3 (2013) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sylvering - Sunday Bloody Sunday [04:16]
+02. Guenter Haas - Lost in a Dream [06:39]
+03. Metaharmoniks - From Soul to Soul [03:17]
+04. Simon Le Grec - Crying Souls [11:21](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EDFEF0FD8BE56732ECC12FB8C310844A7D0ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032153   (647901) от 06.07.2016
+
+VA - Sexy Chillout Cafe (2016) [MP3|320 Kbps] <Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting Clouds - Footprints (Beach Mix)
+02. Lady Tut - Nothing Is for Certain - Ibiza Mix
+03. Heni Lasut - Miracle
+04. Lamar Ensemble - Tonal Colors(   Читать дальше...   )Жанр: LoungeПродолжительность: 11:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16230835669CD62F1FE2624410FC7F0AEC7C19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032195   (647900) от 06.07.2016
+
+VA - Outline Deep House (2016) [MP3|320 Kbps] <Club, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647900.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amirali - Chromatic Dreams
+002. Damon Paul - Rhythm Is a Dancer (Patricio Amc Luna Mix)
+003. Sante - Awake Feat. J.U.D.G.E (Agoria Remix)
+004. Danky & Brain - Chasing Cars (R.I.C.K. Remix)(   Читать дальше...   )Жанр: Club, Deep House, Electro HouseПродолжительность: 09:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4302D05F45E6FD7BD6FDF28EB7756F8F564503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032181   (647899) от 06.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 67 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fake - Frogs In Spain ( 1984 )
+02. Scala - Macchina Nera ( 12'' Version 1989 )
+03. Cherry ( Lian Ross ) - If You Believe ( Cherry Mix 1999 )
+18. Dr. Alban - It's My Life ( 1992 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34B06630E52BEA727121214001067DDE09B4D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032154   (647898) от 06.07.2016
+
+Stonerider - Hologram (2016) [MP3|320 Kbps] <Classic Rock, Psychedelic Rock, Timeless Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepwalking Awake
+02. Hologram
+03. Dayrunner
+04. War, Traffic, and Blind Faith(   Читать дальше...   )Жанр: Classic Rock, Psychedelic Rock, Timeless RockПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F769438B73CDD6876394FA139A77F839A8E09CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031511   (647897) от 06.07.2016
+
+CERN начинает испытания технологии, которая имеет шансы стать будущим физики элементарных частиц
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_647897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из вещей, которые вы наверняка можете знать относительно экспериментов из области физики элементарных частиц, это то, что во всех подобных экспериментах используются поистине огромные научные установки. Длина туннеля Большого Адронного Коллайдера (БАК), самого мощного ускорителя частиц в мире, составляет 27 километров, а длина самого большого линейного ускорителя (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031873   (647896) от 06.07.2016
+
+VA - Cascades Of Life (2016) [MP3|320 Kbps] <Downtempo, Goa, Twilight>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646733.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  SCHALA - Alpha Shear (Extended Mix)  5:25
-02.  Cosmic & Nilson - See The Light (Extended Mix)  5:04
-03.  Anden State - Fragile (Original Mix)  5:59
-04.  Blufeld - Magical Finger Dust (Jamie Baggotts Remix)  9:07(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:41:24
+01 - Imba - 604 Revolution  -  [11:24]
+02 - Profetia - Rage Against The Crashing  -  [8:17]
+03 - Colin OOOD & Goa Travellers - 100 Billion Neurons  -  [8:47]
+04 - BlackStarrFinale - Siege Of Phobos  -  [8:24](   Читать дальше...   )Жанр: Downtempo, Goa, TwilightПродолжительность: 01:35:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A2A4497A08CFAF236AEABF6ACE63BE62677F9C1
+magnet:?xt=urn:btih:9419CD70FF187BF279C71729204FF87CF2432356
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,28 +584,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141866   (646732) от 12.06.2017
+###  Публикация: 1032187   (647895) от 06.07.2016
 
-VA - Discotech - The Sound of Nu Disco Vol 1 (2017) [MP3|320 Kbps] <Minimal, Tech House>
+VA - Electrodance Latino (2016) [MP3|320 Kbps] <Pop>
 
->>Electronic
->>House
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646732.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mirco Berti - The Groove 05:24
-02. Soldera & Poligamyk - Get It Up ! 05:42
-03. Boomerang - Bang Bang 04:21
-04. Anzzor - Hemmm 05:42(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:32:29
+01. Kike Puentes - Shake That (Original Mix)
+02. Clase-A - Pa Que Bailes (Original Mix)
+03. Fran Garzziak - El Que Te Daba Era Yo (feat Sergio Requena - Radio Edit)
+04. Charly Rodriguez & Tarek Dollar-T - Ella Es (Original Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 02:16:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65C5425164BC95B6639293F45083DF8F8A6CD2B8
+magnet:?xt=urn:btih:1F480981038710B6C8290E6040A1773FE5F21E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,25 +613,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142075   (646731) от 12.06.2017
+###  Публикация: 1031629   (647894) от 06.07.2016
 
-Лучше всех! Рецепты воспитания (2017.06.12) SATRip
+Таня Славянская - Любовь и разлука (2006) [FLAC|Lossless|image + .cue] <Chanson>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646731.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Авторы телевизионного шоу «Лучше всех!», завоевавшего сердца зрителей с первого выпуска, подготовили новый фильм о его участниках — детях, проявивших экстраординарные способности к творчеству, спорту и науке. Они знают сотни стихов, показывают фокусы, чеканят медали, считают не хуже калькулятора и умеют делать многое из того, что мы, взрослые, и представить не можем.Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:51:58
+01. С днем рождения, любимый 03:53
+02. Бригада (дуэт с Сергеем Паради) 04:20
+03. Любовь и разлука 03:40
+04. БабанькиЖанр: ChansonПродолжительность: 00:47:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BB2AF8C553D77CAA171881C47D19E00131C8D22
+magnet:?xt=urn:btih:80DA6805D37C2FB6F1A0B404B2C05C13631C4D50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,28 +642,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141906   (646730) от 12.06.2017
+###  Публикация: 1031648   (647893) от 06.07.2016
 
-VA - Zappi Rocks Ibiza (Compiled by DJ Zappi) Vol. 1,2 (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+Александр Сегень | Поп (2013) [MP3]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646730.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Cheapers - Autumn Blues [06:52]
-02. Elekfantz - Diggin' On You (Solomun remix) [06:40]
-03. David Glass - Gimme Love (feat Moji - Mihalis Safras remix)[06:15]
-04. Danniel Selfmade - And On And On [06:26](   Читать дальше...   )Жанр: Deep House, Tech House |Продолжительность: 05:32:38 |
+Роман посвящен тяжелой, но светлой судьбе русского священника Псковской православной миссии в годы фашистской оккупации. Едва ли не впервые в нашей литературе так подробно раскрывается образ священнослужителя, оказавшегося между атеистических жерновов большевистской и гитлеровской власти. Эту книгу Александр Сегень написал по особому и весьма почетному заказу, поступившему (   Читать дальше...   )Жанр: РоманПродолжительность: 09:24:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:705E34B253C7BF60D6D6244C368672A0B138C693
+magnet:?xt=urn:btih:D2DA41F128D7BB75B3CDF8D75C991A2873F2354F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,28 +668,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141954   (646729) от 12.06.2017
+###  Публикация: 1031810   (647892) от 06.07.2016
 
-VA - Beats For Life Vol.2: 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep House>
+Автономные автобусы-роботы выходят на дороги городов в Швейцарии
 
->>Electronic
->>House
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646729.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_647892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paul Cutie' - Gitano
-02. Cephalonya - Settembre
-03. Dj Aleksij & Klod Rights - Feelin' Nice - Kamisshake British Summer Remix
-04. Alfredam - The Sun - Steve Troiani Pool Party Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:31:51
+Совсем недавно Швейцария присоединилась к группе стран, в которых проводятся испытания электрических автобусов-роботов. Первым швейцарским городом, на улицы которого вышли опытные электрические автобусы-роботы, стал небольшой город Сьон (Sion), население которого составляет порядка 33 тысяч человек. Пара автобусов-роботов будет постоянно курсировать по одному из маршрутов в рамках программы испытаний, которая продлится два года.(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:753A1E56ED82C58E48AD6B60A3F2ED50F3DE7BE7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142039   (646728) от 12.06.2017
+###  Публикация: 1032183   (647891) от 06.07.2016
 
-Oli Brown - Heads I Win Tails You Lose (2010) [APE|Lossless|image + .cue] <Blues-Rock>
+VA - Зарубежная Дискотека ХХ Века - 68 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646728.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Evil Soul  (04:28) 
-02.  Makes Me Wonder  (03:40) 
-03.  Keeping My Options Open  (04:25) 
-04.  Speechless  (04:30) (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:52:48
+01. Fancy - Bolero ( Hold Me In Your Arms Again 1986 )
+02. Scooter - Let Me Be Your Valentine ( 1996 )
+03. Eurythmics - The First Cut ( 1984 )
+04. Baby's Gang - Happy Song ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D98C6B706400284A674F096CD0061230AB7370A0
+magnet:?xt=urn:btih:7B733B3B16BF899D5E851680682E58B159D4C162
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,222 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141960   (646727) от 12.06.2017
+###  Публикация: 679487   (647888) от 14.07.2013
 
-Газета | Советы и секреты. Дача №6 (июнь 2017) [PDF]
+Faith No More - Greatest Hits (2001) [FLAC|Lossless]<Alternative>
 
->>Журналы
->>Домоводство (журналы)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646727.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_647888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Советы и секреты. Дача» - издание, которое почти полностью состоит из писем читателей – садоводов и огородников, в которых они делятся советами и опытом друг с другом. Тематика статей самая разнообразная: обустройство дачного участка, дома и газона, народные приметы, лунный календарь и многое другое. Помимо этого даются советы специалистов. Газета прибавит вам знаний (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
+01. Care a Lot (Original Version) [4:05]
+02. Introduce Yourself [1:35]
+03. From Out of Nowhere [3:23]
+04. Epic [4:54](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:18:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB1D69A3B7ED5086831C04D004C2E23E94344740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141427   (646726) от 12.06.2017
-
-Т. Тарасова (ред.) | Спасая себя и других. Преподобный Серафим и наше время (2012) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646726.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматривается феномен старчества как особый благодатный дар Духа Святого и старчество преподобного Серафима как главный его подвиг. Объясняется связь великих духовных событий с важнейшими поворотными моментами в истории России.
-
-«Радость моя, стяжи дух мирен — и вокруг тебя тысячи спасутся». Так, спасая себя и других, поставив духовное на первое место в (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FDC888776D5DB0F24C827EBEC524D01666FDDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141965   (646725) от 12.06.2017
-
-Jim Perry - I'm Still Thinkin' (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Makin' a Man Outta Me  (05:11) 
-02. I Think About You  (04:26) 
-03. My Baby's Bad (and that's good)  (05:35) 
-04. She's a Sweet Thang  (03:32) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36C3DA77C298FD8E2E0582D4D70AA308946D573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141911   (646724) от 12.06.2017
-
-VA - Acoustic Unplugged. Bar Lounge Compilation Playlist 2017.2 [MP3|320 Kbps] <Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Despacito - No Lie (feat. Don Sharicon) - Relax Edit
-02. Bang La Dash - Paris - Chilled Out Remix
-03. Greg Diamonds - Shape of You - Zouave Mix
-04. A Taste Of Sugar - Cool Girl - Sunset Chill Remix(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69B4DB645E19621CFB3909556BF5086B19265B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142084   (646723) от 12.06.2017
-
-VA - Balearic 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cantoma - Abando (Original Mix)  5:12
-02.  The Madrigal - Ride To The Moon (Original Mix)  3:58
-03.  Fuga Ronto - Daydreams (Original Mix)  6:21
-04.  Shy Layers - Black & White (Original Mix)  3:03(   Читать дальше...   )Жанр: Downtempo, Chillout, BalearicПродолжительность: 02:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768BCA7E4CA428684EE36E10775FD82F83A36F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142043   (646722) от 12.06.2017
-
-Журнал | Профиль №22 (1002) (июнь 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83361F2F19242610C022397D60AEE98FC8AAFE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141382   (646721) от 12.06.2017
-
-Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.06.09) WEB-DLRip (сезон 3, выпуск 2)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646721.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD54CFAC109FC87482AAA70AD59D661C69BD09B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141835   (646720) от 12.06.2017
-
-Tomates - Time Management 6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tomates Time Management помогает вам повысить производительность с помощью одного из самых эффективных методов управления в личных или паре рабочих средах.
-
-Приложение очень настраивается в таких аспектах, как время на перерывы или задачи, уведомления, серии задач, все это в красивом и подробном интерфейсе.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09 июня 2017Разработчик: Adolfo Vera BlascoПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA3B5F3715072C219C59F454F3A39252DC3A078
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

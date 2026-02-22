@@ -1,3 +1,32 @@
+###  Публикация: 1076886   (243587) от 26.11.2016
+
+VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Sestertius [07:38]
+02. Ferry Corsten & Cosmic Gate - Event Horizon (Extended Mix) [05:40]
+03. Alex M.O.R.P.H. & Paul Van Dyk - We Are [07:20]
+04. Andy Moor & Somna - Look Back (Original Mix) [06:00](   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD962B83D3E9B46CD2823836EAA9BF0C9558DE36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612614   (243556) от 17.02.2023
 
 VA - Global Trance Masters Vol. 5 (2023) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Deep Trance Showcase I (2023) [MP3|320 Kbps] <Trance, Progressive, Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E1FFE4CE9DE85A3DCA58C586D23B27BF17F9F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627716   (237138) от 20.04.2023
-
-VA - Silent Shore Trance: Spring (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Db Mokk - Miles Away (Original Mix) [3:23]
-02. James Kitcher - Aphrodite (Original Mix) [3:29]
-03. Virtuan - Magenta (Original Mix) [3:28]
-04. BreaKevin - Push (Original Mix) [3:41](   Читать дальше...   )Жанр: TranceПродолжительность: 01:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FC0184132C60A13E5686D9D9EEE3E03E62B1D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

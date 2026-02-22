@@ -1,3 +1,32 @@
+###  Публикация: 1188093   (276160) от 01.12.2017
+
+Marcus Printup - Young Bloods (2015) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En Route [07:47]
+02. The Bishop [07:38]
+03. My Foolish Heart [07:03]
+04. Young Blods [07:07](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A732A94A71B743EF08577892F5F2C695C8CE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337126   (276130) от 09.11.2019
 
 Candy Dulfer - Top 40 Candy Dulfer: Her Ultimate Top 40 Collection (2018) 2CD [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
@@ -724,35 +753,6 @@ Bunny Berigan - 1936 - 1937 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E486E004F7418CB3D14EEE8A60C4956420EC585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265555   (274065) от 28.11.2018
-
-Sade - Rare Adventure (2003) Unofficial Release [FLAC|Lossless|tracks + .cue] <Soul, Funk, Jazz, House>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. I Never Thought I'd See The Day (Club Mix) (8:03)
- 02/12. Pearls (Club Mix) (8:35)
- 03/12. Love Is Stronger Than Pride (4:28)
- 04/12. Super Bien Total (92 Remix) (6:50)(   Читать дальше...   )Жанр: Soul, Funk, Jazz, HouseПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FFB57C25B64A09936A894FBE710702EEE009E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

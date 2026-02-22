@@ -1,3 +1,29 @@
+###  Публикация: 1402938   (698032) от 16.08.2020
+
+Segregate - 2 Album/2 Singles (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Птицы [00:04:18]Жанр: Progressive Metalcore, Groove MetalПродолжительность: 4 CD, 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A4BE59D0E445DC279CFC9DC8F5F8F3CE828B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402706   (698023) от 16.08.2020
 
 Maestro Nosferatu - Maestro Nosferatu (2020) [FLAC|Lossless|WEB-DL|tracks] <Gothic Industrial>
@@ -734,35 +760,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536954   (669323) от 15.03.2022
-
-Ork Bastards - Warmongers Of The Gloomy Lands (2019) [FLAC|Lossless|image + .cue] <Speed Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Baptized By Smoke And Fire
-03. Green People Of Barsoom
-04. Exile King(   Читать дальше...   )Жанр: Speed Metal, Black MetalПродолжительность: 00:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0B85E6F284403A356DD637A77704920AB32902
 ```
 
 https://mybot314.ru/tekegram_catalog/

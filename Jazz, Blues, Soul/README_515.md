@@ -1,3 +1,32 @@
+###  Публикация: 1685890   (126768) от 21.12.2023
+
+Ella Fitzgerald & Louis Armstrong - Ella & Louis Wish You A Swinging Holiday (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz vocal, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleigh Ride [00:02:55]
+02. Cool Yule [00:02:56]
+03. Let It Snow! Let It Snow! Let It Snow! [00:02:43]
+04. I've Got My Love To Keep Me Warm [00:03:10](   Читать дальше...   )Жанр: Jazz vocal, SwingПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9632E059BA37F6EF7B0870A9806F82F97EA6DDEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686097   (126749) от 21.12.2023
 
 Benny Goodman - Undercurrent Blues (1940 - 1949) 1995, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
@@ -715,35 +744,6 @@ Horace Silver - 12 Classic Albums (1953 - 1962) 6CD, 2014, Enlightenment [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6830A60A29D4D29B898A59BD8C867B54A44BA834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354773   (126021) от 25.12.2023
-
-Bryan Lee - 14 Albums (1991 - 2018) [FLAC|Lossless|tracks + .cue|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот замечательный блюзовый артист, певец и гитарист, хотя и родился в Висконсине 16 марта 1943 года, но так долго работает в Новом Орлеане, что стал его неотъемлемой музыкальной достопримечательностью. Bryan Lee, его еще знают под псевдонимами Braille Blues Daddy, потерял зрение в 8 лет, работал в баре Old Absinthe House на Бурбон Стрит во Французском квартале с (   Читать дальше...   )Список альбомов:
-1991 - The Blues Is
-1993 - Memphis Bound
-1994 - Braille Blues DaddyЖанр: Modern Electric BluesПродолжительность: 14:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262DFE845C5227717E72566231A683114704B5CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

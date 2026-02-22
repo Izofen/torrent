@@ -1,32 +1,3 @@
-###  Публикация: 1733673   (107243) от 30.06.2024
-
-VA - Blissful Luxury Travel Lounge Tunes for Relaxation and Enjoyment (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Evening Sun (5:25)
-02. Kool&Klean - I Smile (5:09)
-03. Chillaxonic - Morningstar (3:37)
-04. Kool&Klean - The Way You Look Tonight (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B700E15A81B995925A9BB386864DEB26960A3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733675   (107242) от 30.06.2024
 
 VA - Chillhop Summer Vibes (Chillhop Music for Relaxing Days) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -745,6 +716,35 @@ VA - Funky Summer (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1207407AE55821125D39BE2A97A962C8CE94634F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736359   (106692) от 12.07.2024
+
+Miles Davis - Miles In Tokyo (1964) 2005, Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction by Teruo Isono (Live) [1:10]
+02. If I Were A Bell [10:17]
+03. My Funny Valentine [12:50]
+04. So What [8:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B326D86AF1FF8D10DA99F3BC48511568851793
 ```
 
 https://mybot314.ru/tekegram_catalog/

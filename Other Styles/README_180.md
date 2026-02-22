@@ -1,3 +1,32 @@
+###  Публикация: 1087216   (144324) от 28.12.2016
+
+Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Score, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Initiation / Intro Running (02:38)
+02. Execution Onwards (02:39)
+03. Abstergo Rooftop (04:18)
+04. The Animus Room (04:41)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCC4FF5C72A61ECBBF2BDCB6AC96367745B303F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087218   (144274) от 28.12.2016
 
 Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
@@ -777,35 +806,6 @@ Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CC1A651966C38850B7FBAE358B7B71B05BD24C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195824   (138290) от 31.12.2017
-
-Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138290.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Guru Puja (5:03)
-2. Sundhara Chalisa (17:48)
-3. Namoh (10:24)
-4. Devi Chant (10:14)(   Читать дальше...   )Жанр: Meditative, Mantras, EthnicПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACA517BA436E103D2EE13B04432A8E49FBFFC7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

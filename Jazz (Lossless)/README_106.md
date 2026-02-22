@@ -1,3 +1,32 @@
+###  Публикация: 1521215   (766224) от 01.01.2022
+
+Rob Parton's Jazztech Big Band - The Count Is In! (1993) Sea Breeze Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seems Like Old Times [4:05]
+02. The Count Is In! [6:31]
+03. Over the Rainbow [5:23]
+04. Dear Old Stockholm [8:28](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1835A772F54BF7DD9F51FDEDF827DB59B1EAE7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279362   (766196) от 29.01.2019
 
 Hank Crawford - Don't You Worry 'Bout A Thing (1974) 2011, Masterworks Jazz ‎ [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -716,35 +745,6 @@ Philippe Soirat Quartet - You Know I Care (2015) Paris Jazz Underground [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE6FD4F73DD66FFBA81FA3207E0B3A542E7FA5B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279839   (764602) от 31.01.2019
-
-Richard Cole - The Forgotten (2001) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Any Skynyrd [9:05]
-02. The Best Thing for You [5:53]
-03. Angel Eyes [6:47]
-04. Without a Song [7:01](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16695E435F8F1F5590E506BDACB97F1C26564F40
 ```
 
 https://mybot314.ru/tekegram_catalog/

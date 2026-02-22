@@ -1,3 +1,32 @@
+###  Публикация: 1344345   (170527) от 10.12.2019
+
+Culture Club - Colour By Numbers (1983) 1984,  Virgin [FLAC|Lossless|tracks + .cue] <New Wave, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karma Chameleon
+02. It's A Miracle
+03. Black Money
+04. Changing Every Day(   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E046FC2BD1F04945C4BFFC843FE9093A02AF7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344228   (170386) от 10.12.2019
 
 Patricia Kaas - 19 Par Patricia Kaas (2009) Compilation [FLAC|Lossless|tracks + .cue] <French Pop, Blues, Chanson>
@@ -716,35 +745,6 @@ Whitney Houston - I Wanna Dance With Somebody (2022) [FLAC 2.0|44/24|tracks|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E98FDFBEC3ECE1CC76DC2C0B8738AF03B6765F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433163   (162298) от 19.12.2020
-
-Ramon Roselly - Herzenssache (Platin Edition) (2020) [FLAC|Lossless|image + .cue] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162298.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nachts, wenn ich so alleine bin
-2. Wenn du gehst
-3. Es gibt kein Wort dafür
-4. Eine Nacht(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5371AEDCF67FCE0F7CD56E10DCE5645F3D321B
 ```
 
 https://mybot314.ru/tekegram_catalog/

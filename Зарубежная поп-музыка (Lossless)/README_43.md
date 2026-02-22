@@ -1,3 +1,32 @@
+###  Публикация: 1142460   (643108) от 14.06.2017
+
+Toxic Friends - Cleaning up the Mess (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sellouts  (04:25) 
+02. 87 Night Warriorz  (04:58) 
+03. Hangin' with My Boys  (03:41) 
+04. The Candidate  (03:54) (   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567F88AF5EDA9B5814E55E7EEBAFD0BFF79C8413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292937   (643068) от 31.03.2019
 
 VA - 538 Hitzone 88 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Folk, World>
@@ -722,32 +751,6 @@ VA - Come and Get It: The Best of Apple Records (2010) Remaster [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31EF3B31EFEA66F5DEA51D6C606A129E9DD9F0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035473   (628525) от 16.07.2016
-
-Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track] <Pop, Hip-Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Me [00:03:51]Жанр: Pop, Hip-HopПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1264EE03FD48E4EA2F89233B33E689B4025FD14D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1192357   (263257) от 17.12.2017
-
-Stephane Grappelli - Live 1992 (2002) Disques Dreyfus [FLAC|Lossless|image + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minor Swing [05:55]
-02. Galerie Des Princes [06:09]
-03. Ballade [05:25]
-04. Tears [06:04](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507731E79CA418056849A77D76C8E80CCF3F4BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192359   (263252) от 17.12.2017
 
 David Ian - Vintage Christmas Trio (2017) Prescott Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz, Christmas>
@@ -745,6 +716,35 @@ Clark Terry & Bob Brookmeyer Quintet - Gingerbread Men (1966) 1991, Mainstream R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AFC2BFA20250AE041B9EF60AD6F977C3E198EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193713   (261997) от 22.12.2017
+
+Buddy Tate - Swinging Like Tate (1959) 1988, Decca Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bottle It [06:04]
+02. Walk That Walk [08:37]
+03. Miss Sadie Brown [06:00]
+04. Moon Eyes [07:41](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4922FD0EBEA78A315CAAD7A9178CA26D874EACF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

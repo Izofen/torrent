@@ -1,433 +1,3 @@
-###  Публикация: 328721   (78538) от 26.02.2012
-
-Halford - 10 альбомов (2000-2011) [MP3|320 kbps]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Resurrection
-02. Made In Hell
-03. Locked And Loaded
-04. Drop Out
-05. Made Of Metal
-06. Undisputed
-07. Nailed To The Gun
-08. Golgotha
-09. Fire And Ice
-10. Green Manalishi With The Two Pronged Crown(   Читать дальше...   )2000-2011Жанр: Heavy MetalПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7E631DC31798797626934F3F7794583B20B940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345614   (78309) от 25.02.2012
-
-Freedom Call - 8 альбомов (1999-2012) [MP3|224-320 kbps]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1999-2012Жанр: Power MetalПродолжительность: 00:25:44
-
-01.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7935428FFCAFB3E8511FFAF1382412B44384C51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457295   (78149) от 24.02.2012
-
-Xandria - Neverworld's End (2012) [MP3|320 кб/с]<Symphonic Epic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. A Prophecy of Worlds to Fall (7:23)
-02. Valentine (4:11)
-03. Forevermore (4:59)
-04. Euphoria (4:30)
-05. Blood on My Hands (4:17)
-06. Soulcrusher (6:11)
-07. The Dream is Still Alive (4:23)
-08. The Lost Elysion (5:26)
-09. Call of the Wind (4:52)
-10. A Thousand Letters (4:18)(   Читать дальше...   )2012Жанр: Symphonic Epic MetalПродолжительность: 01:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB0FA413B627282F1A3517BF6B97ADFFD014950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215553   (75547) от 11.02.2012
-
-Eluveitie - 5 Albums (2006 - 2012) [MP3|320 kbps]<Folk Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-2006 - 2012Жанр: Folk Metal,  Melodic Death MetalПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 136845   (73895) от 03.02.2012
-
-Caliban - 10 Albums (1999 - 2012) [MP3|256 - 320 kbps]<MetalCore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1999 - A Small Boy And A Grey Heaven
-2000 - The Split Program I
-2001 - Vent
-2003 - Shadow Hearts (Reissue 2005)
-2004 - The Opposite From Within(   Читать дальше...   )Жанр: MetalCoreПродолжительность: 08:04:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445645   (73688) от 02.02.2012
-
-Nightwish - Live at Gibson Amphiteatre (2012) [MP3|320 kbps]<Symphonic Metal>«Сделай свой первый релиз!»
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Finlandia (00:05:25)
-02 Storytime (00:05:29)
-03 Wish I Had an Angel (00:04:00)
-04 Amaranth (00:05:23)
-05 Scaretale (00:06:29)
-06 The Siren (00:04:49)
-07 Slow, Love, Slow (00:05:42)
-08 I Want My Tears Back (00:05:16)
-09 The Crow, the Owl and the Dove (00:05:37)
-10 The Islander (00:05:48)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73DB575778DA502B217DA4FF3887A6D472238D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445117   (73452) от 01.02.2012
-
-Peter Crowley Fantasy Dream - Коллекция 8 альбомов (2011-2012) [MP3|320 kbps]<Epic Fantasy Symphonic Metal> «Сделай свой первый релиз!»
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Epic Fantasy Symphonic MetalПродолжительность: 08:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA19AC5982174296715F935C40E5C24A474DCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439373   (72232) от 25.01.2012
-
-Biohazard - Reborn In Defiance (2012) [MP3|320 kbps]<Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. 9:Iiix6.941 (0:54)
-02. Vengeance Is Mine (3:24)
-03. Decay (4:24)
-04. Reborn (4:52)
-05. Killing Me (4:49)
-06. Countdown Doom (4:56)
-07. Come Alive (3:48)
-08. Vows Of Redemption (4:57)
-09. Waste Away (4:24)
-10. You Were Wrong (6:05)(   Читать дальше...   )2012Жанр: HardcoreПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1706850AEDC9DCEB8F135DBDF7A26094B3A432A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441254   (72127) от 24.01.2012
-
-Blind Guardian - Memories Of A Time To Come [Deluxe Edition] (2012) [MP3|320 kbps]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Disc I
-1. Imaginations From The Other Side [2011 Remix]
-2. Nightfall [2011 Remix]
-3. Ride Into Obsession [2011 Remix]
-4. Somewhere Far Beyond [2011 Remix]
-5. Majesty [2011 Remix]
-6. Traveler In Time [2011 Remix]
-7. Follow The Blind [2011 Remix]
-8. The Last Candle [2011 Remix]
-(   Читать дальше...   )2012Жанр: Power MetalПродолжительность: 00:52:03 + 00:51:28 + 01:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC195A533E4629E30C01AD88143FD51AD63DE1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770543   (71914) от 05.01.2025
-
-Эсента - Вечность (2018) [MP3|320 Kbps] <Symphonic, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71914.jpg" />
-</div>
-
-
-###  Подробнее
-
-◈ 01 - Не Сейчас (00:04:54)
-◈ 02 - Высь (00:03:38)
-◈ 03 - Путь (00:04:35)
-◈ 04 - На Краю Земли (00:04:42)(   Читать дальше...   )Жанр: Symphonic, Heavy MetalПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B7CD5810A2263AE63FB2291FF0C36F0A34027B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771683   (71809) от 08.01.2025
-
-Evadam - Jiva (Deluxe Edition) (2013) [MP3|320 Kbps] <Oriental Electronic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return Of The Nephilim
-02. Enuma Elish
-03. Алеф
-04. Под Обломками Мира(   Читать дальше...   )Жанр: Oriental Electronic MetalПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD5855832A1A2DC45162522A7C6899E6A6DA6C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771691   (71795) от 08.01.2025
-
-7Letters - Ver 2.0 (2016) [MP3|320 Kbps] <Alternative Metal, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сделай Шаг
-02. Новый День
-03. Планеты
-04. Весенний Дождь(   Читать дальше...   )Жанр: Alternative Metal, ElectronicПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3133725CA44A7359EF9AB6CD2147E6252B3193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772289   (71787) от 10.01.2025
-
-Garden Of Stone - The Grave Mistake (2025) [MP3|320 Kbps] <Melodic Death, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Visions of the End
-02. Day of Discord
-03. The Prophet
-04. Waiting for the Light(   Читать дальше...   )Жанр: Melodic Death, Heavy MetalПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CB724AAFB5C916694AF8DD6650CE0F1D14B610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777494   (70984) от 06.02.2025
-
-Drohkaal - Divinity Within (2024) [MP3|320 Kbps] <Thrash, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Shot
-02. Best Served Cold
-03. The Witch
-04. Where Are We Headed(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F53E36E7E7155E0A3242740D16BE4E1A347FE49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778302   (70902) от 08.02.2025
 
 Dream Theater - Parasomnia (2025) [MP3|320 Kbps] <Progressive Metal>
@@ -769,6 +339,412 @@ Telepathy - Transmissions (2025) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CABF13FE95BA4B807610A9C6241D2A119D1EEA3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790534   (68084) от 09.04.2025
+
+NightKill - Survive The Night (2025) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survive The Night (05:06)
+02. Lost Heaven (05:45)
+03. The Only One (03:42)
+04. Don't Give Up (05:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B74538E4237F518E7D57075AB01A717F39D898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790814   (67982) от 11.04.2025
+
+The Man-Eating Tree - Night Verses (2025) [MP3|320 Kbps] <Atmospheric Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Night Verses [00:01:03]
+02 - Days under the Dark [00:07:40]
+03 - Seer [00:04:40]
+04 - These Traces [00:05:12](   Читать дальше...   )Жанр: Atmospheric Gothic MetalПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A3DE5286952E7675E745AF2CCDDBE357C4AE84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793588   (67478) от 25.04.2025
+
+Machine Head - Unatoned (2025) [MP3|320 Kbps] <Groove Metal, Thrash Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LANDSCAPE OF THORNS (00:31)
+ 02. ATOMIC REVELATIONS (03:42)
+ 03. UNBOUND (03:57)
+ 04. OUTSIDER (03:57)(   Читать дальше...   )Жанр: Groove Metal, Thrash Metal, Alternative MetalПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E51AF8C2448524257D486A98B83D6556F99BFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793449   (67468) от 25.04.2025
+
+Ancient Bards - Artifex (2025) Deluxe Edition [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luminance And Abyss (Instrumental)
+02. My Prima Nox (Instrumental)
+03. The Vessel (Instrumental)
+04. The Empire Of Black Death (Instrumental)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 2CD, 02:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC081097832930A86FC34CB6947FCF3E24F738B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794165   (67394) от 27.04.2025
+
+Epica - Aspiral (2025) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross The Divide (04:18)
+ 02. Arcana (05:02)
+ 03. Darkness Dies In Light - A New Age Dawns Part VII - (07:59)
+ 04. Obsidian Heart (05:05)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F249DAFB20CF5AA46379EC02389F386D917EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793956   (67283) от 28.04.2025
+
+A.R.A.T.A.N - Chants Nerviens (2025) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Pont-De-Loup À Saint-Ghislain
+02. Noir Terril
+03. Aux Marches Picardes
+04. Aegir Initié(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00: 41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A3A1C9F5CC37B5150903876803007773534319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794032   (67282) от 28.04.2025
+
+Aeonyzhar - The Profane Era (2025) [MP3|320 Kbps] <Symphonic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Age Of Enlightenment
+02. I Spit In The Face Of Forgiveness
+03. Hymn Of The Golden Age
+04. Divine Hybrid Euphoria(   Читать дальше...   )Жанр: Symphonic Death, Black MetalПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D6425D132FDD67BBB3CE786522585B917F2CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794380   (67260) от 29.04.2025
+
+Aggravated Assault - The Order of Chaos (2025) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apathy
+02. Vivisection
+03. War Cry
+04. The Dahmer Party(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B75CD6A3BE8EB753D0C667DA7D927AF5176D8F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794522   (67241) от 29.04.2025
+
+Ausweglos - Ausgestoßen (2025) [MP3|320 Kbps] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vergänglichkeit
+02. Eine Erzählung
+03. Einsamkeit
+04. Funeral Song(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9DCECDBA2785B4AD021C767E9A23934AD5152CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794473   (67236) от 29.04.2025
+
+Aryoch - The Passage (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Passage
+02. Brutal Symphony
+03. King of Ellasar
+04. Demonic Psychosis(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 01:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C47EE636426BE5B663459BADBD24E0CF74F998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794927   (67220) от 01.05.2025
+
+Crematory - Destination (2025) [MP3|320 Kbps] <Industrial Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Destination (04:59)
+ 02 - The Future Is A Lonely Place (04:42)
+ 03 - Welt Aus Glas (04:31)
+ 04 - My Girlfriend's Girlfriend (feat. Michelle Darkness) (03:44)(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF7347B3E4A8C196AD3C08F3DC003F9D91C06D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794886   (67192) от 02.05.2025
+
+Awaken the Night - Total Kommando (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuclear Inverno (Intro)
+02. Emerald Fog
+03. Attila
+04. Fast for Freedom(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CBEF12FB375E0AEBCA5FCE42847F5F12FC1A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795242   (67069) от 04.05.2025
+
+Bloodtooth - Bloodtooth (2025) [MP3|320 Kbps] <Industrial Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodtooth
+02. Shackle Of Madness
+03. Backbreaker
+04. Dark Transmissions (From Hell)(   Читать дальше...   )Жанр: Industrial Black, Death MetalПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A36FE7FA53A60244C754AFB8DA04E043DAFBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795564   (67047) от 05.05.2025
+
+Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maniac Attack
+02. Eye of the Night
+03. Call of the Void
+04. KIA(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DD6E5798F85BE300894AAE3D8B2C80FAEA86F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

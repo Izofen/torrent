@@ -1,3 +1,32 @@
+###  Публикация: 958050   (325628) от 19.11.2015
+
+VA - Die Hit-Giganten: Instrumental Hits (2009) 2CD [FLAC|image+.cue]<Pop, Electronic, Jazz, Rock, Latin, Funk / Soul>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну вот собственно и последний диск (из имеющихся в наличии) серии (ссылка на серию внизу раздачи), выпущенной немецким подразделением Sony Music. На первый взгляд может показаться достаточно сумбурным выбор составителей, но приглядевшись (а, главное, прислушавшись), понимаешь, что здесь охвачено всё разнообразие инструментальной музыки. Наверное поэтому в список (   Читать дальше...   )CD1:
+01. Mike Oldfield - Tubular Bells  (4:16)
+02. Santana - Samba pa ti  (4:42)
+03. Fleetwood Mac - Albatross  (3:09)(   Читать дальше...   )Тип издания: 2CDЖанр: Pop, Electronic, Jazz, Rock, Latin, Funk / SoulПродолжительность: 02:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504E7ACCAF3F662D9EBC4B555BD95C0BCE928987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957980   (325619) от 19.11.2015
 
 Enya - Dark Sky Island (2015) Deluxe Edition [MP3|320 кб/с]<New Age, Celtic>
@@ -720,35 +749,6 @@ Two Steps From Hell - Skyworld (2012) [MP3|320 кб/с]<Trailer Music, Epic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36C7595C7FC563080FED573C0FE442ED74D06BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958789   (319371) от 23.11.2015
-
-Eloy Fritsch - The Garden of Emotions (2009) [FLAC|image+.cue]<Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Garden Of Emotions - Part I
-02. The Garden Of Emotions - Part II
-03. The Garden Of Emotions - Part III
-04. The Garden Of Emotions - Part IV(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618BF756AC17A771567F892BC30C94AC5184F1F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

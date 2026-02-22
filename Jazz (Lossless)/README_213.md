@@ -1,3 +1,32 @@
+###  Публикация: 1252530   (409436) от 05.10.2018
+
+The Four Freshmen - Greatest Hits (1993) Curb Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graduation Day [3:06]
+02. Day by Day [1:59]
+03. It's a Blue World [2:58]
+04. Charmaine [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC217A6CF2B5F20BBA59D907F181B11FE116EF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252527   (409431) от 05.10.2018
 
 John Scofield - Bar Talk (1980) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
@@ -718,35 +747,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07BA416D3731A7CC46B4416766FC0134EC29FC8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574024   (407544) от 03.09.2022
-
-Joey Alexander - Origin (2022) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remembering [5:44]
-02. On the Horizon [5:28]
-03. Dear Autumn [5:38]
-04. Winter Blues [7:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C5FAEA1E1771F0E838D4B4C1A4072BEF80ADC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

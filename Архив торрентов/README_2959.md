@@ -1,3 +1,38 @@
+###  Публикация: 225237   (565990) от 08.08.2010
+
+VA - Reiki. Helende Levensenergie (2009) [MP3|320 kbps]<New Age>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner-Reiki (Ad Visser intro in Dutch)
+02. Luna - Lotus Opening
+03. Daniele Garella - Lullaby
+04. Patrick Kosmos - Eargasm
+05. Aeoliah - The Treasure
+06. Max Folmer - Relaxing Waves
+07. Simon Cooper - Music of the Womb Part 1
+08. Danny Becher - Lighness I
+09. David Sun Productions - Healing Birdsong Part 1
+10. Erik Berglund - Healing Light(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921822   (565949) от 30.07.2015
 
 Дивергент, глава 2: Инсургент / Insurgent (2015) BDRemux 3D [H.264/1080p] [3D/2D] [Line]
@@ -701,35 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D65CB849390DC228AD75A756BE8DB00EE1FFADE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044572   (565659) от 20.08.2016
-
-Прыжки в воду. Олимпийские игры 2016. Женщины. Вышка 10 м. 1/2 финала. (18.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565659.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 августа 2016 года, четверг. 16:00 МСК.
-Прыжки в воду. Женщины. Вышка 10 м. 1/2 финала.
-
-Арена: Мария Ленк Акватик Сентер (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Гришин)Продолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EADAB8D6F583B29BFF7837FFBC2B5D95A896F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

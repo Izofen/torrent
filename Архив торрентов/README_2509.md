@@ -1,3 +1,32 @@
+###  Публикация: 1140057   (658119) от 04.06.2017
+
+Red Flag - Naive Dance (1990) [FLAC|Lossless|image + .cue] <Synthpop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Heart (U.K. Remix) - 5:20
+02. Russian Radio (Glasnost Club Mix) - 7:29
+03. If I Ever (1000 Years Mix) - 6:41
+04. Count To Three (House Mix) - 7:33(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B94DE2453EEF9651D82F0C041CCB32E273EEFF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539499   (658116) от 25.03.2022
 
 Google Chrome 99.0.4844.84 Stable + Enterprise [Multi/Ru]
@@ -686,41 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9CE35332F57E4AD2DAA5CDF80E27C235395E42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514787   (657962) от 24.06.2012
-
-VA - Goa Culture Vol. 6 (2 cd) (2012) [MP3|320 кб/с]<Psychedelic / Progressive, Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657962.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность - 01:13:32
-
- 01. Zyce & Flegma - Underwatch 7:10
- 02. Nerso - Desert Oasis 7:24
- 03. Lyctum - Chance to Change 8:11
- 04. Zyce - Seconds Minutes Hours 7:52
- 05. Middle Mode - Age of Change (Sonic Entity rmx) 8:25
- 06. Timelock - Disconnected (Gameboy rmx) 8:18
- 07. Man Machine - Vector 7:58(   Читать дальше...   )Жанр: Psychedelic / Progressive, Full OnПродолжительность: 02:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:650FCA97F9A5AD5E2475940B70904C5FF916B0C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

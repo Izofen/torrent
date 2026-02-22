@@ -1,3 +1,34 @@
+###  Публикация: 1513535   (223933) от 29.11.2021
+
+Steelover - Glove Me (1984) Reissue, 2021, Mausoleum [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steelover - hard rock/heavy metal группа из Льежа, Бельгия, образованная в 1982 году.
+После распада в 1986 году группа была реформирована в 2016 году Руди Леннерсом, Ником Гарди и Пэтом Фресоном.
+Их последний концерт в 1986 году, который проходил во Дворце Конгрессов в Льеже, был снят для шоу Music Box совместно с BBC.01. Forever
+02. Give It Up
+03. Rock Bottle
+04. Hold Tight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E68990ACA5C82EA82556B3A537E9FFE8493AB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651185   (223432) от 05.08.2023
 
 AMH (Adam and The Metal Hawks) - Hurry Up And Wait (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -740,35 +771,6 @@ Bad Kingz - Take Me Into Your Kingdom (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CC70A2DBBF96D8B5A8CD9D276112546582B77A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585430   (221568) от 22.10.2022
-
-Sammy Hagar & The Circle - Crazy Times (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: The Beginning Of The End (01:50)
-02. Slow Drain (04:55)
-03. Feed Your Head (03:18)
-04. Pump It Up (03:01)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EA7ED9127D54522C038AF75A6221EFE5E58CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

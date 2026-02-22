@@ -1,3 +1,38 @@
+###  Публикация: 449431   (92992) от 11.02.2012
+
+Walter Beasley - Go With The Flow (2003) [APE|Lossless]<Smooth Jazz, Crossover Jazz, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Go With Flow :: 05:22
+02. West Hamilton Groove :: 04:41
+03. Precious Moments :: 04:11
+04. Suddenly :: 03:36
+05. All I Want :: 04:47
+06. My Pleasure :: 04:29
+07. Brother :: 04:51
+08. (Do I Ever) Cross Your Mind :: 04:50
+09. Let Me Watch You :: 05:18
+10. Don't Know Why :: 03:08(   Читать дальше...   )2003Жанр: Smooth Jazz, Crossover Jazz, R&BПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 449210   (92887) от 09.02.2012
 
 Thelonious Monk and Max Roach - European Tour (2009) [FLAC|Lossless] <Jazz>
@@ -831,41 +866,6 @@ Jimmy Raney - The Complete Jimmy Raney In Tokyo (1988) [FLAC|Lossless]<Bop, Cool
 08. Here's That Rainy Day (6:03)
 09. Cherokee (5:12)
 10. Groovin' High (7:45)(   Читать дальше...   )1988Жанр: Bop, CoolПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445799   (92158) от 04.02.2012
-
-Johan Clement Trio - Trio (1990) [FLAC|Lossless]<Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Merchant
-02. Trico Tism
-03. J.J. Strutt
-04. Darn That Dream
-05. Soft Winds
-06. I Love You
-07. Gamble Time
-08. I Mean You
-09. If I Should Lose You
-10. Duplex(   Читать дальше...   )1990Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:08:09
 
 ## Скачать торент
 ```bash

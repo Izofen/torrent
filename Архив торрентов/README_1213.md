@@ -1,3 +1,29 @@
+###  Публикация: 1371477   (889958) от 31.03.2020
+
+Glarysoft Malware Hunter PRO 1.99.0.688 RePack ( & Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malware Hunter - антивирусный сканер от Glarysoft для обнаружения и удаления активных угроз в системе Windows, использующий движок Avira, который бесплатно можно скачать на сайте. Позволяет выполнять быструю, полную и выборочную антивирусную проверку, а также сканирование выбранных папок и файлов через контекстное меню Проводника Windows.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FAA5BC922AD934C457F590FB26E2A51D3AAD4C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 762379   (889951) от 03.03.2014
 
 South Park: The Stick of Truth / South Park: Палка Истины [PS3] (2014) [En] (USA) [4.31/Cobra ODE/E3 ODE PRO] License
@@ -675,35 +701,6 @@ NirLauncher Package - универсальный пакет из более че
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FCC76C4E5E153AE39043BE7E8FD26E956196F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994557   (889877) от 08.03.2016
-
-Protocol - NDC EP (1999 / 2008 Reissue) Isophlux [FLAC|Lossless|WEB-DL|tracks] <IDM>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ndc (For My Better Half) (05:46)
-02. Waiting (05:46)
-03. Human (06:02)
-04. September 5th (04:50)Тип издания: WEB, Digital Reissue (Two remixes omitted)Жанр: IDMПродолжительность: 00:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAAA94D07AFD1190F4DA29A3BC92DC5AE5E8D1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1622097   (1030525) от 27.03.2023
+
+The War and Treaty - Lover's Game (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover's Game (2:50)
+02. Blank Page (5:35)
+03. Ain't No Harmin' Me (3:51)
+04. Yesterday's Burn (5:11)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DADD3848E4E2C15761E45C76A41CB519D080E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622019   (1030524) от 27.03.2023
+
+Deep Ruts - Stranger (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wolf in Me (2:56)
+02. I've Got the Blues (2:55)
+03. Cold Cold Nights (2:38)
+04. Ain't No Other Place (3:20)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6CC07A3DB155DF6AB94C5B46A8957A6E3F7A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622122   (1030521) от 27.03.2023
+
+Eric Bibb - Ridin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Family (4:46)
+02. Ridin' (5:23)
+03. Blues Funky Like Dat (3:25)
+04. The Ballad of John Howard Griffin (5:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6DF9D3E0BE95821270877C4D281ED63FE1B16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622096   (1030517) от 27.03.2023
 
 The Roadhouse Blues Band - Long Time Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -658,93 +745,6 @@ Wingy Manone - 1944 - 1946 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43E5356584CC4483D9F26772E2C273DB528F2543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449617   (1029782) от 22.02.2021
-
-Elmo Hope - The Final Sessions (1966) 2CD, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029782.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I Love You [10:51]
-02. A Night in Tunisia [10:16]
-03. Stellations [4:22](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 02:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BC7E9418E51449487272414C54A7F53CBD532F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449640   (1029712) от 22.02.2021
-
-Krokfoss Band - Are You Ready (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues ;Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Ready (3:25)
-02. Temptation for Love (4:33)
-03. Don´t Give up on Me (4:10)
-04. Talk to Me (6:17)(   Читать дальше...   )Жанр: Blues ;Blues RockПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08389E39B131F88774D95E4CED68872E8F61A383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449639   (1029708) от 22.02.2021
-
-John Henry and the Rainmakers - John Henry and the Rainmakers  (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues; Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 O'clock (11:00)
-02. I Ain't Lyin (4:32)
-03. I Know What (3:49)
-04. Million Dollar Swing (5:53)(   Читать дальше...   )Жанр: Blues; Blues RockПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA4071517BCF663AE37FD5947FF39A94AF88AAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

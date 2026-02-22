@@ -1,3 +1,90 @@
+###  Публикация: 1592910   (182465) от 24.11.2022
+
+Bad Boys Blue - Heart Beat (1986) Reissue, 2015, Мирумир [OGG Vorbis|600 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Hear Your Heartbeat (Sunday Girl)
+02. Mon Amie
+03. One Night In Heaven
+04. Baby I Love You(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF1910F2892391921E2507956DCEEE2BBFCD4BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427724   (182407) от 29.11.2020
+
+Boogie People - Boogie People (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_182407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance In America  (8:05)
+02. Boogie Breakdown  (7:29)
+03. Boogie People  (10:11)
+04. Disco Is My Life  (5:06)Жанр: Electronic, DiscoПродолжительность: 00:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA58FAA5C68F625D587DF78503358520ED0AE84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592868   (182387) от 24.11.2022
+
+VA - Happy New Year 2023 (2022) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Happy New Year
+02. The Black Eyed Peas - I Gotta Feeling
+03. Katy Perry - Firework
+04. Kool & The Gang - Celebration(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 04:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC4D7A771696913CCA3244424AD5A2973F3F6C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427613   (182384) от 29.11.2020
 
 VA - Winter Mix 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -658,91 +745,6 @@ Sade - Promise (1985) Portrait RK40263 [FLAC|Lossless|image + .cue]< Sophisti-Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:007953AD302DEDA08CFD39EAA9B6A309A8EF70F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428853   (178232) от 04.12.2020
-
-Игорь Саруханов - С кем ты? (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178232.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. С кем ты?
-2. Не знал
-3. Я такую не встречу
-4. Не зови(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF9D870C0CB333E882F98A35A078EF7357F8550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593899   (178076) от 01.12.2022
-
-Bad Boys Blue - Game Of Love (1990) [OGG Vorbis|650 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of Hearts
-02. Jungle In My Heart
-03. I Don't Know Her Name
-04. Jenny, Come Home(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C32B1DFF8D17174B6C58BF1D3A717C9997CE548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594521   (178016) от 01.12.2022
-
-Funny Twins - You And Me (1987) [OGG Vorbis|700 Kbps] <Electronic, Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You And Me (Vocal)
-02. You And Me (Instrumental)Жанр: Electronic, Disco, Italo-DiscoПродолжительность: 00:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BE832A9C0E0B3E424C1C8C9E7D202F93B47FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

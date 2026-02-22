@@ -1,3 +1,61 @@
+###  Публикация: 291270   (682958) от 14.05.2015
+
+Rap Прорыв - Выпуски 1-8 (2000-2006) [MP3|320 kbps]<Рэп, Хип-Хоп>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Da Budz (Москва) - Деньги
+02. Переходный Возраст (С.-Петербург) - Темы Для Разговоров (Feat. DJ Птиц, Т-42 & La Cuuda)
+03. Злой Дух (Казань) - Ангел
+04. EK. Playaz (Екатеринбург) - Кома(   Читать дальше...   )Жанр: Рэп, Хип-ХопПродолжительность: 09:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CD99D8BE8CE060D639CB647D37659B5EFA1A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222796   (682606) от 30.04.2018
+
+Tammy Rivera - Fate (2018) [MP3|320 Kbps] <RnB, Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Did This
+02. Only One
+03. Do Me Like That
+04. One Step Away(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 00:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFB03EDF80B7B17A490521E46916AE7BA2327DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290339   (680226) от 19.03.2019
 
 L'One - Пангея (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FEB440B1D0D6B1588FD7D4411C0D068AE94AF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141195   (652127) от 09.06.2017
-
-Noize MC - Чайлдфри (2017) Single [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652127.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чайлдфри
-2. Чайлдфри (версия Монеточки)
-3. Марафон
-4. Чайлдфри (инструментал)(   Читать дальше...   )Жанр: Rap, Hip-Hop, RockПродолжительность: 00:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5277D059BDEAE0E66F1B28B5645D79CAA3B9800F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227296   (648480) от 25.05.2018
-
-Billy Milligan - Геном (2018) [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Геном
-02. Знамение
-03. Громче музыку
-04. До последнего врага(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C3DC0D8261C6E836346284ACD51C95EE6FC74D
 ```
 
 https://mybot314.ru/tekegram_catalog/

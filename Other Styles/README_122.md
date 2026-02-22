@@ -1,3 +1,32 @@
+###  Публикация: 797289   (473540) от 05.09.2018
+
+Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (2014) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:43)
+02. The Rains of Castamere* (02:42)
+03. Breaker of Chains (04:05)
+04. Watchers On the Wall (02:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 1:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 701841   (472067) от 20.09.2013
 
 IchPak - De mo (2013) Авторская раздача [MP3|320 кб/с]<untitled>
@@ -730,35 +759,6 @@ The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:417C6CCC4DE995D3C92BA9AAF04AB03361C860EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407419   (466398) от 07.09.2020
-
-The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In Your Arms Again
-02. Lies
-03. Born To Be Blue
-04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43D449F042CE44C44752F8602AE03C55BE953A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 584493   (307900) от 04.12.2012
+
+Peggy Lee - 2 Compilations (1996) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_307900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JazzПродолжительность: 01:15:11
+01. Why Don't You Do Right (Get Me Some Money Too) [02:28]
+ 02. I Don't Know Enough About You [03:04]
+ 03. 'Deed I Do [03:03]
+ 04. I'm Glad There Is You (In This World Of Ordinary People) [03:03]
+ 05. It's A Good Day [02:50]
+ 06. Don't Smoke In Bed [03:07]
+ 07. Them There Eyes [03:00]
+ 08. Fever [03:21]
+ 09. Sugar (That Sugar Baby Of Mine) [02:36](   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960488   (307886) от 28.11.2015
+
+The Bitch And The Bluesmen - Hands All Dirty (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Day Blues (03:51)
+02. Hands All Dirty (03:11)
+03. Bad Girls (04:16)
+04. Coffee Shuffle (03:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62BBA816AB063991B71F75606138214C6598CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183382   (307875) от 14.11.2017
 
 Roland Guerin Sextet - Live At The Blue Note (1999) Half Note [FLAC|Lossless|image + .cue] <Post-Bop>
@@ -690,64 +754,6 @@ Dorothy Donegan - Dorothy Donegan (1975) 1994, Four Leaf Clover Records [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D99240A2331FF3DF51E0B044849F1CAC62C5875E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183884   (305640) от 15.11.2017
-
-Vince Benedetti - Hardbop World (2008) TCB Records [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showtime [03:50]
-02. Mr. Walker [05:38]
-03. Bayram [05:05]
-04. Rouge [06:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D032216FF2B49BD63F75636BFE7AD94D60BB520B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183897   (305635) от 15.11.2017
-
-Artie Shaw - The Last Recordings Rare & Unreleased (1954) 2CD, 1991, Limelight [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305635.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Imagination [04:18]
-02. Besame Mucho [04:03]
-03. My Funny Valentine [05:32](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9187879AD5387F8A78773A9F4D2C7F22E49F89
 ```
 
 https://mybot314.ru/tekegram_catalog/

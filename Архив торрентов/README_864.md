@@ -1,3 +1,38 @@
+###  Публикация: 625971   (938336) от 09.03.2013
+
+VA - Best Of The Month. February 2013 (2013) [MP3|320 кб/с]<Rap, Hip-Hop, R'n'B, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-50 Cent feat. Snoop Dogg & Young Jeezy - Major Distribution
+02-A$AP Rocky  - Same Bitch
+03-Alex Gaudino feat. Jordin Sparks - Is This Love
+04-Alexis Jordan - Acid Rain (Final Solo Version)
+05-Arianna feat. Pitbull - Sexy People
+06-Bei Maejor feat. Juicy J & Justin Bieber - Lolly (Dirty Version)
+07-Cascada - Glorious (Extended Mix)
+08-Chamillionaire - Overnight
+09-Chamillionaire - Slow Loud & Bangin
+10-Chris Webby - And The Beat Goes On(   Читать дальше...   )Жанр: Rap, Hip-Hop, R'n'B, PopПродолжительность: 01:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03BB569CE3DEF4E1C179C8DD7B9A6C84F7BECE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984497   (938332) от 09.02.2016
 
 Lyrics Finder 1.4 [Multi/Ru]
@@ -648,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9A9D87ECEEF50666BC332E270047A7B4AFE8211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753216   (938230) от 04.02.2014
-
-Николай Якубенко | Прогрессоры нового мира (2014) [FB2, RTF, PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Игла — мир магических орденов, мир абсолютной власти Совета магов. Земля — мир техники и технологий, постоянно взрывающийся новыми идеями и низвергающий авторитеты. Между ними нет и не может быть ничего общего. Но пришло время перемен! Обряд вызова переносит в мир Иглы специалистов и рабочих крупного станкостроительного завода мира Земли. Для двоих выживших после перехода землян мир Иглы становится полем большой игры. Они используют всю свою волю, ум и знания, чтобы выжить в новом, смертельно опасном мире. И найти других выживших землян. Или те сами найдут их?Формат: FB2, RTF, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24598FAF7BA4FB9013B4C54D9104625D5EAD1095
 ```
 
 https://mybot314.ru/tekegram_catalog/

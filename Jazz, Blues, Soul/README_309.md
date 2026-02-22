@@ -1,3 +1,90 @@
+###  Публикация: 937802   (486160) от 16.09.2015
+
+Charlie Mariano - Innuendo (1993) /Lipstick Records/[FLAC|tracks+.cue]<Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innuendo [05:32]
+02. Innamorata [07:52]
+03. Side Dish [07:21]
+04. Dorothee [03:49](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583E62E139FCB75BE243B9EFB3EEB0DDB014C1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937828   (486157) от 16.09.2015
+
+Lou Donaldson Quartet - Forgotten Man (1981) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confirmation [06:00]
+02. Wiskey Drinkin' Woman [05:35]
+03. This Is Happiness [03:45]
+04. Tracy [04:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C0D3CCA193D0EA4FE1FBCD9D95E24475F99760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937797   (486154) от 16.09.2015
+
+Ornette Coleman - The Unprecedented Music Of Ornette Coleman (1968) /2014, Studio Songs/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely Woman [10:35]
+02. Monsieur Le Prince [09:51]
+03. Forgotten Children [11:12]
+04. Buddah Blues [13:13]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E61C515DAF897C5C36AF584240130774A77F1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937831   (486152) от 16.09.2015
 
 Trickbag - Candyville (2015) [MP3|320 кб/с]<Blues, Rockabilly>
@@ -669,93 +756,6 @@ Milt Buckner & His Alumni (1976) 2000, Black And Blue [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FF6F5A891E690112BF0DAC203F93589489F1A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159287   (484218) от 20.08.2017
-
-Milt Buckner - Green Onions (1975, 1977) 2000, Black And Blue [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Onions [07:26]
-02. Pour toutes mes soeurs [06:00]
-03. Since I feel for you [07:05]
-04. Sleep [06:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4623704CFCC4E7D35ED4030D54F673CDE5DF06E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244217   (484209) от 31.08.2018
-
-Urbie Green - East Coast Jazz, Vol.6 (1955) 2001, Bethlehem [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mutation [3:12]
-02. On Green Dolphin Street [3:34]
-03. Just One of Those Things [4:21]
-04. How About You? [2:49](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1138BA5FBEDDFE417C5FFEB502A8B649019EEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159427   (484164) от 20.08.2017
-
-The Gil Evans Orchestra & Sting - In Perugia (1987) 2CD, 2006, Jazz Door [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484164.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Up From The Skies [09:57]
-02. Strange Fruit [07:19]
-03. Shadows In The Rain [06:10](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 01:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0FC5ECA86FAD5E6634198136DB18872FEA2A4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

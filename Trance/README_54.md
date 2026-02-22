@@ -1,3 +1,32 @@
+###  Публикация: 1682555   (131430) от 07.12.2023
+
+VA - Armada Music - Trance Legacy II (2023) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB - 9 PM (Till I Come) (Extended Mix) (5:28)
+02. Chicane - Offshore (Original Mix) (6:57)
+03. Paul van Dyk - For An Angel (PVD Angel In Heaven Edit) (3:53)
+04. Age Of Love - The Age Of Love (Jam & Spoon Watch Out For Stella Mix) (6:48)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1221626DF5859C2852D1062829C5E2F1953F6DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682859   (131159) от 08.12.2023
 
 VA - The Best Of Suanda Base 2023 [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Levitated Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83D3548BCDC7C0DC4B1D869AE106FD29A82189E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690045   (124168) от 05.01.2024
-
-VA - Silent Shore Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EDU BRAVO - Run Without Fear (Extended Mix) [6:07]
-02. Alexey Mushkin - Wherever You Are (Extended Mix) [7:43]
-03. Virtuan - Magenta (Extended Mix) [7:05]
-04. ReMech & Ryota Arai - Hong Kong (Extended Mix) [6:05](   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7901A99D5751B5C7D36B7B8DD9ED870F3B4E650
 ```
 
 https://mybot314.ru/tekegram_catalog/

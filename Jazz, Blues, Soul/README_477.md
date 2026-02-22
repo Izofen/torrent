@@ -1,3 +1,32 @@
+###  Публикация: 1670561   (171953) от 21.10.2023
+
+Grant Green Quartet - Nigeria (1960, 1962) 2014, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airegin [7:35]
+02. It Ain't Necessarily So [10:25]
+03. I Concentrate on You [5:53]
+04. The Things We Did Last Summer [6:00](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C32CD80F08ECBA25AB311CAD175B06951E3EA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670566   (171951) от 21.10.2023
 
 Orrin Evans - The Red Door (2023) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -716,35 +745,6 @@ Jim Kahr - Keepin' It Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A4F5EB948291989DCEC245297F09C5E3A5687C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671296   (171418) от 24.10.2023
-
-VA - 30 Pleasing to the Ear, Elegant, Cozy and Comforting Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, New Age>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Butterfly Kisses (5:10)
-02. Kool&Klean - I Can Only Imagine (4:55)
-03. Chillaxonic - Oasis (4:58)
-04. Chillaxing Jazz Kollektion - Home (5:42)(   Читать дальше...   )Жанр: Smooth Jazz, New AgeПродолжительность: 02:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662024F67F2EE26F9F27B89A231715D5ABEA991E
 ```
 
 https://mybot314.ru/tekegram_catalog/

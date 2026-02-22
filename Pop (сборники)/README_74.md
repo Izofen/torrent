@@ -1,3 +1,32 @@
+###  Публикация: 1315327   (513548) от 19.07.2019
+
+VA - Summer Ahead: Party Pop Music 90s (2019) [MP3|213-273 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513548.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rhythm Crew - If You Need Somebody
+002. Scott & Louise Dorsey - Love Is Gonna Last Forever
+003. Ofra Haza - Fatamorgana (Mirage)
+004. Bee Gees - Ordinary Lives(   Читать дальше...   )Жанр: PopПродолжительность: 13:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDAC35A8F377F45EE6E9E8164B0B2EDDA09DC1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931133   (512874) от 25.08.2015
 
 VA - Попсовая соточка MTV. Выпуск 2 (2015) [MP3|256-320 кб/с]<Pop>
@@ -783,41 +812,6 @@ VA - Радио Новинки Проверенные Качеством 50/50 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAAA9009799EA1A4B5A8E421BF281558CACCFCE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541460   (501306) от 31.08.2012
-
-VA - Дискотека Бездна Русская Vol. 7 (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Жанна Фриске - Навсегда
-002. Анна Семенович - Июльское Лето
-003. Artik pres. Asti - Облака
-004. Paradox Factory - Te Quiero (Русская Версия)
-005. Анна Седокова - Что Я Наделала
-006. All Давай feat. DJ Ihlas - Москва-Дубай
-007. Катя Баженова - Все О Чем Мечтаю
-008. Отпетые Мошенники - Руссо Туристо
-009. Ева Польна - Весь Мир На Ладони
-010. Parfenov &amp; Balkov - Вселенная моя (City Zen 80's old school mix)(   Читать дальше...   )Жанр: PopПродолжительность: 11:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85981C9A7F4AB2BABC7B5FBFA682DBFB8EB9B63B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 473962   (84986) от 28.03.2012
+
+Шаблоны - Best of sources collection [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Cборник PSD файлов для Adode Photoshop от студии Asadal & ImageTodayРазрешение файлов: 3800x3300 до 5200x3900
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987DB17876BB9A0485027B3306362A1E46DC97AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472768   (84325) от 25.03.2012
 
 Рамки - Фото рамки С Пасхой (24.03.12) [PSD]
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6710D04E963D3E615FA7ACC9CF6BAE78A1CDAFF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806932   (65314) от 15.07.2025
-
-Шаблоны - Creatsy - Stationery Scene with Classic Tape-Bound Notebook Mockup - 1107548501 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сцена из канцелярских товаров с классическим макетом блокнота.Формат: PSDРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EBC62627FF72316F4CECAF5CFCF6E316F7E034
 ```
 
 https://mybot314.ru/tekegram_catalog/

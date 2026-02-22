@@ -1,3 +1,32 @@
+###  Публикация: 1692774   (122196) от 18.01.2024
+
+Dancing Fantasy - Day Dream (1995) [OGG Vorbis|480 Kbps] <New Age/Meditative/Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  'Til the End of Time
+02.  Daydreamer
+03.  Walk of Life
+04.  Aisha(   Читать дальше...   )Жанр: New Age/Meditative/RelaxПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECDC6273B67419CEC173F907D737ACFC8CB891A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692580   (122188) от 18.01.2024
 
 VA - The Orient Collective: Space Tribe (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -716,35 +745,6 @@ VA - Atomic Heart, Vol.4 (Original Game Soundtrack) (2024) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:520A8EA59285ED544EC63E4F6D8B0AD39372919E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698383   (117805) от 13.02.2024
-
-Shindhu (Шинду, Sri Chinmoy) - Eternity’s Dream (Мечта Вечности) (2001) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bare Bare
-02. Hashir Prabhat
-03. Bahir Haite
-04. Ogo Mor(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A782736ED7EE4CA8F18EF458C05C3247872F84EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

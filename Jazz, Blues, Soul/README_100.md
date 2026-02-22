@@ -1,3 +1,97 @@
+###  Публикация: 640131   (889501) от 06.04.2013
+
+Denny Ilett - Callin' the Children Home (2008) [WavPack|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Callin' the Children Home (04:55)
+02. My Babe (04:17)
+03. I Only Got Myself to Blame (04:56)
+04. Eyes in the Back of My Head (04:25)
+05. Angel Eyes (06:00)
+06. Pretty Eyed Baby (05:55)
+07. Opposites Attract (04:26)
+08. In the Keyhole (04:11)
+09. If I Had My Time All Over Again (04:03)
+10. Six Feet Under (04:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 296724   (889324) от 17.02.2011
+
+Doug Gray - Under the Gun (2010) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Whiskey In Your Country And Reffer In Rock & Roll  (03:55)
+02. Voodoo Childern  (04:03)
+03. Grapevine Betty  (05:07)
+04. Little Bit of Love  (03:55)
+05. Under the Gun  (03:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494436   (889205) от 07.09.2021
+
+Pat Metheny - Road to the Sun (2021) [FLAC|Lossless|tracks + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Paths of Light, Part 1 (4:15)
+02. Four Paths of Light, Part 2 (6:22)
+03. Four Paths of Light, Part 3 (5:30)
+04. Four Paths of Light, Part 4 (3:10)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F5260F7F56C4C588532C42D2B72A14DE37F4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 296898   (889183) от 17.02.2011
 
 Randy Crawford - The Best Of Randy Crawford & Friends (2000) [FLAC|Lossless]<Vocal Jazz>
@@ -701,93 +795,6 @@ Rhoda Scott Lady Quartet - We Free Queens (2017) [FLAC|Lossless|WEB-DL|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F013255D0830B2F24373B5F7069D7AA4DAF702C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103087   (887942) от 11.02.2017
-
-John Hiatt & The Goners - Live in Switzerland 2003 (2014) [FLAC|Lossless|image + .cue] <Blues, Folk-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887942.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lincoln Town
-2. The Tiki Bar Is Open
-3. Paper Thin
-4. Circle Back(   Читать дальше...   )Жанр: Blues, Folk-RockПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EBED1D47A301BA9C6E7C01211699F3D861CCF15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102822   (887935) от 11.02.2017
-
-R.J. Hiorns - Truth or Consequence (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Modern Electric>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gasping For Air 04:25
-02. Flaming Cannonball 03:38
-03. Blue Is The Night 04:56
-04. Are You Paranoid? 05:10(   Читать дальше...   )Жанр: Blues, Modern ElectricПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6A5AA48309343CE65859DD39F120DE3C38B842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102824   (887921) от 11.02.2017
-
-Daymé Arocena - Nueva Era (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Afro-Cuban, Vocal jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madres (5:46)
-02. Drama (3:30)
-03. Sin Empezar (2:52)
-04. Don't Unplug My Body (4:59)(   Читать дальше...   )Жанр: Afro-Cuban, Vocal jazz, SoulПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A636FD6B0C672712105DEF177A188CB4092BC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

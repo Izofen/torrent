@@ -1,3 +1,29 @@
+###  Публикация: 565441   (400182) от 26.10.2012
+
+Nature Wallpapers (24.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8295D9DC9279418C5848B3D2E922E291160592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565244   (400179) от 26.10.2012
 
 [Wallpapers] Desktop Wallpapers Pack 2
@@ -715,36 +741,6 @@ AnyDVD HD - это программа для дешифрования CSS и с�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565112   (399950) от 26.10.2012
-
-The Kilimanjaro Darkjazz Ensemble - Xtabay (2012) [MP3|320 Kbps]<Dark Jazz, Electronic, Ambient, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399950.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Xtabay (Original Version)
-2.Xtabay (9 Hoad Remix)
-3.Xtabay (Fanu Remix)
-4.Xtabay (Roel Funcken Remix)
-5.Xtabay (Balkansky Remix)Жанр: Dark Jazz, Electronic, Ambient, ExperimentalПродолжительность: 00:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7977180435BFBF05A84A7C5D262C9511AB2C9D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

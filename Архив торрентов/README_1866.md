@@ -1,3 +1,32 @@
+###  Публикация: 1120700   (800609) от 02.04.2017
+
+VA - Vocal Trance Classics 009 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Orjan Nilsen - In The Air (feat. Adam Young)  4:10
+02.  Gareth Emery - Into The Light (feat. Mark Frisch)  3:19
+03.  Cosmic Gate & Emma Hewitt - Going Home (Club Mix)  2:59
+04.  Dash Berlin - Waiting (W&W Remix) (feat. Emma Hewitt)  4:26(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1347DD8A5EFF10E6D04CCCE2B4CF55DCBD7E4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121424   (800607) от 02.04.2017
 
 Saxon - Let Me Feel Your Power (2016) Live, 2 CD [FLAC|Lossless|image + .cue] <Heavy Metal, NWOBHM>
@@ -671,35 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:260A7FCC22CD3E71B2AA75590E504C8C675BD1DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199580   (800453) от 17.01.2018
-
-Санный спорт. Кубок мира 2017-2018. Кёнигсзее (Германия). 6-й Этап. Мужчины. Двойки (06.01.2018) WEB-DL [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800453.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 января 2018 года
-Кубок мира по санному спорту 2017-2018. 6-й Этап. Кёнигсзее (Германия)
-Мужчины. Двойки
-Стадион: Дойчe Пост Эйсарена Кёнигсзее (Берхтесгаден, Германия)Телекомпания: FIL TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF484BA658BE3747825E167BF8477631A7E8FC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

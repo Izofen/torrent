@@ -1,3 +1,90 @@
+###  Публикация: 1649342   (230474) от 27.07.2023
+
+Pino Daniele - Che Dio Ti Benedica (1993) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Che Dio ti benedica (04:20)
+02. Questa primavera (05:01)
+03. Fatte na pizza (03:27)
+04. Mal di te (04:50)(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2939B46F9A1BD5CB960AACB4B980AB810FA4062A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637860   (230462) от 06.06.2023
+
+VA - Perfect Ballads (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballads>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_230462.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ed Sheeran - Perfect
+2. Benson Boone - In the Stars
+3. Coldplay - The Scientist
+4. Omar Apollo - Evergreen (You Didn’t Deserve Me at All)(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 01:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D3A62FFB3DC5A01589D6F62EE1943FDCF829BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832950   (230456) от 31.10.2025
+
+Владимир Пресняков - Счастливчик (2025) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230456.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Выше облаков (Артемий Пресняков)
+3. Выше облаков
+4. Учусь любить (Наталья Подольская)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFAA6AFCE5144413EE73C2BAB1822200574CE3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637836   (230449) от 06.06.2023
 
 Michael Jackson - Number Ones (2003) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
@@ -673,93 +760,6 @@ New Baccara - F.U.N. (1990) Japanese Edition [FLAC|Lossless|tracks + .cue] <Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D95360B63A5BCD6B5E3996CD143154E5EB089BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423676   (229009) от 16.11.2020
-
-VA - 100 Hits Winter 2021 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229009.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 GIMS - YOLO
-02 OBOY - Cabeza
-03 PLK Feat. Niska - On Sait Jamais(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF989FED423BE9C0E61E709FC7CCE78E2401BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341754   (228989) от 29.11.2019
-
-Евгения Смольянинова - Чудное мгновенье (2009) [FLAC|Lossless|image + .cue] <романс>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воспоминание
-02. Певец
-03. Заздравный кубок
-04. Про Ваню-Разбойника(   Читать дальше...   )Жанр: романсПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F83DFB765FBB62A48EFA25DDFC10AD417FC7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424186   (228894) от 16.11.2020
-
-Bad Boys Blue - Around the World (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Euro-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Around the World (3:53)
- 02. Cold as Ice (4:19)
- 03. Baby Come Home (3:08)
- 04. Think About You (4:16)(   Читать дальше...   )Жанр: Euro-Disco, Euro-PopПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F44FC888600538B01B13309D0C102156B41FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

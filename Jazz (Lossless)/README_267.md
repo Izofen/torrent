@@ -1,32 +1,3 @@
-###  Публикация: 1106454   (242161) от 19.02.2017
-
-Superdog - SuPerDoG (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 21St Century Schizoid Man (5:43)
-02. Vrooom Vrooom (6:58)
-03. I Talk To The Wind (6:03)
-04. Dangerous Curves (5:21)(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E3564F1501B3639980099F5C3CBE124912DA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372122   (242102) от 03.04.2020
 
 Antonio Carlos Jobim And Friends - Live at the Free Jazz Festival in Sao Paulo (1996) [FLAC|Lossless|image + .cue] <Jazz>
@@ -745,6 +716,35 @@ The Eddie "Lockjaw" Davis - Cookbook, Vol.1 (1958) 1991, Original Jazz Classics 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:020A31B99F3E4228BF6021D0FB71F8487BC0CE5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111461   (241685) от 05.03.2017
+
+Dave Lambert & Jon Hendricks - Sing & Swing Along / Evolution of the Blues Song (1960) 2014, El Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dave Lambert - All Alone [05:02]
+ 02.Dave Lambert - The Best Thing For You [02:21]
+ 03.Dave Lambert - Autumn Nocturne [02:16]
+ 04.Dave Lambert - Blues [03:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53B33066DE3A6DB271FADF0E016506A1035439D
 ```
 
 https://mybot314.ru/tekegram_catalog/

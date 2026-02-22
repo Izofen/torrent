@@ -1,3 +1,188 @@
+###  Публикация: 954067   (343811) от 06.11.2015
+
+Футажи - 53 Free Old Film Look overlays [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343811.jpg" />
+</div>
+
+
+###  Подробнее
+
+53 бесплатных футажа
+с эффектом старой кинематографической пленки...Формат: MOVРазрешение файлов: 576х720
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A54F4DDB30CA8DB0792F1BFECB41F04CEA55F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330221   (343077) от 09.10.2019
+
+NNM-Club Sound Cleaner - Чистые Звуковые Эффекты с AudioJungle Pack 1 [MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем 200 звуковых эффектов, которые были выложены авторами на ресурсе AudioJungle без watermark. Возможно это случайно, возможно сознательно.
+Говорим им спасибо! Большое спасибо группе энтузиастов, которые смогли их отыскать и поделиться с нами, этоФормат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB28304CA404003CD9BB12C477886EBDA9E68AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330219   (342866) от 09.10.2019
+
+Evermotion - Archmodels vol. 159 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 159 включает в себя 84 профессиональных, очень подробных 3d-моделей для архитектурных визуализаций. Эта коллекция поставляется с моделями одежды, обуви и сумок высокого качества. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7649717DA3BA050D9427D9E377FD144F400374B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257671   (342762) от 27.10.2018
+
+Экшены - GraphicRiver - Newcomer Photoshop Action - 22692787 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Newcomer - яркий луч света, туманная дымка с вкраплениями светящихся частиц придаст вашим снимкам некий образ пришельца. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DAA00FA6BB0927DBD8E1D6303E90FF63B73365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257679   (342746) от 27.10.2018
+
+Экшены - GraphicRiver - HDR Sports Photoshop Action - 22646304 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342746.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDR Sports - простой в использовании экшен фотошоп в один клик поможет вам придать вашим снимкам высокую динамичность.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAC6AF120E52D0C3CE7705CA8EA8F7F657C2183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257891   (342601) от 27.10.2018
+
+Растровый клипарт - Fotolia, Shutterstock, Dreamstime, Depositphotos, iStock - Stock Photo Collection [JPG, TIFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник стоковых изображений из категории Интерьер.
+3392-шт.Формат: JPG, TIFFРазрешение файлов: 3000x2002-9808x4688
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8B2340633C00B6A6AB0DC254320DC786C7BFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580592   (342457) от 25.11.2012
+
+Digital Juice - Juice Drops 59: allPARTICLES (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_342457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 300 dpiФормат: ISO (PSD - 5175×3375)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073869   (342387) от 17.11.2016
 
 Экшены - GraphicRiver - Sketch and Torn Paper Photo Effect Photoshop Action - 18029777 [ATN, ABR, PAT]
@@ -501,189 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AEA84C0EABD144031840BEC311BE5796F7751CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258133   (340308) от 28.10.2018
-
-Растровый клипарт - Shutterstock - Stock Photo Collection vol-7 [JPG, TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник стоковых изображений от ShutterstockФормат: JPG, TIFРазрешение файлов: 1557x2600-9600x6202
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E601EF9BEE6337FFC4DC3EB34DF067BA3DB983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074148   (340232) от 18.11.2016
-
-Экшены - GraphicRiver - 05 Ukattak Photoshop Actions [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340232.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 Ukattak - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5AF4A1AD64B8CC18D0E17BD12271B800D96E15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258061   (340191) от 28.10.2018
-
-3D модели - 3ddd - PRO 3D-models Pack 18 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 27 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:790F8635ACFB8287F46F6C5A40978FB436833286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074160   (340081) от 18.11.2016
-
-Экшены - GraphicRiver - 50 Photoshop Actions [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340081.jpg" />
-</div>
-
-
-###  Подробнее
-
-50 Photoshop Actions - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263E9DEFCA74844628FDEC471E96B8A20406EE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073873   (340080) от 18.11.2016
-
-Стили - GraphicRiver - Glossy Metal Photoshop Layer Styles V1 - 18384203 [ASL, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glossy Metal - стили для Вашего творчества.Формат: ASL, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6321DAC0CBF4489CE7495D216B23895BD04CF0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580775   (340042) от 26.11.2012
-
-Digital Juice - Juice Drops 62: reflectiveTHOUGHTS (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_340042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 300 dpiФормат: ISO (PSD - 5175×3375)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073879   (339948) от 18.11.2016
-
-Стили - GraphicRiver - 3D Photoshop Text Effects Vol.4 - 16569019 [ASL, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339948.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D Photoshop Text Effects Vol.4 - стили для Вашего творчества.Формат: ASL, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09E17B232EE704C929AA30A092466ADC3E06E3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

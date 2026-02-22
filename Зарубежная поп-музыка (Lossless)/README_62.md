@@ -1,3 +1,32 @@
+###  Публикация: 1173466   (390406) от 11.10.2017
+
+Julio Iglesias - The Real... Julio Iglesias (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. La Vida Sigue Igual
+02. Manuela
+03. Por El Amor De Una Mujer(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 03:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7531EAC15FB0A811D5FC0F3EC291FA9A16FF3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 718401   (389260) от 03.11.2013
 
 Katy Perry - Prism (Deluxe Edition) (2013) Capitol Records [FLAC 2.0 44.1/24|WEB-DL]<Pop>
@@ -707,35 +736,6 @@ VA - All Time Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A450286964C402D18060B44D5A684CE2DEE8324D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834262   (380528) от 24.10.2014
-
-VA - 1980 The Collection (Time Life) (1994) 2CD[FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стоят на полочке несколько дисков из серии Time Life Music. Решил поделиться. Может кто молодость вспомнит.01. Queen - Another One Bites the Dust  (3:38)
-02. Blondie - Call Me  (3:28)
-03. Dr. Hook - Sexy Eyes  (2:58)
-04. KC and The Sunshine Band - Please Don't Go  (3:51)(   Читать дальше...   )Жанр: Pop, Rock, Jazz, ElectronicПродолжительность: 01:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62386A6E0EDA77AE362F3C43CEF063D76EC1CBEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

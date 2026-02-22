@@ -1,3 +1,32 @@
+###  Публикация: 996708   (879401) от 14.03.2016
+
+Miles Davis - Blue Moods (1956-1984) 2001, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Time After Time [05:37]
+ 02.Summertime [03:21]
+ 03.Circle [05:51]
+ 04.My Ship [04:30](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858460081BF97D52822BD0EE58E171F4215ECBA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 299228   (879364) от 22.02.2011
 
 Liza Minnelli - Cabaret... And All That Jazz - The Liza Minnelli Anthology (2 CD) (2010) [FLAC|Lossless]<Jazz>
@@ -763,35 +792,6 @@ Art Pepper - The Return Of Art Pepper, Vol. 1 (1956, 1957) 1988, Blue Note [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1153B701FDC88A0B5EB12E9468D41238D5525BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105694   (876635) от 17.02.2017
-
-Oleta Adams - Third Set (2017) [FLAC|Lossless|tracks + .cue] <Soul, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Alright With Me (8:59)
-02. Only The Lonely (7:21)
-03. Don't Interrupt The Sorrow (4:58)
-04. River (6:35)(   Читать дальше...   )Жанр: Soul, Vocal JazzПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB55B3EFCAEF4AE43999ECAEAD2821D358744B81
 ```
 
 https://mybot314.ru/tekegram_catalog/

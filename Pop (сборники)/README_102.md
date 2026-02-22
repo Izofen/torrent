@@ -1,3 +1,32 @@
+###  Публикация: 1336236   (280667) от 06.11.2019
+
+VA - Ballad About Love Vol. 02 (2019) [MP3|320 Kbps] <Pop, Lyric, Romantic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280667.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marlon Roudette - Come Along
+002. Lea Michele - Gone Tonight
+003. Cheryl Cole - Only Human
+004. Sebastian Wijk - Just Say(   Читать дальше...   )Жанр: Pop, Lyric, RomanticПродолжительность: 09:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0898281C9A533F1EC10407589E3BF184F00DEEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336292   (280509) от 06.11.2019
 
 VA - Hit Music (вторая осень 2019) от Мяу [MP3|320 Kbps] <Pop>
@@ -698,35 +727,6 @@ VA - Лучшие песни зимы (2010) [MP3|256 kbps]<Pop/Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A09B4828E028B1CE82BC103E9B4179E16B30212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082570   (277255) от 13.12.2016
-
-VA - Снегопад новинок (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277255.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.John Legend - What You Do To Me 3:22
-002.Craig David - Louder Than Words 4:06
-003.Mainstream One - Сойти От Тебя С Ума 3:19
-004.Clean Bandit Feat. Sean Paul & Anne-Marie - Rockabye 4:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FF3E935C49D813016BAF6B14AA652D61CAA649
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1077697   (302838) от 30.11.2016
+
+VA - Spa Relaxation Ambient Music, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Balearic, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manifestation - Chillout Piano [00:04:21]
+02. Wolfgang Ohmer - Vanya Sulie [00:04:46]
+03. Rocco Muller - Victim's Song [00:08:00]
+04. Niefelsen - Deep in the Space [00:08:22](   Читать дальше...   )Жанр: Downtempo, Balearic, MeditationПродолжительность: 04:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323FE427DA5059EC055DA1A14A43FC27D192D8E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261565   (302765) от 11.11.2018
 
 Richard Clayderman - Super Best (2015) [FLAC|24/192|Lossless|WEB-DL|tracks] <Easy Listening, Instrumental, Piano>
@@ -714,35 +743,6 @@ Silent nook - С.О.М.А (2018) [MP3|320 Kbps] <Trip-Hop, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EA0C09E0D4C15F18E8D98DFF90A1280BE7CAD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333744   (298578) от 27.10.2019
-
-VA – Super Instrumental Vol.3 (2002) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F. Goya - Historia De Un Amor
-02. R. King - Love Story
-03. Space - Secret Dreams
-04. F. Duval - Mandala(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCEBCFACA884D7FA89177392596FB5B72494FEA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

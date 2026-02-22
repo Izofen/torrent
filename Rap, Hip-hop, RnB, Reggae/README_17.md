@@ -1,3 +1,61 @@
+###  Публикация: 1141195   (652127) от 09.06.2017
+
+Noize MC - Чайлдфри (2017) Single [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652127.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Чайлдфри
+2. Чайлдфри (версия Монеточки)
+3. Марафон
+4. Чайлдфри (инструментал)(   Читать дальше...   )Жанр: Rap, Hip-Hop, RockПродолжительность: 00:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5277D059BDEAE0E66F1B28B5645D79CAA3B9800F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227296   (648480) от 25.05.2018
+
+Billy Milligan - Геном (2018) [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Геном
+02. Знамение
+03. Громче музыку
+04. До последнего врага(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C3DC0D8261C6E836346284ACD51C95EE6FC74D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141619   (648045) от 11.06.2017
 
 Скриптонит - Праздник на улице 36 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -685,64 +743,6 @@ Miyagi & Эндшпиль - Умшакалака (feat. Amigo) (2017) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E717B6D68D5A9E204D65DCF1E6BEEB331ACBB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297065   (606807) от 20.04.2019
-
-Kool Keith - Controller of Trap (2018) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-Hop, Underground Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be Shy (3:07)
-02. Bottle Pop (3:51)
-03. Life Is Hard (3:34)
-04. Mug Up (4:54)(   Читать дальше...   )Производство: Ocean Ave RecordsЖанр: Rap, Hip-Hop, Underground Hip-HopПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E1FCFD14F305355E8F3D1E5852FD8DBB53406F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231313   (606779) от 17.06.2018
-
-VA - Sexy Soul R&B For Late Night Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get It Right - Teedra Moses 03:24
-02. Nothin' On You - Marques Houston 02:53
-03. I Wanna Ta-Ta You Baby - Leela James 03:48
-04. Can't Let Go (Acoustic) - Calvin Richardson 04:04(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B8914338D66AE5071074C7FE17E9C86E0F8EF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

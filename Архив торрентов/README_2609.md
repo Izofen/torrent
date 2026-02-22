@@ -1,3 +1,29 @@
+###  Публикация: 907724   (637745) от 12.06.2015
+
+Daum PotPlayer 1.6.54549 Stable + Portable (x86/x64) by SamLab [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3060F72063C9FD4018062209D0F0484CCB5E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519370   (637696) от 06.07.2012
 
 IceThurs - Чёрные Ангелы [Single] (2012) [MP3|320 кб/с]<Heavy Metal>
@@ -676,41 +702,6 @@ VA - Vocal Trance Volume # 37 (2012) [MP3|320 кб/с]<Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23D715028FAD681E2FC6F8876ACB2495A610095E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519066   (637599) от 06.07.2012
-
-VA-Impulsive! - Revolutionary jazz reworked (2005) [MP3|320 кб/с]<Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Russell / A Helluva Town (Sa Ra Go remix)
-02. Charles Mingus / II BS (RZA's Mingus Bounce mix)
-03. Chico Hamilton / El Toro (Mark De Clive Low remix)
-04. Gabor Szabo / Mizrab (Prefuse 73 remix)
-05. Dizzy Gillespie / Swing Low, Sweet Cadillac (Gerardo Frisina extended remix)
-06. Clark Terry & Chico O'Farrill / Spanish Rice (DJ Dolores extended remix)
-07. Archie Shepp / Attica Blues (The Chief Xcel (Of Blackalicious) remix)
-08. Pharoah Sanders / Astral Traveling (Boozoo Bajou remix)
-09. Yusef Lateef / Bamboo Flute Blues (Kid Koala remix)
-10. Oliver Nelson / Stolen Moments (Telefon Tel Aviv remix)(   Читать дальше...   )Жанр: JazzПродолжительность: 51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F71E830776E7CD22E110A3BD37DEEB98BE5E8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

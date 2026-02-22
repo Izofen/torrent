@@ -1,3 +1,32 @@
+###  Публикация: 1545206   (240837) от 18.04.2022
+
+Gary Moore - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Story of the Blues
+02. You Know My Love
+03. Torn Inside
+04. Trouble at Home(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 03:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C8E037EB3140964669BB69A897C13C5B0C4E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545555   (239872) от 23.04.2022
 
 VA - Rock Classics (2022) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ The Savage Rose - Her Story (Compilation) 2CD (2016) [MP3|320 Kbps] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E61EF7234F47EB6BE6D317C845501720F96AA614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084161   (220402) от 18.12.2016
-
-VA - Alternative Classic Rock (2016) [MP3|320 Kbps] <Alternative, Progressive, Hard Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220402.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Anathema - Restless Oblivion 8:02
-002.Iced Earth - Last December 3:24
-003.Black Sabbath - The Illusion Of Power (Feat. Ice-T) 4:54
-004.Down - Lifer 4:36(   Читать дальше...   )Жанр: Alternative, Progressive, Hard Classic RockПродолжительность: 09:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D695CA3D53C0B0DE8F4ADBCA5AF1B83A6E170C
 ```
 
 https://mybot314.ru/tekegram_catalog/

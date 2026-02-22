@@ -1,3 +1,29 @@
+###  Публикация: 570063   (391262) от 04.11.2012
+
+Журнал | Самая. Спецвыпуск №6 Звёздная любовь (ноябрь 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спецвыпуск посвящен знаменитым людям и рассказывает о том, как складывались их семейные отношения.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC93D02897ED1779631A1F4C540717B0AE55404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173120   (391238) от 10.10.2017
 
 Comodo Dragon 58.0.3029.115 + Portable [Multi/Ru]
@@ -708,36 +734,6 @@ Michael Brant Demaria - Solace (2012) [MP3|320 кб/с]<New age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B69E04D76994BCB3B56BF1A95F0C1DF9A95DBB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570252   (391052) от 04.11.2012
-
-[Wallpapers] Anime Desktop Wallpapers Pack 6
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391052.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Anime Desktop Wallpapers Pack 6
-Название: Anime Desktop Wallpapers Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х900 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C80650525E706F00652669AD61856239171EF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1574673   (383653) от 06.09.2022
+
+VA - Folk Rock Collection 1965 - 1975 (2022) Compilation, Unofficial Release [FLAC 2.0|44.1/24|image+.cue|MC-Rip] <Folk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Byrds - All I Really Want to Do
+Mr. Tambourine Man
+1965 - Columbia - Dylan
+02. The Lovin' Spoonful - Darling Be Home Soon(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358880C8009362C10586FE4DC93E1E5826FA08BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414674   (383165) от 09.10.2020
+
+VA - Рок-панорама-87 (1988) 3LP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <New Wave, Avantgarde, Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383165.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Г. Рябцев - Найти И Потерять = Find And Lose
+A2 Алиби - Выше Голову = Raise Your Head Higher
+A3 Зодчие - Юла = Whirligig
+A4 Ва-Банк - Максималист = Maximalist(   Читать дальше...   )Жанр: New Wave, Avantgarde, PunkПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB40DB677524F1F1F8DAA0B20AE52A8BAE3F0F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068641   (380449) от 01.11.2016
+
+Владимир Минин - С. Рахманинов - Литургия Святого Иоанна Златоуста, Соч. 31 (1990) [WavPack|96/32|tracks|Vinyl-Rip] <Classical, Vocal, Religious>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Благослови, душе моя, Господа  4:02
+02. Слава Отцу и Единородный  2:36
+03. Во Царствии твоем  4:52(   Читать дальше...   )Жанр: Classical, Vocal, ReligiousПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC1CB55A6EA91B7A9FFFE0CE3183EA54990A86B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947960   (379261) от 22.10.2015
+
+VA - Бумер - 2 (2006) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Original Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ленинград - Меня зовут Шнур
+02. Тела - Шизофрения
+03. Ber-Lin - Даша
+04. Пираньи - Плати(   Читать дальше...   )Жанр: Original SoundtrackПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF1630512B22B5A3B0C4375BBA87CB05F14185F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947860   (378990) от 22.10.2015
+
+VA - Шедевры инструментальной музыки части 1 - 3 (1999) [FLAC 2.0 16/44,1|tracks+.cue (MC-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. История любви - Поль Мориа
+ 02. Одинокий пастух - Джеймс Ласт
+ 03. К Элизе - Ричард Клайдерман
+ 04. Эммануэль - Фаусто Папетти(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 03:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D73A71FB3328BCB5F9E052B853B1ECA49C126D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068882   (378154) от 02.11.2016
+
+Колокольные звоны - The Chimes (1980) [WavPack|96/32|tracks|Vinyl-Rip] <Church bells/Russian Falc>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Троице-Сергиева лавра:
+1. Звонница Духовской церкви 05:16
+2. Большая лаврская колокольня 12:04(   Читать дальше...   )Жанр: Church bells/Russian FalcПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B9EE225700663909ADEA543A1933DE4975754B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573034   (375650) от 12.11.2012
 
 Johann Sebastian Bach–Piano concertos: BWV1061,BWV1060,BWV1062 Zoltan Kocsis, Andras Schiff it is digitized from vinyl (1977/1978, Hungaroton /[FLAC|Lossless]<Chamber>
@@ -575,180 +749,6 @@ Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CC52CC861C73F32509F20ABB73900DBBBF8C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328431   (363130) от 30.09.2019
-
-Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Ri] <Pop, Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hadakano Venus
-02. Nagisa Nite
-03. Kuchibeni Enka
-04. Kimi Ga Utsukushisugite(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: Pop, Jazz, Easy Listening
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E139619DF26ECD6CDD4BF3E1E4CAC694A8526B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328689   (360652) от 01.10.2019
-
-The Beatles - Abbey Road (1969) UMG, 2019 [FLAC 5.1|48/24|Lossless|tracks + .cue] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Together (4:21)
-02. Something (3:02)
-03. Maxwell's Silver Hammer (3:28)
-04. Oh! Darling (3:27)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49003E00433BED111B736DE7F5B28B736A41642D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952170   (358285) от 31.10.2015
-
-The Alan Parsons Project - I Robot (1977) Reissue /1982, Arista Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358285.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. I Robot (6:02)
-A2. I Wouldn't Want To Be Like You (3:23)
-A3. Some Other Time (4:06)
-A4. Breakdown (3:53)(   Читать дальше...   )Производство: Arista RecordsЖанр: Progressive RockПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9840B532FDF4A68C2B717B5EEA03070BF1ACCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577444   (356764) от 18.09.2022
-
-Emigrate (Rammstein, Richard Kruspe) - Studio Albums (4 releases) (2007 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emigrate — сайд-проект, основанный Рихардом Круспе, сооснователем группы Rammstein и её гитаристом. Проект появился в 2005 году во время творческого перерыва Rammstein после выпуска пятого альбома Rosenrot.2007 - Emigrate
-2014 - Silent So Long
-2018 - Million Degrees
-2021 - The Persistence Of MemoryЖанр: Industrial MetalПродолжительность: 02:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D8805CFB71D7A56BF46607287FCFBCAE293341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255995   (356699) от 21.10.2018
-
-Placido Domingo - Placido Domingo And Friends (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Vocal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356699.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Umberto Giordano - Fedora (Amor Ti Vieta), Placido Domingo
-A2 Verdi - Luisa Miller (Quandro Le Serre), Placido Domingo
-A3 Mozart - La clemenza di Tito (Parto Parto), Martha Senn
-A4 Puccini - Intermezzo: (Manon Lescaut, Ch'ella Mi Creda), Placido Domingo(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33136F64EAFBA3B5B3CCE40D48271A51645FC462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256001   (356691) от 21.10.2018
-
-Saint-Saens - Symphonies (Carnival of the Animals, Phantasy E flat Major, Organ Symphony №3 C minor) (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carnival of the Animals
-01. Introduction et marche royale du lion (Introduction and Royal March of the Lion)
-02. Poules et coqs (Hens and Roosters)
-03. Hemiones (animaux veloces) (Wild Donkeys Swift Animals)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD2C86480B45946949490126DB3A6DC3A1FAC2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1437374   (1042301) от 04.01.2021
+
+Skogmark - Aera Av Ensomhet (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morbid Delusion
+02. Buried In Snow
+03. In November Forest
+04. Along The Dark Sodden Trails(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E724183BA649C77A4F9DD342395D0076CEA1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437398   (1042045) от 05.01.2021
 
 Trna - Earthcult (2018) Reissue, 2019 [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Blackgaze>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F04F5A6C9A3C02119431E0076A009F81707BCED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613568   (1039396) от 19.02.2023
-
-The Sundial - Kaliningrad (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loop [00:04:48]
-02. Gagarin Stayed On The Moon [00:06:59]
-03. Kaliningrad [00:04:35]
-04. I'm Coming Home [00:04:28](   Читать дальше...   )Жанр: RockПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15EEBDAFD94ED35FC47CA3F369D79E847431DEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

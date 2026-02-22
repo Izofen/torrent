@@ -1,3 +1,32 @@
+###  Публикация: 937670   (485933) от 16.09.2015
+
+Bad Company - Run With The Pack (1976) [FLAC 2.0 24/192|traсks(Vinyl-Rip)]<Rock, Hard Rocк>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A
+A1. Live For The Music
+A2. Simple Man
+A3. Honey Child(   Читать дальше...   )Жанр: Rock, Hard RocкПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B1A5E6C3586A3249D93367FDBD84D00F3ACEFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937902   (485930) от 16.09.2015
 
 Glary Utilities Pro 5.34.0.54 Final RePack (& Portable) by D!akov [Multi/Ru]
@@ -651,32 +680,6 @@ Bob Harper | Ultimate Cardio Body (2011) DVDRip [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49A269D68B71F4A18BD4885C3F46C1CA7E6C24B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405303   (485724) от 29.08.2020
-
-WebScraper 4.13.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485724.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebScraper использует механизм Integrity v8 для быстрого сканирования веб-сайта и может выводить извлеченные данные (в настоящее время) в виде CSV или JSON. Плюс загружайте изображения в папку.Тип издания: macOS SoftwareРелиз состоялся: 29.08.2020Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165B6CB2CF78480ACE5D144647352206A7386067
 ```
 
 https://mybot314.ru/tekegram_catalog/

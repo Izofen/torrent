@@ -1,3 +1,59 @@
+###  Публикация: 1007525   (819453) от 16.04.2016
+
+VA - Urban Dance, Vol. 16 (2016) Scene [FLAC|Lossless|WEB-DL|tracks] <Dance, Deep House, EDM>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819453.jpg" />
+</div>
+
+
+###  Подробнее
+
+04. Another Lonely Night (3:46)
+01. Faded (3:32)
+18. Little Swing (2:43)
+11. The Horns (Radio Remix) (3:32)(   Читать дальше...   )Жанр: Dance, Deep House, EDM, HouseПродолжительность: 03:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D241F3822FEFEF494F1C8F54029DADA0399BC9D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196863   (819205) от 05.01.2018
+
+Alpha Delta Division - Outer Rim (2017) Sloboda [FLAC|Lossless|tracks|Vinyl] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outer Rim (13:36)
+ 02. Region 114 (12:51)Жанр: TechnoПродолжительность: 00:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42A3400B7B946EC37701C26B5EC32B9A344CFE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197000   (819199) от 05.01.2018
 
 Christos Fourkis - Personal Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo>
@@ -682,64 +738,6 @@ VA - Hed Kandi - Beach House (2009) [FLAC|Lossless|tracks] <House, Deep House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C08A397D29FFA540682C368E5F420BA0C5894F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199325   (800411) от 17.01.2018
-
-VA - Hed Kandi - Twisted Disco (2007) [FLAC|Lossless|tracks] <House, Disco, Hard House, Deep House, Progressive House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mason Vs Princess Superstar - Perfect (Exceeder) (Martijn Ten Velden Vocal Remix)
-02.Spektrum - Kinda New (Dirty South Remix)
-03.Sharam - PATT (Party All The Time) (Dennis Christopher Dirty Edit)
-04.Camille Jones - The Creeps (Fedde Le Grand Remix)(   Читать дальше...   )Жанр: House, Disco, Hard House, Deep House, Progressive House, ElectroПродолжительность: 02:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31989CD21EAD0FD2A7D720F6C3D922D8D320F6AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198980   (800408) от 17.01.2018
-
-VA - Hed Kandi - Nu Disco (2010) [FLAC|Lossless|tracks] <House,Vocal House,Disco House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simian Mobile Disco Feat Beth Ditto - Cruel Intentions (Greg Wilson Re-Edit)
-02. Jupiter - Mama Used To Say
-03. Ali Love - Diminishing Returns
-04. Empire Of The Sun - Walking On A Dream (Treasure Fingers Remix)(   Читать дальше...   )Жанр: House,Vocal House,Disco HouseПродолжительность: 02:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47369B45C5C81A4CCE12CF24D56BA8FB178667F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1746684   (44932) от 01.09.2024
+
+VA - Oriental Ethnic Deep House Summer Mix (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo-Omar - Balearic Harem (4:52)
+02. Yusuf Bhatt - Gonna Keep It (4:16)
+03. Azula - Bedouin (4:52)
+04. Reza Farahani - Hit Me! (4:54)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBF6FDB6FB40CD24A213FC1E2D03ADBC00191E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746713   (44920) от 01.09.2024
+
+VA - Best Ethnic Deep House 2024 (Best Oriental Ethnic Deep Chill House Mix) [FLAC|Lossless|WEB-DL|tracks] <Oriental House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rachid Fairuz - Habiby Da (4:30)
+02. Claude Ravin - Boushret Kheir (4:39)
+03. Jadal Halal - Alayna El Hawa (4:38)
+04. Profesor Esteban - Ya Rayah (5:39)(   Читать дальше...   )Жанр: Oriental HouseПродолжительность: 01:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1E2B6E53346BDAF25552091D57EF72332E0F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746910   (44816) от 02.09.2024
 
 VA - Dark Arabic Bass House (Ethnic Deep House Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -682,63 +740,6 @@ Lane 8 - Childish (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6E84746B569CD0C6006EA0CB4EA2D77CFDCA03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756233   (39666) от 21.10.2024
-
-Luttrell - Life at Full Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When We First Met
-02. Life at Full Speed
-03. Make U Happy
-04. Sunshine(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E22F523825853600DA56C8590EBB3A3A3804AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757069   (39273) от 25.10.2024
-
-Benassi Bros. x Dhany - Every Single Day (remix) (2021) [FLAC|Lossless|WEB-DL|tracks] <Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benassi Bros. x Dhany - Every Single Day (club edit) (03:43)
-02. Benassi Bros. x Dhany - Every Single Day (club version) (06:41)
-03. Benassi Bros. x Dhany - Every Single Day (club version instrumental) (06:41)Жанр: Club HouseПродолжительность: 00:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC79D0F4BEABC3D5E8EB5673DBAC1E5F8D65C23
 ```
 
 https://mybot314.ru/tekegram_catalog/

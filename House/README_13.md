@@ -1,3 +1,100 @@
+###  Публикация: 1103038   (887787) от 11.02.2017
+
+VA - Dance Essentials (Armada Music) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hardwell & W&W - Get Down (Original Mix)  2:49
+02.  Steve Angello & Still Young - Follow Me (Instrumental)  5:35
+03.  Armin van Buuren & Vini Vici ft. Hilight Tribe - Great Spirit (Original Mix)  3:36
+04.  Dash Berlin & Do - Heaven (Original Mix)  3:18(   Читать дальше...   )Жанр: HouseПродолжительность: 02:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDC747A6A29726CAC2410E63A3F15B5AD600F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640984   (886843) от 07.04.2013
+
+Bob Sinclar - Paris By Night (A Parisian Musical Experience) (2013) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Bob Sinclar - Paris By Night (A Parisian Musical Experience) (2013)
+
+Год: 2013
+Жанр: House
+Продолжительность: 01:32:35Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Bob Sinclar - Summer Moonlight (Original Mix) (7:07)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF214182D3BC13DB31D0D19E1BB9B0DBB8B724E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640089   (886822) от 07.04.2013
+
+Inna - Party Never Ends (Ok Edition) (4CD) (2013) [MP3|320 кб/с]<House, Dance, Pop>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 More Than Friends (Odd Radio Edit)
+02 More Than Friends (Futurism Remix)
+03 More Than Friends (Adi Perez Remix Edit)
+04 Crazy Sexy Wild (Sagi Abitbul & Avi Ace Remix)
+05 Crazy Sexy Wild (Willy Sanjuan Wild Remix)
+06 Crazy Sexy Wild (Dmitry Nema & Welldone Summer Remix)
+07 INNdiA (Salvatore Ganacci Remix)
+08 INNdiA (Dj Turtle Remix)
+09 J'Adore (Nieggman Radio Edit)
+10 J'Adore (Ramy Blazin Remix)(   Читать дальше...   )Жанр: House, Dance, PopПродолжительность: 01:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BDB986D1A153BE246BADD08B70C2268DC631829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103143   (885972) от 12.02.2017
 
 VA - Vocal House Sessions Vol.14 (2017) [MP3|320 Kbps] <House, Vocal House>
@@ -728,93 +825,6 @@ VA - Glamour Chill House - Fashion and Rafinated Beats (2016) [MP3|320 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4411EFB2229C168BBFA3BAF8A08E26FC69652CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996623   (879412) от 14.03.2016
-
-VA - Cycles 7 (Mixed By Max Graham) (2016) [MP3|320 кб/с] <Progressive House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy J - Equinox (07:32)
-02. Brian Cid - Errors (08:00)
-03. Rick Pier O'Neil - To Declare (07:40)
-04. Ewan Rill featuring Avenax - Lotos (Vocal Mix) (07:17)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311FE89E9FBB4A4D17EE16D85D8A76ACB29A9BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994725   (879410) от 14.03.2016
-
-VA - This Is Our House Music Miami- Finest Groovy House Tunes (2016) [MP3|320 кб/с] <Funky, Tech House, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reza & Barry Obzee - Jump (Original Mix)
-02. Peverell Bros, R.O.N.N. & Ron Carroll - Way Back (Roger Sanchez Dirty Beats Dub Remix)
-03. Barry Obzee & Lawrence Friend - Get Up (Original Mix)
-04. Jefty Ft Jibberish - Raise The Bar (Original Mix)(   Читать дальше...   )Жанр: Funky, Tech House, ClubПродолжительность: 02:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA0DA6D068D59508A882B92CA6E4ECDDAF9DC1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994383   (879293) от 14.03.2016
-
-VA - Fitness Beats (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calabria - Ufo (Club Mix)
-02. Stereoliner - Black Cube (Club Mix)
-03. Tildbros - About a Boy (Ultra Short Festival Mix) (feat. Tilda Gold)
-04. Ralf Velasquez - Stars(   Читать дальше...   )Жанр: HouseПродолжительность: 02:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE19EAE8D68DAF4683EFC8C94A6F0E43A1454D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

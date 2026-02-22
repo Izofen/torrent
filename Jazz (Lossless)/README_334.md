@@ -1,32 +1,3 @@
-###  Публикация: 1701259   (116486) от 20.02.2024
-
-Eddie Higgins - Eddie Higgins (1960) Victor [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zarac, the Evil One [5:19]
-02. Falling in Love with Love [4:39]
-03. You Leave Me Breathless [4:29]
-04. Ab's Blues [2:34](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BB327C7BD7CB91901DD3F4C07B1D7813D930EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701197   (116484) от 20.02.2024
 
 1st Floor Ensemble - Sound of Suburb (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -745,6 +716,35 @@ Konrad Zolnierek (Zołnierek) - Jazz-Rock Stories (2024) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B27B6F3EF8B088089D98350B68939CB8915518A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702350   (115832) от 24.02.2024
+
+Трио - 22 (2023) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мистер Браун
+02. А вы не были на Таити?
+03. Ноябрь
+04. Ром-баба(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45621430F6CB9143FD2D8D17B84876AF5FE1B9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

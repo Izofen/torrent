@@ -1,3 +1,29 @@
+###  Публикация: 786751   (737541) от 15.05.2014
+
+Google Nik Software Complete Collection 1.2.0.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Nik Collection — это наиболее полная коллекция плагинов от одного из лучших производителей плагинов для Adobe Photoshop. Complete Collection включает в себя полный набор плагинов для Adobe Photoshop®, Lightroom® and Aperture® including: Dfine® , Viveza® , HDR Efex Pro™, Color Efex Pro™, Silver Efex Pro™and Sharpener Pro™ . С помощью этих плагинов вы сможете (   Читать дальше...   )Язык интерфейса: Русский, English и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE9BDB0401C2DFA562F1B673BC0F6FD3B818170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 783309   (737539) от 15.05.2014
 
 Гап Дон - Воспоминания об убийстве / Gapdongi / Gab Dong / Memories Of Murder (2014) HDTVRip [H.264/720p-LQ] [серии 1-8 из 20] [KOR, Rus Sub] (Обновляемая)
@@ -655,33 +681,6 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF9AEED40820E4FD22C3AD0A28161C9ECB934715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527096   (737373) от 27.01.2022
-
-Audio Hijack 3.8.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
-В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2022Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14.4 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB0C691BA9597C81851205AC84E52D4A5795669
 ```
 
 https://mybot314.ru/tekegram_catalog/

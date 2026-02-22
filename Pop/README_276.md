@@ -1,3 +1,90 @@
+###  Публикация: 1084656   (220983) от 18.12.2016
+
+VA - Die Hit Rekorde Champions der 90er (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Jackson - Black Or White (3:19)
+02. Roxette - It Must Have Been Love (4:19)
+03. Take That - How Deep Is Your Love (3:42)
+04. Backstreet Boys - Quit Playing Games (With My Heart) (3:54)(   Читать дальше...   )Производство: Sony Music MediaЖанр: PopПродолжительность: 02:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A62ECA499FC10DBC00795884CF77038F77FA681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342993   (220970) от 04.12.2019
+
+Алиса Вокс - Упругий поп концерт (2019) Live [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220970.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выстрелы (Live)
+2. Мой (Live)
+3. Фейерверк (Live)
+4. Вечер (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744CA0E9D1CBED8B03C7153404CB11EDD59BF125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084177   (220934) от 18.12.2016
+
+Dan Lacksman - Electric Dreams (2013) CD [MP3|320 Kbps] <Electronic, Synth-pop, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dan Lacksman - полное имя Daniel Pierre Lanckmans. Известен прежде всего как один из "Telex" - электро-поп группы конца 70-х - начала 80-х. После "Telex" продюсировал проект "Deep Forest". Альбом записан и смикширован в студии Synsound, Брюссель (С)2012. Вышел в свет в мае 2013.01. A=440  (4:41)
+02. Electric Dreams  (3:29)
+03. Mac Or PC  (3:18)
+04. I Want My Space  (4:19)(   Читать дальше...   )Жанр: Electronic, Synth-pop, ExperimentalПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD3D07FF01CD6056EE130124460EC80EA9F5F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342985   (220877) от 04.12.2019
 
 Mo-Do - Was Ist Das? (1995) [FLAC|Lossless|tracks + .cue] <Eurodance>
@@ -676,93 +763,6 @@ VA - Dorfdisko 2022 - Ballermann Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlage
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEF6E45B6CD0BF7224AE2D7F4B4889980956D109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585866   (219523) от 24.10.2022
-
-VA - Ballermann Party Mix - Alle Hits Der Playa von 1998-2022 "Summer Edition" (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Bier - Bierkapitan
-02. Tobee - Cordula Grun
-03. Micky Band Bruhl - Buenos Dias Matthias (Version 2021)
-04. Buddy - Ab in den Suden (Neuaufnahme)(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:10:32 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D60565BA627BAC8C4E75A82EDE1FE4F719F3BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585868   (219514) от 24.10.2022
-
-VA - Ballermann Megamix (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nancy Franck - Korken knallen
-02. Marc Koste - Open Air
-03. Die Eierheiligen - Feiereier
-04. Rick Arena Moses C. - Vorn an der Theke stehn(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 04:08:14 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33C92DC2E47016C9B2B1375CA21DE71FD24BFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585854   (219484) от 24.10.2022
-
-VA - Ballermann Huttengaudi (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bierkapitan - Schere Stein paar Bier (Schnick Schnack Schluck)
-02. Peter Wackel - An der Theke
-03. Ikke Huftgold - Ich schwanke noch
-04. Lorenz Buffel & Anna-Maria Zimmermann - Ein Lied fur diese Welt(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:07:07 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D6A783BD48A4589F3DFC97DD70FC4AEBCC2145
 ```
 
 https://mybot314.ru/tekegram_catalog/

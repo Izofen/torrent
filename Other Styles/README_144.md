@@ -1,3 +1,32 @@
+###  Публикация: 58904   (332992) от 14.10.2019
+
+Pulp Fiction / Криминальное чтиво - Soundtrack (1994) [ape+cue+log+сканы]
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332992.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dick Dale & His Del-Tones - Misirlou (2:30)
+2. Samuel L. Jackson And John Travolta - Royale With Cheese (1:45)
+3. Kool & The Gang - Jungle Boogie (3:06)
+4. Al Green - Let's Stay Together (3:17)(   Читать дальше...   )Жанр: OSTПродолжительность: 41:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDF39CC37B55E73E2340FE4399D2F2C481AB961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 412443   (332675) от 19.11.2011
 
 Lorne Balfe & Jesper Kyd - Assassin's Creed Revelations (2011) [MP3|320 kbps]<OST>
@@ -723,35 +752,6 @@ Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|image + .cue] <New Age, Celti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6C4874557D8317CE8EF8721961593D38C3F38B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958050   (325628) от 19.11.2015
-
-VA - Die Hit-Giganten: Instrumental Hits (2009) 2CD [FLAC|image+.cue]<Pop, Electronic, Jazz, Rock, Latin, Funk / Soul>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну вот собственно и последний диск (из имеющихся в наличии) серии (ссылка на серию внизу раздачи), выпущенной немецким подразделением Sony Music. На первый взгляд может показаться достаточно сумбурным выбор составителей, но приглядевшись (а, главное, прислушавшись), понимаешь, что здесь охвачено всё разнообразие инструментальной музыки. Наверное поэтому в список (   Читать дальше...   )CD1:
-01. Mike Oldfield - Tubular Bells  (4:16)
-02. Santana - Samba pa ti  (4:42)
-03. Fleetwood Mac - Albatross  (3:09)(   Читать дальше...   )Тип издания: 2CDЖанр: Pop, Electronic, Jazz, Rock, Latin, Funk / SoulПродолжительность: 02:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504E7ACCAF3F662D9EBC4B555BD95C0BCE928987
 ```
 
 https://mybot314.ru/tekegram_catalog/

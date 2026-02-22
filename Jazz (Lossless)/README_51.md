@@ -1,3 +1,32 @@
+###  Публикация: 1370087   (898544) от 26.03.2020
+
+Billy Cobham - Compass Point (2013) 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Snaffler (11:28)
+02. Fragolino (8:01)
+03. Mushu Creole Blues (10:15)
+04. Egg Shells Still On My Head (9:10)(   Читать дальше...   )Жанр: Jazz, Funk, FusionПродолжительность: 01:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A07B466F964D3F0C5833D0F14F2E87AAA0A871A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370221   (898479) от 26.03.2020
 
 Various - Electro Swing II (2009) [FLAC|Lossless|image + .cue] <Electronic, Electro Swing, Jazz>
@@ -717,41 +746,6 @@ Oscar Peterson & Jon Faddis - 1975 (2000) Original Jazz Classics [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5FC6152E19D93E95E8EC4DB4B40C24F2A9471E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638540   (895241) от 03.04.2013
-
-VA - Bluenight - Jazz Mood for Lovers (CD 2 SET) (2003) [APE|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Till Bronner - Just the way you are
-02. Gerald Albright, Will Downing - The Look of love
-03. Chris Botti - When rain falls
-04. Lizz Wright - Fire
-05. Will Downing - Maybe
-06. David Sanborn - Isn't she lovely
-07. Natalie Cole - So many Stars
-08. Till Bronner - When I fall in love
-09. Nicoletta -Ou es tu passe mon Saint-Germain des Pres
-10. Ronny Jordan - After hour (The antidote)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

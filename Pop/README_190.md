@@ -1,3 +1,119 @@
+###  Публикация: 1243643   (490227) от 28.08.2018
+
+VA - Big Room Sessions, Vol. 3 (2018) [MP3|320 Kbps] <Club, Funky, Progressive, Groove, Tribal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disfunktion - Wokkasaki (Rocking J Remix)
+02. Peter Brown, Ann Bailey - Let Me Go (Instrumental Mix)
+03. Reza, Nicole Tyler - Take Me Home (Original Mix)
+04. Jay Ronko, Josh Newson - Push (Original Mix)(   Читать дальше...   )Жанр: Club, Funky, Progressive, Groove, TribalПродолжительность: 05:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7702707C06532B91CCC4B7DE99835F8C8F864100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054710   (490209) от 21.09.2016
+
+Фанки - 3 альбома (2000-2005) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Только тебе
+02 - Игрушка
+03 - Птицы
+04 - Планета(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588DB0985CC6243093E553AFCCC4445E469DB690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055177   (490113) от 21.09.2016
+
+VA - NOW That's What I Call Music! 93 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Electronic, Pop-Rock, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Sorry (3:22)
+02. The Weeknd - The Hills (4:04)
+03. Coldplay - Adventure Of A Lifetime (3:45)
+04. 99 Souls feat. Destiny's Child & Brandy - The Girl Is Mine (3:35)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Pop-Rock, Dancepop, Funk, Soul, Synthpop, House, R&B, Hip-HopПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8D5D3465231F8AC75AFAAF87700E663F9524AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937334   (490054) от 14.09.2015
+
+Сёстры Роуз - Бродяга (1996) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бродяга
+02. Твой поцелуй
+03. Ты - чужой
+04. Осень(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185402BD885BACBD8A7D752016F70844D756194A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243665   (489980) от 28.08.2018
 
 Eros Ramazzotti - The Greatest Hits '99 (1999) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Electronic, Hip Hop, Rock, Pop>
@@ -641,122 +757,6 @@ Overcoats - The Fight (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3DCECF894135E9D0D8B15893218B86A376F256B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405232   (485729) от 29.08.2020
-
-Charlotte Martin - On Your Shore (2004) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Your Shore (03:58)
-02. Limits Of Our Love (03:30)
-03. Your Armor (04:20)
-04. Every Time It Rains (03:43)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5950A9DDBBA60849C64D764E2EAC264EBC9EC85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937841   (485714) от 16.09.2015
-
-Santa Esmeralda - The Best (1993) [FLAC|tracks+.cue]<Disco, Latin>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Let Me Be Misunderstood (Original Version) + Esmeralda Suite (14:20)
-02. Gloria (03:55)
-03. The House Of The Rising Sun + Quasimodo Suite (03:42)
-04. You're My Everything (05:00)(   Читать дальше...   )Жанр: Disco, LatinПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0630EC5D50DBD4CAAE0BFC568DCB1EC9D69E5D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405434   (485696) от 29.08.2020
-
-Debbie Jacobs - Undercover Lover (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undercover Lover  (6:15)
-02. Don't You Want My Love  (7:52)
-03. Think I'm Fallin' In Love  (3:17)
-04. Hot Hot (Give It All You Got)  (6:54)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D3BB07F7C9632961C86887B612583228AFC091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055802   (485655) от 23.09.2016
-
-Cerrone 3 - Supernature (1977) Reissue, 2016, OTP [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supernature (10:11)
-02. Sweet Drums (2:39)
-03. In The Smoke (5:33)
-04. Give Me Love (5:38)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCAB9EBF8F1951BD9B0ABD21F7FD25F9B3DE3C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

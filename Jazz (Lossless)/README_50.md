@@ -1,3 +1,32 @@
+###  Публикация: 1369449   (902020) от 24.03.2020
+
+Jeff Golub - Soul Sessions (2003) [FLAC|Lossless|image + .cue] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boom Boom
+02. Playin' It Cool
+03. Cadillac Jack
+04. Underneath It All(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AB8FCF6351D22D04FCD2F40B0271D078F295F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100106   (901903) от 03.02.2017
 
 Morten Schanz - Godspeed (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemporary Jazz>
@@ -738,35 +767,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA3EA9B28CC7835DAA8DDDDC40D85FDD87091B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370087   (898544) от 26.03.2020
-
-Billy Cobham - Compass Point (2013) 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Snaffler (11:28)
-02. Fragolino (8:01)
-03. Mushu Creole Blues (10:15)
-04. Egg Shells Still On My Head (9:10)(   Читать дальше...   )Жанр: Jazz, Funk, FusionПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A07B466F964D3F0C5833D0F14F2E87AAA0A871A
 ```
 
 https://mybot314.ru/tekegram_catalog/

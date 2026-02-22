@@ -1,3 +1,33 @@
+###  Публикация: 1509969   (788755) от 21.11.2021
+
+Mylene Farmer - Studio albums & Remixes (1986 - 2018) 15 CD [APE|Lossless|image + .cue] <Chanson, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Милен Жанна Готье (фр. Mylène Jeanne Gautier), профессионально известная как Милен Фармер (Mylène Farmer), французская певица канадского происхождения, композитор, актриса и поэтесса. Одна из самых известных современных французских исполнительниц популярной музыки.
+Редко появляясь в СМИ и избегая обсуждения своей личной жизни, она построила долговременный (   Читать дальше...   )1986 - Cendres de lune
+1988 - Ainsi soit je
+1991 - L'autre
+1995 - Anamorphosee(   Читать дальше...   )Жанр: Chanson, Pop Rock, Synth-popПродолжительность: 13:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0215552BE5237F423749E8A27FE51C63926159A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276292   (788190) от 16.01.2019
 
 Marianne Ligthart - Black Tea & Whiskey (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
@@ -716,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA0036392C8D3D183041C1EA56B6081C08FD83F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207047   (781322) от 16.02.2018
-
-Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781322.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 L'amas d'chair
-2 Aie
-3 Soirees parisiennes
-4 Toi qui m'ecoutes(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1685753   (127070) от 19.12.2023
+
+Dr. Arthur Krause - Best of (2003-2016) Compilation Album [MP3|320 Kbps] <Goth Rock, Darkwave>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Hard Hands
+02. Born in Russia
+03. Dance like Hell
+04. Deported Soul II(   Читать дальше...   )Жанр: Goth Rock, DarkwaveПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED49AE5766E566A7B1EE44112EC2BF7C3B2469E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689101   (124808) от 01.01.2024
 
 VA - Полный Отстой (2023) [MP3|320 Kbps] <Thrash, Metal, Hard>
@@ -719,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D76AA934B949AF3BEBEF74486604767C97EF5576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768763   (100645) от 29.12.2024
-
-VA - SAW 3 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alter Bridge - Show Me A Sign
-002.Corroded - Dust
-003.Disturbed - Mine
-004. Lacuna Coil - I Like It(   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, Progressive RockПродолжительность: 06:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C0C72A910EFFED13A04136156FDED669A43A53
 ```
 
 https://mybot314.ru/tekegram_catalog/

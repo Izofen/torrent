@@ -1,3 +1,94 @@
+###  Публикация: 1315599   (510982) от 22.07.2019
+
+VA - Future House (2019) [MP3|320 Kbps] <House, Progressive House, FutureHouse, ClubHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. General Wooky - Jungle Boogie (Clubmix) 4:42
+02. Made In 1978 - Acrobat (Extended Mix) 6:02
+03. Mister Shuffle - Dance All Day (Ibiza Mix) 5:42
+04. Tony Wong - Back 2 Back (Warehouse Mix) 5:03(   Читать дальше...   )Жанр: House, Progressive House, FutureHouse, ClubHouseПродолжительность: 01:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FA1DAFB3B7EB77C4DCC31F83A777824FFE608F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315827   (510978) от 22.07.2019
+
+VA - Like A Summer Day, Vol. 3 (2019) [MP3|320 Kbps] <House, Deep House, Indie Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510978.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Walter N. – Dubai Beach (05:02)
+2. Marco Malinverno – Heart Breaker (05:57)
+3. Living Large – Lacetti (04:44)
+4. Junior D – Gold Lounge (05:15)(   Читать дальше...   )Жанр: House, Deep House, Indie DanceПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6659880C5EA2A6780AFB8DC0D47EFBDDFF6809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538199   (510444) от 22.08.2012
+
+Hard Bass School - Album (2012) [MP3|320 кб/с]<Pumping House / Hardbass>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Bass School - Album (2012)
+
+Год: 2012
+Жанр: Pumping House / Hardbass
+Продолжительность: 00:56:40Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Intro (0:31)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33328E6AEF4EC494E626E1A07247C9172365C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932834   (508245) от 30.08.2015
 
 VA - Progressive Essentials 02 (2015) [MP3|320 кб/с]<Progressive House>
@@ -696,93 +787,6 @@ VA - To Get Her in the Mood Feed Her Music Workout Tracks (2018) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC8FCF2136F780E2A2A86C43AD213321C05F709E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159167   (486132) от 19.08.2017
-
-L.S.G. - Double Vision (2017) [MP3|320 Kbps] <Progressive House, Downtempo, Electronica>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Seven Worlds (Original Mix)  4:54
-02.  Escape The Gravity (Original Mix)  10:41
-03.  Vapor (Original Mix)  11:01
-04.  Spotter (Original Mix)  7:55(   Читать дальше...   )Жанр: Progressive House, Downtempo, ElectronicaПродолжительность: 04:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747BC7600D3A1400618F0D5FB9DBBE914A313D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056190   (484007) от 24.09.2016
-
-VA - Body Pump #1 - Best of Workout (2016)  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light In Color - Take Cover 05:27
-02. David K (Ger) - In Love : In Love (Robin Schulz Remix) 06:49
-03. Acido Domingo - Lagerfeuer 05:08
-04. David K (Ger) - Open Eyes 06:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E8A5F6D8C7B548586B3D3338AE92CA48E06546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244584   (480045) от 02.09.2018
-
-VA - EDM Bass Running (Workout Music) (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dobie - Bambola (Radio Edit) 03:27
-02. DJ Sinestro - Sandglass 03:43
-03. Crossthy - Altogether 03:29
-04. DiskBastian - Wild 03:46(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C0465A21992149CE1126129690D0CDB554DE76
 ```
 
 https://mybot314.ru/tekegram_catalog/

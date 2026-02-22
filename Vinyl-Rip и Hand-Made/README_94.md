@@ -1,3 +1,179 @@
+###  Публикация: 1757240   (39164) от 26.10.2024
+
+Dead Can Dance - Studio Albums & Tributes (13 releases) (1984-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neoclassical Dark Wave, Art-Rock, Ethereal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dead Can Dance — австралийский музыкальный коллектив, состоящий из Брендана Перри (Brendan Perry) и Лизы Джеррард (Lisa Gerrard). Группа основана в Мельбурне в 1981 году, распалась в 1998 году в результате творческого конфликта и временно воссоединилась для проведения мирового турне в 2005 году.
+В 2011 году в официальном блоге было объявлено о воссоединении, выпуске (   Читать дальше...   )1984 - Dead Can Dance
+1985 - Spleen and Ideal
+1987 - Within The Realm Of A Dying Sun
+1988 - The Serpent's EggЖанр: Neoclassical Dark Wave, Art-Rock, EtherealПродолжительность: 14:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0BE20B78A7E1E70ECDC876819C1F68F6ADB794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692719   (39160) от 26.10.2024
+
+Blink-182 (& +44; Box Car Racer) - Studio Albums (14 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pop-punk, Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blink-182 — американская панк-рок-группа, основанная в 1992 году гитаристом и вокалистом Томом Делонгом, бас-гитаристом и вокалистом Марком Хоппусом и барабанщиком Скоттом Рэйнором в северном пригороде Сан-Диего, городе Пауэй, Калифорния.1995 - Cheshire Cat
+1997 - Dude Ranch
+1998 - Buddha
+1999 - Enema Of The StateЖанр: Pop-punk, Punk RockПродолжительность: 11:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA97C9936A5739F94DFF90A3F13A0B8036A13FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757552   (38970) от 28.10.2024
+
+Witchgrinder - Studio Albums (3 releases) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Witchgrinder - метал-группа из Мельбурна, Австралия, основана в 2009 году.2013 - The Demon Calling
+2015 - Haunted
+2024 - Nothing Stays BuriedЖанр: Industrial Thrash/Groove MetalПродолжительность: 02:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C7D58782549F7E12560B20F8A0771D54FDAC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588810   (38960) от 29.10.2024
+
+VA - Metallica Tributes Collection (20 releases) (1994-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove/Death/Doom Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный сборник представляет из себя коллекцию изданий под общим смысловым названием "Tribute to Metallica".
+Песни группы "Metallica" исполнены коллективами различной степени известности из разных стран мира.
+Объединяющий фактор - жанр: Metal разной степени тяжести.1994 - Metal Militia - Tribute To Metallica
+1996 - Metal Militia - Tribute To Metallica II
+1999 - Phantom Lords
+2002 - A Tribute To The Four HorsemenЖанр: Thrash/Groove/Death/Doom Metal, MetalcoreПродолжительность: 22:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806683B9DE4FBA3C7A4B8A2AC9119D2370903A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757913   (38797) от 30.10.2024
+
+The Vision Bleak - Studio Albums (7 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38797.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Vision Bleak — немецкая готик-метал-группа, сформированная в 2000 году участником группы Empyrium Маркусом Штоком (псевдоним — Ulf Theodor Schwadorf) и экс-участником Nox Mortis и Ewigheim Тобиасом Шёнеманном (псевдоним — Allen B. Konstanz).2004 - The Deathship Has A New Captain
+2005 - Carpathia_ A Dramatic Poem
+2007 - The Wolves Go Hunt Their Prey
+2010 - Set Sail To Mystery(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 06:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECC95B18EEA06BB98A3D29DB14020C9E5E45C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677427   (38683) от 31.10.2024
+
+Hatchet - Studio Albums (5 releases) (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hatchet - американская трэш-метал группа из Сан-Франциско, Калифорния. Образована в 2006 году.2008 - Awaiting Evil
+2013 - Dawn Of The End
+2015 - Fear Beyond Lunacy
+2018 - Dying to ExistЖанр: Thrash MetalПродолжительность: 03:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04849D7AB5F2F88D04DA5A989A28919EFFD10AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667512   (38494) от 02.11.2024
 
 Skillet - Studio Albums (13 releases) (1996-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-grunge, Nu Metal>
@@ -572,177 +748,6 @@ Kreator — немецкая трэш-метал-группа, основанн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E766A677B505A92D94E77AB6748E446F2DB29AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761445   (36723) от 20.11.2024
-
-VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Ballad, Hard Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Soft Rock, Ballad, Hard Rock, Blues RockПродолжительность: 01:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1610288ECB9F0CB78BCAFDC715F00A68E87B0581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761603   (36573) от 21.11.2024
-
-As the Sun Falls - Studio Albums (4 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36573.jpg" />
-</div>
-
-
-###  Подробнее
-
-As the Sun Falls - мелодик-дэт-метал группа, основанная в 2020 году.2020 - Memoriam (EP)
-2021 - Last Days of Light
-2022 - Far Beyond (EP)
-2024 - Kaamos(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 02:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9CAB9777C8B626EF70F75B8CD3000A359DE0CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761865   (36463) от 22.11.2024
-
-Ancient - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ancient — норвежская блэк-метал-группа из Бергена, образованная в 1992 году.1994 - Svartalvheim
-1995 - Trolltaar (EP)
-1996 - The Cainian Chronicle
-1997 - Mad Grandiose Bloodfiends(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 07:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EFEA486C8A12D06E97629472130E5B6657367E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762218   (36294) от 24.11.2024
-
-VA - Golden Ballads. Лучшие Баллады Последних Десятилетий (2002) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Scorpions - Wind Of Change
-02. Eagles - Hotel California
-03. Iggy Pop - In The Death Car(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD77480CC8B9599FF7572FBE9010EF646776E743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762424   (36184) от 25.11.2024
-
-VA - Romantic Collection. Metal Ballads (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36184.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Scorpions - When You Came Into My Life
-02. Marillion - One Fine Day
-03. Nazareth - God Save The South(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30621F116366F2119F1F6E82211614F817B3C27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677836   (36135) от 25.11.2024
-
-Suicidal Angels - Studio Albums (9 releases) (2007-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Suicidal Angels - трэш-метал группа из Афин, Греция, образованная в начале 2001 года Ником Мелиссургосом в возрасте 16 лет под влиянием трэш-метала старой школы.2007 - Eternal Domination
-2009 - Sanctify The Darkness
-2010 - Dead Again
-2012 - BloodbathЖанр: Thrash MetalПродолжительность: 06:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283F20255D32605832DBE453E4F8E81F712E18DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

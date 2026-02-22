@@ -1,3 +1,116 @@
+###  Публикация: 1110298   (853677) от 02.03.2017
+
+VA - Disco Fox 80 Vol.7 (The Original Maxi-Singles Collection) (2016) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  T. Ark - Under Cover Lover (12'' Version)  6:13
+02.  Bad Boys Blue - Hungry For Love (12'' Version)  5:57
+03.  Mike Mareen - Dancing In The Dark (Galactica Remix)  7:09
+04.  The Twins - Time Will Tell (Dance Mix)  6:50(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393EBAE5576856B6CBC05E6D830197DBDC6DAE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109797   (853594) от 02.03.2017
+
+Артём Пивоваров - Дискография (2013-2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 02:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7BEE1E04B786353D594BB88C6A13B1155B8553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377207   (853567) от 21.04.2020
+
+Marc Almond - Chaos and a Dancing Star (2020) [FLAC|Lossless|tracks + .cue] <Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sunrise                                                         [05:45]
+02. Hollywood Forever                                                     [04:50]
+03. Chevrolet Corvette Stingray                                           [03:54]
+04. Dust                                                                  [04:35](   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C01B81FF64B5E90A87D2B0A742F2B699304ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769909   (852983) от 24.03.2014
+
+Belinda Carlisle - A Woman & A Man (1996) [FLAC|Lossless] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  In Too Deep   (4:06)
+02.  California   (2:59)
+03.  A Woman And A Man   (5:12)
+04.  Remember September   (4:33)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5DD5A536727A4C03C3E7FA6605D9107CF9825CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498922   (852441) от 29.09.2021
 
 Neoton Familia - 21 Albums (1978 - 1989) Collection [MP3|320 Kbps] <Electronic, Disco, Pop>
@@ -637,122 +750,6 @@ Robert Ponger - Robert Ponger (1979) Reissue LP, 2021, Edition Hawara [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5DCC8924365201CCE343186C349E5D333BA88F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002467   (848994) от 31.03.2016
-
-Lexi Strate - Waves (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond Eyes
-02. Out Of My Head
-03. Tattoo
-04. Miss Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A144A4B30714CFC7063142DE7091C2591DF4A3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002091   (848990) от 31.03.2016
-
-Krystal Meyers - Make Some Noise (2008) [MP3|320 кб/с] <Electro, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Some Noise (03:14)
-02. Love It Away (03:40)
-03. Shine (03:34)
-04. S.O.S. (03:17)(   Читать дальше...   )Жанр: Electro, Pop RockПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F5F9343A9CE202B6A97FE17991862387290A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111468   (848672) от 05.03.2017
-
-L.E.B. Harmony - Disco Boogie (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Boogie (3:55)
-02. Feeling Strong (8:45)
-03. Childhood Forever (5:09)
-04. Kid's Dance (2:55)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73999E6AFC759C6E55C78A427E886A831344C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002254   (848611) от 31.03.2016
-
-Q-Pow! - We're Only Here For The Party! (2000) [FLAC|Lossless|tracks] <Electronic, Pop, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Holiday    03:43
-02. More & More    03:24
-03. I Wanna Know    03:25
-04. Couldn't Get Away    03:44(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED5931FE6B8B01417DA1D1E95B4099E3AC73012
 ```
 
 https://mybot314.ru/tekegram_catalog/

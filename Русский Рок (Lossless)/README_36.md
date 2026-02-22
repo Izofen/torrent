@@ -1,3 +1,32 @@
+###  Публикация: 1580611   (329978) от 02.10.2022
+
+Однорукий Бандурист - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андеграунд [00:03:37]
+02. Протест против протеста [00:02:30]
+03. Всё катится [00:03:25]
+04. Беспонтовые телодвижения [00:03:18](   Читать дальше...   )Жанр: RockПродолжительность: 3 CD, 02:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AC7F5DB75CF66F48A815871D3F91B8DA9295F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580478   (329917) от 02.10.2022
 
 Tsygun - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Crust, Grindcore, Blackened>
@@ -720,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B491D7E065CDE0CB2B453C7E858BE21F3A7CB80D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421590   (317560) от 05.11.2020
-
-Игорь Романов И Его группа (Союз) - Учитель успеха (1988) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Учитель успеха
-02. Ливень
-03. Черный ворон
-04. Счастливый билет(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, New WaveПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA0738BCAD31AC9E15AE6EFE50FFCE22FDA05BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

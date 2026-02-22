@@ -1,3 +1,90 @@
+###  Публикация: 1829271   (201875) от 25.10.2025
+
+t.A.T.u. - Dangerous and Moving (2005) Deluxe Remastered Edition, 2025, Universal International Music BV [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_201875.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Dangerous And Moving (Intro) (0:49)
+• 02. All About Us (3:01)
+• 03. Cosmos (Outer Space) (4:12)
+• 04. Loves Me Not (2:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F002D804854FACAE48B276C88DABEB93A6E7F598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617614   (201660) от 07.03.2023
+
+Александр Маршал - Блокпост - Сборник лучших песен (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201660.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Блок-пост «Акация»
+2. Братишка
+3. Приказ назад
+4. Третий тост(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B64B66C23CD5BC7D6D832534A9C71D1F9319505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617828   (201635) от 08.03.2023
+
+Олег Анофриев - Есть только миг (1995) [MP3|320 Kbps] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это было недавно ( из к/ф  Друзья и годы )
+02. Песня из к/ф  Путь к причалу
+03. Песня из к/ф  Там, где кончается асфальт
+04. Весенняя песенка(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974F3230A4C16A88889BDEDBAD3A6C48C1D84EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617775   (201614) от 08.03.2023
 
 VA – Мамина пластинка 2. Лучшие хиты 70х-80х (2003) [MP3|320 Kbps] <Советская эстрада, Ретро>
@@ -661,93 +748,6 @@ Tina Turner - The Best (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE915F497CCAE302451A3DB260423A78DC180F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638141   (197435) от 07.06.2023
-
-VA - 70s Pop Mega Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Gees - Stayin Alive                                 [04:45]
-   02. Jerry Williams - Cotton Jenny                           [03:30]
-   03. Rupert Holmes - Escape (The Pina Colada Song)           [04:37]
-   04. Rod Stewart - Maggie May                                [05:44](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E973D11D8E8CE257D6456E6725ED6FCDC731D47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638201   (197356) от 07.06.2023
-
-Руки Вверх - Дышите Равномерно (1997) 2 x CD, Reissue, Remastered, 2023, Maschina Records, Deluxe Expanded Edition [FLAC|Lossless|image + .cue] <Russian Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197356.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Дышите Равномерно:
-01. Доброе Утро
-02. Малыш (Complete Version)
-03. Студент(   Читать дальше...   )Жанр: Russian PopПродолжительность: 01:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF205567EB5BEACC6336E227577D950C478F5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641590   (196719) от 23.06.2023
-
-Братья Грим - Лететь высоко (2023) [MP3|320 Kbps] <Pop Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196719.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лететь высоко
-2. Солнце моё
-3. Лелею
-4. Крылья рукава(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B1444F57F6C96971D561218FD8CEECA455397A
 ```
 
 https://mybot314.ru/tekegram_catalog/

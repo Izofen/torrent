@@ -1,3 +1,174 @@
+###  Публикация: 1742050   (105584) от 10.08.2024
+
+Godsmack - Faceless (2003) Remaster, 2024, Universal Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative-metal, heavy-metal, post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight Out Of Line (4:19)
+02. Faceless (3:34)
+03. Changes (4:20)
+04. Make Me Believe (4:08)(   Читать дальше...   )Жанр: Alternative-metal, heavy-metal, post-grungeПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03D0DD6979A56633963D82E6A1DD4D4E268192C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741986   (105579) от 10.08.2024
+
+Kite - VII (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember me [00:08:05]
+02. Changing [00:03:29]
+03. Hand Out the Drugs [00:05:32]
+04. Tranås/Stenslanda [00:04:33](   Читать дальше...   )Жанр: Synthpop, Synthwave, DanceПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8A54AA36908D53698A394C42D65861E209E31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742196   (105577) от 10.08.2024
+
+Студия «Заман» - Приятного Вам Отдыха По-нашему (1998) На татарском языке [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Ветер с моря дул
+02. Позови меня с собой
+03. Чашка кофею(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A98C20DB095FA2A7277AFDC4D03D07D1C29F874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742436   (105572) от 11.08.2024
+
+VA - The Keepers Of Jericho - A Tribute To Helloween (2000-2002) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Various Artists - A Tribute To Helloween - The Keepers Of Jericho, Parts 1 & 2Жанр: Power/Speed MetalПродолжительность: 02:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27A16C6CC0FF66CC8B07FBB419466C82DECA389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742490   (105570) от 11.08.2024
+
+Luna Falling - Ctrl + End (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Metal, Post-Hardcore, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome [00:01:26]
+02. The End [00:03:20]
+03. The Return [00:03:30]
+04. Void [00:03:26](   Читать дальше...   )Жанр: Alt. Metal / Post-Hardcore / ElectronicПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837714D6C12D33D94743CC9A8D403ACAF15A5A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742492   (105562) от 11.08.2024
+
+Princesa Alba - Como Si Fuese Real (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Como Si Fuese Real [00:01:55]
+02. Indecisa [00:02:56]
+03. Yas Kween! [00:03:27]
+04. Strawberry [00:02:48](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C0A651A9FA89CDC1F024BEEEDAAEF703F07EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742380   (105558) от 11.08.2024
 
 Celesty - Studio Albums (4 releases) (2002-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Power Metal>
@@ -570,180 +741,6 @@ Frank Turner - Undefeated (2024) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F74DBC6840DC7A93816F4293D77618397AEEE8AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743745   (105321) от 18.08.2024
-
-Jontavious Willis - West Georgia Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West Georgia Blues [00:02:02]
-02. Charlie Brown Blues [00:03:50]
-03. Broken Hearted Moan [00:02:51]
-04. Keep Your Worries On the Dance Floor [00:02:49](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00FDE06EA62401855725E220A0CDD4E89083F586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743751   (105317) от 18.08.2024
-
-Rosie Lowe - Lover, Other (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sundown [00:00:37]
-02. Mood To Make Love [00:03:51]
-03. In My Head [00:02:04]
-04. Bezerk [00:02:13](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30BCF47BC48484345517E6126D00AF7833CBE1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743893   (105310) от 19.08.2024
-
-Tight - Right Between The Eyes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night City (4:09)
-02. Part Time Lover (3:58)
-03. Kickin' it (5:04)
-04. Lonely Flower (5:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E204D12F182EE20C0413EC1A0CE4C5DD7FE6AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743892   (105309) от 19.08.2024
-
-Strevellna - Revoldom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revoldom EN (1:05)
-02. Dödsfördriv (3:24)
-03. Ensamtid (3:56)
-04. Mänsklig Hand (3:48)(   Читать дальше...   )Жанр: Hard Rock, Power MetalПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7D6C215549CD795F6039F7CD7513F06AB4370D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743858   (105308) от 19.08.2024
-
-Budderside - Good For Nothing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good For Nothing (3:31)
-02. Joker (3:52)
-03. The Truth (3:37)
-04. Never Worth It (3:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2924A1491C4751EBA171091972171A0A5B230928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743888   (105307) от 19.08.2024
-
-Jim Peterik And World Stage - Roots & Shoots, Vol. 2 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Dreamer (4:16)
-02. Your Own Hero (4:02)
-03. Stronger Than You Know (4:10)
-04. All That's Mine To Give (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926C7E10334455ED2590E7DA4B8DA83F5467712D
 ```
 
 https://mybot314.ru/tekegram_catalog/

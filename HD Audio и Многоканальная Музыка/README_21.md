@@ -1,3 +1,177 @@
+###  Публикация: 1030749   (671966) от 01.07.2016
+
+Isao Tomita - Okhotsk Fantasy (2016)  [DTS 4.0 CD-DA|44.1/16|image+cue|SACD] <Electronic, Ambient, Modern Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_671966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    Okhotsk Fantasy    11:46
+2.    Pavane Pour Une Infante Dfunte    07:16
+3.    Ma Mere L’Oye Suite: Pavane De La Belle Au Bois Dormant    01:55
+4.    Petite Poucet    03:52(   Читать дальше...   )Жанр: ambientПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4563EAF03CA3A4E9C8CA406F8296137F448C16A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030573   (671828) от 01.07.2016
+
+ППК - Воскрешение Hey DJ' (2001) [PPCM 5.1|96/24|DVD-Audio] [upmix, upsampling] <Classic Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_671828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ППК - Воскрешение (Space Club Mix) (8:03)
+02. ППК - Воскрешение (Wellenrausch Remix) (6:49)
+03. ППК - Воскрешение (B-Power Techstyle Mix) (5:29)
+04. ППК - Воскрешение (PartyZans Promo Mix) (9:41)(   Читать дальше...   )Жанр: Classic TranceПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3856276722A3F455A78E00D2DCAD31C812BD6DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030761   (671730) от 01.07.2016
+
+Jean-Michel Jarre - Oxygene (1976) [PPCM 5.1|96/24|VinylRip] [upmix] <Electronic, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_671730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene (Part I) (7:40)
+02. Oxygene (Part II) (8:20)
+03. Oxygene (Part III) (2:50)
+04. Oxygene (Part IV) (3:50)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6C6B1F6B825B5251B494EAD1F747C035A28517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223644   (671210) от 06.05.2018
+
+Mike Oldfield - Five Miles Out (Deluxe Edition) (2013) 1982 [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <new age, pop/rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taurus II - 24:43
+02. Family Man - 04:00
+03. Orabidoo - 10:48
+04. Mount Teidi - 04:06(   Читать дальше...   )Жанр: new age, pop/rockПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C5FD40A718AC872978FCEC0BD72086D26CA529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798239   (671197) от 21.06.2014
+
+Генрик Шеринг - Л. Бетховен (Концерт для скрипки с оркестром) (1987) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Allegro Ma Non Troppo  25:22
+Сторона 2
+1. Larghetto. Rondo, Allegro  20:02Жанр: ClassicalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B6AC8E01730AFBF2D1C1B0635D232EEF54676C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537164   (669316) от 15.03.2022
+
+Oscar - Oscar (1974) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669316.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Well Known Lady
+A2 Good Loving Woman
+A3 Encore After Encore
+A4 Hugo(   Читать дальше...   )Жанр: Glam Rock, Pop RockПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537150   (669264) от 15.03.2022
 
 Wes Montgomery - A Day In The Life (1967) 1984 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
@@ -569,180 +743,6 @@ A4. Становитесь в очередь за мной (5:02)(   Читат�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB9DF6F41C7DB2AFED9DBC307CDCF51D06D307AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031631   (651363) от 04.07.2016
-
-Nazareth - Play 'N' The Game (1976) Reissue, 1979, Vertigo [WavPack 2.0|192/32|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody To Roll (3:59)
-02. Down Home Girl (5:06)
-03. Flying (4:23)
-04. Waiting For The Man (4:59)(   Читать дальше...   )Производство: Vertigo - BT-5286Жанр: Hard RockПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F170DB64E7AEDF65F7012F2B62263E60440339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905001   (650918) от 05.06.2015
-
-U.D.O. - 13 Альбомов (1987-2015) [WavPack 2.0 32/192|image (Vinyl-Rip)]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Speeder
-02 Decadent
-03 House Of Fake
-04 Mystery(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 13:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FE9E3F7F58B8107D2454FCDD6BE8573A955AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905762   (649060) от 06.06.2015
-
-The Alan Parsons Project - Pyramid (1978) [FLAC 2.0 24/96|image (Vinyl-Rip)] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649060.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Voyager (2:15)
-A2. What Goes Up (3:40)
-A3. The Eagle Will Rise Again (4:22)
-A4. One More River (4:17)(   Читать дальше...   )Производство: Arista / Nippon PhonogramЖанр: Progressive RockПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3157EC06C0C2FD21A6FC73E8D6BEE6CB85CCD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904989   (647073) от 07.06.2015
-
-M.A.S.S. – Mysteria: An Electronic Journey Into Sound. 3 discs (2006) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <electronic music, ambient>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647073.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-1. Karakuri 06:17
-2. Metrosexual Zone 07:41(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:53:16 + 00:53:58 + 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381D115EAE8565989440DFDE3E5F4392A0E3EC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032459   (645567) от 07.07.2016
-
-Matthew Lien – Arctic Refuge (2004)  [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Environmental, World Music>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.   Among The Rafters Of The Earth [05:36]
-2.   Currents [05:01]
-3.   Under Mountain And Valley [06:06]
-4.   Moon Over Crow Mountain – Intro [01:51](   Читать дальше...   )Жанр: new ageПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62C7E8395415FEA0F6E3B8582EDF0D74856C0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032145   (645261) от 07.07.2016
-
-Jean Michel Jarre - Equinoxe (1978) [LPCM 2.0|192/24|Vinyl-Rip] <Electronic, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645261.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Equinoxe (Part 1) (2:23)
-2. Equinoxe (Part 2) (5:02)
-3. Equinoxe (Part 3) (5:16)
-4. Equinoxe (Part 4) (6:46)(   Читать дальше...   )Жанр: Electronic, AmbientФормат: DVD-AudioПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADE7CB1C58AEE8C79B6F5F374FCB18AEB89C67E
 ```
 
 https://mybot314.ru/tekegram_catalog/

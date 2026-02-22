@@ -1,3 +1,32 @@
+###  Публикация: 914824   (596581) от 03.07.2015
+
+Curtis Fuller - Soul Trombone (1961) /2015, Universal Music/[FLAC|tracks+.cue]<Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clan [06:20]
+02. In The Wee Small Hours Of The Morning [04:58]
+03. Newdles [07:41]
+04. The Breeze And I [04:04](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8B66A921A67F4C0F5C09002E911255894C5B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914739   (596295) от 03.07.2015
 
 Twin Danger - Twin Danger (2015) [FLAC|Lossless|WEB-DL]<Jazz Vocals>
@@ -728,35 +757,6 @@ Johnny Lytle Trios - Got That Feeling! & Moon Child (1962, 1963) 2001, Milestone
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89740EA90D976DCC1257BD050C5DEAD9733A20DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039752   (594706) от 02.08.2016
-
-Duke Ellington - The Essential (1928-1958) 2CD, 2009, Not Now Music[FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594706.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Black And Tan Fantasy [03:29]
-02.East St Louis Toodle-Oo [03:09]
-03.Hot And Bothered [03:21](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D11D4CC638D4C0FC0B727F2B351B263872432F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

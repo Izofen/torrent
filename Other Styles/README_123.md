@@ -1,3 +1,32 @@
+###  Публикация: 1407419   (466398) от 07.09.2020
+
+The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Your Arms Again
+02. Lies
+03. Born To Be Blue
+04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43D449F042CE44C44752F8602AE03C55BE953A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407299   (466396) от 07.09.2020
 
 The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
@@ -714,35 +743,6 @@ The Studio London Orchestra & Singers - Memory - 20 Love Themes (1985) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D29F21CBC21CCFF5153BC32737E8FEDB7CD97DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246839   (459168) от 12.09.2018
-
-Evgeny Grinko - Evgeny Grinko (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Valse
-02 Serenade
-03 Faulkner's Sleep (D-Moll)
-04 Field(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D559BFFAB296EFE38205C72FEE8D161D5ED7AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

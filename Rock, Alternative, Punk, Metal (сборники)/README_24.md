@@ -1,3 +1,32 @@
+###  Публикация: 1552049   (587700) от 20.05.2022
+
+Владимир Ткаченко и Виктор Молчанов - Double Fantasy (2008) [MP3|320 Kbps] <Rock, Acoustic>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Buy Me Love (4:57)
+02. All You Need Is Love (3:34)
+03. In My Life (2:39)
+04. The Night Before (2:39)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56086224A07418ECDEA39741123E37F022B4632E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551850   (586678) от 21.05.2022
 
 VA - I Prefer Rock (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
@@ -716,35 +745,6 @@ VA - Rock Driving Music (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6FD5B9744353FB19465248C5DECA7BFA5D5F056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555601   (565010) от 06.06.2022
-
-Godsmack - Collection (2022) [MP3|320 Kbps] <Nu-metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень мощная команда. Энергетика просто чумовая. В машине здорово слушать или в спортзале. Если вы хотите проверить выносливость вашей аудиосистемы и просто её способности и возможности, то лучшего варианта не найти. Сборник лучших композиций группы. Все треки взяты с фирменных CD изданий. Приятного прослушивания. Да пребудет с нами энергия музыки! Все лучшее для (   Читать дальше...   )01. Sick of Life
-02. Saints and Sinners
-03. I Stand Alone
-04. Keep Away(   Читать дальше...   )Жанр: Nu-metalПродолжительность: 03:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FE370C97242A0DE6236406F0669086DC341810
 ```
 
 https://mybot314.ru/tekegram_catalog/

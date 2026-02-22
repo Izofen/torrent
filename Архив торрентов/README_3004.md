@@ -1,3 +1,29 @@
+###  Публикация: 1306059   (555929) от 02.06.2019
+
+Photo Supreme 4.3.3.2136 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme - вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BFE0C7E1A6D9013D6FB9AF883A4E2826945DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305967   (555922) от 02.06.2019
 
 LibreOffice 6.2.4 Stable Portable by PortableApps [Multi/Ru]
@@ -656,35 +682,6 @@ B(if)tek - Sub-Vocal Theme Park (Acid Unravelled) (1996) [MP3|320 Kbps] <Trance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1F3FBCC79576B4FBBBC0641038140C4A8FAF6DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306327   (555684) от 04.06.2019
-
-The Fine Art Rascal - BM9 (2019) [FLAC|Lossless|Web-DL|tracks] <Underground Hip-Hop, Lo-Fi, Psychedelic Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bendy (1:40)
-02. W.I.M (2:58)
-03. Bring Into Being (1:28)
-04. Art Will Lie To You Kindly (5:00)(   Читать дальше...   )Жанр: Underground Hip-Hop, Lo-Fi, Art Rap, Psychedelic Rap, Conscious RapПродолжительность: 00:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BDA70B28AF513982B40A1B346C1224B7F5BA66
 ```
 
 https://mybot314.ru/tekegram_catalog/

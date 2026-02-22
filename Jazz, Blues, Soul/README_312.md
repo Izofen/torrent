@@ -1,3 +1,90 @@
+###  Публикация: 1566669   (480428) от 30.07.2022
+
+Lumberjacks - Cut, Split and Stack (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Small Town Man (4:24)
+02. How Long (3:35)
+03. Good Things Are Coming (4:06)
+04. Gone Fishing (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A822EAF8E6E290C91AD05EA99042E904DC858BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566685   (480427) от 30.07.2022
+
+Sass Jordan - Bitches Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Alive And Well (3:37)
+02. Chevrolet (2:30)
+03. Even (3:55)
+04. Still The World Goes Round (4:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49D95732012E85C04445D52794A83641CA417D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566688   (480425) от 30.07.2022
+
+Scotty Charles - Rockin' the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Link in the Chain (4:17)
+02. Something Good is on the Way (4:27)
+03. Can't get Away From the Blues (3:35)
+04. Next Time Around (3:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3284D78F8D7C0A23F3E41D913E2C4043EC309B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566689   (480269) от 30.07.2022
 
 Seth Walker - I Hope I Know (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ Steve Hunter - Short Stories (2008) [FLAC|Lossless|image + .cue] <Instrumental B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94DC606FEDC6538B06157390F8895C7DE4B762B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406020   (479268) от 01.09.2020
-
-Norah Jones - Late Night Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flame Twin
-02. Turn Me On
-03. What Am I To You?
-04. Say No More(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07643114EE5324FBC5D24EFD8F7E89196D1FA1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319795   (479020) от 14.08.2019
-
-New York Jazz Lounge, Jazz Erotic Lounge Collective - Pure Romance Jazz Anthems (2019) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479020.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Finding the Flow (4:25)
-2.Lady at Ballroom (3:33)
-3.Out of Control (3:35)
-4.Turn Off the Lights (3:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:472AE9CA185D6C2E6E10E9CEF36381C6C350F427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566863   (478643) от 31.07.2022
-
-Herb Ellis - The Early Years (1956 - 1965) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Moon At All [7:20]
-02. Bye Bye Blackbird [3:38]
-03. Life Is A Ball [5:32]
-04. It's Easy To Remember [4:10](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Guitar JazzПродолжительность: 05:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24758E314C3044BCB17488093C7CC9D1709FBEAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

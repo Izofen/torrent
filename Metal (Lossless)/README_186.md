@@ -1,3 +1,264 @@
+###  Публикация: 1419480   (340127) от 28.10.2020
+
+Summoning - Dol Guldur (1997) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angbands Schmieden (3:28)
+02. Nightshade Forests (10:47)
+03. Elfstone (10:49)
+04. Khazad Dúm (10:56)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F7AD9309D760020D65B911ACFDDEE50C403917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419488   (340116) от 28.10.2020
+
+Summoning - Let Mortal Heroes Sing Your Fame (2001) [FLAC|Lossless|tracks + .cue] <Black Metal, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Power Is Rising (4:06)
+02. South Away (6:03)
+03. In Hollow Halls Beneath The Fells (8:55)
+04. Our Foes Shall Fall (7:00)(   Читать дальше...   )Жанр: Black Metal, Symphonic RockПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189C6023B00E5281DA89B3396621FA1BC4BAA063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954747   (340114) от 08.11.2015
+
+Unleashed - Hell's Unleashed (2002) [FLAC|Lossless]<Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Don't Want to Be Born
+02 Hell's Unleashed
+03 Demoneater
+04 Fly Raven Fly(   Читать дальше...   )Жанр: Death Metal, MetalcoreПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110C6A2519F31BD308F79A2D7B41EECF94499126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419462   (340113) от 28.10.2020
+
+Summoning - Minas Morgul (1995) Reissue, 2002, IROND [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Wandering (2:31)
+02. Lugburz (7:12)
+03. The Passing of the Grey Company (9:14)
+04. Morthond (6:42)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F041B93646E9820E87C093891E754055D78390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953572   (340106) от 08.11.2015
+
+Collapse 7 - In Deep Silence (2004) [FLAC|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro(instrumental)
+02. Infernal Apocalypse
+03. In Deep Silence
+04. Empty as We Are(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0A2D9096FDC176EF79CCBB33A3D9723C791735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954470   (340096) от 08.11.2015
+
+Unleashed - Warrior (1997) [FLAC|image +.cue]<Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Warmachine
+02 In Hellfire
+03 Mediawhore
+04 Down Under Ground(   Читать дальше...   )Жанр: Death Metal, MetalcoreПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FB6219BB6F7B0E39D2CB9DEF31F4B9FEBF5049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419485   (339986) от 28.10.2020
+
+Summoning - Stronghold (1999) [FLAC|Lossless|tracks + .cue] <Black Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhûn (3:24)
+02. Long Lost To Where No Pathway Goes (7:21)
+03. The Glory Disappears (7:48)
+04. Like Some Snow-white Marble Eyes (7:18)(   Читать дальше...   )Жанр: Black Metal, Symphonic MetalПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1CF6F8F36E6648398C49F77385367A2D8B57F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419489   (339863) от 28.10.2020
+
+Summoning - Oath Bound (2006) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Dungeon Synth, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bauglir (2:57)
+02. Across the Streaming Tide (10:18)
+03. Mirdautas Vras (8:12)
+04. Might and Glory (8:24)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Dungeon Synth, Viking MetalПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A3D44764215A15FD3D68071AC6FF0229DFF045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074047   (339799) от 18.11.2016
+
+Metallica - Hardwired...To Self-Destruct (2016) Deluxe [FLAC|Lossless|tracks] <Thrash metal>
+
+>>След.
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One
+01. Hardwired [3:09]
+02. Atlas, Rise! [6:29]
+03. Now That We're Dead [6:59](   Читать дальше...   )Жанр: Thrash metalПродолжительность: 02:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C8024D279A8F17A0069BAC8FFC63BEDC0BD0E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330699   (338984) от 11.10.2019
 
 Lacuna Coil - Black Anima (Deluxe Edition) (2019) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
@@ -490,267 +751,6 @@ Dark Tranquillity - Atoma (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4198DA43D55CD81A493603FA0F84F39D0DEF2BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955201   (335413) от 10.11.2015
-
-Arx Atrata  - Oblivion (2013) [FLAC|image+.cue]<Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter
-02. The Hour
-03. Through Dying Lands
-04. The Broken Man(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6FE0A622A00477C8831DE5BA122175FE5BD4514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579548   (334866) от 28.09.2022
-
-Algebra - Chiroptera (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Fallen (00:46)
-02 - Resuscitation (05:00)
-03 - Kleptomaniac (03:42)
-04 - Constricted (04:11)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78125B676862B7FC9C81E0171A4DD823B0B28A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579583   (334865) от 28.09.2022
-
-Ancestor of Kaos - Ancestor of Kaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - K.T.P (03:45)
-02 - Impaler (04:04)
-03 - Blackult (03:06)
-04 - Opus Sadicum (03:41)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E61518AAC76CAF0EFF1AB2EAF8CF0324BB9E237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579527   (334864) от 28.09.2022
-
-Corpse Garden - Entheogen (2015) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Quantum Rapture (04:40)
-02. In the Womb of Chaos (02:14)
-03. Portal to the Oneiric (06:08)
-04. The Arrival of Saturn (01:11)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DAE72B302E47A536FC7EDC6E7B6BA03B4D54CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579036   (334862) от 28.09.2022
-
-Mara - Loka Mær (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myrkriða [00:01:34]
-02. Mara [00:04:20]
-03. Loka Mær [00:04:38]
-04. Wolf [00:05:02](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A038E18597923E3E6DB9701ABA344E3E3DC2395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579471   (334731) от 28.09.2022
-
-H-Bomb - Attaque (1984) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attaque 0:32
-02. Exterminateurs 3:56
-03. Dressé À Tuer 3:13
-04. Gwendoline 4:46(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F24B34F7CE9CF866AC073ECD97E84F8FDC2A6EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579590   (334728) от 28.09.2022
-
-Legion - Labyrinth Of Problems (1992) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Beyond Betrayal	[04:51]
-02.	Route To Madness [03:38]
-03.	A Matter Of Greed [05:18]
-04.	Bag Full Of Meat [02:53](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6B70F884E3A43D43A3319D68EB31771E873787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579725   (334726) от 28.09.2022
-
-Certa Mortis - Ab Inferno Ad Astra (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Castle of Damnation (05:06)
-02 - Under a Silence of Ice and Snow (05:09)
-03 - Bloodstained Banner (04:49)
-04 - Ab Inferno Ad Astra (07:25)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CD40CA9649C95FD13D6B4BC9CDFE7CF6E791BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579645   (334724) от 28.09.2022
-
-Chaosbay - 2222 (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Age [04:02]
-02. Passenger (feat. ONI) [03:49]
-03. Future of Death [01:20]
-04. 2 Billion [03:44](   Читать дальше...   )Жанр: Modern Progressive MetalПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B31CC8D4177E97E4050F1D071D340BC10FCEE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

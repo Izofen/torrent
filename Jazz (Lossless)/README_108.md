@@ -1,3 +1,32 @@
+###  Публикация: 1280287   (762129) от 02.02.2019
+
+VA - Saxappeal (Lounge Saxophone Smooth Jazz Del Mar) (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jizz Jazz - Lost In Your Eyes (Cool Chillax Saxy Extended Mix)
+02.Dave Nimerfro - Get You Into My Life (Saxuality Chill Lounge Mix)
+03.Jazz L'amour - Summer Dreams (See The Light Mix)
+04.Perelandra - Sax On The Beach (Jazz 'n' Chill Mix)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE4DD5B75BEDD15DD9919817B99D53E3181C1D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522022   (762028) от 05.01.2022
 
 Earl Hines - Plays Duke Ellington (1971 - 1975) 3CD, 1998, New World Records [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1948A2E93C5F45AC7274A71CF3AE68EBD3A25819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017861   (759077) от 18.05.2016
-
-Gregory Porter - Take Me To The Alley (Deluxe Edition) (2016) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holding On
-02. Don't Lose Your Steam
-03. Take Me To The Alley
-04. Daydream(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451966EF6BB50D75B5DEC43298AE4B48428350FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

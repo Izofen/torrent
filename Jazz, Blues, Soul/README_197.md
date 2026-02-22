@@ -1,3 +1,90 @@
+###  Публикация: 1531633   (720833) от 16.02.2022
+
+Johnny Hodges And His Orchestra - Perdido & Creamy (1955) 2010, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rose Room [6:52]
+02. Blues For Basie [6:22]
+03. Mood Indigo [6:22]
+04. Squatty Roo [6:52](   Читать дальше...   )Жанр: SwingПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD4FC954F798BA6370AA3D2086C7336F7A0434F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129599   (720806) от 29.04.2017
+
+Cannonball Adderley Quintet - Cannonball In Japan (1966) 2004, Capitol [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Work Song [04:30]
+02. Mercy, Mercy, Mercy [05:19]
+03. This Here [10:14]
+04. Money In The Pocket [10:40](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6454EDCD2AE7B1B17BA90E2DB426C394D88C60D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129590   (720797) от 29.04.2017
+
+Shorty Rogers - Creative West Coast Swing (1951-1954) 4CD, 2005, Membran [APE|Lossless|tracks + .cue] <West Coast Jazz, Cool, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720797.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Popo [03:02]
+02. Over the Rainbow [03:01]
+03. Didi [02:27](   Читать дальше...   )Жанр: West Coast Jazz, Cool, Big BandПродолжительность: 02:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1ED351E4DA7F9F9CB306919B8A268637903C4DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129659   (720707) от 29.04.2017
 
 Robert Cray & Hi Rhythm - Robert Cray & Hi Rhythm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Electric-Blues, Soul>
@@ -658,93 +745,6 @@ Chaka Khan - Hello Happiness (2019) [FLAC|Lossless|tracks + .cue] <R&B, Jazz, Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:077C79421B97E6B8525A43BCCAB6BE7479CE594D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129730   (718829) от 30.04.2017
-
-Wille And The Bandits - Steal (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles Away (03:44)
-02. Hot Rocks (04:29)
-03. Scared Of The Sun (05:15)
-04. Atoned (04:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C803DDD2D3A1C202617E5F218544E35573ECCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129948   (718825) от 30.04.2017
-
-Watermelon Slim - Golden Boy (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом «Golden Boy» Билла Хоманса известного под сценическим именем Уотермелон Слим. Он играет как на гитаре, так и на гармонике. Если человек с такой биографией, как у Уотермелон Слима занимается музыкой, то его музыка – это, конечно же, блюз. Слим успел повоевать во Вьетнаме, побывать водителем – дальнобойщиком, продавцом дров, работником лесопилки (где потерял (   Читать дальше...   )01. Pickup My Guidon (3:35)
-02. You're Going To Need Somebody On Your Bond (3:29)
-03. Wbcn (5:31)
-04. Wolf Cry (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44"03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B450055DFCA058CE4F6228BF5AE538CEF30793CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531866   (718730) от 17.02.2022
-
-Harold Mabern - The Iron Man: Live At Smoke (2018) 2CD, Smoke Sessions Records [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718730.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. A Few Miles From Memphis [7:32]
-02. I Get A Kick Out Of You [8:08]
-03. I Know That You Know [4:48](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F0ED2E6E56D8DBF2113CA56F0536088DEFF8A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

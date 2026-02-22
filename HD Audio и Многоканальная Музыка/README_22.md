@@ -1,3 +1,177 @@
+###  Публикация: 1031631   (651363) от 04.07.2016
+
+Nazareth - Play 'N' The Game (1976) Reissue, 1979, Vertigo [WavPack 2.0|192/32|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody To Roll (3:59)
+02. Down Home Girl (5:06)
+03. Flying (4:23)
+04. Waiting For The Man (4:59)(   Читать дальше...   )Производство: Vertigo - BT-5286Жанр: Hard RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F170DB64E7AEDF65F7012F2B62263E60440339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905001   (650918) от 05.06.2015
+
+U.D.O. - 13 Альбомов (1987-2015) [WavPack 2.0 32/192|image (Vinyl-Rip)]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Speeder
+02 Decadent
+03 House Of Fake
+04 Mystery(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 13:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FE9E3F7F58B8107D2454FCDD6BE8573A955AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905762   (649060) от 06.06.2015
+
+The Alan Parsons Project - Pyramid (1978) [FLAC 2.0 24/96|image (Vinyl-Rip)] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649060.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Voyager (2:15)
+A2. What Goes Up (3:40)
+A3. The Eagle Will Rise Again (4:22)
+A4. One More River (4:17)(   Читать дальше...   )Производство: Arista / Nippon PhonogramЖанр: Progressive RockПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3157EC06C0C2FD21A6FC73E8D6BEE6CB85CCD66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904989   (647073) от 07.06.2015
+
+M.A.S.S. – Mysteria: An Electronic Journey Into Sound. 3 discs (2006) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <electronic music, ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647073.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+1. Karakuri 06:17
+2. Metrosexual Zone 07:41(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:53:16 + 00:53:58 + 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381D115EAE8565989440DFDE3E5F4392A0E3EC78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032459   (645567) от 07.07.2016
+
+Matthew Lien – Arctic Refuge (2004)  [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Environmental, World Music>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.   Among The Rafters Of The Earth [05:36]
+2.   Currents [05:01]
+3.   Under Mountain And Valley [06:06]
+4.   Moon Over Crow Mountain – Intro [01:51](   Читать дальше...   )Жанр: new ageПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62C7E8395415FEA0F6E3B8582EDF0D74856C0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032145   (645261) от 07.07.2016
+
+Jean Michel Jarre - Equinoxe (1978) [LPCM 2.0|192/24|Vinyl-Rip] <Electronic, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645261.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Equinoxe (Part 1) (2:23)
+2. Equinoxe (Part 2) (5:02)
+3. Equinoxe (Part 3) (5:16)
+4. Equinoxe (Part 4) (6:46)(   Читать дальше...   )Жанр: Electronic, AmbientФормат: DVD-AudioПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADE7CB1C58AEE8C79B6F5F374FCB18AEB89C67E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541469   (644503) от 03.04.2022
 
 Phil Collins & Genesis - Collection (11 Albums) (1981 - 2010) restored, declipped [FLAC 2.0|44/16|tracks + .cue|hand made] <Pop, Rock>
@@ -574,180 +748,6 @@ Joe Satriani - Дискография (26 releases) (1984 - 2022) hand made [res
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9398D67AC129A855AA4B648B1BA340AF247D609B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910131   (623295) от 19.06.2015
-
-Barbra Streisand - The Movie Album (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <pop/rock, vocal, ballad>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623295.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Movie Album - тридцатый студийный альбом американской певицы Барбры Стрейзанд, выпущенный 14 октября 2003 года лейблом Columbia Records. В целом, это ее шестидесятый релиз со своим звукозаписывающим лейблом, который был спродюсирован Стрейзанд и ее менеджером Джеем Ландерсом. Концептуальный альбом, он содержит двенадцать песен из любимых фильмов певицы, выпущенных (   Читать дальше...   )01. Smile
-02. Moon River
-03. I'm In The Mood For Love
-04. Wild Is The Wind(   Читать дальше...   )Жанр: VocalПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF969F72900F79DC9F21741FBBD9DEBC554D45A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909541   (623282) от 19.06.2015
-
-Paul van Dyk – Reflections (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <dance, trance, electronic, pop/rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623282.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Crush  [07:45]
- 2.  Time Of Our Lives  [04:26]
- 3.  Like A Friend  [03:56]
- 4.  Reflections  [07:15](   Читать дальше...   )Жанр: Dance, TranceПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68CF82D0E0FD5FBD466099F2D15A76A2F337240C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035218   (622437) от 19.07.2016
-
-Jean-Michel Jarre - Equinoxe (1978/2011) [WavPack 2.0|32/384|image + .cue|Vinyl-Rip] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equinoxe Part 1 (2:23)
-02. Equinoxe Part 2 (5:04)
-03. Equinoxe Part 3 (4:59)
-04. Equinoxe Part 4 (7:04)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3D940C1100E465E7EA26199BF87072CE37A1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294483   (622364) от 11.04.2019
-
-Blues Company - Ain't Givin' Up [Mastering YMS X] (2019) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Blues, Electric Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Givin' Up (6:19)
-02. Guns (5:17)
-03. The News (4:02)
-04. Waiting For Springtime (6:53)(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49524F38172E15AACA7797FEEB5F2B485DAAAED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544280   (622202) от 15.04.2022
-
-Лариса Долина - Песня Нептуна (из к-ф «Танцплощадка») (1986) Серия: По Вашим Письмам [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622202.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Песня Нептуна
-(Е. Дога - М. Танич)
-B На Последнем Сеансе Кино
-(Е. Дога - М. Танич)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500BF53E0757A5064D6012EAF2F0FF6152D4A9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059776   (621889) от 15.04.2022
-
-Надежда Чепрага - Только Ты (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Человеческий Голос
-02. Симфония Чувств
-03. Только Ты
-04. В Краю Родном(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B272478996D8909E21DC36B088F507449B86998
 ```
 
 https://mybot314.ru/tekegram_catalog/

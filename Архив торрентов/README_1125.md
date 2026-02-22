@@ -1,3 +1,36 @@
+###  Публикация: 182023   (900227) от 13.03.2010
+
+Telepopmusik - Discography (2001-2009)| [MP3|~96-320 kbps]<Techno, Downtempo, Tech House, Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Французский рекординговый лейбл Source Records несколько лет назад затеял компиляцию новой электронной музыки "Sourcelab". Открытие новых имен в таких проектах просто неизбежно. На третьем сборнике "Sourcelab" неизбежность предстала в виде стильного электронного формирования Telepopmusik. Предложенный ими для сборника трек "Sonic 75" пришелся по вкусу руководству лейбла, а впоследствии и довольно избалованным французским слушателям. Вдохновившись прекрасным приемом, Telepopmusik принялись за новые записи.1 Breathe (New extended mix)
+2 Breathe (Tiga TGV remix)
+3 Breathe (Markus Schulz club mix)
+4 Breathe (Watkins mark us of respect remix)
+5 Smile (Ming & Mangle mix)
+6 Love can damage your health (Laid mix)
+7 Love can damage your health (Freaks downright sleazy speakeasy)
+8 Dance me (Soda pop mix)Жанр: Techno, Downtempo, Tech House, ElectroПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 294062   (900226) от 11.02.2011
 
 Мистер Саншайн / Mr. Sunshine (cезон 1 серия 01) (2011) HDTVRip [Обновляемая раздача]
@@ -692,32 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02FD7FFE7B6E7DDE32A2E60D6B9E9E0BB58A00CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637758   (900137) от 31.03.2013
-
-Журнал | Рецепты на бис №1 [март 2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Журнал создан по лучшим рецептам, присланным в редакцию читателями и одобрен ими и их близкими. Этот выпуск будет очень полезен молодым хозяйкам.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8D746C54E8C780B3D08E8CEE38255F40D9F9E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1618874   (1033711) от 13.03.2023
+
+Lionel Hampton - Jumpin' With Hamp (1951) 2001, Ocium [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Believe That You Are in Love with Me [3:08]
+02. Cool Train [3:02]
+03. Gladysee Bounce [2:58]
+04. Air Mail Special [3:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FBA44C3EE113503E14C5E8520576CC3B38692D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358251   (1033697) от 05.02.2021
+
+Charles Pasi - Collection 4 Releases (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz, Soul, Funk, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Single (3:05)
+02. Warm Embrace (2:55)
+03. Back To Casablanca (3:00)
+04. Don't Blame Me (3:10)(   Читать дальше...   )Жанр: Blues, Jazz, Soul, Funk, Rock |Продолжительность: 00:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:971FB60FB7D55AF2A24429BA180D7433D1E57C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618878   (1033689) от 13.03.2023
+
+Fats Waller - 1940 - 1941 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Fats' Waller's Original E Flat Blues [3:23]
+02. Stayin' at Home [3:34]
+03. Hey! Stop Kissin' My Sister [2:51]
+04. Everybody Loves My Baby [2:57](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C1D39075039C814B385AE5CD466E6BD774EFA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445952   (1033318) от 07.02.2021
 
 MSM Schmidt - Life (Laika Records) (2017) [FLAC|Lossless|WEB-DL|tracks] <Fusion>
@@ -658,93 +745,6 @@ Bai Kamara Jr. and The Voodoo Sniffers - Traveling Medicine Man (2023) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B9C0FD220941A7C460F8495A90FBB081BA1C897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619499   (1032958) от 16.03.2023
-
-Jenn Howard - Valiant Women (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Than You Think (3:53)
-02. Take A Hand (3:23)
-03. Microphone (3:12)
-04. Hold On (5:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BBD21D146BC69C7C60C22730FE25266023A5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446263   (1032954) от 08.02.2021
-
-BoogieBunker - Special Guests Simone Roerade & Wouter Kiers (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little by little (3:41)
-02. Everytime I roll the dice (4:09)
-03. Tennessee whisky (4:23)
-04. Dr. Feelgood (love is a serious business) (5:09)(   Читать дальше...   )Жанр: Blues R&BПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5592137E6B4DAEEC52F46BEBF03B889685B8E226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446250   (1032949) от 08.02.2021
-
-Marco Pasetto & Renato Bonato - Birth of the Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. James Infirmary (3:09)
-02. 2:19 Blues (3:30)
-03. Frankie and Johnny (2:38)
-04. Just a Closer Walk With Thee (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142104633A0CFAAB33F6B14D430AFE953C9083D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

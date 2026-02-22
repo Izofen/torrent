@@ -1,3 +1,32 @@
+###  Публикация: 1100607   (242530) от 04.02.2017
+
+Herbie Mann - The Beat Goes On (1966, 1967) Remaster, 2014, Warner[FLAC|Lossless|image + .cue] <Latin Jazz, World Fusion, Cuban jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.No Matter What Shape  [03:27]
+ 02.More Rice That Peas, Please [03:34]
+ 03.Hey Ho [02:49]
+ 04.The Honeydripper  [02:49](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Cuban jazzПродолжительность: 00:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0BF576852A15712B9DB3585A7D3630DA3EDFE08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100629   (242504) от 04.02.2017
 
 Eddie “Lockjaw” Davis - Goin' To The Meetin' (1960, 1962) 2001, Prestige[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
@@ -715,35 +744,6 @@ Ernie And The Automatics - Low Expectations (2009) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:153238ACBD2155BFEAB519A9DD9174749C844E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617693   (242006) от 08.03.2023
-
-Andrews Sisters - BD Voices (1937 - 1952) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora [2:53]
-02. Any Bonds Today? [2:24]
-03. Don't Sit Under the Apple Tree [2:59]
-04. Three Little Sisters [2:19](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FAA4865EBCE0A39B229100ED88AFC8E38455270
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 972655   (980835) от 07.01.2016
+
+ALB - On My Own EP (2016) [MP3|320 кб/с] <Drum & Bass, Liquid Funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On My Own (Original Mix) (05:10)
+02. Hurting (Original Mix) (04:57)
+03. Zephyr (Original Mix) (04:13)
+04. On The Horizon (Original Mix) (03:39)Жанр: Drum & Bass, Liquid FunkПродолжительность: 00:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69865D46AC2C6DA322D549300BA0283FA06C6F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972653   (980834) от 07.01.2016
 
 Greekboy - First Breath Ep (2015) [MP3|320 кб/с] <Drum & Bass, Liquid Funk>
@@ -689,35 +718,6 @@ Primal Fear - Rulebreaker (2016) [MP3|256 кб/с] <Heavy Metal, Power Metal, Sp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BE807122BD738721632D9E5A7B3A57FF6024DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972793   (980678) от 07.01.2016
-
-Huron - Fissure EP (2016) [MP3|~245 кб/с (V0)] <Abstract, IDM>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Morning And The Cloud 07:28
-02 Mirrored Shadows 06:10
-03 Possibilities 06:00
-04 Under My Surface (First Mix) 08:50Жанр: Abstract, IDMПродолжительность: 00:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9101C67B52884181092EFA16218DCAFA5A8A7E2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

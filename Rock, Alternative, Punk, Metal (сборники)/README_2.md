@@ -1,3 +1,32 @@
+###  Публикация: 1471358   (1015142) от 20.05.2021
+
+The Tiger Lillies - Dark Songs not About Love & Flowers (Compilation Album) (1994-2000) Неофициальный сборник от Yuridar [MP3|320 Kbps] <Rock, Folk Rock, Avantgarde>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels
+02. Bank Robber Blues
+03. Bearded Lady
+04. Bumhole(   Читать дальше...   )Жанр: Rock, Folk Rock, AvantgardeПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4664484C8154D553444D0EE9EC9022183FFD6D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472889   (1014036) от 27.05.2021
 
 VA - Rebell Trap Music Mondays (2021) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
@@ -716,35 +745,6 @@ VA - Тараканы! covers (2010) [MP3|192 kbps] <Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C1A8A86690E2DD87073DD649DDD3FFD8697542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486601   (1004573) от 01.08.2021
-
-VA - Get Lucky Punk Rock (2021) [MP3|320 Kbps] <Punk Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004573.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sketchy Trench - Greater
-002. Kolossus Däächt - Fast Food
-003. Lice - R.D.C.
-004. Tocotronic - Stürmt Das Schloss(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 08:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4042E3F56BBC8A680F5BA2BDB0AF4C339D2CB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

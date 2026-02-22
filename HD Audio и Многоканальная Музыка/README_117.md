@@ -1,3 +1,177 @@
+###  Публикация: 1718311   (110980) от 24.04.2024
+
+Scott H. Biram - The One & Only Scott H. Biram (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Man’s Land (4:19)
+02. High & Dry (3:15)
+03. Easy Rider (3:58)
+04. I’ll Still Miss Ruby (3:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B1ECBED4A5EF328FBF4EEDC06935FC89CEAFAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718305   (110978) от 24.04.2024
+
+Nicholas Alexander - Lil Hoochie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:00)
+02. Popcorn (2:50)
+03. Dial Your Number (4:55)
+04. Outskirts Of Town (5:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678FD50C01330E90A5135F538F32AD77B63B1EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718262   (110977) от 24.04.2024
+
+Brian Stoltz - New World Rising (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can Never Die (3:11)
+02. Mirror Mirror (6:34)
+03. One Angel (4:22)
+04. All That Binds (7:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86147B18398F304813AC7B6AC03CC570A0353B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718322   (110975) от 24.04.2024
+
+Winter Blues Band - Tale of a Lone Lil' Boy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tumblin' Down (3:15)
+02. Furiosa (3:47)
+03. The Weight of Things (5:35)
+04. Lazy Blue Line (4:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036200C90D50A935D70E7276611ECB16697EA320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718301   (110974) от 24.04.2024
+
+Mike Fisher - 12 Days of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Me (3:50)
+02. Hellhound (2:54)
+03. The Bog (3:58)
+04. Old Dog Blues (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C00FD6EFFF48D6D532D69FE2B0E3FAA8312F97D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718263   (110972) от 24.04.2024
+
+Grackles - Grackles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Comin To Ya (4:39)
+02. San Antone (3:54)
+03. Eternal Return Blues (3:43)
+04. Near or Too Far (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848823398AC1A991EF2B8A8D0F6C15852DDC77F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718315   (110971) от 24.04.2024
 
 The Roy Poulton Blues Band - Bluesbeard (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -569,180 +743,6 @@ Mylene Farmer - Remix XL (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E83BAC39B0980AEE6E40DBE116B2DBEA16FCDD1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719145   (110651) от 28.04.2024
-
-Instrumental Wedding Music Zone, Jazz Erotic Lounge Collective - Wedding Night Erotic Jazz Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Caresses (3:32)
-02. Silken Serenade (4:01)
-03. Lustrous Embrace (4:22)
-04. Sensual Nocturne (4:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A17C6A911F069B3B9E951E1991B7638C8C94D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719216   (110635) от 28.04.2024
-
-U.D.O. - Dominator (2009) Reissue, 2017, AFM Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110635.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Bogeyman
-A2 Dominator
-A3 Black And White
-A4 Infected(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0338B7092D5F6CEF233FEB980B79E9E7AF6F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719136   (110634) от 28.04.2024
-
-Chilled Jazz Masters - Mocha Rythm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Café Conversations (4:06)
-02. Mocha Moments (4:47)
-03. Sensual Soiree (3:36)
-04. Love Brewed in Jazz (4:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139DDC7BE45B8BEBCE35F6ECCD2E035AFDAD2AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719186   (110633) от 28.04.2024
-
-Danko Jones - Electric Sounds (2023) Deluxe Version, 2024, AFM Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guess Who's Back (2:41)
-02. Good Time (3:57)
-03. Electric Sounds (3:14)
-04. Get High? (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE24CACF5E2A4F4472D0361F233ED9424156819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719159   (110629) от 28.04.2024
-
-Wayne S. Hicks - Resilence (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice Day (3:47)
-02. On The Sea (3:26)
-03. Prosper (3:50)
-04. Resilience (3:36)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537905ADFEE6F7854F3D12107200F579CFBABABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719138   (110626) от 28.04.2024
-
-Instrumental Music Ensemble - Focus Grooves: Smooth Jazz for Concentration (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motivational Jazz (3:11)
-02. Hard Work (3:38)
-03. I'm Focused (3:29)
-04. Grab Opportunities (3:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F678EFE76E9073C1CA40326DD8BCE3F740F7D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

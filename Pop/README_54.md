@@ -1,3 +1,119 @@
+###  Публикация: 994555   (889631) от 08.03.2016
+
+Wax - Magnetic Heaven (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Between The Eyes
+02. Hear No Evil
+03. Shadows Of Love
+04. Marie Claire(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918AC800E3B72FA53F27D652573DA4650C01597E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494482   (889329) от 07.09.2021
+
+Walter Martino - Nervi A Pezzi (1980) LP [MP3|320 Kbps] <Electronic, Disco, Prog Rock, Stage & Screen>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Of Libra (5:43)
+02. I'm Missing You (2:58)
+03. What Love Can  Do (7:30)
+04. Delirious Fever (3:46)(   Читать дальше...   )Жанр: Electronic, Disco, Prog Rock, Stage & ScreenПродолжительность: 00:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CCA55C5A12C8979241FC90EE6603CE80DF200F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494461   (888980) от 07.09.2021
+
+Halsey - If I Can’t Have Love, I Want Power (Target Exclusive) (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tradition (3:46)
+02. Bells in Santa Fe (3:38)
+03. Easier than Lying (3:26)
+04. Lilith (2:47)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2134632F541CA88BF590CDFAA3B462DC3839E22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494363   (888828) от 07.09.2021
+
+VA - Italian Best Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zucchero - Senza Una Donna (Original Italian Version) (04:27)
+02. Gianluca Grignani - La Mia Storia Tra Le Dita (05:09)
+03. Vasco Rossi - E... (Remastered 2017) (03:29)
+04. Franco Battiato - Centro Di Gravità Permanente (Remastered) (03:59)(   Читать дальше...   )Жанр: PopПродолжительность: 03:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A734CF6B099792E042AB71804C1D770380C70751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494368   (888740) от 07.09.2021
 
 Алиса Вокс - Алиса из Ленинграда (2021) [MP3|320 Kbps] <Pop>
@@ -627,128 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C0B14CD10CEFC30B44720C579400D2816129CD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372093   (885401) от 03.04.2020
-
-P!nk (Pink) - I'm Not Dead (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Pop RockПродолжительность: 01:01:24Трэклист: 01. Stupid Girls
-02. Who Knew
-03. Long Way To Happy
-04. Nobody Knows(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31301F2802F2AF48ECBEF49A6659515FE2A55D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371901   (885092) от 03.04.2020
-
-VA - Summer Fitness 2020 [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gipsybeat - Muzika Tambuza (Gipsy Extended Mix) 3:49
-02. Amos Dj - Zio Ronzio 2:52
-03. Aviki - Zero Db 3:20
-04. Dj Masah - Il Suono Che Sale 3:12(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A9198C22537AC4E11FAA1ED1AC8076B87BF4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372393   (884930) от 03.04.2020
-
-Григорий Лепс - Честь имею! Мой первый срок (Высоцкий) (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884930.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мой первый срок
-2. Татуировка
-3. Счётчик щёлкает
-4. Я был душой дурного общества(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F18E767DF54C2264096A24947AC936A5FD73C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640894   (884735) от 08.04.2013
-
-Sash! - 10th Anniversary (2007) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_884735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sash! - Encore Une Fois (Future Breeze Edit)
-02. Sash! feat. Rodriguez - Ecuador
-03. Sash! feat. La Trec - Stay
-04. Sash! - La Primavera
-05. Sash! feat. Tina Cousins - Mysterious Times
-06. Sash! feat. Shannon - Move Mania
-07. Sash! feat. Dr. Alban - Colour The World
-08. Sash! - Adelante
-09. Sash! feat. Tina Cousins - Just Around The Hill
-10. Sash! feat. Inka - With My Own Eyes(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14DDE5816D35C8C4B420F7E4A3EE8E2B265B439
 ```
 
 https://mybot314.ru/tekegram_catalog/

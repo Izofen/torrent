@@ -1,3 +1,38 @@
+###  Публикация: 738857   (150970) от 26.12.2013
+
+JP Blues - Make Room At The Table (2013) [FLAC|Lossless]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Keep On Walking (4:42)
+02. Love So Cold (5:23)
+03. Old Man Joe (4:11)
+04. Make Room At The Table (2:23)
+05. Another Time Another Place (7:38)
+06. Move Aside (3:23)
+07. Holy Roller (3:10)
+08. Good Enough (3:33)
+09. Don't Let Me Be Misunderstood (5:39)
+10. Trouble On Heels (3:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191F241E1A654A976B293596D49124CF62E61F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601340   (150947) от 31.12.2022
 
 Maxine Sullivan - Great Songs From The Cotton Club (1984) 1987, Sepan Milan [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
@@ -721,35 +756,6 @@ The Whizkey Brothers & Sona MacDonald - Eine Hommage An Billie Holiday (2018) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9FA6872254D828C55D9AC9E5698A4A52999871D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271194   (150000) от 23.12.2018
-
-London Gay Big Band - Freedom (2018) [MP3|320 Kbps] <Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's A Man's Man's Man's World 03:18
-02. Dancing In The Street 03:27
-03. This Can't Be Love 02:16
-04. Me And Mr. Jones 04:21(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD24562D040C77B82F1570A4A924A8AB1AD24E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

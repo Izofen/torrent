@@ -1,3 +1,90 @@
+###  Публикация: 1383508   (811723) от 15.05.2020
+
+VA - Extreme Sports Music Vol 4 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hr. Troels - 6Am (Radio Edit)
+02. Phun And Key ft Patrick Metzker - Hang Out (Radio Edit)
+03. Dacos And Lucas Crapanzano - Ronker (Lucas Likes This Radio Cut)
+04. Steve Cypress - Move Ya Body (Edit)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1AEB60482250FDB9A7F6B2A6A69A9E4F73441A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197996   (810368) от 10.01.2018
+
+VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blufeld - Rakete Zum Mond (You Are My Salvation Remix) (10:46)
+02. Jetride - Sad Piano (Gordey Tsukanov Remix) (6:36)
+03. Mavrek - Burst on Fire (Inspireds Remix) (5:46)
+04. Blufeld - Rakete Zum Mond (Alan Cuevas Remix) (7:15)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F382ECBD729A127B4ECED7A427338C07628BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009351   (810295) от 21.04.2016
+
+VA - Venera Music Vol.5 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filek - All Be O.K. 06:11
+02. FreshwaveZ - Time of Happiness 04:33
+03. Highland Bird - Far 04:09
+04. J.A. Project - Can't Go Back in Time 04:08(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6762316DCCAA3C16A9FED3E610B03ABE1875A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198080   (810250) от 10.01.2018
 
 VA - Progressive House Winter Essentials (2018) [MP3|320 Kbps] <Progressive House>
@@ -652,93 +739,6 @@ VA - Black Hole House Music 01-18 (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C3A7436D8080CA525FD73134484A35F84A79B0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198837   (802959) от 14.01.2018
-
-VA - Best Of LW Tech House II (2018) [MP3|320 Kbps] <Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CamelPhat  -  Under The Influence (Original Mix)  6:17
-02.  Charlie Hedges & Ashton Russell  -  These Feelings (Extended Mix)  5:46
-03.  Michael Bibi  -  Magic Carpet (Original Mix)  5:54
-04.  Tommy Vercetti  -  Don't Understand (Original Mix)  6:38(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 03:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883CAFE5C1FB0D033C587C0C90B61DCDCAFB047C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198842   (802955) от 14.01.2018
-
-VA - Best Of LW House II (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Audiowhores  -  Sometimes (Sean Finn Recall)  5:56
-02.  JB & Charlie Hedges  -  Best Night Oml (Pt. 2) (Lindo Martinez Remix)  7:01
-03.  Damon Hess & Emilie Cunliffe  -  Dancefloor (Original Mix)  5:21
-04.  Afrojack  -  Chords (George F, Eran Hersh & Darmon 'Blow Your Mind' Remix)  9:03(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800C76E3BAF0631BB5173F4E52346DFE863715DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384468   (802744) от 20.05.2020
-
-VA - Top 35 Deep Summer '20 (2020) [MP3|320 Kbps] <House, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Lambert - Equal Rights (Dub Mix) 4:48
-02. Federico Rosano - Throws Up (Dub Mix) 4:16
-03. Laurent Champbell - Foundation (Dub Mix) 4:20
-04. Nicole Wane - Sounds Good (Original Mix) 4:44(   Читать дальше...   )Жанр: House, Deep House, ElectronicПродолжительность: 02:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C2914F3EA10D6612FF64C1DD14B9E1C640D6B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

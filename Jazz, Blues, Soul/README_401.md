@@ -1,3 +1,32 @@
+###  Публикация: 1191378   (264526) от 13.12.2017
+
+Denny Zeitlin - Homecoming (1986) Living Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Light [03:36]
+02. Homecoming [03:42]
+03. Waltz for Josephine [05:11]
+04. Morning Touch [03:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609D104F816B775DEA57AB9081A0B369157ED382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191372   (264525) от 13.12.2017
 
 Jim Hall - ...Where Would I Be? (1971) 1999, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
@@ -717,35 +746,6 @@ Denny Zeitlin & David Friesen - Live at the Jazz Bakery (1996) 1999, Intuition R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8275C97EFBBE447A30A25A1031738627335C2F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192079   (263538) от 16.12.2017
-
-Lionel Hampton - Hamp's Blues & Flying Home (1969, 1974) 2CD, 1992, Lester Recording Catalog [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263538.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Hamp's Blues:
-01. Air Mail Special [06:48]
-02. E.G. [08:44]
-03. Psychedelic Sally [06:20](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340FB57A90D83041930EC9A377B872E182DF2D36
 ```
 
 https://mybot314.ru/tekegram_catalog/

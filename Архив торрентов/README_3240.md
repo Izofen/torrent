@@ -1,3 +1,29 @@
+###  Публикация: 1564067   (501728) от 17.07.2022
+
+Boxy SVG 3  v3.86.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 16.07.2022Разработчик: © 2012-2022 Jaroslaw FoksaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CA76C17D76272AFABECD0360590296D6AC4684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541564   (501717) от 31.08.2012
 
 Gilrs Wallpaper Collection (30.08.12)
@@ -761,39 +787,6 @@ CD 1:
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541645   (501488) от 31.08.2012
-
-Markus Schulz - Scream (Extended Mixes) (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz - Scream (Extended Mixes) (2012)
-
-Год: 2012
-Жанр: Trance
-Продолжительность: 02:25:13Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Markus Schulz - Our Moment (Intro Mix) (1:36)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A8196BAF70C9BE3EF3E327B20423BE4D7CE182
 ```
 
 https://mybot314.ru/tekegram_catalog/

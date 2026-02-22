@@ -1,3 +1,119 @@
+###  Публикация: 1482019   (1007906) от 06.07.2021
+
+Tata Vega - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тата Вега (урожденная Кармен Роза Вега 7 октября 1951 года на Ямайке, Куинс, Лонг-Айленд,Нью-Йорк) - вокалистка, чья карьера охватывает театр, кино и различные музыкальные жанры.01. Come On And Try My Love (3:26)
+02. I Need You Now (3:35)
+03. Get It Up For Love (6:09)
+04. If Love Must Go (4:12)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20223ADFC432666EA4BB37BF3DB608A89DFEA2C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482267   (1007768) от 07.07.2021
+
+Brass Construction - Attitudes (1982) Remaster, 2010,  Think! Records [FLAC|Lossless|tracks + .cue] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Can You See The Light 5:18
+2 Funtimes 4:51
+3 Attitude 6:43
+4 Do That Thang 5:31(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5DB8C25A14088BA5EE0CBA440CC6B34FF84127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482401   (1007587) от 08.07.2021
+
+ABBA - International (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007587.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ring Ring (German Version) (03:10)
+2. Intermezzo No. 1 (03:46)
+3. Waterloo (French Version) (02:44)
+4. Take A Chance On Me (04:24)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7CEE710F1A8BE86EF9138F481A904B137E9372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483360   (1006882) от 13.07.2021
+
+VA - Beautiful and Chilled Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006882.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Devon Seyward, Thom Cooper - Flume (Acoustic Version) (3:01)
+2. Joanie Loves Chachi - (Nice Dream) (3:23)
+3. Thom Cooper - Your Power (3:59)
+4. Charlie Blue Skies - Songbird (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8FAEFE9A616ABDBF3A4216C047C6E485F8374A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483395   (1006854) от 13.07.2021
 
 VA - Pure... Alternative 80s (2011) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Rock>
@@ -630,121 +746,6 @@ VA - Ibiza Day & Night (2010 - 2012) 6 CD [FLAC|Lossless|tracks + .cue]<Eurodanc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91AB6704CF234239FE618AFEB5F1CDA26429AEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349866   (1004072) от 03.01.2020
-
-Rewind Feat. Madame Denise - Video Killed The Radio Star (1993) [FLAC|Lossless|image + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Video Killed The Radio Star (Radio Edit) 4:03
-02. Video Killed The Radio Star (With An Eye 2 Techno) 5:02
-03. Video Killed The Radio Star (Mother's Day) 4:15
-04. Kaleidoscope (Coming Soon) 2:17Жанр: Euro HouseПродолжительность: 00:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3836DC8A1172890128170394F2A99FAC8A1E9AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349870   (1004069) от 03.01.2020
-
-Estimado - The Escape to Heaven (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m Dancing On My Own 5:19
-02. Faster 7:08
-03. Believe In Me 7:45
-04. I Want You Heaven 6:48(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E27CD7C56529450EB4E6C65B82E033268F4920E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349849   (1004060) от 03.01.2020
-
-Chyp-Notic - Nothing Compares 2 U (1990) [FLAC|Lossless|image + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Compares 2 U (The Ultimate Dance-Version) 6:32
-02. Nothing Compares 2 U (The Techno Mix) 5:09
-03. 1-4-U 5:32Жанр: Euro HouseПродолжительность: 00:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84DD6D14CB61619C3A56D4C8E0CDEE78B8A03949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349873   (1003991) от 03.01.2020
-
-VA - Disco Hits Exclusive Collection (1989) [FLAC|Lossless|image + .cue] <Euro-Disco, Eurobeat, Hi NRG>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Gail Berry My Miracle Is Love (Dance Mix) 6:06
-02 – Ken Laszlo Everybody Is Dancing 7:15
-03 – Pat & Bel Without You (Dance Mix) 6:13
-04 – Francesco Salvi Esatto! (Mix Version) 5:32(   Читать дальше...   )Жанр: Euro-Disco, Eurobeat, Hi NRGПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6004944AB040D60EEB46D812F041963579FAF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

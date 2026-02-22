@@ -1,3 +1,61 @@
+###  Публикация: 998286   (869812) от 19.03.2016
+
+CENTR - Качели (2007) [FLAC|Lossless|tracks + .cue] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:20)
+02. Качели (4:57)
+03. Исповедь (4:25)
+04. Жара 77 (4:11)(   Читать дальше...   )Жанр: RapПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C19B5DC26A0946755571835B49A3693750BFBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998275   (869552) от 19.03.2016
+
+Centr - Система (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Порося
+03. Не на рингтоны
+04. Сирены(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A166E79AE9FE3A9B938FCE7885E20F4327B08AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107014   (867550) от 22.02.2017
 
 Loc-Dog - Крылья (2017) [MP3|320 Kbps] <Hip-Hop>
@@ -693,64 +751,6 @@ Wiz Khalifa - The Saga of Wiz Khalifa (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:857F49CD40AB4B2D5992EEB60D60CE458543E76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110703   (851649) от 03.03.2017
-
-Смоки Мо - День третий (2017) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Способ выйти из комы
-02. Палладии
-03. Лёгкие способы (Арнольд скит)
-04. Злой дизайн(   Читать дальше...   )Жанр: RapПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA70B02AED203D6F99B6321526296A9B754E7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378060   (848423) от 24.04.2020
-
-Czar - Pig Drum (Side B) (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Play with Us (feat. Kalibah) [02:54]
-02. Victor Frankenstein (feat. СД) [03:15]
-03. Creators (feat. ЗАМАЙ) [03:17]
-04. Если Бы Не Я (feat. Danny Hackel) [03:27](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCB0FF05BCCEFF438C48CC15D721B26CF7270E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

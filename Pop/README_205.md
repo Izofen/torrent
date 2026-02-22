@@ -1,3 +1,119 @@
+###  Публикация: 945875   (431448) от 11.10.2015
+
+Reflex - Взрослые девочки (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction - Погружение
+02. Свобода и любовь
+03. Взрослые девочки
+04. Бросай оружие(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B516E08617DA1A00C2A4D5DB7C51A660D5DA85F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945825   (431439) от 11.10.2015
+
+Genghis Khan (Dschinghis Khan) - Genghis Khan (1979) Japanese Edition /1995, Victor/ [FLAC|image +.cue]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moskau 5:58
+02. Komm Doch Heim 4:17
+03. Samyrai 4:41
+04. Rocking Son Of Dschinghis Khan 4:15(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A95617CC372459855DB1082C4C27D9161C3B621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945882   (431271) от 11.10.2015
+
+Reflex (Ирина Нельсон) - The Very Best Of (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я буду небом твоим
+02. Взрослые девочки
+03. Маленький принц
+04. Ты не узнаешь...(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9620F1CF5C04F44292BE2367BE6324B21F71BB96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945600   (431247) от 11.10.2015
+
+Savage - Only You (30th Anniversary Remix) (2014) [FLAC|image+.cue]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only You (Remix) 8:57
+02. Only You (Slow Version) 5:04
+03. Only You (Instrumental) 6:41
+04. Save Me (Another Remix) 6:09(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FC93CC6883E1DDB3955D247760809352FC90F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945903   (431118) от 11.10.2015
 
 Reflex (Ирина Нельсон) - The Very Best Of (2015) [FLAC|Lossless|WEB-DL]<Pop>
@@ -626,122 +742,6 @@ VA - The Best Of 80's (2015) 2CD [FLAC|tracks + .cue]<Pop, Rock, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C70B3524D417DC5880F6F68589B2C0406E6DB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250361   (426769) от 27.09.2018
-
-Cher - Dancing Queen (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426769.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dancing Queen
-2. Gimme! Gimme! Gimme! (A Man After Midnight)
-3. The Name of the Game
-4. SOS(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC56C166601723B8677E786B4150AAA8061C5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064576   (426236) от 20.10.2016
-
-Rebecca Ferguson - Superwoman (2016) [MP3|320 Kbps] <Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bones   (03:49) 
-02. Mistress   (03:19) 
-03. Hold Me   (04:28) 
-04. Superwoman   (03:34) (   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F15A9023536F621BCC9DA4AC7DBB6A3503AD92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064462   (426234) от 20.10.2016
-
-Alicia Witt - Revisionary History (2015) [FLAC|Lossless|tracks + .cue] <Adult Alternative, Piano Pop Rock, Singer/Songwriter>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friend
-02. About Me
-03. Already Gone
-04. Down (featuring T.O.N.E-z)(   Читать дальше...   )Жанр: Adult Alternative, Piano Pop Rock, Singer/SongwriterПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244325E2EEA02FE656367E87E3701C138AF4DAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064478   (426228) от 20.10.2016
-
-Ben Folds - So There (2015) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Chamber Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capable of Anything
-02. Not a Fan
-03. So There
-04. Long Way To Go(   Читать дальше...   )Жанр: Alternative Pop, Chamber PopПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94548429848E65EC7C567EBEB08AF9238EBCF4DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

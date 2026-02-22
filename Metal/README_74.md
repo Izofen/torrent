@@ -1,3 +1,32 @@
+###  Публикация: 931894   (510775) от 27.08.2015
+
+Die Krupps - V - Metal Machine Music (2015) 2CD [MP3|320 кб/с]<Industrial Metal, EBM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaltes Herz (Reworked By Darkhaus)
+02. Alive in a Glass Cage (Remixed by Faderhead)
+03. Road Rage Warrior '82
+04. Battle Extreme (Demo)(   Читать дальше...   )Жанр: Industrial Metal, EBM |Продолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BBC0B11BC2767AEA2D8B8BADE80E88B125290B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931877   (510706) от 27.08.2015
 
 Motorhead - Bad Magic (2015) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
@@ -716,35 +745,6 @@ Black Majesty - Cross Of Thorns (2015) [MP3|320 кб/с]<Heavy Metal, Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DFDED5BAFF2FFC60F43CDF384565019851F1C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564023   (501732) от 17.07.2022
-
-Mantar - Pain is Forever and This is the End (2022) [MP3|320 Kbps] <Black Metal, Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Egoisto (4:01)
-02. Hang 'Em Low (So the Rats Can Get 'Em) (4:16)
-03. Grim Reaping (4:05)
-04. Orbital Pus (3:46)(   Читать дальше...   )Жанр: Black Metal, Sludge MetalПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04CF49EC1BEA170352059C78A238466AC71E8158
 ```
 
 https://mybot314.ru/tekegram_catalog/

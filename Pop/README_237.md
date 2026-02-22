@@ -1,3 +1,90 @@
+###  Публикация: 1076040   (315987) от 24.11.2016
+
+Boris Zhivago - Memories (2016) [MP3|320 Kbps] <Euro Disco, Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories 5:29
+02. Love Is a Memory Away 7:56
+03. Russian Fantasy 5:25
+04. The Girl That Saved My Life 7:02(   Читать дальше...   )Жанр: Euro Disco, Italo DiscoПродолжительность: 01:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A4CDB70E7646ADFFD55CB9F00F51BB295BB47F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075514   (315981) от 24.11.2016
+
+VA - Хиты Теплого Моря (2012) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Груя - Любовь - это яд
+02. Dan Balan - Не любя
+03. Мак$им - Небо-самолёты
+04. Митя Фомин - Хорошая песня(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082683C7123E18721E18032AF62587BAAA3BD8B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076182   (315795) от 24.11.2016
+
+VA - 30 Euro Dance Pop Multibundle (2016) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 69 Project - U Dunno (Radio Mix) 03:29
+02. Amelia (Hun) - Never Be Alone (Joseph Horvath Remix) 05:27
+03. F.U.C.K. The System - Agent Walker (Extended Mix) (Feat. Nate Monoxide) 04:22
+04. Nian Project - Joy Thing (Original Mix) (Feat. Sherrita Duran) 06:26(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71CD2F4AA113AA33E8DBD9E692A0B147651B5F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332290   (315710) от 19.10.2019
 
 Mylene Farmer - Live 2019 (2019) [FLAC|24/96|Lossless|WEB-DL|tracks] <Pop>
@@ -659,95 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23813FF2395AE1B8FC5EF0C88E8AE64FEEC55D91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422038   (313048) от 07.11.2020
-
-VA - Rare80 Records - Rare80 Volume 3 (2013) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rare80 Volume 3 CD1
-01. Tea Es - Captain Terra X (24 More Hours) (Extended Version)
-02. Les Montes - Night Life (Single Version)
-03. Rewind - Rosalie (Pop & Go!) (Dub Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063C4C27A44DFDC38B2902FAD9971A6D6B0FBA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583255   (312674) от 02.12.2012
-
-Supermax - Hello, Kurt! (2011) [MP3|320 кб/с]<Funk,Disco,Reggae>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Funk,Disco,ReggaeПродолжительность: 02:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C3971DB0B674B081C2EE4727879E08CA4B4876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583331   (312666) от 02.12.2012
-
-Frank Duval - Touch My Soul (1989) [MP3|320 кб/с]<Pop-Rock>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch My Soul (To Sai Baba) 7:31
-02. Avedana (Instrumental) 4:20
-03. Life Will Go On 4:12
-04. He Came From Space 4:29
-05. And At The End Of Every Street 4:02
-06. Children Of Our Time 4:15
-07. And One Day 5:05
-08. Closer To Heaven 5:13
-09. Help Me 5:25Жанр: Pop-RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF0D0CEAAB2E7301FCB7DD74B0A4900770E7A02
 ```
 
 https://mybot314.ru/tekegram_catalog/

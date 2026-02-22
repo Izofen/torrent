@@ -1,32 +1,3 @@
-###  Публикация: 1688125   (125292) от 28.12.2023
-
-The Kenny Clarke-Francy Boland Big Band - Latin Kaleidoscope, Cuban Fever (1968) 2011, MPS Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un Graso de Areia [4:55]
-02. Duas Rosas [2:28]
-03. A Rosa Negra [1:59]
-04. Uma Fita de Tres Cores [4:02](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694338F5AC18071A3B5F74BA26DC2C83B34228ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688327   (125158) от 29.12.2023
 
 Tadd Dameron - Four Classic Albums (1948 - 1962) 2CD, 2015, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
@@ -745,6 +716,35 @@ McCoy Tyner - Passion Dance (1978) 2005, Original Jazz Classics [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:438308E41AD56E5CF1F7E654154FA660F6A5C67E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691837   (123057) от 13.01.2024
+
+Alan Zimmerman - Standards - Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Fall In Love Too Easily
+02 - Black Nile (Take 1)
+03 - All Of You
+04 - Blame It On My Youth(   Читать дальше...   )Жанр: JazzПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD0B23862FD99BF9CBDC6E53277150E218F160D
 ```
 
 https://mybot314.ru/tekegram_catalog/

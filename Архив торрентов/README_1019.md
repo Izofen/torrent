@@ -1,3 +1,29 @@
+###  Публикация: 988467   (920815) от 20.02.2016
+
+PowerArchiver 2016 16.00.67 Final Portable by PortableAppZ [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920815.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerArchiver - универсальный архиватор с поддержкой всех популярных форматов. Позволяет производить с архивами самые различные действия: создание, просмотр, извлечение файлов; добавление файлов; создание самораспаковывающихся и многотомных архивов; шифрование методами Blowfish 128-bit, DES 64-bit, Triple DES 128-bit и AES 128-bit; восстановление повреждённых зип-архивов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79041D2741F87086C7D6F149DC861CC79DE259AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988389   (920813) от 20.02.2016
 
 ФБР: Переговорщик / FBI: Negotiator (2005) SATRip [H.264]
@@ -651,35 +677,6 @@ AnyGo 4.5.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8D32D093BE1EAD7506A0819E1D8338A82BC4314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983294   (920694) от 20.02.2016
-
-Moderat - Reminder (2016) Monkeytown Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Electro, Abstract>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reminder (03:54)
- 02. Fondle (04:56)
- 03. Reminder (Special Request Remix) (06:24)
- 04. Reminder (Answer Code Request Remix) (05:37)Жанр: IDM, Experimental, Electro, AbstractПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E47B6E1DE19CAC9411E0CB642DBA4F8084107B
 ```
 
 https://mybot314.ru/tekegram_catalog/

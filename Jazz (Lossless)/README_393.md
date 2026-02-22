@@ -1,61 +1,3 @@
-###  Публикация: 1811024   (16652) от 07.08.2025
-
-Lemek - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Say What (4:00)
-02.  Adrian Crutchfield - Boundless (3:43)
-03.  Chris ‘Big Dog’ Davis - Solid Contact (4:24)
-04.  Nathan Mitchell - Stepping Hot (4:41)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E179832C800882E529781A110CA90E497FD337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811026   (16650) от 07.08.2025
-
-Love Suggestions - Chilly Summertime (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Life Is Love (4:44)
-02.  It's Our Time (5:46)
-03.  What Makes You Beautiful (4:37)
-04.  Clarity (4:36)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5FC65A4B8DE5840ED2E93F318240D6AB95B253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811031   (16646) от 07.08.2025
 
 Mark Winkler - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
@@ -745,6 +687,65 @@ CD 03 - Blues & Boogie(   Читать дальше...   )Жанр: Jazz, Ragtim
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5229CFBC4243C4878FDAB0FFFE07C60DD3BAF644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664463   (12193) от 08.07.2025
+
+VA - The World's Greatest Jazz Collection (2008) /500 CD Box Set/ [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасное Джазовое собрание на 500-х дисках! Это как Большая Советская Энциклопедия. Никто не читал от начала до конца, но в приличном доме полагалось иметь.
+Каждая серия по 100 CD упакована в картонные коробки с пластиковыми накопителями для дисков. Общее содержимое вложено в коробку из высококачественного прессованного картона размером примерно 42 см х 68 см х (   Читать дальше...   )Бокс-сет поделен на 5 разделов по 100 CD в каждом:
+Classic Jazz
+Swing Time
+Big Bands(   Читать дальше...   )Жанр: JazzПродолжительность: 533:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F6E6AB71689CFE23389AB09B62988BC3679D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805787   (12129) от 08.07.2025
+
+Tomas Lindqvist featuring Per Lindvall and Lars Larry Danielsson - Can´t wait (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Can’t wait (4:32)
+02.  Take my hand (3:53)
+03.  On the Other Side (4:48)
+04.  Almost There (4:54)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB16A20BD8A982BECAC9801401499A1561B30ABB
 ```
 
 https://mybot314.ru/tekegram_catalog/

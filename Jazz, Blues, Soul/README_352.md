@@ -1,3 +1,91 @@
+###  Публикация: 1068552   (380735) от 01.11.2016
+
+VA - Fireplace Cozy Jazz Moments Vol.1 (2016) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Set Music - Gebenedeit
+02. Piet Gorecki - Anna
+03. The Pry Ministers - The European's Lament
+04. Jose Rodriguez - New York, New York - Live(   Читать дальше...   )Жанр: JazzПродолжительность: 01:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8662D978975DB0A17D3207A9FBB3160269FEA763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410231   (380472) от 10.10.2020
+
+Glenn Miller - The Missing Chapters. Vol. 1 – 9 (1995 - 1998) [FLAC|Lossless|tracks + .cue] <Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гленн Миллер (англ. Alton Glenn Miller; 01.03.1904 - 15.12.1944) - американский тромбонист, аранжировщик, лидер биг-бэндов.
+Создал собственный коллектив в 1937 году. Новый биг-бэнд Гленна Миллера, созданный в 1938 году, достиг значительного успеха - с этим оркестром он записал музыку к фильмам «Серенада Солнечной долины» (Sun Valley Serenade) и «Жены оркестра» (англ. (   Читать дальше...   )Список альбомов:
+Volume 1. American Patrol (1995)
+Volume 2. Keep 'Em Flying (1995)
+Volume 3. All's Well Mademoiselle (1995)(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 14:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B2172CF6757DC1E63B12A89C14833333C3522C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253837   (379632) от 11.10.2018
+
+Clifford Brown with Strings (1955) 2011, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterdays [3:05]
+02. Laura [3:31]
+03. What's New? [3:29]
+04. Blue Moon [3:19](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A2C648D6FDF5B186853E1BB3630CA5F926CEA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574935   (379423) от 08.09.2022
 
 VA - Western Swing and Pretty Things (1977) Digitally Remastered, 2016 [FLAC|Lossless|WEB-DL|tracks] <Western Swing, Jazz>
@@ -657,92 +745,6 @@ Bob James & Company - Casino Lights '99 (2000) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949558   (377705) от 23.10.2015
-
-Virgil Gonsalves Sextet & Steve White Quartet / Quintet - Jazz In Hollywood Series (1954) /1997, Nocturne Records/[FLAC|tracks+.cue]<Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bounce [03:18]
- 02.Out Of Nowhere [02:31]
- 03.Too Marvelous For Words [04:07]
- 04.It Might As Well Be Spring [03:57](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229F4C819C4671D729F37E327FDF0ACC06B1E29E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949409   (377695) от 23.10.2015
-
-The John Coltrane Quartet - Africa/Brass (1961) /2007, Verve/[FLAC|tracks+.cue]<Hard Bop, Post-Bop, Modal Music>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Africa [16:29]
- 02.Greensleeves [10:01]
- 03.Blues Minor [07:23]Жанр: Hard Bop, Post-Bop, Modal MusicПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72478B9FAE4720D99BB6CE943C88A7443DAF7369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254095   (377630) от 12.10.2018
-
-The Four Freshmen - Day By Day (1962) 1994, Hindsight Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day by Day [1:57]
-02. Lulu's Back in Town [2:12]
-03. Polka Dots and Moonbeams [2:41]
-04. Teach Me Tonight [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB89211B1EB43B575D9C63A3A9D609EB2DE258CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

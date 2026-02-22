@@ -1,3 +1,293 @@
+###  Публикация: 1252978   (387569) от 07.10.2018
+
+VA - Hip-Hop Contest (2018) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387569.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3TheRapper - Sak Pase
+002. Aaron Aye - Since '96
+003. Amsterdam - Never Rains
+004. Backlash - Address This of the Album(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 08:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941F62C95820602B1F7D23AFAB04D37E95BB0361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067387   (387553) от 29.10.2016
+
+VA - German Top 50 Official Dance Charts 07.11.(2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris - My Way
+02. Armand Van Helden - Wings
+03. David Guetta, Chris Willis & Cedric Gervais - Would I Lie To You
+04. Bob Sinclar & Daddy's Groove - Burning(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D66F5B179FDDEFEC1045761D1D010598F63F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067396   (387550) от 29.10.2016
+
+VA - German Top 100 Single Charts 07.11. (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387550.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.257ers - Holland 3:09
+002.257ers - Holz 3:09
+003.Alan Walker - Faded 3:33
+004.Alan Walker - Sing Me To Sleep 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 05:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250947A41FC91F9D4CB37D49A37A881B7D118AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174127   (387541) от 14.10.2017
+
+VA - Progressive House Vol.6 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Biologik & K Nass - Corrupted (Biologik Remix)  7:17
+02.  Yunta - Revolution (Uvo Remix)  7:18
+03.  Desaturate - Inundate (Original Mix)  8:14
+04.  Rick Pier O'neil - Crystallized (Wes Straub Remix)  6:36(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40842B62FD5B4A291F728A1D2CC90F1DFC3A979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252933   (387473) от 07.10.2018
+
+VA - Зайцев.нет: Музыкальные новинки Октябрь 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Effective Radio - ZYN 3:18
+02. Bryce & Steve Modana - Magic Trix 3:45
+03. Liranov - Эндорфин 2:59
+04. T1One - Портной 3:23(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CAC555C2C9A3FEF779EF847EACF90F02DCFC024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174354   (387368) от 14.10.2017
+
+VA - Indie/Rock Playlist: October (2017) [MP3|~217-277 Kbps] <Indie>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Strangejuice – (IRP) Intro
+02.  Wolf Alice – Beautifully Unconventional
+03.  Daughter – Burn it Down
+04.  CHVRCHES – Call It Off(   Читать дальше...   )Жанр: IndieПродолжительность: 04:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9EE58C1828C30904B053A0F7DB7AFB483C5703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174139   (387364) от 14.10.2017
+
+VA - Future Garage Vol.41 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Downtempo, Future Garage, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ambyion & Phelian - Salvation  3:52
+02.  Direct - Whisper  2:52
+03.  Aether - Eidolon  3:37
+04.  Vacant & Sorrow - Requiem  4:54(   Читать дальше...   )Жанр: Downtempo, Future Garage, ElectronicПродолжительность: 02:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA015C8DFE8B9B1ACBCC571DFA44AB07D752E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253015   (387336) от 07.10.2018
+
+Metallica - 30th Birthday Chopped and Twisted (2018) Live, 2CD [MP3|320 Kbps] <Heavy Metal, Thrash Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Disappear (5:01)
+ 02. The Memory Remains (6:07)
+ 03. For Whom The Bell Tolls (4:54)
+ 04. Turn The Page (8:04)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 02:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172FF464F43DEE40C77CF283F18FDEEBFFD8F67A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067483   (387274) от 29.10.2016
+
+VA - All Stars Disco #3 (2016) [MP3|192~224 Kbps] <Disco, Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. C.C.Catch - Strangers By Night  5:44
+002. Lipps Inc. - Funky Town  4:35
+003. Lazerdance - Powerrun  4:09
+004. Steve Miller Band - Abracadabra  2:48(   Читать дальше...   )Жанр: Disco, Pop, DanceПродолжительность: 07:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F3DD069DD3AFAEE9DE3EA20BD072FAC9A1917D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067660   (387271) от 29.10.2016
+
+VA - Музыкальные Новинки Интернета (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alesso - Take My Breath Away 3:09
+02.Aquilo - You Won't Know Where You Stand 2:52
+03.Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) 4:11
+04.Conor Oberst - Barbary Coast (Later) 4:13(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C5F13FEBF5457D5233E16B88AB32A629C71C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253112   (387203) от 07.10.2018
 
 VA - Чарт Яндекс.Музыки 05.10.2018 (2018) [MP3|192 Kbps] <Pop>
@@ -512,302 +802,6 @@ VA - Beatport Bassline: Sound Pack # 185 (2020) [MP3|320 Kbps] <D&B, Bassline, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89954B0A8026E5AF55FF55A77976037FB26DBF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574517   (385614) от 05.09.2022
-
-Redbone - One More Time (2022) Compilation [MP3|320 Kbps] <Rock, Native American>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prehistoric Rhythm [03:59]
-02. Crazy Cajun Cakewalk Band [03:09]
-03. One More Time [03:05]
-04. Tennessee Girl [02:26](   Читать дальше...   )Жанр: Rock, Native AmericanПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFB964BB2DE88BC4E9E245466237980CE2F640B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253105   (385550) от 08.10.2018
-
-Spacekraft - The Legend Of The Samurai (2017) [MP3|~210 Kbps - 320 Kbps] <Synth Pop, Indie Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385550.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. Spacekraft - The Legend Of The Samurai (Continuous Mix)
-01. Cretu - Samurai
-02. The Midnight - Vampires
-03. ZHU - Palm Of My Hand(   Читать дальше...   )Жанр: Synth Pop, Indie Dance, VaporWaveПродолжительность: 03:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F306658A75951F28410C8AB0881294EA815D42A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253319   (385542) от 08.10.2018
-
-VA - German Top 100 Single Charts 08.10.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385542.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dynoro Gigi D'Agostino - In My Mind
-002. Bonez MC RAF Camora - Kokain (feat. Gzuz)
-003. Veysel - UFF (feat. Gzuz)
-004. Loredana Mozzik - BONNIE CLYDE(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CF726BD1820DF1321A1318A880C499BE875FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253290   (385538) от 08.10.2018
-
-VA - New Music Releases Week 40 of 2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385538.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kim Petras - Close Your Eyes
-002. Lane 8, Poliça - No Captain (Dirty South Remix)
-003. Mario - Goes Like That
-004. J.S. Ondara - American Dream(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 13:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB6A9372E3932E40EA8AC8CB8E9FA61E1533BD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414331   (385517) от 08.10.2020
-
-VA - Punk Rock Rolling Style (2020) [MP3|320 Kbps] <Punk, Punk Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385517.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Sharp Shadows - Walkrightpastmedon
-002. This Means War! - I Found The One
-003. Hillview - E.S.A.D.
-004. F.U.A. - Psychotic(   Читать дальше...   )Жанр: Punk, Punk Rock, AlternativeПродолжительность: 07:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3CD7CD26AB216F0F751D2234B7B1DFEEC54BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414335   (385516) от 08.10.2020
-
-VA - Hyperspace: Synth Space Electronic (2020) [MP3|320 Kbps] <Synthspace, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385516.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2qimic - Ghost Ship
-002. Tommy Vega - Blind Justice
-003. Double Reaktion - Ignition
-004. Jopon - Forester(   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 11:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC8713A74A89CFA7548A6C9210E6095CE8E5FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414339   (385511) от 08.10.2020
-
-VA - Beatport Dancehall: Sound Pack #186 (2020) [MP3|320 Kbps] <Dancehall, Riddim, Reggaeton>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385511.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Princesse Lea - Pas À Pas
-002. Matieu - Antre Nou
-003. Toxxik - Macavelli
-004. Diligent Cityboss - Big Dream(   Читать дальше...   )Жанр: Dancehall, Riddim, ReggaetonПродолжительность: 08:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7A63C2600FA872690878918A4B35822C88962F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571851   (385471) от 08.11.2012
-
-VA - Армейский Superhit (2012) [MP3|128 кб/с]<Pop, Военная песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Михаил Шелег - Вперед офицеры
-002 Юрий Шевчук - Господь нас уважает
-003 Вячеслав Малежик - На войне
-004 Александр Маршал - Полем, полем, полем (Вещая судьба)
-005 Катя Огонек - За мальчиков России
-006 Эдуард Сычев - Купола
-007 Жорa Затонский - Дембельская
-008 Владимир Шамбуров - Цена награды
-009 Сергей Любавин - Солдаты удачи
-010 Александр Купаев - Письма из домаЖанр: Pop, Военная песняПродолжительность: 12:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20100F675B76D52523C5A2B608E7866E3A6974E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253223   (385339) от 08.10.2018
-
-VA - Trance Collection Vol.72 (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385339.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Venetica feat. Paige Hammond - Second Chances (Original Mix) 7:18
-002. Ruslan Radriges feat. Cathy Burton - Hearts To Entwine (Jericho Frequency Extended Mix) 6:48
-003. DJ Dean & DJ T.H. feat. Hanna - Find A Road (Extended Mix) 5:49
-004. Giuseppe Ottaviani - Wait Till You Miss Me (OnAir Extended Mix) 5:41(   Читать дальше...   )Жанр: Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 10:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05594AC6D8ECC9BA4E1B8E78FD18A5F4D35AB1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067814   (385222) от 30.10.2016
-
-VA - Beatport Trance Pack  (30.10) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myk Bee - Pressure Point (Extended Mix)  7:53
-02. Aly&Fila Ft. Denise Rivera - My Mind Is With You (Original Mix)  6:58
-03. Denis Kenzo & Angel Falls - Run Away  (Original mix)  6:06
-04. Omnia Ft. Christian Burns - All I See Is You (Extended Mix)  5:37(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 04:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1874F5C7646F83328F70D51BA31CA97CAEB943EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

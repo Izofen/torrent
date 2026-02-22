@@ -1,3 +1,90 @@
+###  Публикация: 1540699   (650470) от 31.03.2022
+
+The Blue Chevys - The Night Calls (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Calls
+02. Willow Tree
+03. Fun No More
+04. Thin Line(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81EB1A5EF8C1A10748E52F5A5C53063AC0FBC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227025   (650401) от 24.05.2018
+
+Djabe - Flow (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Flow
+02 - Return To Somewhere
+03 - Another Dive
+04 - Free Fallin'(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA6CB6568DFD7CF78E407B6921065FC890C5184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540601   (650360) от 31.03.2022
+
+Robert Johnson - Crossroad: The Legendary Recordings (2009) Remastered, 2021, RevOla [FLAC|24/96|tracks|WEB-DL] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kind Hearted Woman Blues (00:02:55)
+02 - I Believe I'll Dust My Broom (00:03:02)
+03 - Sweet Home Chicago (00:03:01)
+04 - Ramblin' On My Mind (00:02:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816244C2BBF5A42A3493839A26C06A5CCEFACAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141485   (650188) от 10.06.2017
 
 VA - Best Of Blues & Roots (2017) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Blues, Blues-Rock>
@@ -659,93 +746,6 @@ Monsteras Bluesband - 40 Years: Live (2015) [MP3|320 кб/с]<Modern Electric Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9801123FDEFA941C823755EC7108D6878232A25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905809   (647830) от 07.06.2015
-
-The Lachy Doley Group - Conviction (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betcha I'll Getcha (02:42)
-02. Conviction (05:31)
-03. Make It Up (04:38)
-04. Back In Black (04:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D6F8776C4DAA407ED01562AD04D72A773007DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906007   (647826) от 07.06.2015
-
-Jaga Jazzist - Starfire (2015) [FLAC|tracks + .cue] <Electronic, Jazz, Rock, Future Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starfire (8:47)
-02. Big City Music (14:07)
-03. Shinkansen (7:43)
-04. Oban (12:41)(   Читать дальше...   )Производство: Ninja Tune – ZEN223CDЖанр: Electronic, Jazz, Rock, Future Jazz, ExperimentalПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09781602C9126C0DC40BF9E0432A3A1DEEBD8E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905827   (647817) от 07.06.2015
-
-King Of The World - Discography (2013-2015) [MP3|320 кб/с]<Modern Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Messing With My Mind (Live) [00:03:42]
-02. On My Way Back Home (Live) [00:03:13]
-03. If You Want To Leave (Live) [00:06:25]
-04. Let's Go Get Stoned (Live) [00:05:30](   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 03:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E418A5042BEDCD21891A857E7B6C361A1022D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

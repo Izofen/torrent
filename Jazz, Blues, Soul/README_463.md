@@ -1,3 +1,32 @@
+###  Публикация: 1658279   (191636) от 07.09.2023
+
+Mal Waldron & Jackie McLean - Left Alone '86 (1987) Bellaphon [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left Alone (master take) [8:27]
+02. God Bless the Child [3:23]
+03. All of Me [6:49]
+04. Cat Walk [9:46](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443830DB512A985A5DA0C58606D67642F795B7B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588554   (191422) от 05.11.2022
 
 Jack Teagarden - The Complete Roulette Jack Teagarden Sessions (1959 - 1961) 4CD, 2003, Mosaic Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
@@ -716,35 +745,6 @@ Rickie Lee Jones - Pieces of Treasure (2023) [FLAC|Lossless|tracks + .cue] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCCC2B4E69CF0A0C274641B6D2CE7D31F012A6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659460   (190125) от 11.09.2023
-
-Laufey - Bewitched (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dreamer (00:03:30)
-02 - Second Best (00:03:24)
-03 - Haunted (00:03:20)
-04 - Must Be Love (00:03:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93152E337F2DFD3D6A4510F82E41964C665EBB9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

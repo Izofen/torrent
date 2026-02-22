@@ -1,3 +1,90 @@
+###  Публикация: 1202409   (790462) от 28.01.2018
+
+Carl Verheyen - Essential Blues (2017) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Take What I Want (3:37)
+02. Someday After A While (4:29)
+03. Stealing Gasoline (4:31)
+04. Dodging The Blues (4:20)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00.39.50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201DF6BD8F0137FF887F373457C3307FCF156423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202233   (790453) от 28.01.2018
+
+Muddy Waters Tribute Band - Live at Rockpalast (Live, 1996 Loreley Festival) (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clouds in My Heart
+02. Walkin’ Thru the Park
+03. You Can’t Loose What You Ain’t Had
+04. You Don’t Have to Go(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C58174B658FA10D354F6BDFA28385376B50328F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202389   (790452) от 28.01.2018
+
+Beth Hart & Joe Bonamassa - Don't Explain (2011) J&R Adventures, PRAR931391, US [MP3|320 Kbps] <Blues Rock, Rock, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinner's Prayer 4:28
+02. Chocolate Jesus 2:40
+03. Your Heart Is As Black As Night 5:01
+04. For My Friends 4:12(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023DF2A4DF776B5CB7847C97C63A54BA8D05134C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202328   (790450) от 28.01.2018
 
 Jimmie Vaughan - 6 альбомов, 7 CD (1994-2011) [FLAC|Lossless|image + .cue] <Blues, Modern Electric Texas Blues, Jazz Blues>
@@ -658,93 +745,6 @@ David "Fathead" Newman - Mr. Gentle, Mr. Cool: A Tribute to Duke Ellington (1994
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DF4F052048DD1EC41FF761C5DD92C2FBFFD855A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275854   (789450) от 13.01.2019
-
-Jamie Lancaster - Duets (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jamie Lancaster, Cassandra Beck - I Finally Found Someone 03:12
-02. Jamie Lancaster, Michelle Simonal - Endless Love 02:53
-03. Jamie Lancaster, Shelly Sony - Easy Lover 04:02
-04. Jamie Lancaster, Eve St. Jones - (I've Had) The Time of My Life 03:37(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Bossa NovaПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCCF0EAFD0723572965F53E6B8033FEE0BB6584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511294   (789376) от 20.11.2021
-
-Phil Woods With Strings - The Thrill Is Gone (2003) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And When We're Young [8:26]
-02. I Get Along Without You Very Well [4:54]
-03. You Go To My Head [5:30]
-04. It Never Entered My Mind [8:59](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9D81FECE12DA400F68697B60C925EC7CD095DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511153   (789369) от 20.11.2021
-
-Marina & The Kats - Different (2021) [FLAC|Lossless|image + .cue] <Swing Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pressure [0:02:48.33]
-02. Ponder [0:03:44.51]
-03. Different [0:03:56.23]
-04. No Means No [0:00:40.45](   Читать дальше...   )Жанр: Swing Jazz, Vocal JazzПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157B76F6E71F4DCF58A49D5FB9BC57AC1A326D16
 ```
 
 https://mybot314.ru/tekegram_catalog/

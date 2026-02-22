@@ -1,3 +1,32 @@
+###  Публикация: 1486492   (1004585) от 01.08.2021
+
+Restless Bones - Captured by the Roots (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonewalk (04:41)
+02. Monster (03:43)
+03. Common Sense (04:59)
+04. Sail Away (feat. Don Airey) (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEE96FD2A44048A939F18DAF571F4997C42F3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349448   (1004494) от 01.01.2020
 
 Six Feet Under (Sweden) - Discography: 2 albums (1983-1984) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
@@ -741,41 +770,6 @@ VA - High Voltage: The Ultimate AC/DC Tribute (2008) 2CD [FLAC|Lossless]<Hard Ro
 08. 	Genitorturers – 	Squealer 	4:39
 09. 	Groovie Ghoulies – 	Rock 'N' Roll Damnation 	3:06
 10. 	Whitfield Crane & Claus Eichstadt – 	Live Wire 	5:52(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Heavy MetalПродолжительность: 02:07:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 428359   (994318) от 01.01.2012
-
-Soul River Dogs - Soul River Dogs (2011) [APE|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Crazy [3:38]
-02.  Hell No! [4:35]
-03.  Karma [4:03]
-04.  All I Wanna Do [3:50]
-05.  Keep Rockin' [4:53]
-06.  Jesu$ Money [4:00]
-07.   Never Change My Ways [4:06]
-08.  Nothingman [4:04]
-09.  Roses For The Dead [6:19]
-10.  The Junk (All Funked Up) [3:54]Жанр: Hard RockПродолжительность: 00:43:21
 
 ## Скачать торент
 ```bash

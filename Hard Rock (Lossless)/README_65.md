@@ -1,3 +1,32 @@
+###  Публикация: 1838490   (260777) от 23.11.2025
+
+Black Sabbitch - Unrest In The West (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wheels Of Confusion/The Straightener (8:13)
+02. A National Acrobat (6:10)
+03. The Wizard (4:20)
+04. A Hard Road (5:58)(   Читать дальше...   )Жанр: Hard-Rock, Heavy-MetalПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D5E1D3114F8E37A7912C08C6B45A6F00AC3DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504216   (260442) от 02.06.2012
 
 Pat Travers - Blues Magnet (1994) [FLAC|Lossless]<Blues Rock, Hard Rock, Heavy Metal>
@@ -776,35 +805,6 @@ VA - Modern Hard Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1468E8463189B8679DF721B987217217E2E9FB94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620577   (249390) от 20.03.2023
-
-Transworld Identity - Seven Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything Must Burn
-02. Play & Pretend
-03. I'm Such A Liar
-04. Part Maroon, Part Indigo(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A542A7DE2912EEB26A6B16595262F8E29FE74373
 ```
 
 https://mybot314.ru/tekegram_catalog/

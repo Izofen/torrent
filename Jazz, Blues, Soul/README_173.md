@@ -1,3 +1,90 @@
+###  Публикация: 1212415   (776040) от 11.03.2018
+
+Angel Forrest - Electric Love (2018) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All The Way 04:33
+02. Spoil Me Up 06:17
+03. Piece of My Heart 04:18
+04. Walkin' Blues 07:26(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB906C5DE6609F622ED9BF24F146CB878C766A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014679   (775857) от 09.05.2016
+
+Tim Tamashiro - Ai [Love] (2002) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagination    03:06
+02. The Best Is Yet To Come    03:06
+03. My Romance    04:03
+04. Nice 'n Easy    02:53(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB224B4DBA1F1697C27B031EC8DEF0F2726D7460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014970   (775844) от 09.05.2016
+
+The Sonny Moorman Group - Lucky 13 (2014) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ol' Gunslinger (03:56)
+02. Deal With The Devil (05:06)
+03. You Quit On Me, Baby (06:22)
+04. Go Updated (05:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1D04F885BA9FDC326525EA11CD1D2BE3016E2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014630   (775838) от 09.05.2016
 
 Takana Miyamoto & Kirk Whalum - Promises Made: The Millennium Promise Jazz Project (2008) [APE|Lossless|image + .cue] <Jazz, Soul-Jazz>
@@ -655,93 +742,6 @@ The Syd Lawrence Orchestra - Big Band Spectacular! (2016) [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5216B0CF3F3770ACC4C0327663F77FAF30C49E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124803   (773602) от 13.04.2017
-
-Lonnie Smith & Alvin Queen - Lenox And Seventh (1985) 2000, Black And Blue [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.L.S. Blues [06:21]
- 02.Slightly Monkish [05:50]
- 03.Who Can I Turn To? [08:01]
- 04.Billie's Bounce [05:59](   Читать дальше...   )Жанр: Jazz-Funk, Jazz FusionПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E396ECFB4F1101851D15938D59C059CB8B90EEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125027   (773532) от 13.04.2017
-
-Dizzy Gillespie, Stan Getz, Coleman Hawkins - Sittin' In (1957) 2005, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dizzy Atmosphere [10:57]
- 02.Ballad Medley (I'm Through With Love- Without A Word Of Warning - Sweet Lorraine - Love Walked  In - September Song) [11:00]
- 03.Ballad Medley (On The Alamo - Stompin' At The Savoy - This Time The Dream's On Me - Time After Time - Gone With The Wind) [12:29]
- 04.The Way You Look Tonight [13:38]Жанр: Mainstream Jazz, BopПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2C98BC46A69C8E60C1FF5D22EE59878D22D4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124732   (773529) от 13.04.2017
-
-Chuck Mangione - Journey To A Rainbow (1983) [FLAC|Lossless|image + .cue] <Fusion, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey To A Rainbow (07:03)
-02. Do I Dare To Fall In Love (05:59)
-03. Love Bug Boogie (05:56)
-04. Buttercorn Lady (05:02)(   Читать дальше...   )Жанр: Fusion, Smooth JazzПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374C05C264D4909AA529C36EEEE9046485D078D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

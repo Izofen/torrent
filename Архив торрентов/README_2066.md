@@ -1,3 +1,29 @@
+###  Публикация: 1393509   (766940) от 01.07.2020
+
+Серия Кубков NASCAR-2020. 15-й Этап. Поконо 350. Гонка / NASCAR Cup Series 2020. Round 15. Pocono 350. Race (2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766940.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 этап Nascar Cup Series, Pocono 350, Pocono Raceway (140 Laps, 350 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7390A4D5A5EBCD0E24D6D4E8475B15EDD54F486F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393650   (766939) от 01.07.2020
 
 Детский КВН (2020) WEBRip [H.264/1080p-LQ] (сезон 2, выпуск 11)
@@ -654,32 +680,6 @@ OnyX для macOS Catalina - отличное приложение для опт
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A17A9239E3DCAAAC15281C035946848B23C905B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125837   (766827) от 16.04.2017
-
-360 Total Security 9.0.0.1168 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766827.jpg" />
-</div>
-
-
-###  Подробнее
-
-360 Total Security - бесплатный антивирус Qihoo 360 с оптимизацией ПК. Включает локальные движки Avira и Bitdefender, проактивную и облачную защиту в реальном времени, а также инструменты: фаервол, песочница, защита веб-браузераЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F877A5A84CCE3AFEEB603F0F7E7FCCF63F75A61A
 ```
 
 https://mybot314.ru/tekegram_catalog/

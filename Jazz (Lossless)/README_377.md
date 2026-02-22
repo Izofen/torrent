@@ -1,61 +1,3 @@
-###  Публикация: 1784318   (69575) от 10.03.2025
-
-Kenny Burrell - Four Classic Albums (1957 - 1959) 2CD, 2023, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birk's Works [9:48]
-02. Hallelujah [11:42]
-03. Lady Be Good [9:59]
-04. Lover Man [8:22](   Читать дальше...   )Жанр: Bop, Hard Bop, Guitar JazzПродолжительность: 02:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539258FFB87BA4A46C8682635CB258AE30688C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784320   (69557) от 10.03.2025
-
-Art Pepper - Straight Life: The Savoy Sessions (1986) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight Life [2:54]
-02. Chili Pepper [2:59]
-03. Cinnamon [3:09]
-04. Tickle Toe [2:53](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BFAD4E79B25910A94759F237B18AD19D9D084F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784508   (69553) от 11.03.2025
 
 Chick Corea - Now He Sings, Now He Sobs (1968) 2024, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
@@ -740,6 +682,64 @@ Project G-7 - Tribute to Wes Montgomery, Vol.2 (1993) Evidence [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F32767B59B0B07D2C912FFDBFF8C0C89EED537E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786362   (69012) от 20.03.2025
+
+Herbie Hancock - My Point Of View (1963) 2024,Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Man, Blind Man [8:19]
+02. A Tribute to Someone [8:46]
+03. King Cobra [6:55]
+04. The Pleasure Is Mine [4:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A018DF0FC5615C9F7D8219DA0C1042966657C2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786606   (68963) от 21.03.2025
+
+Buck Hill - I'm Beginning To See The Light (1991) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Hill [3:55]
+02. Lullaby of Loosdrecht [7:59]
+03. Mitzi [4:41]
+04. Bossa for Sax [9:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:728189B35F69A06594CA73AFD2BB0DCA89A57A17
 ```
 
 https://mybot314.ru/tekegram_catalog/

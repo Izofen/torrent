@@ -1,3 +1,32 @@
+###  Публикация: 1698383   (117805) от 13.02.2024
+
+Shindhu (Шинду, Sri Chinmoy) - Eternity’s Dream (Мечта Вечности) (2001) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bare Bare
+02. Hashir Prabhat
+03. Bahir Haite
+04. Ogo Mor(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A782736ED7EE4CA8F18EF458C05C3247872F84EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697514   (117799) от 13.02.2024
 
 Teufelstanz - XIII (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
@@ -715,35 +744,6 @@ El Mental - Стакан наполовину дичь, Часть 1-2 (2024) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B0C900CF92DC58C92668DC371AFE5652EE9D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720924   (109797) от 10.05.2024
-
-Elyanna - WOLEDTO (2024) [MP3|320 Kbps] <World, Arabic, R&B>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woledto [02:03]
-02. Ganeni [02:57]
-03. Callin' U (Tamally Maak) [01:57]
-04. Al Sham [02:46](   Читать дальше...   )Жанр: World, Arabic, R&BПродолжительность: 00:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C61B4F7B790846A18C1DBE245093B3737E48D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

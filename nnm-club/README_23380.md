@@ -1,3 +1,450 @@
+###  Публикация: 1702539   (115716) от 25.02.2024
+
+Myriam Hernandez (Myriam Hernández) - Sinergia (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks + .cue] <Pop, Latin>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Hasta Aquí 00:03:01
+02 Mi Paraíso 00:04:06
+03 Encadenada a Ti 00:03:37
+04 Ya Es Tarde 00:04:03(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7459DF14FD52CFA90022492A93E848597387F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702493   (115715) от 25.02.2024
+
+Журнал | Лечащий Врач (том 27) №2 (2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: ЗдоровьеИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013D9B49E30F1519CFE8927D093636B64D4830B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702596   (115714) от 25.02.2024
+
+FM-84 - Atlas (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything (04:20)
+02. Running in the Night (feat. Ollie Wride) (04:30)
+03. Tears (05:35)
+04. Chasing Yesterday (03:56)(   Читать дальше...   )Жанр: Dreamwave, SynthwaveПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF43FD0DEF44FBD83E3D96B7E3BB6EEE70E3D7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702521   (115713) от 25.02.2024
+
+VA - D.Trance 105 (2024) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daxson - The Awakening (Transmission Theme 2023) [2:38]
+02. Dim3nsion - Functionlust (Original Mix) [6:57]
+03. Cold Blue - A Beautiful Mind (Original Mix) [5:57]
+04. Doppenberg - After All These Years (Extended Mix) [6:46](   Читать дальше...   )Жанр: TranceПродолжительность: 05:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F757CA21B575F2494F351173A16AA1C48C29BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702555   (115712) от 25.02.2024
+
+VA - Calm Reflections: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dellasollounge - Luna Eclipse (10:42)
+02. Filalete - Ambivalent (3:55)
+03. Matt Sour - Frigus Lunam 432Hz (4:13)
+04. Filalete - Virtue (4:16)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E45BDA5B2C052DCF8B534D97487C7ED4B6C0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702551   (115711) от 25.02.2024
+
+VA - Sea Melodies: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Leading Me On (4:00)
+02. Velvet Dreamer - Eternal Beauty (Original Mix) (5:07)
+03. Lemongrass - Deep River (Original Mix) (6:28)
+04. Incognita Alma - Sentiment (6:24)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4667A55EFADE3D380D7813270FB5C38A4EF4CA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702612   (115710) от 25.02.2024
+
+Text Editor Pro 28.4.3 + Portable + Bonus [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощным инструментом редактирования текста с подсветкой синтаксиса для сценариев и языков программирования, является небольшая и компактная программа – Text Editor Pro. Программу можно сравнить с известным текстовым редактором Notepad++ функционал у них схожий, отличаются только по размеру. Утилита работает во всех версиях ОС, выпущенных корпорацией Microsoft. В последних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E704B4FB9E896EBE0F29FD489EB9AA92812C9AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702562   (115709) от 25.02.2024
+
+Журнал | Юность №11 (ноябрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115709.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Юность» — литературно-художественный иллюстрированный журнал для молодёжи. Выходит в Москве с 1955 года. Журнал был основан по инициативе Валентина Катаева, который стал первым главным редактором и был снят с этой должности за публикацию повести «Звёздный билет» Василия Аксёнова.
+До 1991 орган Союза писателей СССР, в дальнейшем независимое издание.Жанр: Публицистика, проза, поэзияИздательство: АНП "Редакция журнала "Юность"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044BB7445ABC717754FA8763CF2F6B77141B8150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702477   (115708) от 25.02.2024
+
+Анастасия Сафина, Нино Пипия | Легкие роды (2023) [MP3, Валерия Савельева]
+
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальная аудиокнига, созданная на основе опыта двух специалистов – акушера и психолога, которая поможет вам пройти путь от беременности до родов максимально комфортно и с удовольствием. Вы научитесь справляться со страхами и беспокойством, возникающими перед родами, и вместе со своим партнером настроитесь на это важное событие. Разберетесь, какие документы и вещи (   Читать дальше...   )Жанр: Акушерство и гинекологияИздательство: БОМБОРАПродолжительность: 08:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44E232C45B928D805ED8C06B1FBC588605AF678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702448   (115707) от 25.02.2024
+
+VA - Pure Dreams, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keisuke Sakai - Mizu Sumu (Original Mix) (4:40)
+02. Gushi, Raffunk - The Way to You (Intro) (Original Mix) (1:48)
+03. L.M.F. - Raghupati (Traditional Song) (Original Mix) (4:13)
+04. Shortlab - Passionate Motivation (Extended Mix) (6:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63C49A7681C00BC782655692077AE2DDCA88FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702430   (115706) от 25.02.2024
+
+Max Cruise - Nights at Sunset Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Synthwave, Saxophone>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nights at Sunset Beach (04:55)
+02. Risky Business (04:45)
+03. Midnight Glow (04:35)
+04. La Contessa (02:35)(   Читать дальше...   )Жанр: Smooth Jazz, Synthwave, SaxophoneПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98BC94DECC0E0DC7750898F8DFEC1696F06D77D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702542   (115705) от 25.02.2024
+
+Bon Jovi - Superrock Japan 1984 (Live) (2024) [MP3|320 Kbps] <Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Livin' On A Prayer (Live) [00:02:48]
+02 - Wanted Dead Or Alive (Live) [00:04:50]
+03 - I'd Die For (Live) [00:05:03]
+04 - I'll Sleep When I'm Dead (Live) [00:03:54](   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADED9C62175BF3D3C77057C3A2FC5870B197E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702405   (115704) от 25.02.2024
+
+Ким Джи-ён, 1982 года рождения / 82nyeonsaeng Kim Ji-yeong / Kim Ji Young Born 1982 (2019) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ким Джи-ён 1982 года рождения — обычная женщина. Она следовала всему, что требовало от неё общество: закончила школу, устроилась на работу, вышла замуж, родила. В один прекрасный день Джи-ён начинает терять саму себя и примерять личины других людей.Производство: Корея Южная / Lotte EntertainmentЖанр: драмаРежиссер: Ким До-ёнАктеры: Чон Ю-ми, Кон Ю, Ким Ми-гён, Чон Гук-хян, Ли Хэ-ун, Пак Сон-ён, Ли Бон-нён, Ким Сон-чхоль, Ли Оль, Е Су-джонПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 01:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A73433905FE6B53882E4726C2E8CEA3D99F3F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702523   (115703) от 25.02.2024
+
+Китайская рулетка / Chinesisches Roulette (1976) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115703.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пятницу в Мюнхене супружеская пара, Ариана и Герхард Крайст, прощается друг с другом на выходные. Она собирается в Милан, он — в Осло. В тот же вечер они встречаются в принадлежащем им замке. Она - в сопровождении любовника Кольбе, он - со своей любовницей Ирен. Под вечер появляется и их дочь-инвалид Ангела со своей воспитательницей-немкой Трауниц. Всех их обслуживают (   Читать дальше...   )Производство: Германия (ФРГ), Франция / Albatros Filmproduktion, Les Films du LosangeЖанр: драма, триллерРежиссер: Райнер Вернер ФассбиндерВ ролях: Анна Карина, Маргит Карстенсен, Бригитте Мира, Улли Ломмель, Александр Аллерсон, Фолькер Шпенглер, Андреа Шобер, Маша Мериль, Роланд Хеншке, Армин Майер, Эрик ШуманнПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, немецкийСубтитры: русские, английскиеПродолжительность: 01:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE72CB9648A187C54A1D580B7DDBC2586A93F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702566   (115702) от 25.02.2024
+
+ShockOne - Organism Algorithm (2024) [FLAC|Lossless|WEB-DL|tracks] <drum 'n' bass, dubstep, drumstep, electro house>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alone [00:04:45]
+02 - Open Your Mind [00:04:06]
+03 - Ready To Go (feat. Bright Sparks) [00:03:32]
+04 - Organism Algorithm [00:04:41](   Читать дальше...   )Жанр: drum 'n' bass, dubstep, drumstep, electro houseПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E9F94CC5D875D0513DB3828A0429E7996463E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702403   (115701) от 25.02.2024
+
+Dio - Ronnie's Birthday Show (2019) Reissue, 2024, Smokin' [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus Mary And The Holy Ghost [00:03:34]
+02. Strange Highways [00:06:41]
+03. Don't Talk To Strangers [00:05:48]
+04. Pain [00:03:27](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1BAA52A57FF468CD0DDE65838CE8CD5863CBC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702560   (115700) от 25.02.2024
 
 ShockOne - Organism Algorithm (2024) [MP3|320 Kbps] <drum 'n' bass, dubstep, drumstep, electro house>
@@ -139,35 +586,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702642   (115695) от 25.02.2024
-
-Job for a Cowboy - Moon Healer (2024) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115695.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beyond the Chemical Doorway (04:10)
-2. Etched in Oblivion (04:14)
-3. Grinding Wheels of Ophanim (05:52)
-4. The Sun Gave Me Ashes So I Sought Out the Moon (04:04)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D91F0B92598C5A7FD9268CDF5865CE57DA0F134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702414   (115694) от 25.02.2024
 
 Beau Geste - Another Night in the City (1986) Remaster, Unidisc, 1998 [FLAC|Lossless|WEB-DL|tracks] <AOR>
@@ -190,35 +608,6 @@ Beau Geste - Another Night in the City (1986) Remaster, Unidisc, 1998 [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FDB1C16CEA9FC55DC7A12118E896657AD1F6E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702498   (115693) от 25.02.2024
-
-Timson - Forever's Not Enough (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115693.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Searching For Myself
-2. Gambler
-3. Across All Chaos
-4. More Than Enough(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94040AA01B59562F907AD9075D38A227DF8D04F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,397 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DB1C79624086E97661A1DC795A53C585C225202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702592   (115688) от 25.02.2024
-
-Владимир Анищенков | Герои кавказских войн (2009) [MP3, Владимир Анищенков]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русские воины.
-Владимир Анищенков родился в 1957 году в Москве. Член Союза писателей России, член Союза журналистов России. Автор книг «Русская мудрость и революционные теории», «Державная поступь», «Русское будущее Державы», составитель книги «Русские святые воины».
-Данное издание посвящено героям кавказских войн: Кавказской войны XIX века (Котляревский, (   Читать дальше...   )Жанр: Русская литература, историческая прозаИздательство: БлагословениеПродолжительность: 06:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE23F42BE27DF7DA99846AC0D500BCB4AC35CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702522   (115687) от 25.02.2024
-
-Первая передача на НТВ. Автомобильная передача (25.02.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приговор бывшему судье, сбившему насмерть велосипедиста, и дело пьяного автомойщика, угробившего пассажирку такси и чужой люксовый седан.
- Не подумал, не рассчитал, не справился: почему из-за одного водителя, спровоцировавшего ДТП с несколькими машинами, пострадавшие автовладельцы не могут возместить ущерб, и о чем фантазируют представители страховой?
- Сила, скорость (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597F7F8C7C703543E64E0DF06506248331D6682D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702499   (115686) от 25.02.2024
-
-Without Me - Revelations (2022) Deluxe Edition, 2024, Without Me [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Against The Storm [00:04:42]
-02. Follow The Sun [00:03:39]
-03. Restart [00:03:55]
-04. The Cycle [00:04:56](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448F3A158C2FD01007F99FC6E052B41DA8AC9765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702545   (115685) от 25.02.2024
-
-Газета | Народный совет №7 (6 февраля 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFA939F3461C9B9EDE9F91249314C74DB6E5037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702591   (115684) от 25.02.2024
-
-Kyuss - Studio Albums (4 releases) (1991-1995) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kyuss — американская стоунер-рок-группа, образованная в Палм-Дезерт, Калифорния, в 1987 году и считающаяся одним из пионеров этого жанра.1991 - Wretch
-1992 - Blues for the Red Sun
-1994 - Welcome to Sky Valley
-1995 - ... And the Circus Leaves TownЖанр: Stoner RockПродолжительность: 04:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93F25AEA29F1A18F38064095A3A9A56D4AB36F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702496   (115683) от 25.02.2024
-
-Журнал | РИТМ Машиностроения №7 (2023) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115683.jpg" />
-</div>
-
-
-###  Подробнее
-
-«РИТМ Машиностроения» – специализированный журнал по оборудованию, оснастке, комплектующим, инструменту. Цели издания: Обеспечивать читательскую аудиторию наиболее полной информацией в области обрабатывающего оборудования. Отображать тенденции развития станкоинструментальной отрасли. Освещать вопросы производства, покупки, продажи, модернизации, ремонта, обслуживания (   Читать дальше...   )Жанр: Журнал по машиностроениюИздательство: ООО «ПРОМЕДИА»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D91031BC337CA9ECEA0C887CDD4E8D4F8FB35B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702659   (115682) от 25.02.2024
-
-Public Image Limited - End Of World (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penge (3:06)
-02. End Of The World (5:29)
-03. Car Chase (3:48)
-04. Being Stupid Again (4:34)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E160652DA6DFB0A75A9FD3FE3C075B9C077B793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702453   (115681) от 25.02.2024
-
-Ким Джи-ён, 1982 года рождения / 82nyeonsaeng Kim Ji-yeong / Kim Ji Young Born 1982 (2019) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ким Джи-ён 1982 года рождения — обычная женщина. Она следовала всему, что требовало от неё общество: закончила школу, устроилась на работу, вышла замуж, родила. В один прекрасный день Джи-ён начинает терять саму себя и примерять личины других людей.Производство: Корея Южная / Lotte EntertainmentЖанр: драмаРежиссер: Ким До-ёнАктеры: Чон Ю-ми, Кон Ю, Ким Ми-гён, Чон Гук-хян, Ли Хэ-ун, Пак Сон-ён, Ли Бон-нён, Ким Сон-чхоль, Ли Оль, Е Су-джонПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 01:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EEFBEB3EB2BAEA4A926CC7E0FDFED4F7633357A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702543   (115680) от 25.02.2024
-
-Yes - Drama (1993 (1980)) [FLAC 24/192|Lossless|tracks] <Prog Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-01 Machine Messiah
-02 White Car
-03 Does It Really Happen?(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22259174722198FBDA1B17E0E78CA4C4919794A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702456   (115679) от 25.02.2024
-
-Ким Джи-ён, 1982 года рождения / 82nyeonsaeng Kim Ji-yeong / Kim Ji Young Born 1982 (2019) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ким Джи-ён 1982 года рождения — обычная женщина. Она следовала всему, что требовало от неё общество: закончила школу, устроилась на работу, вышла замуж, родила. В один прекрасный день Джи-ён начинает терять саму себя и примерять личины других людей.Производство: Корея Южная / Lotte EntertainmentЖанр: драмаРежиссер: Ким До-ёнАктеры: Чон Ю-ми, Кон Ю, Ким Ми-гён, Чон Гук-хян, Ли Хэ-ун, Пак Сон-ён, Ли Бон-нён, Ким Сон-чхоль, Ли Оль, Е Су-джонПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 01:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9511232E951A0921C824A2BFE3F60BCB1AC036EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702473   (115678) от 25.02.2024
-
-Анастасия Эрн | Кера. Землянка на десерт (2024) [MP3, Ксения Большакова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятные космические приключения, атмосфера академии и внеземная, страстная любовь!
-
-Первая книга в цикле «Кера».
-(   Читать дальше...   )Жанр: Космическая фантастика, Любовно-фантастические романыИздательство: Аудиокнига (AСТПродолжительность: 11:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C322D8A9E4B536E6ADCD4378AEC5C335FABB956A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702536   (115677) от 25.02.2024
-
-Чудо техники с Сергеем Малозёмовым (24.02.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что привлекает людей в микродомах? Насколько они финансово выгодны и не вредят ли здоровью?
- Горе от ума! Как так выходит, что некоторые «умные» весы с анализом состава тела обманывают пользователей? Стоит ли верить их показателям? Чем различаются модели разных ценовых категорий, и какая начинка скрывается за большой стоимостью?
- Обогреватель со встроенным увлажнителем (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DF5A55FC191F72C4DB9033002BB5F982413718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702484   (115676) от 25.02.2024
-
-Marian McPartland - Just Friends (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeepers Creepers (with Tommy Flanagan) [5:01]
-02. I've Got a Crush on You (with Tommy Flanagan) [6:06]
-03. Some Time Ago (with Renee Rosnes) [5:29]
-04. It's You or No One (with Renee Rosnes) [5:18](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFA722447CE40BE206E431A75AE02B3585A9A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702503   (115675) от 25.02.2024
-
-Blue Mitchell - Boss Horn (1966) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Millie [6:16]
-02. O Mama Enit [5:34]
-03. I Should Care [7:31]
-04. Rigor Mortez [6:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D1B9310219B36B2E9881EEC3053774728D0293
 ```
 
 https://mybot314.ru/tekegram_catalog/

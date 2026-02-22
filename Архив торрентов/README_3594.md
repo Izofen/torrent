@@ -1,3 +1,29 @@
+###  Публикация: 946619   (424822) от 14.10.2015
+
+Practical English Usage 1.0.9 [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Practical English Usage – мировой бестселлер и серьезный грамматический справочник, помогающий иностранным ученикам и преподавателям справиться с типичными сложностями английского языка. Доступный теперь в виде мобильного приложения, он позволяет мгновенно и удобно ориентироваться среди более чем 600 тем. Это приложение создано экспертами Oxford University Press, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 6 января 2014Разработчик: Oxford University Press ELT.Поддерживаемая ОС: Android 2.2 +Жанр: Книги и справочникиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459CA1B3023D328C457517FA72E4D0D3EC26B1A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946593   (424813) от 14.10.2015
 
 TeamSpeak 3 Client 3.0.18.1 [Multi/Ru]
@@ -665,34 +691,6 @@ O&O Defrag Professional 19.0 Build 99 RePack by D!akov [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:826E59148552A252BF1512A3D1531DF408D9AE74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 140555   (424710) от 14.10.2015
-
-Neotropic (Small Fish With Spine) - Discography 11 Releases (1995-2011) [MP3|V3-320 kbps]<Leftfield, IDM, Breaks, Downtempo, Ambient, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Horse Trainer (07:58)
- 02. Patience (04:08)
- 03. Farewell / Home (16:09)Жанр: Leftfield, IDM, Breaks, Downtempo, Ambient, Experimental |Продолжительность: 00:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799E3E9E6B412F0DE8D4E352A8922B52F5580C54
 ```
 
 https://mybot314.ru/tekegram_catalog/

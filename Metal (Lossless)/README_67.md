@@ -1,3 +1,291 @@
+###  Публикация: 1497174   (866600) от 21.09.2021
+
+Amorphis - Live At Helsinki Ice Hall (2021) 2xCD [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amorphis — финская англоязычная метал-группа. Группа была основана в 1990 году Яном Рехбергером и Эсой Холопайненом.
+
+Bass – Olli-Pekka Laine
+Crew - Logistics / Merch – Raapale Osolanus(   Читать дальше...   )CD - 1:
+01. The Bee
+02. Heart Of The Giant
+03. Bad Blood(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEEE101B6CAEB5A2AB6D7D083D273AD51697518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497077   (866590) от 21.09.2021
+
+Insomnium - Argent Moon (2021) EP [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866590.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Conjurer
+2. The Reticent
+3. The Antagonist
+4. The WandererЖанр: Melodic Death MetalПродолжительность: 00:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484BF85814CEE99563B308E6F70688E82FED94D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767520   (866398) от 17.03.2014
+
+Metsatoll - Karjajuht (2014) [FLAC|Lossless]<Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Külmking
+02. Lööme Mesti
+03. See On See Maa
+04. Must Hunt
+05. Terasest Taotud Maa
+06. Öö
+07. Tõrrede Kõhtudes
+08. Metsalase Veri
+09. Surmamüür
+10. Mullast(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55DE53F3C25B6C8EA1567A2EBA9A5B51639BF2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767571   (866394) от 17.03.2014
+
+Valkyria - Mystical Mass (1993) [FLAC|Lossless]<Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1		 Introduction
+2		 Fear Of The Night (Beast)
+3		 Scream From Hell
+4		 In The Heart Of Darkness
+5		 Ravens
+6		 Mystical Mass
+7		 Gala Drama
+8		 Valkyria (Instr.)
+9		 The Hanged Men Dance
+Bonus Tracks(   Читать дальше...   )Жанр: Speed MetalПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2B2E000D4CB82D140842E5F5AEE15FE2726F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767524   (866301) от 17.03.2014
+
+Stamina - Perseverance (2014) [FLAC|Lossless]<Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Higher
+02. Breaking Another String
+03. I'm Alive
+04. Just Before The Dawn
+05. Perseverance
+06. Naked Eye
+07. Unbreakble
+08. Wake Up The Gods
+09. Winner For A DayЖанр: Progressive Power MetalПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1455805B1C9892F6F75DD7C3110D6644A209A756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767473   (866290) от 17.03.2014
+
+Astral Domine - Arcanum Gloriae (2014) [WavPacK|Lossless]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Arcanum Gloriae (intro)
+02. Holy Knights
+03. King of the North
+04. Moonlight
+05. Tale of the Elves and Pain
+06. Where Heroes Die (Feat. Fabio Lione)
+07. I am the King
+08. My Lord
+09. Welcome to my Reign
+10. Falsi Dei (Feat. Giuseppe “Ciape” Cialone)Жанр: Symphonic Power MetalПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB671A3AAE4661825C87C1BB94C50944B886ADC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874070   (864981) от 02.03.2015
+
+The Agonist - Eye of Providence (2015) [FLAC|Lossless]<Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Gates of Horn and Ivory
+02. My Witness, Your Victim
+03. Danse Macabre
+04. I Endeavor
+05. Faceless Messenger(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B780B579078C020A7D6C3D042E4D1823B68B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497423   (864959) от 22.09.2021
+
+Wolves In The Throne Room - Primordial Arcana (2021) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain Magick
+02. Spirit Of Lightning
+03. Through Eternal Fields
+04. Primal Chasm (Gift Of Fire)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8250C6A8C202D4AE60F45355E56207A1FDF97BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497480   (864947) от 22.09.2021
+
+Joe Stump - Diabolical Ferocity (2021) [FLAC|Lossless|WEB-DL|tracks] <Neo Classical Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignition (01:58)
+02. Burn It Down (04:40)
+03. King of the Underworld (04:24)
+04. The Snake Charmer's Fate (06:39)(   Читать дальше...   )Жанр: Neo Classical Metal, InstrumentalПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B2497BF986C704596B1469BB2725C9D95556FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999318   (864913) от 22.03.2016
 
 Arraigo - Fronteras y Horizontes (2012) [FLAC|Lossless|image + .cue] <Folk Metal>
@@ -507,264 +795,6 @@ Wanton Attack - Wanton Attack (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7727B2B65B872AAF7B12EE416BFA4C9CB108F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497672   (863167) от 23.09.2021
-
-Obscenity - Summoning The Circle (2018) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Used And Abused
-02. Feasting From The Dead
-03. Infernal Warfare
-04. Dreadfully Embraced(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7D2365C36AA63D01C2C7090335BA27286EDF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497688   (863166) от 23.09.2021
-
-Kankar - Dunkle Millennia (2021) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gier
-02. Krater In Sarx
-03. Zerfall Des Lichts
-04. Vergeltung(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0D6DF591B2F88667F54EF24127318C136734E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497714   (863165) от 23.09.2021
-
-Flame, Dear Flame - Aegis (2021) [FLAC|Lossless|image + .cue] <Epic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Millennial Heartbeat (Pt.I)
-02. The Millennial Heartbeat (Pt.II)
-03. The Millennial Heartbeat (Pt.III)
-04. The Wolves and The Prioress (Pt.I)(   Читать дальше...   )Жанр: Epic Doom MetalПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA3929ADD2A8A84C5D2B3AFDE67143C2B98FDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497685   (863163) от 23.09.2021
-
-Metal Church - From The Vault (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead On The Vine (New Track)
-02. For No Reason (New Track)
-03. Conductor (Redux) (New Track)
-04. Above The Madness (New Track)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C7935DE7B4EABA42C42D037D94BFE4B9B8F201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497514   (863161) от 23.09.2021
-
-Insomnium - Heart Like A Grave (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wail Of The North
-02. Valediction
-03. Neverlast
-04. Pale Morning Star(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A353C8721092EF02979FD2EDA8C057E4BFA5F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497704   (863155) от 23.09.2021
-
-Rage - Resurrection Day (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memento Vitae (Overture)
-02. Resurrection Day
-03. Virginity
-04. A New Land(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9F7EA1F07293218785E900932DAFCA4AF5A8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999843   (863142) от 23.03.2016
-
-Thornbridge - What Will Prevail (2016) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Intro
-02.Blow Up the Gates of Hell
-03.The Dragon's Reborn
-04.What Will Prevail(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2E031F4B41FD6CA2939086574BBCAA78387F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874305   (863130) от 03.03.2015
-
-Dew-Scented - Incinerate (2007) [FLAC|Lossless]<Thrash Metal/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. ExordiumТип издания: АльбомЖанр: Thrash Metal/Death MetalПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE7CB84314BEA7E319CD5373C8D838413B7D302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874477   (863122) от 03.03.2015
-
-Bonjour Tristesse - Par Un Sourire (2011) [FLAC|Lossless] <Depressive Black, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий депрессив-блек-метал-проект Bonjour Tristesse образовался зимой 2008 года. Единственным участником является музыкант Nathanael, участвовавший также в таких проектах, как Agrypnie, Thränenkind и Heretoir (в роли сессионного басиста на концертах). Сама же фраза "Bonjour Tristesse" переводится с французского как "привет, печаль".1. Tu Es Inscrite Dans Les Lignes Du Plafond (Histoire d' Isabelle Partie Une)
-2. Wieder Allein
-3. Mit Einem Lächeln
-4. Freiheit(   Читать дальше...   )Жанр: Depressive Black, Post-Black MetalПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2399FDA5837BD425BB72D0C2FDFD34B0B07BE225
 ```
 
 https://mybot314.ru/tekegram_catalog/

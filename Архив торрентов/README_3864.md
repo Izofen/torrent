@@ -1,3 +1,29 @@
+###  Публикация: 576445   (363953) от 17.11.2012
+
+Artworks by Piero di Cosimo [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by Piero di Cosimo
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E0D2BEEA2E9BD60B40A630684D63FC0F3F0CA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576653   (363949) от 17.11.2012
 
 MitiS - Influential Past (2012) [MP3|320 кб/с]<Dubstep>
@@ -660,32 +686,6 @@ Any Video Converter Ultimate 6.0.4 Portable by PortableAppZ [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02AE3E38A402549A8E8C869A6ACE146C7AA2198C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255579   (363825) от 18.10.2018
-
-Pepakura Designer 4.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет программ, адресованных моделистам, которые изготавливают свои модели из бумаги. Программы предназначены для просмотра, создания и редактирования выкроек (разверток) бумажных моделей. Выкройки генерируются на основе готовых моделей, ранее созданных в программах трехмерного моделирования. Поддерживаются многие популярные форматы: 3DS, DXF, MQO, LWO, OBJ, STL, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B0352BE7D22EFD3C561A0617F76E83008473A47
 ```
 
 https://mybot314.ru/tekegram_catalog/

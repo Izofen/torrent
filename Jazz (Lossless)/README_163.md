@@ -1,3 +1,32 @@
+###  Публикация: 1150897   (578135) от 16.07.2017
+
+The David Hazeltine Trio - The Jobim Songbook in New York (2007) Chesky Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamer [06:45]
+02. Once I Loved [06:31]
+03. Meditation [05:27]
+04. Quiet Nights [04:38](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C45A2B8C6703E84EC5EB72F4F9816560AF5A663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150892   (578133) от 16.07.2017
 
 Gerry Mulligan meets Scott Hamilton - Soft Lights & Sweet Music (1986) 2006, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -731,35 +760,6 @@ Caroline - Dog Eats Cat Eats Mouse (2015) [FLAC|Lossless|image + .cue] <Contempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BD7B9711007A8035A3E613CC9FDCC33B52CDAB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043167   (574798) от 15.08.2016
-
-Art Ensemble Of Chicago - Full Force (1980) ECM[FLAC|Lossless|image + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Magg Zelma [19:51]
- 02.Care Free [00:51]
- 03.Charlie M [09:19]
- 04.Old Time Southside Street Dance [05:13](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80DC028C2EEBD84DF62444DABF251FDFF74B793
 ```
 
 https://mybot314.ru/tekegram_catalog/

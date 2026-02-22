@@ -1,3 +1,32 @@
+###  Публикация: 1413060   (411901) от 02.10.2020
+
+VA - Individual Collection Vol.9 (2020) [MP3|320 Kbps] <Trance, Big Room, Drum & Bass>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5Beat - Tesla (Original Mix)
+02. 5Beat & Nuaro - Overpressure (Original Mix)
+03. 5Beat & Trivia - Universal Language (Original Mix)
+04. Alex Kudryavtsev - Alienation (Original Mix)(   Читать дальше...   )Жанр: Trance, Big Room, Drum & BassПродолжительность: 03:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51770614642E3A527015A0FE4D3690EE5987457C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252172   (411312) от 04.10.2018
 
 VA - Suanda Autumn Vol.5 (2018) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - The Sound Of Progressive Trance Vol.15 (2022) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CB89877F165503798F7C2A257BE5B3BCC5E54FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174712   (381260) от 17.10.2017
-
-VA - Suanda Classics, Vol. 2 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christina Novelli & Roman Messer – Frozen (Alex M.O.R.P.H. Remix) (06:57)
-02. Aurosonic & Nicol Cache – Tell Me Why (Mhammed El Alami Radio Edit) (06:05)
-03. Tiff Lacey & Nomosk – The Promise (06:45)
-04. Luke Terry – Magellan (06:46)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9514A9E79564F7C836632C5F5BBD6727D72DEE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

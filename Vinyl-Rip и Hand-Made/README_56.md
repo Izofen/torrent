@@ -1,3 +1,177 @@
+###  Публикация: 1598370   (161775) от 20.12.2022
+
+HIM - Studio Albums (10 releases) (1997 - 2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Rock, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161775.jpg" />
+</div>
+
+
+###  Подробнее
+
+HIM — финская рок-группа, созданная в 1991 году вокалистом Вилле Вало, гитаристом Микко Линдстремом и басистом Микко Паананеном. Первоначальное название коллектива было His Infernal Majesty (Его дьявольское Величество), но его заменили аббревиатурой HIM, когда начались обвинения в пропаганде сатанизма. Некоторое непродолжительное время во время гастролей по США и (   Читать дальше...   )1997 - Greatest Lovesongs Vol. 666
+2000 - Razorblade Romance
+2001 - Deep Shadows And Brilliant Highlights
+2003 - Love Metal(   Читать дальше...   )Жанр: Gothic Rock, Gothic MetalПродолжительность: 10:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE846906E176701A8A43C083589F4D1D55E0035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674268   (161365) от 05.11.2023
+
+Vektor - Studio Albums (4 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vektor — американская прогрессив/трэш-метал группа из Темпе, основанная в 2002 году. Тексты группы сосредоточены вокруг научных, философских и футуристических тем.2009 - Black Future
+2011 - Outer Isolation
+2016 - Terminal Redux
+2021 - Activate (Single)Жанр: Progressive Thrash MetalПродолжительность: 03:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD5B0B41551BF23A4268344AD8771A4A8319377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674569   (160861) от 06.11.2023
+
+DGM - Momentum (2013) Reissue, 2014, Night Of The Vinyl Dead Records [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160861.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Reason
+A2. Trust
+A3. Universe
+B1. Numb(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BE03017CA1294C04BF4CA13EA7798BADCDA914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674546   (160839) от 06.11.2023
+
+David Coverdale - Snakebite (1978) [WavPack|24/192|image + .cue|Vinyl-Rip] <Blues Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On
+02. Bloody Mary
+03. Ain't No Love In The Heart Of The City
+04. Steal Away(   Читать дальше...   )Жанр: Blues Hard RockПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A0E81DF4E721EBDA49C8CD14E39E2B1CAB9954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674507   (160835) от 06.11.2023
+
+David Coverdale - Whitesnake (1977) Japan Edition [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Blues-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady
+02. Blindman
+03. Goldie's Place
+04. Whitesnake(   Читать дальше...   )Жанр: Hard Rock, Blues-rockПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0DB99FE15017F7B8CD88B777045DA6B307DFBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674575   (160800) от 06.11.2023
+
+ABBA - Voyage (2021) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, EuroDance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160800.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:14] 01. I Still Have Faith In You
+[2:52] 02. When You Danced With Me
+[3:13] 03. Little Things
+[4:01] 04. Don't Shut Me Down(   Читать дальше...   )Жанр: Pop, Dance, EuroDanceПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ADC408404D6B33744A367B7CA34F4C56E9C1BA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674577   (160770) от 06.11.2023
 
 ABBA - Gold (Greatest Hits) 40th Anniversary Edition [3 CD] (1992/2014) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, EuroDance>
@@ -578,180 +752,6 @@ Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:728CC25AEF93BBB5964D3C2875ACBAA18C051813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968277   (155725) от 23.12.2015
-
-Mylene Farmer - Interstellaires (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synth-Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellaires (3:11)
-02. Stolen Car (en duo avec Sting) (3:23)
-03. A rebours (4:10)
-04. C'est pas moi (3:41)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2C047B00BD522C8EEB1D6CC7EE29E93D48E48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677142   (153594) от 16.11.2023
-
-Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153594.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. In Mist She Was Standing (14:10)
-A2. Under the Weeping Moon (09:51)
-B1. Silhouette (03:10)
-B2. Forest of October (13:03)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45B9C244FF72A4FA6B123411546ABA46B313364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347227   (153359) от 22.12.2019
-
-Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upconvert]
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Drummer Boy 4:23
-02. White Christmas 3:59
-03. Feliz Navidad 3:07
-04. Jingle Bells 2:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CBEF722B966FB86EDD8764BA3E04922802AD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968539   (153215) от 24.12.2015
-
-Foreigner - Inside Information (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Turns To Stone (4:34)
-02. Can't Wait (4:32)
-03. Say You Will (4:16)
-04. I Don't Want To Live Without You (4:55)(   Читать дальше...   )Производство: Atlantic Recording - 781 808-1Жанр: RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822ECB3340E14E6102E47DF3AA1A5400E5F4E39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854276   (152320) от 28.12.2014
-
-Blue Oyster Cult - The Revolution By Night (1983)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152320.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Take Me Away (4:32)
-A2. Eyes On Fire (3:56)
-A3. Shooting Shark (7:10)
-A4. Veins (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3CE59B9AFAE8E5F77E1AC279E587E1EC22CE97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672832   (152209) от 17.10.2025
-
-Carach Angren - Studio Albums (7 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carach Angren — нидерландская симфо-блэк-метал-группа, образованная в 2003 году. Отличительной особенностью коллектива является концептуальность каждого студийного альбома, где лирическая составляющая основывается на хоррор-тематике: легендах о призраках, различных мифах, сказках и рассказах.2008 - Lammendam
-2010 - Death Came Through A Phantom Ship
-2012 - Where The Corpses Sink Forever
-2015 - This Is No FairytaleЖанр: Symphonic Black MetalПродолжительность: 05:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B350C19B51CD0A1C56FB5BD10DB67E2684986D
 ```
 
 https://mybot314.ru/tekegram_catalog/

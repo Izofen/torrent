@@ -1,3 +1,38 @@
+###  Публикация: 604362   (996543) от 17.01.2013
+
+VA - Клубные Новинки from Primemusic Vol. 4 (2013) [MP3|128-320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. DJane Thunderpussy feat. Tasos Fotiadis - Mind & Soul (Radio Edit)
+2. Glorya - Habibi (Electro Version Extended)
+3. Pitch, Corazza feat. Jack Meille - My Sharona (Club Mix)
+4. Tim Royko feat. Mike Leon - We Are One (Club Mix)
+5. Pit Bailay feat. Tosch - Put Your Hands Up (Club Mix )
+6. Kraak & Smaak feat. MC Sebastian - Hit The Club (Original Mix)
+7. Poor & Rich - What Color Is Your Bra (Original Vocal Mix)
+8. DJane Housekat feat. Rameez - All The Time (Groove Coverage Remix)
+9. Audien - Wayfarer (Original Mix)
+10. DJane Housekat feat. Rameez - All The Time (Bodybangers Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335D2D161427864B5A83CB129BFF46EC9474CBB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603221   (996542) от 17.01.2013
 
 Y - Horizonte de Sucesos (2013) [MP3|320 кб/с]<Post-punk, ColdWave>
@@ -763,35 +798,6 @@ Villagers - Awayland (2013) [FLAC|Lossless]<Indie-Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604071   (996504) от 17.01.2013
-
-Пол Харпер | Пасифик-Хайтс [2012] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Опасный человек, который носит маску "идеального любовника".
-Он угадывает мельчайшие оттенки настроения женщины. Он восхищает своих подружек и... вызывает подозрения у психолога Веры Лист, чьи клиентки стали его любовницами и чья жизнь оказывается в опасности.
-Вера сразу же понимает - с этим мужчиной что-то не так, он не просто обычный Казанова, за которого выдает себя. Но кто он? Маньяк, выжидающий удачный момент для убийства. Или психопат, способный свести человека с ума? И откуда у него столь безупречное знание женской психологии?
-Вера просит провести расследование бывшего сотрудника спецслужб Мартена Фейна - лучшего с США специалиста по распутыванию дел, не подлежащих огласке...Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D0AEC7AECB0F46C51869F08402644981FEAD64
 ```
 
 https://mybot314.ru/tekegram_catalog/

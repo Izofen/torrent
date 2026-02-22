@@ -1,3 +1,90 @@
+###  Публикация: 1033126   (640202) от 10.07.2016
+
+Royal Southern Brotherhood - The Royal Gospel (2016) [MP3|320 Kbps] <Blues, Gospel Southern Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where There's Smoke There's Fire (04:39)
+02. I've Seen Enough To Know (05:03)
+03. Blood Is Thicker Than Water (06:05)
+04. I Wonder Why (04:22)(   Читать дальше...   )Жанр: Blues, Gospel Southern RockПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71D6F752FB528E6ADC6E1CE177B43E4F65B847E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033251   (640108) от 10.07.2016
+
+VA - Chilled Jazz Vol.2 (2016) [MP3|320 Kbps] <Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Van - Luxury Of Asia (7:24)
+02. Openzone Bar - Where No One Can Hear You (4:45)
+03. Luca Fioretti - Carry On Being Yourself (5:31)
+04. Don Shiva - News (4:17)(   Читать дальше...   )Производство: Floating MusicЖанр: Jazz, LoungeПродолжительность: 01:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79E5723677576E757AC415BC8DA9DE7582B1CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033369   (640100) от 10.07.2016
+
+Layla Zoe - Breaking Free (2016) [FLAC|Lossless|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640100.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Backstage Queen
+2.Why Do We Hurt The Ones We Love
+3.Wild One
+4.Highway Of Tears(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5204E028EC7624D0214453108A0320EA70163E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907391   (639933) от 11.06.2015
 
 Andrew Hill - Dance With Death (2012) [FLAC|Lossless]<Jazz, Post-Bop, Modern Creative>
@@ -670,93 +757,6 @@ Ken McIntyre - Year Of The Iron Sheep (1962) Remaster, 2010, United Artists Reco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B06B11E2A16CF5EFBC79D5098949960A6718964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907568   (638269) от 12.06.2015
-
-Jeff Richman - Like That (2010) [FLAC|Lossless]<Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like That [05:42]
-02. In Spirited [05:32]
-03. Small Kid Time [05:42]
-04. Awful Pretty [06:31](   Читать дальше...   )Жанр: Jazz, Jazz FusionПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8BCD30F220881A5F7FDD30F9809D0C4D031C995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033514   (638242) от 11.07.2016
-
-Omar Hakim & Rachel Z - The Trio Of Oz (2010) Ozmosis Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Angry Chair [06:09]
- 02.Sour Girl [05:08]
- 03.Det Tar Tid [04:09]
- 04.I Will Possess Your Heart [06:38](   Читать дальше...   )Жанр: Post-Bop, Smooth JazzПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FBD31859DBEB625E1BEF295636AF2EBA7AA902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907591   (638204) от 12.06.2015
-
-Johnny Tanner - Juke Joint Rambler (2015) [MP3|320 кб/с]<Chicago Blues, Harmonica Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got To Go (Feat. Rusty Zinn) (3:15)
-02. Lovey Dovey (Feat. Jr. Watson) (2:41)
-03. Searchin' The World Over (Feat. Jr. Watson) (3:48)
-04. Bring Her Back To Me (Feat. Jr. Watson) (3:11)(   Читать дальше...   )Жанр: Chicago Blues, Harmonica BluesПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD604A8D1055CCF02D79F8F95DAD9F7BAE26B1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

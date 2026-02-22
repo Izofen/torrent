@@ -1,3 +1,90 @@
+###  Публикация: 1636252   (241026) от 29.05.2023
+
+Fred Ventura - Rewind Of Change (Italoconnection Reworks) (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_241026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Of Change
+02. Heartbeat
+03. Lost In Paris
+04. The Years (Go By)Жанр: Italo-DiscoПродолжительность: 00:21:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD28D96A3A1414F4E88FEF3BB0EBF6875F089D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548335   (240980) от 02.05.2022
+
+VA - Mastermix Crate 034: Old Skool Fusion (2022) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apollo Four Forty - Stop The Rock (@440 Original)
+02. Bomfunk MC's - Freestyler (Clean)
+03. Chemical Brothers - Setting Sun (Radio Edit)
+04. Faithless - Mass Destruction (Single Mix)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:38:07 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36095BDA068900C1470FE96AB89E508591B040E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626053   (240959) от 13.04.2023
+
+VA - 80s Lost and Found (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Ha - The Sun Always Shines on T.V.
+02. Tina Turner - Private Dancer
+03. Duran Duran - Save a Prayer
+04. Fleetwood Mac - Big Love (2018 Remaster)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 05:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59EA7ECC02E965303DAE2420093EB030D6C32B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547782   (240958) от 02.05.2022
 
 Адреналин - Первая любовь (1999) [FLAC|Lossless|tracks + .cue] <Pop, Euro House>
@@ -657,93 +744,6 @@ VA - 100 Radio Hits - The Sound Of My Life (2020) [5CD Box Set] [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E6A4C4E4CA68B346FADECA7E129C1F7B0C3E00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627757   (239571) от 20.04.2023
-
-VA - ZYX Italo Disco New Generation Vol. 5 (2014) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miko Mission - Universal Feeling (Vocal Version)
-02. Boris Zhivago - Love In Russia (ZYX Extended Mix)
-03. Siberian Heat - Pick Up The Phone (ZYX Summer Mix)
-04. TQ  Feat. Ken Laszlo & Fred Ventura - In The Night (Extended)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE504609573E8B54CC3F30F2DCE720BA34958AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635864   (239492) от 27.05.2023
-
-GSPD - СПОРТ РЕЖИМ: КРАСНЫЙ СВЕТ (2023) [MP3|320 Kbps] <Pop, Rave, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239492.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ПЕСЕНКА ДЛЯ СЛЭМА
-2. ПОСЛЕДНИЙ ГЕРОЙ
-3. RUSSIAN MAFIA
-4. SAY NO MORE(   Читать дальше...   )Жанр: Pop, Rave, DanceПродолжительность: 00:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB82323C30384BB2343EB6E9042A6518226FC7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627409   (239412) от 19.04.2023
-
-VA - Bravo Hits 80's (2021) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Disco, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239412.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Queen - Radio Ga Ga
-02. Irene Cara - Flashdance... What A Feeling
-03. Culture Club - Do You Really Want To Hurt Me(   Читать дальше...   )Жанр: Synthpop, Dance, Disco, RockПродолжительность: 01:18:22 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53CEC7CC3F3511D4FBC0CDA8BF1387FB2038DAD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

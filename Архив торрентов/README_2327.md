@@ -1,3 +1,29 @@
+###  Публикация: 1132695   (700769) от 09.05.2017
+
+K-Lite Codec Pack Update 13.1.5 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700769.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - в различных вариантах содержит все самые популярные кодеки для проигрывания и кодирования видео (кроме версии Basic). QuickTime Alternative и Real Alternative являются дополнительными пакетами для проигрывания соответственных форматов и содержат основные компоненты от официальных проигрывателей.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BBB0CBF72228A61BE8E6EF7FA64D0593D67CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 673112   (700738) от 26.06.2013
 
 Havok - Unnatural Selection (2013) [FLAC|Lossless]<Thrash Metal>
@@ -671,35 +697,6 @@ MX5 - новая версия веб-браузера от Maxthon для Window
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:266E8652A51EE00073797C6D9371B1DD946ECD47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220886   (700529) от 21.04.2018
-
-The Upbeats & Truth - The Pack (2018) EP [MP3|320 Kbps] <Electronic, Future Beats, Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700529.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Pack (03:52)
-2. Dream Again (feat. Lelijveld) (04:26)
-3. Feral (03:57)
-4. Still Lost (feat. Khiva) (04:55)Жанр: Electronic, Future Beats, Drum & BassПродолжительность: 00:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21537A0B0E3E8B2FBF21576DB9E74515B0B23796
 ```
 
 https://mybot314.ru/tekegram_catalog/

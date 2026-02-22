@@ -1,3 +1,32 @@
+###  Публикация: 1223894   (669539) от 07.05.2018
+
+Kimbra - Primal Heart (2018) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Good War (03:38)
+02. Top Of The World (03:25)
+03. Everybody Knows (03:44)
+04. Like They Do On The TV (04:19)(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Soul, ElectronicПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4D5795272509122114D3CC2B096FCD568113D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137033   (669215) от 25.05.2017
 
 Dionne Warwick - The Real... Dionne Warwick (2015) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Soul>
@@ -718,35 +747,6 @@ Michael Jackson - Thriller 25 (1982) Super Deluxe Edition, Reissue, Remastered, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:815528CFDF193ED80D457276467C3AD6EFE48FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226766   (653869) от 22.05.2018
-
-VA - Greatest Feelgood Hits... Ever. Volume 1 (2004) [APE|Lossless|image + .cue] <Pop, Soul,  Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Take That – Everything Changes
-02 Lighthouse Family – Lifted
-03 Kylie Minogue – Some Kind Of Bliss
-04 Five – Keep On Movin'(   Читать дальше...   )Жанр: Pop, Soul,  ElectronicПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307694960D3624573442467EA8D107872DDD3818
 ```
 
 https://mybot314.ru/tekegram_catalog/

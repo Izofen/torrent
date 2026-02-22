@@ -1,3 +1,32 @@
+###  Публикация: 1378705   (840692) от 28.04.2020
+
+Nicholas Gunn - Pacific Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840692.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Into the Vastness	04:55
+2. And I	03:13
+3. Sailing	04:25
+4. Chasing the Light	04:23(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401077FD743A38CC3E58D74BBBC9AAFC761C1899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003472   (840196) от 05.04.2016
 
 Alan Howarth - The Dentist 1-2 / Дантист 1-2 (1996, 1998) [MP3|320 кб/с] <Score>
@@ -720,35 +749,6 @@ Gheorghe Zamfir - Golden Pan Flute Melodies (1988) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:344D4EA1D0501B412203BD1E81CA4C3C719359D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114030   (833505) от 14.03.2017
-
-Bino Dola, Luna Blanca, Fuegoitaliano - New Flamenco (2014) [MP3|320 Kbps] <Flamenco, Latin, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luna Blanca - El Dorado
-02. Fuegoitaliano - Rumba Del Sol
-03. Bino Dola - Venta De Vargas
-04. Luna Blanca - Rio Mamoré(   Читать дальше...   )Жанр: Flamenco, Latin, InstrumentalПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE14E9240E2A76465641230318FD29D710015A90
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1632248   (240684) от 09.05.2023
+
+Marcus Malone and the Motor City Hustlers - Interstate 75 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't No Telling (4:23)
+02. Can't Make It (3:50)
+03. Can't Take The Fight (3:54)
+04. Good Lovin' Angel (3:33)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29B45E3A673DC96E4F69FBC8383EE12E92922F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632247   (240681) от 09.05.2023
 
 Hurts Like Hell - In Through the Eye (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -716,35 +745,6 @@ Dan Wilson - Things Eternal (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:502DE8A5CD01230F9101AA61C62826607284914E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634869   (240191) от 23.05.2023
-
-Loveless Blue Jazz Quintet - Loveless Blue Jazz Quintet (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Bless the Child (7:10)
-02. I Wish I Knew How It Would Feel to Be Free (6:02)
-03. Our Love Is Here to Stay (4:23)
-04. Georgia on My Mind (5:40)(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1903CF34788D524A98AD89BD38E289B79912F31A
 ```
 
 https://mybot314.ru/tekegram_catalog/

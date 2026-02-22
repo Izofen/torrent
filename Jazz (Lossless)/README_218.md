@@ -1,3 +1,32 @@
+###  Публикация: 1574500   (385705) от 05.09.2022
+
+Linda Lavin - Love Notes (2020) Club 44 [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got My Eyes on You [2:35]
+02. Not a Care in the World/Shall We Dance [2:46]
+03. I Wish I Were in Love Again [3:03]
+04. I Can't Tell You Why/I Walk a Little Faster [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDA8C11FDCC56A6889F64EF1E4C824D5A4DCC12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174467   (385575) от 15.10.2017
 
 James Carter - J.C. on the Set (1994) Columbia [WavPack|Lossless|image + .cue] <Post-Bop>
@@ -716,33 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:949C526CCF4EB5D9C92A1BE05E3CAD650B763016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232618   (382849) от 09.10.2020
-
-Zoot Sims - 12 Classic Albums 1956-1962 (2015) 6CD, Enlightenment [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382849.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Zoot Swings The BluesЖанр: Mainstream Jazz, Cool, Bossa NovaПродолжительность: 07:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533CBC0DE2409E6F6FB744EE399DC36C813EA574
 ```
 
 https://mybot314.ru/tekegram_catalog/

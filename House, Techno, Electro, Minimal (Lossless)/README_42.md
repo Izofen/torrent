@@ -1,3 +1,67 @@
+###  Публикация: 827037   (451173) от 01.10.2014
+
+Scooter - The Fifth Chapter (Limited Edition) (2014) 2CD [FLAC|Lossless]<Big Room, Dubstep, Electro House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451173.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 00:58:06
+Bonus CD - 00:40:50
+
+01. T5c(   Читать дальше...   )Жанр: Big Room, Dubstep, Electro House, Trance |Продолжительность: 01:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859019086900DE7E4BBE4001F6AFBF5494223CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551884   (451106) от 25.09.2012
+
+Vista Le Vie - A Futuristic Family Film (2005) [FLAC|Lossless]<Downtempo, Future Jazz, Abstract>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_451106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский дуэт VISTA LE VIE не изобрел в музыке ничего нового. Его участники попали в причудливый мир парижского техно, но одновременно были очарованы джазом. Из сочетания мягкого и безупречного чувства ритма перкуссиониста и мелодической фантазии пианиста родился этот проект. По последней французской моде они складывают в одну корзину все, что любят, все, чем заинтересовались, все, что способно пробудить чувства или напомнить о них. Микс клавишных Rhodes, гитарных риффов, джаза, трип-хопа, цитат из футуристических ретро-фильмов, скетчей, построковых ритмов, резких звуковых эффектов. Сквозь неторопливый тягучий бит сочатся звуки трубы, гитар и голоса приглашенных гостей, среди которых Barbara Silverstone и GENERAL ELECTRICS. В итоге слушатель отправляется в кинематографическое путешествие, которое не поддается никакой жанровой классификации. AIR встречают Бертрана Бургала - почему бы и нет?01. That Strange Rhythm (feat. Barbara Silverstone) :: 04:22
+02. Beauty for Ashes :: 02:39
+03. First Class - (Black Joy version) (feat. General Electrics) :: 05:17
+04. Refuse, Resist :: 05:08
+05. Seven Thousand and Three Hundred Days (feat. Grand National) :: 04:22
+06. A Curse She Cannot Win (feat. Barbara Silverstone) :: 07:03
+07. Kids With Gloves :: 03:45
+08. For You and You (feat. Ishmael Reed) :: 06:31
+09. Tanzanite :: 05:08
+10. Crime in Stereo (feat. Black Sifichi) :: 03:53(   Читать дальше...   )Жанр: Downtempo, Future Jazz, AbstractФормат: CD, Album, DigipakПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322163   (450821) от 28.08.2019
 
 VA - Kunst Musik V2 (2018) Kunst Musik [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
@@ -693,64 +757,6 @@ VA - Sexy Deep Passion (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5086D9350332E57DADCA6833AE9539F1F4F197AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249570   (433596) от 24.09.2018
-
-Vėjopatis - Belaukiant Saules (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sielu Vainikai (08:44)
- 02. Ledo Asara (07:50)
- 03. Dievo Sodas (05:56)
- 04. Plauku Stygomis (04:34)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Techno, AcidПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCFB5CFA382B587C072EF8BAB8A3321980DD045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063777   (432686) от 17.10.2016
-
-Rauschhaus - The End Of All Things (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End Of All Things [04:53]
-02. The End Of All Things (Franz Alice Stern remix) [05:48]
-03. Afraid Of Us [05:21]
-04. The Beginning Of Nothing [05:24]Жанр: Deep House, Tech HouseПродолжительность: 00:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC0CA14F8E310A6B96DC9F52054E1AE985B9E98
 ```
 
 https://mybot314.ru/tekegram_catalog/

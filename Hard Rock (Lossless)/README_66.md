@@ -1,3 +1,32 @@
+###  Публикация: 1620577   (249390) от 20.03.2023
+
+Transworld Identity - Seven Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Must Burn
+02. Play & Pretend
+03. I'm Such A Liar
+04. Part Maroon, Part Indigo(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A542A7DE2912EEB26A6B16595262F8E29FE74373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491956   (248544) от 07.05.2012
 
 Tommy Bolin and Friends - Great Gypsy Soul (2012) [FLAC|Lossless]<Hard Rock>
@@ -727,35 +756,6 @@ Hardline - Double Eclipse (1992) Japan [FLAC|Lossless|image + .cue] <Melodic Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FC170A5415B44029E90A400EFCE681BF63BFC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624764   (244853) от 08.04.2023
-
-Viva - Das ist die Wahrheit (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Punk Rock, Deutschrock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alles wird gut [00:03:32]
-02. Die Wahrheit über uns [00:03:08]
-03. Wir sind unser Ziel [00:03:44]
-04. Immer erst am Anfang [00:03:48](   Читать дальше...   )Жанр: Hard Rock, Melodic Punk Rock, DeutschrockПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A59A1D6585900A1875FE67C36C6542E48FE9CCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 464767   (96056) от 09.03.2012
+
+VA - Горячая Танцевальная Сенсация (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блестящие - Милый мой
+02. Глюк'oza - Наигрались
+03. Макс Барских - Dance
+04. Иракли - Ты одна
+05. Пропаганда - Наберу
+06. Банд'Эрос - Эти сумасшедшие ночи
+07. Филипп Киркоров - Мне не жаль тебя
+08. Альбина - Ну и пусть
+09. T-Killah & Лоя - Вернись
+10. Чи-Ли - Облака2012Жанр: PopПродолжительность: 06:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8681CE57681B58C6AE5929CA5068DC49441D7F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 458111   (94793) от 27.02.2012
 
 VA - The Official UK Top 40 Single Charts (19.02.2012) (2012) [MP3|320 кб/с]<Pop, Rok, R&B>
@@ -857,41 +892,6 @@ VA - Потап и Настя в кругу друзей (2012) [MP3|192-256 kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6293E2048F17952D9B95334C71314353080505B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482294   (88166) от 13.04.2012
-
-VA - Disco Hits 90's Зарубежный (2012) [MP3|256 kbps]<Pop | Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brooklyn Bounce - Contact
-02. DJ Aligator Project - Payback Time
-03. Real McCoy - Automatic Lover (Call For Love)
-04. Red 5 - Da Beat Goes…
-05. Felix - Don't You Want Me
-06. DJ Bobo - Respect Yourself
-07. Shaggy - Bombastic
-08. Dr. Alban - One Love
-09. Technotronic - Pump The Jam
-10. No Mercy - Plase Don't Go(   Читать дальше...   )2012Жанр: Pop | DiscoПродолжительность: 06:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB1A4C1E32C17D29BA1107262BBE2CA5BCA724B
 ```
 
 https://mybot314.ru/tekegram_catalog/

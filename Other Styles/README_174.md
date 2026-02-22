@@ -1,3 +1,32 @@
+###  Публикация: 1515087   (170355) от 06.12.2021
+
+VA - Гармонь России (2005) [FLAC|Lossless|tracks + .cue] <Фольклор, Русские народные песни>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Митрофановна - Никто тебя не любит так, как я (3:19)
+02. Митрофановна - Все татары, кроме я (2:08)
+03. Валентина Гуряшина - Одуванчик (2:23)
+04. Валентина Гуряшина - Ягода-смородина (3:23)(   Читать дальше...   )Жанр: Фольклор, Русские народные песниПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA37C175577DD4F4CC0963EB94F108B21E3A5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515091   (170318) от 06.12.2021
 
 VA - Гармонь России 2 (2006) [FLAC|Lossless|tracks + .cue] <Фольклор, Русские народные песни>
@@ -715,35 +744,6 @@ Ulvesang - Ulvesang (2015) [FLAC|Lossless|Web-DL|tracks] <Folk, Ambient, Dark Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D782472C52FE80A161588511E7F3C400A3401C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432258   (164928) от 16.12.2020
-
-Ulvesang - The Hunt (2018) [FLAC|Lossless|Web-DL|tracks] <Folk, Black Metal, Dark Folk, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invocation (2:02)
-02. The Trial (4:55)
-03. The Dance (5:59)
-04. The End (5:43)(   Читать дальше...   )Производство: Nordvis Produktion - NVP072Жанр: Folk, Black Metal, Dark Folk, Neofolk, Dark AmbientПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77C1A98773FC40462F10A33F7E47FBEA2EDA746
 ```
 
 https://mybot314.ru/tekegram_catalog/

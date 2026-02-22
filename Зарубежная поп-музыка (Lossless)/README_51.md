@@ -1,3 +1,32 @@
+###  Публикация: 1047921   (548257) от 31.08.2016
+
+Barry Manilow - Live On Broadway (1990) [FLAC|Lossless|image + .cue] <Ballad, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Life / It's A Long Way Up (6:56)
+02. Brooklyn Blues (3:41)
+03. Memory (4:18)
+04. Up Front (5:30)(   Читать дальше...   )Жанр: Ballad, VocalПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B47A9EB00A9B1160E00C46E305ACE6D9790490A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047884   (548251) от 31.08.2016
 
 Carly Rae Jepsen - Emotion Side B (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -724,35 +753,6 @@ MarieMarie - O (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Art Pop, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A94F88A693AA1EA37E8DD65F971EF9E7690E850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239195   (540485) от 04.08.2018
-
-VA - Sounds Of The Eighties The Rolling Stone Collection 1983-1985 (1995) Time Life Music [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540485.jpg" />
-</div>
-
-
-###  Подробнее
-
-И так, продолжаем серию публикаций о холдинге Time Life Music и музыкальных сериях, изданных музыкальным лейблом. В настоящем релизе, (который является продолжением релиза см. ссылку внизу), так же каждый отдельный выпуск (в данном случае, с 1983 по 1985 год) определяет стилистические тенденции и конкретных художников, влиятельных в рок-музыке именно в эти годы по (   Читать дальше...   )01. Van Halen - Jump  (4:04)
-02. ZZ Top - Sharp Dressed Man  (4:15)
-03. Rod Stewart - Some Guys Have All The Luck  (4:34)
-04. Tina Turner - What's Love Got To Do With It  (3:50)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5106881351667933709B2903BDB186802A9922
 ```
 
 https://mybot314.ru/tekegram_catalog/

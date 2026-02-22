@@ -1,3 +1,32 @@
+###  Публикация: 1169142   (404116) от 26.09.2017
+
+Al Hirt - At The Mardi Gras (1962) 2000, RCA Victor [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Announcement & Bourbon Street Parade [03:33]
+02. Basin Street Blues [03:28]
+03. Perdido [02:39]
+04. Show Me the Way to Go Home [03:18](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4707B7106D782271D25306E0371B6B1F54EC251F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169155   (404115) от 26.09.2017
 
 Al Hirt - The Sound of Christmas (1965) 2013, Relayer Records [FLAC|Lossless|tracks + .cue] <Dixieland>
@@ -758,35 +787,6 @@ Sam Levine - Smooth Sax Romance (2011) [FLAC|Lossless]<Smooth Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170851   (398742) от 02.10.2017
-
-The Gary Burton Quartet - Duster (1967) 2014, Sony Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballet [04:59]
-02. Sweet Rain [04:27]
-03. Portsmouth Figurations [03:08]
-04. General Mojo's Well Laid Plan [05:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9653F67BB800799A8CE4ABEEEFFEF6A716D053
 ```
 
 https://mybot314.ru/tekegram_catalog/

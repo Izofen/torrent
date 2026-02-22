@@ -1,3 +1,31 @@
+###  Публикация: 1216800   (747925) от 01.04.2018
+
+Primordial - 2 релиза (2018) [MP3|320 Kbps] <Folk Metal, Progressive Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2018 - Exile Amongst The Ruins
+2018 - Heathen Legacy (EP)Жанр: Folk Metal, Progressive Metal, Black Metal|Продолжительность: 01:33:12 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52CC9D9E47521FFAB0AB9078633587D21822BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216858   (747854) от 01.04.2018
 
 Kamelot - Phantom Divine (Shadow Empire) (2018) Single [MP3|320 Kbps] <Symphonic Power Metal>
@@ -708,35 +736,6 @@ Norvhar - Kauna (2019) [MP3|320 Kbps] <Folk Metal, Viking Metal, Melodic Death M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08C51959198D403071A2B941F033AAEB344C6331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525251   (739119) от 22.01.2022
-
-Preludium Fury - Battle of the Defender (2022) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spells Attack (04:20)
-02. Guardian of Everlaste (05:05)
-03. Nightmare Creatures (04:57)
-04. Giant Terror (04:49)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368EA6681AF4AA4759CDEFB2BA28611D07AAC2CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

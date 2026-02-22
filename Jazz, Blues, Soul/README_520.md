@@ -1,3 +1,32 @@
+###  Публикация: 1692485   (122387) от 17.01.2024
+
+Chris Rea - The Return Of The Fabulous Hofner Bluenotes (2008) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twister Inside
+02.  Legacy Blues
+03.  When The Truth Comes Out
+04.  Blues For Janice(   Читать дальше...   )Жанр: Blues Rock, Soft Rock, RockПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF9FA69947A28B96137CB5CEA833EC678656A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692383   (122386) от 17.01.2024
 
 Hannah Wicklund - 3 Releases (2018-2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock, Female Vocal>
@@ -716,35 +745,6 @@ Susannah McCorkle - How Do You Keep The Music Playing? (1985) 2000, The Jazz All
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E855883C69A7925DCD0273AC72881092700FDD7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693935   (121313) от 23.01.2024
-
-VA - Talent Blues Condensed Vol 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lightnin' Slim -- That's All Right (2:59)
-02. Gregg Smith -- Money Talks (3:59)
-03. Jimmy Reed -- Cold And Lonesome (3:35)
-04. John Lee Hooker -- My First Wife Left Me (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB4148D57FC31BFBB00E75F82C823081A5461F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

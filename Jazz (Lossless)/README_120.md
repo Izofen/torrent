@@ -1,3 +1,32 @@
+###  Публикация: 1130244   (716799) от 01.05.2017
+
+Duke Ellington - Welcome To The Clubs (1956 - 1959) 2014, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Newport Up [05:44]
+02. I Got It Bad And That Ain't Good [02:24]
+03. Tulip Or Turnip [03:00]
+04. Mood Indigo [01:00](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20866EF20543C7B68BD776839EFD71A105DA620A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532137   (716767) от 18.02.2022
 
 Lionel Hampton And His Orchestra - 1949 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -719,35 +748,6 @@ Jan Johansson - Live In Tallinn (1966) 1995, Heptagon Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A28C15B61743BC92A91C5EDB3107C41038DD7B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286226   (713197) от 02.03.2019
-
-Carmen Bradford - Home With You (2004) Azica Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can Depend on Me [3:28]
-02. My Shining Hour [5:32]
-03. Home with You [4:25]
-04. Take the A Train [3:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B75F1100C040DEA548CA2386DCD738A7F7847E
 ```
 
 https://mybot314.ru/tekegram_catalog/

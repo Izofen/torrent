@@ -1,3 +1,32 @@
+###  Публикация: 1328120   (368171) от 28.09.2019
+
+VA - FSOE Festival Hits (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila - It's All About The Melody (Original Mix)
+02. Dan Stone - Vargo (Original Mix)
+03. Ferry Tayle - Thoughts (Original Mix)
+04. Liam Wilson - 20 Stories (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21707C5CF9093D56917F57E29BAF56F1DB4554D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328105   (368168) от 28.09.2019
 
 VA - Markus Schulz - Global DJ Broadcast:Top 20 September (2019) [MP3|320 Kbps] <Trance>
@@ -713,35 +742,6 @@ VA - Ferry Corsten presents Corsten's Countdown October (2017) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD6C7A604D3A34F9D289D393A46265B4A5785480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178184   (353832) от 29.10.2017
-
-VA - Best of Uplifting Vocal Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen Watts - Break Without The Pain (Original Mix) 06:07
-02. Victoriya - Nothing Remains (F.G. Noise Remix) 07:35
-03. Ana Criado - Border Line (Original Mix) 06:02
-04. Susana - Only Summer Knows (Original Mix) 07:25(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6186CE1BED666DD5879B0FD396A40781B6A7750E
 ```
 
 https://mybot314.ru/tekegram_catalog/

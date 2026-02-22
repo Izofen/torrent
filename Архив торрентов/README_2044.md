@@ -1,3 +1,29 @@
+###  Публикация: 1392040   (770678) от 23.06.2020
+
+Media Player Classic Home Cinema 1.9.5 RePack (& portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4648D2ED6D93CB2F139C1E19BF7EC44DDB9F4397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391967   (770675) от 23.06.2020
 
 Photo Supreme 5.4.1.2998 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -657,35 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E349E11757182CB46C9DE794B877C29B667395E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016614   (770471) от 14.05.2016
-
-Faderhead - FH1 (2006) [APE|Lossless|image + .cue] <Electro, EBM, Synth-Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Protagonist [04:46]
-02. The Beat Has Started [03:41]
-03. Naughty H [04:56]
-04. The Lines [04:14](   Читать дальше...   )Жанр: Electro, EBM, Synth-PopПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152B88A3DF06531517E176392653F717FE776EAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1649523   (207704) от 28.07.2023
+
+VA - Трибьют Валерии (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207704.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. MOT - Ты где-то там
+2. INSTASAMKA - Маленький самолёт
+3. XOLIDAYBOY - Океаны
+4. L'One - Москва слезам не верит(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A959E8F36EC21D0D0C2A5A752736028342B4F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649737   (207628) от 29.07.2023
+
+In-Grid - Chansons D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est Si Bon (3:36)
+02. Un beau roman (Une belle histoire) (4:05)
+03. Tu le sais (with Paolo Rossini) (4:12)
+04. Tentación Al Hombre (3:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE00A240598F690B2D839FFECFBFF91DC300C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650266   (207519) от 31.07.2023
+
+Diana - Die Einzige (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gschüttlet oder grüärt [00:03:03]
+02. Du wenn nicht Du [00:03:20]
+03. De schneller isch de gschwinder [00:03:06]
+04. Du bist nicht mein Romeo [00:03:02](   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D37685AB92E2E67DC1617F913E2AE2EEE6D2A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611465   (207505) от 13.02.2023
 
 VA - Romantic Collection. Mystique (2000) [OGG Vorbis|480 Kbps] <New Age, Downtempo, Ambient>
@@ -656,93 +743,6 @@ VA - Romantic Collection. Golden 70s (2000) [OGG Vorbis|480 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D806A0DA4B5822494FF11E84E44A6D236E28C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616238   (206124) от 01.03.2023
-
-VA - Romantic Collection Vol.7 (2001) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lighthouse Family - High
-02. Sweetbox - Everything's Gonna Be Alright
-03. Kool & The Gang - Cherish
-04. Eric Clapton - Circus 432 Hz(   Читать дальше...   )Жанр: Electronic, Hip Hop, RockПродолжительность: 01:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813F98FC3D19365D7DAA6005F304D419F216EB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653452   (206094) от 16.08.2023
-
-VA - Vintage Café - The Remixes Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Lounge>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anakelly - Speed of Sound (Ronan Remix) (3:25)
-02. Asonne - Flowers (Javier Penna Remix) (2:18)
-03. Nikko Mad - Die for You (3:13)
-04. No.On - What a Wonderful World (Krister Remix) (1:35)(   Читать дальше...   )Жанр: Pop, Easy Listening, LoungeПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B364E341A02468A565BA41A302E515CF0F2B47D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616138   (206084) от 01.03.2023
-
-VA - 80s Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes - Owner of a Lonely Heart (4:28)
-02. Fleetwood Mac - Everywhere (2018 Remaster) (3:43)
-03. a-ha - Take On Me (3:48)
-04. Tina Turner - What's Love Got to Do with It (3:50)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 05:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4D47F1DFDD303708E227F7DFF3CB3C26AA664E
 ```
 
 https://mybot314.ru/tekegram_catalog/

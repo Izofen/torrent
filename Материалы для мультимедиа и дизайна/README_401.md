@@ -1,3 +1,185 @@
+###  Публикация: 1795839   (66890) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Tropical Bloom Burst Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с тропическими цветами.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70C1CE34EFCF75520E71E8A56F9D76024EBAA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795897   (66882) от 13.05.2025
+
+Растровый клипарт - Dream Studio - Creative Fabrica - Beach Holiday Sublimation Clipart Bundle [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт на тему пляжного отдыха.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE9A5C818FC38D82C1F5ABA907DCD47148809ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795843   (66880) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Soft Blue Vine Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нежно-голубые фоны с виноградной лозой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39574B1F3CD17C7A2C884A215E5FACAF1BB782A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795845   (66878) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Skyscrapers and Neon Lights Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с изображением небоскрёбов и неоновых огней.Формат: PNGРазрешение файлов: 3604 x 3604
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F26DAE3FFF58D099ED6727AAED4384CEA9B8BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796030   (66877) от 13.05.2025
+
+Паттерны - Free PSD Templates - Floral Patterns [JPG, PNG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочные узоры в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B9748660C19D9392A08EF85D472D420B137CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795906   (66875) от 13.05.2025
+
+Растровый клипарт - Dream Studio - Creative Fabrica - Leopard Print Summer Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летний  клипарт с леопардовым принтом на тему пляжа и тропиков.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72AC907CC5EBF09DB36A51699922F9156E25FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795903   (66873) от 13.05.2025
+
+Растровый клипарт - Dream Studio - Creative Fabrica - Watercolor Hawaii Clipart Bundle [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный Гавайский клипарт.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD66B8E403B922F64BDD9B9C3AFA6952CC81AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795846   (66861) от 13.05.2025
 
 Фоны - Graphic Studio - Creative Fabrica - Pink Plaid Backgrounds [PNG]
@@ -496,190 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:994C6E186187AAE843322C124386DA55D72C6309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797344   (66588) от 24.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Coquette Bow Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с бантами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F401D14EDF57F39185AD11B70E884FDAEE9617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797179   (66587) от 24.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Hat Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с головными уборами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FC4E8BA289120A08905299BEC3F30EB58FD944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797175   (66585) от 24.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Summer Vacation Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт на тему летнего отпуска.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851CCD2FF664E44691A03B61BB430CB1D84AE294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797112   (66584) от 24.05.2025
-
-Паттерны - Free PSD Templates - Floral Patterns [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цветочные узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 5766 x 5800 - 5834 x 5828
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C48FF099033107F3BFD961850000AEA56B9623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797708   (66583) от 24.05.2025
-
-Текстуры - MiksKS - Experimental Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные разнообразные текстуры.
-Разработчик: MiksKS
-Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5E56B065AB957BFEA0E43214FD87123696AC71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797962   (66582) от 24.05.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Abstract Hearts Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абстрактные фоны с сердечками.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C659EDFE5F6C2C8329EDB69C03E09126D586E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797712   (66580) от 24.05.2025
-
-Фоны - Design Stocks - Iridescent Abstract Backgrounds [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абстрактные фоны в радужных тонах.Формат: JPG, PNGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098ED198565803D46EEA382D5B1E5E55BFDFC872
 ```
 
 https://mybot314.ru/tekegram_catalog/

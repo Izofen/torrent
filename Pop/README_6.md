@@ -1,3 +1,121 @@
+###  Публикация: 1609182   (1043314) от 02.02.2023
+
+Sarah McCoy - High Priestess (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sarah McCoy провела большую часть своей жизни, играя на пианино и исполняя глубокие, лиричные, надрывные песни в барах Нового Орлеана. Внутренний хаос этих забегаловок соответствовал той жизни, которую Сара вела с двадцатилетнего возраста.
+В 33 года её заприметил известный канадский пианист Чили Гонзалес и жизнь Сары кардинально изменилась.
+Сейчас ей аплодируют элитные (   Читать дальше...   )01. Weaponize Me
+02. Go Blind
+03. Sometimes You Lose
+04. Take It All(   Читать дальше...   )Жанр: Alternative Pop, BluesПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C648377C9FE1ED6DCDA179A2758C6A380D08EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609421   (1043239) от 03.02.2023
+
+Illona Staller (Cicciolina) - Illona Staller (1979) Reissue CD, 2000, Sequel Records [MP3|320 Kbps] <Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was Made For Dancin' (6:14)
+02. Pane Marmellata E Me (3:59)
+03. Labbra (4:08)
+04. Benihana (4:23)(   Читать дальше...   )Жанр: Europop, DiscoПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4B640E14028FFAFE5F1145754188C918829C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609367   (1043226) от 03.02.2023
+
+Shania Twain - Queen Of Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giddy Up!
+02. Brand New
+03. Waking Up Dreaming
+04. Best Friend(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1AFF50B5B8958B1031FCE9994CEBE603ED91966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609766   (1043151) от 04.02.2023
+
+VA - Ciao Italia (1997) 3CD Box Set (1997) [MP3|320 Kbps] <Рор>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adriano Celentano - Azzurro
+02. Lucio Battisti - Emozioni
+03. Ricchi E Poveri - M'Innamoro Di Te
+04. Patty Pravo - Pazza Idea(   Читать дальше...   )Жанр: Рор
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D091D9F48D34FB9F9767BE5343438CB163A451A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609612   (1043144) от 04.02.2023
 
 VA - timeless pop songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -630,122 +748,6 @@ VA - The Best 70s Album In The World...Ever! (2023) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96CF564C4D6FF13CDC6A042BB66D923513769A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611419   (1041303) от 11.02.2023
-
-VA - Romantic Collection. Magic Blues (2000) [OGG Vorbis|480 Kbps] <Blues>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Blue–	Gold Rain
-02. Beth Hard Band–	Am I The One
-03. Rhythm Kings–	Bad To The Bone
-04. Smokin' Joe Kubek–	Walk On(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA511D9358ACA7F5FBED40E1EB6209E765282E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438310   (1041149) от 08.01.2021
-
-Skin - Hot Skin (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let The Music (Move You On) (4:15)
-02. Lady Oh Lady (3:50)
-03. Baby Baby (3:47)
-04. Something Called Love (5:38)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13604A91CEE0CF7DCB2FD78724B8D0BD83C57856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438466   (1041146) от 08.01.2021
-
-Seemone - Seemone (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brun de Folie (02:52)
-02. La Belle Et la Bête (03:03)
-03. Parle-moi (03:12)
-04. Coeur de Pierre (03:21)(   Читать дальше...   )Жанр: Pop, Vocal, InstrumentalПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA53B042E99BB4DA8038776C5071DBC262D588D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611667   (1041126) от 12.02.2023
-
-Валерия - 16 Альбомов (1992-2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Океаны
-02. Ничего личного
-03. Можно я побуду счастливой?
-04. С такими, как ты(   Читать дальше...   )Жанр: PopПродолжительность: 14:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39271EB40CED4E5889980E07AD235C69491C7EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

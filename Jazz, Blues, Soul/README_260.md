@@ -1,3 +1,90 @@
+###  Публикация: 1233505   (593026) от 30.06.2018
+
+Mose Allison - Greatest Hits (1957 - 1959) 1988, Original Jazz Classics [APE|Lossless|image + .cue] <Hard Bop, Vocal, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Seventh Son [2:41]
+02. Eyesight to the Blind [1:44]
+03. Do Nothin' Till You Hear from Me [3:14]
+04. Lost Mind [3:34](   Читать дальше...   )Жанр: Hard Bop, Vocal, Piano JazzПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D45A8AB3BC7AEB8229FCEB1E916171701F99FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549787   (592963) от 08.05.2022
+
+Ready For The World - Ruff 'N' Ready (1988) [FLAC|Lossless|tracks + .cue] <Soul, R&B, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Girly Riley, Valentine 5:30
+02. Shame Potts 4:56
+03. Cowboy Riley, Valentine 4:29
+04. Gently Riley 5:30(   Читать дальше...   )Жанр: Soul, R&B, FunkПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96C87FD2E8666F2A1DDA2FA3DAD595FC693BAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549779   (592927) от 08.05.2022
+
+James Brown - Duets (1989) [FLAC|Lossless|tracks + .cue] <Soul, R&B, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Brown & Marva Withney - Think (Live At the Apollo Theatre, 1967)
+02. James Brown & Bea Ford - You've Got The Power (1960)
+03. Yvonne Fair (with James Brown) - You Can Make It If You Try (1962)
+04. Anna King & Bobby Byrd - Baby, Baby, Baby (1964)(   Читать дальше...   )Жанр: Soul, R&B, FunkПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86B1A1E5744DA2051A097543C5A508FCD1D0481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300713   (592812) от 07.05.2019
 
 Billy Strayhorn - Piano Passion (1945 - 1961) 2005, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
@@ -658,93 +745,6 @@ Ron Miles - Rainbow Sign (2020) Blue Note Records [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DCBFD8D66FF57A7DF68623D18E6A7F9F6246070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550977   (591238) от 13.05.2022
-
-Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinkali - 5:04
-02. Afror - 8:42
-03. Unsleepers - 5:06
-04. Buran  - 8:55(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AEAAFB6530623EF609969B00FB0D32E416F11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550910   (591237) от 13.05.2022
-
-Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Meddler [8:31]
-02. Ode to Ray [6:10]
-03. Whims of the Bluebird [10:09]
-04. Falling in Love [7:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836C40AE7A3A0D272E79313F7F4DF1323C87AD16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550780   (591203) от 13.05.2022
-
-Gilbert Sigrist - Tribute to Hammond Organ (2014) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Jazz Club (02:18)
- 02. The Blues Room (02:39)
- 03. Afternoon Romance (02:01)
- 04. Uptown Waltz (01:57)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222700ADF0FA416F9362A8F8636D3D575B581142
 ```
 
 https://mybot314.ru/tekegram_catalog/

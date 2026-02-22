@@ -1,3 +1,177 @@
+###  Публикация: 1790047   (68144) от 07.04.2025
+
+Fear Factory - Demanufacture (1995) Reissue, 2007, Cargo Records [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68144.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Demanufacture
+A2. Self Bias Resistor
+A3. Zero Signal
+B1. Replica(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1634BEE1E7A644DF8A7A6686DBE07CBB0A70BBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790374   (68120) от 08.04.2025
+
+Dream Theater - Metropolis Pt. 2: Scenes from a Memory (1999) Reissue, 2025, Rhino Records [DSD256|Lossless|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68120.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Regression
+A2 Overture 1928
+A3 Strange Deja Vu
+A4 Through My Words(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C74B60F260D1526D8A489986E9C9D5FFA70DCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790358   (68101) от 08.04.2025
+
+Akolyth - Akolyth (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68101.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. A Work of Ages (09:03)
+A2. The Night, the Fog (09:13)
+B1. What Dwells Between Fractured Worlds (09:20)
+B2. To Become His Doorway (09:21)Жанр: Black MetalПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DFAAF0107925A935B648E889FBF2946B2E1467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790262   (68100) от 08.04.2025
+
+Daylight Dies - Studio Albums (5 releases) (2000-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daylight Dies — метал-группа из Северной Каролины, США, образована в 1996 году.2000 - Idle (EP)
+2002 - No Reply
+2006 - Dismantling Devotion
+2008 - Lost To The LivingЖанр: Melodic Doom/Death MetalПродолжительность: 03:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48ADE40EF46ED9C820660A3636C36B9832B7D96A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790340   (68096) от 08.04.2025
+
+Nightwish - The Crow, the Owl and the Dove (2012) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crow, the Owl and the Dove (Radio Edit)
+02. The Heart Asks Pleasure First (Theme From 'The Piano')
+03. The Crow, the Owl and the Dove (Album Version)
+04. The Crow, the Owl and the Dove (Instrumental)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42C39634DEBE05012EDDE53406DD5E490D8ADF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790524   (68087) от 09.04.2025
+
+Nightwish - Endless Forms Most Beautiful (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shudder Before the Beautiful
+02. Weak Fantasy
+03. Élan
+04. Yours Is an Empty Hope(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE29F8B9BA0D9429AA0EF54717194E2D7AE47C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790501   (68082) от 09.04.2025
 
 Manowar - Sign of the Hammer (1984)  [FLAC|24/192|tracks|Vinyl-Rip]<Heavy Metal>
@@ -570,178 +744,6 @@ A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C6A2FE8D7E39FFAD3B67F397330CDF2A633EEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792775   (67621) от 20.04.2025
-
-Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|image|Vinyl-Rip] <Nu metal, Alternative metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67621.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1-742617000027
-A2-(Sic)
-A3-Eyeless
-A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792754   (67600) от 20.04.2025
-
-Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visionatica - симфо-метал-группа из Франконии, Германия. Образована в 2016 году.2016 - Force Of Luna
-2019 - Enigma Fire
-2025 - Harrowing InsightЖанр: Symphonic MetalПродолжительность: 01:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1C729837506B00DA89B1728316D74ED3E3F1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792136   (67592) от 20.04.2025
-
-Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Industrialist
-02. Recharger
-03. New Messiah
-04. God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E899E575915247F93E38BDBEB725253CF4F971EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792175   (67591) от 20.04.2025
-
-Samael - Worship Him (1991) Reissue, 2016, Osmose Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67591.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sleep Of Death
-A2 Worship Him
-A3 Knowledge Of The Ancient Kingdom
-A4 Morbid Metal(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0094FA69D411F9E55B3C6A44B1FD1631BCDD9C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792193   (67589) от 20.04.2025
-
-Soulfly - Soulfly (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67589.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Eye For An Eye
-A2. No Hope = No Fear
-A3. Bleed
-A4. Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A853388902A5C0C43F250DEBC588A3E5FB7CE9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792143   (67585) от 20.04.2025
-
-Dies Irae (Mexico) - Studio Albums (3 releases) (1998-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Gothic Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dies Irae - группа, играющая атмосферный метал/пост-рок из Леона, Гуанахуато, Мексика. Основанная в 1994 году, изначально исполняла мрачный, мелодичный дэт-метал. Распалась в 2002 году, воссоединилась в 2009 году.1998 - Ethereal
-2001 - Naive
-2011 - Secret Veils of PassionЖанр: Melodic Death/Gothic Metal, Progressive RockПродолжительность: 03:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6914DC144D1DBC0D4C40FEA2FB8C1CF3D0DB173
 ```
 
 https://mybot314.ru/tekegram_catalog/

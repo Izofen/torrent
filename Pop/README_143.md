@@ -1,3 +1,117 @@
+###  Публикация: 1035382   (628527) от 16.07.2016
+
+VA - Come and Get It: The Best of Apple Records (2010) Remaster [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаю Вашему вниманию компиляционный альбом лучших песен, выпущенный лейблом Apple Records 25 октября 2010 года. В альбом вошли ремастированные композиции, изданные Apple Records в период с 1968 по 1973 год. Ремастирование песен для альбома провела та же команда инженеров, что в 2009 году ремастировала альбомы The Beatles.
+"На «Come and Get It: The Best (   Читать дальше...   )01. Mary Hopkin - Those Were the Days  (5:11)
+02. James Taylor - Carolina in My Mind  (3:39)
+03. The Iveys - Maybe Tomorrow  (2:54)
+04. Black Dyke Band - Thingumybob  (1:56)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EF3B31EFEA66F5DEA51D6C606A129E9DD9F0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035473   (628525) от 16.07.2016
+
+Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track] <Pop, Hip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Me [00:03:51]Жанр: Pop, Hip-HopПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1264EE03FD48E4EA2F89233B33E689B4025FD14D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035497   (628514) от 16.07.2016
+
+Дима Билан - Я ночной хулиган (2003) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Я ночной хулиган  "
+02. "Звёздочка моя ясная  "
+03. "Малыш   "
+04. "Я так люблю тебя  "(   Читать дальше...   )Жанр: PopПродолжительность: 00: 59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C59087CA6BB751E5716C0C70B7023780AF20AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294476   (628376) от 08.04.2019
+
+Lou & Hollywood Bananas - Meet The Ska All Stars: Greatest Hits (1980) LP [MP3|320 Kbps] <Pop, Disco, Ska>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hong-Kong Ska (2:20)
+02. I Won't Never Let You Go (2:43)
+03. Ska-Baloo Cha (2:52)
+04. Skeilzat (4:07)(   Читать дальше...   )Жанр: Pop, Disco, SkaПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38256E09B5A8AEF24FC507AF2C3A8A5053D6CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294492   (628373) от 08.04.2019
 
 VA - Ballermann XXL (Die besten Mallorca Party Schlager Hits zum Opening 2019 im Mallorcastyle) (2019) [MP3|320 Kbps] <Pop>
@@ -626,122 +740,6 @@ VA - Хиты 80-х в Новых Версиях (2012) [FLAC|Lossless] <Pop, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E70AB327ABF236F6B066A599C2F72C79BB6D57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 350372   (626891) от 14.06.2011
-
-VA - The Best Of Eurodance 90 (2011) 3CD [MP3|320 kbps] <Pop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Brothers On The 4th Floor - Come Take My Hand (Radio Version) (4:05)
-02. 2 Unlimited - The Magic Friend (7' edit) (3:06)
-03. CO.RO feat. Taleesa - 4 Your Love (6:27)
-04. E-Type - This Is The Way (3:55)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 15:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B732F82127437BC04F77FC7D745EDD0D92AD848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035236   (626710) от 17.07.2016
-
-Dicte - Perfume (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626710.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Don't Wanna Lie
-2. All I Want Is You
-3. Mama Said
-4. Stronger(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 0:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A3A5547956D83C1026C658679AF509141919D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229433   (626566) от 06.06.2018
-
-The Vamps - Disco Blood (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом был выпущен в 1977 в Бразилии и после переиздавался в Италии, Франции и Португалии. Тема раскрывает историю вампира и женщины, которую он порабощает, начиная с ее отпора вампиру. В конечном она итоге попадает под его заклинание и полностью охватывает сексуальный образ жизни вампира. Так песня "Disco Blood" была выпущена на бразильском звукозаписывающем (   Читать дальше...   )01.  Disco Blood (Part 2) (7:14)
-02.  Vamps Sex Theme (4:46)
-03.  Two Lady Vamps (5:00)
-04.  Dancin' Dancin' (5:35)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6B26646921EFF9F6A376A74D1A6CA771E3085E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229446   (626563) от 06.06.2018
-
-Eh440 - 2 Albums + 2 Single (2014-2016) [MP3|320 Kbps] <Vocal Pop, A Capella, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626563.jpg" />
-</div>
-
-
-###  Подробнее
-
-2014 - Turn Me Up
-2015 - Beatbox Heart (feat. Luke McMaster) (Single)
-2016 - Boss Level
-2016 - Run Run Rudolph (Single)Жанр: Vocal Pop, A Capella, Soul, R&BПродолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53B058E8743B60EF816FB8706A7CF3D35F8B973
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1737060   (106543) от 16.07.2024
+
+Dennis Jones - About Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Condition Blue (4:07)
+02. Don't Stop (3:45)
+03. You're Killin' Me (3:48)
+04. Mother Earth (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10655E877CA5F70E4990ECF3CDBDFFE526AA6A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737061   (106541) от 16.07.2024
 
 Diana Braithwaite & Chris Whiteley - Forever Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ Richard "Groove" Holmes - Comin' On Home (1971) 2002, Blue Note [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5348EC73AB864D8459A2645F7585B3EE6AFDEA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738466   (106286) от 23.07.2024
-
-Babbba - Extended Cabaret (2024) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smooth walking [00:02:57]
-02 - Feels right [00:02:05]
-03 - We're just dancing [00:02:46]
-04 - Feel the groove [00:02:41](   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79372F893A17905E5635CB2D96A20943931CD82
 ```
 
 https://mybot314.ru/tekegram_catalog/

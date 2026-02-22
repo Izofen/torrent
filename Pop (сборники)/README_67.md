@@ -1,3 +1,32 @@
+###  Публикация: 1043315   (572695) от 16.08.2016
+
+VA - 100 Хитов Любимой Музыки (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medina - Good Enough
+02. Константин Меладзе - Кораблики
+03. Parson James - Slow Dance With The Devil
+04. Rabih - Habibi Hayati(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700CA6F401D12D34B64B9CE619F4A68B7A65201D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043354   (572600) от 16.08.2016
 
 VA - The Greatest 80's Collection (2016) [MP3|320 Kbps] <Pop>
@@ -737,35 +766,6 @@ VA - Super Dance Party Vol.5 (2016) [MP3|320 Kbps] <Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7463583B6D2AC79ABBD6896903AD0304FE012B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044192   (566393) от 19.08.2016
-
-VA - 100% Hits 90s (2016) [MP3|320 Kbps] <Pop, Dance, Rock, Vocal Jazz, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toni Braxton - Unbreak My Heart
-02. Annie Lennox - No More I Love You
-03. Joe Cocker - Night Calls
-04. The Pretenders - I'll Stand by You(   Читать дальше...   )Жанр: Pop, Dance, Rock, Vocal Jazz, DiscoПродолжительность: 05:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2229B35FFC4291732267CFF408C60D18D30A2999
 ```
 
 https://mybot314.ru/tekegram_catalog/

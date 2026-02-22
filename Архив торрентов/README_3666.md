@@ -1,3 +1,38 @@
+###  Публикация: 559080   (408565) от 13.10.2012
+
+VA - XXXL Clubничка Record №50 (2012) [MP3|160-320 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Nikita - 2012 (DJ Sergey Fisun rmx)
+02 Armin Van Buuren feat. Ana Criado - I'll Listen (Disfunktion Remix)
+03 Вера Брежнева - Бессонница (Кинэтик Remix)
+04 Roman Bellezzo vs. Slider & Magnit feat. Irene - Frozen (extended mix)
+05 DJ Цветкоff & Оля Милакса - Белая ночь (Andry Makarov remix)
+06 Cathy Burton & Omnia - Hearts Connected (Gal Abutbul remix)
+07 Нюша - Выше (DJ Rich-Art remix)
+08 LMFAO - Sorry For Party Rocking (Gigi Barocco remix)
+09 Milena & Murzin Denis - До утра (Filipp Aniskin remix)
+10 Overmute - Shadows (original mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E49A605B44AFF0EAC3D93D79220C03DF38B1D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168645   (408552) от 24.09.2017
 
 Конг: Остров черепа / Kong: Skull Island (2017) DVD9
@@ -691,32 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C511284D1FEAC6E41F0593A67C8F6575179CC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413597   (408349) от 04.10.2020
-
-Viber 13.9.1.10 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA74DF1535A0B89CAF182ED931ACFAD8BA2E651B
 ```
 
 https://mybot314.ru/tekegram_catalog/

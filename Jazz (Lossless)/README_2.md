@@ -1,3 +1,32 @@
+###  Публикация: 1606716   (1044334) от 23.01.2023
+
+The Jazz Piano Quartet - Let It Happen (1974) 1983, RCA Records [WavPack|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover, Come Back To Me [2:39]
+02. Maiden Voyage [3:56]
+03. Let It Happen [4:22]
+04. Watch It [3:04](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39EEA2295D5958A48A48FA95567985AF31E52DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606898   (1044253) от 24.01.2023
 
 Jimmy Giuffre - Tangents In Jazz (1955) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Cool>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B8BC670C8FB6B9634075A81F45CD92189DD42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610562   (1042195) от 08.02.2023
-
-Charles Lloyd - Trios: Ocean (2022) Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lonely One [12:19]
-02. Hagar of the Inuits [8:53]
-03. Jaramillo Blues (For Virginia Jaramillo and Danny Johnson) [10:03]
-04. Kuan Yin [10:08]Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29792C634CDBCE490D42949F791AF03FFC7DD96
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1278894   (767778) от 27.01.2019
+
+Cecile Monique - Genesis (2018) [MP3|320 Kbps] <Gothic Rock, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767778.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:51] 1 - Overture (Sicut Erat)
+[04:22] 2 - Genesis
+[04:06] 3 - Heat
+[03:19] 4 - Break(   Читать дальше...   )Жанр: Gothic Rock, Symphonic MetalПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611AD2735D8B78BC64E132DA620B5108FC83851E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393258   (767709) от 30.06.2020
 
 Fraser Edwards - The Architect (2020) [MP3|320 Kbps] <Power Metal>
@@ -715,35 +744,6 @@ Ergus - Insomnium (2020) [MP3|320 Kbps] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D980AA030F2FC4194389CF9D01E6330DA50C8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280600   (760538) от 03.02.2019
-
-Ancient Bards - Origine (The Black Crystal Sword Saga Part 2) (2019) Japanese Edition [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760538.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:15] 01 - Origine
-[5:41] 02 - Impious Dystopia
-[4:51] 03 - Fantasy's Wings
-[5:42] 04 - Aureum Legacy(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1D0271DEE195CB6EE5EA475B19B8856AD5E0E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

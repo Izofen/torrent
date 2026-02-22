@@ -1,3 +1,90 @@
+###  Публикация: 1786092   (24155) от 19.03.2025
+
+VA - 40 Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - She's Not Me (02:33)
+02. Stephan F & YA-YA - No Broken Heart (03:09)
+03. Deep Emotion - Feeling in My Veins (02:48)
+04. Dani Corbalan - Losing Me (03:50)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52E6474F4CECF01A775C92539098C93FA413E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790061   (22162) от 07.04.2025
+
+VA - Electronic Music Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mant Deep & Rip0e - How Will I Know (05:14)
+02. Anton Ishutin - Always (05:28)
+03. Sharapov - Bring Me Back (Mant Deep remix) (05:00)
+04. Sharapov & Ladynsax - My Way (04:35)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B616842DE0232AB92931FD655E162289A084C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790470   (21951) от 09.04.2025
+
+FaraoN - Dance Hits Music Collection 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FaraoN - Sines Moon (Original Mix) (03:34)
+02. FaraoN - How It Feels (Original Mix) (03:40)
+03. FaraoN - What About Us (Original Mix) (07:26)
+04. FaraoN - Hold On To Me (Original Mix) (05:00)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9129AD0CB04AAE45539ED74DA6F22BFCAC4B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793683   (20280) от 25.04.2025
 
 VA - Top 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
@@ -658,93 +745,6 @@ VA - Summer Dance Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1F528EE77BF0F48A1D9A36DFD6E64E3B7A5D88A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805391   (12437) от 05.07.2025
-
-VA - Dance Report, Vol. 1 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dado - Do It Better (Original Version) 04:57
-02. Sunana - Hustlin' 03:36
-03. Mila - Zero Hour (Original Mix) 05:01
-04. Amelie Elizèe - Crazy 02:32(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7507D0858D5AA9164CEDE8560E1AD9CA9A073C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806038   (11913) от 10.07.2025
-
-VA - Deep Reflections (2025 Edition) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmtunes & M-Sol Deep - Solaris 06:40
-02. Twilight Music Sculpture & M-Sol Deep - Endless Sunrise 06:56
-03. Duel (Hu) & M-Sol Deep - Aquamarine 08:24
-04. Karen Fagan & M-Sol Deep - Sunkissed Lovers 05:30(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3BBC2C791CC862DFE511B9EEFDA1AA528411ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806062   (11910) от 10.07.2025
-
-VA - 25 Years Of Anjuna Mixed By Croquet Club (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (01:01:08)
-01. Martin Roth - Pillow Talk (Mixed) 03:00
-02. Cri & Sophia Bel - Love Spirit (Mixed) 02:25
-03. Vincenzo - Today (Mixed) 02:47(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF603E15ACD45B725ABBBE10BCBF0D7C3D14D9CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

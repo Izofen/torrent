@@ -1,3 +1,90 @@
+###  Публикация: 1441107   (1037973) от 20.01.2021
+
+Kung Botes Kapell - Botemedel (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On A Roll (3:30)
+02. Reminder (2:48)
+03. Countryside Sunrise (2:43)
+04. Cool Organ (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C8C962D6E27449B6887D69B421D78EC3021E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441105   (1037970) от 20.01.2021
+
+Brandon Trickey - Ruby Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruby Meredith (3:43)
+02. Drama Queen (3:32)
+03. Telephone (3:40)
+04. More Than Friends (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D005CEF6EA8282A3B04D9C4BEDED56B1BD85000C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441103   (1037947) от 20.01.2021
+
+Bonny B - Bonny B. & the Jukes (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmonica>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Going Home (5:49)
+02. One String Is Enough (5:11)
+03. Trust Yourself (5:33)
+04. Father (7:57)(   Читать дальше...   )Жанр: Blues HarmonicaПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EAD0FD05A3B76445A37BAC601E39AD6D1CFEFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441364   (1037821) от 21.01.2021
 
 Junior Mance - Straight Ahead! (1964) 2011, EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band, Piano Jazz>
@@ -655,93 +742,6 @@ Jo Jones - Caravan (2019) [FLAC|Lossless|image + .cue] <Mainstream Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DF1F35337B1DBE1EF37393C74EB7C10C1C328D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442536   (1036614) от 25.01.2021
-
-Jeff Lorber - West Side Stories (1994) [FLAC|Lossless|tracks + .cue] <Fusion, Smooth Jazz, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036614.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Grasshopper (Lorber) - 4:20
-2. Point Venus (Lorber) - 4:30
-3. Iguassu Falls (Lorber, Milstein) - 5:17
-4. Let the River Run (Lorber) - 4:25(   Читать дальше...   )Жанр: Fusion, Smooth Jazz, Crossover JazzПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA0A06F33FCA2B29BDF7F2220A0981F7CA4B7805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616378   (1036452) от 02.03.2023
-
-Dinah Washington - Dinah Jams (1954) 1984, EmArcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover Come Back to Me [9:46]
-02. Alone Together [2:23]
-03. Summertime [2:27]
-04. Come Rain or Come Shine [2:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2DA7DF6CA062E85E9B38521859DFB2776F9F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616383   (1036444) от 02.03.2023
-
-Dinah Washington - Collection: 25 songs (1994) The Collection [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mad About the Boy [2:50]
-02. Ain't Misbehavin' [2:37]
-03. What a Difference a Day Made [2:32]
-04. Close to You [4:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C602CAAAD4F3B9283034A09837D242E50E61B71
 ```
 
 https://mybot314.ru/tekegram_catalog/

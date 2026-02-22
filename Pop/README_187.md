@@ -1,3 +1,130 @@
+###  Публикация: 1317604   (499435) от 02.08.2019
+
+VA - Driving In My Car: Ultimate Car Anthems (2019) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499435.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Madness - Driving In My Car (7' Single) 3:17
+02. Roxette - Joyride (Single Version) 4:22
+03. Talk Talk - It's My Life 3:51(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956BFDE689604453869768B8E59DDCFF787F7CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935334   (499408) от 08.09.2015
+
+Prince - HITnRUN Phase One (2015) [MP3|320 кб/с]<Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Million $ Show
+ 02. Shut This Down
+ 03. Ain't About 2 Stop
+ 04. Like A Mack(   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BE45E735922725509896E8A45FA9DE2AC49B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542020   (499169) от 02.09.2012
+
+Silvetti - Spring Rain  (2006) [FLAC|Lossless]<Disco,Funk,Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring Rain (5:55)
+02. Primitive Man (5:25)
+03. A Smile At Dawn (4:38)
+04. Two Cups Of Coffee (3:56)
+05. Voyage Of No Return (5:51)
+06. Coconut Rain (4:30)
+07. Fortune Teller (5:30)
+08. Contigo (4:29)
+09. Spring Rain (Radio Edit) (3:01)Жанр: Disco,Funk,SoulПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542305   (499115) от 02.09.2012
+
+VA - Disco Discharge - Classic Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Glitter Band - Makes You Blind (Re-edit) [06:00]
+02. The Players Association - Turn The Music Up! [06:54]
+03. Bombers - (Everybody) Get Dancin' [09:29]
+04. Grey & Hanks - Dancin' [07:07]
+05. Change - It Burns Me Up [05:07]
+06. Glen Adams Affair - Just A Groove [06:20]
+07. Cerrone - Look For Love [10:17]
+08. Companion - Livin' Up To Love [09:11]
+09. Don Ray - Got To Have Loving [08:20]
+10. Manhattan Transfer - Twilight Zone|Twilight Tone [06:06]Жанр: Disco, PopПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542313   (499108) от 02.09.2012
 
 VA - Disco Discharge - Euro Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
@@ -670,122 +797,6 @@ Angie Gold - 4 Albums (1982-2012) [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAC9D852F7F82E843B9F5CF1629099C97D22FEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936302   (495925) от 11.09.2015
-
-London Boys - Golden Disco Hits (2001) [FLAC|image + .cue]<Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Requiem  [4:14]
-  02.  Harlem Despire  [3:45]
-  03.  Chinese Radio  [3:48]
-  04.  London Nigats  [4:00](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E2EE5DBBDBFCF923EA8A3E79D45A91439415E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243006   (495909) от 25.08.2018
-
-VA - Die 2000er: The Biggest Dance Tracks (2 CD) (2018) [MP3|320 Kbps] <Euro House, Euro dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495909.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Safri Duo - Played-A-Live (The Bongo Song)
-02. David Guetta feat. Kelly Rowland - When Love Takes Over
-03. Kylie Minogue - Can't Get You Out Of My Head(   Читать дальше...   )Жанр: Euro House, Euro DanceПродолжительность: 02:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0FD886A8A226615F529EA96BA857F6F64B8178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243158   (495902) от 25.08.2018
-
-Milk Inc. - Supersized (2006) [FLAC|Lossless|tracks + .cue] <Pop, Trance, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (3:52)
- 02. Tainted Love (3:15)
- 03. No Angel (3:58)
- 04. Go To Hell (3:44)(   Читать дальше...   )Жанр: Pop, Trance, Euro HouseПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542679F3304E9591D664AC4CC9F4A152A1399A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158215   (495847) от 14.08.2017
-
-Claudio Damiani - 2 Albums (1981, 1996) [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный итальянский композитор и автор песен, писавший не только для себя, но и для многих других исполнителей поп музыки на протяжении длительного периода.01. Libera (3:27)
-02. Rotolando (3:48)
-03. Angela No (4:30)
-04. Ricorderai Ricorderai (3:03)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 01:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4E8F1EA678991913E954451E326DC074CFADB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

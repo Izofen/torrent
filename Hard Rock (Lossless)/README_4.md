@@ -1,3 +1,32 @@
+###  Публикация: 1619317   (1033212) от 15.03.2023
+
+Vilivant - Running On Empty (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Life [00:03:32]
+02. Moving Forward [00:02:47]
+03. Running on Empty [00:03:11]
+04. Comatose [00:03:32](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1A806F48FCE024414382E8FC636CC3C5FE3B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176990   (1033191) от 07.02.2021
 
 Spooky Tooth - 12 Albums, 1 Box-set, 24 CD (1967-2015) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Psychedelic Rock, Roots Rock>
@@ -716,35 +745,6 @@ Klee Project - Screaming Out Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1240674EC2A560B40FF26F7D73BB922BB79693F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621816   (1030765) от 26.03.2023
-
-Wishing Well - Sin And Shame (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Line of Fire [00:03:45]
-02. Soul Rider [00:04:56]
-03. Space Invaders [00:05:54]
-04. Mistress of the Night [00:06:49](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E6C886B2009CCC86B3C16550C6FE4325955299
 ```
 
 https://mybot314.ru/tekegram_catalog/

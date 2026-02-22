@@ -1,3 +1,38 @@
+###  Публикация: 168260   (969105) от 21.01.2010
+
+VA - Gothic Romance (2CD) (2009) [MP3|224 kbps]<Gothic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Nightwish - Forever Yours
+02. Umbra Et Imago - Horst Du Mein Rufen
+03. De/Vision - Love Will Find A Way
+04. Poisonblack - With Her I Die
+05. Eisheilig - Dein Traum
+06. Megaherz - Kaltes Grab
+07. For My Pain... - Sea Of Emotions
+08. Unheilig - Mein Stern
+09. Epica - Chasing The Dragon(   Дальше...)Жанр: Gothic
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 168578   (969104) от 21.01.2010
 
 TranslateIt! 8.0 Build 5 [Rus/Eng]
@@ -665,32 +700,6 @@ Opera Developer - браузер Opera, обновляемый каждые дв
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45C151F5E86312BAD52F6D2250D6BECEB674743B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745113   (969029) от 13.01.2014
-
-IObit Uninstaller 3.1.7.2379 Portable by Valx [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-IObit Uninstaller поможет вам быстро и без усилий удалить ненужные программы и папки с вашего компьютера. Там, где встроенный неповоротливый диалог «Установка и удаление программ» не справляется с возложенной на него задачей, IObit Uninstaller принимает эстафету, эффективно выполняя свою работу. Более того, это бесплатная утилита для деинсталляции программ, сама по себе не требующая установки.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB345DC531BFE9730D734CEDCF286D23EC67B4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

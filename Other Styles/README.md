@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1853664   (1057567) от 18.02.2026
+
+Сергей Киреев - Что ж вы, девки, приуныли? (2026) [MP3|320 Kbps] <Russian Folk Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Что ж вы, девки, приуныли [00:02:22]
+02 - Он в простынях увяз по локоть [00:02:27]
+03 - Я в кольчугу одет [00:03:27]
+04 - Первый снег начал танцы свои до упада [00:01:20](   Читать дальше...   )Жанр: Russian Folk PopПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123F85C0DAD948063B1312016D0F18521000534A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853569   (1056800) от 13.02.2026
 
 VA - RC Cars (Недетские гонки) OST (2002) Оригинальные саундтреки [MP3|192 Kbps] <metal,Hard>
@@ -712,35 +741,6 @@ Indian Spirit - Discography (2009 - 2020)  6 Releases [MP3|320 Kbps] <Native Ame
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D78D540F1B3ED8BCCD8F0FEED70A650A04DE68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438462   (1040616) от 10.01.2021
-
-Jim Brickman - The Ultimate Valentine's Day (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valentine
-02. True Love (From "FROZEN: THE BROADWAY MUSICAL")
-03. Memories Of You
-04. Have I Told You Lately That I Love You?(   Читать дальше...   )Жанр: New Age, Instrumental, Easy ListeningПродолжительность: 03:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D96D6F0A9E1862418FEBDC0EB11038E501F177
 ```
 
 https://mybot314.ru/tekegram_catalog/

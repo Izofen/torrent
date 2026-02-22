@@ -1,31 +1,199 @@
-###  Публикация: 521519   (615517) от 17.07.2012
+###  Публикация: 1146005   (616593) от 28.06.2017
 
-Didjworks - Tranceformation (2002) [MP3|320 кб/с]<New Age, World Fusion, Didjeridoo, Breakbeat>
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Чили — Австралия (25.06.2017) HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616593.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2017 года, воскресенье. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 3-й тур
+Чили — Австралия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD9626DF1A8BDBD7EE7ACAF434F8C1DE8B514BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146032   (616592) от 28.06.2017
+
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Чили — Австралия (25.06.2017) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616592.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2017 года, воскресенье. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 3-й тур
+Чили — Австралия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D088776EC501621A8998D0B4CFC8E340EB7C3E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146210   (616591) от 28.06.2017
+
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Германия — Камерун (25.06.2017) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616591.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2017 года, воскресенье. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 3-й тур
+Германия — Камерун(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E79F2C544B558C03D12C2925DDCE9BE87F99DF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145998   (616590) от 28.06.2017
+
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа A. 3-й тур. Новая Зеландия — Португалия (24.06.2017) HDTVRip
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_616590.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 июня 2017 года, суббота. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа A. 3-й тур
+Новая Зеландия — Португалия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146173   (616589) от 28.06.2017
+
+VA - Balearic Underground Part 1 (2017) [MP3|320 Kbps] <Trance>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_616589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bekar-b - Gone To The Sky (Original Mix)  6:14
+02.  Vyacheslav Sketch - 5pm (Original Mix)  5:06
+03.  Farcoste - I Feel You In Thousand Kilometres (Original Mix)  6:22
+04.  Sunmote - Morseton (Original Mix)  3:04(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146245   (616588) от 28.06.2017
+
+Terry Gibbs - Bopstacle Course (1974) Xanadu Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_616588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bopstacle Course [04:41]
+02. Body And Soul [07:07]
+03. Waltz For My Children [04:45]
+04. Softly As In A Morning Sunrise [06:09](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146251   (616587) от 28.06.2017
+
+VA - Whos Afraid Of 138! Top 15 (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615517.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Outbreak Of happiness
-2. Breath Of life
-3. Intuvalation
-4. Peace In Madagascar
-5. Voice In The Wilderness
-6. Soul Of Africa
-7. A Day In The Sun
-8. World Of Wonder
-9. Echoes
-10. Rhythm culture(   Читать дальше...   )Жанр: New Age, World Fusion, Didjeridoo, BreakbeatПродолжительность: 01:01:23
+01. Signum - Euphoric Hope
+02. Ben Nicky - Cobra
+03. Chris Schweizer - Loaded
+04. The Noble Six - Chemicals(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DB1D4CF1C9EC1D3F7EB315F9399531E2C629220
+magnet:?xt=urn:btih:FD38E99E70DF6E8F55695969C7379890849BC855
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,27 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230406   (615516) от 12.06.2018
+###  Публикация: 1146186   (616586) от 28.06.2017
 
-Сергей Смирнов | Задачник по истории науки. От Фалеса до Ньютона (2018) [PDF]
+VA - Heisse Ballerfrauen auf Mallorca Die Partyhits 2017 [MP3|320 Kbps] <Schlager, Pop>
 
->>
->>
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615516.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книгу включено около 600 задач по истории науки от античности до XVII в., список основных событий истории науки и культуры этого периода, а также краткие обзоры развития науки в разные века у разных народов.Все задачи снабжены краткими схемами возможных решений.
-
-Книга адресована учителям, студентам и школьникам.Жанр: МатематикаФормат: PDF
+01. ‘Die immer lacht’ – Die immer lacht 03:30
+02. Andy Luxx – Wir sind die Mallorca Familie 03:36
+03. Mallorca Cowboys – Eskalation 03:53
+04. Till Simon – Wenn sie tanzt 04:49(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:51:14
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4414320858767A6F335A74F2F9BBCD3F425608DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -61,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523806   (615515) от 17.07.2012
+###  Публикация: 1145444   (616585) от 28.06.2017
 
-[Wallpapers 16+] Wallpapers Sexy Girls Pack (17.07.12)
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 2-й тур. Германия — Чили (22.06.2017) HDTVRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615515.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3744
+22 июня 2017 года, четверг. 21:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 2-й тур
+Германия — Чили(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:57:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A34056F911519BCEB88DE7D7AAE4FE4E98C67DE
+magnet:?xt=urn:btih:6F28AC6CA3EA9BA12BE488224468B629578BE078
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -87,300 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230404   (615514) от 12.06.2018
+###  Публикация: 911349   (616584) от 23.06.2015
 
-Mozilla Firefox ESR 52.8.1 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E15C4AB4F0371F0C987BDE994253ACA092222D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523805   (615513) от 17.07.2012
-
-[Wallpapers] Nature Wallpapers (17.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2DC5C12D736DFB9F9B7B184679347F1B498F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230486   (615512) от 12.06.2018
-
-студия Диафильм | Сивка-Бурка (1956) [JPG]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сивка-бурка - волшебная сказка об Иванушке-дурачке. За свое бесстрашие получил Иван от отца подарок и волшебные слова "Сивка-бурка, вещая каурка, стань передо мной, как лист перед травой!". Поехали они все как-то к царевне свататься...Жанр: Диафильм. Сказка.Формат: JPG
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230465   (615511) от 12.06.2018
-
-VA - Radio Italia: Summer Hits 2018 (2018) 2хCD [MP3|320 Kbps] <Pop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J-AX - Italiana (2:54)
-02. Jovanotti - Le Canzoni (4:09)
-03. Calcutta - Pesto (3:28)
-04. Francesca Michielin - Tropicale (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 02:05:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230229   (615510) от 12.06.2018
-
-студия Диафильм | Дюймовочка (1972) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дюймовочка - это крошка-девочка, которая проходит через много приключений. Она спасается от лягушки, но попадает прямо в лапы жука, который вскоре её бросает и бедная девочка остается одна в лесу. У Дюймовочки доброе сердце, ведь она спасается сама и спасает также ласточку, которая переносит её в теплые края на цветок, где малышка и знакомится с королем эльфов...Жанр: Диафильм. Сказка.Формат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069E2064FB7199D9BC08DC38A7131C38B752D57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230395   (615509) от 12.06.2018
-
-VA - Pop Dance Top Selection (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Axwell & Ingrosso - Dreamer
-002. Miley Cyrus - Younger Now
-003. Devin Dawson - All On Me
-004. Natasha Barnes - You Don't Mean It(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:231B90569F399AAD04E16F628D1365BFD2AEC438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230464   (615507) от 12.06.2018
-
-Добро пожаловать в Уиллитс / Welcome to Willits (2016) BDRip [1080p] ATV
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615507.jpg" />
-</div>
-
-
-###  Подробнее
-
-В лесу, неподалёку от небольшого городка Уиллитс, Брок устроил плантацию конопли и нарколабораторию. Но вот беда — мужчину как-то похитили злобные пришельцы, творили с ним всякое непотребство, а потом вернули обратно на Землю. С тех пор Брок потерял покой, потому что гадкие инопланетяне так и не хотят оставить беднягу в покое.Производство: США / BondIt, Real Horror Show Pictures, SSS EntertainmentЖанр: Ужасы, ФантастикаРежиссер: Тревор РайанАктеры: Билл Сейдж, Крис Зилка, Анастасия Баранова, Сабина Гадеки, Гарретт Клэйтон, Томас Деккер, Карруче Тран, Килин Вуделл, Рори Калкин, Дольф ЛундгренПеревод: Многоголосый (профессиональный, закадровый) (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:23:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230489   (615505) от 12.06.2018
-
-Opera 53.0.2907.99 [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523808   (615504) от 17.07.2012
-
-[Wallpapers 16+] Gilrs Wallpaper (17.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 4256x2832
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B10E68095A8FBD9B877137F21005A7CD3F0E180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230390   (615503) от 12.06.2018
-
-Mozilla Firefox Quantum ESR 60.0.2 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EADC7C72C8DE9C876C86B239DA5766274E10596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523986   (615502) от 17.07.2012
-
-AIRO feat: Brulé - American Indian Rock Opera "Tatanka" (2005) [MP3|320 кб/с]<Native American, Rock, Instrumental>
+Elderoth - Mystic (2014) [MP3|320 кб/с]<Progressive Power Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615502.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Buffalo Jump 3:46
-2. Still Standing 4:28
-3. Coming to America 5:34
-4. Iron Horse 4:56
-5. Circle Of Celebration 6:00
-6. (I Used to) Ride Like The Wind 4:42
-7. Fading Fires (Of the Great Chiefs) 3:16
-8. Vision Quest (Dreamer) 3:45
-9. The Last Buffalo Hunt 6:46
-10. Brotherhood (With the Buffalo) 3:52(   Читать дальше...   )Жанр: Native American, Rock, InstrumentalПродолжительность: 00:56:40
+01. Within
+02. Black and Blue
+03. This Shadow by My Side
+04. My Future(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:34:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFA21B9043D0D2621F656F10F7B202DFFCBDBDD9
+magnet:?xt=urn:btih:AA4200D2E0444D2E45F81A68CAFD6614DB4B3EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,129 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523788   (615501) от 17.07.2012
+###  Публикация: 911378   (616583) от 23.06.2015
 
-[Wallpapers] Desktop wallpapers (16.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E236DDBCB791C2206BFB8B592788432BA79BD10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523774   (615500) от 17.07.2012
-
-[EN] Записки сердечного целителя / Notes from the Heart Healer (2012) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокая молодая мать, в силу неблагоприятных обстоятельств оставившая своего ребенка на пороге дома миссис Пейнтон (Genie Francis), спустя некоторое время безуспешно пытается завязать с ней дружбу.Жанр: ДрамаРежиссер: Дуглас БаррАктеры: Джени Фрэнсис, Тед Макгинли и Лачи Й МайлейПеревод: ОтсутствуетПродолжительность: 01:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34E70F42D524F5CE43668C538236D464D4977D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522111   (615499) от 17.07.2012
-
-[Wallpapers 16+] Best Girls Wallpapers (13.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312FFEAE8AD5C2C479DFF93204038532404ECEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523803   (615498) от 17.07.2012
-
-[Wallpapers] Best HD Wallpapers Pack (17.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940E9F58770BA3ECC29691BCC30EA007EF1485CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523931   (615497) от 17.07.2012
-
-The Embodied - The Embodied (2011) [FLAC|Lossless]<Modern Melodic Death/Power Metal>
+Vangough - Living Madness (2015) [MP3|320 кб/с]<Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615497.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Modern Melodic Death/Power MetalПродолжительность: 00:37:49
+01. Depths of Blighttown (Live)
+02. Afterfall (Live)
+03. Separation (Live)
+04. Infestation (Live)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:13
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C8534AD1B7848C97133AE5149BA6172DF6488F12
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,29 +317,229 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 521803   (615496) от 17.07.2012
+###  Публикация: 911369   (616582) от 23.06.2015
 
-Детектор лжи. Выпуск №30 (2012.07.11) (2012) SATRip
+My Refuge - A Matter Of Supremacy (2015) [MP3|320 кб/с]<Progressive / Heavy / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Storm Is Coming
+02. The Cage (Oh Demon in My Eyes)
+03. Calling of the Wind
+04. Endless Night(   Читать дальше...   )Жанр: Progressive / Heavy / Power MetalПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC705A74C943BC5F46A531AF010B0A6DE6C4F5AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911225   (616581) от 23.06.2015
+
+Pleuel - Durch die Wand (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Verfolgung Zu Unrecht
+02. Komplettkontrollverlust
+03. Hoffnung
+04. Durch Die Wand(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B324A51B6D8779C09930A33EEBC662749C2174E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911240   (616580) от 23.06.2015
+
+Aeon Rising - Aeon Rising (2015) [MP3|320 кб/с]<Progressive Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cleansing
+02. Realign
+03. Amenti
+04. The Chain(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B2E716FE6488F234234B54FFED931DD732C8A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911377   (616579) от 23.06.2015
+
+Soldier - Defiant (2015) [MP3|320 кб/с]<Heavy Metal, NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616579.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Conquistador
+2. Leaving
+3. Kill Or Cure
+4. Concrete Wilderness(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8F94FE597F75CF7AFADE254C8DDF778A9C5B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911389   (616578) от 23.06.2015
+
+Immanent - Human Reflection (2015) [MP3|320 кб/с]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616578.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Disturbed Unconscious Mind
+2. Fallen From The eye
+3. Nothings Gonna Change
+4. Mad Happiness(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05E4345D8013584EBB19CBE94A53D3407EEFA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911208   (616577) от 23.06.2015
+
+Rosetta - Quintessential Ephemera (2015) Japanese Edition [MP3|320 кб/с]<Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After the Funeral
+02. (Untitled I)
+03. (Untitled II)
+04. (Untitled III)(   Читать дальше...   )Жанр: Post-MetalПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4744BDEA9DB0880B95308ECB3BA31BADEE248419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911336   (616576) от 23.06.2015
+
+Downfall - A Place In Existence (2015) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginning Of The End
+02. Lights Out
+03. Mutual Demise
+04. My Path(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74289C3EC212D7BE2D9DC69491CD917B74BA1A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911697   (616575) от 23.06.2015
+
+Время покажет с Петром Толстым (23.06.2015) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615496.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый канал представляет премьеру психологического проекта "Детектор лжи", участникам которой предстоит правдиво отвечать на сложные, а порой и нелицеприятные вопросы на произвольные темы, в том числе и касающиеся их личной жизни. Единственный способ выиграть и стать миллионером – это ответить на 21 вопрос игры и подтвердить честность ответов на самом настоящем детекторе лжи.
-
-Создатели "Детектора лжи" обещают множество сюрпризов, которые будут происходить во время эксперимента. Первый и один из главных – ведущий проекта Андрей Малахов, который предстанет перед телезрителями в совершенно новом образе.
-
-"Первый канал находится в поисках человека, который способен говорить правду, только правду и ничего кроме правды. Не будем притворяться: ложь стала нашим образом жизни, повседневным способом общения друг с другом. Мы оправдываем такое положение дел тем, что не хотим расстраивать родных, близких, а на самом деле все глубже увязаем в нашей лжи. Эта программа не на эрудицию. Участнику нет (   Читать дальше...   )Жанр: ТВ-ШоуТелекомпания: Первый каналПродолжительность: 00:48:01
+Самое дорогое, что есть у современного человека, - это квартира. Поэтому все операции с недвижимостью нуждаются в тщательной проверке, чтобы не остаться без жилья. Между тем, во всех регионах страны часты случаи, когда люди, прибегнувшие к услугам риелторов, остаются без квартиры и без денег.
+В первой части программы эксперты говорят о деятельности риелторов, пытаются (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:11:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAE40E11EDA1C8BD0490BDE867931ECF6D59C939
+magnet:?xt=urn:btih:0F0B90942FBCD29F0BCF4FE8DE48278735521064
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,25 +547,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523804   (615495) от 17.07.2012
+###  Публикация: 911204   (616574) от 23.06.2015
 
-[Wallpapers] Cars HD Wallpapers (17.07.12)
+Doomraiser - Reverse (Passaggio Inverso) (2015) [MP3|320 кб/с]<Traditional Doom Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615495.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Addiction
+02. Mirror Of Pain
+03. Ascension: 6 To 7
+04. Apophis(   Читать дальше...   )Жанр: Traditional Doom MetalПродолжительность: 00:52:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30C719037424B7D5D763AE2E139F674E8A71DF61
+magnet:?xt=urn:btih:62126E4AE47C18998514A42B9B8324A64B933DD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -574,60 +576,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523787   (615494) от 17.07.2012
+###  Публикация: 911242   (616573) от 23.06.2015
 
-[Wallpapers] Best HD Wallpapers Pack (16.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4924711885C0F9C8A16C23E09B78A7B23B1E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523862   (615493) от 17.07.2012
-
-For The Fallen Dreams - Wasted Youth (2012) [MP3|320 kbps] <Metalcore / Hardcore>
+Smell My Pillow - Strawberry Lipgloss (2015) [MP3|320 кб/с]<Hard Rock, Female Vocal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615493.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hollow (03:59)
-02. Resolvent Feelings (03:37)
-03. Please Don't Hurt (04:29)
-04. Until It Runs Out (03:13)
-05. Sober (03:28)
-06. Living a Lie (03:27)
-07. Always About You (03:43)
-08. Moving Forward (03:21)
-09. Your Funeral (03:10)
-10. When Push Comes to Shove (03:19)(   Читать дальше...   )Жанр: Metalcore / HardcoreПродолжительность: 00:43:44
+01. Asphyxia
+02. Hung On You
+03. Not Happy
+04. Rotting From The Inside(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:41:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C298F8C5560C1B17DDDD92B5645743C3345BAE0
+magnet:?xt=urn:btih:9D373ADCD8BC141DC940DF70509C45022FB0CFA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,30 +605,108 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523766   (615492) от 17.07.2012
+###  Публикация: 911376   (616572) от 23.06.2015
 
-Joanne Le Blanc - Found & Lost (2012) [FLAC|Lossless]<Blues>
+Nightshift - Winter Within (2014) [MP3|320 кб/с]<Heavy / Speed Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615492.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Built for Comfort [03:54]
-02. I Just Want to Make Love to You [03:27]
-03. I'd Rather Go Blind [05:13]
-04. I'm a Woman [04:45]
-05. I'd Rather Drink Muddy Water [03:17]
-06. Paying the Cost to Be the Boss [03:31]
-07. Voodoo Woman [05:34]
-08. How Blue Can You Get? [06:45]
-09. I Can't Quit You [04:53]
-10. You Can Have My Husband [03:31]Жанр: BluesПродолжительность: 00:44:57
+01. The Walk
+02. Hunter's Moon
+03. Distant Win
+04. Point of No Return(   Читать дальше...   )Жанр: Heavy / Speed MetalПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37336C253DD4B1386C82E18DCD4F847419B12A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911345   (616571) от 23.06.2015
+
+Dendera - Pillars Of Creation (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claim Our Throne
+02. Bloodlust
+03. In High Tide
+04. Disillusioned(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661AE4D4E86F30FBB751C7B6D81988FC6BAFC8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911673   (616570) от 23.06.2015
+
+Illinois Jacquet - The Blues; That's Me! (1969) /2000, Original Jazz Classics/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blues: That's Me! [10:33]
+02. Still King [03:56]
+03. 'Round Midnight [06:55]
+04. The Galloping Latin [05:33](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9740922730DC95895B82C3632D7C1F418B1E70D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545224   (616549) от 18.04.2022
+
+Cherry Audio - CA2600 1.2.0.103 Standalone, VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_616549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cherry Audio CA2600 — это мощный автономный дуофонический синтезатор, вдохновленный новаторским синтезатором ARP 2600. Каждый аспект оригинала, от причудливых волн генератора до мощного лестничного фильтра, внешнего аудиовхода и секции предусилителя, был смоделирован с невероятной точностью. Несмотря на то, что он обладает аналогичными функциями, он был тщательно (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -670,51 +718,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 524019   (615491) от 17.07.2012
+###  Публикация: 1545223   (616548) от 18.04.2022
 
-NG: Голодное нападение / Striker (2007) HDTVRip [H.264/720p]
+Cherry Audio - Memorymode 1.2.0.125 Standalone, VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615491.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта история о кратком,но смертельном мгновении природы. Оно длится всего четверть секунды,но вызывает очень серьёзные изменения. Речь пойдёт об атаке гремучей змеи. Любой,кого когда-либо кусали - знает,чем это грозит. Но жизни можно спасти,если мы поймём,что стоит за этим броском.Жанр: ДокументальныйПеревод: ДублированныйПродолжительность: 00:47:10
+Memorymode основан на одном из самых звучащих полифонических программируемых аналоговых синтезаторов 80-х — легендарном синтезаторе Memorymoog. Выпущенный в 1982 году, Memorymoog поднял звуковую планку своим сочным, мощным аналоговым звуком. Memorymode был искусно смоделирован на основе винтажного Memorymoog, изначально принадлежавшего легенде джаза Чику Кориа. Он (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76FC4C80B9641FA97CAE8CFA6CC85A8F45F80A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523888   (615489) от 17.07.2012
-
-Журнал | Elle Decoration №7-8 (117) [июль-август 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615489.jpg" />
-</div>
-
-
-###  Подробнее
-
-ELLE ДЕКОР - самый красивый и полезный журнал о современном интерьере. В журнале представлены: последние тенденции мебельного дизайна и декорирования, эксклюзивные интервью с известными архитекторами, дизайнерами и фотографии лучших домов России и всего мира.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71D564A047575287453D4A7A331045CEC62EE15
+magnet:?xt=urn:btih:74AC1D3BF173BB58F54275E42A1E050639A65DD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1718482   (110846) от 26.04.2024
+
+Emel - Mra (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Massive Will
+02 – Nar (feat. Ami Yerewolo)
+03 – L’amour (feat. Justina)
+04 – Lose My Mind (feat. Nayomi)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF0709EA58802DB40852C10F64BBA20D9235AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719232   (110655) от 28.04.2024
 
 Marina Kaye - Heavenbound (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ Griff - Vertigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A9C1249A8E8D84B4D9EE03261211FF06E260A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737116   (106560) от 16.07.2024
-
-Duran Duran - Skin Trade (1987) Mix, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skin Trade (Radio Cut) [00:04:26]
-02. We Need You [00:02:53]
-03. Skin Trade (Stretch Mix) [00:07:43]
-04. Skin Trade (Parisian Mix; 2010 Remaster) [00:08:08](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514B832767FF9D13844699412ECEA30E7ABDD72B
 ```
 
 https://mybot314.ru/tekegram_catalog/

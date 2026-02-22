@@ -1,3 +1,32 @@
+###  Публикация: 922220   (571752) от 27.07.2015
+
+Madonna Et Otto Von Wernherr - Les Genies Du Rock - Give It To Me (1995) [MP3|320 кб/с]<Synth-pop, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Give It To Me (3:48)
+02.  Shake (3:11)
+03.  Get Down (3:47)
+04.  Time To Dance (4:19)(   Читать дальше...   )Жанр: Synth-pop, DowntempoПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5602094C625E99AD65692F17ADA9080095D3D21E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921979   (571745) от 27.07.2015
 
 Receptor & Maximova - Mlada / Bayu Bayu (2015) [MP3|320 кб/с]<Drum & Bass>
@@ -657,41 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96A1DA7B41819CDD07E14B4FAA4E07DC57353D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528486   (571565) от 29.07.2012
-
-Breaks Co-op - Roofers (1997) [FLAC|Lossless]<Nu Jazz, Future Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking Forward
-02. To Faraway Lands
-03. Sound Advice
-04. Perpetual Breath
-05. Let Your Hair Down
-06. Solids
-07. Unfettered Mind
-08. Live At The Lister
-09. Charging Depths
-10. Such The Spot(   Читать дальше...   )Жанр: Nu Jazz, Future JazzПродолжительность: 01:44:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

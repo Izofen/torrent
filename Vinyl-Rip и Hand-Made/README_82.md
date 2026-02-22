@@ -1,3 +1,173 @@
+###  Публикация: 1786769   (68917) от 22.03.2025
+
+Vortex - Drink Bat Blood (2010) Released, 2012, Metalizer Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megalomizer
+02. Attracted to Fire
+03. Fury
+04. Unexpected(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C447AD831A515C6C1523B726790DF1B472CDD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786798   (68916) от 22.03.2025
+
+Nephylim - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nephylim - голландская рок-группа, основанная в 2015 году2015 - Torn (EP)
+2020 - Severance of Serenity
+2025 - CircuitionЖанр: Melodic Death MetalПродолжительность: 01:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB520C36488636975B3852FCD9C2E97FC9EADEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786855   (68915) от 22.03.2025
+
+Hidden Intent - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hidden Intent - метал-группа из Австралии, сформированна в 2011 году.2014 - Walking Through Hell
+2018 - Fear, Prey, Demise
+2021 - Dead End Destiny
+2025 - TerrorformЖанр: Thrash/Groove MetalПродолжительность: 02:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FC6E73F9B7DE56C75FD259488E2CD349468D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786845   (68897) от 22.03.2025
+
+Forsaken - Tales of Doom and Woe (2010) (Split) [FLAC|24/96|image + .cue|Vinyl-Rip] <Epic Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forsaken:
+A1. Visions in Thy Shadow (09:25)
+A2. Solitude (Candlemass Cover) (06:27)Жанр: Epic Doom MetalПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADA5D9761A6F576F8F4F4ED01D46333FC8D679F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786833   (68896) от 22.03.2025
+
+Forsaken - Virtues of Sanctity (1993) (EP) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68896.jpg" />
+</div>
+
+
+###  Подробнее
+
+A. Where Angels Have Fallen (06:45)
+B. Confessing My Desolation (06:52)Жанр: Epic Doom MetalПродолжительность: 00:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9FF58432445197438227242571790583F28E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786878   (68895) от 22.03.2025
+
+Fallujah - Empyrean (2022) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Technical Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bitter Taste Of Clarity (04:50)
+02. Radiant Ascension (04:03)
+03. Embrace Oblivion (05:55)
+04. Into The Eventide (06:02)(   Читать дальше...   )Жанр: Progressive, Technical Death MetalПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D9B697B65D111F24127BB2283EAA5801F778A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787191   (68844) от 24.03.2025
 
 Nightwish - Angels Fall First (1997) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
@@ -571,180 +741,6 @@ A3 - Almighty Horde(   Читать дальше...   )Жанр: Death Metal, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FC02E8C804E3F74393D12EE84A6F8DC83C17676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788314   (68560) от 29.03.2025
-
-Einherjer - Norrøn (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68560.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Norrøn Kraft
-A2 Naglfar
-A3 Alu Alu Laukar
-B1 Varden Brenne(   Читать дальше...   )Жанр: Viking MetalПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1557D36C92FEECA09F0B6638061C48ECBD64A0EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788474   (68535) от 30.03.2025
-
-Nightwish - Once (2004) Released, 2013, Nuclear Blast [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Chest of Wonders
-02. Wish I Had an Angel
-03. Nemo
-04. Planet Hell(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09EED9BC75D4789E2AC28BE59545AB55EFE00F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788433   (68534) от 30.03.2025
-
-Don Dokken - Up From The Ashes (1990) [APE|24/96|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68534.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Crash'n'Burn
-A2 1000 Miles Away
-A3 When Some Nights
-A4 Forever(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3413E3A452548C4D6DB7B6E58B292C55DA8733FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788411   (68522) от 30.03.2025
-
-Defacement - Defacement (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68522.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Limbo I
-A2. Shattered
-A3. Limbo II
-A4. Disavowed(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E6FC0E459AA1AB3B3D3C9B79FCDF21A8923D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788743   (68486) от 31.03.2025
-
-Nightwish - End Of An Era (2006) Live, Reissue, 2018, Nuclear Blast [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68486.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Dark Chest Of Wonders
-A2 Planet Hell
-A3 Ever Dream
-B1 The Kinslayer(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F8B6743C6C11C390A0036D9A4B4E5AA77B6414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788697   (68469) от 31.03.2025
-
-Occult - Prepare to Meet Thy Doom (1994) Released, 2016, Cosmic Key Creations [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68469.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Leader In War
-A2 The Black Are Rising
-A3 After Triumph
-A4 Prepare To Meet The Doom(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D62BBC21F8779906E8073D69F5F59529969650
 ```
 
 https://mybot314.ru/tekegram_catalog/

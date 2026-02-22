@@ -1,3 +1,32 @@
+###  Публикация: 1555492   (568908) от 04.06.2022
+
+Ten - Here Be Monsters (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fearless (6:51)
+02. Chapter And Psalm (8:16)
+03. Hurricane (4:33)
+04. Strangers On A Distant Shore (6:03)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467990D6B84A99FFD713832466E888B63F10E77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922622   (568025) от 29.07.2015
 
 Deep Purple - Now What?! (2013) 5CD Box Set [FLAC|image+.cue]<Hard Rock>
@@ -725,35 +754,6 @@ Graham Bonnet Band - Live… Here Comes The Night (Japanese Edition) (2017) [Wav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91CCF9B9C87FB6C9039C97E5769461C8F1E244B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557004   (556472) от 12.06.2022
-
-Yet Again - Revival (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolution
-02. Media Lies
-03. Freedom Ain't Free
-04. Groundhog Day(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8A604432F564B5F9E34FC606B3A40800FEDE9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

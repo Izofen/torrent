@@ -1,3 +1,32 @@
+###  Публикация: 1112020   (845235) от 07.03.2017
+
+George Cables Trio - Dark Side, Light Side (1997) SteepleChase [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dolphin Dance [09:41]
+ 02.Dark Side, Light Side [09:16]
+ 03.Ruby, My Dear [07:38]
+ 04.Alone Together [07:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE148EA47C2C7EC1A7F64F93FB527EAEA9D9D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111993   (845234) от 07.03.2017
 
 Joe Lovano - Landmarks (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -718,35 +747,6 @@ Beady Belle - Songs From A Decade: The Best Of Beady Belle (2015) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BB7375BE336642F30137A127B80E3948F693737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112695   (841733) от 09.03.2017
-
-The Candoli Brothers Sextet - Jazz Horizons (1957, 1958) 2005, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Disc-Location [04:18]
- 02.Beautiful Love [02:26]
- 03.Crazy Rhythm [03:34]
- 04.My Funny Valentine [03:29](   Читать дальше...   )Жанр: Bop, Cool, West Coast JazzПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28E65EB982F561EBBD9B0BB09D3739A6753DE04
 ```
 
 https://mybot314.ru/tekegram_catalog/

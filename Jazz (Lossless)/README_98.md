@@ -1,3 +1,32 @@
+###  Публикация: 1389523   (784285) от 11.06.2020
+
+Jack Parnell - Two Classic Albums Plus 1946 - 1954 (2010) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784285.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Hawk Talks [2:52]
+02. Sure Thing [2:55]
+03. The Carioca [2:25](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9452B38C181361E773E2492F0E8667459DC636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389553   (784280) от 11.06.2020
 
 Richard Smith - First Kiss (1997) Heads Up [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
@@ -716,35 +745,6 @@ Jean-Louis Rassinfosse, Chet Baker, Philip Catherine (1983) 1985, Igloo [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFA2966200E809F0E0A87042F3411EF3B5D8560B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206516   (782161) от 14.02.2018
-
-Dinah Washington - Ballads (1962, 1963) 2002, Roulette Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover Man [03:01]
-02. I Wanna Be Around [03:41]
-03. I Didn't Know About You [03:07]
-04. Funny Thing [02:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2EB95DE7413E6991806622BCEE1FFC2335B562
 ```
 
 https://mybot314.ru/tekegram_catalog/

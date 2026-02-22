@@ -1,3 +1,32 @@
+###  Публикация: 987590   (924179) от 18.02.2016
+
+ДДТ - Песни (2003) Enhanced [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Церковь Без Крестов 	04:12
+02. 	Ты Не Один 	04:20
+03. 	Белая Ночь I 	05:26
+04. 	Белая Река 	05:06(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F4958F9BAEA1F89ECACB60D1BF94B223EF47E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 631336   (923259) от 18.03.2013
 
 Александр Лаэртский - Grand Collection (2001) [FLAC|lossless] <Rock>
@@ -725,35 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:158D6E03C0836FF98AA207C4ED50BD57DD74B53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493935   (892411) от 05.09.2021
-
-Николай Емелин ( Никола Емелин ) - Коло колъ  (2005) [FLAC|Lossless|tracks + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Русь
-02. Царские забавы
-03. Вечерком
-04. Хватит стрелять(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BC70A54ADFB99C1F572FF5BAF67B71657332CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

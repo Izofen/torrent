@@ -1,3 +1,32 @@
+###  Публикация: 1733228   (107305) от 28.06.2024
+
+Rodney Greene - Real Close (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Madness (4:17)
+02. Real Close (feat. Jackiem Joyner) (4:11)
+03. No Stoppin (3:24)
+04. Let Your Love Light Shine (3:22)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075321650744DD65745B39FED36374EA6A9802DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733136   (107293) от 28.06.2024
 
 Anita O'Day - An Evening With Anita O'Day (1956) 1990, Polygram [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Berk Jodoin - Fly Away (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B22F85CDBF510F9D2AD8EB2ADE41B9841148F480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734272   (107162) от 02.07.2024
-
-BRTHR - Brother (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartache Street (4:44)
-02. Holding On So Tight (2:51)
-03. Bridges (4:47)
-04. Cool Water (3:05)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0234D017DE9CF29675FEF6DB82458E09226055
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1179018   (351266) от 30.10.2017
+
+Cannibal Corpse - Red Before Black (2017) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only One Will Die
+02. Red Before Black
+03. Code of the Slashers
+04. Shedding My Human Skin(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702E97A87715AC32B3E983BAE6147BB294404C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577855   (350307) от 21.09.2022
 
 Warhog - Call Of The Voyager (2022) [MP3|320 Kbps] <Heavy, Doom Metal>
@@ -713,35 +742,6 @@ Ne Obliviscaris - Urn (2017) [MP3|320 Kbps] <Melodic Black Metal, Progressive De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF98D16C33790165BC5040687F02F3A4B3EE58AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180101   (344438) от 02.11.2017
-
-Moonspell - 1755 (2017) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Em Nome do Medo
-02. 1755
-03. In Tremor Dei
-04. Desastre(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFA36DDFBE1C14E01AF3FCCAB7F5B9AA038756D
 ```
 
 https://mybot314.ru/tekegram_catalog/

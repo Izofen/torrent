@@ -1,3 +1,90 @@
+###  Публикация: 972993   (980704) от 07.01.2016
+
+VA - Jazz Masterpieces Remixed (2015) [FLAC|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Herbie Hancock - Cantaloupe Island (Remix) (03:25)
+02. Horace Silver - Song for My Father (Remix) (05:19)
+03. Kenny Dorham - Blue Bossa (Remix) (03:40)
+04. Bill Withers - Ain't No Sunshine When You're Gone (Remix) (04:59)(   Читать дальше...   )Производство: Zip MusicЖанр: Jazz, Smooth JazzПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14299F2845A2394D6FCFB805C4FA7A962AC519C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973133   (980671) от 07.01.2016
+
+Dave's True Story - 4 albums (1993-2005) [APE|Lossless|image + .cue] <Jazz, Female Vocals, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980671.jpg" />
+</div>
+
+
+###  Подробнее
+
+DAVE’S TRUE STORY – исключение из всех возможных правил! Начиналось всё это в 1989 году, как джазовый дуэт Дэвид Кантор & Келли Флинт. Затем к ним присоединились Джеф Эйрич и Крис Ботти. И результат совместного творчества, как говорится, превзошёл все ожидания… Музыка, прозрачна, как акварель, а вокал… Это нечто!.. Недаром Келли Флинт называют обладательницей (   Читать дальше...   )Список альбомов:
+1993 - Dave's True Story
+1998 - Sex Without Bodies
+2000 - Unauthorized(   Читать дальше...   )Жанр: Jazz, Female Vocals, SwingПродолжительность: 03:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD09D8591BCCA0A29BA42F80D5B3EF6E6FB5025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972661   (980662) от 07.01.2016
+
+Dave's True Story - 4 albums (1993-2005) [MP3|320 кб/с] <Jazz, Female Vocals, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980662.jpg" />
+</div>
+
+
+###  Подробнее
+
+DAVE’S TRUE STORY – исключение из всех возможных правил! Начиналось всё это в 1989 году, как джазовый дуэт Дэвид Кантор & Келли Флинт. Затем к ним присоединились Джеф Эйрич и Крис Ботти. И результат совместного творчества, как говорится, превзошёл все ожидания… Музыка, прозрачна, как акварель, а вокал… Это нечто!.. Недаром Келли Флинт называют обладательницей (   Читать дальше...   )Список альбомов:
+1993 - Dave's True Story
+1998 - Sex Without Bodies
+2000 - Unauthorized(   Читать дальше...   )Жанр: Jazz, Female Vocals, SwingПродолжительность: 03:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17FFAF46754CF490CE96B393BC194C2C95116F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 442385   (980611) от 07.01.2016
 
 The James Taylor Quartet - Discography (1987-2015) [MP3|256-320 kbps]<Funk, Jazz, Jecks, Groovy>
@@ -686,107 +773,6 @@ Dazie Mae - Songs Matured in Oak (2012) [MP3|320 кб/с] <Cabaret, Jazzy, Count
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:236095899529732EC0AD3BEE80BED4D63C7B5316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742356   (979225) от 06.01.2014
-
-Stuff Smith and ... - 3 альбома (1995-2005) [FLAC|Lossless]<Swing, Bop, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. How High The Moon [05:01]
-02. Blues In The Dungeon [08:37]
-03. Skip It [05:48]
-04. S'posin' [05:53]
-05. Willow Weep For Me [04:36]
-06. This Can't Be Love [08:50]Жанр: Swing, Bop, Easy Listening |Формат: track + cueПродолжительность: 02:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4BEFFCEE70108F52F2B45DF61B16DAD6151C3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742430   (979224) от 06.01.2014
-
-Andy Sheppard, Michel Benita, Sebastian Rochford - Trio Libero (2012) [FLAC|Lossless]<Jazz, ECM>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Libertino (3:41)
-02. Slip Duty (3:40)
-03. I'm Always Chasing Rainbows (4:18)
-04. Spacewalk, Part 1 (3:13)
-05. Dia da Liberdade (4:21)
-06. Land of Nod (3:46)
-07. The Unconditional Secret (4:02)
-08. Ishidatami (3:48)
-09. Skin / Kaa (6:09)
-10. Spacewalk, Part 2 (3:50)(   Читать дальше...   )Жанр: Jazz, ECMПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7EF0FB354B4F1A27F1E0A2BD9350800618CC7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742428   (979221) от 06.01.2014
-
-Steve Kuhn Trio - Wisteria (2012) [FLAC|Lossless]<Jazz, ECM>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Chalet (6:28)
-02. Adagio (7:06)
-03. Morning Dew (6:37)
-04. Romance (4:29)
-05. Permanent Wave (6:38)
-06. A Likely Story (6:45)
-07. Pastorale (6:19)
-08. Wisteria (5:51)
-09. Dark Glasses (5:54)
-10. Promises Kept (5:34)(   Читать дальше...   )Жанр: Jazz, ECMПродолжительность: 01:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434A640F87BACC1F7EBD55BAE6D23586E170EE25
 ```
 
 https://mybot314.ru/tekegram_catalog/

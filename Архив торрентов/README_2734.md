@@ -1,3 +1,32 @@
+###  Публикация: 1231028   (610515) от 15.06.2018
+
+Футбол. Чемпионат Мира 2018. Группа A. 1-й тур. Египет — Уругвай (15.06.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610515.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 июня 2018 года, пятница. 15:00 МСК
+21-й Чемпионат Мира по футболу 2018 года. Групповой турнир.
+Группа A. 1-й тур.
+Египет — Уругвай(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DE68492FC18A403F36001051CD07D8E0F87EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912686   (610506) от 26.06.2015
 
 Comedy Баттл. Последний сезон. Выпуск №13  / Комеди Клаб / Comedy Club  (2015.06.26) SATRip
@@ -674,35 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE3E6D03F30AC865DD8845C0B1D07F64967F82BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037826   (610318) от 26.07.2016
-
-VA - Pharmacy Plus - Anthology  Vol.1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christopher Lawrence & Fergie & Sadrian -  Buenos Aires (Original Mix) 7:25
-02. Serjan -  Lost In Translation (Original Mix) 6:45
-03. Danny JW -  Guardian (Original Mix) 9:58
-04. Awoken -  Xenomorph (Original Mix) 6:04(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F8C291666523DEDCE6C6D81AA12C6A3999DE29
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1175383   (378776) от 18.10.2017
+
+VA - Y.S.E. In The Box Vol.12 (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Simply Wave - What The World Become (Original Mix)  7:10
+02.  Fire Starter - Skydive (Original Mix)  7:58
+03.  Soulscape - Sweet Delicious (Original Mix)  8:07
+04.  Sideform - 7th Sense (Side Effects Remix)  7:27(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 03:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4577EC210150FE58DAD9FDCCCA4E19C942E2123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 720265   (378753) от 08.11.2013
 
 Завершить историю / Clear History (2013) BDRip [1080p]
@@ -663,35 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81AEAB9FEDB2BA96856415B00B88E7F5468162D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068553   (378532) от 02.11.2016
-
-Фигурное катание. Гран-при сезона 2016-2017 "Skate America-2016". Танцы. Произвольный танец (23.10.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378532.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 октября 2016. 21:45 МСК
-1 Этап серии Гран-при сезона 2016-2017
-"Skate America - 2016". Чикаго (США).
-Танцы. Произвольный танецТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F626B61922564BEE52F98261846131518B6140C
 ```
 
 https://mybot314.ru/tekegram_catalog/

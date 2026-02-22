@@ -1,37 +1,3 @@
-###  Публикация: 466767   (96425) от 12.03.2012
-
-Annie Ross - Gypsy (1995) [FLAC|Lossless]<Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsy Overture—Instrumental
-02. Everything’s Coming Up Roses
-03. You’ll Never Get Away
-04. Some People
-05. All I Need Is a Boy
-06. Small World
-07. Together Where You Go
-08. Let Me Entertain You
-09. Reprise1995Жанр: Vocal Jazz, Big BandПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465851   (96423) от 12.03.2012
 
 Marina Lima - Registro A Meia Voz (1996) [FLAC|Lossless]<Brazilian Pop-Jazz, Bossa Nova>
@@ -873,6 +839,41 @@ Delizioso - Italian Swing Sisters (2004) [FLAC|Lossless]<Vocal Jazz, Swing>
 08. Tulipan (3:16)
 09. Pippo Non Lo Sa (3:15)
 10. Senti L'Eco (1:06)(   Читать дальше...   )2004Жанр: Vocal Jazz, SwingПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457017   (94353) от 25.02.2012
+
+3 Cohens - Family (2011) [FLAC|Lossless]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Shufla de Shufla (6:39)
+02. Blues For Dandi's Orange Bull Chasing An Orange Sack (7:41)
+03. With The Soul Of The Greatest Of Them All (9:40)
+04. The Mooch (7:15)
+05. Do You Know What It Means To Miss New Orleans (7:24)
+06. Rhapsody In Blake (4:24)
+07. On The Sunny Side Of The Street (5:12)
+08. Tiger Rag (4:06)
+09. Family (5:32)
+10. Roll ‘Em Pete (5:02)2011Жанр: Mainstream JazzПродолжительность: 01:02:55
 
 ## Скачать торент
 ```bash

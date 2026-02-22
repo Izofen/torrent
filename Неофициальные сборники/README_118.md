@@ -1,3 +1,290 @@
+###  Публикация: 1496784   (869501) от 19.09.2021
+
+VA - Громкие новинки Сентября (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джаро & Ханза - Краса (2:22)
+02. Drake - Champagne Poetry (5:36)
+03. Raye, Riton - I Don't Want You (3:10)
+04. Vize, Anna Grey - Way Back Home (2:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D920852FB9884F5577B7C6916B9876696452BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 302085   (869352) от 28.02.2011
+
+VA - Высшая лига интернациональная 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F044EDBBF018CA66A1073264416D9F3341562AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374962   (869094) от 12.04.2020
+
+VA - Music For Everyone - Vocal Trance & Progressive Vol.6 (2020) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869094.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kago Pengchi - Yeowoobii (Original Mix)
+2. Above & Beyond pres. OceanLab - Another Chance (Above & Beyond Club Mix)
+3. John Gregory - Illuminate (Suonare Remix)
+4. Alex Leavon & Lokka Vox - Alive (Radio Edit)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 02:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B415DDEBC2355E0C683EBCF1E08B6CB50F2156FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375138   (868983) от 12.04.2020
+
+VA - Acoustic Rock vol.3 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America - A Horse with No Name (04:12)
+02. Bread - Everything I Own (03:07)
+03. Faces - Ooh La La (03:34)
+04. Alanis Morissette - Ironic - Acoustic Version (03:55)(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1199BDF5A56B472712B1349C871022942FB5CFBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375051   (868979) от 12.04.2020
+
+VA - не Громкие новинки недели 63 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868979.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Bahh Tee feat. Turken - О Тебе (4:53)
+2.Bahh Tee feat. Эллаи - Ты Меня Не Стоишь (4:31)
+3.Brandon Stone - Натали (4:16)
+4.Darrem - Подарю (3:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B5931D8E82652ACA16B8DE112587309B679628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 766802   (868975) от 15.03.2014
+
+VA - My Favourite Hits of 1981 (11CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth pop, New age, Pop rock, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868975.jpg" />
+</div>
+
+
+###  Подробнее
+
+172. Eddy Grant - Can't Get Enough Of You
+173. Maywood - Distant Love
+174. Rainbow - Difficult To Cure (Beethoven's Ninth)
+175. Stars On 45 - Stars Get Ready(   Читать дальше...   )Жанр: Disco, Pop, Synth pop, New age, Pop rock, RockПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4868CAFDF76F28AC17317CC10EDC9A5C57ED5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375081   (868903) от 12.04.2020
+
+Robert Plant - 100% Robert Plant (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Log (2006 Remaster)
+02. Heaven Knows (2006 Remaster)
+03. Burning Down One Side (2006 Remaster)
+04. Little by Little (2006 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 02:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906B32B664C89E33CEE4030046928EA3E17706DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374031   (868725) от 12.04.2020
+
+Комитет Охраны Тепла - Лучшее (1991-2001) [MP3|320 Kbps] <Рэгги>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 48x50 Девочка давай (live Forpost 2001)
+02. 48x50 Девочка давай
+03. Jedem Das Seine (Каждому своё ) (live Forpost 2001)
+04. Африка (live Forpost 2001)(   Читать дальше...   )Жанр: РэггиПродолжительность: 01:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713A46C1354FE7FDDB71F771D0BA6BF0ACE117C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998570   (868647) от 20.03.2016
+
+Олег Ершов - За сиреневым дождем (2008) [MP3|320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А где-то там
+02. Ах,заграница
+03. Водочка
+04. Для тебя(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACFE957EC257F9A6D9F75D59BA105071DCA3AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374983   (868617) от 12.04.2020
+
+Manowar - 100% Manowar (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carry On
+02. Hail and Kill
+03. Battle Hymn
+04. Fighting the World(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 04:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6717DA211254BFE99F66662D96771C83371DA74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375019   (868608) от 12.04.2020
 
 VA - Acoustic Rock vol.2 (2020) [MP3|320 Kbps] <Rock>
@@ -455,302 +742,6 @@ VA - Woman of Jazz (2017) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9934505B6029F516B7401CE832F32C94EF619AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375119   (867274) от 13.04.2020
-
-VA - Beatport Electro House: Sound Pack #57 (2020) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867274.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Milani - Say It Now
-002. Musata - Spinning Noise
-003. Falstronic - Strike Force
-004. Federico Seven - Stereo(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 06:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC5F1A319B0657E05B546C2F036128DD3C188492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375106   (867194) от 13.04.2020
-
-VA - Bass Reflex: Drum Electro Sound (2020) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867194.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Koznik & Khavy - Nasty
-002. Jaydan - Raggamuffin
-003. Pruf - Stand Up
-004. Ill Truth - On And On(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 09:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB292278ED1C66CD4FA43EBB64BAB5C1A4690120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375247   (867187) от 13.04.2020
-
-VA - Acoustic Rock vol.5 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Mayer - Who Says (02:55)
-02. Mudvayne - Forget to Remember - Acoustic (03:38)
-03. Pop Evil - 100 In A 55 - Acoustic (03:32)
-04. Halestorm - Break In (04:45)(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A306EE1D2AE5F932668E08850DD8E9A3AB02F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375117   (867116) от 13.04.2020
-
-VA - Beatport Deep House: Electro Sound Pack #58 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Godfathers - Roper St
-002. Modular Bros. - Jailtime
-003. Anton Ishutin - Release The Energy
-004. Djscifi - Trap Inside Your Love(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058785C28F316AF76AA52D0A5DAE1B86249C0253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375335   (867113) от 13.04.2020
-
-VA - Metal Supreme (2020) [MP3|320 Kbps] <Rock, Metal, Thrash-Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867113.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Metallica - Enter Sandman 5:31
-002. Anthrax - Caught In A Mosh 5:00
-003. Heaven Shall Burn - Endzeit 4:18
-004. Sepultura - Arise 3:18(   Читать дальше...   )Жанр: Rock, Metal, Thrash-Metal, Industrial-MetalПродолжительность: 08:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D01D3C51B2E27652CC593D44CF5F83A8754D033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375121   (867111) от 13.04.2020
-
-VA - Inspiration: Vocal House Party (2020) [MP3|320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867111.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Taffo Velikoff - You
-002. Dj Fixx - Back 2 Ya
-003. Lione With Miranda Glory - Kids
-004. Furkan Syzo - Broken Heart(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908132E107C89A183D870A5EF43EA98E9C32C0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375103   (867102) от 13.04.2020
-
-VA - Popular Hits Of The 60s (2020) [MP3|320 Kbps] <Pop, Retro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shirley Bassey - Big Spender
-02. The Pacemakers - How Do You Do
-03. Freddie - The Young Ones
-04. Alma Cogan - Tennessee Waltz(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 02:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21000C9052251E8C189F5773963D198FC9831907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375294   (867037) от 13.04.2020
-
-VA - Best Metal Of All Time (2020) [MP3|320 Kbps] <Rock, Metal, Thrash-Metal, Industrial-Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867037.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Metallica - Master Of Puppets (Remastered) 8:35
-002. Pantera - Walk 5:15
-003. Slipknot - Psychosocial 4:43
-004. System Of A Down - Chop Suey! 3:31(   Читать дальше...   )Жанр: Rock, Metal, Thrash-Metal, Industrial-MetalПродолжительность: 08:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9344C86F27BF002C3A33881DCAC72EC3691A7F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374731   (867031) от 13.04.2020
-
-VA - Great Artists of My Heart Vol. 01 (2020) [MP3|320 кб/с]<Symphonic Gothic Metal, Indie>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867031.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:25| 01. My Indigo - My Indigo
-|03:45| 02. Within Temptation - Grenade (Originally By Bruno Mars)
-|04:53| 03. Within Temptation - Forsaken
-|05:35| 04. Within Temptation - The Heart Of Everything(   Читать дальше...   )Жанр: Symphonic Gothic Metal, Indie •Продолжительность: 08:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D39C77977B6AC9BB4843F2FBEAE0FE0CFC4F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302360   (866982) от 01.03.2011
-
-VA - Хит-Парад Рок Звезд (2011) [MP3|256 kbps]<Русский рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кукрыниксы - Дождь смывает все!
-02. Найк Борзов - Начало дня
-03. Zdob si Zdub - Молдавский хардкор
-04. Король и Шут - Король вечного сна
-05. Сергей Скачков - Вызов
-06. Глеб СамойлоFF & The MatriXX - Ненормальный
-07. Пикник - Кукла с человеческим лицом
-08. Animal Джаz - Токсикоз
-09. Биплан - Последний день на луне
-10. Илья Шипилов - Моя война(   Читать дальше...   )Жанр: Русский рокПродолжительность: 06:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA552372D3678A8538397C88B706F884B35924F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1321446   (458937) от 24.08.2019
+
+Taylor Swift - Lover (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Forgot That You Existed
+02. Cruel Summer
+03. Lover
+04. The Man(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236B1FB0165DEFA232A069459D0CA6BD3966BE25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568793   (457908) от 10.08.2022
+
+VA - NOW That's What I Call Music! Vol. 83 (2022) [MP3|320 Kbps] <Hip Hop, Rock, Afro Beat, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kendrick Lamar - N95
+02. Dove Cameron - Boyfriend
+03. Em Beihold - Numb Little Bug
+04. Tyga, Doja Cat - Freaky Deaky(   Читать дальше...   )Жанр: Hip Hop, Rock, Afro Beat, SynthpopПродолжительность: 01:06:53 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49858AE5CD3B0BB9342363F71E549E5F20447E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568725   (457802) от 10.08.2022
+
+Fancy - Contact (1986) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reaving Queen (4:21)
+02. Don't Want To Go (4:07)
+03. Bolero (Hold Me In Your Arms Again) (4:05)
+04. Feedback, Feedback (5:05)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B24AFFB894F97F9D78EC4821CD251836B4125CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568684   (457800) от 10.08.2022
+
+Bad Boys Blue - The Fifth (1989) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady In Black 3:46
+02. Someone To Love 3:05
+03. A Train To Nowhere 3:53
+04. I'm Not A Fool 3:49(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D694A21866E0D048ED927B7FF6822E472B30B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568799   (457791) от 10.08.2022
 
 VA - The Best Of Italo-Disco Vol. 9 (1987) [OGG|485 Kbps] <Italo-Disco>
@@ -636,119 +752,6 @@ Poussez! - Poussez! (Poo-say) (1979) Reissue CD (2005) [MP3|320 Kbps] <Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3325EE279CC3281CC5D23395B1FF0549A1F3ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162826   (454981) от 03.09.2017
-
-Bardeux - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Dance-pop, Synth-pop, Hi NRG>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bardeux - американский танцевальный дуэт 80-х годов, выпустивший достаточное количество хитов за свое недолгое существование. Исполнительницы: Acacia (Stacy Smith) - постоянно, Jaz (Lisa Teaney) - первый альбом, Melanie Taylor - второй.01. Magic Carpet Ride (3:24)
-02. Three Time Lover (3:31)
-03. Caution (3:38)
-04. Bleeding Heart (3:55)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Synth-pop, Hi NRGПродолжительность: 01:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEEC950523BA2E69CD9B09FF684022D7D59FECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247132   (454931) от 14.09.2018
-
-Liquid Gold - Liquid Gold (1981) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Panic (2:58)
-02. Substitute (4:29)
-03. The Night The Wine The Roses (4:26)
-04. Mr. Groovy (5:45)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EFDA8CEFAD38424A53D81230B12A440AF47AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550055   (454885) от 23.09.2012
-
-Carly Rae Jepsen - Kiss (Deluxe Edition) (2012) [FLAC (tracks+cue)|Lossless]<Pop, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321702   (454696) от 26.08.2019
-
-Сергей Лазарев - Я не боюсь (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лови
-02. Я не боюсь
-03. Близко
-04. Может(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B00823B4503542028FA23F7DB188FD1A55BDC00
 ```
 
 https://mybot314.ru/tekegram_catalog/

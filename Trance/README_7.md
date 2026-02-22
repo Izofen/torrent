@@ -1,3 +1,38 @@
+###  Публикация: 768351   (862560) от 19.03.2014
+
+VA - Pure Trance Bliss 2014 [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Arty - Twilight Tonight - Original Mix
+002. Estiva - Reach For The Sky - Original Mix
+003. Juventa - The Strip - Original Mix
+004. Aruna - Reason To Believe - Speed Limits Remix
+005. Super8 & Tab - Teardrops - Original Mix
+006. Daniel Kandi - Change The World - Original Mix
+007. D-Mad - Must Be Together - Original Mix
+008. AWD - Summer's End - Original Mix
+009. Jjoo - Sakura - Original Mix
+010. Estiva - Smiley Smilesworth - Original Mix(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB71E4B696EE6D2DBC0E17F1B81A6E0C1AD44E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 304264   (860385) от 05.03.2011
 
 Milk Inc - Nomansland (2011) [MP3|320 kbps]<Vocal Trance,EuroTrance,Trance>
@@ -734,32 +769,6 @@ VA - Vocal Trance 2k18 Vol. 1 (2018) [MP3|320 Kbps] <Trance,Vocal Trance,Uplifti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FD11D8BB99AD7C1F9F1A82234935F3F56249B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197099   (817291) от 06.01.2018
-
-VA - Dream Dance Vol.84 (2018) [MP3|320 Kbps] <Trance, House, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance, House, DanceПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508291010420877481111E96DA7BFB22515E8DBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1211887   (776739) от 09.03.2018
+
+Cinderella - The Best of the Best (2018) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Don't Like It
+02. Long Cold Winter
+03. Once Around The Ride
+04. Nobody's Fool(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95124F37F8422466CA40220EBDC3C573AD1A87B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212272   (776051) от 11.03.2018
 
 VA - Declaration Of Love: Pop Rock ballads (2018) [MP3|320 Kbps] <Pop Rock>
@@ -718,35 +747,6 @@ VA - I Love Music! - Extreme Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Thrash 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B81491284C9B4756213D042DD5577944712D17FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126573   (765369) от 18.04.2017
-
-VA - I Love Music! - Alternative Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3 Pill Morning - Escape 3:59
-002. AFI - She Speaks The Language 4:01
-003. Acceptance - 73 5:00
-004. Acronycal - Lost Without A Name 4:23(   Читать дальше...   )Жанр: Alternative Rock, Punk-Rock, Pop-PunkПродолжительность: 06:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE6F34A554FAB9F90987D5DEEECF537464AD1E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

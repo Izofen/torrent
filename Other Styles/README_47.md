@@ -1,3 +1,38 @@
+###  Публикация: 648526   (852966) от 25.04.2013
+
+Anthony Ventura - Love Album (2013) [MP3|256 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 I can't stop loving you (04:28)
+02 Stranger On The Shore - Love Is Blue (03:49)
+03 Comme D'habitude (My Way)(03:17)
+04 La vie en rose (03:04)
+05 My Happiness - Only You (04:55)
+06 Love Story (03:40)
+07 When A Man Loves A Woman (02:45)
+08 Speak Softly Love - Somewhere Over The Rainbow (04:12)
+09 Let Your Love Flow - It's a Heartache (04:11)
+10 Apres Toi (03:52)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AE72AF1D2383F509169D4313EA8B33C4B1B1D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 191177   (852912) от 11.04.2010
 
 Студия Сретенского монастыря - Акафисты (Не указан) [MP3|320 kbps]<Православные песнопения>
@@ -747,35 +782,6 @@ Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4D48D0F5A5ACED87D26947B9067D0B78D7726E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002499   (846832) от 01.04.2016
-
-Gelka - Stardust Memories (2015) [MP3|128 кб/с] <Electronica>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Have You Kept Your Ticket 04:06
-02 Flying Clouds (feat. Phoenix Pearle) 03:40
-03 These Days (feat. Sena) 03:53
-04 Inside Galaxies (feat. Phoenix Pearle) 03:50(   Читать дальше...   )Жанр: Chillout, Lounge, PopПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203A489A4E12A0A854A4FAAC1B82D70A47801F67
 ```
 
 https://mybot314.ru/tekegram_catalog/

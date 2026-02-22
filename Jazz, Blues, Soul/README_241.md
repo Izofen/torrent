@@ -1,3 +1,90 @@
+###  Публикация: 908780   (630220) от 16.06.2015
+
+Milt Jackson - And The Thelonious Monk Quintet (2013) [FLAC|Lossless]<Jazz, Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lillie [03:19]
+02. Tahiti [03:30]
+03. What's New [03:16]
+04. Bags' Groove [03:09](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, Hard BopПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708A5CA3DD1F5977F832DF7E0917BB49F0BA59B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909051   (630219) от 16.06.2015
+
+Wynton Marsalis - The Music of America (2012) 2CD /Sony Masterworks/[FLAC|tracks+.cue]<Jazz, Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630219.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Express Crossing (Astride from Horses) [05:13]
+02. 'D' in the Key of 'F' (Now the Blues) [05:17]
+03. Jump [04:22](   Читать дальше...   )Жанр: Jazz, Post-Bop, Big BandПродолжительность: 02:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA0E7F260DCC908CF647FD7C5EA083BDE1E65E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294262   (630104) от 07.04.2019
+
+Joey DeFrancesco - In The Key Of The Universe (2019) Mack Avenue [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Being [5:19]
+02. Vibrations in Blue [6:42]
+03. Awake and Blissed [3:02]
+04. It Swung Wide Open [3:55](   Читать дальше...   )Жанр: Soul Jazz, Post-Bop, Straight-Ahead JazzПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A898D11B6046138441D7D24636CEF85DFEA06331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294132   (630102) от 07.04.2019
 
 Tal Farlow - Three Classic Albums Plus (1954 - 1959) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
@@ -680,93 +767,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCEEE959CAE44218AAAE2CD56E849D1716D1ED3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909762   (626406) от 18.06.2015
-
-Omar Coleman - Born & Raised (2015) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tryin' To Do Right (3:56)
-02. Man Like Me (3:47)
-03. Sit Down Baby (3:14)
-04. I Was A Fool (5:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B0DD277B325DB49C0EDF89041CC39ABFE28FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294810   (626269) от 09.04.2019
-
-Jan Johansson - Musik genom fyra sekler med Jan Johansson (1995) 2CD, Heptagon Records [FLAC|Lossless|tracks + .cue] <Swedish Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626269.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Vem kan segla forutan vind [3:20]
-02. Herr Peder och Malfred [2:06]
-03. Vi skall stalla till med en roliger dans [3:13](   Читать дальше...   )Жанр: Swedish Jazz, Post-Bop, Piano JazzПродолжительность: 01:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255CB74E7879E4BB0A4B168217F80CAB74B93B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294711   (626266) от 09.04.2019
-
-Natalie Cressman & Ian Faquini - Setting Rays Of Summer (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terê (4:30)
-02. L’Aube (2:05)
-03. Lenga Lenga (3:06)
-04. Debandada (4:35)(   Читать дальше...   )Жанр: Jazz, Brazilian JazzПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599F2B854EF5ABA86598E48038031FEAE8ED66B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

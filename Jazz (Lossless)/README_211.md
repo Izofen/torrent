@@ -1,3 +1,32 @@
+###  Публикация: 1167713   (415094) от 21.09.2017
+
+The Dick Morrissey Quartet - Here And Now And Sounding Good! (1966) 1995, Norma [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Off The Wagon [08:21]
+02. Corpus [07:05]
+03. Don't Fall Over The Bridge [04:18]
+04. Sunday Lunch [08:05](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B43CC9A3FD693E5688AC8158063424E0D389A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066276   (414948) от 25.10.2016
 
 Carmen McRae - Something to Swing About (1959) 1989, Warner[FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Mitchel Forman - Harvest Song (1997) /Jazzline/[FLAC|image+.cue]<Jazz Fusion, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69C1E1CCD5CAA85BBAA36665CF5C68A3A500217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948334   (411788) от 20.10.2015
-
-Ray Bryant - Trio (1956) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cubano Chant [03:07]
- 02.Off Shore [03:57]
- 03.Well, You Needn't [03:19]
- 04.Cry Me A River [03:52](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379BCA055470FBF14180D86181B5ABDBE69A7410
 ```
 
 https://mybot314.ru/tekegram_catalog/

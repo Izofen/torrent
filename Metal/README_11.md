@@ -1,3 +1,29 @@
+###  Публикация: 162503   (986549) от 07.01.2010
+
+Vicious Crusade - Freedom Comes (2009) [MP3|320 kbps]<Melodic Thrash>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Melodic ThrashПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 163983   (986542) от 07.01.2010
 
 Melechesh - Emissaries (2006) [MP3|~256 kbps] <Mesopotamian metal>
@@ -783,33 +809,6 @@ Serenity - The Last Knight (2020) [MP3|320 Kbps] <Progressive Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06A6254B1E45A4EA088C49E7CE59550BA7A76493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973670   (978936) от 09.01.2016
-
-Lemmy & Motorhead - Leaving Here - Second Hand Songs (2016) Bootleg [MP3|320 кб/с] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shakin' All Over (Johnny Kidd & The Pirates)
-02. Train Kept-A-Rollin' (The Johnny Burnette Trio)Жанр: Hard Rock, Heavy MetalПродолжительность: 01:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903981AC6797F9E59A68C0C81C27D139A3280444
 ```
 
 https://mybot314.ru/tekegram_catalog/

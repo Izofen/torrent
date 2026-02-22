@@ -1,3 +1,90 @@
+###  Публикация: 904722   (653461) от 04.06.2015
+
+Larry Coryell - Heavy Feel (2015) [FLAC|Lossless]<Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Note (4:15)
+02. River Crossing (3:36)
+03. The Way It Was (3:49)
+04. Polished (3:30)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D8318A2BE9E5C53DB080CB1A32D0E58CA1FFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904763   (653458) от 04.06.2015
+
+Milton Nascimento - Anima (1982) /1988, Philips/ [FLAC|tracks+.cue]<World Fusion, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evocacao das montanhas (6:03)
+02. Teia de renda (2:43)
+03. Anima (4:12)
+04. Olha (3:13)(   Читать дальше...   )Жанр: World Fusion, Brazilian JazzПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE44CB98447BE28D850226F184FB0D0322454FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905059   (653450) от 04.06.2015
+
+Sonny Landreth - Bound By The Blues (2015) [MP3|320 кб/с]<Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkin' Blues (4:50)
+02. Bound By The Blues (3:08)
+03. The High Side (3:57)
+04. It Hurts Me Too (3:37)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC774EE3FD6DDD22BE67CC3339C6F22F3FA761D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904854   (653440) от 04.06.2015
 
 The Kentucky Headhunters with Johnnie Johnson - Meet Me In Bluesland (2015) [MP3|320 кб/с]<Modern Electric Blues, Rockin' Blues>
@@ -658,93 +745,6 @@ Robin Trower - Let There Be A Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09F72EB8ED0007BAFAFDA45273F7622E000EB4A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031715   (652166) от 04.07.2016
-
-Denny Zeitlin Trio - Live at the Trident (1965) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction / St. Thomas [04:07]
- 02.Carole's Waltz [05:47]
- 03.Spur Of The Moment [06:07]
- 04.Where Does It Lead [05:13](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F49C35B075674F9E9DE06C51677895F49280375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905345   (652097) от 05.06.2015
-
-Hendrik Meurkens Quartet - A Night In Jakarta (2010) [FLAC|Lossless]<Jazz, Post-Bop, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Night in Jakarta [06:04]
-02. A Ilha [05:38]
-03. Choronto [05:08]
-04. They Can't Take That Away From Me [04:44](   Читать дальше...   )Жанр: Jazz, Post-Bop, Latin JazzПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553BAC2FC7EA572151EB1785C19E0B96CFE30243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031733   (651996) от 04.07.2016
-
-George Winston - Ballads And Blues 1972 - Piano Solos (1973) LP [MP3|320 Kbps] <Ragtime, Piano Blues, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Highway Hymn Blues    03:06
-02.  Song    03:24
-03.  Go 'Way From My Window    01:33
-04.  The Woods East of Deland    03:03(   Читать дальше...   )Жанр: Ragtime, Piano Blues, Contemporary JazzПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31842AA7F095449ECDD222B34183D7B1460FC186
 ```
 
 https://mybot314.ru/tekegram_catalog/

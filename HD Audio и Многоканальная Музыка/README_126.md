@@ -1,3 +1,177 @@
+###  Публикация: 1724765   (109116) от 22.05.2024
+
+Deep Forest, Olivier Delevingne - Crystal Clear (2024) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <electronic world music>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Danube Passa (00:02:53)
+02 - Walking On a Doom (00:02:27)
+03 - Crystal Clear (00:03:29)
+04 - Must Be an Angel (00:02:40)(   Читать дальше...   )Жанр: electronic world musicПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FB7C6BCB0B57499AEF42C350DE1E0F18396C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724734   (109109) от 22.05.2024
+
+Engineered Society Project - Deception (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deception (3:24)
+02. Who Am I (4:10)
+03. Fade Away V.2 (4:19)
+04. Undertaker (5:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C40074A304A90D6857915DACF7678C8D38A95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724753   (109108) от 22.05.2024
+
+Alana Yorke - Destroyer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Dream Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tidal Wave (00:03:28)
+02 - All The Flowers (00:03:39)
+03 - Into The Night (00:04:36)
+04 - Marion (00:05:03)(   Читать дальше...   )Жанр: Alternative, Dream PopПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DD21337987B59E67602240194F4EDDE5DEFA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724731   (109107) от 22.05.2024
+
+Corey Taylor - CMF2B... or Not 2B (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HSOAT (1:21)
+02. Tank (4:04)
+03. Not in the Mood to Live (3:24)
+04. Killing Machine (2:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D36A0EEB4AD8C0525C618EF92B9EB9616AA9AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724622   (109105) от 22.05.2024
+
+Smooth Jazz Music Academy, Background Instrumental Music Collective - The Softness of Jazz: Instrumental Mellow Jazz, Slow Relaxing Jazzy Ballads (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow Your Dreams (3:28)
+02. Background Instrumental Music Collective - Everything’s Possible (3:05)
+03. Dreams Come True (3:15)
+04. Background Instrumental Music Collective - Life Is Like a Road (3:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56DCE26DB79D5A1F15FB59F9D967D1C7DDC21928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724621   (109102) от 22.05.2024
+
+Skov-Roar-Rifbjerg Trio - Busy Spectacle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Busy Spectacle (4:51)
+02. Theme From Rosemary's Baby (5:15)
+03. Blue Pepper (3:34)
+04. Danube Incident (4:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2C4180F4CDA1328933554FDCF3EBCCD51C8C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724756   (109090) от 22.05.2024
 
 A Bad Think - X (2022) Remaster, 2024, Windmark Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -569,177 +743,6 @@ Vasilis Xenopoulos & Paul Edis - Feels Like Home (2024) [FLAC 24/44.1|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6D84DFB2E570F04F8DD84B3E041A610A7C7AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725726   (108906) от 25.05.2024
-
-The Jazz Defenders - Memory in Motion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meanderthal (4:12)
-02. The Long Haul (4:44)
-03. Chasing Fantasies (4:46)
-04. Rolling on a High (3:38)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBB52310BFD9AEB37320D050AAF1293CA6D4334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725643   (108903) от 25.05.2024
-
-Night Laser - Call Me What You Want (2024) [FLAC 24/48,44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bittersweet Dreams (3:27)
-02. Way To The Thrill (4:43)
-03. No More Changes (3:10)
-04. Don't Call Me Hero (5:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D41A6285FD20402E3AE980DECEC2B8AA29471E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725787   (108900) от 25.05.2024
-
-The Devil Wears Prada - 2 Singles (2024) [FLAC 24/48,44.1|Lossless|WEB-DL|tracks] <Christian, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritual [00:03:43]Жанр: Christian, MetalcoreПродолжительность: 2 CD, 00:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04360F703713946585AFE882C2B1323F777CC0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725777   (108898) от 25.05.2024
-
-Bloodorn - Let the Fury Rise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture χιϛ [00:00:52]
-02. Fear The Coming Wave [00:04:20]
-03. Under The Secret Sign [00:04:33]
-04. Rise Up Again [00:03:38](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E3F2B2BD20B6455FA8CABC4FCD3793AAF4E3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725640   (108897) от 25.05.2024
-
-Eregion - Non Omnis Moriar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingdom of Heaven 05:25
-02. Ride Forth 04:02
-03. The Rival Kings 03:52
-04. Battle To Carry On 05:25(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A185A7E456D3EEA1FA6FA126D1E25A17A185A1D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725616   (108896) от 25.05.2024
-
-Rotting Christ - Pro Xristou (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Black Metal, Dark Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pro Xristou (1:27)
-02. The Apostate (5:02)
-03. Like Father, Like Son (4:35)
-04. The Sixth Day (3:56)(   Читать дальше...   )Жанр: Melodic Black Metal, Dark MetalПродолжительность: 00:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8A8183FDA038AC76985D593D34AD1C11981D43
 ```
 
 https://mybot314.ru/tekegram_catalog/

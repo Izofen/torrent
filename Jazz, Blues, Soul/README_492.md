@@ -1,3 +1,32 @@
+###  Публикация: 1600965   (154230) от 29.12.2022
+
+Jan Dylan Hunter - Blues Au Jus (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parisian Quarantine (3:00)
+02. Mayday 2020 Blues (2:49)
+03. Ghosts in Your Head (3:20)
+04. Nothing in Between Us (1:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6362328F79DC9804A29992BE3A764321073C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600977   (154213) от 29.12.2022
 
 Wood Roses - We Call It Maize (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ Grant Green - Remembering (1961) 2013, Essential Jazz Classics [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A33533CE82EE4A6C7E7269DB8557B70189D19D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677066   (153445) от 16.11.2023
-
-Willis Jackson - Bar Wars (1977) 1989, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Later [5:56]
-02. Blue & Sentimental [3:04]
-03. Bar Wars [7:03]
-04. The Breeze and I [4:56](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB6355CFC3CBE234E030627EA4FC330C1E941D89
 ```
 
 https://mybot314.ru/tekegram_catalog/

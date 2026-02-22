@@ -1,3 +1,38 @@
+###  Публикация: 428359   (994318) от 01.01.2012
+
+Soul River Dogs - Soul River Dogs (2011) [APE|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Crazy [3:38]
+02.  Hell No! [4:35]
+03.  Karma [4:03]
+04.  All I Wanna Do [3:50]
+05.  Keep Rockin' [4:53]
+06.  Jesu$ Money [4:00]
+07.   Never Change My Ways [4:06]
+08.  Nothingman [4:04]
+09.  Roses For The Dead [6:19]
+10.  The Junk (All Funked Up) [3:54]Жанр: Hard RockПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 431383   (992589) от 04.01.2012
 
 Bad Habit - Atmosphere (2011) [APE|Lossless]<Melodic Hard Rock>
@@ -792,41 +827,6 @@ Snakecharmer - Snakecharmer (2013) [FLAC|lossless] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742901   (977002) от 07.01.2014
-
-James Christian - Lay It All On Me (2013) Japanese Edition [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Lay It All On Me   (4:49)
-02.  Sacred Heart   (3:39)
-03.  Day In The Sun   (3:34)
-04.  Believe In Me   (3:32)
-05.  You're So Bad   (4:05)
-06.  Don't Come Near Me   (4:40)
-07.  Let It Shine   (4:23)
-08.  She's All The Rage   (4:06)
-09.  Sincerely Yours   (3:56)
-10.  Another Shot In The Dark   (3:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D374463BCE2E1311B247C7304D757EAD6D7240
 ```
 
 https://mybot314.ru/tekegram_catalog/

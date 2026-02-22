@@ -1,3 +1,119 @@
+###  Публикация: 1226126   (656960) от 19.05.2018
+
+VA - Гирлянды любви (2006) [APE|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - М. Цветкова - Кто-то выдумал любовь
+02 - Студия 54 - Сердечко
+03 - С. Ротару - Жизнь моя, моя любовь
+04 - Revolvers - Неправильная любовь (remix)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6694BA5D85518AA04435C44B7068123696105854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226188   (656748) от 19.05.2018
+
+VA - Eurodance Master (Rare & Unreleased tracks from Axel Breitung) (2008) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Hype - Train Of Love (3:53)
+02. Megamorph - Fade To Grey (3:22)
+03. UC Colors - U Got The Rhythm (3:59)
+04. Indiansphere - Spirit Of The Hawk (3:07)(   Читать дальше...   )Жанр: Eurodance, Euro-House, TechnopopПродолжительность: 02:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B39BC89DD2C7EDE3754663EE119DA0B4BB0238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149705   (656743) от 19.05.2018
+
+Robin Cook - Land Of Sunshine (1997) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01.31)
+02. Cuba (03.04)
+03. I Won't Let The Sun Go Down (03.05)
+04. Kalimba De Luna (04.18)(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BDEB213A78F3B9CC74F0678395B49292E687C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140260   (656673) от 05.06.2017
+
+Егор Крид - Что они знают? (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Что они знают
+03. Не могу
+04. Алло(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E26FADBF555727BD00245FFF4BA5799F90A70BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226146   (656651) от 19.05.2018
 
 Ірина Білик (Ирина Билык) - 11 Альбомов (1990-2014) [FLAC|Lossless|image + .cue] <Pop>
@@ -631,122 +747,6 @@ Evгеника - ДиДюЛя + Evгеника (2016) Макси-сингл [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98388FC761638720B2D1F85F74A08EFB5ABA7025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515491   (654657) от 27.06.2012
-
-Glenn Frey - After Hours (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, Piano, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Piano, VocalПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEC40D8FD878D2A112CAA02F9302519DA9FFF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226483   (654546) от 21.05.2018
-
-Ленинград feat. Глюк’oZa & ST - Жу-жу (2018) Single [MP3|320 Kbps] <Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жу-жуЖанр: РорПродолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22AC181FDA671D521B3194DCAEADB9414236F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515934   (654407) от 27.06.2012
-
-Алиса Мон - Мои любимые песни (2005) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654407.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Обещаю (3:33)
- 2. Стань моим (4:06)
- 3. Долюби (3:38)
- 4. День вдвоём (3:49)
- 5. Мокрый март (3:40)
- 6. Бабочка (4:31)
- 7. Алмаз (3:36)
- 8. Синий дирижабль (3:39)
- 9. Ты (4:00)
- 10. Он и она (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E071AB1B5E75902333EF616B1FFE40545C231CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904416   (654256) от 03.06.2015
-
-Мохито - Слёзы Солнца (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слёзы Солнца
- 02. Разбежаться
- 03. Love
- 04. Она(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0364DB5016FDE13D17E74E8CFAE96C2105E97DC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

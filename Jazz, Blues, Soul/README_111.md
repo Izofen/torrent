@@ -1,3 +1,90 @@
+###  Публикация: 1496009   (874648) от 16.09.2021
+
+VA - Fall Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_874648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nat King Cole Trio - 'Tis Autumn (1993 Digital Remaster) (03:08)
+02. Sarah Vaughan - September Song (05:47)
+03. John Coltrane - Autumn Serenade (04:19)
+04. Dinah Washington - September In The Rain (02:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F0F209DBCC8843CC27E8D83EFC5E4E65012B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496201   (874640) от 16.09.2021
+
+V.A. - Smooth Jazz n Chill, Vol. 6 (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cindy Bradley - Exhale
+02. Kayla Waters - Open Portals
+03. Nick Colionne - Right Around The Corner
+04. Oli Silk - Just Can't Resist(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99591B148E81442E4765BE38B11E2B634C2A1094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495993   (874483) от 16.09.2021
+
+Chris Kramer - Unterwegs (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_874483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meister Igel (Remaster) (3:58)
+02. Du gabst mir 7 Kinder (3:11)
+03. Ich hab Scheiß gebaut (5:50)
+04. Dein Herz schlägt wie es schlägt (Remastered) (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4521E72787DA241D23F70A4E123C0673AC91CFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495998   (874481) от 16.09.2021
 
 Cottonmouth - Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -667,99 +754,6 @@ JONES - Acoustic (2017) EP [FLAC|Lossless|tracks] <Acoustic, Soul, Singer-Songwr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D91676A8CC1CCFC3CAB554C9BB01B283A3BD8712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300781   (873115) от 26.02.2011
-
-The Chick Corea Elektric Band - The Chick Corea Elektric Band (1986) [APE|Lossless]<Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Gate
-02. Rumble
-03. Side Walk**
-04. Cool Weasel Boogie**
-05. Got A Match?
-06. Elektric City**
-07. No Zone
-08. King Cockroach*
-09. India Town
-10. All Love(   Читать дальше...)Жанр: FusionПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496482   (872848) от 17.09.2021
-
-Hot 'n' Nasty - Burn (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyway the Wind Blows (3:09)
-02. Like a Hammer (2:52)
-03. I Can't Stand It Anymore (2:51)
-04. Superstar (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E925AAB780A2868041BEF6558C7701AEF59C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496427   (872846) от 17.09.2021
-
-Mike Andersen - Raise Your Hand (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slamming The Door (3:20)
-02. Next Time You Call (3:35)
-03. Finally Free (2:42)
-04. If I Fall Again (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5CBEF292A118EE21EC046B048EBBBB1E400DDA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

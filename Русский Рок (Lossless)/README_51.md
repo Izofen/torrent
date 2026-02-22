@@ -1,3 +1,32 @@
+###  Публикация: 1588665   (191396) от 05.11.2022
+
+Добрые Поступки - Антимир (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Антимир [00:03:08]
+02. Назло [00:04:06]
+03. Гулливеры [00:03:40]
+04. А Вы? [00:03:21](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975BEAF77188AB1FA34D3D048D0EAE1D590F7BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588666   (191136) от 06.11.2022
 
 БИБН - ПОКОРЕНИЕ ДЕЙСТВИТЕЛЬНОСТИ (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -716,35 +745,6 @@ Kill City Kills - Escape Into The Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFCED5FF81F5A1E2B3B3CB5DEFD1E08982E84264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662836   (187336) от 19.09.2023
-
-Наутилус Помпилиус (Nautilus Pompilius) - Титаник (2022) 2CD [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тутанхамон ( Акустическая версия )
-02. Титаник
-03. Воздух
-04. Колёса любви(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41749AE2F523FCCCCACB1EEBEFADF24EA679118E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1053320   (526047) от 17.09.2016
+
+Cubicolor - Brainsugar (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [02:21]
+02. Mirror Play [05:56]
+03. Dead End Thrills [04:28]
+04. Fictionalise [05:56](   Читать дальше...   )Жанр: Chill House, DowntempoПродолжительность: 01:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0721B968D51414D96934EEB42A52D1EEFDFC8902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053591   (526046) от 17.09.2016
 
 Международная пилорама (2016.09.17) SATRip (выпуск 3)
@@ -656,32 +685,6 @@ Total Commander 9.0a Extended 17.8 Full | Lite RePack (&Portable) by BurSoft [Ru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4D98922DCCC18D6F8EFA3C0B367B3075B020EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370231   (525700) от 01.08.2011
-
-Журнал | Forbes [Россия] №8 (2011) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forbes - российское издание главного делового журнала в мире, популярность и успех которого достигается благодаря дерзким расследованиям в мире бизнеса и справедливым оценкам событийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DD33C2ED098876C6212B5788FB337F8409130B
 ```
 
 https://mybot314.ru/tekegram_catalog/

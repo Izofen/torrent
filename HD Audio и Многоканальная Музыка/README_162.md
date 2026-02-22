@@ -1,3 +1,174 @@
+###  Публикация: 1757278   (103453) от 26.10.2024
+
+Miki Yamanaka - Chance (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Side, Light Side (9:05)
+02. Trinkle Tinkle (6:41)
+03. I Wish I Knew (4:03)
+04. Herzog (5:30)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C638187635E77AF494A53D192DC37800AE65152D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758298   (103433) от 01.11.2024
+
+Skillet - Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <christian rock, hard rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showtime (3:33)
+02. Unpopular (3:06)
+03. All That Matters (3:28)
+04. Not Afraid (3:14)(   Читать дальше...   )Жанр: christian rock, hard rockПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7245C911916AB87097B19F0D964A90EB1F23C4B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758292   (103414) от 01.11.2024
+
+Aaron Rimbui - Imani (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imani (7:38)
+02. Kothbiro (7:58)
+03. Stamina (6:32)
+04. Nakutamani (7:01)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C092DF4E04FC7790249DD93376B0F320178BBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758301   (103413) от 01.11.2024
+
+Rosalie Cunningham - To Shoot Another Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psychedelic Rock, Progressive Rock, Vintage Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Shoot Another Day (5:02)
+02. Timothy Martin's Conditioning School (2:43)
+03. Heavy Pencil (6:30)
+04. Good To Be Damned (4:52)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, Vintage RockПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54E1FDF1A6ECBD7727E5AE7B224053407A94937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758296   (103408) от 01.11.2024
+
+Warren Haynes - Million Voices Whisper (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warren Haynes feat. Derek Trucks - These ChangesЖанр: Blues RockПродолжительность: 01:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C3F73280CC8D9D95C73FE36A0A9225F2956802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758369   (103405) от 02.11.2024
+
+Boney James - Slow Burn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MARCUS MILLER - Arcadia (4:32)
+02. Cory Henry - Butterfly (4:27)
+03. BONEY JAMES - Slow Burn (4:14)
+04. October London - All I Want Is You (3:21)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD94212460D68955AC1A70A91F160D948661D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758370   (103404) от 02.11.2024
 
 Christophe Goze - My Kind Of Blue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -571,179 +742,6 @@ Steelcity - Reverence (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA84814FF17DD4B87E02CD9AF9EF2159AA51C31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759212   (103302) от 07.11.2024
-
-Citizen Vicious - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash 'n' Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Citizen Vicious - канадская метал-группа из г. Лонгёй в провинции Квебек, основана в 2005 году.2015 - Loud Mean Fast Dirty
-2018 - Headbanger Assault
-2024 - Longueuil (EP)Жанр: Thrash 'n' RollПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C3817970ACB6B91E28AEE4736512060D685D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759319   (103301) от 07.11.2024
-
-Turbulence - Binary Dream (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Static Mind (1:31)
-02. Theta (5:04)
-03. Time Bridge (Instrumental) (1:53)
-04. Manifestations (Instrumental) (6:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF758AFCE5DF6C073FF094A1E72C790889A09635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759315   (103300) от 07.11.2024
-
-TMG - TMG II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crash Down Love (4:28)
-02. BABYMETAL - Eternal Flames (3:05)
-03. Lisa - The Story Of Love (5:00)
-04. Color In The World (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900628847DE93CF4C1DC97CF3C11E9D46C21C178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759311   (103299) от 07.11.2024
-
-Fans Of The Dark - Video (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet Me On The Corner (3:51)
-02. Let's Go Rent A Video (4:31)
-03. The Neon Phantom (3:51)
-04. Christine (5:52)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CC84AA0325E8E61AD95FFBD09D4C51EAFD46C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759604   (103275) от 09.11.2024
-
-Charlotte Wessels (ex-Delain) - Studio Albums (3 releases) (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Йоханна Шарлотта Вессельс - голландская певица и автор песен.
-Наиболее известна как бывшая вокалистка симфоник-метал группы Delain.2021 - Tales From Six Feet Under
-2022 - Tales from Six Feet Under, Vol. II
-2024 - The ObsessionЖанр: Symphonic Metal/RockПродолжительность: 02:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4FBC966A24D92838D548AB9ED4C5824E8971222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759906   (103250) от 10.11.2024
-
-The Harpoonist - Did We Come Here To Dance (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good People (5:46)
-02. Heartbreak Autobahn (3:31)
-03. Acrobatic (4:04)
-04. I May Not Have It Together (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388E370C094DE8BF09BA5E82E371518732A5A926
 ```
 
 https://mybot314.ru/tekegram_catalog/

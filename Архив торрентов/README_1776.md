@@ -1,3 +1,29 @@
+###  Публикация: 1382317   (821155) от 10.05.2020
+
+FSNotes 4 v4.2.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821155.jpg" />
+</div>
+
+
+###  Подробнее
+
+FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.05.2020Разработчик: Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Украинский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CB5381073EC15AA677955A441C0D2DF0B83B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382258   (821151) от 10.05.2020
 
 4K Stogram Pro for Mac 3.0.1 [Multi/Ru]
@@ -653,35 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D416EAD8EDDF783A4035DFD0D107063A42B12CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 881859   (820995) от 27.03.2015
-
-J. Rocc & MED - Axel F. (Theme Music) (2014) [FLAC|Lossless|tracks + .cue] <Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axel F. Intro :: 00:28
- 02. Searchin :: 02:39
- 03. Screeching White Walls (feat. Guilty Simpson) :: 02:20
- 04. The Set :: 02:46(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8236BC2263FD3040C3CB2AF1C02005D844860E08
 ```
 
 https://mybot314.ru/tekegram_catalog/

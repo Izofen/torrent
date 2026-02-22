@@ -1,3 +1,90 @@
+###  Публикация: 1127490   (732219) от 21.04.2017
+
+Miles Davis - Collectors' Items (1953, 1956) 2004, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Serpent's Tooth (take 1) [07:04]
+02. The Serpent's Tooth (take 2) [06:20]
+03. Round Midnight [07:07]
+04. Compulsion [05:48](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1B0F0D5925EC5FBE1C2C2F472D5B7F7F152D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127387   (732216) от 21.04.2017
+
+Sky High - Stone & Gravel (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty Young Women (& Dirty Old Men. Feat. Jon Paris)  (04:05) 
+02. One Step Back  (04:05) 
+03. A New Old Style ( Old Farts Boogie )  (03:15) 
+04. Holy Grounds (Feat. Per Wiberg)  (06:04) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F567C9336C4627E028AE5535B4DF669544ECE6EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127536   (732175) от 21.04.2017
+
+John Primer & Bob Corritore - Ain't Nothing You Can Do! (2017) [MP3|320 Kbps] <West Coast Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poor Man Blues (04:08)
+02. Elevate Me Mama (05:30)
+03. Hold Me In Your Arms (04:39)
+04. Big Leg Woman (04:21)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF503BFFC9C00E69CC421DDD1E2942D9C7F9A8A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127471   (732162) от 21.04.2017
 
 Jeff Lorber Fusion - Prototype (2017) [FLAC|Lossless|tracks + .cue] <Smooth-Jazz, Funk, Fusion>
@@ -658,93 +745,6 @@ The Fabulous Dizzy Gillespie - Pleyel Jazz Concert 1948 (2016) Sony Music [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E996E683203E73DD02068F1B5A3B382C5AD29C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127991   (730101) от 23.04.2017
-
-The Duke Edward Kennedy Ellington - I'm Checkin' Out, Goom Bye (1939) 2CD, 2004, Membran Music [APE|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730101.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dance Of The Goon [02:37]
-02. Good Gal Blues [03:00]
-03. Finesse [02:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50441524EDCF4DC32A1BD160F34D80C1426BE3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284116   (730090) от 20.02.2019
-
-Radare - Im Argen (2015) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Let Me Come into the Storm / Luke (10:06)
-02. Das einsame Grab des Detlef Sammer (4:09)
-03. Burroughs (6:36)
-04. The Queue (4:22)(   Читать дальше...   )Производство: Golden Antenna Records - GOLDEN-034Жанр: Doom Jazz, Dark Jazz, Experimental, RockПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8F360CAF4F2E96D5AAE98CF1B611A34FAB5494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127986   (730084) от 23.04.2017
-
-Luke Sellick - Alchemist (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (1:01)
-02. Q-Tippin (6:45)
-03. Brothers (4:48)
-04. Hymn (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEF24C15CC2EC89FF23C65CAB99F4690D4D1B86
 ```
 
 https://mybot314.ru/tekegram_catalog/

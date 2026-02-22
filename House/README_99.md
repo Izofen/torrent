@@ -1,3 +1,90 @@
+###  Публикация: 1805391   (12437) от 05.07.2025
+
+VA - Dance Report, Vol. 1 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dado - Do It Better (Original Version) 04:57
+02. Sunana - Hustlin' 03:36
+03. Mila - Zero Hour (Original Mix) 05:01
+04. Amelie Elizèe - Crazy 02:32(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7507D0858D5AA9164CEDE8560E1AD9CA9A073C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806038   (11913) от 10.07.2025
+
+VA - Deep Reflections (2025 Edition) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmtunes & M-Sol Deep - Solaris 06:40
+02. Twilight Music Sculpture & M-Sol Deep - Endless Sunrise 06:56
+03. Duel (Hu) & M-Sol Deep - Aquamarine 08:24
+04. Karen Fagan & M-Sol Deep - Sunkissed Lovers 05:30(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3BBC2C791CC862DFE511B9EEFDA1AA528411ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806062   (11910) от 10.07.2025
+
+VA - 25 Years Of Anjuna Mixed By Croquet Club (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (01:01:08)
+01. Martin Roth - Pillow Talk (Mixed) 03:00
+02. Cri & Sophia Bel - Love Spirit (Mixed) 02:25
+03. Vincenzo - Today (Mixed) 02:47(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF603E15ACD45B725ABBBE10BCBF0D7C3D14D9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806111   (11906) от 10.07.2025
 
 VA - Alveda Top 20 Summer Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -658,93 +745,6 @@ VA - Magic Deep-House, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2253D389B3F84C7375C6E069BBF71A44197F7DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816128   (4522) от 03.09.2025
-
-VA - 25 Years Of Anjuna Mixed By CRi (2025) [MP3|320 Kbps] <Deep House, Melodic House & Techno, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond - Sun In Your Eyes (Original Mix) [4:52]
-02. Lane 8 feat. Lulu James - Loving You (Original Mix) [4:02]
-03. Ben Böhmer - After Earth (Original Mix) [7:38]
-04. YOTTO - Personal Space (Extended Mix) [6:52](   Читать дальше...   )Жанр: Deep House, Melodic House & Techno, ElectronicПродолжительность: 02:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89639531E806208E08FC26B8F803C1595A18DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816892   (3878) от 07.09.2025
-
-VA - BC Deep Summer 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jdub (Us) - Man In The Mirror 08:32
-02. Nightly Closures - Sol De La Mañana 06:00
-03. Beto Ruve - Gllitter Room 06:57
-04. Martin Luciuk & Noe Menendez - Blue Lake 05:22(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E08D73F90C86481745D5FBAE35523C84CE6C464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816980   (3843) от 07.09.2025
-
-Faithless - Champion Sound (2025) [MP3|320 Kbps] <House, Trance, Trip-Hop>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Faithless - Forever Free [00:01:35]
-02 - Faithless - Meeting (feat. Nathan Ball & Amelia Fox) [00:05:30]
-03 - Faithless - Champion Sound Side 3 Book of Hours [00:24:05]
-04 - Faithless - Find A Way (feat. Suli Breaks) [00:03:02](   Читать дальше...   )Жанр: House, Trance, Trip-HopПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD43965B5847F54A7B82EF87C27CA086E941150C
 ```
 
 https://mybot314.ru/tekegram_catalog/

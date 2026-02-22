@@ -1,3 +1,32 @@
+###  Публикация: 1306327   (555684) от 04.06.2019
+
+The Fine Art Rascal - BM9 (2019) [FLAC|Lossless|Web-DL|tracks] <Underground Hip-Hop, Lo-Fi, Psychedelic Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bendy (1:40)
+02. W.I.M (2:58)
+03. Bring Into Being (1:28)
+04. Art Will Lie To You Kindly (5:00)(   Читать дальше...   )Жанр: Underground Hip-Hop, Lo-Fi, Art Rap, Psychedelic Rap, Conscious RapПродолжительность: 00:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BDA70B28AF513982B40A1B346C1224B7F5BA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306434   (555680) от 04.06.2019
 
 Wise Disk Cleaner 10.2.1.772 + Portable [Multi/Ru]
@@ -666,32 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AC608DBD96CEE6024F60ECC716C45AEE09E201B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306805   (555482) от 06.06.2019
-
-Яндекс.Браузер 19.6.0.1574 Portable by Cento8 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4B745BA78904E9CE13FA22632D5529AB949AFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

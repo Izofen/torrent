@@ -1,3 +1,177 @@
+###  Публикация: 1679983   (134987) от 27.11.2023
+
+Don Broco - Live at The Royal Albert Hall (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Come Out To LA (00:05:00)
+02 - Pretty (00:04:09)
+03 - Swimwear Season (00:04:36)
+04 - Everybody (00:03:31)(   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5029CF3F1D649E586B042FC5BE73EAF9BA07C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679997   (134970) от 27.11.2023
+
+King Buffalo - Live At Burning Man (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silverfish [00:03:35]
+02. Grifter [00:05:16]
+03. Shadows [00:09:56]
+04. Longing to Be the Mountain [00:10:30](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279DA12BCA1C2A293EDAAA45D1F1D566B4033409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679840   (134965) от 27.11.2023
+
+Block of Flats - No Hope For The Hopeless (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134965.jpg" />
+</div>
+
+
+###  Подробнее
+
+10. Black Swan [00:03:15]
+09. Never Forgotten [00:02:54]
+08. Burnout [00:02:37]
+07. Dead Inside [00:02:59](   Читать дальше...   )Жанр: Alt-MetalПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7D60AEE656A693E9F5A4015001D62E3D0CCF02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679884   (134951) от 27.11.2023
+
+Michal David + The Paces - I'd Love To Live (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134951.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I'd Love To Live (Chtel Bych Zit Tak, Jak Se Ma)
+A2 You're Special (Jsi Zvlastni)
+A3 You Know What It's All About (Kam Tak Nahle Pospichas?)
+A4 Story Of A Girl I Knew (Lasko Ma, Nerikej Dik)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05263E71FB7BC6D610F935F3E66650053AA3C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680060   (134943) от 27.11.2023
+
+Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская рок-группа, образованная гитаристом и автором песен Карлом Беллом и басистом Джеффом Аберкромби в 1994 году.1998 - Sunburn
+2000 - Something Like Human
+2003 - Natural Selection
+2007 - Angels & DevilsЖанр: Hard Rock, Post-GrungeПродолжительность: 04:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC20FB2D7A206ED1F7F303F5EE0549799AE4DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679853   (134925) от 27.11.2023
+
+Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cool Water [00:03:49]
+02. Lover [00:03:58]
+03. Breakdown [00:03:35]
+04. Don't Let Them Push You [00:04:57](   Читать дальше...   )Жанр: Classic Hard RockПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5883FCDEC9EC654BA6E6F89AB5BD53F94DF04BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680045   (134912) от 27.11.2023
 
 Ghost Train Orchestra & Kronos Quartet - Songs & Symphoniques: The Music of Moondog (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Orchestra, Classical-Crossover, Modern-Classical, Female ...
@@ -570,180 +744,6 @@ Orphaned Land - A Heaven You May Create - Live @ Heichal HaTarbut, Tel Aviv 2021
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0449DF1A2CD7038F88BF46C3A9E32A22212EDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680983   (133133) от 02.12.2023
-
-Daisy Jones & The Six - Aurora (2023) Super Deluxe Edition [FLAC 24/48,96|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora (3:25)
-02. Let Me Down Easy (3:24)
-03. Kill You To Try (5:12)
-04. Two Against Three (3:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B684BF5413A937344BE1AAD36B4E56952AA1A9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681215   (133116) от 02.12.2023
-
-Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133116.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Krach
-A2 Gorace Telefony
-A3 China Boy
-Music By – C. Szlazak(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F77F0378226E9E6B0BD4D19E76C21B47C29B5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680997   (133106) от 02.12.2023
-
-Britny Fox - Britny Fox (1988) Remaster, Expanded Edition, 2023,  SBCMG [FLAC 24/192|Lossless|WEB-DL|tracks] <Heavy Metal, Glam, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girlschool (4:23)
-02. Long Way To Love (4:53)
-03. Kick 'N' Fight (3:36)
-04. Save The Weak (5:29)(   Читать дальше...   )Жанр: Heavy Metal, Glam, Hard RockПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE000B0D09EA90078EE059C7C0B849B4AD97A9D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680988   (133091) от 02.12.2023
-
-Status Quo - Official Archive Series Vol. 2 (Live in London 2012) (2023) New Mix, 2023, earMUSIC [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:45)
-02. Caroline (4:50)
-03. Paper Plane (3:27)
-04. Hold You Back (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FB5090D87A2D9CE0DB029B8CFFA6E8B1D9E3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680986   (133077) от 02.12.2023
-
-The Alan Parsons Project - The Sicilian Defence (2014) Reissue, 2023, Arista - Legacy [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive rock, classical, electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P-K4 (5:07)
-02. P-QB4 (6:23)
-03. Kt-KB3 (3:07)
-04. ...Kt-QB3 (1:16)(   Читать дальше...   )Жанр: Progressive rock, classical, electronicПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E64FB71DCCE58C2787E1797E8689B238E47E5DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680998   (133066) от 02.12.2023
-
-Fate - If Not For The Devil (2013) Remastered Version, 2023, Frontiers Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reaping (4:33)
-02. If Not For The Devil (4:57)
-03. Bridges Are Burning (4:12)
-04. Feel Like Making Love (4:19)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A688D6F8C309C7281F9D181980EE8612D060F2A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

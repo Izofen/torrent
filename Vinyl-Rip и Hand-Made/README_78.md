@@ -1,3 +1,170 @@
+###  Публикация: 1759652   (103231) от 10.11.2024
+
+Ghosts Of Atlantis - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Symphonic Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghosts Of Atlantis - symphonic / groove / melodic death metal группа из г. Ипсвич, Англия.2021 - 3.6.2.4
+2023 - Riddles of the SycophantsЖанр: Extreme Symphonic Metal/MetalcoreПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8200375B0A531425238C298EC4A5F1B0B32B0CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759784   (103222) от 10.11.2024
+
+Mezzrow - Studio Albums (2 releases) (1990; 2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mezzrow - трэш-метал группа из Нючёпинга, Швеция1990 - Then came the killing
+2023 - Summon Thy DemonsЖанр: Thrash MetalПродолжительность: 01:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67D073C407B71598286A1F7516C25B4DAF8EFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749650   (103154) от 16.11.2024
+
+As I Lay Dying - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103154.jpg" />
+</div>
+
+
+###  Подробнее
+
+As I Lay Dying — американская металкор-группа из Сан-Диего, Калифорния.2001 - Beneath The Encasing Of Ashes
+2003 - Frail Words Collapse
+2005 - Shadows Are Security
+2007 - An Ocean Between UsЖанр: MetalcoreПродолжительность: 07:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300CA2D433807EF21D219752DB65180554EBA25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760805   (103150) от 16.11.2024
+
+Genus Ordinis Dei - Studio Albums & Singles (4 releases) (2016-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Death/Groove Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Genus Ordinis Dei - итальянская симфоническая дэт-метал/дэткор-группа. Образована в 2009 году.2016 - The Middle
+2017 - Great Olden Dynasty
+2020 - Glare of Deliverance
+2023 - The BeginningЖанр: Symphonic Death/Groove Metal/MetalcoreПродолжительность: 04:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FAFC9EB2C8406B25F1CFA99366BD41D4BF3383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760823   (103130) от 16.11.2024
+
+Times Of Grace - Studio Albums (2 releases) (2011; 2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Times Of Grace - сайд-проект Адама Дуткевича из Killswitch Engage2011 - The Hymn Of A Broken Man
+2021 - Songs Of Loss And SeparationЖанр: MetalcoreПродолжительность: 01:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C939975E79CECAEAEA0F2576B171B65512C58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761869   (103034) от 22.11.2024
+
+Power Trip - Studio Albums (3 releases) (2013-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Power Trip — американская трэш-метал-группа из Далласа, основанная в 2008 году.2013 - Manifest Decimation
+2017 - Nightmare Logic
+2018 - Opening Fire - 2008-2014Жанр: Thrash Metal/CrossoverПродолжительность: 01:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3FD0D0A40BF95866EAA684491E2190A4677C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762185   (102955) от 24.11.2024
 
 WoodScream - Studio Albums (4 releases) (2010-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal>
@@ -563,196 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD88E2D6CDCB2E81D07BA297F2699EB2AE22415D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483502   (88881) от 16.04.2012
-
-Red Hot Chili Peppers – Californication (1999) [FLAC 2.0 24/192 | image (VinylRip)] <Funk Rock/Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Funk Rock/Alternative RockПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB63894A9936B5F9F40346F536EFE6F522B6EC9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482977   (88635) от 15.04.2012
-
-Чайф - 25 лет выдержки (2009) [FLAC 2.0 24/96 | image (VinylRip)]<Рок-н-ролл, Рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шаляй-валяй
-02. Кот
-03. Вольный ветер
-04. Белая ворона
-05. Оранжевое настроение
-06. Ой-йо
-07. Всему своё время
-08. Давай вернемся
-09. Поплачь о нём2009Жанр: Рок, Рок-н-РоллПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420BEC04286E9FAC5EB3CCA0CE1BD5DAF8614AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482730   (88403) от 14.04.2012
-
-Крематорий - Двойной альбом (1993) [APE 2.0 24/96 | tracks (VinylRip)]<Рок-н-ролл, Хард-рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Проходящие Мимо
-02. Реанимационная Машина
-03. Клаустрофобия
-04. Адольф
-05. Таня
-06. Кондратий1993Жанр: RockПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14E85105F90560DED479EC47FD0AEE807526CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480589   (87423) от 09.04.2012
-
-Scorpions - 2 альбома (1974-1975)  [FLAC 2.0 24/192 | tracks (VinylRip)]<hard-rock, heavy-metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: hard-rock, heavy-metalПродолжительность: 00:37:32
-
-01. Dark Lady
-02. In Trance
-03. Life's Like A River
-04. Top Of The Bill
-05. Living And Dying
-06. Robot Man
-07. Evening Wind
-08. Sun In My Hand(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB315CD2F2FB1839040EE4CCCCAD22B83C2C343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475795   (85522) от 31.03.2012
-
-Europe - The Final Countdown (1986)  [APE 2.0 24/48 | tracks (VinylRip)]<hard rock,heavy metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Final Countdown
-02. Rock the Night
-03. Carrie
-04. Danger on the Track
-05. Ninja
-06. Cherokee
-07. Time Has Come
-08. Heart of Stone
-09. On the Loose
-10. Love Chaser1986Жанр: hard rock,heavy metalПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9561E9AE966EAFF6D3C5534CE24DE9BBD1CBAF96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772072   (71791) от 09.01.2025
-
-Asphyx - Studio Albums (10 releases) (1991-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Asphyx - дэт-метал-группа из Олдензаала, Нидерланды, образованная в 1987 году.1991 - The Rack
-1992 - Last One On Earth
-1994 - Asphyx
-1996 - Embrace The DeathЖанр: Death/Doom MetalПродолжительность: 08:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D258F60699F0E93AFC8E2E0FA36E43C2B2B2238E
 ```
 
 https://mybot314.ru/tekegram_catalog/

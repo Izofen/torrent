@@ -1,3 +1,32 @@
+###  Публикация: 1717044   (111289) от 18.04.2024
+
+Louis Prima & Keely Smith - Live from Las Vegas (1958) 2005, Capitol Records [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes/Honeysuckle Rose [4:54]
+02. I've Got You Under My Skin [2:11]
+03. Should I/I Can't Believe That You're in Love with Me [5:55]
+04. Don't Take Your Love from Me [2:54](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEB2F3C073A1925C9F9CBE2B5F1000218F87403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717040   (111286) от 18.04.2024
 
 Joe Sedita - They All Love Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -716,35 +745,6 @@ Ronny Smith - Struttin (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DE59B6F824E724CFE8DDEDB9DBF2AEBAD437D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717862   (111033) от 22.04.2024
-
-De Novo Blvd - Bourbon Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down by the Stream (4:14)
-02. Whiskey Down (3:48)
-03. Break Something (3:04)
-04. Carry On (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DCA1FCC00C706AE848120ED338639D81DAF93B
 ```
 
 https://mybot314.ru/tekegram_catalog/

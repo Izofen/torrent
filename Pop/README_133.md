@@ -1,3 +1,116 @@
+###  Публикация: 1141194   (652128) от 09.06.2017
+
+Katy Perry - Witness (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/15. Witness (4:11)
+ 02/15. Hey Hey Hey (3:35)
+ 03/15. Roulette (3:19)
+ 04/15. Swish Swish (feat. Nicki Minaj) (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D644671AEA8EAEB4B545731ED6863B103BDDB2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226837   (652025) от 23.05.2018
+
+VA - 90s Dance Chart Hits (2018) 2CD [MP3|320 Kbps] <Dance, Eurodance, Funk>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armand Van Helden - The Funk Phenomena (12" Original Version)
+02. Fatboy Slim - Praise You (Full Version)
+03. Gigi D'agostino - L'amour Toujours
+04. Rmb - Redemption (12" Version)(   Читать дальше...   )Жанр: Dance, Eurodance, FunkПродолжительность: 02:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C61FA0AC33640F0C1980DE7BFED9FBA4F9171AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678580   (651750) от 12.07.2013
+
+Dido - 3 альбома (2001-2005) [FLAC|Lossless]<Pop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_651750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Vocal, BalladФормат: track + cueПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905145   (651743) от 05.06.2015
+
+Will Young - 85% Proof (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651743.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Brave Man (4:02)
+2. Promise Me (3:35)
+3. Love Revolution (2:58)
+4. U Think I'm Sexy (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CBEF1F52BBEF98B57A4884D397EC2E864B96E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 678670   (651607) от 12.07.2013
 
 Анжелика Варум - Сумасшедшая (2013) [FLAC|image + .cue]<Pop>
@@ -627,122 +740,6 @@ B. Fleischmann - Stop Making Fans (2018) [FLAC|Lossless|tracks + .cue] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7A99464265331D8BFBED0B99E0BD1B9AF7BC6C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292255   (648755) от 28.03.2019
-
-VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malik Djoudi - Epouser la nuit [3:37]
-02. Fontaines D.C. - Roy's tune [3:00]
-03. These new puritans - Into the fire [3:42]
-04. The psychotic monks - Closure [3:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0444D29082C6E72618F887E33E789704ECFF776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292050   (648746) от 28.03.2019
-
-VA - Après Ski Top 100 (2019) 4CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648746.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Armin Van Buuren - Blah Blah Blah
-02. De Alpenzusjes - Naar Voren, Naar Achter (Tu Tu Song)
-03. Gebroeders Ko - Schatje Mag Ik Je Foto_(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 05:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18CCE8915073E359E61EE9D44F2F7D070DB6BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292231   (648741) от 28.03.2019
-
-Barbra Streisand - I Can Get It for You Wholesale (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Funny Thing Happened
-02. A Gift Today
-03. Ballad of the Garment Trade
-04. Eat a Little Something(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702F4558046930B09A295544D214EFFD74B86656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292071   (648628) от 28.03.2019
-
-VA - 100 Greatest Sad Songs (2019) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648628.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clean Bandit feat. Julia Michaels - I Miss You (Acoustic)
-002. Gnash feat. Olivia O'Brien - i hate u, i love u
-003. All Saints - Never Ever
-004. Coldplay, Seeb - Fix You(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 06:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EC59F48E4344851A07201FD6B2D2E079B73F58
 ```
 
 https://mybot314.ru/tekegram_catalog/

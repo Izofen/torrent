@@ -1,3 +1,32 @@
+###  Публикация: 1050743   (536740) от 09.09.2016
+
+VA - Back Where I Belong Popular Dance (2016) [MP3|320 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536740.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Hello (DJ Noiz Radio Remix)
+002. Martin Garrix & Third Party - Lions in the wild
+003. Proyecto Loco - Suena La Clave (Original Version)
+004. Afrojack Ft. Pitbull & Mike Taylor - Summerthing!(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 09:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CADD95DC7444369B0DE1E638958A8EF70009D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311916   (536498) от 02.07.2019
 
 VA - German Top 50 Party Schlager Charts 01.07.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Hedkandi Summer (2019) [MP3|320 Kbps] <Dance, Pop, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B22C6B99D99943DF800A2C6AB1943F75A16DC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053801   (524375) от 18.09.2016
-
-VA - Acoustic Hour - We Are Independent Vol.2 (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gnash feat. Olivia O'Brien - I Hate U, I Love U 03:47
-02. Jonas Blue feat. Dakota - Fast Car 03:33
-03. James Bay - Hold Back The River 03:59
-04. The Lumineers - Ophelia 02:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7233C24D1F4DC2F832F96F2302DE4CB9616EBECB
 ```
 
 https://mybot314.ru/tekegram_catalog/

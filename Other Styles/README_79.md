@@ -1,3 +1,32 @@
+###  Публикация: 1025614   (708203) от 13.06.2016
+
+Jonn Serrie - Flightpath (1989) Reissue, 1995, Miramar, BMG [MP3|320 кб/с] <Ambient, New Age, Space>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flightpath (4:35)
+02. Sky Safari (10:28)
+03. Muroc (6:46)
+04. Outreach (4:30)(   Читать дальше...   )Жанр: Ambient, New Age, SpaceПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73CE757D09D2F8CCAF605AEBDA548B76027877C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025537   (708123) от 13.06.2016
 
 Robin Spielberg - Another Time, Another Place (2015) [FLAC|Lossless|tracks] <New-Age, Instrumental, Piano>
@@ -713,35 +742,6 @@ Brian Bennett - Shadowing John Barry (2015) [FLAC|Lossless|tracks] <Contemporary
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE266EDBE5F53808063014AC2FD856F7506E7487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026440   (703953) от 15.06.2016
-
-Anhidema - Conversation with the Cosmos (2014) [MP3|320 кб/с] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Words Do not Do and Say Nothing
-02. Encounters
-03. Welcome to Infinity Forever
-04. In the Center of Anhidema(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACACB98297AE60CD9F1BDB1D9576EF811D6610FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

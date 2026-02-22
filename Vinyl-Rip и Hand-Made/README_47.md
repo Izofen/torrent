@@ -1,3 +1,177 @@
+###  Публикация: 1653979   (213667) от 18.08.2023
+
+Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213667.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Go
+A2 Voice Of America
+A3 Hard On Me
+A4 Wishing(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3874243E70F4E3A7B443B1D14C4566ED417DBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514865   (213660) от 05.12.2021
+
+Within Temptation - Shed My Skin (2021) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Symphonic Metal, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shed My Skin (4:30)
+02. The Purge (4:16)
+03. Entertain You (3:31)
+04. Shed My Skin (Instrumental) (4:30)(   Читать дальше...   )Жанр: Symphonic Metal, Alternative MetalПродолжительность: 00:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9211FAC881F4F8591F674156A56E27D452602055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832287   (213540) от 30.10.2025
+
+Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pagan/Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алконост — российская фолк-метал группа, образованная в Набережных Челнах,  Республика Татарстан в 1995 году.2004 - Between The Worlds
+2006 - Межмирье
+2006 - Путь Непройденный
+2007.1 - Песни Вечного ДреваЖанр: Pagan/Folk MetalПродолжительность: 11:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906218C82AA30C8B47261EEF2C3CEC4C1E1C6E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042647   (213390) от 13.06.2022
+
+Август - Ответный Удар (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213390.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Орел
+A2 Ответный Удар
+A3 Гонка
+A4 Точка Отсчета(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC495827F156A441266CC297CEF0F26BC359F5A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042660   (213384) от 13.06.2022
+
+Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213384.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Берегись • Watch Out
+А2 Руки Прочь • Hands Off
+А3 Щит И Меч • Shield And Sword
+А4 Еще Раз Ночь • It's Night Once Again(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49ECB2007F2D0C9E059AD1DD6E4C9A45044A0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638374   (212054) от 08.06.2023
+
+Sweet - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_212054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Set Me Free
+02. Keep It In
+03. Give The Lady Some Respect(   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABBB3609798A7AC5A9202CBF01CA363336DD64D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638614   (211934) от 09.06.2023
 
 Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
@@ -569,181 +743,6 @@ A4 Michael Bolton - How Am I Supposed To Live Without You(   Читать дал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E9F590C921E9D61B07375F29E70216C75049BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612256   (207268) от 15.02.2023
-
-Queen - Greatest Hits (1990) Мелодия, по лицензии EMI Records Ltd. [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207268.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Bohemian Rhapsody
-A2 Another One Bites The Dust
-A3 Killer Queen
-A4 Fat Bottomed Girls(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7A6F02FA2D385BE5FCA924FA8301394EB6752E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616772   (207230) от 03.08.2023
-
-Immortal - Studio Albums (8 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Immortal — блэк-метал-группа из Норвегии. Коллектив образовался после распада дэт-метал-группы Amputation в 1991 году.
-Ранние полноформатные релизы Immortal были выполнены в традиционном для блэк-метала стиле, но альбом At the Heart of Winter показал, что группа начала экспериментировать на стыке блэк-метала и немецкой школы трэш-метала. Immortal оказали большое (   Читать дальше...   )1995 - Battles In The North
-1997 - Blizzard Beasts
-1999 - At the Heart of Winter
-2000 - Damned in BlackЖанр: Black MetalПродолжительность: 05:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504D540E874F75669070C2045EE6AB1C902C5D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612594   (207094) от 17.02.2023
-
-ВИА Синяя птица - Коллекция (1977-1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207094.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Мамина Пластинка
-A2 Первая Любовь
-A3 Не Обижайся
-A4 Жасмин(   Читать дальше...   )Жанр: Pop RockПродолжительность: 04:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54016146C4B7B40ACA8DA37774976200B0234EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183813   (206927) от 06.08.2023
-
-Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01 Atomic
- 02 Some Other Place, Some Other Time
- 03 Star Vision(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5929F34C01947677489C02587F85081084710E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530138   (206839) от 01.10.2022
-
-Slipknot - Studio Albums (8 releases) (1997 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Nu Metal, Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slipknot — американская ню-метал-группа, образованная в сентябре 1995 года в Айове, США.1997 - Mate.Feed.Kill.Repeat
-1999 - Slipknot (10th Anniversary Edition)
-2001 - Iowa (10th Anniversary Edition)
-2004 - Vol. 3 (The Subliminal verses)Жанр: Nu Metal, Groove MetalПродолжительность: 09:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1050291E06C2252D8BA123877438EB18260F506E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311369   (206695) от 03.10.2022
-
-Middle Of The Road - Middle Of The Road (1972/1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206695.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	The Talk Of All The USA
-A2	Samson And Delilah
-A3	Try A Little Understanding
-A4	Louise(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: Pop Rock, Classic Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE1ED0C9C05634CFAF60E03361524E05D29FEE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

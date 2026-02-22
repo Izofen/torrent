@@ -1,3 +1,61 @@
+###  Публикация: 1823116   (117637) от 10.10.2025
+
+Заточка - Опять за старое (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Country>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117637.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. С горы
+2. Одинаковые лица
+3. Останемся (skit)
+4. Из 90-х(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66FB81EDE05E9E900127C8B22B5F49AE481FD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823112   (117633) от 10.10.2025
+
+Заточка - Опять за старое (2025) [MP3|320 Kbps] <Rap, Hip-Hop, Country>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117633.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. С горы
+2. Одинаковые лица
+3. Останемся (skit)
+4. Из 90-х(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDECB54B3826EA90290737F532CB40111932608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706961   (113521) от 14.03.2024
 
 VA - Chillhop Essentials Spring (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
@@ -687,64 +745,6 @@ Denzel Curry - KING OF THE MISCHIEVOUS SOUTH (2024) [FLAC|Lossless|Web-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A21E99675CE49ED6548707B2BDA26FF43E860EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761903   (103026) от 23.11.2024
-
-Ice Cube - Man Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rollin' At Twilight [2:58]
-02 - It's My Ego [3:47]
-03 - So Sensitive [2:49]
-04 - She’s Sanctified [4:18](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C4BCD023602DFBCFE5F74E2A40562EBD25843D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762028   (103016) от 23.11.2024
-
-Max Lorens - Танцы под луной (2008) [FLAC|Lossless|tracks + .cue] <Hip Hop, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: Килиманджаро 2:53
-02. Схожу с ума 4:56
-03. Город-Эльдорадо 3:06
-04. Танцы под луной 3:22(   Читать дальше...   )Жанр: Hip Hop, PopПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE6B014D293F4520FC188A78721C1A10E6703B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

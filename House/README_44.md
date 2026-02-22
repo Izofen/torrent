@@ -1,3 +1,90 @@
+###  Публикация: 1230397   (615634) от 12.06.2018
+
+VA - Latin Workout Hits 2018 [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Euro Latin Beats - Cosita Bella (Original Mix)
+02. Sorrenti Bros - Bandù (Radio Edit)
+03. Charly Rodriguez, Kike Puentes - Sexy Gyal (Original Mix)
+04. Emcidues - Pa Quitar El Estres (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C4DEEF1D7C2E2659BC11C47FBB219764B81DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230355   (615632) от 12.06.2018
+
+VA - Bike Ride Experience Music (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danson - Price
+02. Danny D - Yep
+03. Cymbal - Gaps
+04. Corteza - Home(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0335E1BC6EB541871448EEDC9716A611FD3EB102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296144   (615234) от 15.04.2019
+
+VA - Miami Deep House Essentials 2019 (Deluxe Version) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autosky - Synthva (Original Mix) 7:43
+02. Wicker In The Wind - Fantasy Grove (Original Mix) 5:57
+03. High One - Everyday (Original Mix) 4:26
+04. Shaw Quentin - Ivory (Original Mix) 6:53(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 04:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755C5B205003C2E912EE242B8DB0AFE8E0E95540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296030   (615143) от 15.04.2019
 
 VA - 35 Spring Top Hits 2019 For Fitness & Workout (2019) [MP3|320 Kbps] <Funky, Club House>
@@ -676,93 +763,6 @@ VA - Delicious Bar Grooves Barcelona (2019) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24D0070727D9E1D75290571D1BC8D973631A3D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299209   (600852) от 30.04.2019
-
-VA - Sunset Lovers the Harmony of Sounds (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronix - Cascada 04:19
-02. Robert Thrill - Bonsai 04:22
-03. Rix Rama - Noisy 04:22
-04. Rich Franklin - Tudor 04:22(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69AC1A299A520ED1FE539386FCF14E645E1C16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913733   (600356) от 01.07.2015
-
-VA - BC2 Summer 2015 (2015) [MP3|320 кб/с]<Progressive House, Deep House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luciano Scheffer - Alamo (Spacebeat Remix) [09:27]
-02. Phonic Scoupe - Portico Garden (Original Mix) [07:43]
-03. GabiM - Punc Munc (Travis MacDonald Remix) [08:32]
-04. Midinoize - Exposed (David R Maddocks Remix) [06:51](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 03:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECDBEEC84187828DE8E457ACB544E8696EE12E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232502   (600056) от 24.06.2018
-
-VA - Best Charts: Summer Of Dance (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr Luke - Like This Like That (Born In 70s Mix) 8:10
-02. Max Gazeta - Koshka (Original Mix) 8:13
-03. Silver Disco - Detroit (Original Mix) 4:32
-04. Bonsugi - Good Time (Original Mix) 4:00(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E74C8A9C4AE07F112FE97A5B264680BFF311FAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

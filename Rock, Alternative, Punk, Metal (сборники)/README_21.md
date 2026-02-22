@@ -1,3 +1,32 @@
+###  Публикация: 1538880   (661088) от 22.03.2022
+
+VA - Get a Rock! 2 (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sueco - Loser (2:13)
+02. Е2 Знакомы - Зёрна (2:21)
+03. Ярик Бро - В Питере Дождь (2:38)
+04. The Score - Fighter (2:36)(   Читать дальше...   )Жанр: RockПродолжительность: 04:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D29728E095E0E0D57F13A015C0E1F1A118F611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902958   (659598) от 29.05.2015
 
 7Б - Лучшее (2015) [MP3|320 кб/с]<Рок>
@@ -725,35 +754,6 @@ Glenn Hughes - The Voice of Rock (2014) 2CD [MP3|320 Kbps] <Hard Rock, Classic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:109E70BDDEE658E0A4F3112C7E19C83A33308D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228237   (638893) от 30.05.2018
-
-VA - Super Хиты Зарубежного Рока (2018) [MP3|256-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panic! At The Disco - High Hopes
-02. Imagine Dragons - Believer
-03. Imagine Dragons - Thunder (Final)
-04. Imagine Dragons - Radioactive (из фильма «Гостья»)(   Читать дальше...   )Жанр: RockПродолжительность: 06:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFA132541355ECF6716CFA0619C1EE9CB6E41FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

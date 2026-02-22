@@ -1,3 +1,61 @@
+###  Публикация: 1071678   (356606) от 11.11.2016
+
+Mireille Mathieu - Noel (2015) [FLAC|Lossless|tracks] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La colombe de Noel
+02. Petit Papa Noel (Version inedite)
+03. Noel blanc
+04. Douce nuit(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB0745FD50A53EEEDC35B12BBD460F821ED9A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329098   (356295) от 03.10.2019
+
+Воровайки - Начало (2019) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356295.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Америкосы
+2. Добрый вечер, дорогой
+3. Муха
+4. Разные маршруты(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDF20440C31D713FE9E4A06ADF56FCE3AD86495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072229   (354014) от 12.11.2016
 
 Игорь Растеряев - Дождь над Медведицей (2016) [FLAC|Lossless|image + .cue] <Авторская песня>
@@ -703,64 +761,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E58E4B69D69325B5AD3DCA9D060C23FD27C2E8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258318   (338226) от 29.10.2018
-
-Serge Gainsbourg - De Gainsbourg A Gainsbarre (1990) 2CD, 1994 [FLAC|Lossless|tracks + .cue] <Vocal, Chanson, Pop Rock>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338226.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. Le Poinconneur des Lilas (2:43)
- 02. L'eau a la BoucheЖанр: Vocal, Chanson, Pop Rock, Synth-pop, BalladПродолжительность: CD1 - 01:07:25
-CD2 - 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D038779895192B1F3663BA13B5C574A30412D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329659   (336591) от 12.10.2019
-
-Гера Грач - 6 Альбомов (2000 - 2006) [FLAC|Lossless|tracks + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белый Пух
-02. Она
-03. Осень
-04. Молитва(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8177671BBBD84E2B139534D183739D38BBB55816
 ```
 
 https://mybot314.ru/tekegram_catalog/

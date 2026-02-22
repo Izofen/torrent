@@ -1,3 +1,90 @@
+###  Публикация: 1155956   (529675) от 05.08.2017
+
+VA - Nu Jazz Meets Lounge: Selected Cocktail Bar Beats (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Froggies - Dub Jazz 03:49
+02. Andrea Simiele - Lunar 03:45
+03. Brass - Black Star 04:13
+04. Vibraphile - Breakfast Club London (feat. Linnea) 04:51(   Читать дальше...   )Жанр: JazzПродолжительность: 01:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A462066609FFD1154A55E7153DDF26DC6438C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052230   (529275) от 13.09.2016
+
+Jeff Menteer - The Nature of My Dreams (2011) [MP3|256 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Great Mystery That Surrounds Us     (04:55)
+02. There's Gotta Be Something     (07:26)
+03. With You     (03:56)
+04. I Hope I'm Wrong     (06:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D1B386F1C2F239AE0BF73E9EDB281F980C5ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052158   (529261) от 13.09.2016
+
+John Coltrane - Blue Train (1957) 2CD, 2010, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529261.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Blue Train:
+01.Blue Train [10:43]
+02.Moment's Notice [09:10]
+03.Locomotion [07:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58849BCD4865F2A350A57BD66F2B50DB7A9AE428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312828   (529226) от 06.07.2019
 
 David Kikoski - Phoenix Rising (2019) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -658,93 +745,6 @@ Kenny Neal - Straight from the Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8063CCA9877649C9B9D06A1A232DD7943FAD2B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156206   (528410) от 06.08.2017
-
-V.A. - The Complete 'Blue Cover' Series (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Broken Beat, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pisk - Minnie The Moocher
-02. Fab Samperi - The Big Swing (feat Lil Hardin Armstrong - radio edit)
-03. Charlie Beale - Stop Breakin' Down Blues
-04. DJ Dunya - Xyloswing(   Читать дальше...   )Жанр: Electro Swing, Broken Beat, Nu JazzПродолжительность: 01:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA5F9DC1EF7889A9D4914ECC41336E607DAE2CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313074   (528290) от 07.07.2019
-
-Marty Ehrlich's Traveler's Tales - Malinke's Dance (2000) [FLAC|Lossless|tracks + .cue] <Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhymes (8:41)
- 02. The Cry Of (9:52)
- 03. Malinke's Dance (8:19)
- 04. Line on Love (7:42)(   Читать дальше...   )Жанр: Free JazzПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D5A3F75429F9CCE94354849DF30036590CA510F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052429   (528199) от 14.09.2016
-
-The Don Pullen & George Adams Quartet - Breakthrough (1986) Blue Note[APE|Lossless|image + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mr. Smoothie [06:10]
- 02.Just Foolin' Around [06:21]
- 03.Song From The Old Country [08:15]
- 04.We've Been Here All The Time [09:10](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1DF480419E07FD607E873E9AD5703BD4CF039E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1187382   (280435) от 28.11.2017
+
+Gregorian - Holy Chants (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Celebrate Christmas (2:32)
+02.  Walking In The Air (3:56)
+03.  You'll See The Snow (4:09)
+04.  Ding Dong (2:14)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CB72C9786BEC614DEE8F696213A646CF582F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336303   (280327) от 06.11.2019
 
 Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music from the HBO Series) (2019) [FLAC|Lossless|tracks]<Soundtrack>
@@ -706,35 +735,6 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45824C50A00A5DC1E9A30187576167C658BF026C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 170341   (277404) от 25.11.2018
-
-Зодиак - 7 альбомов (1980-2008) [MP3|320 kbps]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зодиак - 05:24
-02. Рок на льду - 02:50
-03. Пасифик - 04:02
-04. Мираж - 04:12(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B654C0122E9F57DEF12EE4515762B7F07B0FECD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1039543   (594560) от 02.08.2016
+
+Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eva (Pianist: Patrick Doyle)
+02. Igor
+03. Scamper & Brain
+04. Schadenfreude(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD166E2862EE403277058EB6FCCBA9B9F41BC5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233084   (593937) от 28.06.2018
 
 Robin Spielberg - On the Edge of a Dream (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Easy Listening, Piano>
@@ -716,35 +745,6 @@ Vangelis - 11 альбомов (1971-2003) [FLAС|APE|Lossless|image, tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56F22EFD9E261483613E0B2C2ECE5CD70243214F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300794   (587150) от 09.05.2019
-
-Kayo Konishi & Yukio Kondo - Elfen Lied Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Classical, Contemporary>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lilium (Opening version) (1:34)
-02.Longing (2:12)
-03.Deep Sea (2:56)
-04.Flower-like (1:08)(   Читать дальше...   )Жанр: Electronic, Classical, ContemporaryПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE27D8C544503B0812F2D0BBE4C0EDFE800A36FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

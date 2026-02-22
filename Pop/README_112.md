@@ -1,3 +1,119 @@
+###  Публикация: 1285316   (721079) от 26.02.2019
+
+Miquel Brown - Symphony Of Love (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony Of Love (6:01)
+02. Dancin' With The Lights Down Low (7:55)
+03. This Is Somenthing New To Me (5:41)
+04. The Day That They Got Disco In Brazil (7:18)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4C31C7FB3E1EE625F9B3E79DA5B5F4928FBC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285585   (721076) от 26.02.2019
+
+Robyn - Honey (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missing U (04:57)
+02. Human Being (feat. Zhala) (03:46)
+03. Because It's in the Music (04:34)
+04. Baby Forgive Me (04:16)(   Читать дальше...   )Жанр: Synth-pop, Dance-popПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F266BD3B6AEF76DCC93361D74565BE7121A070A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285226   (721075) от 26.02.2019
+
+Big Wild - Superdream (2019) [FLAC|Lossless|tracks + .cue] <Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City of Sound (03:52)
+02. Joypunks (03:15)
+03. 6's To 9's (feat. Rationale) (03:26)
+04. No Words (03:35)(   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024A8785C9C042447D1F2A2416AA4C8F8A39F145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285366   (720954) от 26.02.2019
+
+Modern Boots - The Best Of Modern Boots (2019) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Downtempo>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears of a Broken Heart (New Simple Vocal Remix) (07:35)
+02. In a World of Jealousy (Galaxy Extended Vocal Remix) (06:52)
+03. Boulevard of My Dreams (Extended Vocal Remix) (07:57)
+04. Love Is a Game (Extended Summer Vocal Remix) (07:54)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DowntempoПродолжительность: 02:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42419B08523EA3747D5C0EE6598B9A4A79EA700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285371   (720945) от 26.02.2019
 
 Modern Boots - The Best Of Modern Boots (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-pop, Downtempo>
@@ -629,122 +745,6 @@ VA - Italo Disco 80 Legends, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:765C40CE6C780E3ABB22F7ED9C37AA7FA4E013DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130071   (718822) от 30.04.2017
-
-Gallina - Самолёты не летают (2001) [APE|Lossless|image + .cue] <Pop, Dance-Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Самолёты не летают
-02 - Белым снегом
-03 - Каменный цветок
-04 - Грустная звезда(   Читать дальше...   )Жанр: Pop, Dance-PopПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5753FF2AB9B8596EBBD854B2688367EB8A7288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285701   (718820) от 27.02.2019
-
-Finished Touch - Need To Know You Better (1978) LP [MP3|320 Kbps] <Disco, Soul, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Need To Know You (Better) (5:27)
-02. I Love To See You Dance (5:01)
-03. Trying To Kick The Habit (2:44)
-04. Dancin' On (4:07)(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3ABA2B2583ECD325FFBDDB4B767E3A2FAF6BCD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285607   (718687) от 27.02.2019
-
-Julio Iglesias - De Julio 100 (2018) 5CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Quiereme Mucho
-02. Un Canto A Galicia
-03. To All The Girls I've Loved Before(   Читать дальше...   )Жанр: PopПродолжительность: 06:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE479553F8108072D1FE4361249E2B680753583E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531801   (718657) от 17.02.2022
-
-Александр Айвазов - Лучшее 2021 (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лилии (Версия 2017) (3:49)
-02. А ты дождись (Disco 90 Version) (feat. DJ Unix) (3:54)
-03. Снег на ладонях (Disco 90 Version) (feat. DJ Unix) (3:28)
-04. Ах, эти белые розы (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 02:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795D9456B96DBEC3F4C641A223795BCBDF8E8C07
 ```
 
 https://mybot314.ru/tekegram_catalog/

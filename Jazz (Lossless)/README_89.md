@@ -1,3 +1,32 @@
+###  Публикация: 1507925   (798104) от 06.11.2021
+
+Dexter Gordon Quartet - Espace Cardin 1977 (2018) Elemental Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sticky Wicket [13:22]
+02. A la Modal [13:45]
+03. Body and Soul [14:05]
+04. Antabus [8:51](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE78B721E2A8727407E980C9849F3ABE57812A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508150   (798001) от 07.11.2021
 
 Joe Henderson - The Complete Blue Note Studio Sessions (1963 - 1967) 5CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -716,35 +745,6 @@ George Garzone - Moodiology (1999) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ED59E7609B8E7D892EFD8F3A94BA6952CA2DBAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011706   (796445) от 28.04.2016
-
-Blue Mitchell & Sonny Red - Baltimore 1966 (2016) Uptown Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.If I Should Lose You [15:30]
- 02.All Members [14:27]
- 03.Fungi Mama [10:24]
- 04.Blue Spring Variation (Shifting Down, Blue Spring, Blue Spring Shuffle) [10:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067877D310EE80008AE997D7BA319D64043D6A84
 ```
 
 https://mybot314.ru/tekegram_catalog/

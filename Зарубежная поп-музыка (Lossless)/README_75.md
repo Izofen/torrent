@@ -1,3 +1,36 @@
+###  Публикация: 507881   (240626) от 18.08.2022
+
+Sophie B. Hawkins - 7 альбомов (1992 - 2006) [FLAC|Lossless]<Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Свой дебютный альбом «Tongues And Tails» («Языки и хвосты») Хокинс записала в 1992 году. Колоритный дэнс–поп с хитом–выскочкой «Damn, I Wish I Was Your Lover», которому покорились многие хит–парады, доставил ее мысли и убеждения в каждую мятежную душу и вызвал много откликов.Список альбомов:
+1992 Tongues and Tails
+1994 - Whaler
+1999 - Timbre
+2001 - Timbre with Bonus Disk
+2004 - Beautiful Girl (Single)
+2004 - Wilderness
+2006 - Bad Kitty Board MixЖанр: Rock, PopПродолжительность: 07:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C385E7C3B7FE3BB476B683B0516C5327EFACA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635327   (239907) от 25.05.2023
 
 The Jordan - Nowhere Near The Sky (2023) [FLAC|Lossless|image + .cue] <Pop>
@@ -714,35 +747,6 @@ Lana Del Rey - Say Yes To Heaven (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C0C069D20E2A7DBB682F7C4F788471685C3F955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645663   (233106) от 10.07.2023
-
-Christopher Romberg - Stanna hos mig! (1992) [FLAC|Lossless|WEB-DL|tracks] <Pop, Schlager, Stage & Screen, Musical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skona manniskor - (Ingemar Olsson) - [02:24]
-02. Mitt sommarlov - (Britt Lindeborg) - [02:50]
-03. Musik ska byggas utav gladje - (Lill Lindfors) - [02:43]
-04. Jag skall mala hela varlden, lilla mamma - (Joss Toje) - [03:02](   Читать дальше...   )Жанр: Pop, Schlager, Stage & Screen, MusicalПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A7D7023F0452F193B9609699FF56CC32303289
 ```
 
 https://mybot314.ru/tekegram_catalog/

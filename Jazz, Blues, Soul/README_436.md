@@ -1,3 +1,32 @@
+###  Публикация: 1641374   (235439) от 22.06.2023
+
+Jessica Williams - Live At Maybeck Recital Hall, Vol. 21 (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introductory Announcement [0:18]
+02. Why Do I Love You? [6:40]
+03. The Nearness of You [7:49]
+04. Kristen [8:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CEC38D17D1ADE3815BC7412F8553331A78CFF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641370   (235433) от 22.06.2023
 
 Paul Bley, Evan Parker, Barre Phillips - Time Will Tell (1995) ECM [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -716,35 +745,6 @@ L-Magic Sam - No More Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81147677A00A7E4DFA2C0FD54DD69BC5F60BD751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638408   (235048) от 09.06.2023
-
-Liza Ohlback - Unravelling (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gets Hard Sometimes (4:22)
-02. Talk To me Child (3:25)
-03. Watch My Smoke (3:52)
-04. Unravelling (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7337EEBD483C3CE74C9A0D302201FBA6AF943E
 ```
 
 https://mybot314.ru/tekegram_catalog/

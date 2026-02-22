@@ -1,3 +1,119 @@
+###  Публикация: 1505997   (801819) от 29.10.2021
+
+Dami Im - My Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pray (00:03:53)
+02 - Scared to Talk To You (00:03:09)
+03 - Lonely Cactus (00:03:11)
+04 - Marching On (00:03:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6664DD5763864228703DCF004DBEB857A4D16E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505889   (801730) от 29.10.2021
+
+Engelbert Humperdinck - In Time (1972) [MP3|320 Kbps] <Pop, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801730.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Baby I'm A Want You
+A2 Day After Day
+A3 Too Beautiful To Last
+A4 (They Long To Be) Close To You(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 00:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FE48C1E7B273AF1354E940F292FEFF72D471CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506050   (801568) от 29.10.2021
+
+DATA - Opera Electronica (серия "Другие восьмидесятые") (1981) CD, Album, Remastered, 2017, Angel Air Records [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuckooland
+02. I Want to Know
+03. Fallout
+04. Fever of Love(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30468249A66247934D9D10F15B0C3A68D1A12A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505989   (801519) от 29.10.2021
+
+Олег Газманов - Юбилейный альбом (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801519.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. А я девушек люблю
+2. Дождись
+3. Единственная
+4. Есаул(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98202D066250D24ECD79BE8891FEF266628F7BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506093   (801515) от 29.10.2021
 
 Beast In Black - Dark Connection (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco, Power Metal>
@@ -629,122 +745,6 @@ Frida или  Anni-Frid Synni Lyngstad, род. 15 ноября 1945, Балла
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BE1F6671C502589915B43547337A882B725142B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273505   (800561) от 01.01.2019
-
-Mode-One - Queen Of My Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of My Heart (8:36)
-02. Heaven Is Waiting (5:56)
-03. I Wanna Feel You (7:24)
-04. Game Of Love (Extended Mix) (feat. Lian Ross) (6:01)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C82B0DED87260B47F7B521807155D9DD51E0D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121576   (800550) от 02.04.2017
-
-Stylove - The Album (The Original Maxi-Singles Collection) (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Girl (05:41)
-02. Sail Away (Feat. Jackie Brendie) (05:34)
-03. Noche De Fiesta (06:13)
-04. Lady In The Night (05:49)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D995020F74E80CEC29E327F9522D9CD548479F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273372   (800537) от 01.01.2019
-
-The New Fifty Guitars - Disco's Greatest Hits (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Copacabana (3:41)
-02. Night Fever (3:01)
-03. Mac Arthur Park (4:05)
-04. Boogie Oogie Oogie (3:45)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3392A0BF8A0B09118F906E8E83FD854D819640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199781   (800420) от 17.01.2018
-
-Bosson - Best Of 11-Twelwe (2013) [MP3|320 Kbps] <Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guardian Angel (3:40)
-02. Every Single Time (3:58)
-03. Baby I Believe In You (3:44)
-04. Loveshock (3:21)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616AEF769D041371C0F80AAF3C5A1170053C56CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

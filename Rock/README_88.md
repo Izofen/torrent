@@ -288,35 +288,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668691   (173368) от 13.10.2023
-
-Whitesnake - The Purple Album: Special Gold Edition (2015) Remix, 2023, Rhino [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn (2023 Remix) (06:50)
- 02. Lay Down, Stay Down (2023 Remix) (03:57)
- 03. Love Child (2023 Remix) (04:13)
- 04. Holy Man (2023 Remix) (04:48)(   Читать дальше...   )Жанр: RockПродолжительность: 02:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2880421F152B124722D8EC19A961BA1B2D7FF4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668657   (173362) от 13.10.2023
 
 Slade - 80's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
@@ -397,35 +368,6 @@ The Dear Hunter - Migrant Returned (2013) Remaster, 2023, Equal Vision Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47A11EB5130BE52FFEB40FCE60E8F000314F936D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670049   (171999) от 20.10.2023
-
-The Rolling Stones - Hackney Diamonds (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angry (03:47)
- 02. Get Close (04:11)
- 03. Depending on You (04:03)
- 04. Bite My Head Off (03:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF6E8A253B7B0730B8F30CFCA0736347684EB62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -744,6 +686,64 @@ Slade - Live and Loud! (2023) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6517C5476713E79D1363C0E1E84E0918B90542F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516238   (166973) от 10.12.2021
+
+ДМЦ (Дороги Меняют Цвет) - Электроакустика, Часть 1 (2021) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166973.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сирень
+2. Накорми голубей
+3. Целуй ниже
+4. Запой(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4D143D6C6172DF2C5E3AC70D5064AEFED0D7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516219   (166946) от 10.12.2021
+
+Pink Floyd - Live In Rome Palaeur 20 June 1971 (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atom Heart Mother (Live In Rome Palaeur)
+02. Careful With That Axe, Eugene (Live In Rome Palaeur)
+03. Fat Old Sun (Live In Rome Palaeur)
+04. The Embryo (Live In Rome Palaeur)(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F199CD4328096AC3A008A4A7BFA229FEC8BA33
 ```
 
 https://mybot314.ru/tekegram_catalog/

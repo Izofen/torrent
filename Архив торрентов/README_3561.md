@@ -1,3 +1,29 @@
+###  Публикация: 555449   (431952) от 03.10.2012
+
+Best HD Wallpapers Pack (02.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA398E6930FC5E95832CDB1BCF8A573878198C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 555561   (431951) от 03.10.2012
 
 Подборка журналов | Дом в саду №4-11 [+спецвыпуск №1] [2011] [PDF, DJVU]
@@ -670,32 +696,6 @@ Various Artists - Perfecto Records Collected Vol.2 (2012) [MP3|320 кб/с]<Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C6066FB5B451F68CC8F594A7B0180E093782159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555456   (431875) от 03.10.2012
-
-HD Pack Superior Wallpapers (02.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65B05CAEB62C5870A519610E908CB303A5C7DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

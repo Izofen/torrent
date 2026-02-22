@@ -1,3 +1,32 @@
+###  Публикация: 1625868   (244250) от 12.04.2023
+
+Silhouette - Les retranchements (2022) [MP3|320 Kbps] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascension (01:59)
+02. La Première Neige (06:21)
+03. Au Seuil De L'Oubli (05:36)
+04. Interlude (02:25)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592BEC9B5487E5243B77EC4E700E8558147A99A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625863   (244232) от 12.04.2023
 
 Morghash - Cosmogony (2019) EP [MP3|320 Kbps] <Symphonic Black Metal>
@@ -712,35 +741,6 @@ Night Spirit - The Spark (2021) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A3B814B80E410A1499F73027A70529D99FFF226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376564   (241764) от 18.04.2020
-
-Throwdown - Take Cover (2020) [MP3|320 Kbps] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Becoming [00:03:18]
-02 - Propaganda [00:03:38]
-03 - London Dungeon [00:04:04]
-04 - Planets Collide [00:04:35](   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D672B89B800133510D8C2E91C13D735CF63C31C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

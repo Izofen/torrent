@@ -1,3 +1,32 @@
+###  Публикация: 1409219   (444987) от 17.09.2020
+
+Ace of Base - Hidden Gems, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl In The Line (3:15)
+02. Love In The Ghetto (2:53)
+03. Stranger To Love (3:11)
+04. Memories Forever (3:45)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E920B59EF55774145AA4527FA9E3D5A92F1D046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248414   (444791) от 19.09.2018
 
 VA - One Love (2007) 2CD [FLAC|Lossless|image + .cue] <Pop, Rock, Funk, Soul>
@@ -717,35 +746,6 @@ Alicia Witt - Revisionary History (2015) [FLAC|Lossless|tracks + .cue] <Adult Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:244325E2EEA02FE656367E87E3701C138AF4DAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064478   (426228) от 20.10.2016
-
-Ben Folds - So There (2015) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Chamber Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capable of Anything
-02. Not a Fan
-03. So There
-04. Long Way To Go(   Читать дальше...   )Жанр: Alternative Pop, Chamber PopПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94548429848E65EC7C567EBEB08AF9238EBCF4DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,102 @@
+###  Публикация: 283046   (941939) от 16.01.2011
+
+Jon Butcher - Electric Factory (1996) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1.  Rocket Ship (06:25)
+2.  Chili Sauce (06:24)
+3.  Rather Go Fishin' (03:15)
+4.  Cactus Flower (07:08)
+5.  A Sea Of Blues (05:04)
+6.  The Fireman's Ball (03:19)
+7.  Gambler (05:07)
+8.  Yes, She Does (03:46)
+9.  Brian's Electric Factory (05:23)
+10. --Instrumental-- (01:06)(   Читать дальше...)Жанр: BluesПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752236   (941841) от 02.02.2014
+
+Akale Wube - Mata (2012) [FLAC|Lossless]<Funk, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Marye (4:47)
+02. Dodo (4:28)
+03. Mata (3:50)
+04. Jour de pluie (2:23)
+05. Kasalefkut Hulu (5:25)
+06. Almaz yeharerwa (4:14)
+07. Asmarina (3:54)
+08. Bazay (5:42)
+09. Besetchet (2:39)
+10. Sabye (4:39)(   Читать дальше...   )Жанр: Funk, World FusionПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CF0A329E59E3375B342C2EB7279E106DA6492A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091814   (941769) от 10.01.2017
+
+Трио Льва Кушнира (The Lev Kushnir Trio) - Летучий Голландец (1994) Aprelevka Sound Production[APE|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.How Deep Is The Ocean [09:19]
+ 02.Polina's Waltz [06:11]
+ 03.Tones For Joan's Bones [05:36]
+ 04.Sing, Sing, Sing [04:36](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2630C96B76B478B566CB3377015C8EF859625751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091813   (941766) от 10.01.2017
 
 Art Pepper with Duke Jordan - In Copenhagen 1981 (1996) 2CD, Galaxy[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -713,93 +812,6 @@ Birdlegg - Extra Mayo (2016) WEB [FLAC|Lossless|tracks + .cue] <Electric Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29D233DD95AD9E4C97B51A18B68E0EFFAC78520C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092141   (940353) от 11.01.2017
-
-Joe Bushkin - In Concert Town Hall (1963) Remaster, 2013, Warner[FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Medley: The Man That Got Away - Hallelujah [04:30]
- 02.The Porgy And Bess Medley: Bess You Is My Woman - It Ain't Necessarily So - S... [10:04]
- 03.I Can't Get Started [04:33]
- 04.They Can't Take That Away From Me [03:01](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87F6117E513DA611E025B13E7A4678C77F150DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092248   (940350) от 11.01.2017
-
-Shane Henry - Deliverance (2004) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Deliverance  (03:43) 
-02|  In too deep  (03:19) 
-03|  40 Days and Forty Nights  (03:25) 
-04|  Lost Angelo  (04:05) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1CCE374411202B4D9B44D3827C0B9897EF705F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984106   (940322) от 08.02.2016
-
-Dr. Lonnie Smith - Evolution (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Jazz Funk, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play It Back (14:06)
-02. Afrodesia (08:21)
-03. For Heaven's Sake (05:53)
-04. Straight No Chaser (06:44)(   Читать дальше...   )Жанр: Jazz, Jazz Funk, Soul JazzПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394709988BD91E786DDF29F28F2BC37338781481
 ```
 
 https://mybot314.ru/tekegram_catalog/

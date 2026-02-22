@@ -1,3 +1,32 @@
+###  Публикация: 1695646   (120071) от 30.01.2024
+
+Ante Valcic (Valčić) - Synchronicity (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Work (3:58)
+02. Eternal Love (3:42)
+03. Flower Bloom (4:01)
+04. Memory Burn (3:52)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6600330498EC12F2604F384C26A18057BEF3BB5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695653   (120066) от 30.01.2024
 
 Tony Drake - Escape (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -717,35 +746,6 @@ Lucio Sanchez (Sánchez) - De Buena Madera (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72F62515337BDEC54F76A0E8ABEAF1D8D7BA27AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696946   (119316) от 04.02.2024
-
-The John Irvine Band - The Starships Are Gathering (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Systems, Go! (5:08)
-02. The Archimedean Point (6:06)
-03. The Electrics Were Down (5:55)
-04. Lacus Temporis (10:53)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C19765EF364EA1B39B9B018A88F9B440E66EC55
 ```
 
 https://mybot314.ru/tekegram_catalog/

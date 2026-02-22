@@ -1,3 +1,119 @@
+###  Публикация: 1023531   (724538) от 05.06.2016
+
+Superbus - Sixtape (2016) [MP3|320 кб/с] <French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:20)
+02. Strong & Beautiful (04:05)
+03. Soul Sister (03:45)
+04. On The River (03:47)(   Читать дальше...   )Жанр: French PopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A934043CD568EB9D2DF47D386F8ED98BD985D887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129106   (724500) от 27.04.2017
+
+Shannon - Let The Music Play (1984) LP [MP3|320 Kbps] <Electronic, Freestyle, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let The Music Play (3:36)
+02. Sweet Somebody (4:45)
+03. Someone Waiting Home (4:37)
+04. Give Me Tonight (6:10)(   Читать дальше...   )Жанр: Electronic, Freestyle, DiscoПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872E881E89D739233DD7427AF69C44FA63802D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284992   (724477) от 24.02.2019
+
+Blue System - The UltraTraxx Remixe 1-2 (2009) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. History (UltraTraxx 12 Inch Version) (6:26)
+02. Laila (UltraTraxx 12 Inch Version) (6:39)
+03. That's Love (UltraTraxx 12 Inch Version) (7:31)
+04. Only With You (UltraTraxx 12 Inch Version) (7:43)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A80A8F01563CCA2F717E2D2EDE1D3ABBF72BF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023559   (724414) от 05.06.2016
+
+The Golden Filter - Voluspa (2010) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Indietronica, Synth Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Around The Fire
+02. Hide Me
+03. Look Me In The Eye
+04. Moonlight Fantasy(   Читать дальше...   )Жанр: Nu-Disco, Indietronica, Synth PopПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6CB7FF4D889BC57A4148DA5A392B66CB374EB2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023421   (724403) от 05.06.2016
 
 Bottle Of Moonshine - Believe The Numbers (2015) [FLAC|Lossless|tracks] <60's-70's Retro Pop, Female Vocal Jazz>
@@ -623,122 +739,6 @@ Herbie Mann - 2 Albums (1976, 1978) [MP3|320 Kbps] <Funk Soul, Jazz, Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC0545C190EC899FA12E9CCA474EAC79F42B31A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285316   (721079) от 26.02.2019
-
-Miquel Brown - Symphony Of Love (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony Of Love (6:01)
-02. Dancin' With The Lights Down Low (7:55)
-03. This Is Somenthing New To Me (5:41)
-04. The Day That They Got Disco In Brazil (7:18)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4C31C7FB3E1EE625F9B3E79DA5B5F4928FBC04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285585   (721076) от 26.02.2019
-
-Robyn - Honey (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missing U (04:57)
-02. Human Being (feat. Zhala) (03:46)
-03. Because It's in the Music (04:34)
-04. Baby Forgive Me (04:16)(   Читать дальше...   )Жанр: Synth-pop, Dance-popПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F266BD3B6AEF76DCC93361D74565BE7121A070A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285226   (721075) от 26.02.2019
-
-Big Wild - Superdream (2019) [FLAC|Lossless|tracks + .cue] <Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City of Sound (03:52)
-02. Joypunks (03:15)
-03. 6's To 9's (feat. Rationale) (03:26)
-04. No Words (03:35)(   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024A8785C9C042447D1F2A2416AA4C8F8A39F145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285366   (720954) от 26.02.2019
-
-Modern Boots - The Best Of Modern Boots (2019) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Downtempo>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears of a Broken Heart (New Simple Vocal Remix) (07:35)
-02. In a World of Jealousy (Galaxy Extended Vocal Remix) (06:52)
-03. Boulevard of My Dreams (Extended Vocal Remix) (07:57)
-04. Love Is a Game (Extended Summer Vocal Remix) (07:54)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DowntempoПродолжительность: 02:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42419B08523EA3747D5C0EE6598B9A4A79EA700
 ```
 
 https://mybot314.ru/tekegram_catalog/

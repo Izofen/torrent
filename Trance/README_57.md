@@ -1,3 +1,32 @@
+###  Публикация: 1711551   (112363) от 31.03.2024
+
+VA - Ablazing Spring Sessions 2024 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mercurial Virus - Legacy (Rene Ablaze Extended Remix) [6:54]
+02. Transaphonic - Beamworld (Extended Mix) [7:05]
+03. Thomas Lloyd & Hidden Tigress - Faded Whisper (Claas Inc. Extended Remix) [6:11]
+04. Tranzvission - Resilience (Extended Mix) [6:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B3438B041FFF8766F136B2BF68D403E3D6915E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711828   (112292) от 01.04.2024
 
 VA - Uplifting Only Top 15: March 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -716,35 +745,6 @@ VA - Silent Shore Trance - Essential Classics Vol. 4 (2024) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95F482EB6A5F4F3C6F3A8021C26305167F3957C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723805   (109302) от 19.05.2024
-
-VA - D.Trance 106 (incl. D-Techno 61) (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ T.H. - Delay to Moscow [05:49]
-02. Solar Vision - Winter (Extended Mix) [05:39]
-03. 4 Strings - Jewel 2.0 (Mike Van Fabio Extended Re-Lift) [05:42]
-04. Megara vs DJ Lee - We Live (Extended Mix) [04:47](   Читать дальше...   )Жанр: TranceПродолжительность: 03:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C746FBDD7F6C6FE33F5B478D3E4317CF9203A067
 ```
 
 https://mybot314.ru/tekegram_catalog/

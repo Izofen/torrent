@@ -1,3 +1,90 @@
+###  Публикация: 216112   (444426) от 05.10.2015
+
+Melody Gardot - 4 альбома (2005-2009) [FLAC|track+ .cue]<Jazz, Vocal Jazz, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_444426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская джазовая певица и инструменталистка Мелоди Гардо олицетворяет собой не только безграничный музыкальный талант, но и удивительную стойкость, силу воли и мужество, которые помогли ей победить тяжелые обстоятельства и стать той, кем она является сейчас. Мелоди родилась в Нью-Джерси в 1985 году. Несмотря на страстное увлечение музыкой и регулярные занятия (   Читать дальше...   )Список альбомов:
+2005 - Some Lessons
+2007 - Worrisome Heart
+2009 - My One and Only Thrill/Live In Paris (EP)Жанр: Jazz, Vocal Jazz, Female VocalПродолжительность: 02:17:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164200   (444275) от 08.09.2017
+
+Rick Derringer - Tend The Fire (1996) [FLAC|Lossless|tracks + .cue] <Blues Rock, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Set On You   (05:36) 
+02.  Wound Up Tight   (04:45) 
+03.  Who Do You Love?   (05:32) 
+04.  Big Time Love   (05:10) (   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A827F0FB3C7723AD65E8488227C629B94EC2384E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061900   (444078) от 12.10.2016
+
+VA - Vintage Cafe: Cool Jazz, Chill and Lounge (2016) [MP3|320 Kbps] <Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Happy (3:28)
+02. Ginnie - Love Yourself (5:53)
+03. Henrietta Adewole - Ain't Nobody (Chill Mix) (4:42)
+04. Meg Birch - P.Y.T. (Pretty Young Thing) (3:29)(   Читать дальше...   )Производство: This is AcousticЖанр: Jazz, LoungeПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BADE60303AB7A6F22965E9CAC04EC9E05D9ED9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164124   (443935) от 08.09.2017
 
 Grandad Turner - My Friends, My Fam (2011) Fhammond Family Ent [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
@@ -655,93 +742,6 @@ Savoy Brown, Kim Simmonds - Bring It Home (1994) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45B9470AB808EC4EDC7959C8A5D1853457B28608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164497   (442027) от 09.09.2017
-
-Hal Galper - Live at Maybeck Recital Hall, Vol.6 (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spoken Introduction [00:17]
-02. Whisper Not [07:08]
-03. It Never Was You [07:08]
-04. All God's Chillun Got Rhythm [03:43](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E66002DC77752568D6BBC5BEB1A75F15D81479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164119   (442026) от 09.09.2017
-
-Rob Brown Ensemble - Crown Trunk Root Funk (2008) AumFidelity [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocking Horse [10:58]
-02. Clearly Speaking [06:57]
-03. Sonic Ecosystem [11:18]
-04. Ghost Dog [07:34](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A0CED292B7C6FAD0639C47EA14540F2E312F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164488   (442009) от 09.09.2017
-
-Stan Getz - Sweet Rain (1986) Verve [FLAC|Lossless|image + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Litha [08:24]
-02. O Grande Amour [04:43]
-03. Sweet Rain [07:10]
-04. Con Alma [08:06](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4132CCF4D7C18FF92AE4267E35ED2ED9358C464
 ```
 
 https://mybot314.ru/tekegram_catalog/

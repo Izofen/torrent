@@ -1,119 +1,3 @@
-###  Публикация: 1794331   (67309) от 28.04.2025
-
-The Weepies - Hideaway (2008) [FLAC|Lossless|tracks + .cue] <Acoustic, Indie Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Go Back Now    [0:02:17.66]
-02. Orbiting    [0:02:55.09]
-03. Hideaway    [0:02:46.51]
-04. Wish I Could Forget    [0:02:56.71](   Читать дальше...   )Жанр: Acoustic, Indie Rock, Pop RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3172792EC8CA60EE382C321D56BE36F3C6FED7DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794023   (67284) от 28.04.2025
-
-Goose - Shenanigans Nite Club (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 So Ready(04:35)
-02 (setellite)(04:37)
-03 Madhuvan(10:16)
-04 SOS(03:41)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664EFE910D9814976A9FC7CE49FC040FDB17DD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796177   (67003) от 08.05.2025
-
-Area - Crac! (1975) Japanese Edition, Reissue, 2007, Strange Days Records [FLAC|Lossless|image + .cue] <Experimental, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'elefante bianco
-02. La mela di Odessa
-03. Megalopoli
-04. Nervi scoperti(   Читать дальше...   )Жанр: Experimental, Prog RockПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCDBA6ABDC37548610F5B5BD0285DEB01723BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797570   (66775) от 17.05.2025
-
-King Hannah - Big Swimmer (2024) [FLAC|Lossless|tracks+ .cue] <Indie Rock, Alternative Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66775.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Big Swimmer (05:22)
-2. New York, Let's Do Nothing (03:22)
-3. The Mattress (04:45)
-4. Milk Boy (I Love You) (03:53)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Psychedelic RockПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8736DD2B05663FB4DF4604270F7E57D7FA7673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798669   (66502) от 26.05.2025
 
 These New Puritans - Crooked Wing (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie-Rock>
@@ -745,6 +629,122 @@ Let Go (Limited Edition) (Australia)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E9BD1417B775F3F1DC7B4310490778F3108DFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725781   (55289) от 26.05.2024
+
+Bring Me The Horizon - Post Human Nex Gen (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Metalcore, Industrial Rock, Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - (ost) dreamseeker [00:00:19]
+02 - YOUtopia [00:04:02]
+03 - Kool-Aid [00:03:48]
+04 - Top 10 staTues tHat CriEd bloOd [00:04:00](   Читать дальше...   )Жанр: Alt. Metal, Metalcore, Industrial Rock, Electronic RockПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEB315D1A381D65B02D73E34E9BC31227625D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728155   (54028) от 07.06.2024
+
+Marilyn Manson - Sweet Dreams Baby (2000) 2024, Smokin' [FLAC|Lossless|WEB-DL|tracks] <Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inauguration Of The Mechanical Christ/The Reflecting God [00:06:52]
+02. Great Big White World [00:04:58]
+03. Cake And Sodomy [00:04:06]
+04. Sweet Dreams (Are Made of This) [00:06:26](   Читать дальше...   )Жанр: IndustrialПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB2769B7666ED073F6BA650E428D0FAD19554A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541025   (49233) от 22.07.2024
+
+Red Hot Chili Peppers - Unlimited Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Black Summer (00:03:52)
+02 - Here Ever After (00:03:50)
+03 - Aquatic Mouth Dance (00:04:20)
+04 - Not the One (00:04:26)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A397AF2C34EC49E4719362E87FB85D56AB21047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745290   (45564) от 26.08.2024
+
+The Get Up Kids - Something to Write Home About (1999) 25th Anniversary Deluxe Edition, 2024, Polyvinyl Records [FLAC|Lossless|WEB-DL|tracks] <Alternative, Emo, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holiday (Remastered 2024) [00:03:29]
+02. Action & Action (Remastered 2024) [00:04:05]
+03. Valentine (Remastered 2024) [00:04:19]
+04. Red Letter Day (Remastered 2024) [00:02:56](   Читать дальше...   )Жанр: Alternative, Emo, Indie RockПродолжительность: 01:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF632E8AEF93931D8EA3518D23F92EB3AD37A3A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1333744   (298578) от 27.10.2019
+
+VA – Super Instrumental Vol.3 (2002) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F. Goya - Historia De Un Amor
+02. R. King - Love Story
+03. Space - Secret Dreams
+04. F. Duval - Mandala(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEBCFACA884D7FA89177392596FB5B72494FEA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961732   (298553) от 02.12.2015
 
 Gregorian - Masters of Chant X: The Final Chapter (2015) [FLAC| (tracks + .cue)]<New-Age, Enigmatic>
@@ -716,35 +745,6 @@ DJ Premier Playlist
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBA2C90E4FA2AD130F23417F68257D58DB99E64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962192   (294730) от 04.12.2015
-
-Gregorian - Masters of Chant X: The Final Chapter (2015) 2CD Deluxe Edition [FLAC|image + .cue] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masters Of Chant
-02. Cry Softly
-03. Angel
-04. Strong(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2DE1483AADA04DFA5CB9B20DADCD0B77A84ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

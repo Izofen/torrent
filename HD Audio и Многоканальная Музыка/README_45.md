@@ -1,3 +1,177 @@
+###  Публикация: 1836661   (254150) от 12.11.2025
+
+Orquesta Balkanton - Orquesta Balkanton (1967) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Swing, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254150.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dixie Charleston
+A2 Te Digo No
+A3 El Camino Verde Del Lugar Donde Naci
+A4 Mis Amigos(   Читать дальше...   )Жанр: Pop, Swing, Rock & RollПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73606FF671830C07BC5A6B57306F7C8B9ABF4D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836658   (254149) от 12.11.2025
+
+Roberto Delgado & His Orchestra - South America In Super Stereo (1970) Series: Polydor Special [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Latin, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254149.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 El Condor Pasa (If I Could)
+A2 Tu Amor Mi Amor
+A3 Tabasco
+A4 Estrellita(   Читать дальше...   )Жанр: Latin, Easy ListeningПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E2F01FEA7592510FCB98C7593434B11E4FBFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836548   (253082) от 11.11.2025
+
+Herb Alpert - Rise (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul-Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253082.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 1980
+A2 Rise
+A3 Behind The Rain
+A4 Rotation(   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD66781E3BEE23B8B9DA6483DCCB81CA76EF10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608534   (253061) от 11.11.2025
+
+The Pretty Reckless - Studio Albums (6 releases) (2011-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pretty Reckless — американская рок-группа из Нью-Йорка, образованная в 2009 году.
+В состав группы входят Тейлор Момсен (вокал, ритм-гитара), Бен Филлипс (соло-гитара, бэк-вокал), Марк Дэймон (бас) и Джейми Перкинс. (ударные).2011 - Light Me Up
+2014 - Going To Hell
+2016 - Who You Selling For
+2021 - Death by Rock and RollЖанр: Hard Rock, Post-GrungeПродолжительность: 04:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD27DE2B99D15C9F60FE92D4D39361A38FE8183C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836401   (252509) от 10.11.2025
+
+Godark - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Godark - метал-группа из Португалии, основана в 2010 году.2015 - Reborn from Chaos (EP)
+2020 - Forward We March
+2025 - OmniscienceЖанр: Melodic Death MetalПродолжительность: 02:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BC01D822F5224C78231D80539A1E6A62E6D4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494949   (251202) от 11.05.2012
+
+Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Hung, Drawn And Quartered[04:35]
+ 02. - Stalingrad[05:59]
+ 03. - Hellfire[06:08]
+ 04. - Flash To Bang Time[04:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834720   (250468) от 04.11.2025
 
 Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
@@ -567,180 +741,6 @@ A4 Ты ушла из моей жизни(   Читать дальше...   )Ж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6922EF5C5E57799B1CF2C132CE43015CD11E02AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451637   (244688) от 05.03.2021
-
-ORM, Kamelie - Tropic (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244688.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vikend Zacina (Weekend Is Beginning)
-A2 Rozcarovani (Disillusionment)
-A3 Riky Sejk (Rilay Sheila)
-A4 Colorado(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E63FA16F823187A7A3E7DACF7095CE054BA6042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622959   (244082) от 30.03.2023
-
-Dreamtale - Studio Albums (8 releases) (2002-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamtale — финская группа, играющая пауэр-метал, образованная в 1999 году.2002 - Beyond Reality
-2003 - Ocean's Heart
-2005 - Difference
-2008 - PhoenixЖанр: Melodic Power MetalПродолжительность: 08:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8870D5E32E79A2FB57376BF8A99690B6CB86DB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626064   (244039) от 13.04.2023
-
-Seal - Seal (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Beginning
-02 Deep Water
-03 Crazy
-04 Killer(   Читать дальше...   )Жанр: Downtempo, SoulПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C231EDD558512BE59B71FFF597E39A607F7C2ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626149   (244034) от 13.04.2023
-
-Robbie Williams - The Heavy Entertainment Show 2LPs (2016)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244034.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Heavy Entertainment Show
-A2 Party Like A Russian
-A3 Mixed Signals
-A4 Love Of My Life(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E487750EE461A5148EE9249CD0161C6EF2210F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626259   (244011) от 13.04.2023
-
-Berlin - Pleasure Victim (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244011.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tell Me Why [5:36]
-2. Pleasure Victim [3:51]
-3. Sex (I'm A...) [5:08]
-4. Masquerade [4:09](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C635D82B613769A21F231D3548F9A3639A4984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536471   (244006) от 12.03.2022
-
-David Essex - Rock On (1973) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244006.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Lamplight
-A2 Turn Me Loose
-A3 On And On
-A4 Streetfight(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDB6FEEFB2105AEBD52597198BD5C62A11236A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

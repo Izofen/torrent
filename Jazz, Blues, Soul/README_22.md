@@ -1,3 +1,90 @@
+###  Публикация: 1619499   (1032958) от 16.03.2023
+
+Jenn Howard - Valiant Women (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Than You Think (3:53)
+02. Take A Hand (3:23)
+03. Microphone (3:12)
+04. Hold On (5:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BBD21D146BC69C7C60C22730FE25266023A5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446263   (1032954) от 08.02.2021
+
+BoogieBunker - Special Guests Simone Roerade & Wouter Kiers (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little by little (3:41)
+02. Everytime I roll the dice (4:09)
+03. Tennessee whisky (4:23)
+04. Dr. Feelgood (love is a serious business) (5:09)(   Читать дальше...   )Жанр: Blues R&BПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5592137E6B4DAEEC52F46BEBF03B889685B8E226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446250   (1032949) от 08.02.2021
+
+Marco Pasetto & Renato Bonato - Birth of the Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. James Infirmary (3:09)
+02. 2:19 Blues (3:30)
+03. Frankie and Johnny (2:38)
+04. Just a Closer Walk With Thee (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142104633A0CFAAB33F6B14D430AFE953C9083D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446266   (1032948) от 08.02.2021
 
 Mark Handley & The Bone Idols - Bedtime Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ Mary Lou Williams - 1944 (1995) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9D90B9AF4B8BEFC0F509A35307C5066CD039952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446687   (1032550) от 10.02.2021
-
-Richard M. Jones - 1923 - 1927 (1995) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzin' Babies Blues [2:44]
-02. 12th Street Rag [2:53]
-03. New Orleans Shags [3:21]
-04. Spanish Shawl [3:25](   Читать дальше...   )Жанр: Early Jazz, New Orleans JazzПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D33971EEE4D7F6C0C88C8DA3A3EF10CCEAB480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446780   (1032486) от 10.02.2021
-
-Layla Zoe - Nowhere Left to Go (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pray    [0:04:10.04]
-02. Nowhere left to go    [0:03:47.24]
-03. Sometimes we fight    [0:04:43.68]
-04. Don't wanna help anyone    [0:04:40.50](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF2AC5370E11F2D7FEC480E30BA79038D9D639F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446799   (1032483) от 10.02.2021
-
-The Floating Trunks - На расстоянии шепота (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пятничное танго (3:10)
-02. Блюз спящей собаки (3:31)
-03. Лодка грез (2:31)
-04. Дождаться дождя (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27BEF1D2804CA0B78D6F5F5B61A84C28BE2115BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

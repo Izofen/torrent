@@ -1,3 +1,29 @@
+###  Публикация: 1370661   (895052) от 28.03.2020
+
+USDownloader 1.3.5.9 Portable (27.03.2020) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3290DB77CD9086AB42DBFB883C19F6C671FD72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993383   (895051) от 05.03.2016
 
 Nero Burning ROM 2016 17.0.8.0 Portable by PortableAppZ [Multi/Ru]
@@ -689,32 +715,6 @@ Display Driver Uninstaller это утилита удаления драйвер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC9C2CEF3D3668D5C49CB71C6D03A4D01F0C8E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294878   (894969) от 14.02.2011
-
-VA - Work This Out, Vol. 4 (12.02.2011) [MP3|320 kbps]<Electro House / Electro, Dance / Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro House / Electro, Dance / PopПродолжительность: 02:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29CE030F4492E3B9617952CDD7D433A90C5F62B
 ```
 
 https://mybot314.ru/tekegram_catalog/

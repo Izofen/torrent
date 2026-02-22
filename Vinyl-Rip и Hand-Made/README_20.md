@@ -1,3 +1,177 @@
+###  Публикация: 1059776   (621889) от 15.04.2022
+
+Надежда Чепрага - Только Ты (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Человеческий Голос
+02. Симфония Чувств
+03. Только Ты
+04. В Краю Родном(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B272478996D8909E21DC36B088F507449B86998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934459   (621888) от 15.04.2022
+
+VA - Лето 2002/Зарубежная супер двадцатка (2002) [FLAC 2.0 16/44,1|image+cue (MC Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Base - This Is The Summer
+02. French Affair - I Like It
+03. Destiny's Child - Nasty Girl
+04. Bosson - Happy(   Читать дальше...   )Жанр: /PopПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316664C28A0FCF08E2A801AB2A6EE50B470BC939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862438   (621882) от 15.04.2022
+
+Премьер-Министр - Грязные танцы (1999) [FLAC 2.0|44/16|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Атомное чувство любовь
+/муз. В. Бодолика, сл. М. Максимова/
+02. Горе не беда
+/муз. А. Мисаилов, М. Максимова, сл. К. Арсенева/(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C0DCC7F7A9903533C7F7305C8CBCBE848DC0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957066   (621878) от 15.04.2022
+
+Инструментальный Ансамбль Рококо (1971) [FLAC 2.0 24/96|tracks+.cue (Vinyl-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арабески
+02. Акварель
+03. Королевство гномов
+04. Старый антикварЖанр: Easy ListeningПродолжительность: 00:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA4C97DCE04F51CD4B6A92C9B4BEC965FAAF942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935363   (621739) от 15.04.2022
+
+John Denver - Rocky Mountain High (1972) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Country, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621739.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Rocky Mountain High
+Steel Guitar – Eric Weissberg
+A2	Mother Nature's Son
+A3	Paradise(   Читать дальше...   )Жанр: Country, Soft RockПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D293571A8D6F193CA1EF84D8D5B7FC09C7D2368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059770   (621736) от 15.04.2022
+
+Вилли Токарев - Над Гудзоном (1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. С Днем Рождения, Милая Мама
+02. Мама, Я Сын Твой
+03. Нью-Йоркский Таксист
+04. В Шумном Балагане(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347EE62C1E788F55075A5CF9E06FCFABE28D9ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229853   (620881) от 09.06.2018
 
 Студия Гран-При - Танцуй! (1990) [FLAC 2.0|48/24|tracks|Tape-Rip] <Pop>
@@ -565,183 +739,6 @@ C4. The Who - Four Faces (3:22)(   Читать дальше...   )Жанр: Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:216118641C6255AA039B60457075F694C7E236FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993828   (612911) от 20.04.2022
-
-Кикки - Полуночное солнце / Kikki - Midnight Sunshine  (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasn't That Love (Кто Идет)
-02. Undercover Lovers (Тайные Влюбленные)
-03. Somebody Else Will (Кто-To Другой)
-04. Fallin In Love, Fallin Apart (Влюбиться, Разлюбить)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE2AAAC1C27647C413F393F8EFF4E12C01966D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021076   (612910) от 20.04.2022
-
-Bobbysocks / Боббисокс (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock, Synth-pop, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612910.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Свинг • Let It Swing
-A2	Рок-Н-Ролл • Midnight Rocks
-A3	Радио • Radio
-A4	Хочу Танцевать С Тобой • Don't Bring Lulu(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, SchlagerПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173C2045E881510204BD5DC50DB237D0C76BB8B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021696   (612904) от 20.04.2022
-
-Арсенал – Пульс 3 (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion,  Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612904.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Эстафета · Relay Race
-A2	Рондо · Rondo
-A3	Праздник · Festival
-A4	Пульс Улицы · Street Pulse(   Читать дальше...   )Жанр: Jazz, Fusion,  ElectronicПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E295BB7B92C3A78D4E87E192A11EAE1C9E1FB22D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007249   (612896) от 20.04.2022
-
-Louis Armstrong - Louis Armstrong In Prague (live at the Lucerna Hall 1965) 1983 [FLAC 2.0|96/192|image+cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	When It's Sleepy Time Down South
-02	The Bucket's Got A Hole In It	2:30
-03	Tiger Rag	1:10
-04	Indiana	4:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:46
-Издатель (лейбл): Panton (Czechoslovakia)
-Номер по каталогу: 8015 0075
-Кодек: FLAC (image + .cue)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25F4519AE89CB7FB61F29A1E98178D96B090DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994866   (612888) от 20.04.2022
-
-Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|44,1/16|image+cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Wants To Be Lonely - Ricky Martin & Christina Aguilera
-02. El Amor De Mi Vida - Ricky Martin
-03. El Beso Del Final - Christina Aguilera
-04. Fuego Contra Fuego - Ricky Martin(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017131   (612792) от 20.04.2022
-
-Herrey's (Херриз) - Diggi Loo, Diggi Ley (Дигги Лу, Дигги Лей) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612792.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Дигги Лу, Дигги Лей • Diggi Loo, Diggi Ley
-A2	Освободись • Kom Loss
-A3	Мне Ничто Не Помешает • Ingenting Som Hindrar Mej
-A4	Если Это Любовь • If It's Love(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,95 @@
+###  Публикация: 1650762   (224759) от 03.08.2023
+
+VA - IBIZA 2023 (Deluxe Version) (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_224759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mood 5 & Liana - Good 2 Me (Stardust Dub Mix) [5:54]
+02. Proone - Hold Me Close (Original Mix) [4:10]
+03. Raw Ordio - Love Her (Original Mix) [5:05]
+04. Lukas Steph & August Norr feat. Ruya Fanny - Be Free (Original Mix) [4:38](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A67E3D2B0BC655B2D93571C4319A4E1D172AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587120   (224747) от 10.12.2012
+
+VA - Deep Winter Chill (2012) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Francesco Demegni - Freedom in Light Dance - Original Mix (3:47)
+2. Bank Of Sound - Capital Minds - Beach Groove Mix (3:53)
+3. Blue Groove - Raspberry Colt - Jazzin Wth Anima Mix (3:50)
+4. Diskoo - Fax - House Mix (3:50)
+5. Jaquin Roraso - Stop the Sex - Da Bossa Mix (3:54)
+6. Tee Glam - Omni Passion - Glamorous & Gliter Mix (3:53)
+7. Anphibia - Kolhos - Free Jam Mix (3:49)
+8. Frank Phonic - Pratica - Chillhouse Da Editare (4:06)
+9. London Jazz Soul Project - Lovely Chillout - Piccadilly's Night Mix (3:53)
+10. Funk Da Jazz House - Daddy Now - Fdj Deephouse Mix (3:52)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE747A5C41CB9C479946B47B0374CED6963733F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965758   (224598) от 15.12.2015
+
+VA - Best Of Massive EDM Party (2015) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Stellar - The Prophecy [04:29]
+02. Hate & Love - Like Stars (feat. Firas Abi Ali) [06:44]
+03. Claus Backslash - Ibiza (Need U)Жанр: House, Progressive HouseПродолжительность: 03:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC14A040E1448E40F88B805608B0CB174670712E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586999   (224468) от 10.12.2012
 
 VA - Milano Fashion Nights: House Music Compilation (2012) [MP3|320 кб/с]<Deep House>
@@ -695,99 +787,6 @@ VA - Winterpearls 06 Chillout for a lovely cold breeze - Presented By Kolibri Mu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0065771FA6486077D6C586EED17594FB1A262E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585892   (215331) от 13.12.2012
-
-VA - Full Body Workout Volume 10 (2012) [MP3|320 кб/с]<Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Smash TV – Stop Me Feat. MZ Sunday Luv (Original Mix) 6:43
-2. Flashmob – Ninety Five (Argy ’95 Mix) 6:34
-3. Dachshund & Quenum – Wurlitzer & Cocktail (Original Mix) 6:26
-4. Nolan – Skat (Original Mix) 6:01
-5. Just Be – Dusty Fingers (Original Mix) 8:32
-6. Tiger Stripes – Runaways (Original Mix) 5:36
-7. Javier Logares – Balaklava (Original Mix) 10:35
-8. Chris James – My Love (Original Mix) 6:20
-9. Simon Baker – Dreams (Original Mix) 7:37
-10. Sonartek, Andrea Landi – Never Mine (Original Mix) 7:00Жанр: Deep House, Tech HouseПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162289381AE82FEBED3CDD879DEDB624B8A55041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085527   (214738) от 21.12.2016
-
-VA - Best of Bedrock 2016 (2016) [MP3|320 Kbps] <Tech House, Techno, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eagles & Butterflies - Murder Was the Bass (Nick Muir Remix) (7:47)
-02. Marc Romboy - Counting Comets (Ruede Hagelstein Remix) (9:46)
-03. Eagles & Butterflies - Fireworks (8:30)
-04. BOG - Rewired (7:40)(   Читать дальше...   )Жанр: Tech House, Techno, Progressive HouseПродолжительность: 02:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586E896A86C162D42F798B02A215645D8FF4447E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085571   (214654) от 21.12.2016
-
-VA - Ibiza Winter Session 2017: 25 Deep Smoothies (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lisa Reinhard - Take My Heart
-02. Tonya Oliveras - Flowers and Sun
-03. Yard Damn - Overnight
-04. Tiger Healer - Beauty Cat(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095BE67BDCB9A2D4C13ABFFB496427EE445296A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

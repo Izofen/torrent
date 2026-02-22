@@ -1,3 +1,32 @@
+###  Публикация: 1637612   (239797) от 05.06.2023
+
+Bruce Torff - Look Again (2013) Summit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look Again [4:49]
+02. One and Only [4:41]
+03. In the Flow [4:19]
+04. When I Said Goodbye [2:50](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455952A4E983CC67FEF56F649415E2D5411BBA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621763   (239768) от 26.03.2023
 
 Benny Golson - Turning Point & Free (1962) 2013, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -716,35 +745,6 @@ Oscar Peterson - Oscar Peterson (1951) 1995, Just A Memory Records [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83C06B6B45A3421A927E8D32A40B3BFF9633EFEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476674   (239226) от 12.06.2021
-
-Art Pepper - Seven Classic Albums (1952 - 1960) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239226.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tickle Toe [2:52]
-02. Chili Pepper [2:57]
-03. Susie the Poodle [3:11](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 04:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD169B9B91272E5FF3A7503EB3107391E303594
 ```
 
 https://mybot314.ru/tekegram_catalog/

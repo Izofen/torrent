@@ -1,3 +1,175 @@
+###  Публикация: 1730450   (107858) от 16.06.2024
+
+Torture Squad - Studio Albums (10 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Torture Squad — бразильская дэт/трэш-метал группа, основанная в 1990 году.1998 - Shivering
+1999 - Asylum Of Shadows
+2001 - The Unholy Spell
+2004 - PandemoniumЖанр: Thrash/Death MetalПродолжительность: 08:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B71312888D786CF75616463A890529BC01D0324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731732   (107614) от 22.06.2024
+
+VA - Двое - Песни на стихи Михаила Танича. Записи 1982 - 1984 гг. (1984) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Валерий Леонтьев - Пароходы
+(И. Николаев)
+02. Манана Тодадзе - Скажи мне все(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CC987FD993FC1CBB184203C8239919D33A9F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732021   (107528) от 23.06.2024
+
+S.O.D. - Stormtroopers of Death (Anthrax) - Studio Albums (2 releases) (1985-1999) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover/Hardcore Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107528.jpg" />
+</div>
+
+
+###  Подробнее
+
+S.O.D. (Stormtroopers of Death) — музыкальная кроссовер-трэш группа, сформированная в Нью-Йорке в 1985 году. Группа считается одним из первых кроссовер-трэш коллективов, смешавших в своём творчестве хардкор-панк и трэш-метал.1985 - Speak English or Die
+1999 - Bigger Than The DevilЖанр: Thrash Metal/Crossover/Hardcore PunkПродолжительность: 01:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A833621B679ADD999E5879420C289AA8C7C8FFE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732202   (107492) от 24.06.2024
+
+M.O.D. (Method of Destruction) - Studio Albums (9 releases) (1987-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover/Hardcore Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107492.jpg" />
+</div>
+
+
+###  Подробнее
+
+M.O.D. (Method of Destruction) — кроссовер-трэш группа, сформированная в Нью-Йорке в 1986 году бывшим роуди Anthrax и вокалистом Stormtroopers of Death Билли Милано.1987 - U.S.A for M.O.D.
+1988 - Surfin' M.O.D.
+1989 - Gross Misconduct
+1992 - Rhythm Of FearЖанр: Thrash Metal/Crossover/Hardcore PunkПродолжительность: 06:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FFE5E576D22BEC6B9CB021FB6F0380DAEE8E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732625   (107468) от 25.06.2024
+
+Lutharo - Studio Albums (4 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lutharo - канадская метал-группа основанная в 2014 году.2018 - Unleash the Beast (EP)
+2020 - Wings of Agony (EP)
+2021 - Hiraeth
+2024 - Chasing EuphoriaЖанр: Melodic Death/Power/Thrash MetalПродолжительность: 02:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C879AE85426435E987E46CF9E32F120D6CE2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733961   (107203) от 01.07.2024
+
+Luca Turilli (Dreamquest; Rhapsody) - Studio Albums (7 releases) (1999-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лука Турилли — итальянский рок-музыкант, гитарист-виртуоз, клавишник и композитор. Сооснователь пауэр-метал-группы Rhapsody of Fire и соавтор большей части её песен.1999 - King Of The Nordic Twilight
+Luca Turilli's Dreamquest
+Luca Turilli's Rhapsody
+Turilli / Lione RhapsodyЖанр: Symphonic Power MetalПродолжительность: 07:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1E9CD184C7FD6E4F368E3A1430FCD067C28574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734313   (107121) от 03.07.2024
 
 Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Experimental>
@@ -564,178 +736,6 @@ VA - Остров Сокровищ или В стиле Шансон часть 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9873571A3E50381456E70C77DF99649360238EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739529   (106028) от 28.07.2024
-
-VA - Дискотека Казанова. Dream House vol. 4 - Спецвыпуск Лето 2003 (2003) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Euro House>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Kristine Blond - Love Shy
-02. London Underground - Freeze Frame
-03. Pied Pipper - Slip & Slide(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC15B595722C16248AC4780FB9C04F6A9546ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739653   (106016) от 28.07.2024
-
-Mammoth WVH - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mammoth WVH — американская рок-группа, основанная и возглавляемая Вольфгангом Ван Халеном.2021 - Mammoth WVH
-2023 - Mammoth IIЖанр: Hard RockПродолжительность: 01:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43CE13EE5E9352ECB8AA0D7AE270FA96B106F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739595   (106014) от 28.07.2024
-
-Abyssphere - Studio Albums (5 releases) (2008-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abyssphere — российская метал-группа, основанная в 2005 году в Санкт-Петербурге.2008 - Images and masks
-2010 - Тени и Сны
-2013 - Снова и Снова (EP)
-2017 - На Пути К ЗабвениюЖанр: Gothic/Doom/Death MetalПродолжительность: 04:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534FDF1537128EB9D12714476C67999D68F55DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740039   (105956) от 31.07.2024
-
-VA - XXXL 3. Танцевальный Размер (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Europop, Dance-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-A1 Тату – Я Сошла С Ума (Remix)
-A2 Жуки – Танкист (Remix)
-A3 Дискотека ''Авария'' – Новогодняя 2001(   Читать дальше...   )Жанр: Europop, Dance-popПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33985487BFFF65198EFA6E2744B08B10A86C2AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740125   (105924) от 31.07.2024
-
-Slaughter to Prevail - Kostolom (2021) Released, 2022, Sumerian Records [WavPack|Lossless|image + .cue] <Deathcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonebreaker
-02. Demolisher
-03. Baba Yaga
-04. Made In Russia(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9F79DE075BDAA586E8B9EAE79829324ED6BB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740289   (105892) от 01.08.2024
-
-Twilight Force - Studio Albums (4 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Twilight Force — шведская симфо-пауэр-метал группа, известная своими фантастическими текстами и костюмами в стиле LARP, в которых группа выступает на сцене.2014 - Tales Of Ancient Prophecies
-2016 - Heroes of Mighty Magic
-2019 - Dawn of the Dragonstar
-2023 - At The Heart Of WintervaleЖанр: Symphonic Power MetalПродолжительность: 03:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD589F083EA91A4EDC8B7244B1533D2143A25F54
 ```
 
 https://mybot314.ru/tekegram_catalog/

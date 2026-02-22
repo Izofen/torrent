@@ -1,3 +1,177 @@
+###  Публикация: 278226   (957828) от 05.01.2011
+
+George Harrison - My Sweet Lord / Isn’t It A Pity (1970) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+A - My Sweet Lord (04:35)
+Side 2
+B - Isn’t It A Pity (6:59)Жанр: RockПродолжительность: 00:11:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980168   (957106) от 28.01.2016
+
+Fleetwood Mac - Tusk (Deluxe edition) (1979/2015) [DTS 5.1|44.1 /16|image+cue|Audio-DVD] <rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over & Over
+02. The Ledge
+03. Think About Me
+04. Save Me a Place(   Читать дальше...   )Жанр: rockПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE1A6969BD57D60149B9E0812459073E383B41F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171737   (955211) от 19.02.2020
+
+Scorpions - Taken By Force (1977) [Vinyl Rip 24Bit/96kHz]<Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+1. Steamrock Fever (03:41)
+2. We'll Burn The Sky (06:30)
+3. I've Got To Be Free (04:04)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD7DBB2E41222ECF1A0C998ED13E963DAF5F94B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 194789   (955140) от 19.02.2020
+
+Scorpions - Sting In The Tail (2010) [Vinyl Rip 24Bit/192kHz]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Raised On Rock (3:59)
+02. Sting In The Tail (3:13)
+03. Slave Me (2:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4027E6BB857B884D4841EF392F16EA65D6AA91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980860   (954562) от 30.01.2016
+
+Группа Диалог и братья Меладзе - Посредине мира (1991) Russian Disc [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дом напротив
+02 - Засуха
+03 - Актёр
+04 - Посредине мира(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEB7F9DB9FC925823683F3F2ABEE0E8E14A1C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980732   (954372) от 30.01.2016
+
+Deep Purple - Burn (1974) 1976, Warner Bros. [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Burn
+02 - Might Just Take Your Life
+03 - Lay Down, Stay Down
+04 - Sail Away(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE22D8276D101065D658732D6D027A6762FC244B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089128   (953579) от 02.01.2017
 
 VA - RETROспектива, часть I: Эстрадные оркестры (1932-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
@@ -573,174 +747,6 @@ Fiona Joy Hawkins (род. 1964) австралийская композитор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FA2430EC69D99EE7C46050088112CC5F3335F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983264   (939717) от 08.02.2016
-
-Boney M - Ma Baker, Sunny, Daddy Cool (1977) Japan [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ma Baker
-02 Love For Sale
-03 Belfast
-04 Gloria, Can You Waddle(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECA1DC88959E5B08A4C21111C5F6133239EBEB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983234   (939704) от 08.02.2016
-
-Michael Jackson - Thriller (1982) Japan [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin'
-02. Baby Be Mine
-03. The Girl Is Mine
-04. Thriller(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5DDCE3A0B0C1C5A7A6E931DF6B17FD86F1A2C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625617   (938360) от 09.03.2013
-
-И. Кальман - Оперетта Принцесса цирка (1973) /2 Lp/ [FLAC 2.0 24/96 |Vinyl-Rip]<Classic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicПродолжительность: 01:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7F4EC240E47DAE7840D372745C0DE32FF37E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205976   (937547) от 02.03.2020
-
-Europe - The Final Countdown (Upmix) (1986) [DTS]<ROCK>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Final Countdown (5:13)
-02. Rock The Night. (4:06)
-03. Carrie (4:33)
-04. Danger On The Track (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE10AAF1A8C964EA09FE536820BFC5823C6269C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861288   (935842) от 19.01.2015
-
-Supertramp - Breakfast In America (1979)  Japan Press [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935842.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Gone Hollywood (5:19)
-A2. The Logical Song (4:11)
-A3. Goodbye Stranger (5:51)
-A4. Breakfast In America (2:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADE775C4C119D980E8AC7E45A697BC49B26E0B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 174968   (935713) от 17.02.2010
-
-[OF] VA - Harman Kardon DTS Demo Disc (2006) [DTS-CD 1411kb/s]<Various>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: VariousПродолжительность: 00:33:26
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

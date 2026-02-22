@@ -1,3 +1,177 @@
+###  Публикация: 1710526   (112656) от 27.03.2024
+
+Тухманов - Памяти гитариста. Памяти поэта (1978) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Памяти гитариста (Д. Тухманов — Р. Рождественский)
+Сторона 2
+2. Памяти поэта (Д. Тухманов — А. Вознесенский)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1128C6886CAC6EB8F03E2F579C2DF180A4FC0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710541   (112645) от 27.03.2024
+
+Cryptosis - Bionic Swarm (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Overture 2149 [1:07]
+02 - Decypher [3:55]
+03 - Death Technology [3:08]
+04 - Prospect of Immortality [6:22](   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EDAAC5AF0D8614C45E7DD005698942921A2BBF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710525   (112643) от 27.03.2024
+
+Стеллинии Эгг, Ванжи Орико (Бразилия) - Бразильские песни (1956) [FLAC 24/96|Lossless|tracks] <Folk, World, & Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Д-3110
+Стеллиния ЭГГ
+01 - Бум-ки-ти-бум (нар. танец);
+02 - Негритянский танец (Э. Таварес - сл. нар.);(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF16DE49AA322BC156EEA5DAB873EFACA28C28BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710543   (112639) от 27.03.2024
+
+Cryptosis - The Silent Call (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Silent Call [5:01]
+02 - Master of Life [4:13]
+03 - Prospect of Immortality (Live in Athens) [6:16]
+04 - Transcendence (Live in Athens) [4:06]Жанр: Progressive Thrash MetalПродолжительность: 00:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E43958B5C3DA5C7B71E1143BE30835769B9B084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710946   (112616) от 28.03.2024
+
+Slayer - Reign In Blood (1986) Reissue, 2024, American Recordings Catalog P&D [FLAC 24/192|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Of Death (4:51)
+02. Piece By Piece (2:03)
+03. Necrophobic (1:40)
+04. Altar Of Sacrifice (2:54)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7779567F8DFA422E0C0C0ED08585CF4EF20D914D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710947   (112606) от 28.03.2024
+
+Sum 41 - Heaven :x: Hell (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-punk, punk rock, alternative metal-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting On A Twist Of Fate (2:47)
+02. Landmines (2:56)
+03. I Can't Wait (2:06)
+04. Time Won't Wait (2:31)(   Читать дальше...   )Жанр: Pop-punk, punk rock, alternative metal-rockПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD06142AF85CD177FC31AA933E4E689D2B0C62E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710972   (112594) от 28.03.2024
 
 Beyonce - Cowboy Carter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Soul, Country>
@@ -568,180 +742,6 @@ Eternal - Infernus (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C959C83BD6E0AEA9AE38822A7171D2072D81540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823045   (112382) от 09.10.2025
-
-Golden Ruffian - Never Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Forever Gone (2:47)
-02.  Hold Me (2:17)
-03.  Wild Baby (2:12)
-04.  Flawless Life (2:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8B69171BFD4ADD90A4BBB132AAFB121CB64996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823046   (112380) от 09.10.2025
-
-Rust n' Rage - Songs Of Yesterday (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  One for All (All for One) (3:08)
-02.  Songs of Yesterday (3:11)
-03.  Just Like Brothers (3:01)
-04.  Hey Jane (3:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB94B1EA0140B5486B96328F746BE670296AA209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823073   (112350) от 09.10.2025
-
-Arch Enemy - Blood Dynasty (Expanded Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dream Stealer (04:30)
- 02 - Illuminate the Path (04:49)
- 03 - March of the Miscreants (04:50)
- 04 - A Million Suns (03:46)(   Читать дальше...   )Жанр: Melodic Death Metal, Female VocalПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C3EE7133D6828E1B1647AE63F09C93A21E6CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711926   (112303) от 01.04.2024
-
-Anyma - Genesys II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-House, Melodic-House, Techno, Trance, Psy-Trance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Avantgarde, Anyma - Eternity (Massano Remix) (6:03)
-02. Anyma - Pictures Of You (Cassian Remix) (4:04)
-03. CamelPhat, Anyma - The Sign (Kevin de Vries Remix) (4:03)
-04. Grimes, Anyma - Welcome To The Opera (Adriatique Remix) (5:14)(   Читать дальше...   )Жанр: Progressive-House, Melodic-House, Techno, Trance, Psy-TranceПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A4EBF015EC1541840FC7B7971A52DF404439F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712083   (112288) от 01.04.2024
-
-Bob Sinclar - Paradise (Remixed) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ghetto (Ian Pooley's Paradisiaque Mix) [00:06:55]
-02. Gym Tonic (Wh0 Remix) [00:02:28]
-03. My Only Love (Erick Morillo Remix) [00:06:07]
-04. Ultimate Funk (Tocadisco Remix) [00:03:19](   Читать дальше...   )Жанр: House, DiscoПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556D13E3C056A98D557277EBAA3328BB2597BB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712044   (112278) от 01.04.2024
-
-Candi Carpenter - Demonology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Exorcist (00:03:20)
-02 - Cult (00:03:17)
-03 - Antisocial Butterfly (00:03:21)
-04 - Strawberry Starburst (00:02:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4F2823E07D3D84F29657A74B6D338F4C0D0E97
 ```
 
 https://mybot314.ru/tekegram_catalog/

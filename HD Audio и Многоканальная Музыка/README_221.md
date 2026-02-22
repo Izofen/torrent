@@ -1,3 +1,175 @@
+###  Публикация: 1743361   (46696) от 15.08.2024
+
+Marilyn Manson - Raise The Red Flag, As Sick As The Secrets Within (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam Rock, Gothic Rock, Industrial Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raise The Red Flag (4:49)
+02. As Sick As The Secrets Within (5:36)Жанр: Glam Rock, Gothic Rock, Industrial RockПродолжительность: 00:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EBB0051C7B1FA1503BD0D1C010FF30E7DDFEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743527   (46520) от 17.08.2024
+
+Falling In Reverse - Popular Monster (2024) [FLAC 24/44.1,96|Lossless|WEB-DL|tracks] <Alternative Metal, Rap Rock, Eleсtronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prequel [00:03:53]
+02. Popular Monster [00:03:40]
+03. All My Life [00:03:10]
+04. Ronald [00:03:16](   Читать дальше...   )Жанр: Alternative Metal, Rap Rock, EleсtronicПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71306EE1C91261431E0DCDBB02DE55AC3495394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743722   (46493) от 17.08.2024
+
+Meghan Trainor - Timeless (2024) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Europop, 	Funk, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make A Move [00:02:35]
+02. Criminals [00:02:34]
+03. Crushin' [00:02:03]
+04. Bestie [00:03:11](   Читать дальше...   )Жанр: Europop, 	Funk, SoulПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7913E1987DAA91BB9F35A9A091BCC46A0E395319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743696   (46488) от 17.08.2024
+
+VA - MTV Hits vol. 23 (1994) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Take That - Sure
+02. M. Carey & L. Vandross - Endless Love
+03. Shampoo - Trouble(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBBFF1DF2226D9BD4C4E391E558EF9C44227A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743896   (46288) от 19.08.2024
+
+Written By Wolves - THE LIGHTHOUSE (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Modern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ADRIFT (0:25)
+02. GIVE 'EM HELL (4:07)
+03. MISERY (4:02)
+04. DARK PLACES (0:08)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF52DB48E43924A5F1BC9665E8688DCEBEE618DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744103   (46287) от 19.08.2024
+
+Richard Clapton - Goodbye Tiger (1977) Remaster, 2024, WM Australia [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rhythm and Blues, Rock and Roll, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down in the Lucky Country (2024 Remaster) [00:03:43]
+02. Wild Child (2024 Remaster) [00:03:35]
+03. Goodbye Tiger (2024 Remaster) [00:05:41]
+04. I Can Talk to You (2024 Remaster) [00:06:14](   Читать дальше...   )Жанр: Rhythm and Blues, Rock and Roll, Blues RockПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88A40E7AB7A7B5F1387E2C298A0764936B08B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743844   (46286) от 19.08.2024
 
 Arielle - Reel To Real (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -570,174 +742,6 @@ Dubvision - Another World (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <EDM, Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A28AFBD541376F07EAF1A2D3BA9A877EFC4D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746043   (45242) от 29.08.2024
-
-The Dark Element (Anette Olzon, Jani Liimatainen) - Studio Albums (3 releases) (2017-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45242.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Dark Element - шведско-финская симфо-метал группа, созданная бывшей вокалисткой Nightwish Анетт Олзон и бывшим гитаристом Sonata Arctica Яни Лииматайнен.2017 - The Dark Element
-2019 - Songs The Night Sings
-Jani Liimatainen - 2022 - My Father's SonЖанр: Symphonic/Power MetalПродолжительность: 02:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C84E35F459D6CBE74AA77DC64E4DA661623C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746070   (45240) от 29.08.2024
-
-Nick Cave & The Bad Seeds - Wild God (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Punk, Alt.Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song Of The Lake [00:03:36]
-02. Wild God [00:05:19]
-03. Frogs [00:04:34]
-04. Joy [00:06:13](   Читать дальше...   )Жанр: Post-Punk, Alt.RockПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D4BE8E1BA233EE27DCA529E6BA7AE590D0D79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746463   (45039) от 31.08.2024
-
-Фёдор Шаляпин - Арии из Опер «Роберт Дьявол» и «Севильский Цирюльник» (1951) Запись 1912 года [FLAC 1.0|88,2/24|tracks|Shellac-Rip] <Classical, Opera>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воззвание БертрамаЖанр: Classical, OperaПродолжительность: 00:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABE81364C483A6F331A7CED205EE18245F17799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746497   (45021) от 31.08.2024
-
-Bryan Adams - War Machine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Machine (3:33)
-02. Rock And Roll Hell (3:18)Жанр: RockПродолжительность: 00:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09C89B91587C2DC94FD56895C20067A93B5AE0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747008   (44763) от 03.09.2024
-
-Xiaoloulou - Tales of a Broken Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One More Day (3:55)
-02. Shadows of Regret (3:15)
-03. Fading Love (3:19)
-04. Shattered Love (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348DDF287C05CA7BB08CD44B2EB76720C963E593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747016   (44760) от 03.09.2024
-
-Людмила Сенчина - А Любовь Смеется И Поет (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Золушка
-02. Камушки
-03. Песня О Нежности(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4CB191865CD41FE093FB36623E3283DB3DBA64
 ```
 
 https://mybot314.ru/tekegram_catalog/

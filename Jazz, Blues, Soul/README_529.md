@@ -1,3 +1,32 @@
+###  Публикация: 1701955   (116015) от 23.02.2024
+
+VA - Instrumental Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cooltrane Quartet - Dreams (4:08)
+02. Eve St. Jones - Everywhere (3:01)
+03. The Cooltrane Quartet - Just Like Heaven (3:35)
+04. Nova Bossa Ltd. - Go Your Own Way (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFC37591F97067380195780348518261A836246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701930   (115995) от 23.02.2024
 
 VA - Sax For Lovers (1996) Legacy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Hard Bop>
@@ -716,35 +745,6 @@ Marian McPartland - Contrasts (1992, 1994) 2CD, 2003, The Jazz Alliance [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27ADB171DED1E70FE60C06072C6767770747A935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703247   (115156) от 28.02.2024
-
-Sahib Shihab - And The Danish Radio Jazz Group (1965) 2008, Oktav [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Di-Da [5:10]
-02. Dance of the Fakowees [4:13]
-03. Not Yet [3:25]
-04. Tenth Lament [6:20](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682320C7D41ECAC5D5228966A5F497BC1591AF78
 ```
 
 https://mybot314.ru/tekegram_catalog/

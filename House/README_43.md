@@ -1,3 +1,90 @@
+###  Публикация: 1144236   (629654) от 21.06.2017
+
+VA - Paris Fashion Beats Vol.1 (Finest Electronic Style Beats Collection) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Project Weekend Sound - Close To You (Instrumental)  4:17
+02.  After Sunrise - Deep Blue Something (Club Mix)  5:59
+03.  Bildertal - Sunder Uul (Stefan Reh Remix)  7:11
+04.  Svendaq - Golden Patch  5:40(   Читать дальше...   )Жанр: HouseПродолжительность: 02:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69B7E496071FD857EF011E4C7E600845621381C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144158   (628902) от 21.06.2017
+
+VA - Dance Therapy, Vol. 1 (These Bangers Push You To The Limit) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bes & Meret - Free (feat Wilton De Grey - Dancecom Project radio cut)
+02. Tydra - Sunshine (Mavaro & Maxtreme remix)
+03. Amoon - Since You've Been Gone (feat Pit Bailey - Club mix)
+04. Fooh Funk - Be In Love (Mario Chris remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB83800C6BC495BDECDFACF3DF31056453B681A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144471   (627907) от 22.06.2017
+
+VA - Clinique Sampler (Part 94) (2017) [MP3|320 Kbps] <House,Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Philipp - Be U (Nico Ferrero Remix)
+02. Bob Zopp - Durch Die Nie (Juan Astudillo Remix)
+03. John Cosani - World For All (Original Mix)
+04. Michael A - Frankield (Original Mix)(   Читать дальше...   )Жанр: House,Progressive HouseПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E611B20B6AB0A369ABE1D1C000A1F48FC58728DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144424   (627747) от 22.06.2017
 
 VA - Classic Progressive House Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
@@ -665,93 +752,6 @@ VA - Future EDM Essentials Vol.01 (2016) [MP3|320 Kbps] <House, Electro House, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D703E2B968420012DEA15ED08FCE07FEE5AAE98C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230397   (615634) от 12.06.2018
-
-VA - Latin Workout Hits 2018 [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Euro Latin Beats - Cosita Bella (Original Mix)
-02. Sorrenti Bros - Bandù (Radio Edit)
-03. Charly Rodriguez, Kike Puentes - Sexy Gyal (Original Mix)
-04. Emcidues - Pa Quitar El Estres (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C4DEEF1D7C2E2659BC11C47FBB219764B81DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230355   (615632) от 12.06.2018
-
-VA - Bike Ride Experience Music (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danson - Price
-02. Danny D - Yep
-03. Cymbal - Gaps
-04. Corteza - Home(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0335E1BC6EB541871448EEDC9716A611FD3EB102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296144   (615234) от 15.04.2019
-
-VA - Miami Deep House Essentials 2019 (Deluxe Version) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autosky - Synthva (Original Mix) 7:43
-02. Wicker In The Wind - Fantasy Grove (Original Mix) 5:57
-03. High One - Everyday (Original Mix) 4:26
-04. Shaw Quentin - Ivory (Original Mix) 6:53(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 04:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755C5B205003C2E912EE242B8DB0AFE8E0E95540
 ```
 
 https://mybot314.ru/tekegram_catalog/

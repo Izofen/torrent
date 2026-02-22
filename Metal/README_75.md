@@ -1,3 +1,32 @@
+###  Публикация: 1564023   (501732) от 17.07.2022
+
+Mantar - Pain is Forever and This is the End (2022) [MP3|320 Kbps] <Black Metal, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Egoisto (4:01)
+02. Hang 'Em Low (So the Rats Can Get 'Em) (4:16)
+03. Grim Reaping (4:05)
+04. Orbital Pus (3:46)(   Читать дальше...   )Жанр: Black Metal, Sludge MetalПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04CF49EC1BEA170352059C78A238466AC71E8158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564011   (501722) от 17.07.2022
 
 Graveshadow - The Uncertain Hour (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
@@ -716,35 +745,6 @@ Gamma Ray - Heading For Tomorrow (1990) 25 Anniversary Edition 2CD /2015, earMUS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:283689467AD62BBEA74205442A5CD3B15041F29F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054892   (492248) от 20.09.2016
-
-Pantera - History Of Hostility (2015) LP [MP3|320 Kbps] <Thrash Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cowboys From Hell
-02. Cemetery Gates (Demon Knight Edit)
-03. Mouth For War
-04. Walk(   Читать дальше...   )Жанр: Thrash Metal, Groove MetalПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15707D62CC7A77382FFDF8124DE3F629EFDB19AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

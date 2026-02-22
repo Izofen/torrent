@@ -1,3 +1,90 @@
+###  Публикация: 1287503   (701766) от 08.03.2019
+
+VA - Sentimental Midnight Jazz (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701766.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dexter Gordon - Guess I'll Hang My Tears Out To Dry
+02. Ella Fitzgerald Feat. Ben Webster - Sophisticated Lady
+03. Billie Holiday - Strange FruitЖанр: JazzПродолжительность: 02:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C9E8374522375A2180822084FE059299B4B85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132476   (701282) от 09.05.2017
+
+Lionel Hampton - Reunion At Newport 1967 (1993) Bluebird [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Me Loose [04:30]
+02. Thai Silk [04:31]
+03. Greasy Greens [04:39]
+04. Tempo's Birthday [02:52](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F930145D3294A96F65C62815095A583CD3158F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132472   (701276) от 09.05.2017
+
+Wild Bill Davis - Swing & Shout: Americans Swinging In Paris (1977) 2002, Black And Blue [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stick Up The Band [07:14]
+02. Lullaby Of Birdland [09:50]
+03. Indiana [06:57]
+04. Body And Soul [05:52](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3045DF59CF11C8E6D94532F1DBCC04ADFE885275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132479   (701270) от 09.05.2017
 
 Pepper Adams - Plays Charlie Mingus (1963) 2003, Fresh Sounds Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -659,93 +746,6 @@ Miles Davis - Plays For Lovers (2012) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F7FA8ADC41FFA38BF2AFAE30976574B0B907D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221128   (698706) от 22.04.2018
-
-Shaggy Dogs - All Inclusive (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Steady (03:40)
-02. Facebook Fury (03:21)
-03. El Dia De Los Muertos (03:25)
-04. No Second Round (03:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F88BD503ADB53600CD01838B0E6DFE24DA77F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132672   (698698) от 10.05.2017
-
-VA - Speakeasy Electro Swing Compilation Vol. 2 - The Electro Vintage (2013) [MP3|320 Kbps] <Electro Swing, Electro Blues, Glitch Hop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr Jennings - Mr Jennings -Man of Constant Sorrow (Remix of Soggy Bottom Boys) (04:07)
-02. Warp9 & Essex Groove - Warp9 & Essex Groove - Shake Your Hips (05:22)
-03. Thornato - Golden Gate Quartet - "Travelin' Shoes" (Thornato Remix) (02:48)
-04. Eclectic Mick - Eclectic Mick - Hypocrite Shoes (Bessie Smith & Friends) (05:18)(   Читать дальше...   )Жанр: Electro Swing, Electro Blues, Glitch HopПродолжительность: 02:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FCA230ABDAE89AAC3F7AB5AE27F42A7EBCED430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132798   (698695) от 10.05.2017
-
-Taj Mahal & Keb Mo - TajMo (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Leave Me Here (5:01)
-02. She Knows How To Rock Me (2:40)
-03. All Around The World (3:22)
-04. Om Sweet Om (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6286A355B80FC5E44565D10453980F571015E744
 ```
 
 https://mybot314.ru/tekegram_catalog/

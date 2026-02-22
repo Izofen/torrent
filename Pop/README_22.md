@@ -1,3 +1,119 @@
+###  Публикация: 1468420   (1017246) от 07.05.2021
+
+Emma Stevens - Light Year (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump In (00:02:42)
+02. Forever (00:03:35)
+03. The Grass Is Always Greener (00:03:53)
+04. On a Day Like Today (00:02:50)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229B99475730F17DCE0C2D6201279A8834C621C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455042   (1017179) от 07.05.2021
+
+VA - Маска. Выпуск 1-12 (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017179.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Заяц - Белая ночь
+2. Крокодил - Uptown Funk
+3. лама - Ave Maria
+4. Крокодил - Вдвоём(   Читать дальше...   )Жанр: PopПродолжительность: 05:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F259C4F10FBA049B6D848FDABBF91C7CC98395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468278   (1017105) от 08.05.2021
+
+Wilson Phillips - Wilson Phillips (2016) 2CD [FLAC|Lossless|image + .cue] <  Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Release Me (Single Edit) (03:54)
+02. Hold On (Single Fade) (03:40)
+03. Impulsive (AOR Mix) (04:35)
+04. Impulsive (Single Edit) (digitally remastered 2000) (03:57)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 01:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38831761F61E25ED0656824E8C1046F273396DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468553   (1017097) от 08.05.2021
+
+Bay City Rollers - Gold (2019) 3xCD [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017097.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Remember (Sha La La La) (2:34)
+02. Shang-A-Lang (3:06)
+03. Angel Angel (2:26)(   Читать дальше...   )Жанр: Pop, Pop Rock, Rock & RollПродолжительность: 02:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE5DCE1E5F6360D0B1C43C9483BE989191C240E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468499   (1017077) от 08.05.2021
 
 VA - Greatest Covers Ever (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ Champagne - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CB05FC1D1C57A917E3AE5E5B974DE9F40AFA65F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470920   (1015474) от 18.05.2021
-
-Bonnie Tyler - The RCA Years (2019) 4CD, Box Set, Compilation, Cherry Red Records [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015474.jpg" />
-</div>
-
-
-###  Подробнее
-
-1977 - The World Starts Tonight
-1978 - Natural Force
-1979 - Diamond Cut
-1981 - Goodbye To The IslandЖанр: Pop, Pop Rock, Soft RockПродолжительность: 03:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8632BC642B888744BF6B32999CD14FEC96E795F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470927   (1015442) от 18.05.2021
-
-Boney M. - Rasputin - Lover Of The Russian Queen (2021) [MP3|320 Kbps] <Retro, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rasputin [00:03:41]
-02. Daddy Cool [00:03:28]
-03. Rasputin [00:03:06]
-04. Ma Baker [00:04:35](   Читать дальше...   )Жанр: Retro, Pop, DiscoПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC9F925352CD9785F9A77B3CB7A6D384CCB8A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470935   (1015412) от 18.05.2021
-
-Boney M. - Rasputin - Lover Of The Russian Queen (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rasputin [00:03:41]
-02. Daddy Cool [00:03:28]
-03. Rasputin [00:03:06]
-04. Ma Baker [00:04:35](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BACF792866203CF97A88B9D72C23DF329ADFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471189   (1015297) от 19.05.2021
-
-Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Random Love (House Mix) 6:02
-2. Random Love (Maxi Mix) 6:31
-3. Random Love (Progressive Mix) 7:48
-4. Random Love (Radio Mix) 4:00Жанр: Euro HouseПродолжительность: 00:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1E2D450E99ADAFFDE5CAFC1531F53A1C1D4F2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

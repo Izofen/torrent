@@ -1,3 +1,61 @@
+###  Публикация: 1181792   (322116) от 08.11.2017
+
+Rene Thomas & Bobby Jaspar - Thomas & Jaspar Quintet (1961) 2006, BMG [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oleo  [05:05]
+02. Theme For Freddie [04:17]
+03. Half Nelson [07:10]
+04. But Not For Me [06:06](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E767E2117243072B5C3878AAF3EE0E65D88C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420963   (322110) от 03.11.2020
+
+VA - Late Night Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julie London - Sway (Remastered) (02:35)
+02. Louis Armstrong - Moon River (02:56)
+03. Diana Krall - The Look Of Love (04:42)
+04. Carla Bruni - Stand By Your Man (02:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B6F8416159BB885CC5304CEE1EAD5AA98C28E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181790   (322033) от 08.11.2017
 
 Eddie Heywood - 1950 - 1951 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Piano Jazz>
@@ -693,64 +751,6 @@ Duke Ellington - ...And His Mother Called Him Bill (1967) 2016, Sony Music [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57A940D9525929E440CCBD85BF09D275E5D2C887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182167   (319329) от 09.11.2017
-
-Grainne Duffy - Where I Belong (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where I Belong  (03:15) 
-02. My Love  (04:12) 
-03. Don't You Wanna Know  (03:23) 
-04. Home  (04:15) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300D0214D43D1EB2199F9475A0A49358A5B4EDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259727   (319175) от 04.11.2018
-
-VA - Re-Bop: The Savoy Remixes (2006) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Garage House>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Modern Jazz Quartet - Movin' Nicely (Eclipse Remix) (03:41)
-02. Duke Jordan - Night in Tunisia (DJ Jazzy Jeff Remix) (06:01)
-03. Charlie Parker - Moose the Mooche (feat. Miles Davis) (Quantic Remix) (03:18)
-04. Curtis Fuller - Minor Vamp (Basement Boys Remix) (06:30)(   Читать дальше...   )Жанр: Contemporary Jazz, Garage HouseПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2A50EAAA7A84FD393CEBD38E09CEC97502347C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1418156   (351478) от 23.10.2020
+
+Aquarian Dream - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Disco, Jazz-Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская джаз-фанк-диско группа, образованная Норманом Коннорсом. Выпускала альбомы с середины до конца 1970-х годов.01. You're A Star  (5:31)
+02. It Ain't Watcha Say  (3:51)
+03. Friends  (5:43)
+04. Fantasy  (3:36)(   Читать дальше...   )Жанр: Disco, Jazz-Funk, SoulПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2AF986A054F741BFC3D72184E35AE78FACA0A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953176   (351421) от 03.11.2015
+
+Kylie Minogue - Kylie Christmas (2015) [MP3|320 кб/с]<Pop, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It’s the Most Wonderful Time of the Year
+02. Santa Claus Is Coming to Town (with Frank Sinatra)
+03. Winter Wonderland
+04. Christmas Wrapping (with Iggy Pop)(   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74021EA244979EA2A25DF67C4412D3FF8DAC137B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953128   (351294) от 03.11.2015
+
+Eros Ramazzotti - 30 (2014) 3CD BoxSet [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terra promessa
+02. Una storia importante
+03. Adesso tu
+04. Musica è(   Читать дальше...   )Жанр: PopПродолжительность: 03:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454571D997337FFC514B2D781A6537B6FF33550B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953078   (351285) от 03.11.2015
+
+Юта - Имя - Лучшие баллады (2015) [MP3|320 кб/с]<Pop, Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кстати
+02. Имя
+03. На краю
+04. Ждали (МХХ) (feat. В. Шахрин)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D46CEB44BF07038D559DDEBE86F614347A1B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953163   (351033) от 03.11.2015
 
 VA - А нам всё равно. Хиты 1960 - 1980-х (2010) [MP3|320 кб/с]<Советская эстрада>
@@ -626,132 +742,6 @@ F. McDonald, C. Rae, B. De Souza - Wings (1976) LP [MP3|320 Kbps] <Funk, Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00F1651772EEE721CE95230AF0A6D2A8D6D3CF74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329966   (348002) от 07.10.2019
-
-Sphinx - Judas (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор, продюсер: Alec R. Costandinos01. Judas Iscariot (19:33)
-02. Simon Peter (17:23)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0175D7098B79490A21B61846189959994BA850F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329962   (348001) от 07.10.2019
-
-Automat - Automat (1978) Les Disques Mube Inc., 2014, Remastered [FLAC|Lossless|WEB-DL|tracks] <Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348001.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Automat 15:58
-➥ 1.a (The) Rise 6:08
-➥ 1.b (The) Advance 4:05
-➥ 1.c (The) Genus 6:35(   Читать дальше...   )Жанр: Disco, ElectroПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FF9A9860156531985E59EE0988DAA9B865D218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578375   (347983) от 23.11.2012
-
-Loreen - Heal (2012) [AAC|256 кб/с]<Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347983.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. "In My Head"
- 2. "My Heart Is Refusing Me"
- 3. "Everytime"
- 4. "Euphoria"
- 5. "Crying Out Your Name"
- 6. "Do We Even Matter"
- 7. "Sidewalk"
- 8. "Sober"
- 9. "If She’s the One"
- 10. "Breaking Robot"(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85C689225F9EBEA0039976B0CBC3399257883DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579772   (347977) от 23.11.2012
-
-Наталья Гулькина - Сама по себе (2012) [MP3|320 кб/с]<Pop\Disco>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слезы-дождь
-02. Delete
-03. Я сама по себе
-04. Непростые отношения
-05. Я хочу с тобой уснуть
-06. Белые птицы
-07. Я с тобой
-08. Прощай
-09. Подари мне остров
-10. Новый год(   Читать дальше...   )Жанр: Pop\DiscoПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7ECCB82CB94992353D4BCA506C81581492C0B9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

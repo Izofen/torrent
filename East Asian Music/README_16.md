@@ -697,41 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 257917   (338946) от 15.11.2010
-
-Jang Yun-jeong - 6 album’s (2004-2008) [FLAC|Lossless]<Korean, trot, k-pop,k-dance, ballad, DJ's,female vocalists>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_338946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk 1:
-01 . 첫사랑
-02 . 어머나
-03 . 꽃
-04 . 짠짜라
-05 . 이따,이따요
-06 . 콩깍지
-07 . 어부바
-08 . 편지 (Feat. Sg워너비 채동하)
-09 . 사랑이 떠나네요(   Читать дальше...)Жанр: Korean, trot, k-pop, k-dance,ballad, DJ’s,female vocalistsПродолжительность: 01:09:18+00:50:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580708   (337919) от 27.11.2012
 
 VA - Lovely String (1999) [MP3|320 кб/с]<Instrumental, Ethnic>
@@ -786,6 +751,32 @@ AlbumsЖанр: J-PopПродолжительность: 00:20:55
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D944AC779E689ED01D6C554546B24462002702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579478   (336413) от 27.09.2022
+
+The Art of Mankind - Archetype (2018) 2CD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Melodic Death MetalПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A46EC58244140806D3F8857A1C2269DD31342E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

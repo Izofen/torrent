@@ -1,32 +1,3 @@
-###  Публикация: 1665891   (180950) от 02.10.2023
-
-Michael Wolff - Bounce (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bounce [4:07]
-02. Chill [3:56]
-03. Caribbean Rain Dance [6:10]
-04. Long Lost [5:08](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC47E32BC1CB569B4595820C3A21F442709D948A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428136   (180945) от 01.12.2020
 
 Paul Bley Trio - Complete Savoy Sessions (1962-1963) 2008, Gambit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -745,6 +716,35 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C61D9F3A18361D989F2C987660F7916232C6217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667100   (177625) от 07.10.2023
+
+Jack McDuff - The Concert McDuff (1963 - 1966) 2002, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undecided (alternate take) [8:03]
+02. Love Walked In [7:56]
+03. Midnight Sun [6:26]
+04. Swedenin' [6:40](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D32A324B9CB477A776461923A16517981F73DAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

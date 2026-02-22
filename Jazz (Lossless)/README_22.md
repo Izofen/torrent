@@ -1,3 +1,32 @@
+###  Публикация: 971283   (987547) от 02.01.2016
+
+Joe Farrell-Louis Hayes Quartet - Vim 'n' Vigor (1983) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Arab Arab [09:59]
+ 02.Besame Mucho [07:25]
+ 03.Three Little Words [07:04]
+ 04.Miles Mode [07:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363D8988250CD26C3CBBF14BA3097D8FAC10023A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354648   (987077) от 23.01.2020
 
 Archie Shepp - Montreux One 1975 (1988) Freedom [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
@@ -771,35 +800,6 @@ John Coltrane & Johnny Hartman - John Coltrane and Johnny Hartman (1963) 2008, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2AA625E96C206CF1F9DAD92139CBDBD86B65BEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972035   (984773) от 04.01.2016
-
-Bobby Hutcherson - Four Seasons (1983) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Mean You [05:53]
- 02.All Of You [05:57]
- 03.Spring Is Here [07:06]
- 04.Star Eyes [07:50](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A6B75190DDAFC5B5B99EBC3E6637FECD95C79D
 ```
 
 https://mybot314.ru/tekegram_catalog/

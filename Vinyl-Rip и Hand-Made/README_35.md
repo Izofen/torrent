@@ -1,3 +1,177 @@
+###  Публикация: 1077561   (306599) от 28.11.2016
+
+Московский камерный оркестр - В.А.Моцарт. Симфония №41 до мажор, KV 551 "Юпитер" (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Allegro vivace  11:16
+2. Andante cantabile  11:38
+Сторона 2(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667EED501812EE8E43984624F8A6CEB3206B44E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261194   (305322) от 10.11.2018
+
+VA - Сергей Рахманинов - Золотая коллекция (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Neo-Classical, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 18 Вариаций На Тему Рапсодии Паганини Для Фортепиано с Оркестром соч. 43
+02. Итальянская Полька Для Фортепиано в Четыре Руки
+Концерт Для Фортепиано с Оркестром №2 соч. 18
+03. I Allegro Moderato(   Читать дальше...   )Жанр: Classical, Neo-Classical, RomanticПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DECAD830D1DCFB61844782748EB1F18428C8684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077995   (304306) от 29.11.2016
+
+Manfred Mann's Earth Band - Angel Station (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304306.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Don't Kill It Carol (6:18)
+A2. You Angel You (4:03)
+A3. Hollywood Town (5:10)
+A4. 'Belle' Of The Earth (2:47)(   Читать дальше...   )Производство: Bronze - 200 367-320Жанр: Progressive RockПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D4913D488836DAB72FCC3B0969BE67811AAEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077900   (304303) от 29.11.2016
+
+The Beatles - Let It Be (1970) [WavPack|192/32|tracks|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Two Of Us 3:34
+02. Dig A Pony 3:52
+03. Across The Universe 3:46(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF96293ACB9ED3145F0912AE7D6CC171C5BE3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261463   (303385) от 11.11.2018
+
+Unknown Artists. Verdi – La Traviata (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Opera>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01 Overture
+02 Libiamo Ne' Lieti Calici
+03 Un Di' Felice, Eterea (Duet)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C8B317DCEF3FB23C92E2F815AE7D860439D942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184079   (303202) от 16.11.2017
+
+Radiorama - Four Years After (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303202.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Daddy Daddy 3:15
+A2 Bad Boy You 4:06
+A3 Baciami (Kiss Me) 4:14
+A4 Flight Of Fantasy (Remix '89) 5:15(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi NRGПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCBF0B60EE38D1729C38ED26BDB004BA0CCC081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184149   (303058) от 16.11.2017
 
 Pet Shop Boys - Super (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Disco>
@@ -574,180 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B77525AC0D631F1C1D257E238F3D6645507B905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962264   (295020) от 04.12.2015
-
-Марина Хлебникова - Чашка Кофе (1997) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чашка кофе
-02. Кто ты такой
-03. Билли Бом
-04. Случайная любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:012B3252DC6D230847E3A399D4F5C7D2B04BC9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079273   (293750) от 04.12.2016
-
-Модерн Токинг - Поговорим о любви (1986) [WavPack|192/32|tracks|Vinyl-Rip] <Italo-Disco, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Любимая (Cheri Cheri Lady) 3:46
-02. Немного любви (With A Little Love) 3:34
-03. Бурные воды (Wild Wild Water) 4:18(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E852E0752B4053D4BE077EE822CB8F29FEEF137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185440   (293301) от 21.11.2017
-
-Rockets -Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electro, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radiate 4:44
-02. Imagine E.S.P. 5:04
-03. Ziga Ziga 999 4:04
-04. Hypnotic Reality 3:54(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72FA5930D05C0F7141A0157059789542E01A67DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262393   (293150) от 16.11.2018
-
-VA - Jazz Collection Non Stop Part I (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Bernard Allison - So Devine
-02. George Benson - Off Broadway
-03. Eartha Kitt - Nobody Taught Me(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A97B61574C39C7435504081EB30868D33264BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185421   (293131) от 21.11.2017
-
-Gazebo - Telephone Mama (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-
-A1 Telephone Mama
- A2 First!(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DB1CC47D89527F6FC9E55DA8369313AB908B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185401   (293124) от 21.11.2017
-
-Den Harrow - Overpower (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-
-1. Bad Boy 4:18
- 2. Overpower 4:18(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F8F90DECF1492457B62EC2EE220B38D3593419
 ```
 
 https://mybot314.ru/tekegram_catalog/

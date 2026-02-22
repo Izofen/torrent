@@ -1,3 +1,117 @@
+###  Публикация: 1004978   (836661) от 07.04.2016
+
+Винтаж - Light (2014) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Искренность
+02. Деревья
+03. Ева (Slow)
+04. Запретный Мир(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B969D340541FC59EA7F5EB1DF6B7C77BE6F09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501379   (836571) от 09.10.2021
+
+VA - DMC Producer Mixes Paul Dakeyne Volume 1 (2021) [MP3|320 Kbps] <House, Dance,  Italo-Disco, Jazzdance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Summer Classic 2
+02. Various Artists - Alternative Classics
+03. Dr. & The Medics Vs Norman Greenbaum - That's The Spirit
+04. Tears For Fears - Tears For Fears Megamix(   Читать дальше...   )Жанр: House, Dance,  Italo-Disco, JazzdanceПродолжительность: 01:20:03 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42FAC125662F97F3C067E486521C643D438A8A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501391   (836568) от 09.10.2021
+
+VA - Full Tilt Remix Vol. 99 (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Khaled Ft. Post Malone, Megan Thee Stallion, Lil Baby & Dababy - I Did it (Full Tilt Remix)
+02. Anitta - Girl form Rio (Full Tilt Remix)
+03. Anitta Ft. Dababy - Girl form Rio (Full Tilt Remix)
+04. Erica Banks Ft. Beatking - Toot that (Full Tilt Remix - Clean Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:10:07 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF9B4219A742AED9BC66FB52BFDFAC64132AA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380084   (836529) от 01.05.2020
+
+Everything Everything - In Birdsong (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Birdsong (05:13)
+02. In Birdsong (Edit) (03:59)Жанр: Indie PopПродолжительность: 00:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13BB4476A035924F9EBD2A150FF20224EE25360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113646   (836461) от 12.03.2017
 
 VA - This Is Berlin Disco, Vol. 3 (2017) [MP3|320 Kbps] <Disco, EuroDance, House, Tech House>
@@ -626,122 +740,6 @@ VA - 538 Hitzone 98 (2021) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EEE929A68319B5B04213D4CD22877B0BA20CF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501761   (833543) от 11.10.2021
-
-VA - 538 Hitzone: Best Of 2020 (2020) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Hip-hop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восполняю пробел по ежегодным сборникам нидерландской радиостанции 538. Все релизы этой серии вы как всегда сможете найти по ссылке внизу. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию. Так что наслаждайтесь...CD1:
-01. The Weeknd - Blinding Lights  (3:23)
-02. Sheppard - Die Young  (3:24)
-03. Davina Michelle & Snelle - 17 Miljoen Mensen (Live@538 In Ahoy)  (1:48)(   Читать дальше...   )Тип издания: Box Set, 2CD, CompilationРелиз состоялся: 13 ноября 2020 годаЖанр: Pop, Dance, Hip-hop, ElectronicПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04DF26EFC6173072BE0520CBEE92CAAF819C5A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380517   (832945) от 03.05.2020
-
-Suzanne Vega - An Evening of New York Songs and Stories (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop, Folk Rock>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marlene on the Wall
-02. Luka
-03. So How Many People Are Here from out of Town?'
-04. New York Is a Woman(   Читать дальше...   )Жанр: Pop, Folk RockПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D44A1DA410C8DD75F1E63BAC0786DE475B5495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005712   (832634) от 09.04.2016
-
-DJ Mash Up - Summer Vibes: Chill-Out and Dance Hits (2016) [MP3|320 кб/с] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer (03:42)
-02. Summertime Sadness (Remix) (03:36)
-03. High By The Beach (04:15)
-04. Hideaway (04:16)(   Читать дальше...   )Производство: Dance Mash Up EntertainmentЖанр: Pop, DanceПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C79029CAF964CB4C542C7F7A848FD4E58691408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114344   (832156) от 15.03.2017
-
-Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Up On Your Health
-02. Do Harm
-03. Small Towns
-04. When We Met(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E9509366F0A3428CEE055DCA253A35362939BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

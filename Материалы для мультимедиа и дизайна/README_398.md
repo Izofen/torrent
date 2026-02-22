@@ -1,3 +1,185 @@
+###  Публикация: 1794280   (67297) от 28.04.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Animal Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с изображением животных.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90109A03164F6BB30053A3EB7CE3E4278798FCB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794200   (67296) от 28.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Majestic Mandala Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изображения для сублимационного дизайна с мандалой.Формат: PNGРазрешение файлов: 2925 x 1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F165BBC530B1099CC23A41FC8F2244D7A6B7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794293   (67295) от 28.04.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Daisy Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с ромашками.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF37C8C19FB9C90A82741A7F0FE898BF1F42E8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794319   (67294) от 28.04.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Spring Tulip Flower Sublimation Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображением тюльпанов для сублимационного дизайна.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064BD4E32FBAC72510319045A14741DE71B6AE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794340   (67293) от 28.04.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Birthday Watercolor Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт на день рождения.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88AAF5569232BBFD11AA018A5D7549542491376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794282   (67292) от 28.04.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Clouds Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с облаками.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C11855915542DE148F73AABC65BEED9C7781893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794306   (67290) от 28.04.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Oranges Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный апельсиновый клипарт.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11CF772612118BEBB477AE53608CFB7A1C9ED8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794204   (67286) от 28.04.2025
 
 Растровый клипарт - STCrafts - Creative Fabrica - Pastel Gingham Repeat Plaids Mug Wrap Sublimation Design [PNG]
@@ -486,188 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AEF99241314341D3C087B30631E62FB801EFC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794990   (67174) от 03.05.2025
-
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Watercolor Maple Tree [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с изображениями клёна и кленовых листьев.Формат: PNGРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6715F7028AE4EAA0FE52133FB4855CFAB3C9EAF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794799   (67173) от 03.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Cute Fairy Woodland Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказочный лесной клипарт.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DA2447B104A6A07364812F9E2105C2B3768710A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795009   (67171) от 03.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Happy Thanksgiving Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт на тему Дня благодарения.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF6CB00B215A2C7CC585BDD3AD714ED4FA835DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794815   (67170) от 03.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Fantasy Unicorn Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фэнтезийный клипарт с единорогами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CE8B324E9F18F05F753ADBB2E07D692887BCE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794995   (67169) от 03.05.2025
-
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Watercolor Fishing Dad Cliparts [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт на тему рыбалки.Формат: PNGРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966466DD79E95B25CDFFEEB4D1D05E16AA6B469E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794807   (67161) от 03.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Happy Birthday Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт на тему дня рождения.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9FB735D93C30EE818E289AA42B9D17C9AA4BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795326   (67160) от 03.05.2025
-
-Паттерны - Free PSD Templates - Triangle Patterns [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Геометрические узоры в виде треугольников.Формат: PNG, AI, PSD, EPSРазрешение файлов: 2498 x 2498 - 2500 x 2499
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C268088789D4D5C04C61C5C5778DC8DDA249F131
 ```
 
 https://mybot314.ru/tekegram_catalog/

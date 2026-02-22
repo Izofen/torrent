@@ -1,3 +1,119 @@
+###  Публикация: 1297320   (604053) от 22.04.2019
+
+Bananarama - In Stereo (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604053.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love in Stereo (03:53)
+2. Dance Music (04:03)
+3. I'm on Fire (03:33)
+4. Intoxicated (04:06)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5D83D24F1B78F3055479694B906B8AA53287E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297503   (604047) от 22.04.2019
+
+VA - Вечеринка у t.A.T.u. 2 (Unofficial) (2002) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. МакSим - Заведи
+02. Пропаганда - Никто (Юрий Усачев Remix)
+03. Ariana - Я уже не помню слова
+04. Никита - Безумие лета(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E5ACB09D5B10FCFBACBD80ED5F62AAACF4FE447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546975   (603915) от 26.04.2022
+
+VA - ZYX Italo Disco New Generation Vol. 20 (2022) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italoconnection - Rainbow Warrior (Feat. Tobias Bernstrup)
+02. Stockholm Nightlife Feat. Helly - Back Together Again (Cliff Wedge Extended)
+03. Suvage - Do You Want Me (Also Playable Mono ZYX Edit)
+04. Roberto Turatti - My Lover Feat. Jeffrey Jey & Chorma8 (Flemming Dalum Remix)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 2CD, 02:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FACD9F288448C05E79A8F6C02FB8E9F926E0049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148319   (603908) от 06.07.2017
+
+Kat Mandu - I Wanna Dance (1995) CD, Compilation [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Break (Remix) (8:44)
+02. Don't Stop Keep On (6:45)
+03. I Wanna Dance (6:28)
+04. Wanna Get To Know You Well (4:22)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1CBF7854410D866888CE79CCACA52AFFD5B5FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078975   (603801) от 26.04.2022
 
 VA - Фабрика звёзд Аллы Пугачёвой (5) (2004) 6CD [APE|Lossless|image + .cue] <Pop>
@@ -635,122 +751,6 @@ TB Frank (ex. The Neon Judgement) & Baustein - Tock! (2018) [MP3|320 Kbps] <Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78B41AF95B386578B3EF277C9DD30258524E5323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298056   (602149) от 26.04.2019
-
-Pink (P!nk) - Hurts 2B Human (2019) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hustle
-02. (Hey Why) Miss You Sometime
-03. Walk Me Home
-04. My Attic(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DBFE9EE6CA2E4942C2D9F9EC2FB9BF09E35100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298497   (601915) от 27.04.2019
-
-Rúzsa Magdolna (Ruzsa Magdolna) - Lélekcirkusz (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A bohóc (2:41)
-02. Lélekcirkusz (1:24)
-03. Széldal (3:39)
-04. Nekem nem szabad (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAEFA911B93050D3F113DB0D2E8C9E2170A5AA81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298261   (601904) от 27.04.2019
-
-Chrysta Bell & David Lynch - Somewhere In The Nowhere (2016) [MP3|320 Kbps] <Nuar, Trip-Hop, Blue>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere-In-The-Nowhere
-02. Night-Ride
-03. All-The-Things
-04. Back-Seat(   Читать дальше...   )Жанр: Nuar, Trip-Hop, BlueПродолжительность: 00:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B175323AAA1C9463AA3F5482F7AD800EFF86AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298930   (601586) от 29.04.2019
-
-P!nk (Pink) - Hurts 2B Human (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hustle (2:56)
-02. (Hey Why) Miss You Sometime (3:23)
-03. Walk Me Home (2:59)
-04. My Attic (3:02)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3259404185668B16B6942DAE48335BD5228BF0B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

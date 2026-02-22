@@ -1,3 +1,32 @@
+###  Публикация: 1257967   (341440) от 28.10.2018
+
+Florian Pellissier Quintet - Bijou Voyou Caillou (2018) Heavenly Sweetness [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuck with the Police [9:28]
+02. South Beach [6:50]
+03. Bijou voyou caillou [5:36]
+04. Hibou bleu [4:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21C98DF1FD03D43F0E5EACD4353CE8BD33E1B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330446   (341397) от 10.10.2019
 
 Paul Bley - A Free Spirit (1953 - 1963) 2016, Musica Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
@@ -670,41 +699,6 @@ Stephane Grappelli - 1935 - 1943 (1998) Giants Of Jazz [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD3739DCD47411DDED81AC1A720787AA005AEE41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258330   (338822) от 15.11.2010
-
-Glenn Miller (Гленн Миллер) - The Gold Collection (2CD) (Remastering 2001) (2001) [APE|Lossless]<Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_338822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие композиции лидера довоенного джаза, легендарного Гленна Миллера, удостоенного в 2003 году премии Грэмми за вклад в развитие музыки. Пластинки его "Биг Бэнда" из года в год становились самым продаваемыми в США, и буквально все произведения его репертуара стали джазовыми стандартами. (   Читать дальше...)01. Chattanooga Choo Choo (3:29)
-02. Beat Me Daddy, Eight To The Bar (3:03)
-03. Somewhere (2:54)
-04. Frenesi (3:31)
-05. Song Of The Volga Boatman (3:27)
-06. Sun Valley Jump (3:01)
-07. A Little Old Church In England (2:58)
-08. Perfidia (3:20)
-09. Don't Cry Cherie (2:48)
-10. Take The 'A' Train (3:26)(   Читать дальше...)Жанр: Jazz, Big Band, SwingПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

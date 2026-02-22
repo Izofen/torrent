@@ -1,3 +1,119 @@
+###  Публикация: 1045024   (562979) от 21.08.2016
+
+Britney Spears - Glory (2016) Deluxe Version [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation (3:18)
+02. Make Me... (feat. G-Eazy) (3:51)
+03. Private Show (3:54)
+04. Man On The Moon (3:46)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF82A9E6ACF1AC5ADB9689C8F6603600CF7DE12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044900   (562972) от 21.08.2016
+
+Michael Jackson - Thriller: 25th Anniversary Edition (1982) Remastered, 2008, Epic/Legacy [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin' (6:02)
+ 02. Baby Be Mine (4:20)
+ 03. The Girl Is Mine (3:42)
+ 04. Thriller (5:57)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC30F5871375BF187FD1600A2E6901150A1EA309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304844   (562088) от 27.05.2019
+
+Stensound Party Group - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vamonos (3:52)
+02. Y Viva Espana (3:20)
+03. Vamos A La Playa (3:13)
+04. La Copa De La Vida (4:31)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040572FB5F530800865AA862A9ED58C74CAF0DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304777   (562075) от 27.05.2019
+
+Power Play - Come On Take Me Higher - Do It One More Time (1977) LP, Mixed [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор, исполнитель и продюсер - Roy Boston (настоящее имя Rudolf Friedrich Witsch). Известен так же сольными синглами и созданными группами: R. B. & Company и The Boston Soul Sound Orquestra & Voices.01. Mixed Side One (17:34):
+ - Come On Take Me Higher
+ - Do It One More Time
+ - Come On Take Me(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE41411B11D06E1B0BFD24F911C1616D01B8E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304665   (561708) от 27.05.2019
 
 Laid Back - Healing Feeling (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Reggae, Downtempo>
@@ -630,122 +746,6 @@ INNA - Body And The Sun (2015) [FLAC|tracks|WEB-DL]<Pop, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:225CCB4833CFB418BF5A78AAD9F661BE3CB4F903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235326   (557365) от 13.07.2018
-
-Mireya Bravo - Tu Reflejo (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Cuesta la Vida
-02. Corazón Vendío
-03. Mentiras de Papel
-04. Por Qué(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3041C7B449C1F3D89B64E2214A89A295335F52A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235659   (557338) от 13.07.2018
-
-VA - Acoustic Pop (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Cohn - True Companion
-02. Daniel Powter - Best of Me (Radio Version)
-03. Tori Amos - A Sorta Fairytale (Demo)
-04. Ryan Cabrera - True(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483CC64D1E759F75B2AFDE2D420399B81D85A848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235726   (557325) от 13.07.2018
-
-Rick Astley - Beautiful Life (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Life
-02. Chance to Dance
-03. She Makes Me
-04. Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15628603EE7A5DF8392B0AA48BD7A62CDFD16D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305191   (557141) от 30.05.2019
-
-Happy Holiday Singers - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino-Party>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wir haben ein Idol (Harald Juhnke) (3:21)
-02. Augen zu und durch (3:20)
-03. Peter Ortloff Schlagerparty (3:51)
-04. Ritmo De La Noche (5:38)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0F56368B3F83024D216D4FF3696056AFDED9C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

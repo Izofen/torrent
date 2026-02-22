@@ -1,3 +1,32 @@
+###  Публикация: 1648811   (231001) от 25.07.2023
+
+Desolator - Unearthly Monument (2013) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thy Flesh Consumed
+02. Desolated
+03. Gravefeast
+04. Mass Human Pyre(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C174EEC204A8F512DDA3E0296E6A5706B3C9823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648818   (230986) от 25.07.2023
 
 Desolator - Spawn of Misanthropy (2016) EP [MP3|320 Kbps] <Death Metal>
@@ -735,35 +764,6 @@ Anna Fiori - Magna Mater (2013) 10th Anniversary, Remixed & Remastered, 2023, An
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6ACD694A53DF42A9890607993A079315893695D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649784   (228588) от 29.07.2023
-
-Korn - Untitled (2007) Deluxe, 2023, Tempo Music [MP3|320 Kbps] <Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:57]
-02. Starting Over [00:04:02]
-03. Bitch We Got a Problem [00:03:22]
-04. Evolution (Album) [00:03:37](   Читать дальше...   )Жанр: Nu MetalПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5F451CCB267F567A041D02B7137E1CD3426218
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1622101   (200690) от 27.03.2023
+
+Van Morrison - Moving On Skiffle (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freight Train (3:27)
+02. Careless Love (5:38)
+03. Sail Away Ladies (3:18)
+04. Streamline Train (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FB57A148324A3B2C10658F7F74236B68330688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627036   (199741) от 17.04.2023
 
 Ally Venable Band - 6 albums (2013-2023) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -714,35 +743,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:720FB9E5897C301DD56050865AC1129994E842A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587497   (192721) от 31.10.2022
-
-Laurence Jones - Destination Unknown (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anywhere With Me (3:56)
-02. Can't Keep from Loving You (3:05)
-03. Give Me That Feeling (3:00)
-04. Gave It All Away (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B981A269C69747273451B45FB276AC49496128FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

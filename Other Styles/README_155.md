@@ -1,3 +1,32 @@
+###  Публикация: 170341   (277404) от 25.11.2018
+
+Зодиак - 7 альбомов (1980-2008) [MP3|320 kbps]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зодиак - 05:24
+02. Рок на льду - 02:50
+03. Пасифик - 04:02
+04. Мираж - 04:12(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B654C0122E9F57DEF12EE4515762B7F07B0FECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081748   (277375) от 13.12.2016
 
 Francois Jolin - Alice VR  (original soundtrack) (2016) [MP3|320 Kbps] <OST, Score>
@@ -713,35 +742,6 @@ Kevin Kern - Enchanted Piano (2011)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F44CC487DEC53CFF8EF2C0622E28DFF963D56E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656570   (273449) от 11.11.2019
-
-Cris Velasco, Sascha Dikiciyan, Jesper Kyd, Raison Varner - Borderlands 2 Original Soundtrack (2012)[FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascent (4:17)
-02. Ash (1:48)
-03.  Caverns (2:21)
-04. Glacial (2:17)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D356C1E094685314CD9E5CAACCC41A0276009C
 ```
 
 https://mybot314.ru/tekegram_catalog/

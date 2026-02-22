@@ -1,3 +1,177 @@
+###  Публикация: 1719145   (110651) от 28.04.2024
+
+Instrumental Wedding Music Zone, Jazz Erotic Lounge Collective - Wedding Night Erotic Jazz Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Caresses (3:32)
+02. Silken Serenade (4:01)
+03. Lustrous Embrace (4:22)
+04. Sensual Nocturne (4:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A17C6A911F069B3B9E951E1991B7638C8C94D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719216   (110635) от 28.04.2024
+
+U.D.O. - Dominator (2009) Reissue, 2017, AFM Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110635.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Bogeyman
+A2 Dominator
+A3 Black And White
+A4 Infected(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0338B7092D5F6CEF233FEB980B79E9E7AF6F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719136   (110634) от 28.04.2024
+
+Chilled Jazz Masters - Mocha Rythm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Café Conversations (4:06)
+02. Mocha Moments (4:47)
+03. Sensual Soiree (3:36)
+04. Love Brewed in Jazz (4:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139DDC7BE45B8BEBCE35F6ECCD2E035AFDAD2AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719186   (110633) от 28.04.2024
+
+Danko Jones - Electric Sounds (2023) Deluxe Version, 2024, AFM Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guess Who's Back (2:41)
+02. Good Time (3:57)
+03. Electric Sounds (3:14)
+04. Get High? (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE24CACF5E2A4F4472D0361F233ED9424156819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719159   (110629) от 28.04.2024
+
+Wayne S. Hicks - Resilence (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice Day (3:47)
+02. On The Sea (3:26)
+03. Prosper (3:50)
+04. Resilience (3:36)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537905ADFEE6F7854F3D12107200F579CFBABABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719138   (110626) от 28.04.2024
+
+Instrumental Music Ensemble - Focus Grooves: Smooth Jazz for Concentration (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motivational Jazz (3:11)
+02. Hard Work (3:38)
+03. I'm Focused (3:29)
+04. Grab Opportunities (3:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F678EFE76E9073C1CA40326DD8BCE3F740F7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719141   (110623) от 28.04.2024
 
 Instrumental Wedding Music Zone - Romantic Saxophone Jazz for Wedding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -567,180 +741,6 @@ Grateful Dead - From the Mars Hotel: The Angel's Share (2024) [FLAC 24/96|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91B6926EC5790B09824132C49961F8E2CAF6CB28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719686   (110493) от 30.04.2024
-
-Preacher Stone - V (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hard Life Phd (00:04:19)
-02 - My, My, My (00:04:18)
-03 - It Ain't as Easy as It Looks (00:03:08)
-04 - 'Til We Meet Again (00:04:31)(   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7BEAAC185B303F3D2E0AF6DF1B4667CF2DC714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719892   (110483) от 01.05.2024
-
-Moonsorrow - Studio Albums (8 releases) (2001-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Pagan/Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moonsorrow — финская фолк/викинг/блэк-метал-группа, основанная в 1995 году.2001 - Suden Uni
-2001 - Voimasta Ja Kunniasta
-2003 - Kivenkantaja
-2005 - VerisakeetЖанр: Folk/Pagan/Black MetalПродолжительность: 08:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4943BF7775ED7E8BBE971F7A3D7A92CA996D19FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719836   (110462) от 01.05.2024
-
-Emitt Rhodes - Rainbow Ends (2016) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dog on a Chain (3:44)
-02. If I Knew Then (3:59)
-03. Isn't It So (2:26)
-04. This Wall Between Us (2:49)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9281AD167A19FABA1F8BAF7FD4D529D1F1F5B9D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719823   (110461) от 01.05.2024
-
-In Search Of Sun - Lemon Amigos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Electric (3:56)
-02. Contagious (4:26)
-03. Lemon Amigos (4:12)
-04. The Fire I Play With (4:23)(   Читать дальше...   )Жанр: Alternative Metal, Progressive RockПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0033BA4217A6F1B57D56DF6813853CB4A15273F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719825   (110454) от 01.05.2024
-
-U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110454.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Tongue Reaper
-A2 Make The Move
-A3 Keeper Of My Soul
-A4 In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177683999F4E23A3BBA4A2F864FB76812DEAF171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720250   (110428) от 02.05.2024
-
-Severed Angel - Skyward (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-Melodic Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Inside (3:18)
-02. Live Your Imagination (3:44)
-03. A Perfect Disaster (5:42)
-04. Skyward (4:10)(   Читать дальше...   )Жанр: Symphonic-Melodic Heavy MetalПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66A94E3ADF537E26F8CA420F416C22154BA4445
 ```
 
 https://mybot314.ru/tekegram_catalog/

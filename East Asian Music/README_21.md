@@ -1,32 +1,3 @@
-###  Публикация: 1597291   (166719) от 14.12.2022
-
-Eizo Sakamoto - Metal icchokusen (2000) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guten Tag 2:39
-02. Metal Daze 4:22
-03. Cry Baby Cry 4:56
-04. Mr. Lonely 5:26(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791BCFB1B6E80BA951D2518EA1CEF4012F5A7291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597411   (166716) от 14.12.2022
 
 Eizo Sakamoto - Another Face (1998) [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -782,6 +753,35 @@ Lovebites - Knockin' At Heaven's Gate - Part II (Live) (2023) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBDAB7AF19C4B3D1EF4952FC8F9FC3C9E7A0C657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689788   (124364) от 04.01.2024
+
+Electric Asturias - Dimensions (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Symphonic Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Porte de l'Enfer (Gate Of Hell) 6:53
+02. Stone Circle 5:07
+03. Karma 7:55
+04. Shippuu Jinrai 4:03Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D662FFDF77D14E7B6F189D17C520D3896CD7D81
 ```
 
 https://mybot314.ru/tekegram_catalog/

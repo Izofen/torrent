@@ -1,3 +1,90 @@
+###  Публикация: 1719810   (58025) от 30.04.2024
+
+VA - Italo Disco Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joey Mauro & Fred Ventura - You And I (Vocal Version) 05:11
+02. Fabian Nesti - Dreamer (115 H.Q. Version) 05:00
+03. Italowarriors feat. Raffale Fiume & Fabian Nesti - The Warrior (Italo Version) 05:28
+04. Joey Mauro & Clock On 5 - Love Kills (The Mayerling Part 2) 05:44(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAF1A63BE7143979495B816ABB8EBBD7E1B9268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720298   (57743) от 03.05.2024
+
+Dua Lipa - Radical Optimism (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of An Era
+02. Houdini
+03. Training Season
+04. These Walls(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E01EE3DEED478132B29628516CBF07A95F1BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720302   (57742) от 03.05.2024
+
+Sia - Reasonable Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Wing
+02. Immortal Queen (feat. Chaka Khan)
+03. Dance Alone (feat. Kylie Minogue)
+04. I Had a Heart(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4C36686BE932661C0C7E98C03820B3CD1370B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 850704   (57654) от 04.05.2024
 
 Сергей Беликов - Greatest Hits 1974-1994 (1994) [FLAC|Lossless]<Pop / Rock>
@@ -645,93 +732,6 @@ Danny & Armi - Toinen (1979) LP [MP3|320 Kbps] <Pop Rock, Schlager, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0858CB4C0D8E78B58C7E460D8CC0D2CB3240B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722353   (56548) от 14.05.2024
-
-Кай Метов - Мне хорошо с тобой... (1998) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56548.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Все тебе говорят
-2. Дед Мороз и Снегурочка
-3. Чики Та
-4. Дед Мороз и Снегурочка (Christmas)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C130FC1BD9C7A52E35B8CC084DFAB5D36D7E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723193   (56450) от 15.05.2024
-
-VA - The Best of Italo Disco, Vol. 1 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Hooker - Come Back Home (Extended Vocal) (6:13)
-02. Xenon - Symphony (Versione Dance) (5:36)
-03. Band of Jocks - Let's All Dance (Italian Version) (5:02)
-04. Ronnie Jones - Richman (Extended Mix) (5:39)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEF44918444D2B54248307AF07800525EADCB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723583   (56134) от 18.05.2024
-
-ABBA - Wembley Arena 1979 (Live) (2014) Reissue, 2024, The Media Champ [FLAC|Lossless|WEB-DL|tracks] <Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voulez-Vous (Live) [00:05:10]
-02. Knowing Me, Knowing You (Live) [00:04:34]
-03. Chiquitita (Live) [00:05:47]
-04. Gimme!, Gimme!, Gimme! (A Man After Midnight) (Live) [00:05:37](   Читать дальше...   )Жанр: EuropopПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE34F1ECA4BE0314C572A79A48B2EC8E8F5AE5A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

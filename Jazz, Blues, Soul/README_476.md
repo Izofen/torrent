@@ -1,3 +1,32 @@
+###  Публикация: 1669376   (172877) от 16.10.2023
+
+Andre Previn - Four Classic Albums (1957 - 1959) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Much Too Late [9:31]
+02. You'd Be So Nice To Come Home To [7:05]
+03. It Could Happen To You [5:58]
+04. Low And Inside [9:00](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream Jazz, Piano JazzПродолжительность: 02:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006C51A90CA4588B98614B97A3A8C2505295ABF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669387   (172874) от 16.10.2023
 
 Grant Green - Alive! (1970) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz, Guitar Jazz>
@@ -713,35 +742,6 @@ Anita O'Day - There's Only One... (1978) 2011, Essential Media Group [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91BAC17E09607EC7ADAE510FD9B48953E67BB1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670561   (171953) от 21.10.2023
-
-Grant Green Quartet - Nigeria (1960, 1962) 2014, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airegin [7:35]
-02. It Ain't Necessarily So [10:25]
-03. I Concentrate on You [5:53]
-04. The Things We Did Last Summer [6:00](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C32CD80F08ECBA25AB311CAD175B06951E3EA2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

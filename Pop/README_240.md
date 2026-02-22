@@ -1,3 +1,90 @@
+###  Публикация: 729372   (306677) от 03.12.2013
+
+Anna German - Tanczace Eurydyki (1966, 2013) [FLAC|Lossless]<Retro, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда после показа фильма "Анна Герман. Тайна белого ангела" (снятого к 30-летию смерти) поляки кинулись за дисками легендарной певицы, оказалось, что01. Tanczace Eurydyki (4:26)
+02. Wroc do Sorrento (3:30)
+03. Andaluzyjska romanza (3:44)
+04. Bal u Posejdona (3:29)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B87BB6818A8458281F0D3E644B2521E64B047A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077545   (306585) от 28.11.2016
+
+Magazine 60 - Costa Del Sol (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rendez-Vous Sur La Costa Del Sol (Maxi Version)  (4:33)
+02. Don Quichotte (No Estan Aqui) (Maxi Version)  (5:04)
+03. Stay Away, Stay By Me  (3:31)
+04. Dance Melody (Around The World)  (3:14)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EA4FC9DD410D0899DF632C9C8A44F78DA9FEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077783   (306434) от 28.11.2016
+
+Lx24 - Зависимость (2016) [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зависимость (03:34)
+02. Море (03:21)
+03. Мы останемся в городе одни (feat. Мари Краймбрери) (03:32)
+04. Давай Станцуем (03:11)(   Читать дальше...   )Жанр: Pop, R&B, Hip-HopПродолжительность: 00:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F86725F55E9F7880CADFFE7A0D5CAC1F508F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077366   (306426) от 28.11.2016
 
 VA - Generation Italo Disco Collection Vol.1 (2016) [MP3|320 Kbps] <Disco, Synthpop, Italo Disco>
@@ -655,93 +742,6 @@ Konrad Plaickner & His Orchestra - Atlantic Crossing (1981) LP [MP3|320 Kbps] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE9B5CCF70D801733607AB9BA957C36774A5F249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261548   (303479) от 11.11.2018
-
-VA - DJ Hitparade Jubiläeumsedition: 40 Größe Hits Aus 10 Jahren (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Der Letzte Tag Im Paradies (DJ Mix Extended)
-02. Fantasy - Darling (Foxmix)
-03. Andreas Martin - Ich Fang Dir Den Mond (Fox Fun Mix)
-04. Christian Anders - Gespensterstadt 2009 (3select-Rmx)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A54C367A68447F517E1132BD4671B9EA73C0E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333437   (303417) от 25.10.2019
-
-Nick Kamen - 4 Albums (1987-1992) Collection [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1987 - Nick Kamen
-1988 - Us
-1990 - Move Until We Fly(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 02:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5893C300577F18F1A19D1A6D541DA40C8E0144CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333583   (303289) от 25.10.2019
-
-Кватро - The Best Of (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Замок из дождя
-2. Если б не было тебя
-3. Твои следы
-4. Как ты красива сегодня(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61745ED7C77713B12A31DCFA558F3D5B47B10112
 ```
 
 https://mybot314.ru/tekegram_catalog/

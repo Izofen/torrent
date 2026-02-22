@@ -1,3 +1,32 @@
+###  Публикация: 1098401   (908381) от 30.01.2017
+
+VA - Singles Chart Hot 100 Billboard (04 February) (2017) [MP3|32-320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908381.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Weeknd feat. Daft Punk - Starboy 3:51
+002. Ed Sheeran - Shape Of You 3:54
+003. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
+004. The Chainsmokers feat. Halsey - Closer 4:06(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D433757FE940D5D4A9C23E16818613CEF711B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991054   (907824) от 27.02.2016
 
 VA - Auto Dance Party N1 (2016) [MP3|320 кб/с] <Dance>
@@ -722,35 +751,6 @@ VA - Русские Народные Песни (2015) [MP3|256 кб/с] <Pop с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B24F958B11E60946C7B2304E88BCB84BA0ADFBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369560   (901993) от 24.03.2020
-
-VA - Different Shades Of World Song (2020) [MP3|320 Kbps] <Pop Folk, Shancon, World Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901993.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aaron Watson - Red Bandana
-002. Pistol Star - Jennifer Blu
-003. Mandela - Kitem Baw Love
-004. Steevy - Voleur De Cœur(   Читать дальше...   )Жанр: Pop Folk, Shancon, World MusicПродолжительность: 07:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A12A297D4EC7382C3132D93856787581F42CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

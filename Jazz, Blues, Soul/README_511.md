@@ -1,3 +1,32 @@
+###  Публикация: 1682929   (129755) от 09.12.2023
+
+Buddy Rich - Milestones Of A Jazz Legend (1946 - 1962) 10CD, 2020, The Intense Media [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lulu's Back In Town [5:50]
+02. Playtime [6:10]
+03. Will You Still Be Mine [4:42]
+04. Fascinating Rhythm [4:34](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 12:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:138F4B5C829766F3D6B0B9135F7DEEDD8CF85CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525364   (129546) от 20.01.2022
 
 Lennie Tristano - Personal Recordings (1946 - 1970) 6CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
@@ -763,35 +792,6 @@ VA - Best Emotional Sax Colletion (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A53944E2F46AF134AF4BC88C4F1F5F4D551EFE84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683290   (128694) от 10.12.2023
-
-VA - Chilly Ambient Smooth Operator Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Konstantin Klashtorni - 7 x 7 (4:13)
-02. Chillaxing Jazz Kollektion - Drops in the Ocean (4:12)
-03. Chillaxonic - Cosmic Visions (4:26)
-04. Kool&Klean - Drift (6:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF9AA9B5CDEB7FB8AAD5EBB827D89CC645FB46D
 ```
 
 https://mybot314.ru/tekegram_catalog/

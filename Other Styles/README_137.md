@@ -1,3 +1,32 @@
+###  Публикация: 1327209   (365543) от 29.09.2019
+
+Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target Edition / Japan [FLAC|Lossless|tracks + .cue] <Rock, Pop, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taron Egerton, Rachel Muldoon - Don't Go Breaking My Heart (Interlude) [01:34]
+02. Taron Egerton, Richard Madden (2) - Honky Cat [02:34]
+03. Taron Egerton - Pinball Wizard (Interlude) [02:02]
+04. Taron Egerton - Rocket Man [04:31](   Читать дальше...   )Жанр: Rock, Pop, Stage & ScreenПродолжительность: 01:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFE4B52B67F5ED9486A5F31DDD219B2EFAE9FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951101   (365490) от 28.10.2015
 
 Jean Michel Jarre - Waiting For Cousteau (1990) Remastered / 2015, Sony Music / [FLAC|tracks + .cue]<Electronic>
@@ -740,41 +769,6 @@ Ramin Djawadi - Игра Престолов / Game of Thrones (Season 1-7) (2011
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2167130CFED798D80E357F2755599DD1F648ED3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255054   (359651) от 06.11.2010
-
-Shakta Kaur Khalsa - Women's Yoga Music (2010) [MP3|320 kbps]<New Age, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359651.jpg" />
-</div>
-
-
-###  Подробнее
-
-(05:35) 01. Aadays Tisai Aadays
-(04:37) 02. Listen, Listen, Listen
-(05:34) 03. Ra Ma Da Sa
-(06:10) 04. Blessed Is My Soul
-(06:13) 05. Where I Sit Is Holy
-(05:34) 06. Ajai Alai
-(03:46) 07. Kanekotsytha
-(07:07) 08. Hanshan Temple
-(02:05) 09. Sa Ta Na Ma Celebration
-(04:36) 10. Circle of LightЖанр: New Age, Easy ListeningПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E01D054886815031B09472979C62585DE975E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1085831   (154903) от 23.12.2016
+
+John Coltrane - Blue Train (1957) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blue Train [10:44]
+ 02.Moment's Notice [09:11]
+ 03.Locomotion [07:15]
+ 04.I'm Old Fashioned [07:59](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D24C9029E54402E48E1D3D303C6C33855AB068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084860   (154840) от 23.12.2016
 
 Santiago Lara - Flamenco Tribute To Pat Metheny (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Latin, Folk>
@@ -716,35 +745,6 @@ Jeff Goldblum & The Mildred Snitzer Orchestra - The Capitol Studios Sessions (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39B73DD61A57DC3490F44BCE7FC4FE90AEE5F9B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600965   (154230) от 29.12.2022
-
-Jan Dylan Hunter - Blues Au Jus (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parisian Quarantine (3:00)
-02. Mayday 2020 Blues (2:49)
-03. Ghosts in Your Head (3:20)
-04. Nothing in Between Us (1:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6362328F79DC9804A29992BE3A764321073C22
 ```
 
 https://mybot314.ru/tekegram_catalog/

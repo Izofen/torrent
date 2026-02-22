@@ -1,3 +1,267 @@
+###  Публикация: 1581118   (327125) от 05.10.2022
+
+Five Finger Death Punch - AfterLife (2022) [FLAC|Lossless|image + .cue] <Groove Metal, Heavy Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327125.jpg" />
+</div>
+
+
+###  Подробнее
+
+"AfterLife" станет первым альбомом FIVE FINGER DEATH PUNCH с новым гитаристом – британским виртуозом Andy James, который заменил Jason Hook в 2020 году.
+Джеймс уже играл в песне "Broken World", которая была включена в сборник лучших песен "A Decade Of Destruction – Volume 2", вышедший осенью 2020 года.
+
+"'AfterLife' однозначно входит (   Читать дальше...   )01. Welcome To The Circus 4:16
+02. Afterlife 4:03
+03. Times Like These 3:29
+04. Roll Dem Bones 3:19(   Читать дальше...   )Жанр: Groove Metal, Heavy Metal, Alternative RockПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FD606F817218A24A8FCE487C7B00EC0F7F268B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581296   (326490) от 06.10.2022
+
+Les Enfants de DAGON - De Profundis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal, Gothic Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadows over Innsmouth
+02. Haunted Relic
+03. A Silent Pier
+04. Between the Fog and the Sea(   Читать дальше...   )Жанр: Black Metal, Death Metal, Gothic DoomПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D355398C4C4CBFDFD17F05B96E21055FAB12C38A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581361   (326489) от 06.10.2022
+
+Korrosive - Toxic Apokalypse (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into Nekropolis
+02. Radioaktive Scourge
+03. The Goddamned
+04. Fatal Strike(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D984F04FD6CF58D8E53E07BEC2EADE78A3676C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581420   (326488) от 06.10.2022
+
+Desolate - Sanity Obliterated (2012) Compilation [FLAC|Lossless|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro / Macabre (05:56)
+02. Grotesquely Chainsawn Remains (05:23)
+03. The Freezing Dead (08:42)
+04. Endless Infection (04:19)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0253684058C47E51CB556BC889A2B9BCE5AF8BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581429   (326487) от 06.10.2022
+
+Creepy Willie - The Creepy Willie Show (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimental Prog Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Interlude - Zomberman
+02 Zomberman
+03 Interlude - Slithering Twins
+04 Slithering Twins(   Читать дальше...   )Жанр: Experimental Prog MetalПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B84D52B5E51B5FB83F083E6ADD31F1214FCF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581281   (326486) от 06.10.2022
+
+Tomb Of Finland - 3 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting for the End [00:04:53]
+02. Coffin Bound [00:05:39]
+03. Perpetual Entombment [00:04:14]
+04. Cursed Be the One [00:05:22](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA51A8B1482EB6F23152244CE7681F0B4F08794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581434   (326485) от 06.10.2022
+
+Krankheit - Gargantua (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gargantua [00:03:14]
+02. Kommunikation [00:03:08]
+03. Bett des Prokrustes [00:02:56]
+04. Des Kaisers neue Kleider [00:03:59](   Читать дальше...   )Жанр: Gothic Industrial MetalПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD94512C3A7932A50B3332404E73193E1840DFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581300   (326482) от 06.10.2022
+
+Rage - Spreading The Plague (2022) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326482.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Live and to Die 04:07
+2. Spreading the Plague 04:27
+3. The King Has Lost His Crown 04:29
+4. A New Land (acoustic version) 03:29(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1101472088928D4FE188DC861F21EB7F3EF473E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581573   (325592) от 07.10.2022
+
+Obituary - Slowly We Rot - Live & Rotting (2022) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Internal Bleeding
+03. Godly Beings
+04. Til Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B0919C3BC14B4DE395722FC7C1B58F82129530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581571   (325591) от 07.10.2022
 
 Obituary - Cause Of Death - Live Infection (2022) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -484,264 +748,6 @@ Sky Pig - It Thrives in Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16F05229C1E41E2E18E29F9A6FC13165AD3BFD02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582199   (323584) от 09.10.2022
-
-Never Back Down - Downfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Time (0:52)
-02. Golddigger (4:37)
-03. Call to Arms (3:48)
-04. Marigold (3:58)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8DFEB2470232708BF62366F1114C79594759FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259076   (323545) от 02.11.2018
-
-Sundrifter - Visitations (2018) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sons of Belial (04:35)
-02. Death March (04:46)
-03. Lightworker (04:15)
-04. Targeted (04:45)(   Читать дальше...   )Жанр: Stoner Rock, Psychedelic RockПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD48373BC882ED5A818983FDA38D3A8854700CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259063   (323537) от 02.11.2018
-
-The Ocean - Phanerozoic I: Palaeozoic (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Atmospheric Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cambrian Explosion (01:54)
-02. Cambrian II: Eternal Recurrence (07:51)
-03. Ordovicium: The Glaciation of Gondwana (04:49)
-04. Silurian: Age of Sea Scorpions (09:36)(   Читать дальше...   )Жанр: Progressive, Atmospheric Sludge MetalПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BE1310569982EE78131945BBE9920DBA3C32DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582200   (323490) от 09.10.2022
-
-Neroargento - Land Of Silence (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic Metal, Industrial Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323490.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Way I Am
-2. You Killed Me
-3. The Nameless One
-4. From This Nightmare(   Читать дальше...   )Жанр: Electronic Metal, Industrial RockПродолжительность: 00:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E76C9F9EF52EBEA9E2285B8108E31F5D61376D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582191   (323489) от 09.10.2022
-
-Edenbridge - Shangri-La (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - At First Light (08:03)
-02 - The Call of Eden (03:49)
-03 - Hall of Shame (04:59)
-04 - Savage Land (04:32)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1AB15E3290670042E055849240DC9D724A9A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582286   (323358) от 09.10.2022
-
-Lost Society - If The Sky Came (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 112 (03:49)
-02. What Have I Done (04:02)
-03. (We Are The) Braindead (03:39)
-04. Stitches (03:29)(   Читать дальше...   )Жанр: Metalcore, Nu-MetalПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3078290E1E8579DFC1954548D2073C3DC933B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582410   (323344) от 09.10.2022
-
-Lacrimosa - Abendlied (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche Todeskunst>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Abendlied (Single)Жанр: Neue Deutsche TodeskunstПродолжительность: 00:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A2E8390A761C906FD2145D8F92D020C71ABE53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582428   (323169) от 09.10.2022
-
-Iron Maiden - Live …New York 1982 (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murders In The Rue Morgue
-02. Wrathchild
-03. Run To The Hills
-04. Children Of The Damned(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD63B5C004CF21AECF699B499B60F7E5C1C0A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582181   (323166) от 09.10.2022
-
-Eclesios - Halls of Salvation (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Halls of Salvation (09:13)
-02 - Eclesios (07:33)
-03 - N.O.S (08:41)
-04 - Death Chiming (05:52)(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7CE6D499B5271E54BD40E6210205DC172743F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

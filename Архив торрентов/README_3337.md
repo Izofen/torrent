@@ -1,3 +1,32 @@
+###  Публикация: 938402   (481941) от 18.09.2015
+
+Atreyu - Long Live (2015) [FLAC|Lossless]<Melodic Metalcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Live
+02. Live To Labor
+03. I Would Kill / Lie / Die (For You)
+04. Cut Off The Head(   Читать дальше...   )Тип издания: АльбомЖанр: Melodic MetalcoreПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6554F8295256DFFE8E221C5435B7F2D302F56F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938367   (481938) от 18.09.2015
 
 HyperSnap 8.05.03 Final Portable by PortableAppZ [Ru]
@@ -665,35 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA0618E0D802BC94EF5B5ED5F844FA942865B3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938228   (481718) от 18.09.2015
-
-VA - Excision 2015 Mix Compilation (2015) [MP3|320 кб/с]<Drum & Bass, Dubstep, Electro, Glitch, House, Trap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excision & Dion Timmer - Again & Again (feat. Matt Rose)
-02. Flux Pavillion - International Anthem (feat. Doctor)
-03. Yogi - Burial (Moody Good Remix)
-04. Excision & Downlink - Robo Kitty(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, Electro, Glitch, House, TrapПродолжительность: 02:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B7FFFA953E0B2F094F123440273640614F6C20
 ```
 
 https://mybot314.ru/tekegram_catalog/

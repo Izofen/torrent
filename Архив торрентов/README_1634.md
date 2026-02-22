@@ -1,3 +1,33 @@
+###  Публикация: 876267   (852854) от 09.03.2015
+
+VA - First Class Lounge (Best Of Easy Listening Flight Collection) (2015) [FLAC|Lossless]<Downtempo, Lounge, Chill Out>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Enrico Donner - Wind of the Spirit (06:33)
+002. Don Gorda Project - Cielo Terso (05:13)
+003. Hornbostel - Through Your Eyes (05:21)
+004. Cane Garden Quartet - Love Goddess (05:24)
+005. DJ Riquo - Mesmerizing Words (05:34)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDFA94963F93BDAF59E89D39F7390050E563A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 770203   (852852) от 24.03.2014
 
 Военная тайна с Игорем Прокопенко (2014.03.24) SATRip
@@ -680,32 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499014   (852739) от 29.09.2021
-
-DVD-Cloner 2021 v8.30.725 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852739.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD-Cloner - это небольшая утилита, при помощи которой вы сможете создать полностью идентичную копию вашего DVD-диска (например, с фильмом), в том числе и диска с защитой, и записать ее на другой диск. Программа проста в обращении, не требует тонкой настройки, поддерживает работу с большинством DVD-RW устройств и позволяет создавать копии фильмов с качеством, не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.09.2021Разработчик: OpenCloner™ Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED10FF151914F0EE57FD64FE8457EC536D561D3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

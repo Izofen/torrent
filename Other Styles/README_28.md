@@ -1,3 +1,32 @@
+###  Публикация: 986672   (931010) от 14.02.2016
+
+Mauro Usai and friends - Ethnico (my wind instruments) (2016) [MP3|320 кб/с] <New Age, World, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dijieridoo
+02. Non e semplice
+03. La voce del vento
+04. Tundu(   Читать дальше...   )Жанр: New Age, World, EthnicПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966B815154842A769D874AA8FBFAA525CF80414B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986634   (931000) от 14.02.2016
 
 John Adorney - The Essential John Adorney (2016) [MP3|320 кб/с] <New Age>
@@ -780,41 +809,6 @@ VA - New Age Style - Space Relax (2011) [MP3|320 кб/с]<Space, Ambient Dub, Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D1158A5DE639811BBCB440369827C8A26A10DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755011   (928153) от 10.02.2014
-
-James Horner - Игры патриотов / Patriot Games (1992) /Limited Edition/ [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Main Title
- 02 - Attempt on the Royals
- 03 - CNN News Report* / Sean's Interrogation*
- 04 - Kevin Walks Away* / Deadly Lover* / Sean's Trial*
- 05 - Sean Obsessing in Jail* / Highland's Execution
- 06 - Strange Cargo*
- 07 - The Hit
- 08 - Hospital Vigil*/ Jack Returns to CIA* / Studying Sean's File*
- 09 - Arrest of the Bombers
- 10 - Putting the Pieces Together / Reading to Sally* / Sean's Midnight Call*(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6A9C7C3A32CB451346F35CFE015EE7DD44D6B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,24 +1,25 @@
-###  Публикация: 1774297   (30330) от 20.01.2025
+###  Публикация: 1774727   (30112) от 22.01.2025
 
-Проекты - VideoHive - Wedding Photo Slideshow - 56282312 [AEP]
+Brad Goode - Polytonal Big Band: The Snake Charmer (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 
->>Проекты
->>Свадебные и романтические (проекты)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30330.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wedding Photo Slideshow — это потрясающий холст, который наглядно демонстрирует ваши драгоценные свадебные воспоминания. Каждая сцена становится окном в ваше личное повествование, вовлекая вашу аудиторию глубже в историю вашей любви и радости.
-
-МузыкаФормат: AEP
+01.  Victor Mestas-Perez - Goose Chase (8:49)
+02.  Eddie Ness - Snake Charmer (8:37)
+03.  Jack Bendure - Just a Thought (8:04)
+04.  Alexandra Loran - Ornithology (5:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30433ADE5CDA1E88869EAFC77229DA5BF9E9F9CB
+magnet:?xt=urn:btih:F7EED054AA046952C40D9A38333801C3EF0AC83B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774300   (30329) от 20.01.2025
+###  Публикация: 1774732   (30111) от 22.01.2025
 
-Плохие парни / Bad Hombres (2023) BDRip [H.264/720p]
+David Rodgers - Home (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30329.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отчаянно пытаясь прокормить семью, нелегальные иммигранты Феликс и Альфонсо нанимаются на работу к Донни. Но их новый работодатель оказался настоящим психопатом, и теперь остаться в живых становится самой сложной работой в их жизни.Производство: США / BondIt Media Capital, Broken Open Pictures, Lucky 13 ProductionsЖанр: триллер, криминалРежиссер: Джон СталбергАктеры: Диего Тиноко, Хемки Мадера, Томас Джейн, Люк Хемсворт, Тайриз Гибсон, Пол Йоханссон, Ксавьер Эстрада, Ник Кассаветис, Джефф Арарат, Джулия ХартманПеревод: Дублированный (Кинопоиск HD)Язык озвучки: русский, английскийСубтитры: английские (Forced, Full, SDH)Продолжительность: 01:32:53
+01.  D. Titus Robertson - Praise Him (5:09)
+02.  Emmanuel Echem - Say Her Name (7:38)
+03.  Evan Cobb - E-Dawg (4:45)
+04.  Evan Marien - Arthur (5:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECCD13CFFE05F8FBDD50B1BAA33E1451C3AA5A22
+magnet:?xt=urn:btih:9588131F62262D36A72D771D524E40F2542AD532
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774299   (30328) от 20.01.2025
+###  Публикация: 1774710   (30110) от 22.01.2025
 
-Плохие парни / Bad Hombres (2023) BDRip [H.264/1080p]
+Andrea Longato - Thinking Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30328.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отчаянно пытаясь прокормить семью, нелегальные иммигранты Феликс и Альфонсо нанимаются на работу к Донни. Но их новый работодатель оказался настоящим психопатом, и теперь остаться в живых становится самой сложной работой в их жизни.Производство: США / BondIt Media Capital, Broken Open Pictures, Lucky 13 ProductionsЖанр: триллер, криминалРежиссер: Джон СталбергАктеры: Диего Тиноко, Хемки Мадера, Томас Джейн, Люк Хемсворт, Тайриз Гибсон, Пол Йоханссон, Ксавьер Эстрада, Ник Кассаветис, Джефф Арарат, Джулия ХартманПеревод: Дублированный (Кинопоиск HD)Язык озвучки: русский, английскийСубтитры: английские (Forced, Full, SDH)Продолжительность: 01:32:53
+01.  Daisies (5:01)
+02.  Sure Thing (6:34)
+03.  Mona Lisa Kite (4:41)
+04.  Wishlist (5:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDA46017DDF3CEDE9B9B4C6BA55A0A6709CC1FEC
+magnet:?xt=urn:btih:65B0B50A4C6BC5DC623BF67A145F1418072A712D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774206   (30327) от 20.01.2025
+###  Публикация: 1774736   (30109) от 22.01.2025
 
-Accept - Compilation (2025) [MP3|320 Kbps] <Metal>
+Evan Oberla - Canal Street Revolution (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30327.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Balls to the Wall [05:43]
-002. The King [04:12]
-003. Like A Loaded Gun [04:19]
-004. The Best Is yet to Come [04:48](   Читать дальше...   )Жанр: MetalПродолжительность: 12:09:14
+01.  While We Were Sleeping... (2:03)
+02.  Canal Street Revolution (3:45)
+03.  Electrophysiology (5:32)
+04.  Black Diamond (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:04:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B8DBA1CCFC64DA96D0E9927B8C7135C32640F4F
+magnet:?xt=urn:btih:ACB34907D38D54FFABFD18AFBA1C988A7533F725
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,26 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774256   (30326) от 20.01.2025
+###  Публикация: 1774733   (30108) от 22.01.2025
 
-Школа злословия (1952) DVDRip [H.264/1080p] [hand made Upscale AI]
+Davy Mooney & Ko Omura - The Word (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 
->>Остальное
->>hand made * video
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30326.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм-спектакль. Экранизация спектакля «Школа злословия» в постановке Николая Горчакова и П. Ларгина (МХАТ имени М. Горького).
-Англия XVIII в. Молодая леди Тизл, провинциалка из семьи бедного помещика, вышедшая замуж за пожилого родовитого сэра Питера, попадает в салон леди Снируэл - своеобразную "академию злословия", где царствуют сплетни и клевета. Приобщая (   Читать дальше...   )Производство: СССРЖанр: комедия, спектакльРежиссер: Николай Горчаков, Абрам РоомАктеры: Ольга Андровская, Павел Массальский, Михаил Яншин, Мария Дурасова, Анатолий Кторов, Владимир Попов, Владимир Ершов, Григорий Конский, Евгений Калужский, Александр Комиссаров, Алексей Жильцов, Василий Марков, Леонид ЕремеевЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:31:16
+01.  Sheep Wash (6:42)
+02.  Wormcast (5:57)
+03.  The Word (5:18)
+04.  Purusha (4:52)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB22D87276CD6EF05498DD687910FC10AD9C4E3C
+magnet:?xt=urn:btih:BFFB4D43AD8BB25409BD3AE7252ACA0C4D122C2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774365   (30325) от 20.01.2025
+###  Публикация: 1774676   (30107) от 22.01.2025
 
-В Арктику / Into the Arctic (2024) WEBRip [H.264/1080p]
+Alex McLaughlin - A Brand New State (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30325.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Путешественник Леонид Круглов отправляется на поиски «морского единорога» в северные моря и неожиданно для себя попадает под «притяжение Арктики». Теперь он не может остановиться, пока не обойдет все арктические архипелаги, и за пять лет экспедиций, пережив множество опасных приключений в море, на суше, во льдах, становится свидетелем и участником глобального исторического (   Читать дальше...   )Производство: Россия / GreenworksЖанр: документальныйРежиссер: Леонид КругловУчастники: Фёдор Конюхов, Борис ТокаревЯзык озвучки: РусскийСубтитры: Русские (forced, hardsub)Продолжительность: 01:48:41
+01.  Desert Chapel (6:58)
+02.  Trailhead (6:24)
+03.  Signals (6:19)
+04.  The Solar Punks (7:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:602B2C8D0414D68D6348536DB8E43AD7761BB92C
+magnet:?xt=urn:btih:02DA0FBABAAAB6C6E502A82F75B62A8876FFA653
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,27 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774316   (30324) от 20.01.2025
+###  Публикация: 1774731   (30106) от 22.01.2025
 
-Проекты - VideoHive - Friends Photo Slideshow - 56282275 [AEP]
+D. Heywood - Winelight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
->>Проекты
->>Слайдшоу (проекты)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30324.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы можете добавить свои фотографии в этот великолепный шаблон, где вы можете легко отобразить альбом ваших замечательных воспоминаний и слайд-шоу фотографий с вашими друзьями и любимыми.
-
-МузыкаФормат: AEP
+01.  My Heavenly Sweet Angel (Live) (5:20)
+02.  A Glass of Wine (5:32)
+03.  Lovin' You Endlessly (4:50)
+04.  Sylky Smooth (4:55)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:58:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97DF916A078B33F7BB7F4F91B25DD94037A00712
+magnet:?xt=urn:btih:E2C37FF57C1B8D4F2AD1484E958B3F71769FD6E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774284   (30323) от 20.01.2025
+###  Публикация: 1774738   (30105) от 22.01.2025
 
-Milt Jackson & Ray Brown Quartet - It Don't Mean a Thing If You Can't Tap Your Foot to It (1984) Pablo Records [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
+Fabienne Ambuehl - Thrive (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30323.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Midnight Waltz [5:07]
-02. Ain't That Nothin' [5:07]
-03. Stress and Trauma [5:31]
-04. Used to Be Jackson [5:28](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:41:08
+01.  New Ones (3:45)
+02.  Immaculate Rain (5:53)
+03.  My River (4:09)
+04.  Binocular (4:22)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:39:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FB21E016D3F1732B56D68A2A64D1879B1335533
+magnet:?xt=urn:btih:F44D43E2391DB78F3D03D831FF9B1D5B953D0B4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,28 +230,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774301   (30322) от 20.01.2025
+###  Публикация: 1774740   (30104) от 22.01.2025
 
-Sybreed - Studio Albums (4 releases) (2004-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial/Groove Metal>
+Gmusic YA - Musica Jazz (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Id Rather Have Jesus (2:21)
+02.  I Want to Know Jesus (2:07)
+03.  Spreading the Message (2:06)
+04.  Talking About God (4:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12807BC19A474DC769966F7FE7706E8106B7C8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774742   (30103) от 22.01.2025
+
+Javier Rojo - Música Para Amansar Fieras (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Black, White and Colours (6:00)
+02.  Late April (2:23)
+03.  Lonely Night (7:11)
+04.  Riba (6:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9008660D3F797EBD4F7CA4723AAAD8EA6D28D84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774471   (30102) от 22.01.2025
+
+Dalibor Janda - Take Them To Mars (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30322.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sybreed — швейцарская индастриал/грув-метал группа из Женевы, основанная в 2003 году.2004 - Slave Design
-2008 - Antares
-2009 - The Pulse Of Awakening
-2012 - God Is An AutomatonЖанр: Industrial/Groove MetalПродолжительность: 04:28:43
+A1 Take Them To Mars (Vsechno Na Mars)
+A2 Try To Be A Man (V Parku, V Herne)
+A3 Lookin' On The Tiger Eyes (Nejvic)
+A4 Poor Old Tricks (Znam Tvuj Trik)(   Читать дальше...   )Жанр: Europop, Pop RockПродолжительность: 00:36:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CC405A35871419CE8B65196B73EC4FA6D09ABAD
+magnet:?xt=urn:btih:DD1D1DEE9A309A7FC723CEDD073740B72BBC576F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,28 +317,140 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774311   (30321) от 20.01.2025
+###  Публикация: 1774651   (30101) от 22.01.2025
 
-In Vain - Solemn (2024) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Progressive Metal, Avantgarde>
+Vessel - Another Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living On The Edge
+02. Lock up the Children
+03. Misguided (Remixed)
+04. Midnight Strike (Remixed)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE684ABDB1B264225363B61CB303C4B061A6746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774634   (30100) от 22.01.2025
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 7-й. Бенфика (Португалия) - Барселона (Испания) (21.01.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 7-й. Бенфика (Португалия) - Барселона (Испания) (21.01.2025)
+СУДЬЯ Маккели Данни (Нидерланды)
+СТАДИОН «Да Луш (Бенфика)» (Лиссабон)Телекомпания: Setanta SportsЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 02:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440D3B71F883B80C9A8065D06C43C8D8D837D9E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774636   (30099) от 22.01.2025
+
+Футбол. Лига Чемпионов 2024/2025. Основной турнир. Тур 7-й. Обзор матчей (21.01.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол.Лига Чемпионов 2024/2025. Основной турнир. Тур 7-й. Обзор матчей (21.01.2025)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F4E18CCFE1E0B20136F1A5A25FCFBD043DFF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774766   (30098) от 22.01.2025
+
+Visions Of Atlantis - Armada LIVE Over Europe - Pt. 2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Those Who Choose to Fight (LIVE at Lyon) (02:19)
+ 02. The Land of the Free (LIVE at Lyon) (04:41)
+ 03. Monsters (LIVE at Nuremberg) (03:49)
+ 04. Heroes of the Dawn (LIVE at Paris) (04:42)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EAFF6347A4EE3F05C70C38159D5443AC3B61EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774752   (30097) от 22.01.2025
+
+Riot V - Mean Streets (2024) 2xCD, Japanese Edition, Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30321.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-In Vain явно были одной из самых захватывающих норвежских групп в 2010-х годах, которая может похвастаться двумя отличными релизами на Aenigma и Currents. Последний даже стал моим альбомом года в 2018 году, что привело к моим необоснованным ожиданиям от продолжения. Для тех, кто не знает, представьте себе более разнообразную и мелодичную версию Боркнагара; Удобный (   Читать дальше...   )01. Shadows Flap their Black Wings (7:13)
-02. To the Gallows (6:37)
-03. Season of Unrest (7:38)
-04. At the Going Down of the Sun (7:55)(   Читать дальше...   )Жанр: Melodic Death Metal, Progressive Metal, AvantgardeПродолжительность: 01:00:57
+Название Riot является чуть ли не синонимом пауэр-метала, если не американского хэви-метала в целом. Рожденные на улицах Нью-Йорка в середине 70-х, примерно в то же время, когда появилось самое раннее воплощение Iron Maiden, они стояли рядом с такими группами, как Rainbow, Judas Priest и Motorhead, развивая ранние успехи Deep Purple и Black Sabbath в более быстром (   Читать дальше...   )CD1:
+01. Hail To The Warriors 4:26
+02. Feel The Fire 4:14
+03. Love Beyond The Grave 4:21(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:10:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06D107B93CE14E70CE35CD825BCDF4858A538EAF
+magnet:?xt=urn:btih:1F65C0EE322979481FE06532F390C71111279094
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -275,112 +458,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774294   (30320) от 20.01.2025
+###  Публикация: 1774548   (30096) от 22.01.2025
 
-схиархимандрит Агапит (Беловидов) | Житие оптинского старца Макария (2017) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Житие оптинского старца Макария при жизни автора не было опубликовано. Этот замечательный агиографический труд схиархимандрита Агапита (Беловидова; † 1922), очевидца и собрата оптинских старцев, изложен по-монашески скромно, просто и честно и позволяет читателю непосредственно ощутить духовную атмосферу одного из лучших монастырей ушедшей эпохи.Жанр: ПравославиеИздательство: Введенский ставропигиальный мужской монастырь Оптина пустыньФормат: DJVU, PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE4D55DA669D9A3E86D731F1BF7544FC6ADB4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774326   (30319) от 20.01.2025
-
-Grand Magus - Sunraven (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grand Magus - одна из моих любимых групп, которая мне подходит, когда я жажду эпического скандинавского хэви-метала, и постоянный поставщик боевых гимнов, размахивающих кулаками и поднимающих рога. Sunraven - это десятый альбом трио, который вышел спустя целых пять лет после очень солидного, если не сказать потрясающего, Wolf God. Ну, стоило ли ждать? Я бы недвусмысленно (   Читать дальше...   )1. Skybound 3:30
-2. The Wheel Of Pain 3:24
-3. Sunraven 3:39
-4. Winter Storms 5:16(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BB67A484A19A94DA2161E5301C177886490725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774043   (30318) от 20.01.2025
-
-Dave Matthews Band - Big Whiskey and the GrooGrux King (2009) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grux    [0:01:11.61]
-02. Shake Me Like a Monkey    [0:04:00.63]
-03. Funny the Way It Is    [0:04:26.47]
-04. Lying in the Hands of God    [0:05:13.25](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E806C694891B20796793473F9C7C14458A215397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774351   (30317) от 20.01.2025
-
-VA - La Isla Del Sol, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+VA - Winter Dance Covers 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30317.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Living Room - Amber (02:25)
- 02. Calmabohain - Underwater World (Open Sea Version) (03:26)
- 03. Dreamhunter - Fragile Skin (04:20)
- 04. Five Seasons - Baby (04:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:56
+01. Tury & Tury Music - Something Just Like This (02:07)
+02. Alban Chela & LoudNaess - Bloodstream (02:38)
+03. PressPlays & Lintrepy x Milera - Say It Right (02:45)
+04. PHURS, BOOTY LEAK & Margad - Last Night (02:39)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:04:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF5373B0F36269B31020C2787E90792E489167A5
+magnet:?xt=urn:btih:93B853298A6605BCFAC4CB12B4FFDAC712125F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,248 +487,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774356   (30316) от 20.01.2025
+###  Публикация: 1774739   (30095) от 22.01.2025
 
-Братья Корсаро / I fratelli Corsaro (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фабрицио Корсаро – журналист уголовной хроники «Палермо сегодня». Он лёгок в общении, его обожают женщины. Его брат Роберто уважаемый адвокат по уголовным делам. В отличие от своего брата, верный муж и отличный семьянин. В жизни они не очень-то ладят, но если дело касается работы, то журналист всегда придёт на помощь адвокату.
-В течение нескольких дней погибают две (   Читать дальше...   )Производство: Италия / Taodue FilmЖанр: драмаРежиссер: Франческо МиччичеАктеры: Массимо Де Лоренцо, Роберта Ригано, Джузеппе Фиорелло, Анита Загария, Энрика Пинторе, Франческо Фоти, Паоло Бригулья и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8444B8E9EE74F05C2E8333E063C9E02D34F6673A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774334   (30315) от 20.01.2025
-
-Dream Express - Дрийм Экспресс (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side I
-A1 Hi Lili Hilo • Kaper, Deutsch
-A2 I'm A Lion • L. Smets, E. VerheeS
-A3 Got To Have You Back • L. Smets, C. Pilditch(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E10FF7D94D161227BF607A6EE8B7AF6B4B7D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774341   (30314) от 20.01.2025
-
-VA - Ultimate Cocktail Lounge Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Elan Vital - Fading Stages (04:28)
- 02 - Silex Soils - Subsidiary Factors (04:19)
- 03 - Habermohl - Strongest Matches (04:20)
- 04 - Random Classes - Fading Reflections (04:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE03AABD879825EBF9A1F25F4035F5AEC0DA0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774353   (30313) от 20.01.2025
-
-VA - La Isla Del Sol, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ganga - Koalition (05:16)
- 02 - Calmabohain - Silent Ocean (Sa Trincha @Night Version) (03:08)
- 03 - Derrick - Just To Be (Spring Version) (04:22)
- 04 - Mo'jardo - Sun Shining (05:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3B4F04E010464B72910014E5999A17F25A5AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774293   (30312) от 20.01.2025
-
-Грустные каникулы / Szomoru vakacio / Sad Vacation (2007) WEB-DLRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэндзи, когда-то брошенный матерью, ведет незавидную жизнь, существуя на случайные заработки - подвозит до дома хостес и их клиентов. Помимо этого он заботится о сестре друга, попавшего в тюрьму, и мальчике - нелегальном мигранте. Его жизнь делает крутой поворот, когда он случайно встречает свою мать. Теперь она замужем за владельцем маленькой транспортной компании, (   Читать дальше...   )Производство: Япония / Mamiya Unso Kumiai, Style JamЖанр: драмаРежиссер: Синдзи АоямаАктеры: Таданобу Асано, Каори Фудзимицу, Эри Исида, Юка Итая, Юсукэ Кавадзу, Кэнго Кора, Кэн Мицуиси, Аои Миядзаки, Кацуо Накамура, Дзё ОдагириПеревод: Одноголосый любительский (Олег Воротилин)Язык озвучки: русский, японскийСубтитры: русские, английскийПродолжительность: 02:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9AEB0082CD4EB0C00654E377B2F8E3B14EAB1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774363   (30311) от 20.01.2025
-
-Последний табор (1935) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм как иллюстрация к политике партии и правительства тех времен, направленной к привлечению кочевых народов к оседлой жизни.
-Старый вожак Данило крепко держит в руках цыганский табор. Но у него есть серьезный соперник - Иван Лихо, который ведет терпеливую борьбу за привлечение цыган к оседлой жизни. Он приглашает Данило с табором погостить в колхозе. Председатель (   Читать дальше...   )Производство: СССР / МежрабпомфильмЖанр: драма, историяРежиссер: Моисей Голдблат, Евгений ШнейдерАктеры: Александр Гранах, Николай Мордвинов, Мария Синельникова, Ляля Черная, Михаил Яншин, Федор Блажевич, Евгения Рогулина, Петр Савин, С. Хмара, С. КолескидиСубтитры: отсутствуютПродолжительность: 01:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99EB874E3DDA807BF45C09820B0CA2ABE664DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774370   (30310) от 20.01.2025
-
-Шрифты - The Christmas Font Bundle [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой набор шрифтов в вашу коллекцию.
-
-Кириллица не поддерживается.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669623CA4CCDD4A113FDAA7211B12C246836BD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774314   (30309) от 20.01.2025
-
-Шрифты - Cursive Handwritten Bundle [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30309.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом комплекте вы найдете рукописные, хвостовые или каллиграфические шрифты.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63906B815A31BDFF4BCDDA5CBA7C3E684D6ACF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774298   (30308) от 20.01.2025
-
-RegCool 2.021 + Portable [Multi/Ru]
+QOwnNotes 25.1.5 Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30308.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DBD56A1D54D1A18F1B21F9DC9364F006E77E6AF
+magnet:?xt=urn:btih:8DE4BD7106A58FF393558DF6FF9A6DF0D431319B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,26 +513,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774209   (30307) от 20.01.2025
+###  Публикация: 1774652   (30094) от 22.01.2025
 
-Ад / L'inferno (1911) WEBRip [H.264/720p] [Colorize]
+XYplorer 26.80.0200 + Portable [Multi/Ru]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30307.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм снят по мотивам «Божественной комедии» Данте, точнее лишь по её первой части. Фильм построен как смесь причудливых видений, объединённых фигурой Данте, где он в сопровождении поэта Вергилия путешествует по кругам ада и знакомится с их обитателями.
-В некоторых сценах интертитры переведены не подстрочником, а использован текст самой поэмы Данте в переводе М.Лозинского.Производство: Италия /  Milano Film, SAFFI-ComerioЖанр: ужасы, фэнтези, драма, немое киноРежиссер: Франческо Бертолини, Адольфо Падован, Джузеппе де ЛигороАктеры: Сальваторе Папа, Артуро Пировано, Джузеппе де Лигоро, Пьер Делле Винье, Августо Милла, Аттилио Мотта, Эмилиза БереттаПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 01:11:02
+XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC6F1BDBBA3C0172E0F67583D56E6E8184D9D5D5
+magnet:?xt=urn:btih:BAA03FC6F78D3567E021A75B0D4DD9721F6A6C48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,25 +539,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774276   (30306) от 20.01.2025
+###  Публикация: 1774088   (30093) от 22.01.2025
 
-Грустные каникулы / Szomoru vakacio / Sad Vacation (2007) WEB-DL [H.264/1080p] [VO]
+Kylie Minogue - Body Language (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, House>
 
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30306.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кэндзи, когда-то брошенный матерью, ведет незавидную жизнь, существуя на случайные заработки - подвозит до дома хостес и их клиентов. Помимо этого он заботится о сестре друга, попавшего в тюрьму, и мальчике - нелегальном мигранте. Его жизнь делает крутой поворот, когда он случайно встречает свою мать. Теперь она замужем за владельцем маленькой транспортной компании, (   Читать дальше...   )Производство: Япония / Mamiya Unso Kumiai, Style JamЖанр: драмаРежиссер: Синдзи АоямаАктеры: Таданобу Асано, Каори Фудзимицу, Эри Исида, Юка Итая, Юсукэ Кавадзу, Кэнго Кора, Кэн Мицуиси, Аои Миядзаки, Кацуо Накамура, Дзё ОдагириПеревод: Одноголосый любительский (Олег Воротилин)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 02:15:34
+01 - Slow [3:18]
+02 - Still Standing [3:43]
+03 - Secret (Take You Home) [3:19]
+04 - Promises [3:20](   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:57:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:755CE027AB9251161BA0ECE2B709D8781368B4D8
+magnet:?xt=urn:btih:8BD6701C19A1C013A817ABBE1BA91418E6DA422C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,28 +568,156 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774385   (30305) от 20.01.2025
+###  Публикация: 1774789   (30092) от 23.01.2025
 
-V.A. - Lounge & Wine, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
+Psiphon 3 build 185 Portable [Multi/Ru]
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30305.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Living Room - This Old Rollercoaster (Instrumental Mix)
-02. Marc Hartman - Dangerous (Original Mix)
-03. Lemongrass - Happy Mind (Original Mix)
-04. Worldtraveller - Bambus Trail (Original Mix)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 02:13:53
+Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A391B6452CA0FC8B75CFC6EB2A73982488C8A2B8
+magnet:?xt=urn:btih:AD2584197A0F596A69190E0C3FAD5482B2A73246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772986   (30091) от 23.01.2025
+
+The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте на место заброшенного робота в игре The Redundant - захватывающем приключенческом экшене с различными способами прохождения. Попробуйте себя в роли CF5 - заброшенного робота на таинственном объекте, который осаждают полчища пораженных вирусом машин. По мере исследования объекта вы распутаете запутанную историю, изолируя каждую секцию от сети, пока не стало (   Читать дальше...   )Тип издания: RepackРазработчик: 7gizmo LtdЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4402D7B2FF39E8E9075F50795973D23D4FABC9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611250   (30090) от 23.01.2025
+
+BBC: Нацизм - Предостережение истории / The Nazis: A Warning From History (1997) DVDRip [H.264] (сезон 1, серии 1-6 из 6) [VO]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_30090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочетание военной кинохроники (часть которой представлена никогда не публиковавшимися ранее цветными (!) материалами), красочных карт и схем, а также компьютерной графики и специально аранжированной музыки великих композиторов — все это позволяет современному зрителю ярче и рельефнее представить и понять события тех далеких дней.
+Второй фильм серии разоблачает широко (   Читать дальше...   )Телекомпания: Великобритания / BBC Television CentreЖанр: документальный, военный, историяРежиссер: Лоуренс Риз, Тильман РеммУчастники: Сэмюэл Уэст, Адольф Бучнер, Ютта Рюдигер, Günther Ruschin, Марио Монделло, Херберт Рихтер, Danuta Grocholska, Fridolin Von Spaun, Christine Von Amsberg, Charles Bleeker KohlsatПеревод: Профессиональный (одноголосый)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:41:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3687013FEA3675800DFF80984842ACFA50E877FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774811   (30089) от 23.01.2025
+
+The Bat! Professional 11.4.1.0 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30089.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60631AAF698E211C2FBFCD87CA38D0E4C475B828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774197   (30088) от 23.01.2025
+
+Костин заявил о необходимости «убить» SWIFT
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава ВТБ Андрей Костин заявил, что заменить международную платежную систему SWIFT «очень просто» и вместе с тем необходимо, так как через нее может происходить прямая утечка информации на Запад.Он отметил, что с учетом перспектив, которые открываются при развитии коридора Север — Юг, система СПФС, разработанная Центральным банком России (ЦБ РФ), становится всё более (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774879   (30087) от 23.01.2025
+
+Auslogics SSD Optimizer Pro 2.0.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics SSD Optimizer - специальный инструмент, разработанный для повышения эффективности вашего SSD и достижения новых высот производительности.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A6C9C7808BA720F4E7403006FC1D7BAA40B842
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1418283   (351235) от 23.10.2020
-
-Adobe Zii 2021 - Universal Patcher 6.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD21BE5155ED1F8E5F5C1447BD3304DD98AA1D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418143   (351217) от 23.10.2020
-
-Substance Alchemist 2020.2.1 (2.2.1) Build 66 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Substance Alchemist - Это приложение нового поколения позволяет легко и просто создавать коллекции материалов. Можно смешивать и корректировать существующие материалы или создавать новые из фотографий и отсканированных изображений в высоком разрешении. Это очень удобно, когда требуются реальные эталонные образцы или просто хочется поэкспериментировать. С помощью (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B16C243667B661CAE4F3E98BC22153BEA8FE91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953143   (351185) от 03.11.2015
 
 Becky Internet Mail 2.72.01 [En]
@@ -679,6 +627,67 @@ Abstract Wallpapers (21.11.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C5FCBA59887A75CD64651321496EAB003FF204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579039   (350988) от 22.11.2012
+
+Arty - Together We Are 022 (Best of the Month) (20.11.2012) [MP3|320 кб/с]<Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walden vs. Paper Crows – Our Metal Heartbeats
+02. Electric Soulside, Fast Foot, Mikewave – Terminate
+03. Mika – Make You Happy (Walden Remix)
+04. Dirty South feat. Rudy – Let it Go / Jewelz, Scott Sparks – Toxic Rush – (Walden Mash)
+05. Walden – Warmonger
+06. Walden – Brightness
+07. Leventina – Glorious
+08. Sander van Doorn & Julian JOrdan vs/ Hard Rock Sofa & Dirty South – Here Goes the Kangaroo Walking Alone (Michael Scott Bootleg)
+09. Ivan Gough & Feenixpawl feat. Georgi Kay – In My Mind (Walden Remix)
+10. Miike Snow, Deniz Koyou – Pretender / Tommy Trash & Sebastian Ingrosso – Reload (Walden Mash)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B213363870325F57F8CB515D14CB6155BABCDBE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173846   (350968) от 30.10.2017
+
+Dies Irae / Судный день [2017, TV, 3 из 17] HDTV 720p raw
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350968.jpg" />
+</div>
+
+
+###  Подробнее
+
+История началась 1 мая 1945 года, когда над Рейхстагом вознеслось Знамя Победы. В это самое время несколько немецких офицеров проводили некий ритуал. Для них мясорубка на улицах Берлина оказалась как нельзя кстати: убитые стали жертвоприношением, необходимым для возрождения Ордена 13 копий — группы сверхлюдей, чьё пришествие ознаменует уничтожение мира... Много лет (   Читать дальше...   )Жанр: приключения, экшнРежиссер: Кудо СусумуЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 18 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E29084CAF3491CEA577431F139C197A0DF2A8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

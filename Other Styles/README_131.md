@@ -1,3 +1,32 @@
+###  Публикация: 1168308   (410611) от 23.09.2017
+
+Alan Menken - Enchanted (2007) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - True Love's Kiss (Performed by Amy Adams and James Marsden)
+02 - Happy Working Song (Performed by Amy Adams)
+03 - That's How You Know (Performed by Amy Adams)
+04 - So Close (Performed by Jon McLaughlin)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BB59D4F3AF89E9D565EA2A59C88D022716683F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168045   (410610) от 23.09.2017
 
 Nathaniel Mechaly - Taken (2008) [MP3|320 Kbps] <Score>
@@ -740,41 +769,6 @@ Daridan - Listen To Beautiful Music II (2012) [MP3|320 кб/с]<New age, Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D1558E7C3DA97311F2A48C9C8400BA4FFC43893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564122   (402794) от 23.10.2012
-
-Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Elena [03:49]
-02. Maria-La-O [03:27]
-03. La Mer [05:10]
-04. Concierto De Aranjuez [04:33]
-05. One Note Samba [03:54]
-06. Amapola [04:00]
-07. Besame Mucho [04:23]
-08. The Girl From Ipanema [04:25]
-09. It's Now Or Never [03:45]
-10. Guantanamera [04:26](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

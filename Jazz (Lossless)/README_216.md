@@ -1,3 +1,32 @@
+###  Публикация: 1170851   (398742) от 02.10.2017
+
+The Gary Burton Quartet - Duster (1967) 2014, Sony Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballet [04:59]
+02. Sweet Rain [04:27]
+03. Portsmouth Figurations [03:08]
+04. General Mojo's Well Laid Plan [05:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9653F67BB800799A8CE4ABEEEFFEF6A716D053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566650   (398243) от 28.10.2012
 
 Courtney Pine - Journey to the Urge Within (1986) [APE|Lossless]<Post-Bop, Saxophone Jazz>
@@ -752,35 +781,6 @@ Tape Five - Swing Patrol (2012) [FLAC|Lossless]<Swing>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172827   (392100) от 09.10.2017
-
-Eddie Heywood - 1944 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T'Ain't Me [03:16]
-02. Indiana [02:38]
-03. Blue Lou [02:55]
-04. Carry Me Back To Old Virginny [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E709EB1D72A16C3F6844AB8D88A670F45F0CC977
 ```
 
 https://mybot314.ru/tekegram_catalog/

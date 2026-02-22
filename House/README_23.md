@@ -1,3 +1,90 @@
+###  Публикация: 1198837   (802959) от 14.01.2018
+
+VA - Best Of LW Tech House II (2018) [MP3|320 Kbps] <Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  CamelPhat  -  Under The Influence (Original Mix)  6:17
+02.  Charlie Hedges & Ashton Russell  -  These Feelings (Extended Mix)  5:46
+03.  Michael Bibi  -  Magic Carpet (Original Mix)  5:54
+04.  Tommy Vercetti  -  Don't Understand (Original Mix)  6:38(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 03:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883CAFE5C1FB0D033C587C0C90B61DCDCAFB047C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198842   (802955) от 14.01.2018
+
+VA - Best Of LW House II (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Audiowhores  -  Sometimes (Sean Finn Recall)  5:56
+02.  JB & Charlie Hedges  -  Best Night Oml (Pt. 2) (Lindo Martinez Remix)  7:01
+03.  Damon Hess & Emilie Cunliffe  -  Dancefloor (Original Mix)  5:21
+04.  Afrojack  -  Chords (George F, Eran Hersh & Darmon 'Blow Your Mind' Remix)  9:03(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800C76E3BAF0631BB5173F4E52346DFE863715DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384468   (802744) от 20.05.2020
+
+VA - Top 35 Deep Summer '20 (2020) [MP3|320 Kbps] <House, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Lambert - Equal Rights (Dub Mix) 4:48
+02. Federico Rosano - Throws Up (Dub Mix) 4:16
+03. Laurent Champbell - Foundation (Dub Mix) 4:20
+04. Nicole Wane - Sounds Good (Original Mix) 4:44(   Читать дальше...   )Жанр: House, Deep House, ElectronicПродолжительность: 02:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C2914F3EA10D6612FF64C1DD14B9E1C640D6B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010602   (802151) от 25.04.2016
 
 Moonbeam - Eclipse (2016) [MP3|320 кб/с] <Progressive House, Techno>
@@ -658,90 +745,6 @@ VA - Sun:Sets 2018 (Selected by Chicane) (2018) [MP3|320 Kbps] <Deep House, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C44B59C3D40D268210357AA6E0D80CE07CBEAA91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200289   (796459) от 20.01.2018
-
-VA - Urban Party Alarm 11 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nick Le Funk  -  Leaving  3:30
-02.  The Boogeyman  -  The Bass Poem (Radio Edit)  3:21
-03.  Roger Horton & Slippy Beats  -  Feel Fine (Radio Edit)  3:07
-04.  Project Weekend Sound  -  Girls & Boys (Radio Edit)  3:26(   Читать дальше...   )Жанр: HouseПродолжительность: 02:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5097F7DB50A4D03DC16BEA45389D86DB69CC5BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011620   (796441) от 28.04.2016
-
-VA - Dance Map, Electro Stops Vol.3 (2016) [MP3|320 кб/с] <House, Progressve House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuji -  Burn  6:39
-02. KountDown Project -  Moon Bass  7:56
-03. Sello -  Such as More  7:25
-04. DJ Afreek -  Orgasmo  6:30(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F78ECD807F9B493B94EDC8E91BFDA070E353B8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200284   (796424) от 20.01.2018
-
-VA - Dance Hits (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66998614DB3904FB7C64A0974017B354297AA56
 ```
 
 https://mybot314.ru/tekegram_catalog/

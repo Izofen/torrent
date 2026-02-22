@@ -1,3 +1,191 @@
+###  Публикация: 1205347   (783709) от 09.02.2018
+
+3D модели - Daz 3D - Karyssa 8 Pro Bundle - 49305 + Genesis 8 Starter Essentials - 42071 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Karyssa 8 Pro и Genesis 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9BD539FE5EE26E8A3166F83C8BFABE75DF32AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390124   (783592) от 13.06.2020
+
+Сборник - Creative Market - Cartoon Characters & Items Bundle - 1875315 [PNG, JPG, EPS, AI, PSD, CSH]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая коллекция мультипликационных персонажей, иконок, талисманов, 3D-рендеров, PSD-файлов, символов, объектов и т. д. Включая различные предметы для праздников, таких как Хэллоуин, День Благодарения и Рождество. Все эти файлы сделаны в последние годы, некоторые старые, а некоторые новые.Формат: PNG, JPG, EPS, AI, PSD, CSHРазрешение файлов: 652x1741-1973x1704
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D2D9DCA58BAAB4C8CB653C77341DB293E40E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205493   (783478) от 10.02.2018
+
+3D модели - Daz 3D - Elijah 7 Pro Bundle - 36169 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Elijah 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DEA7A2A0853172899EAC34A3E6D16EE977C5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205511   (783474) от 10.02.2018
+
+3D модели - Daz 3D - FWSA Liam HD + Vampire and Hunter Kit Bundle - 33439 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Liam + Vampire and Hunter для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C00FF4DAB265E35BFFB016623716C6375CA8CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205497   (783471) от 10.02.2018
+
+3D модели - Daz 3D - Damien Pro Bundle - 37285 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Damien для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420406EBC2F832E6FBBE1870C70CAB12C9507883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205505   (783470) от 10.02.2018
+
+3D модели - Daz 3D - Lucian 7 Pro Bundle - 34203 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Lucian 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B363A34D339A97D0793502F33785E12F3A2CA96C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205516   (783465) от 10.02.2018
+
+3D модели - Renderosity - Phx James for Michael 8 - 124866 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783465.jpg" />
+</div>
+
+
+###  Подробнее
+
+James для Michael 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F9C5625CDF5F7D6259A92F085F873FB081C301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205445   (783461) от 10.02.2018
 
 3D модели - Daz 3D - Dante 7 Pro Bundle - 37227 [DUF]
@@ -498,202 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ACC7A1E06CB475CCBBC7515D6E228FE61041F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206453   (782555) от 13.02.2018
-
-Векторный клипарт - Vector Happy Valentines Day #18 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С Днем Святого Валентина
-25 AI + jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339E72D9DD705587B6BC67D77643C3EF733E4230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206363   (782548) от 13.02.2018
-
-Векторный клипарт - Vector Happy Valentines Day #19 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С Днем Святого Валентина
-25 AI + jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBDE499848338509454EBECABDE1A6F8154913B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206360   (782539) от 13.02.2018
-
-Векторный клипарт - Ambulance [AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Скорая помощь
-5 AI, EPSФормат: AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C75B7D98F7404E47D1381DF384718DF5831169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206361   (782538) от 13.02.2018
-
-Векторный клипарт - Vector Fantastic Heroes Collection #8 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Коллекция фантастических героев
-25 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7451DE8967F1747A4A69CA9ECD9C892E8BE69A25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206454   (782537) от 13.02.2018
-
-Векторный клипарт - Vector Predators Collection #5 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Хищники
-25 AI + jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA137B5D238C3F396B3AB2BA4E1F6C487B99E230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206456   (782536) от 13.02.2018
-
-Векторный клипарт - Vector Stuff, Household Items Collection #1 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Вещи, предметы быта
-25 AI + jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4DCE599160E9B4A140D5B1E7D3FBA8DB34E622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206463   (782533) от 13.02.2018
-
-Векторный клипарт - Vector Animal Collection #8 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Зверушки
-25 AI + jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3290BCA9FB442AA72EB58F02249279A54B9AB68
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 1575581   (375383) от 10.09.2022
+
+Al Barton & Spirit Of Smokie - Room With A View (2011) Reissue, 2018, Big Lake [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come For Me
+02. Sacred Heart
+03. Highways And Heartaches
+04. Send Me An Angel(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B0F47201136CD6B8D68DC2E295DEED274BFB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575623   (375382) от 10.09.2022
+
+Sophie - My World (1989) [OGG Vorbis|485 Kbps] <Electronic, Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.		My World	3:48
+02.		Same	4:35
+03.		Tonite Tonite	3:52
+04.		Rapture  4:40(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EurobeatПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F258834236014ED440E52B110A1EE9C212CF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574113   (375341) от 12.11.2012
+
+Whitney Houston - I Will Always Love You-The Best of Whitney Houston (2012) [MP3|320 кб/с]<Pop,Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 You Give Good Love
+ 02 Saving All My Love for You
+ 03 How Will I Know? (Remastered)
+ 04 Greatest Love of All
+ 05 I Wanna Dance With Somebody (Remastered)
+ 06 Didn’t We Almost Have It All
+ 07 So Emotional (Remastered)
+ 08 Where Do Broken Hearts Go?
+ 09 I’m Your Baby Tonight
+ 10 All the Man That I Need(   Читать дальше...   )Жанр: Pop,SoulПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C49B12BC7CAC091A90D1F83E68DDB5454869DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949752   (375128) от 24.10.2015
+
+Vanessa Carlton - Liberman (2015) 2CD Deluxe [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Делюкс-версия альбома "Liberman" американской певицы и автора песен Ванессы Карлтон.CD1:
+01. Take It Easy (05:32)
+02. Willows (02:54)
+03. House of Seven Swords (03:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6AFBA572E92CABE11A0135C4320E587B2DC8BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254359   (375122) от 13.10.2018
 
 Taco - Puttin' On The Ritz (2000) CD, Compilation [MP3|320 Kbps] <Pop, Disco>
@@ -622,122 +744,6 @@ Mozzart - Devil's Rendezvous - Greatest Hits & More (2019) Compilation, Remaster
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A860B50CAB22D0D04A3CF7471E9A67EB76A65B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176345   (372174) от 21.10.2017
-
-Bat & Ryyd - Ehtaa Tavaraa (1989) Reissue CD, Snap Records, 2000 [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ehtaa Tavaraa (4:15)
-02. Stadissa (Osa 1) (4:37)
-03. Ryyd Rap (3:47)
-04. Stadissa (Osa 2) (2:14)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805B1E389D46C25FEDF57F27134B162274ECCAE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176320   (372166) от 21.10.2017
-
-Albert One - Everybody (1988) Reissue CD, ZYX Music, 2001 [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody (3:21)
-02. Don't Let Me Down (3:05)
-03. Broken Dreams (3:58)
-04. Talk To Me (3:58)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70AFB91601C7C08FDA06E4ADC101C80435BD352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416132   (371923) от 14.10.2020
-
-Shobizz - Shobizz (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It In The Dark  (5:22)
-02. I'm Gonna Live Till I Die  (5:50)
-03. Shortnin' Bread  (6:24)
-04. The Streets Of A Thousand Discos  (6:53)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B51D4408FC4BBB27816B763AD916DBA9BC9C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176327   (371648) от 21.10.2017
-
-Варвара Визбор - Многоголосье (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371648.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ниже ноля (Полная версия)
-2. Слушать себя
-3. Бродит дождик
-4. Во всём виновата погода(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859536D6D079E4F3BD02DF1FD506E9BF8B97243D
 ```
 
 https://mybot314.ru/tekegram_catalog/

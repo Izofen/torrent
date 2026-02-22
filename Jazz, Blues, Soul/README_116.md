@@ -1,3 +1,91 @@
+###  Публикация: 644367   (869063) от 16.04.2013
+
+Duke Ellington - 15 альбомов (1968-2013) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duke Ellington - пианист, аранжировщик, композитор, руководитель оркестра, яркий представитель джазового искусства.
+Его творческий путь был полон открытий. Он создает то стиль джунглей, то стиль настроения, то обращается к академическим европейским музыкальным формам - сюитам, рапсодиям, балету и опере. Его оригинальные оркестровые произведения оказали большое эстетическое (   Читать дальше...   )1. Satin Doll (3:51)
+2. Don't Get Around Much Anymore (3:06)
+3. Do Nothing Till Your Head From Me (3:04)
+4. Take The "A" Train (8:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D878C9E0802FF926E110FCC2ABD7C92FB653F1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374979   (868995) от 12.04.2020
+
+Harry Allen & Randy Sandke witn The Rias Big Band - Turnstile: Music Of The Trumpet Kings (1997) Nagel–Heyer Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love Louis [5:17]
+02. Cloudy [5:25]
+03. Echoes of Harlem [4:25]
+04. Little Jazz Boogie [3:31](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42869398EBD442F95225D3B06B90A1381C449C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374984   (868977) от 12.04.2020
+
+VA - Top of the World: Modern R&B Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <RnB, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868977.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Brandy - Top of the World (feat. Mase)
+2. Lil' Kim - Lighters Up
+3. Adina Howard - Freak Like Me
+4. Iyaz - Replay(   Читать дальше...   )Жанр: RnB, Soul, FunkПродолжительность: 02:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5F38F6BEB4F11D7E56D3F55C9926BF157F62FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 873256   (868750) от 28.02.2015
 
 Masada - Tet (Nine) (1998) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
@@ -675,94 +763,6 @@ Tommy & Jimmy Dorsey - Swingin' In Hollywood (1940-e) 1998, Rhino[FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEA1E95D8F41E0711FA497686A9F6604B086E06E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998880   (868397) от 20.03.2016
-
-Slim Chance & The Gamblers - Jackpot! (2015) [FLAC|Lossless|image + .cue] <Blues Rock, Rock, Rock'n'Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Thing in a Bad Way
-02. Don't Poison the Water
-03. My Better Half (The Valentine Song)
-04. What Kinda Man Could Stop from Lovin' You(   Читать дальше...   )Жанр: Blues Rock, Rock, Rock'n'RollПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847973E67758871CDC8214478AFFA3FE83247CBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873476   (868383) от 28.02.2015
-
-Dexter Gordon - The Jumpin' Blues (1996) [FLAC|Lossless]<Jazz, Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Evergreenish [06:03]
-02. For Sentimental Reasons [06:52]
-03. Star Eyes [06:50]
-04. Rhythm-A-Ning [06:35]
-05. If You Could See Me Now [05:22](   Читать дальше...   )Жанр: Jazz, Bop, Hard BopПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E848BA40808A395939CADFBE29BF6C149FAFB916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106998   (868346) от 22.02.2017
-
-Urs Leimgruber, Don Friedman, Bobby Burri - Reflexionen (1983) Remaster, 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The New Apartment [15:41]
- 02.Bradleys [06:05]
- 03.Bla-Bla-Bla [14:11]
- 04.For Joel [04:51]Жанр: Modern CreativeПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE36064223E3A86E77273F516A6617465DF59B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

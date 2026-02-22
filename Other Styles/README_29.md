@@ -1,3 +1,38 @@
+###  Публикация: 755011   (928153) от 10.02.2014
+
+James Horner - Игры патриотов / Patriot Games (1992) /Limited Edition/ [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Main Title
+ 02 - Attempt on the Royals
+ 03 - CNN News Report* / Sean's Interrogation*
+ 04 - Kevin Walks Away* / Deadly Lover* / Sean's Trial*
+ 05 - Sean Obsessing in Jail* / Highland's Execution
+ 06 - Strange Cargo*
+ 07 - The Hit
+ 08 - Hospital Vigil*/ Jack Returns to CIA* / Studying Sean's File*
+ 09 - Arrest of the Bombers
+ 10 - Putting the Pieces Together / Reading to Sally* / Sean's Midnight Call*(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6A9C7C3A32CB451346F35CFE015EE7DD44D6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 755477   (928095) от 10.02.2014
 
 Brian Crain - Piano and Light (2011) [FLAC|Lossless]<New Age, Neo-Classical, Piano>
@@ -748,35 +783,6 @@ Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Orig
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2886131B078C56912139153582BBE1D9AF109798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366623   (922236) от 12.03.2020
-
-Игорь Вдовин - Вторжение (Оригинальный Саундтрек) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922236.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:54| 01. Интро
-|01:33| 02. Лаборатория ВКС
-|00:55| 03. Эксцесс в лаборатории
-|00:40| 04. Папа беги(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D443E8F13FDC5A330878B497B07E4816E666FFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

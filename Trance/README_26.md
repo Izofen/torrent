@@ -1,3 +1,32 @@
+###  Публикация: 1565469   (494676) от 23.07.2022
+
+VA - Trance 100 - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494676.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren feat. Wrabel - Feel Again (Extended Club Mix) (6:11)
+002. Andrew Rayel feat. Sam Gray - Wild Feelings (Extended Mix) (4:01)
+003. Ferry Corsten & Dustin Husain - Timeout (Extended Mix) (5:16)
+004. Arty - So Good To Me (Extended Mix) (4:39)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 10:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8275000A2CE0432AD02958563947D7DB38065024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565300   (494670) от 23.07.2022
 
 VA - Beautiful Vocal Trance - Chapter 9 (2022) [MP3|320 Kbps] <Uplifting Trance>
@@ -713,35 +742,6 @@ VA - Armada Trance Vol. 01 - 18 (2007 - 2013) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161899   (463569) от 30.08.2017
-
-VA - Uplifting Month Of The Year VA (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yanni - Prelude (Cymatics Remix)
-02. Sansom - Top Horizon (Original Mix)
-03. Saphirsky - The Promise (Playme Remix)
-04. Saphirsky - Divine (Dream Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE97146F594A160E97AF4C6873584AA213F4199C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1098182   (242796) от 29.01.2017
-
-Sonny Fortune - From Now On (1996) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Glue Fingers [09:55]
- 02.This Side Of Infinity [06:30]
- 03.From Now On [07:26]
- 04.Come In Out Of The Rain [10:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E8ADBA477E8554163C73D152F4C5D6AF97534B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098030   (242787) от 29.01.2017
 
 Harry Happel, Koos Wiltenburg, Fred Krens - North Sea Highlights (1982) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -745,6 +716,35 @@ Tom Scott - Them Changes (1990) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C86858386142625F457DC068BBB8A38D594B663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106454   (242161) от 19.02.2017
+
+Superdog - SuPerDoG (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 21St Century Schizoid Man (5:43)
+02. Vrooom Vrooom (6:58)
+03. I Talk To The Wind (6:03)
+04. Dangerous Curves (5:21)(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E3564F1501B3639980099F5C3CBE124912DA7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

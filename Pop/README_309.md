@@ -1,3 +1,90 @@
+###  Публикация: 1519436   (148709) от 24.12.2021
+
+VA - Morning Motivation Pop (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears For Fears - Everybody Wants To Rule The World (4:13)
+02. NEIKED, Mae Muller, Polo G - Better Days (2:40)
+03. Maroon 5, Christina Aguilera - Moves Like Jagger (Studio Recording From The Voice Performance) (3:22)
+04. SERA - Take A Chance (2:59)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0619CDC5C3390A54F430F139E635197843C4AEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271560   (148566) от 24.12.2018
+
+Neoton Familia - Marathon (1980) 1998, Remastered, Gong [FLAC|Lossless|tracks + .cue] <Pop, Disco, 70s, 80s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Quijote (4:06)
+ 02. Egy Huszas Eleg (3:37)
+ 03. Marathon (5:27)
+ 04. Korben-jaras (3:45)(   Читать дальше...   )Жанр: Pop, Disco, 70s, 80sПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E35C485AB971956E9A0E2DB4649910B20BE4E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434817   (148222) от 26.12.2020
+
+C.K.B. - New York City Women (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Woman (5:25)
+02. Woman To Woman (9:24)
+03. Superman (6:08)
+04. Sapho's Daughter (5:09)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D92D36434ABCD9011BB164A7D4076A3D3AEE6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086877   (148163) от 26.12.2016
 
 Екатерина Денисова и группа 'Русский стилль' - А вишня красная (2015) [FLAC|Lossless|image + .cue] <Pop>
@@ -655,93 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F92C63B919F023102AC070F49EA27BF03BC65B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969691   (147068) от 27.12.2015
-
-Игорь Корнелюк - Избранное Vol. 3 (2014) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Интродукция
-02.  Клево
-03.  Фокстрот
-04.  На раз (Саксофон)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59AE63CE54C416BC57064EA38C69F0CF2CB3291B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969574   (147013) от 27.12.2015
-
-ABBA - The Definitive Collection (2001) [FLAC|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147013.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. People Need Love
-02. He Is Your Brother
-03. Ring Ring(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414A6BBBE9D60D80AF3AD8DA467DD97BE36F668B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969552   (146902) от 27.12.2015
-
-VA - $uper DISCOteka 70s/80s (2015) 5CD [MP3|320 кб/с] <Disco, Pop, Dance, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney M. - Rasputin (7:32)
-02. Sabrina - Boys (Sommertime Love) (3:52)
-03. Toni Esposito - Kalimba De Luna (4:59)
-04. Pupo - Burattino Telecomandato (3:01)(   Читать дальше...   )Жанр: Disco, Pop, Dance, BalladПродолжительность: 06:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD5A3BCA9BB55AC589CA2459F5565C90DF32497
 ```
 
 https://mybot314.ru/tekegram_catalog/

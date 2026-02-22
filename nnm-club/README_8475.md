@@ -1,22 +1,25 @@
-###  Публикация: 1220360   (706095) от 18.04.2018
+###  Публикация: 1532994   (707347) от 23.02.2022
 
-K-Lite Codec Pack Update 14.1.1 [En]
+VA - Deep House Rhythms, Vol. 2 (2022) [AAC|~309 Kbps] <Deep House>
 
->>Архив торрентов
->>Архив Программ
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706095.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+01. Tom Appl - Pentone (In A Hurry Mix) (4:36)
+02. Luis Hermandez - Diamond Eyes (3:49)
+03. Living Room - Shangri la (2:44)
+04. Xeureux - Hohow (Deep Mix) (4:56)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:43:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00D40DE53DB5DF6710DD7FD86688D1CACE49756A
+magnet:?xt=urn:btih:76536665CA8AC209494483A79E637D67801D47A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220268   (706094) от 18.04.2018
+###  Публикация: 1025807   (707346) от 13.06.2016
 
-VA - Deep House Session (Vol. 2) (2018) [MP3|320 Kbps] <Deep House, Electronic>
+Проекты - VideoHive - Music Night V.3 [AEP]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Проекты
+>>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706094.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dophamean - Sunrise
-02. Styline & Stravy ft. Hoody Time - Now We Go Deep (Original Mix)
-03. Claptone Ft. Nathan Nicholson - Under The Moon
-04. Pink Noisy feat. Barrice - Orlando Dawn (Extended Mix)(   Читать дальше...   )Жанр: Deep House, ElectronicПродолжительность: 03:33:08
+Music Night V.3 - этот музыкальный проект подойдет для любых исполнителей и жанров и т.д. Вы можете использовать его в ТВ-шоу, для рекламы радиостанций, ночных клубов, фестивалей и музыкальных событий.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C98FD613FEDBFA613211EF163EF845EF002719AC
+magnet:?xt=urn:btih:F9D4A9E75D67631EE5FEC5E3876CA437702269A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,545 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220341   (706093) от 18.04.2018
+###  Публикация: 1286849   (707344) от 05.03.2019
 
-The Blues Mystery - Soul Memories (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 25 degress below zero (03:47)
-02. Sit down (04:14)
-03. Has humankind lost its soul (04:27)
-04. I'm afraid of the next blues (03:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AB3E761339FD714468EBF06972F49BADD8487F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220217   (706092) от 18.04.2018
-
-NGW: Первая тройка самых опасных животных. Маленькие убийцы / World's deadliest. Little killers (2013) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706092.jpg" />
-</div>
-
-
-###  Подробнее
-
-От горностаев и красных собак до синекольчатых осьминогов - эти небольшие хищники убивают животных во много раз превосходящих их по размеру.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс БитонПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4FFEF02DD1884858FA788A60D045F74056B1E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220164   (706091) от 18.04.2018
-
-Tax The Heat - Change Your Position (2018) [FLAC|Lossless|tracks] <Classic Rock, Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money In The Bank
-02. Change Your Position
-03. Playing With Fire
-04. All That Medicine(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A464446791AF31734B6F65DB8ED2185959BD70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220206   (706090) от 18.04.2018
-
-NGW: Возвращение львов / Return of the lion (2016) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не слышал рев льва в руандийской пустыне в течение 15 лет, но это должно измениться. Скоро в Национальный парк Акагера прибудут львы. Пройдёт немало времени, прежде чем они адаптируются на этой новой территории в Центральной Африке.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кира ИваноффПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A69DE7806B91794D0489D4815FA35E8B10B10BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220209   (706089) от 18.04.2018
-
-NGW: Молниеносные акулы / Blitzkrieg sharks (2016) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы узнаете то, что изменит ваше мнение о поведении и стиле питания акул, этих невероятных хищников.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кевин БачарПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8545364AF84ADD8187B52EC69A98DD205E2335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220213   (706088) от 18.04.2018
-
-Варвара Еналь | Пустыня Всадников (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Живые. Эра Драконов».
-Новый цикл «Живые. Эра драконов» является предысторией цикла «Живые» и повествует о приключениях инопланетных подростков до их встречи с юными жителями орбитальной станции МОАГ. Действие происходит в том же мире, но на другой планете.
-
-Мэши всю жизнь прожила в окруженном скалами Третьем Городе. Но однажды она вместе со своим (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E98067A28D11110DE8362DFFDF663B38DCC3F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220307   (706087) от 18.04.2018
-
-Breaking the Chains - We Are Breaking the Chains (2018) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superhero
-02. Angels on Wheels
-03. Believe in Me
-04. Follow My Way(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB40FF1F2AE40E3E0C6C06AB335DAB6DF743696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220371   (706086) от 18.04.2018
-
-NGW: Хищники Аляски. Царство китов-убийц / Alaska's Deadliest. Killer Whale Kingdom (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш самый большой штат является прибежищем для самых опасных животных-убийц. Самые опасные животные Аляски обитают на одной из последних границ дикой природы в Америке.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Брайан АрмстронгПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CC9A59A051FFFCA69DFD52390FC5DC480AEA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220275   (706085) от 18.04.2018
-
-Total Science - Fallen Angel / Not Again (2018) [MP3|320 Kbps] <Electronic, Drum & Bass, Jungle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706085.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fallen Angel (04:55)
-2. Not Again (05:15)Жанр: Electronic, Drum & Bass, JungleПродолжительность: 00:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34ACA3EA3F43BD7BDD58FA43445FC529164D2817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220257   (706084) от 18.04.2018
-
-Chromium 68.0.3399.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD5D82AE6E5316AD85B27378310451A26725327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220256   (706083) от 18.04.2018
-
-Google Chrome 66.0.3359.117 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55DF0791AAA765C6FC1118DF6458FF6B50077536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220370   (706082) от 18.04.2018
-
-Журнал | National Geographic Traveler (апрель-май 2018) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706082.jpg" />
-</div>
-
-
-###  Подробнее
-
-National Geographic Traveler - это журнал о путешествиях и о культуре народов разных стран, о животном и растительном мире, о гостиницах, курортах, пляжах, маршрутах, турагенствах, предоставляющий энциклопедически точную информацию и советы по посещению экзотических стран.Жанр: Журнал о путешествияхФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836226E00FAEAAD912BE9DC87569294543C35561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220100   (706081) от 18.04.2018
-
-GreenCloud Printer Pro 7.8.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706081.jpg" />
-</div>
-
-
-###  Подробнее
-
-GreenCloud Printer – драйвер виртуального принтера, позволяющий минимизировать повседневные затраты на печать документов. Разработчики утверждают, что инструмент позволит сэкономить до 60% бумаги, чернил и тонера. Драйвер тесно интегрируется с установленными приложениями, позволяя просматривать и корректировать задания печати и решать другие задачи. Еще одной любопытной (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BE27B58DB3A1EF00B11328D547A6F3A09E123C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220380   (706080) от 18.04.2018
-
-NGW: Укусить. Ужалить. Убить. Монстры в тени / Bite, Sting, Kill (2018) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Величайшие пустыни мира, такие как Сахара и Чиуауа, являются домом для одних из самых смертельно опасных животных на земле. Экстремальная жара не оставляет хищникам другого выбора, кроме как пользоваться для выживания своим смертельным оружием.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Сью ХотонПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABA0E2EF3E785CA2F507B34D0BB6F6B295B557B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220188   (706079) от 18.04.2018
-
-NGW: Самые странные животные в мире. В толще морской / World's weirdest animal faces. Under the sea (2016) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Населяющие дно океанов, коралловые рифы и побережья по всему миру, эти создания не самые симпатичные, но их уродливые черты позволяют им не только выживать, но и преуспевать в самых суровых местах нашей планеты.Производство: Великобритания, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Мартин БэйкерПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DDEF8472B186D43E1AF4C6364B2061E5CB3534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026195   (706073) от 14.06.2016
-
-Брайан Чик | Тайны и тени (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Секретный Zooпарк»
-Множество секретов хранит городской зоопарк! До недавнего времени Ной с друзьями даже не догадывались, что из обычных павильонов можно попасть в другие – созданные с помощью магии и надежно спрятанные где-то в волшебном пространстве. Звери и птицы живут там также вольно, как в дикой природе, а ведут себя разумнее многих людей. (   Читать дальше...   )Жанр: ФэнтезиПеревод: А. ДеминаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445A21AB56B6C14F69C46CA7B6983235C449A227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026279   (706071) от 14.06.2016
-
-Trapeze - Medusa (1970) Remastered, 1994, Threshold Records [MP3|320 кб/с] <Rock, Hard Rock, Psych Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706071.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black Cloud
-2. Jury
-3. Your Love Is Alright
-4. Touch My Life(   Читать дальше...   )Жанр: Rock, Hard Rock, Psych RockПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3932C231AD79DBF457C483C865BBC0C10B198395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025998   (706069) от 14.06.2016
-
-George Lynch - Sacred Groove (1993) [FLAC|Lossless|tracks] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memory Jack    01:38
-02. Love Power From The Mama Head    05:29
-03. Flesh And Blood    05:02
-04. We Don't Own This World    04:26(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718802E7721A6E24674A5F8529F869EFC2988D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026326   (706066) от 14.06.2016
-
-Talas - Talas (1979) [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. See Saw
-2. Stop! In The Name Of Love
-3. Most People
-4. She Don't Know(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C4036F0B243A0BB81EA2A236FB780C44164906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026104   (706064) от 14.06.2016
-
-Sketches Pro 1.3 [Multi/Ru]
+Mirror for Panasonic TV 3.4.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706064.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прекрасные инструменты — залог превосходных рисунков, поэтому мы создали приложение Sketches с еще более широким набором реалистичных инструментов.
-С удивительным набором инструментов и современным пользовательским интерфейсом  Sketches  является наиболее универсальным и удобным приложением для  создания рисунков.
+Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Panasonic. Никаких проводов и дополнительных аппаратных средств не требуется!
+Приложение работает на любой модели Смарт-ТВ Panasonic с 2012 и позже.
 
-• Возможности(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 июня 2016Разработчик: TayasuПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+При использовании приложения, будет возникать задержка в секунд (обычно между 1 и 3 секундами). Так что зеркальное отображение не подходит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.02.2019Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E61C8F68EA51C7CB29E62DC5BDBEEC586D408479
+magnet:?xt=urn:btih:14DE429361421921C2620085AE3601388E41763D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,26 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026204   (706062) от 14.06.2016
+###  Публикация: 1532784   (707343) от 23.02.2022
 
-Брайан Чик | Нападения и спасения (2016) [FB2]
+VA - Diamonds & Pearls Lounge, Vol. 2 (2009) [AAC|~338 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706062.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пятый роман цикла «Секретный Zooпарк»
-Однажды Ной, Меган, Ричи и Элла узнали секрет городского зоопарка, и теперь жизни ребят тесно связаны с этой тайной. Пока их сверстники решают, как провести выходные, боевые скауты готовятся к рискованной вылазке. Разве могут они остаться в стороне, когда друзья нуждаются в помощи?! Полярного медведя Бурана и носорога по имени (   Читать дальше...   )Жанр: ФэнтезиПеревод: А. ДеминаФормат: FB2
+01. Asheni - Only Magic (6:28)
+02. Naoki Kenji - Lost (5:56)
+03. Ingo Herrmann - Let You Go (4:39)
+04. Boot Cut Rockers - Blue Beach (5:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:51:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AF5EA1153C24393F521E5BECB35A161D50C42A4
+magnet:?xt=urn:btih:CC7182CB23E5E903529D6A4437B7132DBCF21FF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,28 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026146   (706059) от 14.06.2016
+###  Публикация: 1025884   (707342) от 13.06.2016
 
-The Spencer Davis Group - With Their New Face on / Funky 1968 (2001) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
+Anarchy: Rush Hour (2010) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Консольные Игры
+>>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706059.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. With His New Face On [0:02:58.38]
-02. Mr.Second Class [0:03:32.72]
-03. Alec In Transitland [0:03:53.40]
-04. Sanity Inspector [0:03:01.08](   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:17:03
+Макс – нелегальный гонщик, который приехал в Мегаполис, чтобы провести время со своей девушкой, но незнакомец похищает ее. Теперь Максу предстоит спасти возлюбленную, внедрившись в банду «стритрейсеров». Максу необходимо заработать уважение гоночных клубов, а затем наказать плохих парней!Тип издания: PSNРазработчик: Gaijin EntertainmentЖанр: RacingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA53C8C5E9192AE0D4ECBF87A3C68FBB25E72515
+magnet:?xt=urn:btih:D48552B9A6730AB51ED793961460597122D8E464
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,28 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026157   (706057) от 14.06.2016
+###  Публикация: 894381   (707341) от 02.05.2015
 
-Футбол. Чемпионат Европы 2016. Группа E. 1-й тур. Ирландия - Швеция (13.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Солнце над Литом / Sunshine on Leith (2013) BDRip [H.264] [AVO]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706057.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 июня 2016, понедельник. 19:00 МСК
-Группа E. 1-й тур
-
-Стадион: Стад де Франс (Сен-Дени, Франция) , 73 419 зрителей (92 % при вместимости 80 000)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Шмурнов, Нобель Арустамян)Продолжительность: 01:53:25
+Фильм-мюзикл об одной дружной эдинбургской семье и трёх влюблённых парах. Вместе они переживают любовь и страдания, радость и печаль...Производство: Великобритания / Black Camel PicturesЖанр: Мюзикл, Драма, Мелодрама, КомедияРежиссер: Декстер ФлетчерАктеры: Антония Томас, Питер Муллан, Джейсон Флеминг, Джордж МакКэй, Джейн Хоррокс, Фрейя Мавор, Пол Брэнниган, Кевин Гатри, Даниэла Нардини, Эмма Хартли МиллерПеревод: Авторский (одноголосый закадровый)Субтитры: Вшитые (Отключаемые)Язык субтитров: Русский, АнглийскийПродолжительность: 01:39:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10A279E83EEEAA1543B121847ACE3FE9B42B0BF1
+magnet:?xt=urn:btih:4C54EB69CAE19C663E4CEBEF1AC427EE3A3CD7B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,28 +163,567 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026226   (706054) от 14.06.2016
+###  Публикация: 1287020   (707340) от 05.03.2019
 
-VA - Trip to Ibiza 2014 - House Set For V.I.P (2016) [MP3|256-320 кб/с] <Techno-House, Funky-House, Deep-House>
+Studies 1.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Studies - это приложение, чтобы помочь вам освоить ваши исследования - какими бы они ни были - на MacOS и IOS. Есть Studies для Mac, iPhone и IPad, и они прекрасно синхронизируются с помощью ICloud. Начало учебы в классе с Studies для Mac, продолжить в автобусе домой с Studies для iPhone, и закончить на диване с Studies для IPad.
+
+Некоторые вещи в жизни просто должны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2019Разработчик: The Mental FacultyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B070D6E7223D95D159E04C4C6C94B53E74CA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533015   (707339) от 23.02.2022
+
+VA - Notes from the Depth, Vol. 20 (2021) [AAC|~331 Kbps] <House>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_707339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amount - Beach Boy (Christopher Schwarzwalder Remix) (7:06)
+02. Marcelo Cura, Dubelu - Ascending Moons (9:11)
+03. Nhii - Marbles (8:57)
+04. Erdi Irmak - Rei (Original Mix) (9:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:43:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131624   (707338) от 06.05.2017
+
+Ragnarok - Nattferd (1995) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:53
+02. Pagan Land 02:34
+03. Age of Pride 07:04
+04. From the Darkest Deep 04:25(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275A8A9E35C2A38EC8427479D0D19B1723C0A571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286990   (707336) от 05.03.2019
+
+VA - Divine Lotys: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706054.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Richard Grey - Sparta  06:16
-02. Ben Teufel - Gran Cassa  08:40
-03. Coyu - Balls (original mix)  06:49
-04. 2Lovers - So Good (radio edit)  04:18(   Читать дальше...   )Жанр: Techno-House, Funky-House, Deep-HouseПродолжительность: 06:57:24
+001. Invasiohm - Dark Connection (Original Mix)
+002. Black Fly - Hari Om
+003. Bumbling Loons - Mirage (Original Mix)
+004. Bunker Jack - Lunatic Time(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:47:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2251AC19B49988F0BA82BE3CD5F51430C9EB94DD
+magnet:?xt=urn:btih:A5EF1508554800F9E265F199FD095C5ABAC87690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025978   (707335) от 13.06.2016
+
+Алексей  Осадчук | Цитадель (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты доблестный воин, желающий совершить подвиг, – нам всегда нужен еще один герой на крепостных стенах Марагарской Цитадели! Ты могущественный маг, ищущий забытые знания? Посети Древнюю Библиотеку! И тебе откроются многие тайны! А может, ты просто игрок, жаждущий острых ощущений? Тогда поспеши! В Цитадели ты всегда найдешь приключения.
+Олег меньше всего хотел (   Читать дальше...   )Жанр: LitRPGПродолжительность: 09:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE3A930CB1E518F42F698576D6330E78B33B92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532782   (707334) от 23.02.2022
+
+VA - Diamonds & Pearls Lounge, Vol. 1 (2008) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_707334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup - Greetings From Abroad (4:43)
+02. Redlounge Orchestra - Reserver (4:02)
+03. DJ Sleeptalker - Somewhere Inside (3:32)
+04. Velvet Lounge Project - In Harmony (4:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131629   (707333) от 06.05.2017
+
+Ragnarok - Diabolical Age (2000) [APE|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's War 07:16
+02. Nocturnal Sphere 08:28
+03. Diabolical Age 07:07
+04. Certain Death 05:16(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E33AD6008941C863F40721B985636918F646DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286921   (707332) от 05.03.2019
+
+Methyl Ethel - Triage (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruiner (04:20)
+02. Scream Whole (04:13)
+03. All the Elements (04:24)
+04. Trip the Mains (03:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A0DB8738777DD2B9BC27503872B768330CB7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025765   (707330) от 13.06.2016
+
+Марсианин / The Martian (2015) BDRip [H.265/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного.
+
+Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, ПриключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный, BD EURЯзык субтитров: Русские (форсированные, полные), Английские (форсированные, полные)Продолжительность: 02:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F51D7619B5E01EAA8B2D2E6F3AA605F5861C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532995   (707329) от 23.02.2022
+
+VA - Chill House Vibes Vol 3: Ultimate Chill House Collection (2022) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laylo, Daisy Howard, Keivyn Graves, Vasco, Rocky - Oh My Dear Friend (Magmatunes Remix) (6:33)
+02. Chillson, Marc Hartman - All Night Long (6:13)
+03. Martin Hiska - Divine (4:00)
+04. Marga Sol, Darles Flow - Broken (4:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F157899A25E2AE0962747D29AE8D9CF54EA4E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131644   (707328) от 06.05.2017
+
+Kenny Rankin - Professional Dreamer (1995) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'd Be So Nice To Come Home To 3:31
+02. The Very Thought Of You 3:37
+03. But Not For Me 3:08
+04. I Fall In Love Too Easily 3:48(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09F8030D38E1681B08E12ED64BB50C7285DEEB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287002   (707327) от 05.03.2019
+
+Seven Mary Three - American Standard (1995) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707327.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	Water's Edge 	3:52
+2 	Cumbersome 	3:59
+3 	Roderigo 	4:24
+4 	Devil Boy 	4:24(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736E411ADF25683DACB3C8C779B742AE84C7E8B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025716   (707325) от 13.06.2016
+
+Современное искусство - Сказки Старой Руси / Tales Of Old Rus [JPG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tales of Old Rus — это скетчбук Романа Попсуева, в котором он представляет героев русских сказок в стиле фэнтази.
+Автор: Роман Папсуев, страница в Instagram - @amokrusФормат: JPGРазрешение файлов: 652х900 - 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60926F88E7437409752EC99558913680F6A639A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533010   (707324) от 23.02.2022
+
+VA - I Need You Tonight, Vol. 1 (50 Deep-House Babies) (2016) [AAC|~327 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satoshy Hokado - You Really Love Me (3:28)
+02. Alvaro Jenez - United Sound (3:27)
+03. Marcus Jannay - Black Of Night (3:35)
+04. Francis Chic - Deep And Deeper (3:32)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752BDDA2BD2FE8E6337BCF00F5DFE67457CBACB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131636   (707323) от 06.05.2017
+
+Ragnarok - Collectors of the Kings (2010) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Resurrection
+02.	Stabbed by the Horns
+03.	Burning the Earth
+04.	In Honour of Satan(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737ED84B67A624BA29BAC077086B80A76D369768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287061   (707322) от 05.03.2019
+
+Art Farmer - The Complete Albums Collection 1961-1963 (2016) 4CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707322.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bel [4:08]
+02. Milano [4:51]
+03. Django [4:52](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 05:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC9F68F9F13FDDB473FB81B6DDA92EC4DDA310B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286964   (707321) от 05.03.2019
+
+Программа и устав Коммунистического Интернационала (1928) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Защищая и пропагандируя диалектический материализм Маркса — Энгельса, применяя его как революционный метод познавания действительности в целях революционного преобразования этой действительности, Коммунистический Интернационал ведет активную борьбу со всеми видами буржуазного мировоззрения и со всеми видами теоретического и практического оппортунизма. Стоя на почве (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB692A2E6757805A25997E8F7CFB5E40BE62518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025819   (707319) от 13.06.2016
+
+Проекты - VideoHive - Whiteboard Animated Elements Library - 13745607 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Whiteboard Animated Elements Library - интерактивная доска с большим набором анимационных элементов и символов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E007BC8C621DA52623735722EDA400D8F7D1C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533258   (707318) от 23.02.2022
+
+Авентайл - Поиск пути (2008) [FLAC|Lossless|image + .cue] <Melodic Death, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город, которого нет [5:35]
+ 02. Кладбище надежд [4:53]
+ 03. Миг на жизнь [5:19]
+ 04. Новый день [4:14](   Читать дальше...   )Жанр: Melodic Death, Power MetalПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4D590B07FA7E4EAD810202A3F17CB21B8EF4C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131454   (707317) от 06.05.2017
+
+Carlo Actis Dato - The Moonwalker (2001) Leo Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arigato [00:06]
+02. Bad Rap 1 [01:55]
+03. Fusi Orari [02:48]
+04. Thai children [01:14](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EC6C30A7B426DBC578785ACA5768A218901F77
 ```
 
 https://mybot314.ru/tekegram_catalog/

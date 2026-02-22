@@ -1,3 +1,61 @@
+###  Публикация: 1277978   (774319) от 23.01.2019
+
+Ness - Moving Through Illusions (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Darkly Sunset In Barcelona (06:51)
+ 02. In The Meanderings Of Shibuya (06:03)
+ 03. The Moon In Montreal (07:27)
+ 04. The Mist In Cherni Vrah (05:57)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40791219EF4A8E0EF82D85D0B4F1A43CF1388B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213186   (773356) от 15.03.2018
+
+Scam. - Reminiscence (2018) Monolith Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reminiscence (03:49)
+ 02. Gears (05:51)
+ 03. Lichtende (06:17)
+ 04. Scorch (05:36)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F422EBDA6B92EB4CDB655C4F8A25771D4C1B3C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212944   (773348) от 15.03.2018
 
 VA - Chilled House Session 9 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Club House>
@@ -682,64 +740,6 @@ VA - Best Aerobic Remixes 2019 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89EAFF7A029FEC1EF88CE2BE0858E735E05062CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522083   (761915) от 05.01.2022
-
-Riccicomoto - Huge Distances (2021) LP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Dub Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interception (Prelude) (6:58)
- 02. The Inner Perception (ft. Gustavo Varela) (6:43)
- 03. Huge Distances (E-Dub Session) (8:05)
- 04. 20thousand Miles (7:43)(   Читать дальше...   )Жанр: Deep House, Dub Techno, Minimal, AmbientПродолжительность: 04:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DD204DBE217A90BB5540B99A44222187E0E826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214885   (761819) от 24.03.2018
-
-VA - Back To Love 03.02 (2002) [FLAC|Lossless|tracks] <House, Breakbeat, Hip-Hop, Garage House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Turntable Orchestra - You're Gonna Miss Me (Original Mix) (5:57)
-02.Victor Romero feat. Latrice Brown - Love Will Find A Way (4:24)
-03.Ann Consuelo - See The Day (Stonebridge Mix) (8:36)
-04.Aftershock - Slave To The Vibe (12' Club Mix) (8:00)(   Читать дальше...   )Жанр: House, Breakbeat, Hip-Hop, Garage HouseПродолжительность: 02:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AC96E44990E50BD9052FD578245F4B175882B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

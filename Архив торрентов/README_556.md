@@ -1,3 +1,29 @@
+###  Публикация: 437101   (979343) от 16.01.2012
+
+[Wallpapers] Collection HQ Wallpapers №16
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сборник HQ обоев
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB90A8E9C6769BEE10ADEF00DA33B50B8FDC99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 437421   (979342) от 16.01.2012
 
 Sumatra PDF 2.0.5171 + Portable [Multi/Русский]
@@ -703,37 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DEE7E80F9BCBF1C59BF07930F670233268B9C46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436088   (979304) от 16.01.2012
-
-Vylex - Abduct You EP (2011) [MP3|320 kbps]<Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Vylex - Abduct You (Original Mix)
-02. Vylex, Mag Mag - Obia (Original Mix)
-03. Vylex - Hostage (Original Mix)
-04. Vylex - Super 9 (Original Mix)
-05. The Strangers - Yoshimitsu (Vylex Remix)
-06. Vylex - Moonskank (Original Mix)2011Жанр: DubstepПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AD9FEF063D94E8FC489D819579A07C8C6D9B7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

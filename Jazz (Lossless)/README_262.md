@@ -1,32 +1,3 @@
-###  Публикация: 1289448   (244606) от 16.03.2019
-
-Henry Threadgill - Double Up, Plays Double Up Plus (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244606.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Game is Up 	22:48
-2. Clear and Distinct From the Other A 	9:56
-3. Clear and Distinct From the Other B 	6:15
-4. Clear and Distinct 	8:38(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020226AF39989A48178B7E94683289F909025FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452305   (244566) от 06.03.2021
 
 Tal Babitzky - Internal Voice (2002) [FLAC|Lossless|tracks + .cue] <Fusion, Smooth Jazz, Contemporary jazz>
@@ -745,6 +716,35 @@ Gary Burton - Country Roads & Other Places (1969) 1998, Koch Jazz[FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C095CEE193FBBA27823B601D3DBA43892DE03167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072375   (244190) от 13.11.2016
+
+Pamela Rose & The Nate Ginsberg Trio - On the Jazzy Side of Blue (1993) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three-Handed Woman
+02. Ain't-Cha Glad?
+03. Oh Grandpa
+04. No Moon at All(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B06CFE15D926C2F7F5027DBEA4F78EEAC0F62B
 ```
 
 https://mybot314.ru/tekegram_catalog/

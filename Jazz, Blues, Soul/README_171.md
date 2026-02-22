@@ -1,3 +1,90 @@
+###  Публикация: 1013571   (777676) от 04.05.2016
+
+Buster Williams Trio - Tokudo (Japan Edition) (1989) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tokudo (Williams) - 9:38
+02. This Time the Dream's on Me (Arlen-Mercer) - 6:34
+03. Fuego (Williams) - 7:42
+04. This Is the End of a Beautiful Friendship (Styne-Kahn) - 6:49(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2503973AB327C69FC2D91EF88512B03FDC946679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013318   (777658) от 04.05.2016
+
+Electrophazz - Growing Strong (2013) [MP3|320 кб/с] <Jazz, Acid Jazz, Electronica>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prephazz (03:29)
+02. Deluxe Edition (feat. Keven Smith) (02:07)
+03. Obamo (feat. Telep) (03:27)
+04. Strange Cloud (feat. Telep) (05:39)(   Читать дальше...   )Производство: Phazz productionЖанр: Jazz, Acid Jazz, ElectronicaПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B72C0649A305BD14D124989226CDDB4456234A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013517   (777657) от 04.05.2016
+
+Lou Mecca, Bill de Arango, Chuck Wayne - 3 Swinging Guitar Sessions (1953-1955) 2015, Fresh Sound Recor[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.All the Things You Are [04:15]
+ 02.You Go to My Head [04:55]
+ 03.Bernie's Tune [04:21]
+ 04.Stan's Invention [03:36](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Guitar JazzПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D25B6C1C867699F80C9CDB878798A9271DDE104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211405   (777595) от 07.03.2018
 
 Howard McGhee - Dusty Blue (1960) 1999, Bethlehem [APE|Lossless|image + .cue] <Bop, Hard Bop>
@@ -658,93 +745,6 @@ Jimmy Owens - The Monk Project (2011) IPO Recordings [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62EB36931230A8BA438E4A36830BBE6492ADCB43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211898   (776911) от 09.03.2018
-
-Lou Levy Trio - A Most Musical Fella (1956, 1957) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night And Day [04:16]
-02. Angel Eyes [04:07]
-03. Lou's Blues [03:48]
-04. Yesterdays [06:19](   Читать дальше...   )Жанр: Cool, Hard Bop, Piano JazzПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A643B35809656A90226E9C5298E2C82E2B79763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211902   (776900) от 09.03.2018
-
-The New Stan Getz Quartet featuring Astrud Gilberto - Getz Au Go Go (1964) 2007, Verve [FLAC|Lossless|tracks + .cue] <Cool, Bossa Nova, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corcovado [02:52]
-02. It Might As Well Be Spring [04:29]
-03. Eu E Voce [02:33]
-04. Summertime [08:12](   Читать дальше...   )Жанр: Cool, Bossa Nova, Vocal JazzПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12BC49B0504BA60EAE2F7F29038D4D1B81745E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211905   (776873) от 09.03.2018
-
-Michael Musillami - Groove Teacher (1999) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Blend [06:27]
-02. The Gift [08:25]
-03. Open Ended [09:39]
-04. Off the Glass [08:10](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFF7A12A556CE0EB407039DB7D20224E4AF6B48
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 978062   (964275) от 22.01.2016
+
+Adobe Acrobat Professional DC 15.010.20056 Portable by punsh [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Acrobat Professional DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. Он содержит множество интеллектуальных функций, которые предоставляют дополнительные возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAE79C969EE75B495A3C16DC4AF0E4B29CBFC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359628   (964272) от 12.02.2020
 
 XYplorer 20.80 RePack (& Portable) by elchupacabra [Ru/En]
@@ -662,41 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D71ECB52BA3D5B6474BDD411D574C5E1C126E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 746852   (964208) от 18.01.2014
-
-Evile - Infected Nations (2009) [WavPack|Lossless]<Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Infected Nation [05:33]
-02.  Now Demolition [05:46]
-03.  Nosophoros [05:29]
-04.  Genocide [07:42]
-05.  Plague To End All Plagues [05:55]
-06.  Devoid Of Thought [05:37]
-07.  Time No More [04:00]
-08.  Metamorphosis [07:39]
-09.  Hundred Wrathful Deities [11:15]
-10.  My Parasite [04:17]Жанр: Thrash MetalПродолжительность: 01:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD3F1A9474B96143634D013DCDB82D473770DCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

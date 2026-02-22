@@ -1,3 +1,90 @@
+###  Публикация: 1418860   (344308) от 26.10.2020
+
+Karen Souza - Language Of Love (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Masquerade
+02. Everybody Knows
+03. Love's Not Fair
+04. Language Of Love(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9427762ABFD4AB4797814F8997C66A49A29BD61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330216   (343657) от 09.10.2019
+
+Paul Bley - Basics (2001) Justin Time [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Lost [4:42]
+02. Basics [2:29]
+03. Speed Kills [2:04]
+04. Told You So [9:15](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDEDC30EE01D1CCE55D1C62244AD6EF05FC75192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578734   (343649) от 24.09.2022
+
+Enrico Pieranunzi - Jazz Roads (1980) 2002, CAMJazz [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entropy [4:34]
+02. Monologue 1 - Country Sketch [1:28]
+03. New Lands [5:04]
+04. Monologue 2 - Introspection [2:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22663AF9370C1D92299C3C77BC1CBF9D5AC4AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580663   (343637) от 25.11.2012
 
 Italian Secret Service - Not The Same (2009) [FLAC|Lossless]<Acid Jazz, Lounge>
@@ -682,93 +769,6 @@ Grainne Duffy - Voodoo Blues (2020) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC3E6BADB5A71776D96ACBC9A118CEA02D3587B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419205   (342044) от 27.10.2020
-
-Nina Simone - The Nina Simone Anthology (1960-e - 1970-e) 2013, 2CD, Salvo [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342044.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. My Baby Just Cares for Me [3:39]
-02. I Want a Little Sugar in My Bowl [2:35]
-03. Ain't Got No - I Got Life [2:11](   Читать дальше...   )Жанр: Vocal Jazz, Soul-JazzПродолжительность: 02:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB518B5050E877DD5BA44BB0E098E993CF5B89AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418999   (341925) от 27.10.2020
-
-Joe Bonamassa - Royal Tea (2020) Target Special Edition [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When One Door Opens
-02. Royal Tea
-03. Why Does It Take So Long To Say Goodbye
-04. Lookout Man!(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4CCC492399476A2B05DA969FE209884581E714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257964   (341443) от 28.10.2018
-
-Lee Konitz & Dan Tepfer - Decade (2010 - 2016) 2018, Verve [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thrill [2:33]
-02. 9/11 Suite, Part I [3:49]
-03. 9/11 Suite, Part II [2:40]
-04. 9/11 Suite, Part III [4:26](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A326D93491A46327984910B76D3AC43CF44252F
 ```
 
 https://mybot314.ru/tekegram_catalog/

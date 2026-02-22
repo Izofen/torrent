@@ -1,3 +1,90 @@
+###  Публикация: 1465471   (1019150) от 26.04.2021
+
+Bill Evans - The Complete Fantasy Recordings (1973 - 1979) 9CD, 1989, Fantasy [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019150.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Mornin' Glory [5:48]
+02. Up with the Lark [6:48]
+03. Yesterday I Heard the Rain [6:33](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 10:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0768CFE112A72E2C530F8FB747DE1804656B7E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465490   (1019147) от 26.04.2021
+
+Jeff Kashiwa - Sunrise (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise (00:04:20)
+02. Givin' In (00:05:00)
+03. The Night Is Young (00:04:19)
+04. Slow Turn (00:05:13)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573C8CE027F6F406446A264A058137678CB417A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465579   (1019063) от 26.04.2021
+
+Indian Shadows - Tam Tam Blues (2021) [MP3|320 Kbps] <Blues, Blues Rock, Native American>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tam Tam Blues (4:16)
+02. Dance for Me (3:03)
+03. I Will Sing This Song (3:03)
+04. We Will Never Know (3:41)(   Читать дальше...   )Жанр: Blues, Blues Rock, Native AmericanПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F94522BF31F0EAB4384521C0E5A5C405AA53D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465770   (1019005) от 27.04.2021
 
 Luis Russell - 1945 - 1946 (1999) Classics [FLAC|Lossless|image + .cue] <Swing, Big Band>
@@ -658,93 +745,6 @@ Crystal Thomas - Now Dig This! (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E74A4F8005C1A76049606900D6FD2BE5105CE606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467305   (1017693) от 04.05.2021
-
-Bobby Hunt - Random Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headin' Down to Georgia (2:37)
-02. Breakin' in My New Shoes (4:52)
-03. The Prodigal (2:53)
-04. The Valley (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC358FCED1B7ADF02551F0750747FE4F371EA367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467310   (1017692) от 04.05.2021
-
-Jean-Jacques Milteau - Lost Highway (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues  Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Help If I'm Still in Love with You (3:28)
-02. She Thinks I Still Care (4:56)
-03. My Bucket's Got a Hole in It (3:00)
-04. Mr Bojangles (5:24)(   Читать дальше...   )Жанр: Blues  CountryПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F993AA77BD9DC080F713600F388E217635091539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467307   (1017690) от 04.05.2021
-
-Dani Bischoff - That's Where It Comes From (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easily Without You (3:51)
-02. Blues for Life (3:34)
-03. Not the Same but Equally (7:28)
-04. Morning Sun (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8B756598DD7CF5441989947EE0DEAF05051D79
 ```
 
 https://mybot314.ru/tekegram_catalog/

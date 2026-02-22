@@ -1,3 +1,30 @@
+###  Публикация: 1059965   (459197) от 05.10.2016
+
+Reflector 2.5.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459197.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью приложения Reflector пользователи iPhone, iPad или iPod Touch могут использовать преимущества технологии AirPlay для трансляции фото и видео контента с экрана мобильного устройства на компьютер в режиме видеоповтора.
+Программа активирует функцию AirPlay Mirroring, что позволяет превратить ваш iДевайс в настоящий центр компьютерных развлечений. Для этого (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 сентября 2016Разработчик: Squirrels LLCПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910A4C017769ED463403B35F9B30979B6033D806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059915   (459190) от 05.10.2016
 
 Piriform CCleaner Professional Plus 5.22.5724 [Multi/Ru]
@@ -658,35 +685,6 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50D549DDD154B181E96C28207CE77AAB74D55F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321522   (459086) от 24.08.2019
-
-Mark Sherry - Live @ Circus Afterhours Montreal, Canada 2019-08-10 [MP3|320 Kbps] <Trance, Techno, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yotto ft. Vok - The One You Left Behind
-02. Remake - Blade Runner (Maceo Plex Renaissance Remix)
-03. Cristoph ft. Jem Cooke - Slowly Burning
-04. Cirez D - Voided(   Читать дальше...   )Жанр: Trance, Techno, Progressive HouseПродолжительность: 09:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398D260859293203E63968421C07D3881FF552E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

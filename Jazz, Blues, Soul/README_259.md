@@ -1,3 +1,90 @@
+###  Публикация: 1039480   (594793) от 02.08.2016
+
+Johnny Lytle Trios - Got That Feeling! & Moon Child (1962, 1963) 2001, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Got That Feeling! [04:55]
+ 02.Pow-Wow [02:42]
+ 03.(In The) Wee Small Hours (Of The Morning) [03:22]
+ 04.Big John Grady [03:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89740EA90D976DCC1257BD050C5DEAD9733A20DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039752   (594706) от 02.08.2016
+
+Duke Ellington - The Essential (1928-1958) 2CD, 2009, Not Now Music[FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594706.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Black And Tan Fantasy [03:29]
+02.East St Louis Toodle-Oo [03:09]
+03.Hot And Bothered [03:21](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D11D4CC638D4C0FC0B727F2B351B263872432F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039464   (594698) от 02.08.2016
+
+Sean Chambers - Ten Til Midnight (2009) [MP3|320 Kbps] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ten Til Midnight (03:36)
+02. Blues And Rock 'N' Roll (04:13)
+03. All The King?s Horses (04:47)
+04. You're Gonna Miss Me (03:57)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC76A7C0A0BE837D1D9843CD0F63FFDDD71582A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039747   (594690) от 02.08.2016
 
 Milan Hendrik EXP - Applegate Drive (2016) [MP3|320 Kbps] <Blues, Roots>
@@ -658,93 +745,6 @@ Bill Potts - Porgy & Bess + Bye Bye Birdie (1963) 2006, Lone Hill Jazz [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0582B7DABE4C3CFC0F6B8C4EC0A471FD361CF56A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233505   (593026) от 30.06.2018
-
-Mose Allison - Greatest Hits (1957 - 1959) 1988, Original Jazz Classics [APE|Lossless|image + .cue] <Hard Bop, Vocal, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Seventh Son [2:41]
-02. Eyesight to the Blind [1:44]
-03. Do Nothin' Till You Hear from Me [3:14]
-04. Lost Mind [3:34](   Читать дальше...   )Жанр: Hard Bop, Vocal, Piano JazzПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D45A8AB3BC7AEB8229FCEB1E916171701F99FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549787   (592963) от 08.05.2022
-
-Ready For The World - Ruff 'N' Ready (1988) [FLAC|Lossless|tracks + .cue] <Soul, R&B, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Girly Riley, Valentine 5:30
-02. Shame Potts 4:56
-03. Cowboy Riley, Valentine 4:29
-04. Gently Riley 5:30(   Читать дальше...   )Жанр: Soul, R&B, FunkПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96C87FD2E8666F2A1DDA2FA3DAD595FC693BAB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549779   (592927) от 08.05.2022
-
-James Brown - Duets (1989) [FLAC|Lossless|tracks + .cue] <Soul, R&B, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Brown & Marva Withney - Think (Live At the Apollo Theatre, 1967)
-02. James Brown & Bea Ford - You've Got The Power (1960)
-03. Yvonne Fair (with James Brown) - You Can Make It If You Try (1962)
-04. Anna King & Bobby Byrd - Baby, Baby, Baby (1964)(   Читать дальше...   )Жанр: Soul, R&B, FunkПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86B1A1E5744DA2051A097543C5A508FCD1D0481
 ```
 
 https://mybot314.ru/tekegram_catalog/

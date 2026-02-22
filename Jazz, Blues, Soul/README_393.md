@@ -1,3 +1,32 @@
+###  Публикация: 1082099   (280917) от 11.12.2016
+
+Dave Kowaleski - New Horizons (2016) [MP3|320 Kbps] <Crossover Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  New Horizons  (03:47) 
+02|  Down on the Pch  (03:22) 
+03|  Dancing in My Dreams  (03:46) 
+04|  The Drifter  (04:02) (   Читать дальше...   )Жанр: Crossover Jazz, Piano JazzПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F355005121B2ED06A5C2E0DD47B76AE1ACDEEA2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081946   (280914) от 11.12.2016
 
 Laurence Jones - What's It Gonna Be (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -716,35 +745,6 @@ Gil Evans Orchestra - Live at Umbria Jazz 87, Vol.1 (2000) Egea [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8682ACB2579AC66D7E0009B4B47F5052BCCED55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264857   (277918) от 25.11.2018
-
-Gil Evans Orchestra - Live at Umbria Jazz 87, Vol.2 (2000) Egea [FLAC|Lossless|image + .cue] <Jazz-Rock, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone Free [18:16]
-02. Little Wing [21:15]
-03. Wake Up [6:32]
-04. There Comes a Time [12:44](   Читать дальше...   )Жанр: Jazz-Rock, Jazz FusionПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66419D6C67365DD1B78BDAEE9FBCF3149791CFF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

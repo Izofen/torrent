@@ -1,3 +1,32 @@
+###  Публикация: 982412   (948096) от 03.02.2016
+
+Yanni - Sensuous Chill (2016) [FLAC|Lossless|image+cue] <New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thirst For Life
+02. Rapture
+03. Drive
+04. What You Get(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F66A738FCF5DB704087FFDA4E1E0FCCA06BDBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361079   (947936) от 24.02.2020
 
 Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO Series) (2019) [FLAC|Lossless|tracks]<Soundtrack, Score>
@@ -735,35 +764,6 @@ Ruaidhri - Celtic Goddess (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A6E4BA6C567E6294F54DBBBBEA3DB58A2012313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091091   (942992) от 09.01.2017
-
-Erik Scott - In the Company of Clouds (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nine Lives [00:04:35]
-02. Seven Veils [00:04:50]
-03. Women of Avalon [00:05:44]
-04. Breathing Room [00:05:34](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DD06E49A4D6D7856F9A375A717E620BDA3634B
 ```
 
 https://mybot314.ru/tekegram_catalog/

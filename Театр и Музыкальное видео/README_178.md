@@ -1,57 +1,3 @@
-###  Публикация: 1713334   (40898) от 09.10.2024
-
-Rammstein: Paris (2017) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40898.jpg" />
-</div>
-
-
-###  Подробнее
-
-With 22 songs from the band’s whole repertoire, the resulting film isn’t just the most spectacular concert film to date about the band that is currently the most successful German rock band – it’s a masterpiece of music cinema! A total tapestry of ever-changing images awaits the viewer.
-
-Åkerlund is notorious for his radical, pioneering videos, which are ablaze (   Читать дальше...   )Производство: Universal MusicЖанр: IndustrialАктеры: Flake Lorenz, Till Lindemann, Christoph SchneiderПродолжительность: 02:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF17F2FCAC9837DB4970763598A75FFFC0302EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754389   (40793) от 10.10.2024
-
-The Weeknd - São Paulo Livestream (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Субботний вечер, 7 сентября 2024 гола, на MorumBIS Stadium в бразильском Сан-Паулу был полностью посвящен The Weeknd - его мощному концертному выступлению, его гостям, его новому материалу, который впервые увидел мир. На этот раз трансляцию события провели в прямом эфире на YouTube, во время шоу состоялись звездные камео Playboi Carty и местной r&b-звезды Anitta, (   Читать дальше...   )Производство: США / Manic Phase, Universal Records, XO RecordsЖанр: концертная программаРежиссер: Эйбел Макконен ТесфайеАктеры: Эйбел Макконен Тесфайе (The Weeknd), Джордан Террелл Картер (Playboi Carti), Анитта, Рэнди ЛиберманПеревод: Не требуетсяЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D395A51E9E47376BF9D6874011A3CF857A1CD96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513850   (40708) от 11.10.2024
 
 Чествование (1999) DVDRip
@@ -708,6 +654,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B58ED5F93F051FCD021CC1E4C1EB8038A13464D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764201   (35033) от 06.12.2024
+
+Skylar Grey feat. Eminem - C'Mon Let Me Ride (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35033.jpg" />
+</div>
+
+
+###  Подробнее
+
+«C’mon Let Me Ride» — песня американской исполнительницы и автора песен Скайлар Грей, выпущенная 11 декабря 2012 года как лид-сингл из её второго студийного альбома Don’t Look Down, 2013 года. Соавторами и продюсерами трека стали Alex Da Kid и Майк Дель Рио, как приглашённый артист выступил рэпер Eminem. Клип на песню был снят в октябре 2012 года и выпущен 11 декабря (   Читать дальше...   )Жанр: электро-поп, поп-рэпПродолжительность: 00:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFD891C18EF4F16E6EAF73A0C91B1265C41B962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764197   (35027) от 06.12.2024
+
+Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35027.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Kings & Queens» (с англ. — «Короли и Королевы») — песня американской певицы Эйвы Макс, вышедшая 12 марта 2020 года в качестве лид-сингла её дебютного сольного альбома Heaven & Hell. Это песня в стиле пауэр-поп, включающая электрогитары и синтезаторы, в которую вложена идея расширения прав и возможностей женщин. Музыкальное видео было выпущено (   Читать дальше...   )Жанр: попПродолжительность: 00:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D012F94C0EFCE944E31A46024A0CAC4F3C9D64
 ```
 
 https://mybot314.ru/tekegram_catalog/

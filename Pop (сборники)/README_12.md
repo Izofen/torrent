@@ -1,3 +1,32 @@
+###  Публикация: 1095527   (924468) от 21.01.2017
+
+VA - German Top 100 Single Charts 20.01.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924468.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You
+002. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie)
+003. Ed Sheeran - Castle on the Hill
+004. Alan Walker - Alone(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B56F5FBBEDC8DEC80AB0A769FBBC0643E2BC94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095350   (924465) от 21.01.2017
 
 VA - Музыкальный плен. Часть № 8 (2017) [MP3|256 Kbps] <Pop>
@@ -707,32 +736,6 @@ VA - Вечеринка в разгаре (2011) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20662AF0430723922148EC67D20028D8ECF5BAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289045   (920601) от 30.01.2011
-
-VA - XXL Супер Союз 2 50/50 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C920889B443350B28229E046C14C35B8942CDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

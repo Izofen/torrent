@@ -1,3 +1,95 @@
+###  Публикация: 523758   (617203) от 16.07.2012
+
+B.T. Express - Do It ('Til You're Satisfied) (1990) [FLAC|Lossless]<Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_617203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It ('Til You're Satisfied)
+02. This House Is Smokin'
+03. That's What I Want For You Baby
+04. Everything Good To You (Ain't Always Good For You)
+05. Mental Telepathy
+06. If It Don't Turn You On (You Ought To Leave It Alone)
+07. Once You Get It
+08. Do You Like It?
+09. ExpressЖанр: FunkПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295776   (617093) от 14.04.2019
+
+Ellis Marsalis - Duke In Blue (1999) Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mooche [5:19]
+02. Prelude to a Kiss [5:59]
+03. Squatty Roo [2:56]
+04. Sophisticated Lady [5:12](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9445C7A0EBDF3ACB0186ADBE915ACAD4E658AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295876   (616917) от 14.04.2019
+
+Patricia Barber - Higher (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muse
+02. Surrender
+03. Pallid Angel
+04. The Opera Song(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD74A079211AF3C6EFE77BA7B81F5CAB987E676A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295754   (616841) от 14.04.2019
 
 VA - 100 Greatest Northern Soul (2019) [MP3|320 Kbps] <Soul, RnB, Funk>
@@ -672,93 +764,6 @@ Milt Jackson - Mostly Duke (1982) 1998, Original Jazz Classics [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73D9647F2A1C53528B339F0C0AFE01EB16307D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146621   (614772) от 29.06.2017
-
-Members Of The Duke Ellington Orchestra - A Tribute To Duke Ellington (1997) Green Hill [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take The A Train [03:00]
-02. Cotton Tail [03:07]
-03. Solitude [03:16]
-04. Jeeps Blues [04:37](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D115C0E43245FC09BF2203351F6291D91B463F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146545   (614771) от 29.06.2017
-
-Apollo Saxophone Orchestra - Perpetual Motion (2012) Nimbus [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Classical>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perpetual Motion [05:20]
-02. Dear Bach [07:24]
-03. Celebration [04:39]
-04. Black [04:23](   Читать дальше...   )Жанр: Modern Creative, Third Stream, ClassicalПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9409C5910BB2C40F6DC1BEEF7AE024A4A249DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146529   (614770) от 29.06.2017
-
-Stanley Turrentine - Six Classic Albums (1960, 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614770.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Look Out & Blue Hour:
-01. Look Out [07:11]
-02. Journey into Melody [04:57]
-03. Return Engagement [04:49](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 03:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD3376DA9C76A3AC194710E721399A6A4FE09D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

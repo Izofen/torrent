@@ -1,3 +1,90 @@
+###  Публикация: 1764950   (34402) от 12.12.2024
+
+Michael Jackson - Off the Wall (1979) CD, Album, Reissue, Remastered, Special Edition, 2001 [FLAC|Lossless|tracks + .cue] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Stop ’til You Get Enough    [0:06:03.70]
+02. Rock With You    [0:03:39.40]
+03. Workin’ Day and Night    [0:05:13.39]
+04. Get on the Floor    [0:04:38.00](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267D9D8B91967A7364C8EAB8404A00D26DEAA808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765609   (34188) от 14.12.2024
+
+VA - Игорь Крутой - 70 (трибьют-альбом) (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Баста - Мадонна [00:03:48]
+02 - Леонид Агутин - Мой друг [00:03:54]
+03 - ANNA ASTI - Я хочу быть… [00:03:04]
+04 - Люся Чеботина - Акапулько [00:03:06](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE551D476BC763C0FC81D4756BF5C227F1A2134F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766230   (33871) от 17.12.2024
+
+VA - 10's Nostalgia Best from the Tens (2024) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Thinking Out Loud - (04:42)
+ 02. Dua Lipa - Don’t Start Now - (03:03)
+ 03. Jason DeRulo - Want to Want Me - (03:26)
+ 04. Coldplay - A Sky Full of Stars - (04:28)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D657B4EF033C2C575704833A549E6D1E7848614B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766303   (33865) от 17.12.2024
 
 VA - 10s Hits - Best 10s Music (2024) [MP3|320 Kbps] <Pop>
@@ -658,93 +745,6 @@ Wings - Wings Greatest (1978) Japanese Edition, SHM-CD, Compilation, Reissue, 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB526047FCF62240DFEC71AF065BCEC800F6C630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770495   (32292) от 01.01.2025
-
-VA - Joggen 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disclosure - You & Me (Rivo Remix) (3:28)
-02. Meduza - Fire (Official UEFA EURO 2024 Song) (2:48)
-03. Martin Garrix - Told You So (3:07)
-04. MC Menor JP - Menina de Vermelho (HUGEL Version) (2:23)(   Читать дальше...   )Жанр: PopПродолжительность: 03:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35653C1AFFF3E216E1A8E19D16FB4689065B04A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770409   (32288) от 01.01.2025
-
-Gigi D'Agostino, Luca Noise - Total Eclipse (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, Dance, EuroDance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Total Eclipse (Totalmente GIGI DAG & LUC ON Mix) [2:51]
-02 - Joyful (Strong And Happy GIGI DAG & LUC ON Mix) [4:44]
-03 - Sound of Love (Strong And Happy GIGI DAG & LUC ON Mix) [4:36]
-04 - Total Eclipse (Different GIGI DAG & LUC ON Instrumental Mix) [4:13](   Читать дальше...   )Жанр: Italo Dance, Dance, EuroDanceПродолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01150A83FDFFC2B5C81856F8947283D5AAB90EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770641   (32197) от 02.01.2025
-
-Wings - Wings Over America (1976) 2xCD, Japanese Edition, SHM-CD, Reissue, 2024, Universal Music LLC [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32197.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Part One - UICY-80472:
-01. Venus and Mars / Rock Show / Jet
-02. Let Me Roll It
-03. Spirits of Ancient Egypt(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C35969D6409C973A13BE781B487393D321BA76
 ```
 
 https://mybot314.ru/tekegram_catalog/

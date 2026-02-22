@@ -1,32 +1,3 @@
-###  Публикация: 1436031   (139838) от 30.12.2020
-
-Dizzy Gillespie - Concert of the Century: A Tribute to Charlie Parker (1980) 2016, Justin Time [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue 'n' Boogie (10:59)
-02. If I Should Lose You (5:56)
-03. Darben the Redd Foxx (5:48)
-04. Time on My Hands (8:16)(   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC544A491FD37D6D28C54563F15751030463BCDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273023   (139819) от 30.12.2018
 
 Clifford Jordan - These Are My Roots: Clifford Jordan Plays Leadbelly (1965) 2004, Collectables [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -751,6 +722,39 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A16DA5AAA4DD627E4929628A00B9DBB565C6BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 855057   (139202) от 31.12.2014
+
+Duke Ellington - Afro-Eurasian Eclipse (1999) [FLAC|Lossless]<Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Chinoiserie [08:16]
+02. Didjeridoo [03:41]
+03. Afrique [05:27]
+04. Acht O'Clock Rock [03:05]
+05. Gong [04:49]
+06. Tang [04:49]
+07. True [03:40]
+08. Hard Way [04:09]Жанр: Jazz, Swing, Big BandПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE390F90320CC12C9C3202A3211BDBA3319F42A
 ```
 
 https://mybot314.ru/tekegram_catalog/

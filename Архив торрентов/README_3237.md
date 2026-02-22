@@ -1,3 +1,29 @@
+###  Публикация: 934530   (502408) от 05.09.2015
+
+Norton Removal Tool 22.5.0.13 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменная утилита для полного удаления с компьютера антивирусных программ и продуктов безопасности Norton, включая последние версии антивирусных решений Norton Security и Norton Security with Backup.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE701938D8AA667FDCBD3BF8D2215F986BEEDABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934385   (502404) от 05.09.2015
 
 Не спать! Выпуск №55 (2015.09.04) WEB-DLRip [H.264/720p-LQ]
@@ -673,35 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6FCED4FAF59D89BC4DE64B08C679F2F9D3F1F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934376   (502253) от 05.09.2015
-
-Milli Vanilli - All Or Nothing (1989) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Pop, Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Can't You Feel My Love  3:34
-2. Boy In The Tree  3:12
-3. Money  4:12(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CCEE2351E10892EE6EFD9269B85ADDF1F31F42
 ```
 
 https://mybot314.ru/tekegram_catalog/

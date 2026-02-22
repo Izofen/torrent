@@ -1,3 +1,90 @@
+###  Публикация: 1160919   (471992) от 26.08.2017
+
+Charles Mingus & Jazz Artists Guild - Newport Rebels (1960) 2001, King Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mysterious Blues [08:45]
+02. Cliff Walk [09:49]
+03. Wrap Your Troubles in Dreams [03:56]
+04. T'ain't Nobody's Bizness if I Do [07:22](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB9A849FE03F376679706F1EA9DE963213E70D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160797   (471988) от 26.08.2017
+
+Dave Brubeck featuring Paul Desmond - St. Louis Blues (1959, 1962) 2003, Jazz Selection [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Louis Blues [05:42]
+02. Nomad [06:13]
+03. Thank You [05:52]
+04. Brandenburg Gate [04:30](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439B811456EF5A63EEC6CCD195728FDD3747F8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940089   (471636) от 23.09.2015
+
+Jimmy Woods - Awakening !! (1961/1962) /1995, OJC/[APE|image+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Awakening [04:11]
+02.Circus [04:26]
+03.Not Yet [08:00]
+04.A New Twist [03:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1A18E1D9A62F328133FBFDDE37A6C39010F16B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939724   (471633) от 23.09.2015
 
 Gil Evans Orchestra - Giants Of Jazz (1957-1959) /1994, Giants Of Jazz/[FLAC|tracks+.cue]<Post-Bop, Modern Big Band, Cool>
@@ -681,93 +768,6 @@ Ray Bryant - Through The Years, vol.2 (1992) /1992, Nippon/[FLAC|image+.cue]<Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05E364F0771D8298ADDEA8A979DFA82229091F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940468   (469350) от 24.09.2015
-
-Анатолий Берестов (Anatoli Berestov) - Незатейливые фантазии на темы И.С. Баха (1996) /GEL/[FLAC|tracks+.cue]<Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sarabanda from Partita N 2 c-moll [02:16]
-02.Invention 2-voc N 4 d-moll [03:04]
-03.Invention 2-voc N 6  E-dur [05:18]
-04.Invention 2-voc N 15 H-moll [04:55](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 00:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5A322CEF80D66355C484F891F5280387C0D727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940467   (469340) от 24.09.2015
-
-Kathy Sanborn - Lights Of Laniakea (2015) [FLAC|image+.cue]<Vocal Jazz, World>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Catcher
-02. Follow The Light
-03. Soul Dancing
-04. Someday(   Читать дальше...   )Жанр: Vocal Jazz, WorldПродолжительность: 01:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D9699C4D2A4191F779093E02A15A599764A5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940388   (469321) от 24.09.2015
-
-The Alan Broadbent Trio - Pacific Standard Time (1995) /PAR Media Music/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Summer Night [06:15]
-02.This One's for Bud [06:02]
-03.Easy Living [07:30]
-04.Easy to Love [04:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C344F517D9B3796FDA1C7071A4B3EF9884EF566
 ```
 
 https://mybot314.ru/tekegram_catalog/

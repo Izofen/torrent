@@ -1,3 +1,61 @@
+###  Публикация: 955366   (335416) от 10.11.2015
+
+Barney Wilen - Tilt (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blue N' Boogie [04:25]
+ 02.Nature Boy [04:27]
+ 03.Melancholy Baby [05:11]
+ 04.Night In Tunisia [04:28](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55EC9741E1B3F8386F6A482D6878736DDCE4FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355477   (335349) от 30.10.2020
+
+Smokin' Joe Kubek & Bnois King - 16 Albums (1991 - 2015) [FLAC|Lossless|tracks + .cue|image + .cue] <Texas Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smokin' Joe Kubek (30 ноября 1956 - 11 октября 2015) был американским техасским блюзовым электрогитаристом, автором песен и исполнителем. Bnois King (родился 21 января 1943 года)  - техасский блюзовый и джазовый гитарист, вокалист и композитор. Он чаще всего играл на гитаре и ритм-гитаре и выступал в качестве основного вокалиста и автора песен для Smokin' Joe Kubek (   Читать дальше...   )Список альбомов:
+1991 - The Axe Man
+1991 - Steppin' Out Texas Style
+1992 - Chain Smokin' Texas StyleЖанр: Texas Blues, Blues RockПродолжительность: 12:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570B93AE2356B27DC4649BA6C4B0263198DE01C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331000   (335116) от 13.10.2019
 
 Vic Dickenson - Five Classic Albums Plus (1953 - 1959) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -698,64 +756,6 @@ Ingrid Savbrant - Resan (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C18278E257E4F8382AEECFB0F410B8BAF22C80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579812   (333502) от 29.09.2022
-
-Mayra Aveliz - Get In (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me Time (3:33)
-02. I Need Your Love so Bad (4:00)
-03. What About Love (3:12)
-04. My Dear (2:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19CA946DECF4AD736FED83A41B71A6F5E7F17434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579817   (333500) от 29.09.2022
-
-The Jujubes - Raging Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wang Dang Doodle (4:03)
-02. Crocodile (3:38)
-03. You Ain't so Bad (3:08)
-04. True Religion (4:37)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540E077173E8813B3A6640A4793ADE512FC301BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

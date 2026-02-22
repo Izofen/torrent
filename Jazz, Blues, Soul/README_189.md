@@ -1,3 +1,90 @@
+###  Публикация: 1283499   (739842) от 17.02.2019
+
+Mr. Acker Bilk - Gold (1993) San Juan [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger on the Shore [2:50]
+02. I Want to Know What Love Is [4:04]
+03. I Just Called to Say I Love You [4:22]
+04. Hello [4:14](   Читать дальше...   )Жанр: Dixieland, Easy ListeningПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FB2B2E513A3B0CA836DD7B84133AD1AC11A1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283502   (739837) от 17.02.2019
+
+Acker Bilk - The Greatest Hits of Acker Bilk (1990) 2CD [FLAC|Lossless|tracks + .cue] <Easy Listening, Traditional Jazz, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739837.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Stranger On The Shore [3:20]
+02. Sailing [3:18]
+03. Bridge Over Troubled Waters [4:35](   Читать дальше...   )Жанр: Easy Listening, Traditional Jazz, DixielandПродолжительность: 02:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0FEA16B41D0A9AFA0BA8E7D9AC722DF6E2D6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397540   (739827) от 21.07.2020
+
+VA - Blues 25 Hits & Classics Volume 2 (1995?) [FLAC|Lossless|tracks + .cue] <Blues, Classic Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739827.jpg" />
+</div>
+
+
+###  Подробнее
+
+К моему большому сожалению только один диск из четырех, выпущенных скандинавской фирмой Elap Music (а точнее её датским дивизионом) находится в моей коллекции. Судя по подбору исполнителей, скандинавы достаточно скурпулезно постарались включить действительно классические хиты блюза, начиная с основания и заканчивая серединой девяностых годов прошлого века. Судя по01. John Lee Hooker - Little Wheel  (2:35)
+02. Elmore James - Coming Home  (2:27)
+03. Muddy Waters - Sad Letter  (3:02)
+04. Sonny Boy Williamson - You Killing Me  (3:32)(   Читать дальше...   )Жанр: Blues, Classic BluesПродолжительность: 01:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9AAF2B6C2A970434DA0E657984FFA35627DDF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283445   (739780) от 17.02.2019
 
 Detour Doom Project - Detour Doom (2016) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Doom Jazz, Jazz Noir>
@@ -658,93 +745,6 @@ Ronnie Laws - Mirror Town (1986) [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0863597F116617791FF7054C8AE93480B3CCBCB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527066   (737399) от 27.01.2022
-
-Allan Thomas - The Journey (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey (4:30)
-02. Van (4:14)
-03. You Never Know (4:12)
-04. It's All Good (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C08A036B57CC6ABE6D4A2C6CF332128A94C97D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527072   (737395) от 27.01.2022
-
-James Cooke - Put In a Little Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Myself Healed (6:06)
-02. Spitfire Shuffle (4:27)
-03. Low Place (4:21)
-04. Make My Blood Move (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC908C1413E90B10CB0934B568701B979C86D5B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527064   (737393) от 27.01.2022
-
-Bill Evans - Undercurrent (1962) 2CD, 2013, Not Now Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737393.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - Undercurrent:
-01. My Funny Valentine [5:25]
-02. I Hear A Rhapsody [4:41]
-03. Dream Gypsy [4:36](   Читать дальше...   )Жанр: Hard Bop, Cool, Piano JazzПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA213FA6DC0137DD12B9889A75AD278C1B918010
 ```
 
 https://mybot314.ru/tekegram_catalog/

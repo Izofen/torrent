@@ -1,3 +1,32 @@
+###  Публикация: 707609   (207963) от 26.07.2023
+
+Daniel Zimmermann - Bone Machine (2013) [FLAC (tracks+.cue)]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying pachydermes
+02. Regatta de Bones
+03. Open letter to Charles
+04. Schizophrenia(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E6A4CBC3883A0D552157F047C5DE4142223705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612082   (207402) от 14.02.2023
 
 Dennis Siggery & Neil Sadler - Testify (2023) [MP3|320 Kbps] <Blues Rock>
@@ -713,35 +742,6 @@ VA - Rock and Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:387A1585549FB651436082C91F98859F953595C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653450   (205452) от 16.08.2023
-
-Gene Ammons - Funky (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funky [9:01]
-02. Pint Size [12:24]
-03. Stella By Starlight [8:58]
-04. King Size [9:17]Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB7BF3375D88E6B4117C6F79FCD1C663B42DE8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

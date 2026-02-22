@@ -1,3 +1,117 @@
+###  Публикация: 895693   (697418) от 07.05.2015
+
+Whitney Houston - The Star Spangled Banner (1991) Single [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хьюстон исполнила «The Star Spangled Banner» перед финальным матчем чемпионата НФЛ по американскому футболу в январе 1991 года. Эта запись песни была выпущена как коммерческий сингл, который попал в двадцатку U.S. Hot 100, сделав Хьюстон первым артистом, выпустившим национальный гимн в качестве хита. Хьюстон пожертвовала свою долю выручки Американскому Красному Кресту. Десять лет спустя песня была перевыпущена после терактов 11 сентября 2001 года.01. The Star Spangled Banner
+02. America The BeautifulЖанр: PopПродолжительность: 00:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28769EAA1FB2DCA2418743EC47D25ADD943233CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288289   (697167) от 10.03.2019
+
+Dido - Still On My Mind (2019) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricanes
+02. Give You Up
+03. Hell After This
+04. You Don't Need a God(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71AB7B8AF764A11490D50B4A1A646B0B71AA316E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 895779   (697083) от 07.05.2015
+
+Город 312 - Без вариантов (2015) [FLAC|Lossless]<Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не теряй меня, Москва
+02. Вне зоны доступа
+03. Фонари
+04. Останусь(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D102B9C72BF3F2AB5A2367B36943EC8A79DAE48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133223   (697008) от 11.05.2017
+
+Masquerade - The Sound of Masquerade (1984) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (2:01)
+02. Guardian Angel (4:25)
+03. Love Hurts (3:46)
+04. Deep Under My Skin (4:18)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9AB2318F0BF1CD6AB141EC3B1F3B1A6BA575D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221211   (696804) от 23.04.2018
 
 Possession - Possession (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -629,122 +743,6 @@ Jeanne Napoli - Jeanne (1976) LP [MP3|320 Kbps] <Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE89BF6B3BFB7E1A8E032F74B3C7AFD97EEC1909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288605   (694195) от 12.03.2019
-
-Carmen - Più forti del ricordo (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabato subito (2:55)
-02. Più forti del ricordo (3:48)
-03. Non è amore (4:00)
-04. Punto a capo (3:50)(   Читать дальше...   )Жанр: PopПродолжительность: 34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A795118D84AE176AC8E7E429C70916C5690A579E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288540   (694190) от 12.03.2019
-
-Kleeer - Tonight: Greatest Hits (2019) [MP3|320 Kbps] <Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight (5:11)
-02. Intimate Connection (4:46)
-03. Open Your Mind (6:38)
-04. Tonight's The Night (Good Time) (6:20)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 02:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1761FA5C78C00447CD9DB8B346EC4673A0A2BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288525   (694182) от 12.03.2019
-
-Fred Ventura - Greatest Hits & Remixes (2019) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Years (Go By) (7'' Version) (3:31)
-02. Streets (All Right) (7'' Version) (3:32)
-03. Leave Me Alone (7'' Version) (3:24)
-04. Wind Of Change (Short Version) (4:32)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 02:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD84E2E3859E66F70342FD0C847B66EA692BBA90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403261   (694154) от 18.08.2020
-
-VA - Energy Booster Music Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kathleen Young - Idgaf (03:39)
-02. Nicholas Bailey - Shape of You (03:52)
-03. Donald Perry - Finesse (03:38)
-04. Harold Rice - Paradise (03:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4F00209456D525AAA56E978DB6F6E420DA5BEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

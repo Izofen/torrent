@@ -1,3 +1,29 @@
+###  Публикация: 766760   (869474) от 15.03.2014
+
+Windows Firewall Control 4.0.8.4 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Windows Firewall Control - утилита, с помощью которой, вы получите доступ к наиболее часто используемым опциям встроенного брандмауэра операционных систем Windows. После инсталляции программа располагается в системном трее и дает возможность эффективно управлять различными параметрами при помощи контекстного меню, например можно быстро разрешить/запретить другим программам выходить в сеть, настраивать правила, просматривать текущие активные сетевые соединения, импортировать/экспортировать политики и т.д.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221C51D1250F6C2AF87D393014EF8BD1753D7759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 644670   (869460) от 16.04.2013
 
 Google Chrome 28.0.1478.0 Dev [Multi/Русский]
@@ -668,41 +694,6 @@ VA - In The Mix Winter 2010 (Mixed And Compiled by Kris O'Neil) - 2011 [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:508E883D65BA395D83B99B1D448E247266017A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300892   (869350) от 28.02.2011
-
-Laidback Luke - Essential Mix BBC Radio 1 (2011) [MP3|~168 kbps]<House, Tech-House, Acid-House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[00:00] 01. Essential Mix - Intro (02:01)
-[02:01] 02. Manu Chao - Bongo Bong (00:56)
-[02:57] 03. Designer Music - Good Girls (02:05)
-[05:01] 04. Roman Flugel - Gehts Noch (01:03)
-[06:05] 05. Juice String - Sex Weed (Laidback Luke Remix) (02:04)
-[08:09] 06. Afrojack & Steve Aoki - No Beef (01:07)
-[09:17] 07. Afrojack & Steve Aoki vs. Laidback Luke feat. Jonathan Mendelsohn - No Beef vs. Till Tonight (Acapella) (02:57)
-[12:14] 08. Sandro Silva - Prom Night (Laidback Luke Remix) (02:02)
-[14:16] 09. Swanky Tunes feat. Mr V.I. - Together (03:12)
-[17:28] 10. Funkin' Matt - Anywhere (01:29)(   Читать дальше...)Жанр: House, Tech-House, Acid-HouseПродолжительность: 01:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9498CEA45639B469D2E282571AB7CB735956C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

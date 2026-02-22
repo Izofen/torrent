@@ -1,3 +1,32 @@
+###  Публикация: 1387028   (792645) от 31.05.2020
+
+Wayne Shorter - The All Seeing Eye 1965 (1994) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The All Seeing Eye [10:33]
+02. Genesis [11:46]
+03. Chaos [6:58]
+04. Face of the Deep [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29B56EFD36DC21B0C27275C992E8C5871B8338B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123349   (792533) от 07.04.2017
 
 Pauline Alpert - Keyboard Wizards Of The Gershwin Era, Volume I (1943, 1944) 1995, Pearl [FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
@@ -717,35 +746,6 @@ Barabas Lorinc Quartet - Other Than Unusual (2018) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C1A5C9BB8C8B3B07F4D700D1A9E1C46BA222580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275182   (791155) от 10.01.2019
-
-Count Basie - Chairman Of The Board (1958) 2003, Roulette [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues In Hoss' Flat [3:13]
-02. H.R.H. (Her Royal Highness) [2:40]
-03. Segue In C [6:15]
-04. Kansas City Shout [3:35](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE09571DD78BFE286EAF8DF2FCDDCECE6E8ADC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

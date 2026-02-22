@@ -1,3 +1,61 @@
+###  Публикация: 1185184   (295218) от 20.11.2017
+
+VA - Clinique Mixed XIV (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dyo Atoma - Tazmania (Original Mix) [08:00]
+02. Edvard Hunger - The Same Life (Original Mix) [05:34]
+03. Paul Angelo, Don Argento - Legacy (Rolando Vallice Remix)[06:30]
+04. Alexander Miguel - Contaol (Paul Angelo & Don Argento Remix)[08:02](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D6F1A2958B5AF0EEB3F9EFBD563D02223B188A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185282   (295213) от 20.11.2017
+
+Wild & Free - Shapes On Shapes (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, House, Indie Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shapes on Shapes (2:22)
+ 02. River of Nilé (5:19)
+ 03. Moment (3:54)
+ 04. Tropique (6:05)(   Читать дальше...   )Жанр: Nu Disco, House, Indie DanceПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD50E6BACAFCBDCFBBC47F2CCBF67F1EFC730FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185206   (295179) от 20.11.2017
 
 Late Night Alumni - The Ghost (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, Vocal>
@@ -676,64 +734,6 @@ VA - Live in South Beach (Mixed by John Digweed) (2015) [FLAC|Lossless|WEB-DL]<M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A836B73BD0DAF24FC248EB42C194972DB35627D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080850   (286630) от 08.12.2016
-
-VA - A Guy In Buenos Aires (Mixed by Guy Mantzur) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khen - Authentica
-02. Chicola - The Night We Call It the Day
-03. Kastis Torrau - Chasing You
-04. Monkey Safari - Boris (Guy Mantzur Remix)(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415EF435B207A5C89773AA648685097430C5226C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263640   (286538) от 20.11.2018
-
-VA - 3xA Mixed Series VI (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Alfred - Cygnus (Th Moy Remix)                              [07:59]
-02. Experimental Feelings and Joy - Run (Christian Monique Remix)   [10:04]
-03. Dziathy - Festiv4l (Mendexx Remix)                              [07:36]
-04. Kade B - Shemyaza (PushnBall Remix)                             [07:40](   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E2E70F1714243635F3E957824BE89A97702553
 ```
 
 https://mybot314.ru/tekegram_catalog/

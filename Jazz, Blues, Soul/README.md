@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1854699   (1057492) от 19.02.2026
+
+The Mood Mosaic - Oiran Beat (Japanese B-Movies Mellow Grooves) (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Want to Go To The Women's Bath At Least Once (3:53)
+02.  Tokyo Emmanuelle I (3:45)
+03.  Cruel Woman's Suicide (2:19)
+04.  Tokyo Emmanuelle II (3:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0E8EF8DDD31F21B173A3242F2ABD55AAAA8068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854700   (1057491) от 19.02.2026
+
+Yucco Miller - Bloomin' (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Miracle Shine (3:11)
+02.  Hair Style (4:00)
+03.  3-3-7 (3:28)
+04.  Snow Song (5:31)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD82CCD44FC5C78B0EBC36F78DACB1001B5D031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854702   (1057490) от 19.02.2026
+
+VA - Chillout & Lounge Ibiza Beats (2026) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Trip-Hop, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jano de Rhodos - Chica Fina (4:29)
+02.  Muehlig - Bayside Rhythm (4:29)
+03.  Zirkadian Sender - Dream Slide (4:16)
+04.  Converted Specifications - Thought Pages (4:14)(   Читать дальше...   )Жанр: Chill Out, Trip-Hop, LoungeПродолжительность: 01:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22E8A8AC88276314F1A55F901C5D7FF9F65F8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853749   (1056578) от 14.02.2026
 
 Trudy Lynn - Turning the Same Ole Corners (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
@@ -659,93 +746,6 @@ Joe Bonamassa - B.B. King's Blues Summit 100 (2026) (2CD) [FLAC 24/44.1|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5423315B0BF38D42411F7A8D88D6081E20BB198B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851356   (1055136) от 02.02.2026
-
-Ari Lennox - Vacancy (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Neo-Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mobbin in DC [00:04:25]
-02. Vacancy [00:03:03]
-03. Pretzel [00:03:23]
-04. Under The Moon [00:03:26](   Читать дальше...   )Жанр: Neo-SoulПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42ECFDEF357413E6B0B20A5CA8A70F0BBDC02D19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851138   (1054756) от 31.01.2026
-
-Robin Trower - One Moment In Time - Live In The USA (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Blues Rock, Rhythm & Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Razor's Edge (Live) (03:05)
- 02 - Too Rolling Stoned (Live) (08:06)
- 03 - Wither On The Vine (Live) (03:46)
- 04 - Somebody Calling (Live) (07:55)(   Читать дальше...   )Жанр: Blues, Blues Rock, Rhythm & BluesПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A13286E67347CC9BA0D083366D2648DBDB30D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850315   (1054202) от 27.01.2026
-
-Casa De Los Santos - Black Crown Bluess (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Black Chain (7:53)
-02.  Black Crown Blues (5:06)
-03.  Black Dragon (3:52)
-04.  Blues of the Abyss (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1B0B3E64AD59CF9B0A289D7A2798072B259611
 ```
 
 https://mybot314.ru/tekegram_catalog/

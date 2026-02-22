@@ -1,25 +1,25 @@
-###  Публикация: 666869   (730137) от 10.06.2013
+###  Публикация: 1127772   (731157) от 22.04.2017
 
-Black - Wonderful Life (2013) Expanded Edition, 2CD [FLAC|image + .cue]<Pop, Synth-pop>
+Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Universe [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
 
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730137.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wonderful Life [04:50]
-02. Everything's Coming Up Roses [04:08]
-03. Sometimes For The Asking [04:11]
-04. Finder [04:15](   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:53:41
+01. Modus Operandi [09:38]
+02. Come Sunday [05:28]
+03. Gap Sealer [05:48]
+04. Jeep's Blues [06:29](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:49:29
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:828223038A621EBB4D12FEEF17DF68733A5B2FED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,161 +27,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 571697   (730135) от 10.06.2013
+###  Публикация: 1127480   (731156) от 22.04.2017
 
-Алла Пугачева - Жди и помни меня (1965-2008) [15CD] (2012) [MP3|320 кб/с]<Pop>
-
->>След.
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730135.jpg" />
-</div>
-
-
-###  Подробнее
-
-256 - Водяные да лешие
-257 - Игра
-258 - Живи спокойно, страна!
-259 - Кафешка
-260 - Опять метель
-261 - Приглашение на закат
-262 - Из ниоткуда
-263 - Гуд-бай
-264 - Верю, не верю
-265 - Дожди(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638158   (730125) от 10.06.2013
-
-Игра престолов / Game of Thrones (Сезон 3 полный (10)) (2013) HDTVRip (Kerob)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730125.jpg" />
-</div>
-
-
-###  Подробнее
-
-К концу подходит время благоденствия, и лето, длившееся несколько десятилетий, угасает. Люди, отказавшиеся жить по законам Семи Королевств, получили название одичалых и были изгнаны за Стену, на страже которой стоит Ночной Дозор. Но орден был учрежден, чтобы защищать мир людей от совсем другой силы — Белых Ходоков, ныне пробудившихся и угрожающих всему живому. Король (   Читать дальше...   )Производство: США, HBO, Television 360, Grok! StudioЖанр: Драма, фэнтазиРежиссер: Тимоти Ван Паттен, Брайан Кирк, Даниэль Минахан, Алан ТейлорПеревод: Любительский одноголосый закадровый - KerobПродолжительность: ~ 00:55:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646095   (730117) от 10.06.2013
-
-Демоны да Винчи / Da Vinci's Demons (2013) HDTVRip (Сезон 1, серия 1-8 из 8) AlexFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730117.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где мысль и вера находятся под контролем, один человек борется за то, чтобы сделать знания доступными для всех.
-Не рассказанная история трагичной жизни Леонардо да Винчи раскрывает портрет молодого человека, которого мучает дар гения. Он - еретик, жаждущий раскрыть ложь религии. Бунтарь, стремящийся низвергнуть элитарное общество. Незаконнорожденный сын, (   Читать дальше...   )Жанр: драма, приключенияРежиссер: Дэвид С. Гойер, Джейми Пэйн, Пол Уилмсхёрст, Майкл Дж. БассеттПеревод: профессиональный многоголосый закадровый (AlexFilm)Субтитры: нетФормат: AVIПродолжительность: ~00:59:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127313   (730112) от 23.04.2017
-
-Баскетбол. НБА 2016-2017. Плей-офф. Восток. 1/4 Финала. 1-й матч. Бостон Селтикс – Чикаго Буллз (16.04.2017) WEB-DL [H.264/720p-LQ] [EN]
+Футбол. Лига Европы УЕФА 2016-2017. 1/4 финала. 2-й матч. Бешикташ (Турция) – Лион (Франция) (20.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730112.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 апреля 2017, понедельник. 01:30 МСК
-НБА 2016-2017. Плей-офф. Восточная конференция. Первый раунд
-1/4 Финала. 1-й матч
-Бостон Селтикс – Чикаго Буллз(   Читать дальше...   )Телекомпания: CSNЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A71B9645A993203AFB933F2A64F4E8AE5F81D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127314   (730111) от 23.04.2017
-
-Баскетбол. НБА 2016-2017. Плей-офф. Запад. 1/4 Финала. 1-й матч. Хьюстон Рокетс – Оклахома-Сити Тандер (16.04.2017) WEB-DL [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730111.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 апреля 2017, понедельник. 04:00 МСК
-НБА 2016-2017. Плей-офф. Восточная Западная конференция. Первый раунд
-1/4 Финала. 1-й матч
-Хьюстон Рокетс – Оклахома-Сити Тандер(   Читать дальше...   )Телекомпания: Fox SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888905AC0F843F4DF0DC5F0711F81140E41CDC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127891   (730110) от 23.04.2017
-
-Футбол. Лига Европы УЕФА 2016-2017. 1/4 финала. 2-й матч. Шальке-04 (Германия) – Аякс (Нидерланды) (20.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730110.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731156.jpg" />
 </div>
 
 
@@ -189,12 +43,12 @@ https://mybot314.ru/tekegram_catalog/
 
 20 апреля 2017, четверг. 22:05 МСК
 Лига Европы УЕФА 2016-2017. Плей-офф. 1/4 финала. 2-й матч
-Шальке-04 (Гельзенкирхен, Германия) – Аякс (Амстердам, Нидерланды)
-Стадион: Фельтинс-Арена (Гельзенкирхен, Германия), вместимость: 62271(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:30:27
+Бешикташ (Стамбул, Турция) – Лион (Лион, Франция)
+Стадион: Водафон Арена (Стамбул, Турция), вместимость: 43500(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:40:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05B88BFC468DB48A3615F473C90BF196A7803F3D
+magnet:?xt=urn:btih:543B901DE2422D8458FDEADE83CF0E0F665D28DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -202,57 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127310   (730109) от 23.04.2017
+###  Публикация: 1127655   (731155) от 22.04.2017
 
-Баскетбол. НБА 2016-2017. Плей-офф. Восток. 1/4 Финала. 1-й матч. Вашингтон Уизардс – Атланта Хоукс (16.04.2017) WEB-DL [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730109.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 апреля 2017, воскресенье. 20:00 МСК
-НБА 2016-2017. Плей-офф. Восточная конференция. Первый раунд
-1/4 Финала. 1-й матч
-Вашингтон Уизардс – Атланта Хоукс(   Читать дальше...   )Телекомпания: TNTЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F89460F5F8BE9BDDE4DADB4B5AFECD9A201A90E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127987   (730108) от 23.04.2017
-
-Walter Bishop, Jr. - Old Folks (1977) 2003, Mercury Music [APE|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+Valery Ponomarev & Feelin's (2006) Монолит [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730108.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Manha Do Carnaval [06:02]
-02. Old Folks [07:40]
-03. Up Jumped Spring [04:36]
-04. Straight, No Chaser [04:16](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:37:06
+01. Valery Ponomarev [01:14]
+02. Feelin's (I) [04:35]
+03. Cat Dancing on the Piano [04:53]
+04. Take 7 [03:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E5DB0529A436875B2ABC36393FC158A1B3999A2
+magnet:?xt=urn:btih:FAFC6E9430C19673E81B0D889603095583F6A5B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -260,115 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128045   (730107) от 23.04.2017
+###  Публикация: 1127600   (731154) от 22.04.2017
 
-Биатлон. Чемпионат России 2017. Уват (Россия). Индивидуальная гонка (28.03.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730107.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 марта 2017 года, вторник
-Чемпионат России по биатлону 2017 года. Уват (Россия)
-1. Женщины. Индивидуальная гонка 15 км
-2. Мужчины. Индивидуальная гонка 20 км(   Читать дальше...   )Телекомпания: АСН “Тюменская арена"Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:40 - 01:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5A703A87273F2BF7E55FC2A15DCD9B7AF54636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127851   (730106) от 23.04.2017
-
-Биатлон. Чемпионат России 2017. Уват (Россия). Гонка преследования (26.03.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730106.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 марта 2017 года, воскресенье
-Чемпионат России по биатлону 2017 года. Уват (Россия)
-1. Женщины. Гонка преследования 10 км
-2. Мужчины. Гонка преследования 12.5 км(   Читать дальше...   )Телекомпания: АСН “Тюменская арена"Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:54:37 - 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C565A7DDBA2567513210AB63945D515A2B8DF7A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128211   (730105) от 23.04.2017
-
-Тяжелая атлетика. Чемпионат Европы 2017. Сплит (Хорватия). Мужчины, до 56 кг, группа А. Финал (02.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730105.jpg" />
-</div>
-
-
-###  Подробнее
-
-96-й Чемпионат Европы по тяжёлой атлетике 2017 прошёл в городе Сплит (Хорватия) c 2 по 9 апреля 2017 года. Были разыграны награды в 8 весовых категориях у мужчин и в 7 категориях — у женщин.
-02 апреля 2017 года, воскресенье. 18:00 МСК
-Чемпионат Европы среди мужчин и женщин-2017. Сплит (Хорватия).
-1-й соревновательный день:(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5291A108AF0A4DA6D389F86F16935509ED3EC04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127980   (730104) от 23.04.2017
-
-The Fabulous Dizzy Gillespie - Pleyel Jazz Concert 1948 (2016) Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
+Kenny Barron - Sambao (1992) [WavPack|Lossless|image + .cue] <Latin Jazz, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730104.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Round About Midnight [08:46]
-02. Algo Bueno (Woody'n You) [03:18]
-03. I Can't Get Started [03:48]
-04. Ool-Ya-Koo [05:11](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:44:10
+1. Sambao (6:21)
+2. Yalelel (5:51)
+3. Bacchanal (6:38)
+4. Belem (5:43)(   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 00:59:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E996E683203E73DD02068F1B5A3B382C5AD29C61
+magnet:?xt=urn:btih:B5E5D8BDAA64649508C2115F0CF27D81468F9400
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,86 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128038   (730103) от 23.04.2017
+###  Публикация: 1127673   (731153) от 22.04.2017
 
-Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). Финал. Россия — Канада (26.03.2017) IPTV [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730103.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 марта 2017 года, воскресенье
-Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай)
-Финал
-Россия — Канада(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FA5DF1EA422CD466BA58A9266C0150E5BF31BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127923   (730102) от 23.04.2017
-
-PullTube v0.9.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещенном на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио
-Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.
-
-PullTube предлагает Вам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.04.2017Разработчик: MyMixAppsПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE732E30862371E66C75EDED680EAF192A16FD27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127991   (730101) от 23.04.2017
-
-The Duke Edward Kennedy Ellington - I'm Checkin' Out, Goom Bye (1939) 2CD, 2004, Membran Music [APE|Lossless|image + .cue] <Swing, Big Band>
+Kahil El'Zabar's Ritual Trio - Africa N' da Blues (2000) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730101.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Dance Of The Goon [02:37]
-02. Good Gal Blues [03:00]
-03. Finesse [02:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:52:14
+01. Ka-Real (Take 2) [12:39]
+02. Africanos / Latinos [09:53]
+03. Miles' Mode [07:22]
+04. Autumn Leaves [11:27](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:11:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D50441524EDCF4DC32A1BD160F34D80C1426BE3C
+magnet:?xt=urn:btih:7D2377EA61F65D6DF52E0B70FDD4E6439C1EF554
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,56 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284123   (730100) от 20.02.2019
+###  Публикация: 1127621   (731152) от 22.04.2017
 
-Before The Rain - Frail (2011) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And The World Ends There (10:39)
-02. Shards (11:52)
-03. Breaking The Waves (17:32)
-04. A Glimpse Towards The Sun (8:56)(   Читать дальше...   )Производство: Avantgarde Music – AV205Жанр: Doom MetalПродолжительность: 01:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC32607818CB046F2716F3B74BB811F070C269A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284185   (730099) от 20.02.2019
-
-RapidWeaver 8 v8.1.5 (20654)[En]
+VA - Big Room Bass Vol.2 (2017) [MP3|320 Kbps] <Trance, Tech Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730099.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-RapidWeaver 8 - очень популярный WYSIWYG-редактор, по праву заслуживший множество наград от таких известных изданий как: MacFormar, MacWorld и MacUser. В отличие от других WYSIWYG-редакторов, он действительно не требует знания HTML, используя для построения сайта множество готовых шаблонов.
-
-RapidWeaver отлично подойдет тем, кто ищет ПО для разработки красивого веб-сайта. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.02.2019Разработчик: Realmac Software LimitedПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+01.  Frainbreeze & Thoba - Border Lines (Radio Edit)  3:16
+02.  Roman Messer & Denis Sender - Don't Give Up (Radio Edit)  3:05
+03.  Aelyn - Game Over (Ruslan Radriges Radio Edit)  3:22
+04.  Feel - The Razor (Hydrogenio Radio Edit)  3:41(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 00:58:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3CEC653E3C9A1370BBDCFE1DB4129F4C237A4E2
+magnet:?xt=urn:btih:57348DC55B30FA70947D9AF3B8A9BAE5C790C2B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,85 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284157   (730098) от 20.02.2019
+###  Публикация: 1127563   (731151) от 22.04.2017
 
-VA - Progressive Trance Vol.6 (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel & Rimsky feat. Diana Leah - One Last Time (Vadim Bonkrashkov Extended Remix) 05:46
-02. Roman Messer - Lost (Ruslan Radriges Extended Remix) 05:16
-03. ThoBa feat. Kate Miles - Your Love (Extended Mix) 05:31
-04. Jordy Eley - Cosmic Colors (Original Mix) 04:04(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEDE601170FA4F0069055EDF3A7860435BAAB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284022   (730097) от 20.02.2019
-
-Foxwarren - Foxwarren (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Be (02:54)
-02. Lost In a Dream (02:55)
-03. Everything Apart (04:16)
-04. In Another Life (02:59)(   Читать дальше...   )Жанр: Alternative Rock, Folk, Indie RockПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CDD081FB20EF4E4BDD576632B2153FEBE404D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284134   (730096) от 20.02.2019
-
-Studies 1.6.1 [En]
+VA - Trancespotting Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730096.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Studies - это приложение, чтобы помочь вам освоить ваши исследования - какими бы они ни были - на MacOS и IOS. Есть Studies для Mac, iPhone и IPad, и они прекрасно синхронизируются с помощью ICloud. Начало учебы в классе с Studies для Mac, продолжить в автобусе домой с Studies для iPhone, и закончить на диване с Studies для IPad.
-
-Некоторые вещи в жизни просто должны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2019Разработчик: The Mental FacultyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+01.  Tranc Eye - When The Sun Goes Down (Miroslav Vrlik Radio Cut)  3:19
+02.  Puma Scorz - Amanita (Radio Cut)  3:30
+03.  Martin Everson & Bprime - Waterfall (Radio Cut)  3:47
+04.  George Harrold - The Gateway (Radio Cut)  4:14(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:31:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B87C50FC01589947B7578F9517F6501315C2738C
+magnet:?xt=urn:btih:9AFDA3A9F975C19D9FF393398468C91C3C3C2896
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,27 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284186   (730095) от 20.02.2019
+###  Публикация: 1127599   (731150) от 22.04.2017
 
-Зачем Америке биатлон?. Специальный репортаж (2019) HDTV [H.264/1080i-LQ]
+VA - Trance With Sunglasses (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730095.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Насколько самый популярный зимний вид спорта востребован по ту сторону океана? И нужен ли он Америке?
-3-й раз за последние 8 лет Кубок мира выезжает за океан. Не так давно завершился этап в канадском Кэнморе, скомканный из-за лютых морозов, а теперь биатлонная элита перебралась в столицу Олимпиады-2002 — Солт-Лейк-Сити.
-Корреспондент «Матч ТВ» Илья Трифанов решил (   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: Документальный, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:15:12
+01.  Jan Jacarta - Wormhole (Jan Jacarta Remix)  6:35
+02.  Art Of Trance - Haagen Daaz (Remastered)  7:48
+03.  Physical Dreams - Lost In Time  8:21
+04.  JayB - Desire (Dub Version)  6:44(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD69C19923E7B86EDA3CB177B4B67837405122D5
+magnet:?xt=urn:btih:5B789D299993ECF2DFFFE50964F9896190EB6236
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,28 +230,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284159   (730094) от 20.02.2019
+###  Публикация: 1127753   (731149) от 22.04.2017
 
-VA - The Journey: The Best Remixes Vol.01 (2019) [MP3|320 Kbps] <Progressive House, Trance>
+VA - Сотка популярных весенних хитов версия № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Инфинити Feat. Гена Дудин - Воланчик 3:18
+002. Илья Гуров - Геолокация 3:14
+003. Егор Диких - Маэстро 3:55
+004. Владимир - Голливуд 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7B603CF98C64D994E059185CFFE8478918EE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127577   (731148) от 22.04.2017
+
+VA - Black Hole House Music 04-17 (2017) [MP3|320 Kbps] <House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730094.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. J.Weo - Lazy Weekend (Soty & Seven24 Remix) 06:20
-02. Moussa Clarke - Astra Aurora (Nio March Remix) 05:08
-03. ZANIO - Will (I-Vision Remix) 08:11
-04. Sunlight Project - Back To Me Somehow (Kana 'Back 2 The 80s' Remix) 06:27(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:42:28
+01.  Tyng & KMRN - Cracks On The Wall (feat. Shadisha)  6:27
+02.  James DX - Maximum Effort (Original Mix)  6:01
+03.  RBYN - Angel (Metrush Remix)  3:15
+04.  Bobina & May-Britt Scheffer - Born Again (Filatov & Karas Extended Remix)  4:14(   Читать дальше...   )Жанр: HouseПродолжительность: 01:25:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BA452B5E6402697CCC70C725628383E0467D8DD
+magnet:?xt=urn:btih:A939B9F601617750A4C40F6273D287A53C2BB67D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,28 +288,170 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284151   (730093) от 20.02.2019
+###  Публикация: 1127667   (731147) от 22.04.2017
 
-VA - Trance Mission (2019) [MP3|320 Kbps] <Trance>
+Новая технология изготовления нанопроводников значительно облегчит процесс записи деятельности отдельных нейронов
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_731147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследовательская группа, возглавляемая учеными из Калифорнийского университета в Сан-Диего, разработала новую технологию изготовления матриц из нанопроводников, использование которой позволит произвести запись электрической деятельности отдельных нейронов в самых мелких деталях. А практическое применение таких матриц наноэлектродов и нанопроводников позволит в будущем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127731   (731146) от 22.04.2017
+
+Nice Clipboard - a cloud synced clipboard manager 1.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nice Clipboard - Отличная реализация менеджера буфера обмена
+Nice Clipboard - Чистый, привлекательны и простой в использовании.
+
+Nice Clipboard - менеджер буфера обмена, который всегда ждет вас под значком Menubar на вашем Mac или на главном экране на вашем iPhone. Он синхронизируется с помощью iCloud между вашими компьютерами Mac и  iOS устройствами и написан с использованием (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 апреля 2017Разработчик: Jedrzej GronekПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77E629E20586BA7EA272081747DA097B24C4BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127747   (731145) от 22.04.2017
+
+VA - Звездная тусовочка. Отдыхаем с лучшими хитами. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Диана Громова - Не Хочется 2:58
+002. Mike Perry Feat. Casso - Inside The Lines 3:25
+003. Катерина Sky - Мне Тебя Не Хватает 3:21
+004. Sigala & Digital Farm Animals - Only One 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9A6761CB1FA8CD3400D41DD14B87F25ACE8A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127755   (731144) от 22.04.2017
+
+VA - Лучший весенний хит. Версия № 11 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731144.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Швец - Фиолент 2:27
+002. Тина Кароль - Lost In The Rain 3:18
+003. Ольга Бузова - Привыкаю 3:49
+004. Катерина Корс - Так Близко 3:49(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE0AD65191035BF58AF24E60E4B08802BB382A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127685   (731143) от 22.04.2017
+
+VA - Living Room’s Just Good Mood (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worldtraveller - Deep Ocean Dive [00:03:38]
+02. Art Stoner - Breakwater [00:07:35]
+03. Living Room - Living Jazz [00:04:22]
+04. Omegaman - Paradiso [00:04:15](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD826ECB632F0F31EADB602171875AAED41A8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127455   (731142) от 22.04.2017
+
+VA - Ferry Corsten Presents Corstenas Countdown April (2017) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730093.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mindsoundscapes - Grasping Life (Radio Cut) 03:19
-02. Dreamy - Scar (Radio Cut) 04:04
-03. George Harrold - Ayuhuasca (Radio Cut) 03:46
-04. Artra & Holland - Mountains (Radio Edition) 03:11(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:23
+01.  Ferry Corsten presents Gouryella - Venera (Vee's Theme)  3:08
+02.  DIM3NSION - Voorpret  7:02
+03.  Dan Dobson - Black Magic (Extended Mix)  6:15
+04.  Venaccio - Apollo (Extended Mix)  6:20(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBD118563DEB4DB153A16205026B7B1433B306A4
+magnet:?xt=urn:btih:543A69E9715615088B7649693533B2594FB519D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,25 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284305   (730092) от 20.02.2019
+###  Публикация: 1127699   (731141) от 22.04.2017
 
-OCRKit 19.2.15 [Multi/Ru]
+IooN-Cosmic Downtempo - Masters Of The Universe (2017) [MP3|320 Kbps] <Ambient, Drone>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730092.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-OCRKit представляет собой простое и рациональное приложение для конвертирования файлов формата PDF и графических изображений в PDF-файлы с возможностью поиска по тексту на компьютерах Macintosh. В приложении OCRKit задействована технология оптического распознавания знаков (OCR, Optical Character Recognition), позволяющая распознавать текст в рамках графического изображения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2019Разработчик: ExactCODE GmbHПоддерживаемая ОС: macOS 10.6 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+1.Passing Horizontal 16:04
+2.Nanomeditative Submersion 08:42
+3.Ascending To Master Stillness 07:11
+4.Masters Of Universal Equilibrium 08:07(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:37:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BED016427561B1ED932D7B4E099B829D83B347E9
+magnet:?xt=urn:btih:ED67F9263A6C68F92190D6AE50FAD600EE7C0708
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -718,26 +488,254 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284195   (730091) от 20.02.2019
+###  Публикация: 1127588   (731140) от 22.04.2017
 
-Keytty 1.2.6 [En]
+VA - EDM Base Vol.2 (2017) [MP3|320 Kbps] <Trance>
 
->>Программы для macOS
->>Утилиты для macOS
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730091.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Управляйте мышью с помощью клавиатуры!
-Перемещение, клик, прокрутка, перетаскивание и многое другое с помощью нескольких нажатий клавиш.Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: KeyttyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+01.  Attila Syah & Cari - Dark Side Of The Moon (Radio Edit)  4:00
+02.  Audino - Beat Maniac (Original Mix)  3:47
+03.  Frainbreeze & Lucid Blue - World Of Nothing (Radio Edit)  2:33
+04.  Moroshka - 4AM (Original Mix)  4:44(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55683A37DAD0DFEC5B9CAFC1C2A56B8979C47DFD
+magnet:?xt=urn:btih:FDE2A918B8F933A152CA0EDD717F426D1C78AE0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127639   (731139) от 22.04.2017
+
+Маина Боборико | За круглым оконцем (1972) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть Маины Боборико «За круглым оконцем» рассказывает о жизни сегодняшних школьников, их дружбе и учебе, о любви к природе.
+
+Для детей среднего и старшего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78143E4E5F9FBC99A1E860EA4DF4E6DF506B8740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127764   (731138) от 22.04.2017
+
+VA - Высшая лига. Весна выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731138.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Непара - Половинки 3:44
+002. Nina Ann - Ты Спросишь Однажды 3:30
+003. Лена Семенова - Уверен Ли Ты 3:46
+004. Лаурита - Пока Пока 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1825A9F4ECD0281FDD0393D96D56A1A98D13BD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127005   (731137) от 22.04.2017
+
+Биатлон. Чемпионат России 2017. Уват (Россия). Спринт (25.03.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731137.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 марта 2017 года, суббота
+Чемпионат России по биатлону 2017 года. Уват (Россия)
+1. Женщины. Спринт 7,5 км
+2. Мужчины. Спринт 10 км(   Читать дальше...   )Телекомпания: АСН “Тюменская арена"Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:12 - 01:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276AB8F3BE6DDBC055C3F6CBABC47E114C57929F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127757   (731136) от 22.04.2017
+
+VA - Топовая сотня весенняя версия № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731136.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Пающие Трусы - Давай Туси 3:01
+002. Леля - Грешная 3:43
+003. Ваня Чебанов - Ты №1 3:41
+004. Кейс - Держать Тебя За Руку 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC148303E262BD503D758C5B342C6C9D2C6784F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127578   (731134) от 22.04.2017
+
+Quiver: The Programmer's Notebook 3.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quiver — это записная книжка, специально созданная для программиста.
+
+Основные возможности:
+	•	С помощью Quiver вы легко можете объединить текст, код и Markdown в одной заметке.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: HappenApps, Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A52C60770BEA4CA29BADEB52DC84C197442569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127506   (731133) от 22.04.2017
+
+Козельская Введенская Оптина пустынь (изд.) | «Житие и писания молдавскаго старца Паисия Величковскаго» [Репринт 2001] (1847) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5C08F72C0E39D20B2881D2D304A53269E8EC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127592   (731132) от 22.04.2017
+
+Sublime Text 3 Dev (3130) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 апреля 2017Разработчик: Jon SkinnerПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C15FB0A0701F545E4F2A28D3F78BE89AAFBAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127798   (731131) от 22.04.2017
+
+VA - German Top 50 Official Dance Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731131.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Claptone Ft. George Kranz - The Drums (Din Daa Daa) 3:26
+002. Nalin & Kane - Beachball 2017 (Sebastien Remix) 2:58
+003. DJ Higheffect Ft. Silvia Dias - Sweet Dreams 3:35
+004. Tujamo - Make U Love Me 3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946CA398AE0B2F5E51ED000C2E2FEB26861B4598
 ```
 
 https://mybot314.ru/tekegram_catalog/

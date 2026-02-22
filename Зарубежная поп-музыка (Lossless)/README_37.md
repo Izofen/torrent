@@ -1,3 +1,32 @@
+###  Публикация: 1024908   (713951) от 10.06.2016
+
+Tom Odell - Wrong Crowd (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrong Crowd (4:27)
+02. Magnetised (3:55)
+03. Concrete (3:50)
+04. Constellations (4:35)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC0F0EC4D7F86018AF40476737E5E5BDF0DDBFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219397   (713771) от 14.04.2018
 
 VA - The Sound Of Summer (2017) Limited Special Edition[FLAC|Lossless|tracks + .cue] <Pop>
@@ -717,35 +746,6 @@ VA - Greatest Classic Hits (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3FAE6FA0F7A5A81FDA5642070194DF81FD28CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287537   (703347) от 07.03.2019
-
-Dido - Still on My Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricanes
-02. Give You Up
-03. Hell After This
-04. You Don't Need a God(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6BF22248F105DCA3A766EE0B44B2193530D027
 ```
 
 https://mybot314.ru/tekegram_catalog/

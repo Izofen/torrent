@@ -1,3 +1,32 @@
+###  Публикация: 1026440   (703953) от 15.06.2016
+
+Anhidema - Conversation with the Cosmos (2014) [MP3|320 кб/с] <New Age, Ambient, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Words Do not Do and Say Nothing
+02. Encounters
+03. Welcome to Infinity Forever
+04. In the Center of Anhidema(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACACB98297AE60CD9F1BDB1D9576EF811D6610FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402115   (703678) от 13.08.2020
 
 VA - Mindful Meditative Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -716,35 +745,6 @@ Brian Tyler - Now You See Me / Иллюзия обмана (Complete Motion Pict
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F2C6EF32840B8A5E186C267AF0568D9687E4E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026692   (700207) от 17.06.2016
-
-Waterbone - (1997-2015) (5 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eastern Girl (Remix) (6:23)
-02. River Of Souls (Remix) (6:02)
-03. Tantra (Remix) (6:06)
-04. Song For The Mountain (Remix) (5:59)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 04:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E4FF6A8DC45E0A7A8A5C27D1803A2CCF326D15
 ```
 
 https://mybot314.ru/tekegram_catalog/

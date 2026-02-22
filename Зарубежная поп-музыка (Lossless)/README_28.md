@@ -1,3 +1,32 @@
+###  Публикация: 1011775   (793563) от 01.05.2016
+
+Demis Roussos - Forever & Ever (the Best Of) (2013) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy To Be On An Island In The Sun (1975)
+02. Goodbye My Love Goodbye (Album Version) (1973)
+03. Can't Say How Much I Love You (1976)
+04. When Forever Has Gone (1974)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9446A1566CE2AF073884513C8301C9F1A138202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386723   (793409) от 30.05.2020
 
 Michael Bolton - Michael Bolton: Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop, Soul>
@@ -716,36 +745,6 @@ Yaku & Supermax - The Message (2012) Clip Production Ltd. [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:944D88EB4B0193F2EE72C4A135EC54F7C85472BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509969   (788755) от 21.11.2021
-
-Mylene Farmer - Studio albums & Remixes (1986 - 2018) 15 CD [APE|Lossless|image + .cue] <Chanson, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Милен Жанна Готье (фр. Mylène Jeanne Gautier), профессионально известная как Милен Фармер (Mylène Farmer), французская певица канадского происхождения, композитор, актриса и поэтесса. Одна из самых известных современных французских исполнительниц популярной музыки.
-Редко появляясь в СМИ и избегая обсуждения своей личной жизни, она построила долговременный (   Читать дальше...   )1986 - Cendres de lune
-1988 - Ainsi soit je
-1991 - L'autre
-1995 - Anamorphosee(   Читать дальше...   )Жанр: Chanson, Pop Rock, Synth-popПродолжительность: 13:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0215552BE5237F423749E8A27FE51C63926159A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1231035   (563651) от 09.07.2018
+
+Wondershare Video Converter Ultimate 10.2.6.168 RePack by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare Video Converter Ultimate — представляет собой полноценное решение для копирования/записи: DVD, IFO, ISO, видео и аудио конвертирования, онлайн-видео загрузки и передачи файлов на портативные устройства. Программа имеет простой в использовании и приятный интерфейс, а благодаря поддержке технологии NVIDIA® CUDA обладает высокой скоростью конвертирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB3585A90BE06C55812FDC54375D2572F81CD70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530285   (563649) от 02.08.2012
 
 [Wallpapers 16+] Wallpapers Sexy Girls Pack (01.08.12)
@@ -664,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4FE6CA90A00D02146868AE5873D623F22BA19D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530284   (563508) от 02.08.2012
-
-[Wallpapers] Nature HD Wallpapers (01.08.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8DB3133DB5B5A4CB348FC7F57A0EE694BAADA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

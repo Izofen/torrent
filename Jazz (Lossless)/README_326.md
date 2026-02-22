@@ -1,32 +1,3 @@
-###  Публикация: 1686531   (126432) от 23.12.2023
-
-The Stan Getz Quartet - Pure Getz (1982) Concord Records [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Up and Up [8:16]
-02. Blood Count [3:39]
-03. Very Early [7:11]
-04. Sipping at Bell's [5:08](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBE6E9727F15ACCD864664FBF113CD0B5E4FCA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686337   (126430) от 23.12.2023
 
 Bill Evans - You Must Believe In Spring (1977) 2022, Craft Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool>
@@ -744,6 +715,35 @@ Gerry Mulligan - Four Classic Albums (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F43035CDA3E0611257655605582A219372D0134D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688125   (125292) от 28.12.2023
+
+The Kenny Clarke-Francy Boland Big Band - Latin Kaleidoscope, Cuban Fever (1968) 2011, MPS Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Graso de Areia [4:55]
+02. Duas Rosas [2:28]
+03. A Rosa Negra [1:59]
+04. Uma Fita de Tres Cores [4:02](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694338F5AC18071A3B5F74BA26DC2C83B34228ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

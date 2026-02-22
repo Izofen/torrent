@@ -1,3 +1,119 @@
+###  Публикация: 1230329   (617385) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 19 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert X - Vision
+02. Kono - Cleopatra (Dance Version)
+03. Raigo - Let Me Live
+04. J. Ford - Mind Wanderer (Japanese Mix)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B48F96DD9B076E12F41E5CAF6DB6842C3B9390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230324   (617382) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 17 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Via Verdi - Love Is A Dream
+02. Ryvon - Sing A Happy Song
+03. Federico L'Olandese Volante - Just Another Love Song
+04. Too Too Toy - Don't Wake Up(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F838F9B09D48919E640BD5C0138A565E4DCD53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230318   (617302) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 16 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiki Gaida - Virginal Mystery
+02. Parsifal - Carillon (English Version)
+03. Tenere - Moon Destination (Vocal English Version)
+04. Zener - New Generation(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CE1DD01FCB7DFBD2C145BBDA75008B49D5926F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230335   (617301) от 11.06.2018
+
+VA - Italo Dance Summer Hits (2012) [MP3|320 Kbps] <Italo-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hessencia - Cosmo (The Arcane Charmers Remix) 06:28
+02. Hoxygen feat. Krystal Em & Scio - Only Smoke (The Arcane Charmers Remix Edit) 03:36
+03. DJ Doddo - Tu sei (Radio Edit) 03:09
+04. Il Viaggiatore - Respiro (Vocal Mix) 03:30(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 02:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390273957452DCF7023854475C954C2628E857DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230328   (617300) от 11.06.2018
 
 VA - Italo Disco: The Lost Legends Vol. 18 (2018) [MP3|320 Kbps] <Italo-Disco>
@@ -647,128 +763,6 @@ Westlife - Westlife (1999) [FLAC|Lossless|image + .cue] <Europop, Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D72885DDAEE61FB7AB7A318E912462A8F376222A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295758   (615133) от 15.04.2019
-
-VA - 100 Greatest Summer Songs (2019) [MP3|320 Kbps] <Rock, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615133.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
-002. Fleetwood Mac - Everywhere (2017 Remaster)
-003. Dua Lipa - Be The One
-004. All Saints - Pure Shores(   Читать дальше...   )Жанр: Rock, Pop, DanceПродолжительность: 06:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084DEB52D4B72F51D3022611233BD3DD4B88AC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296001   (615132) от 15.04.2019
-
-VA - 100 Greatest Chilled Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rudimental / Jess Glynne / Macklemore / Dan Caplen : These Days (feat. Jess Glynne, Macklemore & Dan Caplen) [00:03:31]
-02. Fleetwood Mac : Everywhere (2017 Remaster) [00:03:46]
-03. Dua Lipa : Be The One [00:03:22]
-04. All Saints : Pure Shores [00:04:28](   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B758D16310C90C433D7805893F7C8B3458E65D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036887   (615086) от 23.07.2016
-
-Время и Стекло - #Глубокий дом (2015) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Имя 505 [03:26]
-02. Ритм 122 [04:24]
-03. Опасно 220 [02:57]
-04. Песня 404 [03:34](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F60D49466ADA2FB24418A17B4648BE504B0055E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523965   (614947) от 17.07.2012
-
-На-На - Лучшая Коллекция (2012) [MP3|320 кб/с]<Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я люблю тебя
- 02. Эксимос и папуас
- 03. Эй,санам
- 04. Соловей-разбойник
- 05. Не знаю
- 06. Месяц май
- 07. Рыбка моя
- 08. Бабушка Яга
- 09. Чудная
- 10. Фаина(   Читать дальше...   )Жанр: РорПродолжительность: 01:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB90374355FA419D0702955521C5909B2525C2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

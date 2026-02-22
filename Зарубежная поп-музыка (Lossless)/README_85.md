@@ -1,3 +1,30 @@
+###  Публикация: 1194657   (154351) от 26.12.2017
+
+Magnus - Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer's Here
+02. PuppyЖанр: PopПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52D372E6EC232CB6B36F1F872C8CFFD2B80AC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347176   (154103) от 22.12.2019
 
 VA - Het Beste Uit De MNM 1000 (2019), 5CD [FLAC|Lossless|tracks + .cue] <Pop Rock, Electronic>
@@ -724,34 +751,6 @@ Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07CB357959481E9C5D3FE982301BB45BDD26232D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677723   (148910) от 19.11.2023
-
-Josh Groban - Closer (2003) 20th Anniversary Deluxe Edition, 2023, Reprise [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oceano [00:04:03]
-02. My Confession [00:04:58]
-03. Mi Mancherai (Il Postino)Жанр: PopПродолжительность: 01:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B705530AD2DEA635927812C2F5F2726F3D82FDA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

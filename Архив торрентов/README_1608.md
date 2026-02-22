@@ -1,3 +1,38 @@
+###  Публикация: 189595   (854948) от 10.04.2010
+
+Bobby Timmons - The Prestige Trio Sessions (1964) [FLAC|Lossless]<Hard Bop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. A Little Barefoot Soul 5’03
+2. Walkin'-Wadin'-Sittin'-Ridin' 7’45
+3. Little One 3’52
+4. Cut Me Loose, Charlie 4’45
+5. Ain't Thinkin' 'Bout It 8’49
+6. Nobody Knows The Trouble I've Seen 2’20
+7. Chun-King 6’30
+8. Walking Death 6’05
+9. O Grande Amor 6’52
+10. Gettin' It Togetha' 6’45(   Читать дальше...)Жанр: Hard Bop
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 190810   (854947) от 10.04.2010
 
 SiSoftware Sandra Professional Home/Business/Engineer Standard/Enterprise 2010 5.16.41 Retail [Multi/Rus]
@@ -683,32 +718,6 @@ Free File Recovery - бесплатная программа для восста
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305949   (854896) от 08.03.2011
-
-[Wallpapers] Обои для рабочего стола 1920x1080
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5955C1559D985FF3194BD34296E69DFCCFC4DD44
 ```
 
 https://mybot314.ru/tekegram_catalog/

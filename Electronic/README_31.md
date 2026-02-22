@@ -1,3 +1,380 @@
+###  Публикация: 1454470   (1026408) от 14.03.2021
+
+VA - Trans-Global Excess, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boytronic - You Can't Get Fooled by Love (Remix) (5:13)
+02. Italove - Soldiers of Love (2012 Demo) (3:19)
+03. Italoconnection - Now or Never (Naked Mix) (4:40)
+04. The Hooligan - If There Was No Gravity (4:24)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD09962DF6EE560E7C501D32ACE23A3ABFB49DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454467   (1026402) от 14.03.2021
+
+VA - Miami Cyber Nights, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyper - Silo (3:12)
+02. Magic Sword feat. Droid Bishop - Super Nova (4:07)
+03. Peter Zimmermann - Mr. Robot (5:18)
+04. NINA feat. LAU - Synthian (4:21)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B102EA6106673A27076BA403016AFD495E5B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454060   (1026397) от 14.03.2021
+
+Tricky - Fall to Pieces (Remixes) (2021) EP [MP3|320 Kbps] <Trip-Hop, E﻿lectronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like a Stone (trentemøller Remix) [00:03:40]
+02. Fall Please (Kahn Remix) [00:05:38]
+03. I'm in the Doorway (LA Timpa Remix) [00:05:12]
+04. Vietnam (Lafawndah Remix) [00:03:25]Жанр: Trip-Hop, E﻿lectronicПродолжительность: 00:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7F3F1A9098C3894C0ED8D5F0F8CF03BA6700B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454461   (1026388) от 14.03.2021
+
+ScAnDroid Experiment's - Pacification (2021) авторская раздача [MP3|320 Kbps] <Experimental, Lo-Fi>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. You Need Peace of Mind
+03. The Fear Receded
+04. Quiet Relaxation(   Читать дальше...   )Жанр: Experimental, Lo-FiПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31349EE500AEB860D82550C169BD33A134C82090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454646   (1026265) от 15.03.2021
+
+VA - Klubb House 2006. Tribal House 2 (2006) [FLAC|Lossless|image + .cue] <Tribal House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pole Pole - Black House [5:02]
+02. Ottomix Feat. Mc Dilly - Raccasex (Dub Mix) [3:25]
+03. Togo - Chlorophyl (Original) [4:30]
+04. Etna - Paradise Tonc (Paradise Mix) [5:54](   Читать дальше...   )Жанр: Tribal HouseПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12C7166591DB03D369F919E7052B05FDE725565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454550   (1026249) от 15.03.2021
+
+VA - Synthpop Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave, Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Classix Nouveaux - Never Never Comes
+02. Talk Talk - Without You
+03. a-ha - Love Is Reason
+04. Kissing The Pink - Never Too Late to Love You(   Читать дальше...   )Жанр: Synthpop, New Wave, PopПродолжительность: 02:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEB38EF2B64D825A196B50B85F01D945C84FE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454849   (1026151) от 16.03.2021
+
+Multiplex - Discography 10 Releases (1997-2006) Toytronic, U-Cover [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Leftfield, Abstract, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Macao (05:00)
+ 02. My Synthesiser (04:50)
+ 03. Lito : A (04:17)
+ 04. Momensch (06:29)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Electro, Leftfield, Abstract, Ambient •Продолжительность: 07:39:34 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5E26D5937A3990C07DA4D4903A8393EBC9B1AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454660   (1026142) от 16.03.2021
+
+Synth Elements - View from Outer Galaxy (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Games (6:52)
+02. Giant Robots (7:21)
+03. Man Machine (5:50)
+04. We Are Generation of Space (5:55)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C266677AF3FA28B74C39A8C8A3E6A7DB8E697C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454658   (1026141) от 16.03.2021
+
+Synth Elements - The Illusion of Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity Zero (6:44)
+02. Journey Between the Stars (6:26)
+03. X Force (6:39)
+04. Summer Holiday (6:31)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E4B1A950760860862154AABDBFFDC20A6A08A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454858   (1026140) от 16.03.2021
+
+VA - Table Of Elements Volume 5​.​0 (2021) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nearfield - Beauty Of The Sea World (06:01)
+02. DEF - Astiiroid (05:40)
+03. Lith - Kaazar (04:28)
+04. C.H. District - Modular Live From Studio (Excerpt) (14:15)(   Читать дальше...   )Жанр: IDM, Industrial, AmbientПродолжительность: 02:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBC490F084B835526EEB2D83C3B3B3335A05B30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454659   (1026137) от 16.03.2021
+
+Synth Elements - The Illusion of Time (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity Zero (Extended Mix) (7:16)
+02. New Travel (Bonus Remix) (5:56)
+03. Love Bigger Than Space (Extended Mix) (7:18)
+04. Cosmological (Remix) (6:47)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3ED5093820F270376CC6F6A3E0A349A22F7B876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454661   (1026133) от 16.03.2021
+
+Synth Elements - Fifth Element (2017) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of the Maze (6:32)
+02. Visions (6:00)
+03. Blind Cosmos (6:26)
+04. Misterious Book (6:45)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81862E18E2D7A006CA7AF6EA08C42674123FAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454728   (1026110) от 16.03.2021
+
+dISHARMONY - Resonance (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL] <Industrial, IDM, Dark Electro, EBM, Ambient>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evacuation (01:37)
+02. Frozen Faces (Edit) (06:10)
+03. I'll Find The Way (03:27)
+04. Mantra (01:40)(   Читать дальше...   )Жанр: Industrial, IDM, Dark Electro, EBM, AmbientПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07512CCF33860E41FDD41CEF1CA8F0C431009644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454875   (1025995) от 17.03.2021
 
 Mono Peninsula - Archangelsk (2021) ROHS! Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Dub>
@@ -365,381 +742,6 @@ Jeff McIlwain (L'usine, Lusine, Lucine Icl, Lusine Icl., Lucine ISL) - Discograp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48CA46E7051BB78DBB2A45171C345BF6DEC9CCDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455466   (1025649) от 19.03.2021
-
-VA - Visions of Silence: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup - Missing U (Instrumental Mix) (05:09)
-02. Jero Nougues - Sol Y Mar (04:30)
-03. Finland & Aaskoven - The Waterfalls (04:50)
-04. Marga Sol - Calma (05:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5329F9F11B32332979372EEF077FFF39901A9788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455532   (1025631) от 19.03.2021
-
-VA - Future Symptoms Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winslow - Amore (05:28)
-02. Mozey, Shady Novelle - Sometimes (04:56)
-03. Villem, Alpha Rhythm - The Maker (05:43)
-04. Zeitgeist, Nia Archives - Move On (03:46)Жанр: Drum & BassПродолжительность: 00:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C24E9A604F7BD35E4839C159E4CD1EEA81C91D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455815   (1025483) от 20.03.2021
-
-[ШтуRм] - Финал (2021) [MP3|320 Kbps] <Millitary EBM, Dark Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Жизнь из железа [00:04:34]
-02 - Зомби-бомбы [00:04:36]
-03 - Мир в зеркалах [00:05:04]
-04 - Ночные дожди [00:05:04](   Читать дальше...   )Жанр: Millitary EBM, Dark ElectroПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C062E106ECB393DFDFD5BEC2580C8416B4EF3408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456262   (1025310) от 21.03.2021
-
-Marsh - Lailonie (The Remixes: Part 1-2) (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Healer (Guy J Remix) (3:45)
-02. My Stripes (Braxton & Marsh Remix) (3:57)
-03. Florence (Wassu Remix) (4:00)
-04. Florence (Elif Remix) (4:48)(   Читать дальше...   )Жанр: Melodic House & Techno |Продолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69A9ED765965D8ECDC817402AB7416E99F7DF3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456108   (1025295) от 21.03.2021
-
-VA - Black Hole Trance Music 03-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BT & Matt Fax feat. Nation Of One - Walk Into The Water (Craig Connelly Extended Remix) 7:46
-02. Eximinds & Gallen Rho - Within Starlight (Extended Mix) 4:24
-03. Markus Schulz & Christina Novelli - Not Afraid To Fall (Markus Schulz Escape Mix) 4:22
-04. HALIENE - Walk Through Walls (MaRLo Extended Remix) 5:03(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9730A3A9BDABDABB1F807D7CF1F33CA13730782A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456278   (1025288) от 21.03.2021
-
-VA - Espectrum II: The Avantroots Dub Techno Compilation (2021) AvantRoots [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Segue - Stepping Up (06:36)
- 02. Pulshar - Accept Fate (05:53)
- 03. Sibling - Tunnel Vision feat. Drhamer (06:17)
- 04. Beat Pharmacy - Hemp Dub (06:37)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Deep TechnoПродолжительность: 01:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72AA362B90FC37871C9562E5CC5EF16F7B7C09A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321792   (1025284) от 21.03.2021
-
-Jon Gaiser | Void | Fraktion  - Discography 20 Releases (2006-2017) M_nus [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Never Works (06:47)
- 02. Disleb (07:03)
- 03. Acidrop (05:55)Тип издания: CD, WEBЖанр: Techno/MinimalПродолжительность: 00:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9F51877122E37E20387A9651BE004D3EC6378D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175017   (1025245) от 21.03.2021
-
-D.Å.R.F.D.H.S. (D.A.R.F.D.H.S.) - Discography 13 Releases (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Ambient, Industrial, Dark Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Självbedrägeri (04:19)
- 02. Andens Desperata Framåtanda (07:05)
- 03. Dödsuppväckningar (04:07)
- 04. Vaneföreställningsvärlden (03:53)(   Читать дальше...   )Тип издания: WebЖанр: Experimental, Techno, Ambient, Industrial, Dark Ambient •Продолжительность: 09:19:18 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B8EC15B9415A913054BFE5EDD0FAF6F2FD6A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456462   (1025129) от 22.03.2021
-
-4T Thieves and Friends - Liminal Space - The Remixes (2021) Kahvi Collective [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brioskj - Nuances (06:59)
- 02. Audio Cephlon - Nuances (04:54)
- 03. Mr Ventham - Liminal Spaces (07:10)
- 04. aAirial - Aesthetic Preservation (03:44)(   Читать дальше...   )Жанр: IDM, Glitch, Downtempo, AmbientПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D09A4E34D9EAE4A96BE9C8B3DA0DEFE3A2BF74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456359   (1025095) от 22.03.2021
-
-VA - Electro Workout 2021: Motivation Training Music [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Rodrigezz - Tom's Diner (Original Mix) (02:25)
-02. Stephan F - New Spirit (Original Mix) (02:59)
-03. Turbotronic - Love Me (Original Mix) (03:13)
-04. MaxRiven - Kernkraft 400 (Original Mix) (02:45)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811476F279EC0D19996D332232A8174DC85CA218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258530   (1025089) от 22.03.2021
-
-Martin Abrahamsson (Bauri, Deltidseskapism, Stalaktiten Och Mirjam) - Collection 8 Releases (1998-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Ambient, Techno, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Konstangest (00:27)
- 02. Tysk Ubat (03:43)
- 03. Pingis (03:35)
- 04. Golvmopp (01:45)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Glitch, Ambient, Techno, Experimental •Продолжительность: 05:39:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4305621C281F98FBC4A8A8E4322C4A556E29BC48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406503   (1025082) от 22.03.2021
-
-Osamu Sato | 佐藤理 - Discography 18 Releases (1983-2020) Sony, Music Mine, Linen Records [FLAC|Lossless|tracks+.cue, tracks] <Experimental, IDM, Future Jazz, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monaural 808 (Mono Mix) (00:52)
- 02. Piano 808 (Mono Mix) (04:39)
- 03. I Want You 808 (Extended Mono Mix) (03:53)Тип издания: CD, Web, Vinyl, CassetteЖанр: Experimental, IDM, Future Jazz, Ambient •Продолжительность: 17:16:12 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31021F0CDDFA1FE44F56B737F4C542D109307EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 202238   (1025025) от 22.03.2021
-
-Goldfrapp - Head First (2010) [FLAC|Lossless|tracks + .cue]<Electro, Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocket 3:51
-02. Believer 3:43
-03. Alive 3:28
-04. Dreaming 5:07(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B733A970C18A9BD99578924D74D11F5C990F2C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

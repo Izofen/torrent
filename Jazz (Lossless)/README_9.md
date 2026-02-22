@@ -1,3 +1,32 @@
+###  Публикация: 1447259   (1031929) от 13.02.2021
+
+Charlie Christian - Jazz Guitar Hero (1939 - 1941) 2010, Grammercy Records [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ad Lib Blues [3:20]
+02. Flying Home [3:08]
+03. Dinah [2:56]
+04. Sheik of Araby [3:52](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331369372237C688EA1E90BB930DA2B8E472C5F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620642   (1031903) от 21.03.2023
 
 Dave Brubeck - Greatest Hits (1967) 1987, CBS [FLAC|Lossless|tracks + .cue] <Cool>
@@ -717,35 +746,6 @@ Wynton Marsalis - Thick In The South: Soul Gestures in Southern Blue, Vol. 1 (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4A092FC2102CB417682BD8A95FF18C422E659A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622526   (1030022) от 29.03.2023
-
-Harry Edison - Three Classic Albums Plus (1956 - 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Trumpet Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues For Piney Brown [7:42]
-02. Blues For The Blues [4:53]
-03. Blues For Bill Basie [9:34]
-04. Gee, Baby Ain't I Good To You [3:35](   Читать дальше...   )Жанр: Swing, Trumpet JazzПродолжительность: 02:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1977384F88DCFF67FE57F38C528CB3760D6E082B
 ```
 
 https://mybot314.ru/tekegram_catalog/

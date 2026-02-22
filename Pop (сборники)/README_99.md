@@ -1,3 +1,32 @@
+###  Публикация: 960139   (309449) от 27.11.2015
+
+C.C.Catch - Сборник песен (2015) [MP3|320 кб/с]<Pop, Eurodance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smokey Joe's Cafe
+02. Soul Survivor
+03. Soul Survivor '98 (New Vocal Version)
+04. Soul Survivor '98 (Rap Version)(   Читать дальше...   )Жанр: Pop, Eurodance, DiscoПродолжительность: 03:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092C6A9C980BBF0EBE892DC487FA0D670781FEE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076563   (309269) от 27.11.2016
 
 VA - German Top 100 Single Charts 25.11. (2016) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - 200 Popular November Songs (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE510E4D2C85EF734EDA7ACE7C82C2571773D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961378   (298557) от 02.12.2015
-
-VA - Pioneer Studio 33,5 - Disco СССР 3 (2015) [MP3|192 кб/с]<Pop, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Tracking - Вампир
-02. Fancy - Прикосновения
-03. Savage - Только ты
-04. Bad Boys Blue - Тает вечер(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D67EFA381E8F7B61257E9A8ED47E7CC9D7825DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1363279   (943818) от 27.02.2020
+
+Футбол. Лига Чемпионов УЕФА 2019-2020. 1/8 Финала. 1-й матч. Наполи (Италия) — Барселона (Испания) (2020) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лига Чемпионов УЕФА 2019-2020. 1/8 Финала
+25 февраля 2020, вторник. 23:00 МСК. 1-й матч:
+Наполи (Неаполь, Италия) — Барселона (Барселона, Испания)
+Стадион: Сан-Паоло (Неаполь, Италия), 44388 зрителей (74 % при вместимости 60240)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C814A83F7E83977BAC61059F197B1667AD1C0EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 626311   (943806) от 05.03.2013
 
 ManyCam Pro 3.1.43.4086 [Multi/Русский]
@@ -702,41 +731,6 @@ Tab Benoit - Power of the Pontchartrain (2007) [FLAC|Lossless]<Blues, Louisiana 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 282404   (943715) от 15.01.2011
-
-VA - Dash Berlin Top 15 - January (14-01-2011) [MP3|256 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Filo & Peri feat. Audrey Gallagher - This Night (Dash Berlin Remix) 6:50
-02. Hoyaa - The Other World (Original Mix) 7:33
-03. Susana & Josh Gabriel - Frozen (Nic Chagall Remix) 8:19
-04. AndrΘ Visior & Kay Stone - Sunrise (Ronski Speed Remix) 8:42
-05. Signum feat. Kate Louise Smith - Liberate (Original Mix) 7:01
-06. Oliver Smith - Chordplay (Original Mix Edit) 4:56
-07. Fabio XB feat. Yves De Lacroix - Close To The Stars (Jerome Isma-Ae Remix) 7:26
-08. Ruben de Ronde - Forever In Our Hearts (Danny Chen Remix) 7:30
-09. TyDi feat. Tania Zygar - Half Light (Max Graham Remix) 7:10
-10. Airdraw - Jubilee (Original Mix) 7:25(   Читать дальше...)Жанр: TranceПродолжительность: 01:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3772F07FDADA0F3E0C7E4E2CD97D8CFD14AA07C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

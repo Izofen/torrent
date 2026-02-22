@@ -1,3 +1,90 @@
+###  Публикация: 902759   (660282) от 29.05.2015
+
+Billie Holiday - Cheek To Cheek (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheek to Cheek [03:31]
+02. Let's Call the Whole Thing Off [03:23]
+03. A Fine Romance [03:32]
+04. April in Paris [03:01](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221B1BF0F201C2B597BDE4D0A30388D612DD37E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139382   (660277) от 02.06.2017
+
+Tom Schuman - Designated Planets (2013) Jazzbridge Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Designated Planets [04:34]
+02. A Piece Of Me [04:01]
+03. Against The Odds [04:52]
+04. Sweet Surrender [04:25](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0A9495086405EDBB7CF9654B184C4E6F7F5AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902849   (660227) от 29.05.2015
+
+Jaga Jazzist - Starfire (2015) [MP3|320 кб/с]<Electronic, Experimental, NuJazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starfire
+02. Big City Music
+03. Shinkansen
+04. Oban(   Читать дальше...   )Жанр: Electronic, Experimental, NuJazzПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88069EDE003A1B60C06D97D706A104ADA130AABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902771   (660226) от 29.05.2015
 
 Bill Evans - Autumn Leaves (1969) /2015, Studio Songs Japan/ [FLAC|Lossless]<Post-Bop>
@@ -676,92 +763,6 @@ The Robbie McIntosh Band - Emotional Bends (2000) [APE|Lossless|image + .cue] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDDA9359D8CCB704E418E9A70F998FFEA9B9B666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139998   (658220) от 04.06.2017
-
-Sandi Thom - Merchants And Thieves (2010) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maggie McCall  (03:47) 
-02. Runaway Train  (04:25) 
-03. Gold Dust  (03:48) 
-04. Let It Stay  (04:35) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130DCA0343E0BC94D885A99C25870E90019AF7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139990   (658215) от 04.06.2017
-
-The Kentucky Headhunters & Johnnie Johnson - Meet Me in Bluesland (2015) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658215.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stumblin'  (03:08) 
-2. Walking With The Wolf  (03:28) 
-3. Little Queenie  (03:31) 
-4. She's Got To Have It  (03:18) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5874BB81D1D46C8B2CBBBF175BEFB3BC41EE5C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903466   (658173) от 31.05.2015
-
-Frank Lowe - Black Beings (2008) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Trane's Name [33:28]
-02. Brother Joseph [04:45]
-03. Thulani [22:11]Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2916DD1EF1B88D77805FC3D1E560B44976F4CBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

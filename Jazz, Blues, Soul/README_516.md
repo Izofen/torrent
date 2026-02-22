@@ -1,3 +1,32 @@
+###  Публикация: 1354773   (126021) от 25.12.2023
+
+Bryan Lee - 14 Albums (1991 - 2018) [FLAC|Lossless|tracks + .cue|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот замечательный блюзовый артист, певец и гитарист, хотя и родился в Висконсине 16 марта 1943 года, но так долго работает в Новом Орлеане, что стал его неотъемлемой музыкальной достопримечательностью. Bryan Lee, его еще знают под псевдонимами Braille Blues Daddy, потерял зрение в 8 лет, работал в баре Old Absinthe House на Бурбон Стрит во Французском квартале с (   Читать дальше...   )Список альбомов:
+1991 - The Blues Is
+1993 - Memphis Bound
+1994 - Braille Blues DaddyЖанр: Modern Electric BluesПродолжительность: 14:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262DFE845C5227717E72566231A683114704B5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686899   (125760) от 25.12.2023
 
 Misuria - Saint Thomas Stories (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ Frank Sinatra - Under The Mistletoe (2001) Direct Source Special Products [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4113F6501BE561F38BDFF670BE64A68AA23AB492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687373   (125424) от 27.12.2023
-
-VA - It's a Groovy Thing! Vol. 4 (The Amazing Jazz Funk Instrumental Sound) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Smoke Orchestra - No Way (5:08)
-02. Vito Lalinga (Vi Mode Inc. Project) - Express Yourself (4:50)
-03. Fusion Funk Foundation - Warm Floor (5:50)
-04. The Soultrend Orchestra - Speed Date (3:28)(   Читать дальше...   )Жанр: Jazz, Funk, Acid JazzПродолжительность: 01:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687BE8DBE98008EDF11F6EBEA1367297C9C6F6EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

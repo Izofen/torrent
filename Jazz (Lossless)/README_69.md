@@ -1,3 +1,33 @@
+###  Публикация: 875166   (859574) от 05.03.2015
+
+Joni James - Dream A Little Dream Of Me (2015) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Dream A Little Dream Of Me (02:34)
+002. All Or Nothing At All (03:21)
+003. JI Love You Much Too Much (03:05)
+004. There Will Never Be Another You (03:00)
+005. Can't Get Out Of This Mood (01:44)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F63417C7DF3A11431A23B6EAA7D6BED88B06999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109373   (859212) от 27.02.2017
 
 Miguel Zenon - Tipico (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary Jazz, Post-Bop, World Fusion>
@@ -756,41 +786,6 @@ Najee - The Best of Najee (1998) [FLAC|Lossless]<Jazz Instrumental>
 08. Day By Day [05:05]
 09. Betcha Don't Know [05:49]
 10. Have You Ever Loved [05:22](   Читать дальше...   )Жанр: Jazz InstrumentalПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305283   (857111) от 07.03.2011
-
-Tony Monaco - A New Generation (2003) [FLAC|Lossless]<Jazz, Hammond B-3>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Pasta Faggioli (Monaco) [6:27]
-02. Homily (Monaco) [6:24]
-03. Katarina's Prayer (Monaco) [5:58]
-04. Flat Tire (Monaco) [6:13]
-05. Mona Lisa (Evans, Livingson) [5:34]
-06. Mozzarella (Monaco) [6:52]
-07. Aglio E Olio (Monaco) [4:01]
-08. Oh Marie (DiCapua, Prima) [5:02]
-09. Waltz of the Angels (Monaco) [2:20]
-10. Interview With Pete Fallico's Doodlin LoungeЖанр: Jazz, Hammond B-3Продолжительность: 00:50:19
 
 ## Скачать торент
 ```bash

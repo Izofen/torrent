@@ -1,3 +1,90 @@
+###  Публикация: 1105398   (876745) от 17.02.2017
+
+Thad Jones & Mel Lewis - Quartet (1977) 1989, A&M Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.But Not For Me [16:56]
+ 02.This Can't Be Love [04:12]
+ 03.Autumn Leaves [15:34]
+ 04.What Is This Thing [05:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AA3900F4E26A8CFC2F10E0F45153CBB5431935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105419   (876744) от 17.02.2017
+
+Denny Zeitlin - Zeitgeist (1967) Remaster, 2015, Sony Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dormammu [06:42]
+ 02.Put Your Little Foot Right Out [03:16]
+ 03.The Hyde Street Run [02:22]
+ 04.Here's That Rainy Day [03:51](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B902E541AFC74F79A23E1C67F579950AE2EC3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105032   (876743) от 17.02.2017
+
+Art Pepper - Modern Art, Vol.2 (1956, 1957) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues In [06:04]
+ 02.Bewitched, Bothered And Bewildered [04:28]
+ 03.Stompin' At The Savoy [05:07]
+ 04.What Is This Thing Called Love [06:08](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF49E572259DB91ABD417F7CBF07FEA600C90291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105037   (876742) от 17.02.2017
 
 Art Pepper - The Art Of Pepper, Vol.3 (1957) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
@@ -725,111 +812,6 @@ Ken Peplowski - In Search of (2011) [FLAC|Lossless]<Mainstream Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A1C8326A693B9C666AAAD963C84646792FEF53C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765184   (876454) от 11.03.2014
-
-Julian & Roman Wasserfuhr - Running (2013) [FLAC|Lossless]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Weary Journey
- 02. Bachelor (Over The Ear Look)
- 03. Behind Blue Eyes (Pete Townshend)
- 04. Adonis
- 05. Stoned Remote
- 06. Nowhere Man (Lennon/McCartney)
- 07. 7 Gegner
- 08. Rocholz-Korosak
- 09. Go On
- 10. Joy And Sorrow(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD1290B16C7E082CF2F2C0E8602EE852997CAE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765401   (876453) от 11.03.2014
-
-Ken Peplowski - Maybe September (2013) [FLAC|Lossless]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. All Alone by the Telephone - 4:58
- 02. Moon Ray - 7:33
- 03. Always a Bridesmaid - 5:31
- 04. (Now and Then There's) A Fool Such as I - 6:44
- 05. Romanza - 4:47
- 06. Caroline, No - 7:58
- 07. For No One - 1:58
- 08. I'll String Along With You - 6:48
- 09. Main Stem - 5:24
- 10. Maybe September - 8:15(   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23771F88EBD73DA65AA1CD9C3ABE491D409CFB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765390   (876452) от 11.03.2014
-
-Kenny Wheeler, Norma Winstone, London Vocal Project - Mirrors (2013) [FLAC|Lossless]<Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Humpty Dumpty
- 02. The Broken Heart
- 03. The Lover Mourns
- 04. Black March
- 05. Through The Looking Glass
- 06. The Hat
- 07. Breughel
- 08. Tweedledum
- 09. The Bereaved Swan
- 10. The Deathly Child(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5F81C60CB1AC8482275435BFC94D1AC609B1B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1067977   (383355) от 31.10.2016
+
+Engage The Unseen - A Storm Is Coming (2016) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Storm Is Coming 03:21
+02. All in Blind 03:55
+03. Primal 03:52
+04. Getting Filthy 03:46(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4EF505EDAAB6E6AE9A853DA277C8AA52AF2C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068228   (383256) от 31.10.2016
 
 Alligator Rodeo - Alligator Rodeo (2016) [MP3|320 Kbps] <Sludge, Stoner Metal>
@@ -722,35 +751,6 @@ LunariaN - Burn the Beauty (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5392FF33D9F302F1CEA7291B6359FC2A89F5261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415084   (379250) от 11.10.2020
-
-Hexer - Realm of the Feathered Serpent (2020) [MP3|320 Kbps] <Doom Metal, Sludge Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethereal Blitz [00:07:30]
-02. Jaguar Knight [00:07:20]
-03. River of Blood [00:07:41]
-04. Miasmic [00:00:46](   Читать дальше...   )Жанр: Doom Metal, Sludge Metal, Black MetalПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D708B789CE54D59746C75D4D4A907F770596688C
 ```
 
 https://mybot314.ru/tekegram_catalog/

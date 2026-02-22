@@ -1,3 +1,32 @@
+###  Публикация: 850750   (283742) от 04.11.2019
+
+Александр Градский - Поёт Александр ГРАДСКИЙ (2008) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание представляет собой оцифровку с оригинальных студийных записей фирмы Мелодия разных лет. На сборнике проявились не только исключительные вокальные данные и высочайший профессионализм Александра Градского, но и его личность, то особое место, которое он занимает в современной российской музыке01.  Любовь (А. Градский - Б. Окуджава)
+02.  Песня о дружбе (А. Градский - Б. Окуджава)
+03.  Песня о птицах (А. Градский - Н. Глазков)
+04.  Песня о матери (А. Градский - Н. Кончаловская)(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B236ED54FAAC519A7303A459149A276B7505D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336159   (282394) от 05.11.2019
 
 Catharsis - Зеркало Судьбы (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -740,35 +769,6 @@ Symfomania - Aria (2010) [FLAC|Lossless]<Symphonic Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190842   (265990) от 11.12.2017
-
-Аспид - Extravasation (1992) Limited Digipak Edition, Reissue, Remaster, 2015, Metal Race [FLAC|Lossless|image + .cue] <Technical Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [02:32]
-02. It Came (Aspid) [07:40]
-03. Towards One Goal [05:59]
-04. Give Me (Play for a Ballet) [08:40](   Читать дальше...   )Жанр: Technical Thrash MetalПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDBF270D76FCA677FC31DE40E263BF743BEE321
 ```
 
 https://mybot314.ru/tekegram_catalog/

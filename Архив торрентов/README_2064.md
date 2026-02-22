@@ -1,3 +1,32 @@
+###  Публикация: 1213683   (767304) от 18.03.2018
+
+VA - Beautiful Songs For You Vol.20 (Compiled by Виктор31Rus & Людмила Light) (2018) [MP3|320 Kbps] <Romantic Ballads>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bryan Adams  -  Have You Ever Realy Loved A Woman  4:52
+02.  Eagles  -  Please Come Home For Christmas  2:59
+03.  Leonard Cohen  -  The Future  6:42
+04.  Michael Learns To Rock  -  That's Why You Go Away  4:11(   Читать дальше...   )Жанр: Romantic BalladsПродолжительность: 04:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA08D6826B1E0F7838E66BA290CA21A0166C398B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213714   (767296) от 18.03.2018
 
 Adobe Dreamweaver CC 2018 v18.1 [Multi/Ru]
@@ -678,32 +707,6 @@ Universal Share Downloader - это программа для скачивани
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77C41C630E6081B108BF1CF4FB486815325D4880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126052   (767084) от 16.04.2017
-
-Allavsoft Video Downloader Converter 3.14.3.6315 RePack by вовава [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Downloader Converter - это программа от Allavsoft, которая поможет вам скачать видео с разных специализированных сайтов, на странице разработчиков, утверждается, что работает софт более чем с сотней разных видео-хостингов. Эта была первая фишка программы, дальше идет процесс конвертирования, после того как вы загрузили ролик, его можно конвертировать в разные (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA2FC8893610D3C8F357FE3B53D940D4805C6E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

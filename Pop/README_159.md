@@ -1,3 +1,119 @@
+###  Публикация: 1550947   (591195) от 13.05.2022
+
+Charli XCX - Crash (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash (2:11)
+02. New Shapes (3:20)
+03. Good Ones (2:17)
+04. Constant Repeat (3:09)(   Читать дальше...   )Жанр: ElectropopПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39760FC12E827613FE69CD7C6B99FFBD42806D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916692   (590399) от 09.07.2015
+
+Sky Ferreira - Night Time, My Time (2014) Limited Edition 2CD [OGG|458-572 кб/с]<Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590399.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Boys
+02. Ain't Your Right
+03. 24 Hours(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39D90D7ADF36D65470D0F23377E1FB0584F643C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916707   (590381) от 09.07.2015
+
+VA - Tango & Beatles (2012) [MP3|320 кб/с]<Argentina Tango, Covers>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tango Tripping Project feat. Ituana - Michelle [03:02]
+02. Le Griser feat. Dew - Dear Prudence [04:28]
+03. Meloscience Corp. - Come Together [04:39]
+04. Corcovado Frequency - Oh! Darling [03:32](   Читать дальше...   )Жанр: Argentina Tango, CoversПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CCEDAB1962EF12C740D4271B3ED768EF214A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916816   (590380) от 09.07.2015
+
+Years & Years - Communion (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foundation
+ 02. Real
+ 03. Shine
+ 04. Take Shelter(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720634245003C4A18823E9A4FDCA6E83A07FB72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916686   (590303) от 09.07.2015
 
 Валерий Сюткин & Light Jazz - Москвич (2015) [MP3|320 кб/с]<Pop, Jazz>
@@ -647,128 +763,6 @@ K.B. Caps - Catch Me Now I'm Falling (2005) [MP3|320 кб/с]<Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7543CA5C5C8BF87FB04006D5035A65AF574E7856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809257   (588339) от 31.07.2014
-
-K.B. Caps - Catch Me Now I'm Falling (2005) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Really Need Me? (maxi mix)
-02. Catch Me Now I'm Falling
-03. Julia (maxi mix)
-04. Dancing In The Dark
-05. Angel Of The Dreamland (extended version)
-06. Wait, Baby, Wait
-07. Do You Really Need Me? (original version)
-08. Julia (funk b-mix)
-09. Catch Me Now I'm Falling (instrumental)
-10. Dancing In The Dark (crazy version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA502B0D44C9C79436174333E9FDAFDAEEA09D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918180   (587993) от 14.07.2015
-
-Life In Film - Here It Comes (2015) Deluxe Version [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alleyway
-02. Set It Off
-03. Are You Sure?
-04. Lose Control(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0239846A9DF7968B5E4E56F766E70416306617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918184   (587987) от 14.07.2015
-
-VA - Super Vara 2015 (2015) [FLAC|image + .cue]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587987.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-
-01.Amna feat. Glance - Evacuat (4:16)
-02.Anda Adam feat. CRBL - Seri de mai (3:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F317E36127C418FC4C401BB5899FE67238918C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918249   (587938) от 14.07.2015
-
-VA - Women’s Stories (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sade – Smooth Operator
-02. Annie Lennox – Why
-03. Beverly Craven – Promise Me
-04. Celine Dion – My Heart Will Go On(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FC6EDC1B4229AC59193BD4DF0665BBF52257D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

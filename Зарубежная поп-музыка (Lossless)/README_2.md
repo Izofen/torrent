@@ -1,3 +1,32 @@
+###  Публикация: 1614342   (1038831) от 21.02.2023
+
+VA - Trending Top Hits Now! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Uzi Vert - Just Wanna Rock (2:03)
+02. Lizzo - Special (feat. SZA) (2:54)
+03. Ed Sheeran - Celestial (3:29)
+04. Bruno Mars - After Last Night (feat. Thundercat & Bootsy Collins) (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE6422C6E6ACC4219A33BB74166AA2CE491C68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440366   (1038799) от 17.01.2021
 
 VA - Pop Acoustic 00's (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -715,35 +744,6 @@ VA - Acoustic Versions of Pop Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED2D8947FDDB4E485A2FEF0A3B58AE682D322DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618182   (1034298) от 10.03.2023
-
-Miley Cyrus - Endless Summer Vacation (2023) [FLAC|Lossless|WEB-DL|tracks] <pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowers [00:03:20]
-02. Jaded [00:03:05]
-03. Rose Colored Lenses [00:03:43]
-04. Thousand Miles (feat. Brandi Carlile) [00:03:51](   Читать дальше...   )Жанр: popПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E62164876C0AB013CD2E3D4E5EE832FE23CC36
 ```
 
 https://mybot314.ru/tekegram_catalog/

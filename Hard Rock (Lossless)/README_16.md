@@ -1,3 +1,32 @@
+###  Публикация: 1090854   (944367) от 08.01.2017
+
+Black Star Riders - The Killer Instinct (2015) Deluxe Edition, 2CD [FLAC|Lossless|tracks]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944367.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:32] 01. The Killer Instinct
+[04:54] 02. Bullet Blues
+[03:56] 03. Finest Hour
+[04:49] 04. Soldierstown(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31064ED36719CD2432492C35E2C24D8BEC247D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983426   (943782) от 06.02.2016
 
 Nordic Union - Nordic Union (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -770,41 +799,6 @@ Shakra - Mad World (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A6FA93DE2CB19B576210A77665E5E226FDCEB9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629885   (930332) от 14.03.2013
-
-Michael Katon - 10 альбомов (1988-2007) [FLAC|Lossless]<Hard Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1988 - Proud To Be Loud (2006)
-1992 - Get On The Boogie Train
-1994 - Rip It Hard
-1996 - Bustin Up The Joint - Live
-1996 - Rub (2006)
-2000 - The Rage Call Rock'N'Roll
-2002 - Bad Machine (2005)
-2006 - MK
-2006 - Diablo Boogie
-2007 - Live & On The Prowl!Жанр: Hard Blues-RockПродолжительность: 09:32:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

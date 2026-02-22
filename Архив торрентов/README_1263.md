@@ -1,3 +1,38 @@
+###  Публикация: 763750   (885299) от 06.03.2014
+
+VA - Top 10 Trance (2014) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Rafael Frost - New York - Original
+002. Beat Service - Undercover - Original Mix
+003. Mike Shiver - Trouse - Original Mix
+004. Almer - Kobalt - D-Mad Remix
+005. Ayda - Illusion - Original Mix
+006. Dart Rayne - The Air - Original
+007. DJ Feel - Darklight - Original Mix
+008. Team Bastian - Innerface - MaRLo Remix
+009. Oen Bearen - Blast - Passenger 75's Turbulence Remix
+010. Alexander Turok - Destiny - Alexander Popov MixЖанр: TranceПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EF872C77968ACBBBDDD74DB5B27CB7E538AF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 763621   (885297) от 06.03.2014
 
 Witxes - A Fabric Of Beliefs (2013) [FLAC|Lossless]<Ambient, Experimental, Atmospheric, Drone>
@@ -712,32 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641137   (885227) от 08.04.2013
-
-Журнал | PC Advisor №215 (UK) [июнь 2013] [PDF] [En]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В журнале представлены обзоры различных устройств и компьютерных комплектующих и их сравнительные характеристики. Новости технологий и программного обеспечения. Советы профессионалов по ремонту и обслуживанию ПК.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C2090FC97A5171C8D5784BE7DEB337DCA15F96
 ```
 
 https://mybot314.ru/tekegram_catalog/

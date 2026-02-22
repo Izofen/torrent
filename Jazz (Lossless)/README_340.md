@@ -1,32 +1,3 @@
-###  Публикация: 1707801   (113229) от 18.03.2024
-
-Guadalquivir & Friends - Ole Corea! (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hymn of the Seventh Galaxy (4:59)
-02. Captain Senor Mouse (6:58)
-03. 500 Miles High (6:42)
-04. Nite Sprite (6:39)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD6C3DB943A48CE715E277C2161D76BD5D623B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707791   (113221) от 18.03.2024
 
 Chet Baker - Riverside Profiles (1958, 1959) 2CD, 2006, Riverside Records [FLAC|Lossless|tracks + .cue] <Cool, Bop>
@@ -743,6 +714,35 @@ Syd Lawrence And His Orchestra - The Big Sound Of Syd Lawrence And His Orchestra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A98166353610DFABD1456F4DF975DD2BEF5943D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709297   (112807) от 24.03.2024
+
+Buddy Rich - Giant Steps (1977) 2000, Point Entertainment [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment's Notice [5:30]
+02. Giant Steps [5:36]
+03. Buddy's Cherokee [7:31]
+04. Take the A Train [6:17](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC82696E37C0B5131D1879C70799B28F82AD759
 ```
 
 https://mybot314.ru/tekegram_catalog/

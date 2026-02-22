@@ -1,3 +1,32 @@
+###  Публикация: 977362   (965740) от 21.01.2016
+
+VA - DJ Soul Ballads vol.1 (2000) [APE|lossless|image+.cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whithey Houston - Exhale (Shoop Shoop)
+02. Mariah Carey feat. Boyz II Man - One Sweet Day
+03. Jon B. feat. Babyface - Someone To Love
+04. TLC - Red Light Special(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1935722C97B75471D9273C7655CFAAF3AA2D7AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977577   (965735) от 21.01.2016
 
 VA - Red Hot Hits (2005) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, House>
@@ -716,35 +745,6 @@ Allie X - Cape God (2020) [FLAC|Lossless|tracks] <Synth Pop,Indie-Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C46F97A782D7B30F6AD3CBFCB97BD03FE4E142E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858018   (951638) от 09.01.2015
-
-VA - Best Pop Ballads (1999) 2CD /Polymedia, LC 00136/ [FLAC|Lossless]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник от не очень известной фирмы Polymedia вобрал в себя наиболее известные лирические поп-произведения на момент своего издания (1999 год). Сегодня некоторые из них уже подзабыты, но большинство по прежнему звучат на многих поп и рок радиостанциях. Да и в личных коллекциях занимают не последнее место.CD2:
-01. Black - Wonderful Life  (4:48)
-02. Bonnie Bianco - Miss You  (4:54)
-03. Glenn Medeiros - Nothing's Gonna Change My Love For You  (3:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C675C19F59FA6E9B45DF630E51435F601D797905
 ```
 
 https://mybot314.ru/tekegram_catalog/

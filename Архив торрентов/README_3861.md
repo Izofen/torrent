@@ -1,3 +1,29 @@
+###  Публикация: 1177192   (364709) от 24.10.2017
+
+CCleaner 5.36.6278 Business | Professional | Technician Edition RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364709.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991D4EA05807EE7A5580B0BCFAB8D3E2347272A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 280669   (364699) от 24.10.2017
 
 DV: (BBC) История математики / The Story of Maths (2008) SATRip (4 серии из 4)
@@ -703,41 +729,6 @@ Butterfly - Favorite Colors Episode 058 (17.11.2012) [MP3|320 кб/с]<Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8C2CA77D6B088C00E46C109A187B5EA0AB3964F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576637   (364346) от 17.11.2012
-
-VA - Monster Tunes Autumn Collection (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364346.jpg" />
-</div>
-
-
-###  Подробнее
-
-[06:31] 01. Stannis - Sky Drops - Original Mix
-[07:44] 02. James Hannan - Borderline - Original Mix
-[07:44] 03. Ad Brown - Transmission - Original Mix
-[06:47] 04. Oza - Small Planet - Original Mix
-[07:40] 05. INCA - Three Sunrises - Original Mix
-[07:09] 06. Timur Shafiev - Can't Stop - Original Mix
-[07:43] 07. Mark Eteson - Universal Language - Tritonal Club Mix
-[07:43] 08. Corderoy - Mechanical Tears - Club Dub
-[07:06] 09. Cold Blue - Coconut - Original Mix
-[07:30] 10. Reorder - Sunrise - Original Mix(   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D281699D432CB905420D28FE4B054090E9EB9439
 ```
 
 https://mybot314.ru/tekegram_catalog/

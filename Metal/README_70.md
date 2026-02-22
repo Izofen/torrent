@@ -1,3 +1,32 @@
+###  Публикация: 1556502   (557187) от 11.06.2022
+
+Seventh Wonder - The Testament (2022) [Mp3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Warriors [00:04:42]
+02 - The Light [00:06:19]
+03 - I Carry the Blame [00:06:06]
+04 - Reflections [00:05:35](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDADFAF57B39DC18D3E44245D19F4A2B3C8C1D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556493   (557077) от 11.06.2022
 
 Kreator - Hate Über Alles (2022) [MP3|320 Kbps] <Thrash Metal>
@@ -716,35 +745,6 @@ Crystal Ball - Deja-Voodoo (2016) [MP3|320 Kbps] <Melodic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7E29078561B770B68025C9DECD19096EA11735C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 695243   (545665) от 30.08.2013
-
-Ministry - From Beer To Eternity (2013) Special Fanbox Edition [MP3|320 кб/с]<Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hail To His Majesty (Peasants)
-02. Punch In The Face
-03. PermaWar
-04. Perfect Storm(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F268B5461723698098328EB7B4DAD1ED1B08A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

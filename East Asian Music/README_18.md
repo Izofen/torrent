@@ -1,32 +1,3 @@
-###  Публикация: 962122   (296977) от 03.12.2015
-
-Younoumi - 15 альбомов (2008-2015) Touhou Vocal, KanColle /Doujin/ [FLAC|tracks] <J-Pop, J-Metal, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2013.12.30 (IOY-0016) Wadatsumi (C85)
-2014.12.29 (IOY-0019) Shigo Risutora ni au — God never knows, but you know me (C87)
-2015.08.14 (IOY-0020) Toho Warfare：BLACK SPARK (C88)Тип издания: DoujinЖанр: J-Pop, J-Metal, ElectronicФормат: Touhou VocalПродолжительность: 00:10:12:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28219604430450051D8DCDB3367C6C0D45E344F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334356   (296729) от 28.10.2019
 
 Cosmic Invention - Cosmorama (1981) Reissue CD, 1994, Victor [MP3|320 Kbps] <Electronic, J-Pop, Disco>
@@ -767,6 +738,37 @@ VA - Songs or Life. Collection (2006) [MP3|320 кб/с]<New age, Instrumental, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F90B2E2FEE9CCDE3329918B211CDE136E473CA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494419   (250790) от 10.05.2012
+
+Sambodhi Prem - 2 albums (1991, 2004) [MP3|320 кб/с]<New age, Relax>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(06:06) 01. Heart of the Forest
+(06:30) 02. Disappearance
+(10:34) 03. Source & Spirit
+(09:57) 04. Bubble of Joy - part 1
+(15:20) 05. Fleur deliss
+(06:49) 06. Bubble of Joy - part 21991, 2004Жанр: New age, RelaxПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4890DCAC4786921A981B8357D748A0586C8780
 ```
 
 https://mybot314.ru/tekegram_catalog/

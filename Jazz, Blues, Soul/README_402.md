@@ -1,3 +1,32 @@
+###  Публикация: 1192079   (263538) от 16.12.2017
+
+Lionel Hampton - Hamp's Blues & Flying Home (1969, 1974) 2CD, 1992, Lester Recording Catalog [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263538.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Hamp's Blues:
+01. Air Mail Special [06:48]
+02. E.G. [08:44]
+03. Psychedelic Sally [06:20](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340FB57A90D83041930EC9A377B872E182DF2D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191918   (263536) от 16.12.2017
 
 Earl Hines - Here Comes Earl 'Fatha' Hines & Spontaneous Explorations (1964, 1966) 2CD, 1993, Red Baron [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
@@ -716,35 +745,6 @@ Ralph Moore - Furthermore (1990) Landmark Records [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBDA0F6D156620AE893444A051D16D549A0D4746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192997   (262534) от 19.12.2017
-
-Tim Warfield - Tim Warfield's Jazzy Christmas (2012) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Clause Is Coming to Town [08:17]
-02. Let It Snow [09:04]
-03. Joy to the World [06:56]
-04. Little Drummer Boy [08:49](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, ChristmasПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD188AA05703C82F494D309B977FC7BCAB45511
 ```
 
 https://mybot314.ru/tekegram_catalog/

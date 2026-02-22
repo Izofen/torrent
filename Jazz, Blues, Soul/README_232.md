@@ -1,3 +1,90 @@
+###  Публикация: 905809   (647830) от 07.06.2015
+
+The Lachy Doley Group - Conviction (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betcha I'll Getcha (02:42)
+02. Conviction (05:31)
+03. Make It Up (04:38)
+04. Back In Black (04:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D6F8776C4DAA407ED01562AD04D72A773007DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906007   (647826) от 07.06.2015
+
+Jaga Jazzist - Starfire (2015) [FLAC|tracks + .cue] <Electronic, Jazz, Rock, Future Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starfire (8:47)
+02. Big City Music (14:07)
+03. Shinkansen (7:43)
+04. Oban (12:41)(   Читать дальше...   )Производство: Ninja Tune – ZEN223CDЖанр: Electronic, Jazz, Rock, Future Jazz, ExperimentalПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09781602C9126C0DC40BF9E0432A3A1DEEBD8E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905827   (647817) от 07.06.2015
+
+King Of The World - Discography (2013-2015) [MP3|320 кб/с]<Modern Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Messing With My Mind (Live) [00:03:42]
+02. On My Way Back Home (Live) [00:03:13]
+03. If You Want To Leave (Live) [00:06:25]
+04. Let's Go Get Stoned (Live) [00:05:30](   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 03:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E418A5042BEDCD21891A857E7B6C361A1022D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905805   (647684) от 07.06.2015
 
 Christian Hastings & The Red Eye Blues Band - Calling For Rain (2015) [MP3|320 кб/с]<Blues Soul, Modern Electric Blues>
@@ -658,99 +745,6 @@ Dana Fuchs - Songs From The Road (2014) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A4591768E88B7E1106D6218C864A972E5217EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906315   (645535) от 08.06.2015
-
-Samantha Fish, Dana Fuchs and Joanne Shaw Taylor - Ladies Sing The Blues (2014) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joanne Shaw Taylor - Who Do You Love (03:06)
-02. Joanne Shaw Taylor - Going Home (04:48)
-03. Joanne Shaw Taylor - Bones (05:22)
-04. Joanne Shaw Taylor - Piece Of The Sky (03:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E14D3AD0965FE3849027F46FD6E3470D3762C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517265   (645367) от 02.07.2012
-
-Wynton Marsalis‎ - He And She (2009) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_645367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poem [00:12]
-02. School Boy [06:49]
-03. Poem [00:27]
-04. The Sun And The Moon [06:31]
-05. Poem [00:10]
-06. Sassy [05:17]
-07. Poem [00:17]
-08. Fears [03:32]
-09. Poem [00:16]
-10. The Razor Rim [12:05](   Читать дальше...   )Жанр: JazzФормат: *.flacПродолжительность: 01:15:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292610   (645290) от 30.03.2019
-
-Chet Baker - Career 1952-1988 (2005) 2CD, Shout! Factory [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645290.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Trumpeter:
-01. My Funny Valentine [2:56]
-02. Half Nelson [5:43]
-03. Love Walked In [2:57](   Читать дальше...   )Жанр: CoolПродолжительность: 02:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0337554A4BF27E118639505A8E07F5BD1C11E52C
 ```
 
 https://mybot314.ru/tekegram_catalog/

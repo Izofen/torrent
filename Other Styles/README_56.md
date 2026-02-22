@@ -1,3 +1,32 @@
+###  Публикация: 1119632   (805015) от 29.03.2017
+
+Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survival of the Fittest (02:24)
+02. Baby Brother (03:58)
+03. Welcome to Baby Corp (03:12)
+04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F9D3FB3C4F89AF53ECFAC62E50A92AB33754D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119978   (805013) от 29.03.2017
 
 VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundtrack) (2017) [MP3|320 кб/с]<Rock, Rock & Roll, Jazz>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1CB53B577B0CB4B9DA73408EDF0B59F1ED27A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120288   (801195) от 01.04.2017
-
-VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Владимир Трошин - Подмосковные вечера
-02. Краснознамённый им. Александрова Ансамбль песни и пляски Советской Армии - Калинка (солист Алексей Мартынов)
-03. Тамара Синявская - Катюша
-04. Пётр Лещенко - Чубчик(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4CA21831370071CA988322FE9BA4D9EAC68BF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

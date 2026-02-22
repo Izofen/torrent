@@ -1,3 +1,29 @@
+###  Публикация: 574553   (370742) от 14.11.2012
+
+[mp4 640x360] Патруль / End of Watch (2012) DVDRip
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_370742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они были лучшими копами Лос-Анджелеса. Бесстрашные и везучие напарники, они стали друг другу как братья. Но однажды парни залезли в самое логово преступного мира города, по-глупому подставились и сами стали мишенью… Кто успеет первым разрядить обойму?Жанр: Триллер, Драма, КриминалРежиссер: Дэвид ЭйрАктеры: Джейк Джилленхол, Майкл Пенья, Анна Кендрик, Натали Мартинез, Америка Феррера, Фрэнк Грилло, Дэвид Харбор, Кле Шахид Слоун, Джейм Фицсаймонс, Коуди Хорн ...Перевод: Дублированный (Продолжительность: 01:44:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069911   (370735) от 05.11.2016
 
 Runtime GetDataBack Simple 3.00 [En]
@@ -660,41 +686,6 @@ YoWindow - это монитор погоды. Программа отображ
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574996   (370556) от 14.11.2012
-
-Dubstep Planet 3 - Official Promo Mix (by Profit & Tim Ismag) (2012) [MP3|320 kbps]<Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nero - Promises (Skrillex Remix)
-02. Skrillex - Ruffneck (Full Flex Remix)
-03. Ali Love - Diminishing Returns (Alvin Risk Remix)
-04. Avicii - Levels (Skrillex Remix)
-05. Flux Pavilion & SKisM ft. Foreign Beggars - Jump Back
-06. Skrillex - First Of The Year (Equinox Mix)
-07. Oiki - Get It Now (VIP Mix)
-08. Swedish House Mafia vs. Knife Party - Antidote (Schoolboy Remix)
-09. Skrillex ft. Kill The Noise & 12th Planet - Burst
-10. Vaski - Take Me ThereЖанр: DubstepПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EDAA312D7C26EF3451B960E0E6C17521404452
 ```
 
 https://mybot314.ru/tekegram_catalog/

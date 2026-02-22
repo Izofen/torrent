@@ -1,3 +1,32 @@
+###  Публикация: 1156770   (526403) от 09.08.2017
+
+VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Romantic Strings and Orchestra with Don Lusher, Trombone - (I Love You) For Sentimental Reasons (5:09)
+02. Richard Alden, His Piano and Orchestra - Skylark (3:16)
+03. Peter Knight and His Orchestra - Let's Fall In Love (2:48)
+04. Acker Bilk, His Clarinet and Orchestra - Stranger On The Shore (2:52)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CEF36D17E61E90A596B0322167A80882761716F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053374   (526079) от 17.09.2016
 
 David Hollandsworth - Discovery (2015) [MP3|320 Kbps] <New Age, Ambient>
@@ -719,35 +748,6 @@ Wayra Nan - Music Zum Traumen (2012) [MP3|320 кб/с]<Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C1ACBEECF6B928C6A3C26129EE0D17562F61105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241485   (518410) от 19.08.2018
-
-Lisa Mitts - Heart Song (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abide in My Love
-02. Divine Breath
-03. Falling into Winter
-04. Heart Song(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92065969537487A70D85CA70831DE8C6EFEF81D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 973554   (979131) от 09.01.2016
+
+Duran Duran - Astronaut (2004) SACD, 2005 Epic [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Reach Up for the) Sunrise (3:25)
+02. Want You More! (3:37)
+03. What Happens Tomorrow (4:04)
+04. Astronaut (3:24)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E070568B3EB993DF65E504C7A713C01A0BAA45F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742692   (979001) от 06.01.2014
 
 Cher - Closer To The Truth (2013) Limited Edition [FLAC|image + .cue]<Pop>
@@ -778,41 +807,6 @@ Chris De Burgh - Now and Then (2008) Compilation [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48A0B4C89FE7B1508A28536E43913100B305EEC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744236   (972826) от 10.01.2014
-
-VA - 90 Hits Of The 90s (2013) 4CD [FLAC (track)|Lossless|WEB-DL]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Armand Van Helden (Feat.. Duane Harden) - U Don't Know Me (03:56)
- 02. Tori Amos - Professional Widow (Armand's Star Trunk Funkin Mix) (03:30)
- 03. Everything But The Girl - Missing (Todd Terry Remix) (03:32)
- 04. Robert Miles - Children (04:01)
- 05. ATB - 9 Pm (Till I Come) (02:41)
- 06. William Orbit - Barber's Adaggio For Strings (Ferry Corsten Remix) (03:09)
- 07. Moloko - Bring It Back (Boris Musical Mix Edit) (03:19)
- 08. David Morales Presents The Face Feat Juliet Rogers - Needin' U (03:21)
- 09. Pete Heller - Big Love (04:01)
- 10. Baby D - Let Me Be Your Fantasy (03:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E178DEBDE3454A70336CF4410F6127C65011F207
 ```
 
 https://mybot314.ru/tekegram_catalog/

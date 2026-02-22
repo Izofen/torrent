@@ -1,3 +1,32 @@
+###  Публикация: 1119818   (806082) от 29.03.2017
+
+Duke Ellington - Duke's Mood (1956) 2002, Rockin' Chair [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Jeep Is Jumpin' [02:26]
+ 02.Creole Love Call [03:48]
+ 03.Ko-Ko [02:18]
+ 04.Midriff [03:51](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:001278A2A46EAF89C73202863476159224D8EC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119843   (806080) от 29.03.2017
 
 Sonny Stitt - Stitt Goes Latin (1963) Remaster, 2011, Roost [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
@@ -713,35 +742,6 @@ Charles Fambrough - The Proper Angle (1991) CTI [FLAC|Lossless|tracks + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5800D00545A6A4A782F5F24AC4442869D8A95F66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199290   (801844) от 15.01.2018
-
-Bennie Moten's Kansas City Orchestra - 1929 - 1930 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Certain Motion [03:06]
-02. It Won't Be Long [02:50]
-03. When Life Seems So Blue [02:53]
-04. Loose Like A Goose [02:56](   Читать дальше...   )Жанр: Early Jazz, SwingПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AF2FD1B35ACA6173EBA6DBDE2BCCF54FA1403C
 ```
 
 https://mybot314.ru/tekegram_catalog/

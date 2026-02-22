@@ -1,3 +1,32 @@
+###  Публикация: 1267757   (265125) от 08.12.2018
+
+VA - German Top 50 Official Dance Charts 07.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
+02. Chic - Le Freak (Oliver Heldens Remix)
+03. Calvin Harris;Sam Smith - Promises (David Guetta Remix)
+04. Purple Disco Machine;Baxter - Encore (Mousse T. Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576885FF944E9BA18D04976EB6CFA7BA0AA32712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191642   (264145) от 14.12.2017
 
 VA - German Top 100 Single Charts 15.12.2017 [MP3|320 Kbps] <Pop>
@@ -770,41 +799,6 @@ Romantic Dreams - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3021706E7A14603F2FA0522D49211EA67CBC3733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497669   (253764) от 17.05.2012
-
-VA - Летний Союз Новинок 50\50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Balan - Люби
-02. DJ Rynno feat. Sylvia - Love (Radio Edit)
-03. Beyond Vibes ft. Raluca Nastase - Step Into The Light (Radio Edit)
-04. Марсель - Иди Ко Мне
-05. Karmin - Walking On The Moon
-06. Даша Суворова - Над Землёй
-07. Diana Vickers - Boy In Paris
-08. MMDance - Баня (Discomania Remix)
-09. Keane - The Boys
-10. Климат и Аня Добрыднева - Глаза В Глаза2012Жанр: PopПродолжительность: 06:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9FAD8AF793519D8A487B09484AE02729EE80F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

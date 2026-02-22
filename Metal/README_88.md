@@ -1,3 +1,32 @@
+###  Публикация: 1071413   (361862) от 09.11.2016
+
+My Dying Bride - Meisterwerk III (2016) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphonaire Infernus Et Spera Empyrium (demo)
+02. The Crown of Sympathy
+03. The Grief of Age (demo)
+04. A Kiss to Remember(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 03:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4DF91372D2C15D1421EE08C3A8466CE92F8B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071353   (361279) от 09.11.2016
 
 In Flames - Battles (2016) Limited Edition [MP3|320 Kbps] <Modern Metal, Alt.Metal>
@@ -726,35 +755,6 @@ Impalers - The Celestial Dictator (2017) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA09189B4AEDDD54987456837B4555600F87243C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179018   (351266) от 30.10.2017
-
-Cannibal Corpse - Red Before Black (2017) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only One Will Die
-02. Red Before Black
-03. Code of the Slashers
-04. Shedding My Human Skin(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702E97A87715AC32B3E983BAE6147BB294404C53
 ```
 
 https://mybot314.ru/tekegram_catalog/

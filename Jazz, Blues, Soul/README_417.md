@@ -1,3 +1,32 @@
+###  Публикация: 1625432   (244476) от 10.04.2023
+
+Sunken Lands - Sunken Lands (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We take it for granted (4:29)
+02. Not a cloud in the sky (2:56)
+03. The damage is done (2:41)
+04. Andrew (3:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731A3480FE6D010581E016F31A3DC305DFB96EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070167   (244475) от 06.11.2016
 
 Art Blakey And The Jazz Messengers - Soul Finger (1965) 2009, Universal[FLAC|Lossless|image + .cue] <Hard Bop>
@@ -716,35 +745,6 @@ Pamela Rose & The Nate Ginsberg Trio - On the Jazzy Side of Blue (1993) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14B06CFE15D926C2F7F5027DBEA4F78EEAC0F62B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610800   (244185) от 09.02.2023
-
-VA - Ladies In Blue (1934 - 1954) 2CD, 2005, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244185.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ella Fitzgerald - Preview (3:04)
-02. Peggy Lee - Black Coffee (3:09)
-03. Helen Humes - My Heart Belongs to Daddy (2:56)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127F1F718F9A907A7623F06928AD346B1184B404
 ```
 
 https://mybot314.ru/tekegram_catalog/

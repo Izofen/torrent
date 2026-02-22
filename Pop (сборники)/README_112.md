@@ -1,3 +1,32 @@
+###  Публикация: 1344750   (168965) от 12.12.2019
+
+VA - Planet Dance Music: Euromix Energia Total (2019) [MP3|320 Kbps] <Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168965.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mc Kevinho - O Grave Bater
+002. Jason Born - Give Me Everything
+003. Dj Snake, J Balvin, Tyga - Loco Contigo
+004. Olivia Grace - Higher Ground(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 09:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A350659179DAC6CFA3F8BA9A25BDEE9DCCF5DAFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344735   (168455) от 12.12.2019
 
 VA - Новый Год 2020 (2019) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Хиты Авторадио (2023) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8C7C96AB6CAC881035A2D2EEA4A97B8D0F89E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599266   (159323) от 25.12.2022
-
-Bishop Briggs - Compilation (2022) [MP3|320 Kbps] <Pop, Dark Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be Your Love (West Coast Massive Remix)
-02. Tempt My Trouble
-03. Dark Side
-04. River(   Читать дальше...   )Жанр: Pop, Dark PopПродолжительность: 01:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311D732B0624D3C174CC6270563DCBADECAC6CEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

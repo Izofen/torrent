@@ -1,3 +1,32 @@
+###  Публикация: 1216207   (753064) от 29.03.2018
+
+VA - Grotesque Spring Essentials (Mixed by Ram & 2Nd Phase) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DIM3NSION - Agarimo (Extended Mix)
+02. Ferry Corsten - Lonely Inside (Extended Ferry Fix)
+03. Skylex - We Were (Extended Mix)
+04. RAM - Serengeti (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0317B5C229F06A77E31DB7D5EC0F2836CE070D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216439   (751362) от 30.03.2018
 
 VA - Trance Maschine Vol. 2 (2018) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Vocal Trance Top 50 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3F43DF4CA9EE6B6CA3AF2D6FF135D343C85CD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529095   (733120) от 05.02.2022
-
-VA - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Edit) (3:46)
-02. Talla 2XLC & Naama Hillman - No Inbetween (John O'Callaghan Edit) (3:45)
-03. Ronski Speed & Sir Adrian - The Space We Are (John O'Callaghan Edit) (3:40)
-04. Jared Knapp & Patrick De Vere with Neev Kennedy - Night Moves (Daniel Kandi's Emotional Edit) (3:11)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04DA4FC8CEBF4FD4A2D3DA824793FA062305273
 ```
 
 https://mybot314.ru/tekegram_catalog/

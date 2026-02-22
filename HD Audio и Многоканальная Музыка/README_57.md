@@ -1,3 +1,174 @@
+###  Публикация: 1172695   (201399) от 11.03.2023
+
+VA - Звёзды шансона (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Таня Тишинская - Золотая ручка
+02. Иван Кучин - Жиганская душа
+03. Слава Исетский мл. - От бухты Цемесской... (Сон жигана)
+04. Михаил Круг - Ярославская(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59F93A57D00DBF3E160F82898F2EDB6649956B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622796   (200557) от 30.03.2023
+
+Eagles - The Long Run (1979) SACD, Reissue, Remastered, 2023, Mobile Fidelity Sound Lab, Special Edition  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic Rock, Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Run
+Lead Vocals - Don Henley / Organ - Don Felder
+Slide Guitar - Joe Walsh / Written-By - Don Henley, Glenn Frey
+02. I Can't Tell You Why(   Читать дальше...   )Жанр: Classic Rock, Country RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8C9E13A0AE6F446FA87FD7EEE5C5C065CE956B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623371   (200488) от 02.04.2023
+
+Various - Flashdance - Original Soundtrack From The Motion Picture (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05919032C3DCDB93C8E83D52C977783D806CC3DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624200   (200378) от 04.04.2023
+
+Bad Boys Blue - Heart Beat (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200378.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Wanna Hear Your Heartbeat (Sunday Girl) 3:50
+A2 Mon Amie 4:35
+A3 One Night In Heaven 4:45
+A4 Baby I Love You 4:05(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0516415DA150824AE74BA119DF738D99981E4E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624989   (200228) от 08.04.2023
+
+Sandra - The Long Play (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200228.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		In The Heat Of The Night	5:20
+A2		On The Tray (Seven Years)	3:45
+A3		Little Girl	3:11
+A4		You And I	6:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1658B77489D61A9EB9B53A0D0B3571339125FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626106   (199996) от 13.04.2023
+
+Roma Trio - The Four Seasons (2008) Reissue, 2016, Venus Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199996.jpg" />
+</div>
+
+
+###  Подробнее
+
+～ Concerto No.1 in E major, Op.8, RV269 ～ Spring ～
+01. “Alleglo”
+02. 2nd Movemnet “Largo e Pianissimo”
+03. 3rd Movement “Alleglo Pastorale”(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05296AF3E2EE1AFC45FA2F288B800C9735475D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626371   (199887) от 14.04.2023
 
 Scorpions - Blackout (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
@@ -571,180 +742,6 @@ Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4702DBA6FEF8CFC85A9CF4F0B95C5943E0D26A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654833   (194016) от 22.08.2023
-
-Steely Dan - Can't Buy A Thrill (1972) SACD, Reissue, Remastered, 2023, Analogue Productions [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Do It Again 5:56
-Soloist - Denny Dias, Donald Fagen / Vocals - Donald Fagen
-02 - Dirty Work 3:08
-Soloist, Saxophone - Jerome Richardson / Vocals - David Palmer(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA5B3A63F2CB9C30A64430FD3017FC38B2EE676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549737   (193512) от 01.09.2023
-
-Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dee Snider — американский рок-музыкант. Наибольшую известность получил как вокалист и фронтмен глэм-метал группы «Twisted Sister». Также известен как радиоведущий, актёр, сценарист, композитор, писатель.2000 - Never Let The Bastards Wear You Down
-2012 - Dee Does Broadway
-2016 - We Are The Ones
-2018 - For The Love Of MetalЖанр: Heavy Metal/Hard RockПродолжительность: 09:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5808E14F07B33EA6095651708607AEE75A80E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828332   (193427) от 24.10.2025
-
-Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garmarna — шведская фолк-рок-группа, основанная в 1990 году.1993 - Garmarna
-1994 - Vittrad
-1996 - Guds speleman
-1999 - VedergallningenЖанр: Folk RockПродолжительность: 05:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3339C8A594217714A1D05338E25254EFEA462313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548510   (193411) от 24.10.2025
-
-Amorphis - Дискография (26 releases) (1991-2025) hand made [restored, declipped] [FLAC|44/16.1|tracks +.cue] <Progressive/Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amorphis — финская англоязычная метал-группа. Группа была основана в 1990 году Яном Рехбергером и Эсой Холопайненом. Группа неоднократно меняла звучание, и её музыка не укладывается в рамки одного жанра. Её первый альбом выдержан в стиле дэт-метал. Начиная со второго альбома группа соединила финскую народную музыку с дэт-дум-метал. На более поздних записях появилось (   Читать дальше...   )1992 - The Karelian Isthmus
-1994 - Tales from the Thousand
-1996 - Elegy
-1999 - Tuonela(   Читать дальше...   )Жанр: Progressive Metal, Melodic Death Metal, Folk MetalПродолжительность: 23:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8F9435EBC069394420658E09378068B6A0A680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586896   (193257) от 29.10.2022
-
-VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. «Здравствуй, Песня» - Птица Счастья
-02. Эстрадно-симфонический Оркестр Центрального Телевидения И Всесоюзного Радио - День В Сентябре
-03. Алла Пугачева, «Аракс» - Скажи Мне Что-нибудь
-04. Ленинградский Концертный Оркестр - Утро (из к/ф Служебный Роман)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858BFC12A76C6E60593D994E5AA0078D63576A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587012   (193218) от 29.10.2022
-
-Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death/Doom Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tiamat — шведская группа. Существует с 1989 года, её основатель, вокалист, ритм-гитарист и автор песен Юхан Эдлунд остаётся её единственным постоянным участником. На ранних альбомах Tiamat исполняли дум/дэт-метал с гроулингом, но начиная с альбома Wildhoney 1994 года группа постепенно перешла к прославившему её более мелодичному жанру готик-метал с влиянием психоделического (   Читать дальше...   )1990 - Sumerian Cry
-1991 - The Astral Sleep
-1992 - Clouds
-1994 - WildhoneyЖанр: Death/Doom Metal; Gothic MetalПродолжительность: 11:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F942100F8234A7305D9FEF80789D38C2726AFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

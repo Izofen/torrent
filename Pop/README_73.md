@@ -1,3 +1,119 @@
+###  Публикация: 1197393   (815669) от 07.01.2018
+
+VA - ZYX Italo Disco Instrumental Hits (2017) 2CD, Compilation [MP3|~245 Kbps (V0)] <Instrumental, Italo Disco, Eurodisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiorama - Aliens (Instrumental) (3:54)
+02. P. Lion - Happy Children (12" Instrumental) (6:32)
+03. Valerie Dore - The Night (12" Instrumental Version) (5:32)
+04. Mike Mareen - Love-Spy (Instrumental) (4:07)(   Читать дальше...   )Жанр: Instrumental, Italo Disco, EurodiscoПродолжительность: 02:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C945F722EF9DD07B44CF60B9659FF9C79E94A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382993   (815586) от 13.05.2020
+
+Camp Galore - Deco Disco (1976) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes, Sir That's My Baby (3:49)
+02. Ballin The Jack (4:19)
+03. Golden Slippers (4:31)
+04. I'm Looking Over A Four Leaf Clover (4:11)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B346EFF349B0E2DFF331696C361048314BB8939E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118058   (815475) от 24.03.2017
+
+VA - MUM: The Collection (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Sledge - We Are Family (3:37)
+02. Chaka Khan - I'm Every Woman (4:07)
+03. Duran Duran - Girls On Film (Night Version) (5:43)
+04. Plan B - Love Goes Down (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC64C1B82A3F53DF5F337D5ABC8EA63652DBC28B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197384   (815424) от 07.01.2018
+
+VA - 90's Spirit (2014) 4CD [MP3|320 Kbps] <Eurodance, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815424.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1-Hits 90's:
+01.  Gala  -  Freed From Desire  3:42
+02.  Haddaway  -  What Is Love  4:41
+03.  Dr. Alban  -  Sing Hallelujah !  3:38(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 05:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861AA9CE33F162B9AC1397ECB0D31DF92833ABF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008488   (815356) от 18.04.2016
 
 Леонид Агутин - Просто о важном (2016) [FLAC|Lossless|tracks + .cue] <Pop, Bossa Nova, Jazz Pop>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0EF297214209AAB6105CDE5EFE0C5D56EFD93D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197893   (813520) от 08.01.2018
-
-VA - Bravo 100 Hits – Das Beste Aus 100 Bravo Hits (2018) 5CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813520.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  U 96  -  Das Boot (Techno Version)  5:14
-02.  Die Fantastischen Vier  -  Die Da!  4:25
-03.  Charles & Eddie  -  Would I Lie To You  3:42(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FA247B3BEA7A48BAB131382CBC5D98647734CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118329   (813498) от 25.03.2017
-
-Dino Dvornik - Pandorina kutija (Special Edition) (2010) [FLAC|Lossless|image + .cue] <Funk, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Iden Ća Ka I Moj Ćaća
-2.Hipnotiziran
-3.Ideja
-4.Više Ili Manje(   Читать дальше...   )Жанр: Funk, PopПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EFCEEE6800572689091634AC20CD7996A91C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118504   (813489) от 25.03.2017
-
-VA - I Am Woman (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny's Child - Independent Women, Part 1 (3:42)
-02. Fifth Harmony feat. Ty Dolla $ign - Work from Home (3:35)
-03. Little Mix - Shout Out to My Ex (4:06)
-04. Jessie J, Ariana Grande & Nicki Minaj - Bang Bang (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1A93DF9025E5EF41A3E1CA82EA6066DD88FE13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118228   (813322) от 25.03.2017
-
-VA - New Italo Disco Top 25 (Compilation Vol.6) (2017) [MP3|320 Kbps] <Disco, Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boy Blue - More Sadness In Her Eyes  4:50
-02.  Ken Martina - My Love Is Still Forever  3:45
-03.  Aldo Lesina - Goodbye (Short Romance Mix)  4:54
-04.  Emy Care - Dream Of Fantasy (Radio Mix)  4:05(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC85D0892B9419105E55AAC081F5CFAAEACAD67
 ```
 
 https://mybot314.ru/tekegram_catalog/

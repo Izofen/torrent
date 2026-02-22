@@ -1,3 +1,119 @@
+###  Публикация: 1204923   (784081) от 08.02.2018
+
+Veronica Unlimited - Veronica Sound Shower (1981) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Donna (3:43)
+02. I Wanna Dance With Out (3:38)
+03. What Lousy Party (3:21)
+04. Sun Sun Singing In The Sun (3:14)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE5B17AE56F20EE09DA051B7DC3DB3F773D9871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204947   (784076) от 08.02.2018
+
+VA - Radio Italia Love (2018) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cesare Cremonini – Poetica [04:51]
+02. J-AX & Fedez – Sconosciuti da una vita [03:01]
+03. Francesca Michielin – Io non abito al mare [03:14]
+04. Negramaro – Fino all’imbrunire [04:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632821B2594692464ADE440C9D218464E0895B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204574   (784075) от 08.02.2018
+
+VA - Smash Hits Love Songs (2018) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784075.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Bonnie Tyler  -  Total Eclipse Of The Heart  5:34
+02.  Cutting Crew  -  Died In Your Arms (I Just)  4:23
+03.  Foreigner  -  I Want to Know What Love Is  4:58(   Читать дальше...   )Жанр: PopПродолжительность: 03:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A291906110739464C9FCC2053B2784BEFBC5752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204655   (784062) от 08.02.2018
+
+VA - Stay In The 80s (2018) 2CD [MP3|320 Kbps] <EuroPop, EuroDisco, Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784062.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Kano  -  Another Life (Maxi Version)  7:14
+02.  C.C. Catch  -  Cause You Are Young (12' Version)  4:49
+03.  Sweet Connection  -  Need Your Passion (Remix)  5:58(   Читать дальше...   )Жанр: EuroPop, EuroDisco, Italo DiscoПродолжительность: 02:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3414EFBB84B880225BE3CD410A9E1CB2D5403D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204920   (784057) от 08.02.2018
 
 Systems In Blue - Out Of The Blue (2008) [FLAC|Lossless|image + .cue] <Disco, Euro-Disco>
@@ -629,120 +745,6 @@ VA - Daniele Baldelli Presents Baia Degli Angeli 1977-1978 (2005,2007) 2CD [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F11D0063A1FA3C4D77DC02B91EFED5155E6A9A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205687   (783208) от 11.02.2018
-
-Noemi - La Luna (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Non smettere mai di cercarmi
-02. Porcellana
-03. Autunno
-04. L'attrazione(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B170A74D73F3AF96F0651FC205BDBCDED0CB85E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390508   (783025) от 15.06.2020
-
-Песняры - Концерт к 50-летию Белорусского государственного ансамбля Песняры с Президентским оркестром Республики Беларусь (2020) [MP3|320 Kbps] <Retro, Эстрада>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783025.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Завушніцы
-2. Мой родны кут
-3. Касіў Ясь канюшыну
-4. Зачарованая мая(   Читать дальше...   )Жанр: Retro, ЭстрадаПродолжительность: 01:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D95A6C59473067FB89820A99B479CDD73A5DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206079   (782961) от 12.02.2018
-
-Shake - Shake (1977) LP [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Singing This Song For You (3:12)
-02. Ne Me Regarde Pas (4:11)
-03. If (3:36)
-04. Tu Sais Je T'Aime (You Know I Love You) (3:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA6FBD961187F98130BC6143164E6E3D1C105C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205957   (782960) от 12.02.2018
-
-Jose Calvario - The Best Disco In Sound (1977) LP [MP3|320 Kbps] <Instrumental, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Lisbon, Coimbra, Things To Imagine No 2 (11:10)
-02. Cancao Do Mar, Lisboa A Noite, As Coisas Que Eu Invento (12:58)Жанр: Instrumental, DiscoПродолжительность: 00:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4C187F02C92A9574CAEB64E6A33959B5115552
 ```
 
 https://mybot314.ru/tekegram_catalog/

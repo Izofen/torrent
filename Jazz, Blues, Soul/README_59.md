@@ -1,3 +1,104 @@
+###  Публикация: 744135   (972172) от 11.01.2014
+
+Johnny Mathis - Open Fire, Two Guitars (1999) [FLAC|Lossless]<Blues, Pop>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Open Fire [03:56]
+02. Bye Bye Blackbird [04:08]
+03. In The Still Of The Night [02:35]
+04. Embraceable You [03:29]
+05. I'll Be Seeing You [04:28]
+06. Tenderly [03:02]
+07. When I Fall In Love [04:33]
+08. I Concentrate On You [03:18]
+09. Please Be Kind [03:29]
+10. You'll Never Know [04:09](   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B589BCEB58E7ECDE26382EA911E8827C1E17940B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 399394   (972151) от 21.01.2012
+
+B.B. King - Icon, Icon 2 (2011) 3CD [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Nobody Home (3:14)
+02. Ghetto Woman (5:13)
+03. Guess Who (4:07)
+04. To Know You Is to Love You (8:32)
+05. I Like to Live the Love (3:17)
+06. Let the Good Times RollЖанр: BluesПродолжительность: 02:37:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744270   (972092) от 11.01.2014
+
+The Beegie Adair Trio - The Nat King Cole Collection (1998) [FLAC|Lossless]<Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Lorraine (3:13)
+02. L-O-V-E (3:01)
+03. Unforgettable (4:18)
+04. Straighten Up and Fly Right (3:14)
+05. Mona Lisa (4:07)
+06. Smile (4:04)
+07. Route 66 (2:57)
+08. That Sunday, That Summer (4:36)
+09. Orange Colored Sky (3:25)
+10. Darling, Je Vous Aime Beaucoup (3:43)(   Читать дальше...   )Жанр: Piano JazzПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B7E9CA3DD2C791FE34C21E004F4A9D631F9EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357807   (971991) от 05.02.2020
 
 Thelonious Monk - Genius Of Modern Music, Vol. 1, 1947 (2001) Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
@@ -738,99 +839,6 @@ Arturo Sandoval - Live At The Blue Note (2004) Half Note[FLAC|tracks+.cue] <Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5201027C5CB4E5410B341FC4CA738D572FA6273A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976231   (969842) от 17.01.2016
-
-Rahsaan Roland Kirk & Al Hibbler - A Meeting Of The Times (1965) 2004, Rhino[FLAC|tracks+.cue] <Vocal Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Do Nothing Till You Hear From Me [04:40]
- 02.Daybreak [03:12]
- 03.Lover Come Back to Me [03:49]
- 04.Don't Get Around Much Anymore [02:57](   Читать дальше...   )Жанр: Vocal Jazz, Hard BopПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7852E7DAE5886215FFF81FDC493E1B82F0D1E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358244   (969765) от 07.02.2020
-
-John Coltrane - The Last Giant: The John Coltrane Anthology 1946 - 1961 (1993) 2CD, Rhino [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969765.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Hot House (Jam Session) [2:06]
-02. Good Groove [4:11]
-03. We Love to Boogie [2:53](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 02:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3CBC758A5379826EF7C78A425D6537F564AFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617520   (969735) от 14.02.2013
-
-VA - Blues - The Best of... Radio-Farwater (2013) [MP3|128-320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Alain Berkes & Blues Heritage - 6-35 (6:42)
- 2. Angela Strehli Band - A Stand By Your Woman Man (3:43)
- 3. Mark Kendal - Ain't Gone 'n' Give Up On Love (6:06)
- 4. Fernando Noronha & Black Soul - Ain't That A Shame (7:09)
- 5. Monster Mike Welch - All The Love In The World (7:16)
- 6. Robert Cray With Albert Collins - Angel Of Mercy (9:34)
- 7. Motor City Josh - Back Door Man (4:09)
- 8. Nuno Mindelis - Back To Memphis (4:31)
- 9. Fernando Noronha & Black Soul - Bad Boy (5:17)
- 10. Bo Diddley - Before You Accuse (   Читать дальше...   )Жанр: BluesПродолжительность: 11:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0846FB17C847BEA49816909EA15E9C15A2CAF99A
 ```
 
 https://mybot314.ru/tekegram_catalog/

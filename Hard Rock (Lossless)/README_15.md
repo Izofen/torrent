@@ -1,3 +1,38 @@
+###  Публикация: 742901   (977002) от 07.01.2014
+
+James Christian - Lay It All On Me (2013) Japanese Edition [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Lay It All On Me   (4:49)
+02.  Sacred Heart   (3:39)
+03.  Day In The Sun   (3:34)
+04.  Believe In Me   (3:32)
+05.  You're So Bad   (4:05)
+06.  Don't Come Near Me   (4:40)
+07.  Let It Shine   (4:23)
+08.  She's All The Rage   (4:06)
+09.  Sincerely Yours   (3:56)
+10.  Another Shot In The Dark   (3:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D374463BCE2E1311B247C7304D757EAD6D7240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743360   (975514) от 08.01.2014
 
 Ronnie James Dio - Rares In The Dark (2013) Bootleg 2CD [FLAC|Lossless]<Hard Rock / Heavy Metal>
@@ -785,35 +820,6 @@ Deep Purple - The House Of Blue Light (1987) Remastered, 1999, Mercury [WavPack|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14A7D5CBDB86153890E8AD869BFC8AA08F05EAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090854   (944367) от 08.01.2017
-
-Black Star Riders - The Killer Instinct (2015) Deluxe Edition, 2CD [FLAC|Lossless|tracks]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944367.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:32] 01. The Killer Instinct
-[04:54] 02. Bullet Blues
-[03:56] 03. Finest Hour
-[04:49] 04. Soldierstown(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31064ED36719CD2432492C35E2C24D8BEC247D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

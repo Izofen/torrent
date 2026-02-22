@@ -1,3 +1,32 @@
+###  Публикация: 1355261   (984976) от 25.01.2020
+
+Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonny Light Horseman (04:30)
+02. Deep In Love (05:09)
+03. The Roving (04:20)
+04. Jane Jane (03:06)(   Читать дальше...   )Жанр: Indie, FolkПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6994E26268B53FFF58E3491A29F2740537C84C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355154   (984868) от 25.01.2020
 
 VA - Restart 2020 Chillout (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
@@ -792,41 +821,6 @@ VA- Охотники за привидениями / Ghostbusters (1984) [FLAC|L
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613940   (981148) от 05.02.2013
-
-VA - Волшебные мелодии. Коллекция Ридерз дайджест (5CD) (2006) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981148.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Влюбленные в любовь76. In The Chapel In The Moonlight
-77. A Kiss In The Dark
-78. All Through The Night
-79. Serenade In The Night
-80. Moonlight Love
-81. Magic Is The Moonlight
-82. Fly Me To The Moon
-83. Moonlight In Vermont
-84. Stairway to the Stars
-85. Fool Moon And Empty Arms(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694A12A031A637F1F6CFDEE8E5C06483977403A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

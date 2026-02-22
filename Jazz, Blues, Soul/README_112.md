@@ -1,3 +1,96 @@
+###  Публикация: 300781   (873115) от 26.02.2011
+
+The Chick Corea Elektric Band - The Chick Corea Elektric Band (1986) [APE|Lossless]<Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Gate
+02. Rumble
+03. Side Walk**
+04. Cool Weasel Boogie**
+05. Got A Match?
+06. Elektric City**
+07. No Zone
+08. King Cockroach*
+09. India Town
+10. All Love(   Читать дальше...)Жанр: FusionПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496482   (872848) от 17.09.2021
+
+Hot 'n' Nasty - Burn (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyway the Wind Blows (3:09)
+02. Like a Hammer (2:52)
+03. I Can't Stand It Anymore (2:51)
+04. Superstar (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E925AAB780A2868041BEF6558C7701AEF59C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496427   (872846) от 17.09.2021
+
+Mike Andersen - Raise Your Hand (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slamming The Door (3:20)
+02. Next Time You Call (3:35)
+03. Finally Free (2:42)
+04. If I Fall Again (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5CBEF292A118EE21EC046B048EBBBB1E400DDA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496420   (872721) от 17.09.2021
 
 Darren Jack - Lost in Living - Lost in Living (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -676,111 +769,6 @@ VA - Easter Erotic Jazz Lounge: Dark Sexappeal Desires for Intimate Chill Obsess
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7D9CFA8008BCE8E743CB43225B344B88C0EC666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644056   (871891) от 15.04.2013
-
-Mud Morganfield - Son of the Seventh Son (2012) [MP3|320 кб/с]<Blues/Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Short Dress Woman
-2. Son Of The Seventh Son
-3. Love To Flirt
-4. Catfishing
-5. Health
-6. Loco Motor
-7. Money (Can't Buy Everything)
-8. Midnight Lover
-9. Go Ahead And Blame Me
-10. Leave Me Alone(   Читать дальше...   )Жанр: Blues/Chicago BluesПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFB818FC2FA11FDAA6C9BE4B7DB139FB59B38D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643847   (871887) от 15.04.2013
-
-Jeanette Harris - Summer Rain (2013) [MP3|320 кб/с]<Smooth Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Just Keep Holding On
-02. Passing Time
-03. Take Me There
-04. Summer Rain
-05. Muy Caliente
-06. The Ride (feat. Darrell Crooks)
-07. Chillin’
-08. Here & Now
-09. Oh so Good
-10. 12:57 (feat. Marcus Anderson)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4BD61AB25D02B5F2ED573EE248BDF4F8E4E1F3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766066   (871843) от 14.03.2014
-
-Trygve Seim, Oyvind Brakke, Per Oddvar Johansen - The Source and Different Cikadas (2002) [MP3|320 кб/с]<Modern Creative, Third Stream, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Organismus Vitalis [05:24]
-02. Mmball [04:53]
-03. Funebre [02:11]
-04. Deluxe [05:59]
-05. Bhavana [03:32]
-06. Saltpastill [04:43]
-07. Flipper [02:48]
-08. Plukk [04:36]
-09. Obecni Dum [02:26]
-10. Suppressions [04:15](   Читать дальше...   )Жанр: Modern Creative, Third Stream, Contemporary JazzПродолжительность: 01:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C49CF6A8E7D5EF8FAABA96DEEC0727E2FF7837
 ```
 
 https://mybot314.ru/tekegram_catalog/

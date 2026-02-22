@@ -695,35 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 261296   (282845) от 12.12.2014
-
-VA - Collection Jazz 19 CD (1949 - 1997) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_282845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Art Blakey - Caravan (1962)
-Art Blakey & The Jazz Messengers - Moanin' (1958)
-Bud Powell - The Amazing Bud Powell, Volume One (1949)(   Читать дальше...   )Жанр: JazzПродолжительность: 14:49:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336095   (282731) от 05.11.2019
 
 Victor Goines - Joe's Blues (1998) Rosemary Joseph Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -746,6 +717,35 @@ Victor Goines - Joe's Blues (1998) Rosemary Joseph Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70AFD68B65114D64ACAD5ADDD6643506381F9E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336088   (282730) от 05.11.2019
+
+Joey Calderazzo - To Know One (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Impressions [3:55]
+02. Caldo's Revenge [9:21]
+03. Song for Penelope [6:05]
+04. Field of Blues [5:30](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451D75AC8B9CA2AE83980C9986D7C763898C274D
 ```
 
 https://mybot314.ru/tekegram_catalog/

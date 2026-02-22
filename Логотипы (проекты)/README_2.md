@@ -1,3 +1,84 @@
+###  Публикация: 985247   (934985) от 11.02.2016
+
+Проекты - VideoHive - Sea Water Logo Intro [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A00F54D3E28E29679EB4797FDB1BC2A5F90BA1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093078   (934846) от 14.01.2017
+
+Проекты - VideoHive - Luxury Logo - 19239624 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации Вашего логотипа.
+Благодаря модному дизайну, так же идеально подходит для рекламы сайта, программы или приложения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84033FCE466291CBF9664074CA261E5477509F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985874   (933675) от 12.02.2016
+
+Проекты - VideoHive - Cinematic Logo Pack - 8869991 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипов.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF27DAC510D0CC41126F7463802C7B85C058163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985928   (933540) от 12.02.2016
 
 Проекты - VideoHive - Corporate Logo Pack [AEP]
@@ -601,85 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1895D78F3D3F65480E90DB096A81EAD9A394BB1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990022   (913164) от 24.02.2016
-
-Проекты - VideoHive - Flush Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BC028FF2AA175159EC8BC0B518C95E5E1E18B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097730   (911792) от 28.01.2017
-
-Проекты - VideoHive - Power Logo Reveal - 19279697 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Power Logo Reveal - проект для демонстрации вашего логотипа в стиле высоких технологий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D290293D704FB485D6F3D48EBEE5B8DEB6C8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097749   (911751) от 28.01.2017
-
-Проекты - VideoHive - Connected Shapes Logo Reveal - 19301489 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Connected Shapes Logo Reveal - красивая шейповая анимация для показа вашего логотипа. Вставляйте ваш текст, логотип, изменяйте цвета.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248AEC12CA16B2CBDE26B780EAC09CFE73FFABA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1509019   (795483) от 11.11.2021
+
+Константин Кинчев - Белый шум (2021) 2xCD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795483.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Век воли не видать
+02. Черней, чем блюз
+03. Оксюморон(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E380EEF62F0E41052759704F44B89792F21A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509352   (794832) от 12.11.2021
 
 Крематорий - Охотник (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -726,35 +755,6 @@ Krüger - Врага бей в рога (2018) [FLAC|Lossless|image + .cue] <Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7485CEE9C21D3DC4DE79A8949EEDF2BB5B14A69E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391203   (781413) от 19.06.2020
-
-СЛОТ - Ин да хаос. Re-play (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781413.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2 войны (2020 Re-play)
-2. Хаос (2020 Re-play)
-3. Кукла вуду (2020 Re-play)
-4. Если (2020 Re-Play)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AAA9AEB3724496870244D6AEC3BB6EE7BC70739
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1595264   (175597) от 05.12.2022
+
+Andy Lindquist - Let's Burn It Down (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Burn It Down [00:04:28]
+02. That Train Don't Run Here No More [00:03:49]
+03. Blue Tail Stomp [00:03:26]
+04. 14 Stone [00:03:38](   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E20EF6215B98F781D180C1D0ABA9A9C51C2193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595286   (175596) от 05.12.2022
 
 Cheri Lyn - Saviours (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock, Soul>
@@ -716,35 +745,6 @@ Yassine Karoui - Dog's Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:549B453FE8458EBDBF94749F6974225AC551E9E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596084   (174017) от 08.12.2022
-
-Fay Claassen, David Linx, WDR Big Band Cologne - And Still We Sing (2021) Jazzline [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sum It Up (Disturbing the Peace) [5:33]
-02. Along Goes Betty [5:18]
-03. Waterfalls [5:49]
-04. Good Times [5:20](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61DF372FDB0EB60894ACC426655D787276FCB20
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1272128   (145750) от 26.12.2018
-
-Frank Sinatra - The Ultimate Christmas (Daily Mail CD) (2012) Upfront [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hark! The Herald Angels Sing [2:25]
-02. Jingle Bells [2:03]
-03. Let It Snow! Let It Snow! Let It Snow! [2:38]
-04. O Come All Ye Faithful (Adeste Fidelis) [2:36](   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2FAE9E2901D2143B60C7DED97F1BF7D532888F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678129   (145736) от 21.11.2023
 
 VA - DeepHouseJazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -787,6 +758,35 @@ Arnett Cobb - Live (1982) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7304E7FC40B5FF062367D0CBDF3B36482E33EB98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348538   (143784) от 28.12.2019
+
+Urbie Green - Five Classic Albums 1953 - 1956 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143784.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cherokee [2:42]
+02. I Ain´t Got Nobody [3:31]
+03. Stella By Starlight [3:06](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E85C78B27DC673597F4A0170ACEE761DC48166
 ```
 
 https://mybot314.ru/tekegram_catalog/

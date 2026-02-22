@@ -1,3 +1,108 @@
+###  Публикация: 857672   (944668) от 14.01.2015
+
+Charlie Ventura & Flip Phillips - Studio Sessions (1947-1957) 6CD Set /1998-Mosaic MD6-182, The Complete Verve/Clef/[FLAC|Lossless]<Bop, Swing, Saxophone Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Avalon [00:02:51]
+02. I'm Confessin' [00:03:05]
+03. Bugle Call Rag [00:02:49]
+04. Rose Room [00:02:48]
+05. That Old Feeling [00:03:03]
+06. After You've Gone [00:02:47]
+07. There's No You [00:03:10]
+08. Perdido [00:03:10]
+09. Can't Get You Out Of My Mind [00:02:49](   Читать дальше...   )Жанр: Bop, Swing, Jazz Instrument, Saxophone JazzПродолжительность: 06:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3EAF27C8E1909EF3508A2257C17279F607A2CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626147   (944542) от 05.03.2013
+
+Jazz Lounge - Best Of Jazz Lounge (2013) [MP3|320 кб/с]<Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Primavera
+02. Relaxin' With Sandra
+03. Painter
+04. Easy
+05. Afternoon
+06. Chillin
+07. Summer Breeze
+08. Rain Over Me
+09. Cafe Barcelona
+10. LaraЖанр: Jazz, LoungeПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC0455A43FE4F97C345A62026DD3074268E95B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625849   (944472) от 05.03.2013
+
+Beegie Adair - Save The Last Dance For Me (2012) [FLAC|Lossless]<Instrumental Jazz, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01, Watch What Happens [03:49]
+02. For Once In My Life [03:38]
+03. The Girl From Ipanema [04:13]
+04. Will You Love Me Tomorrow [03:55]
+05. Say a Little Prayer [03:53]
+06. If Ever I Would Leave You [03:34]
+07. Up On the Roof [04:14]
+08. On a Clear Day (You Can See Forever) [03:40]
+09. Who Can I Turn To (When Nobody Needs Me) [04:10]
+10. People [04:20](   Читать дальше...   )Жанр: Instrumental Jazz, PianoПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 626252   (944471) от 05.03.2013
 
 Joe Pass - 2 альбома (1989, 1992) [FLAC|Lossless]<Instrumental Jazz, Guitar>
@@ -738,99 +843,6 @@ Acker Bilk - Clarinet Moods (2007) [FLAC|Lossless]<Jazz, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33FBA37CE82252AC6C7713A1DE758E57D1437A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752162   (943277) от 01.02.2014
-
-Adrien Moignard & Rocky Gresset - Entre Actes (2012) [FLAC|Lossless|WEB-DL]<Gypsy Jazz, Guitar>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Belleville
-02. How deep is your love
-03. Ready now that you are
-04. Dreams and waters
-05. Curtis song
-06. Love for sale
-07. Entre actes
-08. Bluesette
-09. I’ll remember april
-10. My funny Valentine(   Читать дальше...   )Жанр: Gypsy Jazz, GuitarПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406D7F7B02BDE008FE102DBE10EDE5008161D615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091435   (943237) от 09.01.2017
-
-Duke Jordan - Double Jordan (1979) 2CD, 1997, SteepleChase[APE|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943237.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Change A Pace [05:47]
-02.I Thought You'd Call Today [05:43]
-03.Double Scotch [07:07](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB6FDA0F32D5D68FB9B0842D5CC186D1D82DBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091440   (943224) от 09.01.2017
-
-Perico Sambeat Ensemble - Plays Zappa (2016) Nuba Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Zomby Woof [05:57]
- 02.It Must Be a Camel [06:19]
- 03.Don't You Ever Wash That Thing? [06:28]
- 04.For Calvin [06:34](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E133DBAD0A9346441A27C2E10A9D78CDCE63C92F
 ```
 
 https://mybot314.ru/tekegram_catalog/

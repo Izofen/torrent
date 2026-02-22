@@ -1,3 +1,90 @@
+###  Публикация: 1645133   (209498) от 08.07.2023
+
+Григорий Лепс - Завтра (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209498.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Завтра
+2. Мне не нужна
+3. Параноик
+4. Бейби (feat. Ваня Дмитриенко)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E726F9D4C59DADB3816324373EB16C640B7C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645138   (209409) от 08.07.2023
+
+Taylor Swift - Speak Now (Taylor's Version) (2023) 2xCD [FLAC|Lossless|tracks + .cue] <Country, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One:
+01. Mine (Taylor's Version) 3:51
+02. Spark Fly (Taylor's Version) 4:21
+03. Back To December (Taylor's Version) 4:54(   Читать дальше...   )Жанр: Country, Pop RockПродолжительность: 01:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0687790A2B9F1CBCBBB45E99667837033CDE648E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645592   (209371) от 10.07.2023
+
+VA - Easy Modern Classics (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Photograph
+02. Christina Perri - A Thousand Years
+03. Bruno Mars - Talking to the Moon
+04. Coldplay - Everglow(   Читать дальше...   )Жанр: PopПродолжительность: 02:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924E87BF219700DE814941F5FBA1FF08880DA36D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645431   (209368) от 09.07.2023
 
 Wham! - The Singles: Echoes from the Edge of Heaven (2023) Expanded Edition [FLAC|24/44.1|tracks|WEB-DL] <Pop, dance-pop>
@@ -655,93 +742,6 @@ VA - Romantic Collection. Disco (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:193260425A09F9D5887AFA8BE460BC9F4D7BE694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649523   (207704) от 28.07.2023
-
-VA - Трибьют Валерии (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207704.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. MOT - Ты где-то там
-2. INSTASAMKA - Маленький самолёт
-3. XOLIDAYBOY - Океаны
-4. L'One - Москва слезам не верит(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A959E8F36EC21D0D0C2A5A752736028342B4F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649737   (207628) от 29.07.2023
-
-In-Grid - Chansons D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est Si Bon (3:36)
-02. Un beau roman (Une belle histoire) (4:05)
-03. Tu le sais (with Paolo Rossini) (4:12)
-04. Tentación Al Hombre (3:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE00A240598F690B2D839FFECFBFF91DC300C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650266   (207519) от 31.07.2023
-
-Diana - Die Einzige (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gschüttlet oder grüärt [00:03:03]
-02. Du wenn nicht Du [00:03:20]
-03. De schneller isch de gschwinder [00:03:06]
-04. Du bist nicht mein Romeo [00:03:02](   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D37685AB92E2E67DC1617F913E2AE2EEE6D2A7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

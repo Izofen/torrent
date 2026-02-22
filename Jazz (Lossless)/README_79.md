@@ -1,3 +1,32 @@
+###  Публикация: 1381362   (827834) от 06.05.2020
+
+Lucia Ianniello - ‎Live At Acuto Jazz (2017) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827834.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Our Summer ( 3:02)
+2. Peyote Song No. Iii ( 8:44)
+3. Other ( 5:20)
+4. Little Africa ( 7:08)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAD21E598FC47900366C0EBC835B94743566585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381259   (827832) от 06.05.2020
 
 Charlie Byrd - Brazilian Byrd 1965 (2009) Sony Music [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz, Guitar Jazz>
@@ -716,35 +745,6 @@ The Dave Brubeck Quartet - Jazz At Oberlin 1953 (2003) Fantasy [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D35269B7EF82A14079A0B44471A8BE0D43598043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381480   (826249) от 07.05.2020
-
-Stan Getz & Charlie Byrd - Jazz Samba 1962 (2013) Analogue Productions [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desafinado [5:52]
-02. Samba Dees Days [3:36]
-03. O Pato [2:35]
-04. Samba Triste [4:47](   Читать дальше...   )Жанр: Bossa Nova, Latin JazzПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88904C10CA1495E4789E6967BFEAB1AA3B066CDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

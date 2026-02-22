@@ -1,3 +1,32 @@
+###  Публикация: 1463362   (1020501) от 18.04.2021
+
+VA - Soul Tenors: Milestones Of Jazz Legends (1956 - 1962) 10CD, 2020, The Intense Media [FLAC|Lossless|image + .cue] <Hard Bop, Soul-Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020501.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - King Curtis-The New Scene Of King Curtis & Country Soul:
+01. King Curtis - Da-Duh-Dah [5:11]
+02. King Curtis - Have You Heard? [10:23]
+03. King Curtis - Willow Weep For Me [5:25](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Mainstream JazzПродолжительность: 12:23:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78078417FFE928C992EFED174C0906300C5ADA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463609   (1020333) от 19.04.2021
 
 Sarah Vaughan - Snowbound & The Lonely Hours (1963, 1964) 1997, EMI [FLAC|Lossless|tracks] <Vocal Jazz>
@@ -716,35 +745,6 @@ VA - Verve JazzClub: I Love Jazz (2008) Box Set, 3 CD [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35B37935DC6BFBB5CA6210318A711201AC4BE534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466921   (1018091) от 02.05.2021
-
-Threestyle - Perfect Combination (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steppin´up (4:07)
-02. Keep It Simple (4:23)
-03. Giant (4:38)
-04. Lovin on Next to Nothin (4:10)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB1C88870E4162AE803210D85715B997D329899
 ```
 
 https://mybot314.ru/tekegram_catalog/

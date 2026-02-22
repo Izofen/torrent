@@ -1,3 +1,32 @@
+###  Публикация: 1306668   (555494) от 06.06.2019
+
+Evan Parker - Time Lapse (2006) Composer Series [FLAC|Lossless|tracks + .cue] <Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ak-Kok-Deer (4:30)
+ 02. Monkey's Fist (6:46)
+ 03. Threnody for Steve Lacy (2:43)
+ 04. Gees Bend (3:50)(   Читать дальше...   )Жанр: Free ImprovisationПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83AED8A12E940407F454EC784FA98481BBB5FBD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306768   (555492) от 06.06.2019
 
 Randy Bachman - Jazz Thing (2004) Ranbach Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -714,35 +743,6 @@ Denise Donatelli - Find A Heart (2015) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94FA6E0AE2A4BC74F7842F4DB9FEF417B9956973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046399   (553064) от 26.08.2016
-
-Organ Freeman - Organ Freeman (2015) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go by Richard, Not by Dick (5:02)
-02. Verve (5:32)
-03. Only If You Mean It (6:18)
-04. Verve - Go by Richard, Not by Dick (6:02)(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F6C0E0FF71F8841ECC21A92B95FEDE5BA2824C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1145736   (619993) от 26.06.2017
+
+Keith Jarrett - Standards, Vol. 2 (1983) Remaster, 1985, ECM Records [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Tender (7:15)
+02. Moon And Sand (8:54)
+03. In Love In Vain (7:06)
+04. Never Let Me Go (7:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108E3C543FB4EB7B1A9E791FF871F388789D39C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910758   (619975) от 21.06.2015
 
 Tommy Flanagan - Let's: play the Music of Thad Jones (1993) /2005, Enja/[FLAC|tracks+.cue]<Jazz, Post-Bop, Piano Jazz>
@@ -721,35 +750,6 @@ Eartha Kitt - The Real... Eartha Kitt (The Ultimate Collection) (2015) 3CD [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55FA1BBF24C91A991D950D886A69EFD3644D7585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037061   (615743) от 23.07.2016
-
-Celine Bonacina Crystal Quartet - Crystal Rain (2016) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smiles for Serious People (7:36)
-02. Cyclone (2:12)
-03. Child's Mood (7:51)
-04. Crystal Rain (4:58)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9160254CD2FC1BF6BC3A6F75AAB2516170828A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

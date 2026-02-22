@@ -1,3 +1,32 @@
+###  Публикация: 1272223   (146002) от 26.12.2018
+
+Roy Hargrove - The Vibe (1992) BMG Novus [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vibe [6:34]
+02. Caryisms [7:04]
+03. Where Were You? [5:03]
+04. Alter Ego [6:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192A0D2ED2311EAA43C6DFBD7E1FCC86F4E90A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678314   (145998) от 21.11.2023
 
 VA - Cookin' Jazz vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -744,35 +773,6 @@ Enrico Pieranunzi & Horns - Evans Remembered (2001) Via Veneto Jazz [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13612E2ED709E83A8CCE57409CDBA406DABA0887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435617   (144641) от 28.12.2020
-
-5 Miles to Memphis - 5 Miles to Memphis (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Feel Alright (4:07)
-02. I'm Steppin' Out (3:36)
-03. My Big Cadillac (3:45)
-04. 5 Miles to Memphis (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E5BEEAF0369267F64AA4EF85AD28937D8319F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

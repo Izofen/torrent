@@ -1,3 +1,264 @@
+###  Публикация: 1422853   (306295) от 10.11.2020
+
+After Forever - Follow In The Cry - Silence From Afar (2000) Limited Edition [FLAC|Lossless|tracks + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow In The Cry (4:04)
+02. Silence From Afar (Radio Version) (4:38)
+03. Wings Of Illusion (7:21)
+04. Mea Culpa (Acapella) (2:17)Жанр: Symphonic Gothic MetalПродолжительность: 00:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DB89D0E7E70FD3A85A469552CD5D4ED8FA45B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422863   (306294) от 10.11.2020
+
+After Forever - Monolith Of Doubt (2002) Limited Edition [FLAC|Lossless|tracks + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolith of Doubt (Single version) (3:32)
+02. For the Time Being (5:04)
+03. Forlorn Hope (6:21)
+04. Imperfect Tenses (Orchestral version) (4:06)Жанр: Symphonic Gothic MetalПродолжительность: 00:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BE4710CA4586A54A0F1507F24E07689883B661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422846   (306287) от 10.11.2020
+
+After Forever - Prison Of Desire (2000) Reissue, 2003, Transmission Records [FLAC|Lossless|tracks + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mea Culpa (The Embrace That Smothers - Prologue) (2:00)
+02. Leaden Legacy (The Embrace That Smothers - Part I) (5:05)
+03. Semblance of Confusion (4:06)
+04. Black Tomb (6:26)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEAF3AA61A9A3C91AE0D3147F4DBBF34DDB7D387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422868   (306286) от 10.11.2020
+
+After Forever - Decipher (2001) Reissue+EP, 2007, Avalon [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ex Cathedra (Ouverture) (2:02)
+02. Monolith Of Doubt (3:32)
+03. My Pledge Of Allegiance #1 (The Sealed Fate) (6:25)
+04. Emphasis (4:20)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3410BB706B94ABE4CBDEAEABE4776EA375644AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422898   (306166) от 10.11.2020
+
+After Forever - Remagine (2005) [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter (01:06)
+02. Come (05:02)
+03. Boundaries Are Open (03:44)
+04. Living Shields (04:11)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F19765BE1DB075DE7BFD5251A6FC8D7BA9FC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422874   (306162) от 10.11.2020
+
+After Forever - After Forever (2007) Japanese Edition [FLAC|Lossless|tracks + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discord (4:37)
+02. Evoke (4:24)
+03. Transitory (3:29)
+04. Energize Me (3:10)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7530C2BAB34F4026AF3B930FC13B9C1F28987ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422916   (306150) от 10.11.2020
+
+Ad Infinitum - Chapter I: Monarchy (2020) Limited Edition [FLAC|Lossless|image + .cue] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infected Monarchy (5:46)
+02. Marching on Versailles (3:51)
+03. Maleficent (3:51)
+04. See You In Hell (3:50)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 0:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B528B046E150CC93DE4524EFE0F78851875243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261306   (305686) от 10.11.2018
+
+Drakkar - Diabolical Empathy (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Arrival
+02 Rose Hall's Great House
+03 Stigmata
+04 The Witches Dance(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B681F8C133AC3296498D938F6177F845E0DD662E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261286   (305685) от 10.11.2018
+
+Khorada - Salt (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edeste (7:18 )
+02. Season of Salt (9:04)
+03. Water Rights (6:03)
+04. Glacial Gold ( 8:30)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3057EA43F5DC9F81820F90E1189F4F5066A0954F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261307   (305684) от 10.11.2018
 
 Unholy - Rapture (1998) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
@@ -478,267 +739,6 @@ Manimal - Purgatorio (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C4378DC4196B7166F042887854911250188D3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261677   (301286) от 12.11.2018
-
-A Dying Planet - Facing The Incurable (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Resist (14:06)
-02.Facing The Incurable (10:22)
-03.Human Obsolescence (7:43)
-04.Poison The Well (8:08)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D6031E1486AB9F2E0E3F49E51E9CBF36AA8B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961285   (301239) от 01.12.2015
-
-Dio - Sacred Heart (1985) Japanese Edition [FLAC|image + .cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Of Rock And Roll (3:44)
-02. Sacred Heart (6:28)
-03. Another Lie (3:50)
-04. Rock 'n' Roll Children (4:33)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A55C8B5712A66512F49A2165503761BB0F845C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184419   (301184) от 17.11.2017
-
-Tarja - From Spirits and Ghosts (Score for a Dark Christmas) (2017) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301184.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. O Come, O Come, Emmanuel (4:57)
- 2. Together (3:21)
- 3. We Three Kings (3:54)
- 4. Deck The Halls (2:45)(   Читать дальше...   )Жанр: Symphonic Metal, Gothic MetalПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569EA5A7AA61144A4262E525AE86A692B01D8C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333904   (301156) от 26.10.2019
-
-Alcest - Spiritual Instinct (2019) [FLAC|Lossless|Web-DL|tracks] <Post-Metal, Blackgaze, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Jardins De Minuit (7:53)
-02. Protection (5:50)
-03. Sapphire (5:01)
-04. L'Île Des Morts (9:04)(   Читать дальше...   )Производство: Nuclear Blast - 727361509668Жанр: Post-Metal, Blackgaze, ShoegazeПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F864037B4FD0E7344B343C23BAF2AE394A008C76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 171711   (300965) от 17.11.2017
-
-Queensryche - Empire  (1990) Remastered, 2000, DCC Compact Classics ‎[FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best I Can (5:36)
-02. The Thin Line (5:43)
-03. Jet City Woman (5:21)
-04. Della Brown (7:04)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA25AA6EA1FB85D86AA04198621374EE630BB150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423353   (300760) от 13.11.2020
-
-Vernissage - Intensiv (1998) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Augenzeugen
-02. Pathetic
-03. Hypocrite
-04. Cold Surprise(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474216546BE95F3736C794F37C884E2771B51F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423340   (300759) от 13.11.2020
-
-Valley's Eve - Prodigia (1997) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape
-02. Stigmata
-03. Self Proclaimed Messiah
-04. Ulterior Quest(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3145572D124A8577204653F4EA823F15B245B890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423356   (300756) от 13.11.2020
-
-Versital - A New Millennium (1999) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Light Disappears
-02. You Can't Kill Me
-03. A New Millennium
-04. Come Back To Me(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F5CBCEB16C548C45E9DA48BD591836A6DA51F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184718   (299436) от 18.11.2017
-
-Black Reaper - Blood Moon Rising (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonrise 01:04
-02. Blood Moon Rising 04:46
-03. Disguise 05:17
-04. Psycho 03:53(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6377226B144271CE5B5690F86988CDCF39032A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

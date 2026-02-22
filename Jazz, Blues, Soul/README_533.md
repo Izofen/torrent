@@ -1,3 +1,32 @@
+###  Публикация: 1705563   (113771) от 09.03.2024
+
+Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan [8:20]
+02. April in Paris [5:05]
+03. Cherokee [2:26]
+04. Goodbye [8:17](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5F78302854161D3901575A2CA3F52EF705ADEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705561   (113766) от 09.03.2024
 
 Stephane Grappelli - Shades Of Django (1975) 1989, MPS Records [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
@@ -716,35 +745,6 @@ The Bad Dad Orchestra - Makin' Me Wild (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A08BED52421A0655C32FF65D90E378A4A402B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706601   (113575) от 13.03.2024
-
-Jack Fossett - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minty (4:52)
-02. Barely Hanging On (3:06)
-03. The Snow Storm Strut (6:10)
-04. Taking the Blue Line (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBE934C6517C4E78C5D933365B3DB17063DEEC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

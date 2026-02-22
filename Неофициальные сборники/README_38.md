@@ -1,3 +1,293 @@
+###  Публикация: 1483236   (1006955) от 12.07.2021
+
+VA - Виртуозы Жанра - Russian Blues (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анатолий Жемаев - Неспетая [04:15]
+02. Андрей Козловский и группа 'ГрассМейстер' - Нужно взять себя в руки [03:24]
+03. Декабрь - Одесса-Мама [04:11]
+04. Борис Булкин - Одиночество и блюз [04:47](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 09:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6747E071A9A4126CCB49F8C1FA1DC78931717AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483444   (1006883) от 13.07.2021
+
+VA - That Other World: Indie & Alternative Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006883.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pale Waves - Wish U Were Here
+002. The Natvral - Sylvia, The Cup Of Youth
+003. That Handsome Devil - Punch In The Face
+004. Flock Of Dimes - Hard Way(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA386C4CE0D5E38A077E339948380FFCFF4304B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483381   (1006850) от 13.07.2021
+
+VA - Новички в попсе Vol 9 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лёха Ерох - Дай мне себя (2:52)
+02. MARUSHOVA - Омут (2:46)
+03. White Punk, ulwu.nite - Холодный (3:21)
+04. Antew - Самая (3:00)(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043558CD2722A00E4480ACD097553AACABC12116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483456   (1006778) от 14.07.2021
+
+VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006778.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peetu S - Afterlife
+002. Human Force - Sun Rising High
+003. Green Court - Silent Heart
+004. Wavetraxx - Lost Transition(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15575E00776F7C701B1013DD65AF3A8D40B4CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483744   (1006598) от 15.07.2021
+
+VA - Громкие новинки Июля (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. StaFFорд63, Яна Вайновская - Лебединая (2:52)
+02. Kane Brown, blackbear - Memory (2:33)
+03. Justin Bieber, The Kid LAROI. - Stay (2:21)
+04. DAVA - ОДИНОКИЙ ДЭНС (2:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE96EFC43E4831CBE434C8004A76A348321CF6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484309   (1006116) от 19.07.2021
+
+VA - Record Super Chart 17.07.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (3:20)
+02. Markul, Джарахов - Я в моменте (2:06)
+03. Nessa Barrett feat. jxdn - la di die (3:15)
+04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C5BEA4B54B02613927134D0B6F79DCF4B62167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484115   (1006092) от 19.07.2021
+
+VA - Зайцев.нет Лучшие новинки Июля (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bogdan Vand - Под покровом ночи (3:06)
+02. Kessy Black, Melis Treat, Snilex - Ignore (3:32)
+03. NLO, Анет Сай - Выходи (1:48)
+04. Ербол Хамза & Айжан Сейтенова - С тобою (3:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06590AB750C7C84ED5F1E2440AD11576937A2FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484270   (1006081) от 19.07.2021
+
+VA - Rock Hits (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006081.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pearl Jam - Release (9:06)
+002. Green Day - Jesus of Suburbia (9:08)
+003. Guns N' Roses - November Rain (8:57)
+004. Green Day - Holiday Boulevard of Broken Dreams (8:13)(   Читать дальше...   )Жанр: RockПродолжительность: 25:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91D6A9964C252C7AF5EB2E638CF3F7F6D863412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484815   (1005696) от 23.07.2021
+
+VA - Music News vol.117 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005696.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sonya - Парень (03:39)
+ 002. Alchemist Project - Waiting For (02:53)
+ 003. Alexander Oscar - Sunlight (03:19)
+ 004. Alina Baraz - Alone With You (03:46)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8419FB80276CDA830BBA94D4522905386B3A7103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484852   (1005681) от 23.07.2021
+
+VA - Blues live concert (2021) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddy Guy - First Time I Met the Blues (Live)
+02. Delta Moon - Stuck in Carolina (Live)
+03. Eric Clapton/Steve Winwood - Georgia on My Mind (Live from Madison Square Garden)
+04. Johnny Winter - Leland Mississippi Blues (Live at The Woodstock Music & Art Fair, August 17, 1969)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 17:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F725112EA58D2C1272A4CA53E7162F96FA8D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485304   (1005442) от 25.07.2021
 
 VA - Record Super Chart 24.07.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -455,296 +745,6 @@ VA - Fantasmatic: Synthwave MPM (2021) [MP3|320 Kbps] <Synthwave, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B17EA12224B40FAF46BE80E0B745895953A479A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486601   (1004573) от 01.08.2021
-
-VA - Get Lucky Punk Rock (2021) [MP3|320 Kbps] <Punk Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004573.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sketchy Trench - Greater
-002. Kolossus Däächt - Fast Food
-003. Lice - R.D.C.
-004. Tocotronic - Stürmt Das Schloss(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 08:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4042E3F56BBC8A680F5BA2BDB0AF4C339D2CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486595   (1004567) от 01.08.2021
-
-VA - German Top 100 Single Charts 30.07.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAF Camora & Bonez MC - Blaues Licht
-02. Ed Sheeran - Bad Habits
-03. Pashanim - Sommergewitter
-04. The Kid Laroi & Justin Bieber - Stay(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC37B59ECF8FE2955DA845BACE92E49D20F98958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486604   (1004552) от 01.08.2021
-
-VA - Greatest Hard Rock And Metal Songs (2021) [MP3|320 Kbps] <Hard Rock, Hardcore, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004552.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bushido Code - Stench Of Cowards Rot
-002. Nailwound - On Sight
-003. Purgatory - Disease
-004. Lamb Of God - Memento Mori(   Читать дальше...   )Жанр: Hard Rock, Hardcore, MetalПродолжительность: 10:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D531839A88CFB96AA247D98E4DDA4535F4ADF857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486571   (1004550) от 01.08.2021
-
-VA - Chanson Soul De France (2CD) (2021) [MP3|320 Kbps] <Chanson, Folk Lyric>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004550.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Carla Bruni - Partir Dans La Nuit
-02. Lou - Comment Savoir(   Читать дальше...   )Жанр: Chanson, Folk LyricПродолжительность: 05:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17087DF11422ABE11BA6B1BC7FC745A1FE53183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486774   (1004538) от 01.08.2021
-
-VA - Shazam & Apple Music Chart (Россия Топ 100 Июль) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004538.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artik & Asti - Она не я (3:34)
-002. The Limba, Andro, Navai - Никаких эмоций (3:58)
-003. Dzharakhov, Markul - Я в моменте (2:06)
-004. BRANYA, MACAN - Пополам (2:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035A185F8D4C133F707BFC046E4207282AE2A8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486721   (1004512) от 01.08.2021
-
-VA - Русские 90' (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пропаганда - Яй-я (4:02)
-02. J-POWER - Она Его Не Любит (3:18)
-03. АлоЯ - Капал дождь (4:21)
-04. 140 ударов в минуту - Ноты на стекле (4:02)(   Читать дальше...   )Жанр: PopПродолжительность: 04:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03549065984F0AEFC6872C7D8A7D3CBE4AD11E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349383   (1004479) от 01.01.2020
-
-VA - не Громкие новинки недели 50 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004479.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.2 Маши - Не Буди (Video Edit) (3:59)
-2.Adeli - Навсегда (3:36)
-3.Alex Simons - Роза (2:54)
-4.Alina Botanovna - Небезопасно (3:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C2C4A5BAADF5108503D7F26995624B627D5A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486931   (1004374) от 02.08.2021
-
-VA - Hard Dance Clubbing: Hardstyle Megaset (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro Clubbing Core>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004374.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Psiko & Hysta - Lockdown
-002. Teka B & G-Fresh - The Darkness
-003. Paulie - Pointing Fingers
-004. John Bounce - Tell Me(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, Electro Clubbing CoreПродолжительность: 08:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF64E4C0FDB8ADCB570A5F11F27B73CD2011387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486940   (1004371) от 02.08.2021
-
-VA - Tech Athletics Mix (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004371.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Terriers - Octagon
-002. H! Dude - Doesn't Matter
-003. Bryan Chapman - Journey Of Conarium
-004. Mvi - 33 Knots(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 10:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3BA6F41B077AB1C421FB0D0C45F161F022EC74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486932   (1004369) от 02.08.2021
-
-VA - Hardstyle Fitness Collection (2021) [MP3|320 Kbps] <Hardstyle, hard dance, electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. B-Front - Thank God For Music
-002. Frequencerz - Perfect Unity
-003. Fracus & Hartshorn - Ready For Love
-004. Ophidian - The Middle Children(   Читать дальше...   )Жанр: Hardstyle, hard dance, electroПродолжительность: 09:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542A0FE96493B393476C0B323C99F1DF556BA627
 ```
 
 https://mybot314.ru/tekegram_catalog/

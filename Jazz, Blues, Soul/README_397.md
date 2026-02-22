@@ -1,3 +1,32 @@
+###  Публикация: 1337691   (272641) от 12.11.2019
+
+Nina Simone - A Very Rare Evening (2013) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Morning (B.Gibb) - 3:49
+02. Turn! Turn! Turn! (To Everything There Is a Season) (Seeger) - 4:17
+03. To Love Somebody (B.Gibb-R.Gibb) - 2:38
+04. Ain't Got No/I Got Life (From the Musical "Hair") (Rado-Ragni-MacDermot) - 5:22(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DCCFE7A5C37482D7A4AFA0A28660E0E04A7212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083981   (272603) от 17.12.2016
 
 The Count Basie Orchestra - A Very Swingin' Basie Christmas! (2015) Concord Jazz[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -714,35 +743,6 @@ Bryan Ferry And His Orchestra - Bitter-Sweet (2018) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B7659B2AA6B6777D3F62B9F195CFB227D13A21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337965   (270688) от 14.11.2019
-
-James Williams, Richard Davis, Ronnie Burrage - I Remember Clifford (1990) DIW [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As I Live and Breathe [9:01]
-02. I Remember Clifford [6:29]
-03. Take the Coltrane [5:29]
-04. Simone [7:48](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B13233326B077226E9DBC44DB61E6EEA904D1B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1209181   (779517) от 25.02.2018
+
+Trace Adkins (Трэйси Эдкинс) - The Definitive Greatest Hits: Til The Last Shot's Fired (2010) Hump Head, 2×CD, Compilation [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трэйси Эдкинс - американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. Ladies Love Country Boys 3:42
+02. Lonely Won't Leave Me Alone 3:06
+03. You're Gonna Miss This 3:44
+04. Muddy Water 3:54(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835169273A5E6EDC1E37A8897F90F4E1E440FC06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209290   (779452) от 25.02.2018
+
+ABBA - The Ultimate Collection (2004) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fernando [04:14]
+02. I Let the Music Speak [05:21]
+03. Chiquitita [05:27]
+04. Eagle [05:52](   Читать дальше...   )Жанр: PopПродолжительность: 05:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997A745DEDF1D7900EB51FE1DA2B30B79CC2EF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209322   (779403) от 26.02.2018
+
+Shenandoah Davis - Souvenirs (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779403.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Wings 03:18
+2. Supernatural Powers 04:02
+3. Seventeen 03:23
+4. Gold Coast 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485E74810AEF16F9A8CF4316BBDD87A4F02FAF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209627   (779287) от 27.02.2018
+
+The Creatures - 6 Albums, 1 Compilations (1982-1999) [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одни из пионеров  итало-диско. The Creatures - проект с элементами шоу, основанный двумя продюсерами и аранжировщиками Mario Flores, Maurizio Sangineto.Список альбомов:
+1982 - Expansion
+1983 - Believe In Yourself
+1985 - Illusion(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 05:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7276293F3FCE8A1D51A64370F227229B1ACB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209487   (779275) от 27.02.2018
 
 VA - Love: Box Set (2018) 3CD [MP3|320 Kbps] <Pop, Soul, Pop/Rock>
@@ -630,122 +746,6 @@ Anjali Ray - Indigo (2016) [FLAC|Lossless|tracks] <Pop, Jazz, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:924B7BEEBD6F39384298747E109AEB9089911BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012666   (778355) от 02.05.2016
-
-VA - Now That's What I Call Fitness (2016) [MP3|256 кб/с] <Pop, Club, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778355.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Zara Larsson -  Lush Life  3:19
-02. Mike Posner -  In Ibiza (SeeB Remix)  3:14
-03. Tinie Tempah -  Not Letting Go (feat. Jess Glynne)  3:48(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 03:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCCB20DB6FC62F722A8C4FC4B9CCD5E802120356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012821   (778343) от 02.05.2016
-
-Engelbert & Tom Jones - Back To Back: The Best Of Engelbert & Tom Jones (1989) Recordings 1965 - 1969 [APE|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Engelbert Humperdinck - Release Me
-02. Engelbert Humperdinck - There Goes My Everything
-03. Engelbert Humperdinck - The Last Waltz
-04. Engelbert Humperdinck - Am I That Easy To Forget(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA23A158587D4A349E26DE59FBA3DE609AFBAC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012922   (778314) от 02.05.2016
-
-VA - Ultimate - Dance (2016) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778314.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Пpодолжительность: 01:07:29
-
-1. Calvin Harris - Blame (feat John Newman) (3:31)(   Читать дальше...   )Жанр: PopПродолжительность: 04:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9819E7518A6D597C4D7A88D889BDAC585364AA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012678   (778305) от 02.05.2016
-
-Barry White - A Collection Of Great Songs (uy) Unofficial Release [APE|Lossless|image + .cue] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let The Music Play
-02. I'm Gonna Love You Just A Little More, Baby
-03. You're The First, The Last, My Everything
-04. Can't Get Enough Of Your Love, Baby(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 01:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06ECB26A4B257DD4E8373BE10E43B1907428C73
 ```
 
 https://mybot314.ru/tekegram_catalog/

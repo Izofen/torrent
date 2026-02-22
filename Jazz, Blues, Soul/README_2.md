@@ -1,3 +1,90 @@
+###  Публикация: 1844693   (1050286) от 27.12.2025
+
+Threestyle - Christmas Is My Favourite Season (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Christmas Is My Favourite Season (3:22)
+02.  First Christmas (3:45)
+03.  Christmas in July (3:45)
+04.  New Kind of Christmas (3:29)(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, ChristmasПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E883CAD2AF6AB845A43B2B0883D5C6B30C07F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844696   (1050283) от 27.12.2025
+
+Threestyle, Magdalena Chovancova, Robert Fertl, Damon Dae - We Have That Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Love for Free (3:49)
+02.  Change of Heart (3:54)
+03.  Real Love (4:38)
+04.  All over Again (4:16)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB4F92F8732CE5C8274029FD55199AA16AC5982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844701   (1050281) от 27.12.2025
+
+Tony O Blues - Free Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hard Day Blues (4:25)
+02.  Rich Man's Woman (4:44)
+03.  Free Life (3:56)
+04.  You Don't Know Me (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C5725550838B8EDCA4576ECC55A6C5E69095B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844705   (1050278) от 27.12.2025
 
 Trowbled Ron - Snnr (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ Mark Alonzo & The Nashville Rhythm Kings - Jaded Fool (2025) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B98D676D57C28903FDE3FFB35501D09ED4C2A966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843757   (1049496) от 21.12.2025
-
-Blueback - Blueback Revisited (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Walk On Revisited (3:48)
-02.  The Things in These Rooms (3:10)
-03.  Do It The Natural Way (2:30)
-04.  There's a Tavern Up in Nashville (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92245E0F292938FE88E5B9FECE4EABB722DF42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843758   (1049495) от 21.12.2025
-
-Bluesman and The Blues Essentials - Girl of My Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blind Love Blues (3:53)
-02.  Satisfied (3:45)
-03.  The Way (4:44)
-04.  I Can't Say Goodbye (7:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433C84021CEB55D331CEB997B16BFB7ABD9834F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843761   (1049494) от 21.12.2025
-
-Bonny B. - Love & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blue Tone (5:48)
-02.  All on Board (4:52)
-03.  Run in the Rain (5:08)
-04.  My Story (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6A8BD69D7E0AF0A61161DF74D14DEA0A575C1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,261 @@
+###  Публикация: 1582199   (323584) от 09.10.2022
+
+Never Back Down - Downfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Time (0:52)
+02. Golddigger (4:37)
+03. Call to Arms (3:48)
+04. Marigold (3:58)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8DFEB2470232708BF62366F1114C79594759FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259076   (323545) от 02.11.2018
+
+Sundrifter - Visitations (2018) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sons of Belial (04:35)
+02. Death March (04:46)
+03. Lightworker (04:15)
+04. Targeted (04:45)(   Читать дальше...   )Жанр: Stoner Rock, Psychedelic RockПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD48373BC882ED5A818983FDA38D3A8854700CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259063   (323537) от 02.11.2018
+
+The Ocean - Phanerozoic I: Palaeozoic (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Atmospheric Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cambrian Explosion (01:54)
+02. Cambrian II: Eternal Recurrence (07:51)
+03. Ordovicium: The Glaciation of Gondwana (04:49)
+04. Silurian: Age of Sea Scorpions (09:36)(   Читать дальше...   )Жанр: Progressive, Atmospheric Sludge MetalПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BE1310569982EE78131945BBE9920DBA3C32DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582200   (323490) от 09.10.2022
+
+Neroargento - Land Of Silence (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic Metal, Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323490.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Way I Am
+2. You Killed Me
+3. The Nameless One
+4. From This Nightmare(   Читать дальше...   )Жанр: Electronic Metal, Industrial RockПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E76C9F9EF52EBEA9E2285B8108E31F5D61376D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582191   (323489) от 09.10.2022
+
+Edenbridge - Shangri-La (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - At First Light (08:03)
+02 - The Call of Eden (03:49)
+03 - Hall of Shame (04:59)
+04 - Savage Land (04:32)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1AB15E3290670042E055849240DC9D724A9A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582286   (323358) от 09.10.2022
+
+Lost Society - If The Sky Came (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 112 (03:49)
+02. What Have I Done (04:02)
+03. (We Are The) Braindead (03:39)
+04. Stitches (03:29)(   Читать дальше...   )Жанр: Metalcore, Nu-MetalПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3078290E1E8579DFC1954548D2073C3DC933B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582410   (323344) от 09.10.2022
+
+Lacrimosa - Abendlied (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche Todeskunst>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Abendlied (Single)Жанр: Neue Deutsche TodeskunstПродолжительность: 00:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A2E8390A761C906FD2145D8F92D020C71ABE53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582428   (323169) от 09.10.2022
+
+Iron Maiden - Live …New York 1982 (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murders In The Rue Morgue
+02. Wrathchild
+03. Run To The Hills
+04. Children Of The Damned(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD63B5C004CF21AECF699B499B60F7E5C1C0A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582181   (323166) от 09.10.2022
+
+Eclesios - Halls of Salvation (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Halls of Salvation (09:13)
+02 - Eclesios (07:33)
+03 - N.O.S (08:41)
+04 - Death Chiming (05:52)(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7CE6D499B5271E54BD40E6210205DC172743F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259224   (323096) от 02.11.2018
 
 Metallica - Kill 'em All (1983) 1988, Reissue [FLAC|Lossless|tracks + .cue] <Heavy Metal>
@@ -496,265 +754,6 @@ Toxik - III Works (2018) 3CD [FLAC|Lossless|image + .cue] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:625D2C4A648CD643C43AC8A3E3128B02BCBEB5FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259438   (318936) от 04.11.2018
-
-Гетьман - Вітер З Гаєм Розмовляє (2012) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Вітер З Гаєм Розмовляє (7:01)
-02-Було Колись В Україні (6:39)
-03-Рубаї (7:48)
-04-Пісня Вовків (4:54)(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317DCA8A206742DCA9A3678FD8FCE030D1FFDEEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582659   (318935) от 11.10.2022
-
-EldersThrone - 1978 (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Forsaken (03:07)
-02 - Possession (04:21)
-03 - Wasteland (04:21)
-04 - Armageddon (03:03)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FA8AE5CAA8BA63010AF7BD984F02144FE0D569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582703   (318934) от 11.10.2022
-
-Amaurot - ...to Tread the Ancient Waters (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aether Child (05:48)
-02 - Des Wanderers Leid (04:50)
-03 - Starless Sky (05:54)
-04 - Ritual (06:55)(   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8DF728C2D381CB8817F514E367463FBFA7322B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582739   (318931) от 11.10.2022
-
-Them - Return To Hemmersmoor (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diluvium
-02. Age Of Ascension
-03. The Tumultous Voyage To Hemmersmoor
-04. Free(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B564FF760CFB0033842CC82877ECE1881C1CD42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582637   (318929) от 11.10.2022
-
-Egoist - Наследие (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Последний Рассвет (Last Sunrise) (04:51)
-02 - Наследие (Heritage) (04:34)
-03 - Корона Смерти (Deathcrown) (05:37)
-04 - Некромант (Necromancer) (04:14)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266059872614539965008F6413425B4966BAF6BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582583   (318926) от 11.10.2022
-
-Trick Or Treat - Creepy Symphonies (2022) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trick Or Treat?
-02. Creepy Symphony
-03. Have A Nice Judgment Day
-04. Crazy(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6A5658BE1388F1C2F5F2590C594A8BFBB816E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582753   (318924) от 11.10.2022
-
-Fallujah - Empyrean (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bitter Taste Of Clarity
-02. Radiant Ascension
-03. Embrace Oblivion
-04. Into The Eventide(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB178A32C164046E606E7992E5AB273F127AADDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582584   (318915) от 11.10.2022
-
-Wolfheart - King Of The North (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyforger
-02. Ancestor
-03. Knell
-04. Desolated Land(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEC4FC02DD5D3993FA005D6FA1AB5EC948CBA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582510   (318909) от 11.10.2022
-
-Vended - 1 EP, 1 Single (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318909.jpg" />
-</div>
-
-
-###  Подробнее
-
-2021 - What Is It//Kill It (EP)
-2021 - Ded to Me (Single)Жанр: Heavy Metal, Nu-MetalПродолжительность: 00:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E78BFF7971B1288CC617100C051F1B8F9F2416
 ```
 
 https://mybot314.ru/tekegram_catalog/

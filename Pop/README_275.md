@@ -1,3 +1,90 @@
+###  Публикация: 1342749   (222757) от 03.12.2019
+
+Sphinx - Sphinx (1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Girl (5:23)
+02. When I'm In Love (5:29)
+03. Collision (5:19)
+04. Love In ''C'' Minor (8:56)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDF0A56EB67C1966465A446268AF69D0E4C7114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342576   (222705) от 03.12.2019
+
+VA - MNM Party 2019 Vol.1 (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta – When Love Takes Over (feat. Kelly Rowland)
+02. Swedish House Mafia & Tinie Tempah – Miami 2 Ibiza
+03. Moby – Disco Lies
+04. Bingo Players – Rattle(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 02:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F56B248E547C7B2ABB5C4D6C0359B12428D2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585341   (222674) от 21.10.2022
+
+VA - Car Booster Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Electro Pop, Dance, Club, Future House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drive With BeatsBasslovers United - Black Bugatti
+02. YunaMartin Van LectroMonroe & MoralezzJetason - Love Like Fire
+03. Patrick MetzkerYuna - In or Out
+04. Drive With BeatsBeachbag - Speed of Light(   Читать дальше...   )Жанр: Electro Pop, Dance, Club, Future HouseПродолжительность: 00:57:22 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE33EA42E6D58B275BCF8C7A89424BE78B2D9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585305   (222667) от 21.10.2022
 
 Laura Branigan - The Best Of Branigan (1995) [OGG Vorbis|480 Kbps] <Electronic, Funk / Soul, Pop>
@@ -656,93 +743,6 @@ Drezden - Эдельвейс (2019) [MP3|320 Kbps] <Pop, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:734EA067E7536DCAD292E3885913FBE07DBC454B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084656   (220983) от 18.12.2016
-
-VA - Die Hit Rekorde Champions der 90er (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Jackson - Black Or White (3:19)
-02. Roxette - It Must Have Been Love (4:19)
-03. Take That - How Deep Is Your Love (3:42)
-04. Backstreet Boys - Quit Playing Games (With My Heart) (3:54)(   Читать дальше...   )Производство: Sony Music MediaЖанр: PopПродолжительность: 02:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A62ECA499FC10DBC00795884CF77038F77FA681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342993   (220970) от 04.12.2019
-
-Алиса Вокс - Упругий поп концерт (2019) Live [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220970.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выстрелы (Live)
-2. Мой (Live)
-3. Фейерверк (Live)
-4. Вечер (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744CA0E9D1CBED8B03C7153404CB11EDD59BF125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084177   (220934) от 18.12.2016
-
-Dan Lacksman - Electric Dreams (2013) CD [MP3|320 Kbps] <Electronic, Synth-pop, Experimental>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dan Lacksman - полное имя Daniel Pierre Lanckmans. Известен прежде всего как один из "Telex" - электро-поп группы конца 70-х - начала 80-х. После "Telex" продюсировал проект "Deep Forest". Альбом записан и смикширован в студии Synsound, Брюссель (С)2012. Вышел в свет в мае 2013.01. A=440  (4:41)
-02. Electric Dreams  (3:29)
-03. Mac Or PC  (3:18)
-04. I Want My Space  (4:19)(   Читать дальше...   )Жанр: Electronic, Synth-pop, ExperimentalПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD3D07FF01CD6056EE130124460EC80EA9F5F56
 ```
 
 https://mybot314.ru/tekegram_catalog/

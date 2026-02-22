@@ -1,3 +1,29 @@
+###  Публикация: 1381837   (824467) от 08.05.2020
+
+FonePaw Android Data Recovery 3.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824467.jpg" />
+</div>
+
+
+###  Подробнее
+
+FonePaw Android Data Recovery - эффективная программа для обнаружения и восстановления удаленных или потерянных данных с Android устройств. Программа обладает дружественным интерфейсом с простой и понятной навигацией. Сочетая в себе мощные алгоритмы восстановления данных и поддержку множества устройств Android и различных версий ОС Android, программа может стать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC000768D09711C87200C8051C04C0AA535DDF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381835   (824462) от 08.05.2020
 
 Pale Moon 28.9.3 + Portable [Ru/En]
@@ -663,35 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF6D89D6C36416A95DBFD05BFA434AEE8B3E9C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196321   (824234) от 02.01.2018
-
-Dharma Frequency - Yoga Retreat (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Meditation
-02. Andalusian Relaxation
-03. Floating Dreams
-04. Purple Water(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFBE0EF20B0685810B3DC29D46CF8DB113A94AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

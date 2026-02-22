@@ -1,3 +1,119 @@
+###  Публикация: 1401147   (713374) от 08.08.2020
+
+Monk Higgins - Dance To The Disco Sax Of Monk Higgins (1974) LP [MP3|320 Kbps] <Funk Soul, Jazz, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showdown (4:41)
+02. I Believe In Music (3:40)
+03. Untill You Come Back To Me (That's What I'm Gonna Do) (3:49)
+04. If Found Sunshine (4:27)(   Читать дальше...   )Жанр: Funk Soul, Jazz, DiscoПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0FCF6AC3BB6EE5608709F6F7CE703E815055B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286364   (713045) от 02.03.2019
+
+Вельвет - Тонкая красная линия (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Сердце мое
+03. Тонкая красная линия
+04. Не молчи(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54990F3C2C13CE5C6EDCCC4C22058A94B460FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286275   (713008) от 02.03.2019
+
+DiscoBonus - Nothing Is Forever (2017) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spend Your Money
+02. Do You Want To Live Forever?
+03. Love Me
+04. The Grand Illusion I: Share The Fantasy(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881737C0D412A8912F3860309F03ED78FC639999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286378   (712886) от 02.03.2019
+
+Donna Summer - Endless Summer (Donna Summers Greatest Hits) (1994) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melody of Love (Wanna Be Loved)
+02. Love To Love You Baby
+03. Could It Be Magic
+04. I Feel Love(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0BBEFCACC9415DB3C486D5118D0538298418D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286412   (712851) от 02.03.2019
 
 Madonna - Platinum Hits '2000 (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
@@ -633,122 +749,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC91B377F0BE34E8D39193B3540DB8E4D6854535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286591   (711019) от 03.03.2019
-
-VA - ZYX Italo Disco Collection 26 (3 CD) (2018) [MP3|320 Kbps] <Italo-Disco, Disco, Euro-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711019.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Den Harrow - Tell Me Why (Extended Version) 8:04
-02. Danny Keith - I Feel Right (Day Version) 7:52
-03. Tension - My Dream (Vocal Version) 5:46(   Читать дальше...   )Жанр: Italo-Disco, Disco, Euro-Disco, Synth-PopПродолжительность: 03:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAE3E974B7A0D7E5DF25442E8F1C28B30B9CC71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286630   (711013) от 03.03.2019
-
-ZAYN - Icarus Falls (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Guy (02:34)
-02. You Wish You Knew (03:25)
-03. Sour Diesel (04:03)
-04. Satisfaction (03:28)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE98794F52443CDC8DE4D3BA8602A9FA117FF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286588   (711002) от 03.03.2019
-
-VA - Русская тридцатка-Семь!!! (2002) 2CD [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это по любви ( Мумий Тролль )
-02. Мой рок-н-ролл ( Би-2 )
-03. В темноте ( Ногу свело! )
-04. Такой я есть ( Виктор )(   Читать дальше...   )Жанр: РорПродолжительность: 01:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B4ADA53E9EE081C06B2B3653712F3E85B037E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286603   (710847) от 03.03.2019
-
-VA - Михаил Танич. Из старенького (1994) [APE|Lossless|image + .cue] <Retro, Советская Эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юрий Антонов - Не забывай
-02. Раиса Неменова - Текстильный городок
-03. Светлана Крючкова - Чёрное и белое
-04. Геннадий Белов - На дальней станции сойду(   Читать дальше...   )Жанр: Retro, Советская ЭстрадаПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C90070ADEE270B57AD1FC2FE5460FA6E6D0012
 ```
 
 https://mybot314.ru/tekegram_catalog/

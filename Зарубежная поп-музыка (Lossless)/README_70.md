@@ -1,3 +1,32 @@
+###  Публикация: 963885   (285504) от 09.12.2015
+
+Demis Roussos - The Singles+ (2003) 2CD [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Shall Dance 3:33
+02. Fire And Ice 4:33
+03. No Way Out 3:10
+04. My Reason 3:58(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C79EAFC44F9E7B1099D4068516415160C76222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963929   (285493) от 09.12.2015
 
 Gloria Estefan - Unwrapped (2003) [FLAC|tracks+.cue]<Latin, Pop>
@@ -708,35 +737,6 @@ Mireille Mathieu - Made In France (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Cha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D83D685C7925216D3ED1EC76047DAAED8EB44FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188469   (273669) от 03.12.2017
-
-Lucio Dalla - Storie di casa mia (1971) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Itaca
-02 - Un uomo come me
-03 - Il bambino di fumo
-04 - Il colonnello(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796AE908BFAC29431FE04E82229336B344280244
 ```
 
 https://mybot314.ru/tekegram_catalog/

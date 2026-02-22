@@ -1,3 +1,177 @@
+###  Публикация: 962264   (295020) от 04.12.2015
+
+Марина Хлебникова - Чашка Кофе (1997) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чашка кофе
+02. Кто ты такой
+03. Билли Бом
+04. Случайная любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012B3252DC6D230847E3A399D4F5C7D2B04BC9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079273   (293750) от 04.12.2016
+
+Модерн Токинг - Поговорим о любви (1986) [WavPack|192/32|tracks|Vinyl-Rip] <Italo-Disco, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Любимая (Cheri Cheri Lady) 3:46
+02. Немного любви (With A Little Love) 3:34
+03. Бурные воды (Wild Wild Water) 4:18(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E852E0752B4053D4BE077EE822CB8F29FEEF137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185440   (293301) от 21.11.2017
+
+Rockets -Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electro, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiate 4:44
+02. Imagine E.S.P. 5:04
+03. Ziga Ziga 999 4:04
+04. Hypnotic Reality 3:54(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72FA5930D05C0F7141A0157059789542E01A67DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262393   (293150) от 16.11.2018
+
+VA - Jazz Collection Non Stop Part I (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Bernard Allison - So Devine
+02. George Benson - Off Broadway
+03. Eartha Kitt - Nobody Taught Me(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A97B61574C39C7435504081EB30868D33264BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185421   (293131) от 21.11.2017
+
+Gazebo - Telephone Mama (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+
+A1 Telephone Mama
+ A2 First!(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DB1CC47D89527F6FC9E55DA8369313AB908B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185401   (293124) от 21.11.2017
+
+Den Harrow - Overpower (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+
+1. Bad Boy 4:18
+ 2. Overpower 4:18(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F8F90DECF1492457B62EC2EE220B38D3593419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185474   (292955) от 21.11.2017
 
 VA - Italo Maxi-Hits (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]  <Electronic>
@@ -571,183 +745,6 @@ Toccata In C Major, B. 564
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD12A25ED340DB6E47FBCCF0FF80D700A77E692E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082094   (280157) от 11.12.2016
-
-Modern Talking - Ready For Romance (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Italo-Disco, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Брат Луи (Brother Louie)  3:40
-02. Лишь мы вдвоем (Just We Two (Mona Lisa))  3:56
-03. Леди Лэй (Lady Lai)  4:56(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72ABC07BE618FA632E5E68B9C35A4B681867409E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082282   (278409) от 12.12.2016
-
-Didier Marouani - Space Opera (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part 1 (4:41)
-02. Part 2 (2:53)
-03. Part 3 (3:51)
-04. Part 4 (Save Our Soul) (4:44)(   Читать дальше...   )Производство: Мелодия АЗГ - A60 00381 006Жанр: ElectronicПродолжительность: 00:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8E74D059D9D1D194B982BBB5F1DBBC622D4D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 416481   (275658) от 09.11.2019
-
-Led Zeppelin - IV (1971) [FLAC 2.0 24/96 | tracks (Reel-to-Reel Rip)]<Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Dog [00:04:56]
-02. Rock And Roll [00:03:41]
-03. The Battle Of Evermore [00:05:49]
-04. Stairway To Heaven [00:08:00](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:201D0336BABEE1528F539A4F45741B61C5376482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083119   (274502) от 15.12.2016
-
-Братья Жемчужные - Я решил жениться (1994) Запись 1974 г. [FLAC 2.0|44,1/16|tracks|MC-Rip] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я решил жениться
-02. Поезд ехал на Восток
-03. Госпожа Разлука
-04. Школа бальных танцев(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:51
-Страна-производитель: Russia
-Номер по каталогу: none
-Кодек: FLAC (tracks)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D41A13F515B30E2E89B5773073B480A36480D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083755   (273474) от 16.12.2016
-
-Yello - You Gotta Say Yes To Another Excess (1983) 1984, Stiff Records [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273474.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. I Love You (3:25)
-A2. Lost Again  (4:19)
-A3. No More Words  (3:58)
-A4. Crash Dance  (2:09)(   Читать дальше...   )Производство: Stiff Records - STLP/1017Жанр: ElectronicПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3650B4A4BD311C3AC47AA26CDBBBC25CB4387D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188812   (273346) от 03.12.2017
-
-VA - На теплоходе музыка играет. Песни В. Добрынина (1989) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О. Зарубина - На Теплоходе Музыка Играет
-02. А. Серов - Пустыня
-03. ЧП - Жила-Была Речка
-04. Н. Гнатюк - Папа И Мама(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324FB79EF7A443BA48C008F1CACFD22DC62CDA93
 ```
 
 https://mybot314.ru/tekegram_catalog/

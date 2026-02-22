@@ -1,3 +1,32 @@
+###  Публикация: 1095636   (924561) от 21.01.2017
+
+Monty Alexander - Saturday Night (1985) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bolivia [06:33]
+ 02.Body And Soul [06:35]
+ 03.Close Enough [07:02]
+ 04.Funji Mamma [10:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC6E2B207A13D110DFCDCC1D0BA985F01E4A1D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095500   (924559) от 21.01.2017
 
 Bill Evans Trio - At Shelly's Manne-Hole (1963) 1997, Riverside[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
@@ -725,35 +754,6 @@ VA - Louis Armstrong & Friends: What A Wonderful Christmas (1997) Hip-O Records[
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:538C42350EB81067996B170D8044B9242FE39E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095876   (920983) от 23.01.2017
-
-The Modern Jazz Quartet - Together Again: Echoes (1984) 2005, Pablo Records[FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.That Slavic Smile [08:05]
- 02.Echoes [07:10]
- 03.The Watergate Blues [06:09]
- 04.The Hornpipe [08:20](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9D30F308C006BD37B5209B723327992D2D5C24
 ```
 
 https://mybot314.ru/tekegram_catalog/

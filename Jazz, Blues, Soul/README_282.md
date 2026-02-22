@@ -1,3 +1,90 @@
+###  Публикация: 1309853   (549677) от 21.06.2019
+
+Peggy Lee - Pass Me By & Big Spender (1964, 1966) 2001, EMI [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sneakin’ Up on You [2:24]
+02. Pass Me By [2:26]
+03. I Wanna Be Around [2:30]
+04. Bewitched [2:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9A0D5FF060C8B507400F0AC9AF72F959D7EFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309854   (549615) от 21.06.2019
+
+International Mass Choir - I Can Do All Things (1981) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can Do All Things (4:50)
+02. Fill My Cup Lord (6:47)
+03. The Lord Is My Shepherd (2:43)
+04. Even Me, Lord (7:16)(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CEC29BDB0BB217C017A1DD05487A10481A28ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309924   (549536) от 21.06.2019
+
+Quantic - Atlantic Oscillations (2019) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divergence (03:30)
+02. Incendium (04:45)
+03. September Blues (05:06)
+04. You Used To Love Me feat. Denitia (06:18)(   Читать дальше...   )Жанр: Nu Jazz, Soul, FunkПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E11CDE7BAD31BC0AF7D1486A943EBF20BA9B399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309870   (549517) от 21.06.2019
 
 Diana Krall - Doing All Right: In Concert (2011) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -661,93 +748,6 @@ Joe Castro - Groove Funk Soul (1959) Remaster, 2013, Warner[FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D875F7D8EDDBB662F4D382A6F021301F3E145FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048532   (546593) от 02.09.2016
-
-Louis Van Dyke - When a Man Loves a Woman (1968) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When A Man Loves A Women [03:18]
- 02.With A Little Help From My Friends [03:32]
- 03.She's Leaving Home [03:32]
- 04.Mercy, Mercy, Mercy [04:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D727F470A05285C291CC77757E1777EC836CCE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048516   (546589) от 02.09.2016
-
-Art Blakey & Freddie Hubbard - Feel The Wind (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Arieties [05:27]
- 02.Feel The Wind [09:54]
- 03.Embraceable You [09:18]
- 04.Off Minor [06:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD02615AC3546B74C8E9B9C9751992A1437FE357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048270   (546588) от 02.09.2016
-
-Sonny Rollins - Alfie (1965) 1997, MCA Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alfie's Theme [09:45]
- 02.He's Younger Than You Are [05:14]
- 03.Street Runner With Child [04:03]
- 04.Transition Theme For Minor Blues [05:53](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52EDD8236C518F20D11D10C159A45AA062E23FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

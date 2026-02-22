@@ -1,3 +1,32 @@
+###  Публикация: 1476674   (239226) от 12.06.2021
+
+Art Pepper - Seven Classic Albums (1952 - 1960) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239226.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tickle Toe [2:52]
+02. Chili Pepper [2:57]
+03. Susie the Poodle [3:11](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 04:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD169B9B91272E5FF3A7503EB3107391E303594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438181   (239088) от 07.01.2021
 
 Gard Nilssen's Supersonic Orchestra - If You Listen Carefully the Music Is Yours (2020) [FLAC|Lossless|WEB-DL|tracks] <Big Band, Free Jazz, Avant-Garde Jazz>
@@ -716,35 +745,6 @@ Emilie-Claire Barlow - Spark Bird (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D95693B97E698685AD289DED6DC2E401D8A53E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637458   (238275) от 04.06.2023
-
-Eddie Condon - 1942 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Leave Me Daddy [2:39]
-02. Fidgety Feet [2:42]
-03. Mammy O'Mine [4:22]
-04. Lonesome Tag Blues [4:06](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8F35BBDE09A42961C8ECA3D2A4B8281D24026A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 939749   (473093) от 22.09.2015
+
+David Gilmour - Rattle That Lock (2015) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473093.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. 5 A.M (3:04)
+A2. Rattle That Lock (4:56)
+A3. Faces Of Stones (5:32)
+A4. A Boat Lies Waiting (4:34)(   Читать дальше...   )Производство: Columbia RecordsЖанр: Progressive RockПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2BDE3AB596AA4C8412E5D38A8415926E557351D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567593   (472248) от 03.08.2022
+
+Thunderstone - Studio Albums (2002 - 2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thunderstone — финская англоязычная пауэр-метал-группа, образованная в 2000 году в Хельсинки гитаристом Нино Лауренне.2002 - Thunderstone
+2004 - The Burning
+2005 - Tools of Destruction
+2007 - Evolution 4.0Жанр: Power MetalПродолжительность: 05:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFC7CA10275ED994DED6D706FF5CB9928819E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320246   (470791) от 18.08.2019
+
+Walter Trout - Survivor Blues (2019) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Me, My Guitar And The Blues[7:02]
+ 02 - Be Careful How You Vote[3:56]
+ 03 - Woman Don't Lie[5:27]
+ 04 - Sadie[4:45](   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE2E97977248B4A73A38A5F2ED7A72A00288B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406507   (470300) от 05.09.2020
+
+Larisa Stow - Moment By Moment (2001) [MLP 5.1 48Khz/24Bit, DTS 5.1, Dolby AC3 2.0 | DVD-Audio] <Pop, Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470300.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blue Mountain
+2. Living in Your Eyes
+3. Heaven
+4. Invitation(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 0:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6A6D554F9FA850860181156879AB51C6961BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 702389   (469994) от 21.09.2013
+
+Хвост & Аукцыон - Чайник вина (1992) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок / Авангард>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Орландина (4:20)
+A2. И ночь и день (2:11)
+A3. Тайна (3:01)
+A4. Слепой (1:57)(   Читать дальше...   )Жанр: Рок / АвангардПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506E6A04F5BB2BBB92AFF19BB721F51E5BE209C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306433   (468008) от 05.08.2022
+
+T. Texas Tyler - His Great Hits (1967) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468008.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Courtin' In The Rain
+A2 I Ain't Got A Lick Of Sense
+A3 Remember Me
+A4 Filipino Baby(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238BDC466E87923AECC91BE43A9655112EB54803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246023   (467664) от 08.09.2018
 
 Jack Dorsey's Big Band Gold - 50 Years Of Swing (The Ronco Music Library) (1983) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Big Band, Swing>
@@ -565,180 +739,6 @@ B1. Landscape (6:02)(   Читать дальше...   )Жанр: Dream-House, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DBD0D6AA936BE7A0F696B2D053D0E19717B53D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567863   (451350) от 13.08.2022
-
-Sixx: A.M. (58, Brides Of Destruction) - Дискография (2007 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sixx:A.M. — американская супергруппа, основанная в 2007 году бас-гитаристом Mötley Crüe Никки Сиксом как сторонний проект. Для записи материала был приглашен гитарист Диджей Ашба и Джеймс Майкл на роль вокалиста. Название группы происходит от фамилий участников (Sixx, Ashba, Michael).2007 (2017) - The Heroin Diaries Soundtrack (10th Anniversary Edition)
-2011 - This Is Gonna Hurt
-2014 - Modern Vintage
-2016 - Prayers For The DamnedЖанр: Hard RockПродолжительность: 07:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0666DEDB59D17C5D16E425DC31F60F687E27FE00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061186   (448348) от 10.10.2016
-
-Московский Камерный оркестр - В. А. Моцарт – Симфонии №40, №24 (1975) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Симфония № 40 Соль Минор, К.550
-1. Molto Allegro  8:40
-2. Andante  15:30(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C790170D765C41EFDF499BE435AB0C27DB8B2FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061105   (448338) от 10.10.2016
-
-Enigma Club - Амазония (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <World Music, Ethnic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ancestor
-02. Black Elk
-03. Raben's Light
-04. Craftsman's Prelude(   Читать дальше...   )Жанр: World Music, Ethnic
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EB5B761C0D0747A2090124554332430BB0AFEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061148   (448105) от 10.10.2016
-
-Эмиль Гилельс - Л. Бетховен (Сонаты "Патетическая" и "Лунная") (1979) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Соната №8 до минор "Патетическая", соч. 13
-1. Grave. Allegro Molto E Con Brio  8:22
-2. Adagio Cantabile  5:42(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D66340AFB8ECE3EEBBF8E2625F9AF15A40949EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943330   (446906) от 04.10.2015
-
-Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(Vinyl-Rip)]<Industrial, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Strangers [5:36]
-02. Deep Six [5:02]
-03. Third Day Of A Seven Day Binge [4:30]
-04. The Mephistopheles Of Los Angeles [5:01](   Читать дальше...   )Жанр: Industrial, Alternative RockПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA99CAB69897FAB4510C74E7EB34D623F0042E0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570206   (444820) от 16.08.2022
-
-David Crosby - If I Could Only Remember My Name (1971) Reissue, 2022, Mobile Fidelity Sound Lab [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Is Love
-02. Cowboy Movie
-03. Tamalpais High (At About 3)
-04. Laughing(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FC23E0C52ACD0F0356C7D7C0D12C86993D2A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

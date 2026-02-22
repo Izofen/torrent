@@ -1,3 +1,32 @@
+###  Публикация: 1032718   (644013) от 08.07.2016
+
+CodeRunner 2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644013.jpg" />
+</div>
+
+
+###  Подробнее
+
+CodeRunner - универсальный редактор для программиста
+CodeRunner - отличный редактор для программиста с возможностью тестирования и запуска приложений написанных на любом из 22 языков программирования: AppleScript, C, C++, С#, Objective-C/Objective-C++, Java, Javascript (Node.js), jQuery, LaTeX, Lua, Perl, PHP, Python/Python 3, Ruby, Shell script или Swif.
+
+Основные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июля 2016Разработчик: Nikolai KrillПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE9BC4AD75449F522AA43BF165F549C736E9343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032648   (644009) от 08.07.2016
 
 Лора Ли Гурк | Истинное сокровище (2016) [FB2]
@@ -738,32 +767,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB29B1E5E76F7E3F0BFD498FB39228F182617D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 680222   (643790) от 16.07.2013
-
-Рестлинг / WWE Monday Night RAW 15.07.2013 (2013) HDTVRip [H.264] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643790.jpg" />
-</div>
-
-
-###  Подробнее
-
-1,051-й выпуск Monday Night RAWЖанр: СпортПеревод: ОтсутствуетПродолжительность: 2:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B718161F2DB7C74F674DA268EC9F7F015794CDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

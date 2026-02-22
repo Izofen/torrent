@@ -1,3 +1,177 @@
+###  Публикация: 1560684   (25556) от 06.03.2025
+
+Destruction - Studio albums (21 releases) (1984-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_25556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Destruction — трэш-метал-группа из Германии, основанная в 1982 году. Изначально группа называлась «Knight of Demon», но была переименована ещё до выхода первого альбома. Destruction — одна из четырёх наиболее влиятельных групп немецкого трэш-метала, наряду с Kreator, Sodom и Tankard. Эти четыре группы составляют так называемую «большую тевтонскую четверку трэш-метала». (   Читать дальше...   )1984-1985 - Sentence Of Death (EP),  Infernal Overkill
+1986 - Eternal Devastation
+1987 - Mad Butcher (EP)
+1987 - Release From AgonyЖанр: Thrash MetalПродолжительность: 17:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9AC54AAEE8B9849808BDACFEC0438B8E7C335D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784325   (25145) от 10.03.2025
+
+Scorpions - Gold Ballads (1992) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Wind Of Change
+02. Still Loving You
+03. Believe In Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04532FDD6B50A8B18CA4CD58C86EBD69BFCCA0EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620922   (25142) от 10.03.2025
+
+Spiritbox - Studio Albums (6 releases) (2017-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Progressive Metal, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_25142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spiritbox — канадская метал-группа из Виктории, Британская Колумбия. Дуэт мужа и жены, гитариста Майка Стрингера и вокалистки Кортни ЛаПланте, основан в 2017 году. Музыкальный стиль группы трудно отнести к определённому жанру метал-музыки, и он представляет собой множество стилей, включая электронную музыку.2017 - Spiritbox (EP)
+2019 - Singles Collection (EP)
+2021 - Eternal Blue
+2022 - Rotoscope (EP)Жанр: Metalcore, Progressive Metal, DjentПродолжительность: 03:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18DF46E1B8EF09FB3EE0FA4115CDCFBAFB2A024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784788   (24773) от 13.03.2025
+
+Iron Maiden - Collection 1980-1982 (1993) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24773.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Running Free
+02. Prowler
+03. Phantom Of The Poera(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE473B138EE1C2A7B0A242DD154CF3D523B2ACA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641536   (24595) от 15.03.2025
+
+Septicflesh (Septic Flesh) - Studio Albums (12 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Atmospheric/Symphonic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_24595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Septic Flesh — метал-группа из Греции. Коллектив сочетает в своём звучании такие жанры как дэт-метал, симфоник-метал и дум-метал.1994 - Mystic Places of Dawn
+1995 - Esoptron
+1997 - Ophidian Wheel
+1998 - A Fallen TempleЖанр: Atmospheric/Symphonic Death MetalПродолжительность: 11:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2F2FB70D24FFE987691F13935D0B58511A7D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785351   (24573) от 15.03.2025
+
+AC/DC - Star Colletion (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Stiff Upper Lip
+02. Big Gun
+03. The Jack(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DF406D0C1FC71E7A6689D5B781563CC3557D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262394   (24398) от 17.03.2025
 
 VA - Jazz Collection Non Stop Part II (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Jazz>
@@ -568,182 +742,6 @@ Nachtblut - немецкая дарк-метал группа, основанн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F777968699ED6F10B36BFFEBB3F57185143D602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598981   (20179) от 26.04.2025
-
-H.E.A.T - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Arena Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20179.jpg" />
-</div>
-
-
-###  Подробнее
-
-H.E.A.T — шведская рок-группа из Upplands Väsby, играющая в стиле Melodic Rock и AOR.
-Группа возникла в январе 2007 года в результате объединения двух шведских групп Dream и Trading Fate. В 2008 году был выпущен дебютный альбом H.e.a.t.
-Группа выступала на Melodifestivalen 2009 — шведском этапе Евровидения - но не одержала победу в финале.
-После долгих летних (   Читать дальше...   )2008 - H.E.A.T
-2010 - Freedom Rock
-2012 - Address The Nation
-2014 - Tearing Down The WallsЖанр: Arena Rock, Hard RockПродолжительность: 06:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F128002155276B9287FF5E8F65BF4C7B7E90718B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745105   (20167) от 26.04.2025
-
-Sacred Steel - Studio Albums (10 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sacred Steel - немецкая пауэр-метал группа из Людвигсбурга, образованная в 1997 году.1997 - Reborn In Steel
-1999 - Wargods of Metal
-2000 - Bloodlust
-2002 - Slaughter ProphecyЖанр: Epic Power MetalПродолжительность: 08:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:090936DC08D192DA7FD5E892279DC877E983A5D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658183   (20048) от 27.04.2025
-
-Orbit Culture - Studio Albums (8 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orbit Culture — шведская мелодик-дэт-метал группа из города Эксё, образованная в 2013 году.2013 - Odyssey (EP)
-2014 - In Medias Res
-2016 - Rasen
-2018 - Redfog (EP)Жанр: Melodic Death/Groove MetalПродолжительность: 04:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEA716A3F1A52AED6BA3DF8A74558AD23FBDE9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794470   (19838) от 29.04.2025
-
-Smokie/Смоуки - Bright Lights & Back Alleys/Яркий Свет И Темные Улицы (1982) Balkanton, Bulgaria, Licensed From – EMI [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19838.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 It's Your Life • Твоя Жизнь
-A2 I Can't Stay Here Tonight • Не Могу Остаться Здесь В Этот Вечер
-A3 Sunshine Avenue • Солнечный Бульвар
-A4 Think Of Me • Думай Обо Мне(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39CD250A23C420F07AC529951AC06EB5ACFA5E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794646   (19754) от 30.04.2025
-
-Eternal Storm - Studio Albums (3 releases) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eternal Storm - испанская метал-группа, созданная в Мадриде в 2009 году.2013 - From The Ashes (EP)
-2019 - Come The Tide
-2024 - A Giant Bound To FallЖанр: Progressive Melodic Death MetalПродолжительность: 02:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895BA6E788D2DDBF87B0AB5C60B52E5357CC36A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795052   (19565) от 02.05.2025
-
-Barren Earth - Studio Albums (4 releases) (2010-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Barren Earth — финская метал-группа, основана осенью 2007 года в Хельсинки.2010 - Curse Of The Red River
-2012 - The Devil's Resolve
-2015 - On Lonely Towers
-2018 - A Complex Of CagesЖанр: Progressive Melodic Death/Doom MetalПродолжительность: 04:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF72316D01E871914967F50E8E39833B6E8F20F
 ```
 
 https://mybot314.ru/tekegram_catalog/

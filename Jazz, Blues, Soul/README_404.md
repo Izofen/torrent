@@ -1,3 +1,32 @@
+###  Публикация: 1193892   (261807) от 23.12.2017
+
+Anson Funderburgh & The Rockets - Blast Off: The Best Of Anson Funderburgh & The Rockets (2006) [MP3|320 Kbps] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me What Have I Done Wrong? (03:09)
+02. A Man Needs His Loving (03:40)
+03. Come On (02:47)
+04. Rambling Woman (03:03)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33D353D6F44DFD779C521907BB5C51B13AA9F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194020   (261761) от 23.12.2017
 
 Wonderphazz - A Pocket Full Of Smooth Jazz (2016) [MP3|320 Kbps] <Jazz, Smooth Jazz>
@@ -734,40 +763,6 @@ Will Russell - Ghost (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CC4B56D221DC908092A64B12E70D63D97A59681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503846   (260128) от 31.05.2012
-
-VA - Verve Jazz Masters - Vol. 01-60 (1994-1996) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Django Reinhardt And Stephane Grappelli - Sweet Georgia Brown [03:09]
-02. Lionel Hampton And Oscar Peterson - Jam Blues (Excerpt) [04:43]
-03. Ella Fitzgerald & Louis Armstrong - I've Got My Love To Keep Me Warm [03:12]
-04. Kenny Burrell With Gil Evans - Last Night When We Were Young [04:37]
-05. Lester Young - Polka Dots And Moonbeams [03:44]
-06. Oliver Nelson - Ricardo's Dilemma [02:35]
-07. Jimmy Smith - Organ Grinder's Song [02:17]
-08. Billie Holiday - Stormy Weather [03:45]
-09. Gerry Mulligan - Ballad (   Читать дальше...   )Жанр: Jazz |Продолжительность: 00:58:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

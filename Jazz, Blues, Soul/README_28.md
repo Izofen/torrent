@@ -1,3 +1,90 @@
+###  Публикация: 1451264   (1028482) от 01.03.2021
+
+Uncle Albert - Slip in Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Roses (3:04)
+02. In the Middle of the Night (3:34)
+03. Who's Cryin' Now (3:11)
+04. Telephone (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66680EC23F8BE9A8D57BD7FCD57645FC2373AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451259   (1028481) от 01.03.2021
+
+The Nova Hawks - Redemption - Redemption (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo (4:03)
+02. Redemption (4:53)
+03. Dusty Heart (3:55)
+04. Witxh (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E938D8628455DC558922E5F1DBEEB24AD895224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451258   (1028474) от 01.03.2021
+
+The Blues Side - The Blues Side (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake My Head (3:13)
+02. Got a Beautiful House (2:31)
+03. Put the Phone Down (3:05)
+04. You Don't Know What You've Got (3:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF11FADFF26F6E8DF6C715422CCD17992F2CA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451462   (1028384) от 02.03.2021
 
 Ricky Ford - Ebony Rhapsody (1990) Candid [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -658,93 +745,6 @@ Angelo Comincini - Misteri Architettonici (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E9C74B97A1A69FC543E4DFF748490AA71CA382A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453089   (1027115) от 10.03.2021
-
-Willie ''The Lion'' Smith - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woodland Fantasy [2:53]
-02. Let's Mop It [2:53]
-03. Muskrat Ramble [2:46]
-04. Bugle Call Rag [2:52](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD71F219C2891B7887F4295D26CF7ED6E77227F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453251   (1027114) от 10.03.2021
-
-Bud Powell - How High The Moon (1992) Pigeon [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How High the Moon [3:58]
-02. Body and Soul [6:07]
-03. Satin Doll [4:46]
-04. Parisian Thoroughfare [1:58](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A972E8C39EC3A6ACCDDBD3786F4996CD2E589277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453177   (1027043) от 10.03.2021
-
-Harvey Mandel (Snake) - Best of the Janus Years (2020) [MP3|320 Kbps] <Blues Rock, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Batter (03:41)
- 02. Shangrenade (04:15)
- 03. Feel the Sound (06:01)
- 04. What the Funk (03:05)(   Читать дальше...   )Жанр: Blues Rock, Jazz RockПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125DFBE5101A60DD159EBF524B59CBBD36575C45
 ```
 
 https://mybot314.ru/tekegram_catalog/

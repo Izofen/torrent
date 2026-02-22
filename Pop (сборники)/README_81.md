@@ -1,3 +1,32 @@
+###  Публикация: 943801   (446912) от 04.10.2015
+
+VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 15) (2015) [MP3|320 кб/с]<Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Circle - Night Train( Dj Nikolay-D Remix ) (08:23)
+02. Saphir & Dj Nikolay-D - Shot In The Night(Dj Nikolay-D Remix Long Version) (07:40)
+03. Italove & Dj Nikolay-D - Strangers In The Night(Dj Nikolay-D Remix ) (06:38)
+04. Ken Laszlo & Dj Nikolay-D - Mary Ann(Dj Nikolay-D Remix ) (05:52)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D82302A1E8AB2D313E7F91743D73B9F3A81B4EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061855   (446595) от 11.10.2016
 
 VA - Осенний Muz драйв (2016) [MP3|256 Kbps] <Pop>
@@ -722,41 +751,6 @@ VA - US TOP40 Single Charts (29.09.2012) [MP3|234-320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4974598F3CDCF83104934F63480F542E780B88F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554446   (436822) от 01.10.2012
-
-VA - Новинки сезона №2 Русский (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436822.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. СтаЯ - Душа
-002. Алина Артц - Со мной по-другому нельзя
-003. Инфинити - А он такой
-004. Макс Лоренс - За твои глаза
-005. Она - Самая счастливая
-006. Николай Басков - Странник
-007. Ирина Кулькова - Храните любовь
-008. Филипп Киркоров - Я отпускаю тебя
-009. Lalo Project - Город Goodbye
-010. Оксана Казакова - Гипнотизирую(   Читать дальше...   )Жанр: PopПродолжительность: 11:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE889EAFF07C1766EFA4250FDA21E282AB51D6C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

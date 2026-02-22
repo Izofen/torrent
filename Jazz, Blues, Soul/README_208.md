@@ -1,3 +1,90 @@
+###  Публикация: 1288369   (695937) от 11.03.2019
+
+KAVver. - Losen (2016) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip Hop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Losen (5:19)
+02. Charinskiy (5:48)
+03. Asfalt (5:47)
+04. Filya (5:20)Производство: Cuntroll - Cuntroll093Жанр: Dark Jazz, Post Jazz, Post Rock, Kraut Rock, Trip HopПродолжительность: 00:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5186444C908940C93248CDD363562C940BE2B5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288437   (695935) от 11.03.2019
+
+Richard "Groove" Holmes - Onsaya Joy (1975) 2018, Solid Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Georgia Brown [6:42]
+02. Onsaya Joy [15:36]
+03. Green Dolphin Street [7:23]
+04. Song for My Father [6:11](   Читать дальше...   )Жанр: Soul Jazz, Jazz-FunkПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AFA24AAEBD38FCF0CC40DC9C1F11EC3226F6A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288392   (695934) от 11.03.2019
+
+Jarod Bufe - New Spaces (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695934.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pushing Back the Darkness (06:14)
+2. In the Next Room (05:22)
+3. Begin Again (05:34)
+4. Just Not Him (05:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94898197900989633E75DE49398413E82FE2A4C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288365   (695929) от 11.03.2019
 
 KAVver. - Vv (2017) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip Hop>
@@ -654,93 +741,6 @@ The Dave Pike Quartet - Pike's Peak (1962) 2016, Sony Music [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F66994BE5FB891AB128418F98C10A8B0BD809A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133656   (693438) от 13.05.2017
-
-Paul Desmond - Desmond Blue (1961, 1962) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Funny Valentine  [03:53]
-02. Desmond Blue  [03:41]
-03. Then I'll Be Tired of You  [04:07]
-04. I've Got You Under My Skin  [04:43](   Читать дальше...   )Жанр: CoolПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551BE83F7F04ED2C708BE9F6B59157C6A57A53E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133486   (693435) от 13.05.2017
-
-Ragan Whiteside - Treblemaker (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Nu Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:45)
-02. Corey's Bop (4:10)
-03. Early Arrival (Feat. Kim Waters) (4:15)
-04. By The Moonlight (4:00)(   Читать дальше...   )Жанр: Jazz, Nu SoulПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A521C9F2809CE79179B859BBA066F509B0753B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133662   (693431) от 13.05.2017
-
-Art Pepper - The Complete Surf Ride Plus (1951 - 1954) 2CD, 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693431.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Brown Gold [02:24]
-02. The Foolish Things [02:39]
-03. Surf Ride [03:10](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 02:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29136C8109BAFF84D7A694EF6B18987D71FAAD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

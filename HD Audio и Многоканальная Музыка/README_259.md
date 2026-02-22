@@ -1,3 +1,177 @@
+###  Публикация: 1816898   (3861) от 07.09.2025
+
+Ryan Adams - Heartbreaker (2000) 25th Anniversary Edition, 2025, PAX-AM [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alt Country, Singer-Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damn Sam (I Love a Woman That Rains) [00:02:31]
+02. My Winding Wheel [00:03:13]
+03. To Be Young (Is to Be Sad, Is to Be High) [00:03:14]
+04. Why Do They Leave? [00:03:17](   Читать дальше...   )Жанр: Rock, Alt Country, Singer-SongwriterПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFDCBEB9AFA0D382AC9D08662F3971EC009CD8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816895   (3857) от 07.09.2025
+
+Justin Bieber - Swag II (2025) 2CD [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ALL I CAN TAKE [00:04:07]
+02. DAISIES [00:02:56]
+03. YUKON [00:02:43]
+04. GO BABY [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A918A72FB9FA5409DFBA28CAEF5D48E548C3DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816820   (3844) от 07.09.2025
+
+Faithless - All Blessed (2021) Deluxe - Explicit, 2021, BMG[FLAC 24/44.1|Lossless|WEB-DL|tracks] <House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3844.jpg" />
+</div>
+
+
+###  Подробнее
+
+◈ 01 - Poetry (feat. Suli Breaks) (00:03:38)
+◈ 02 - Gains (feat. Suli Breaks) (00:03:27)
+◈ 03 - I Need Someone (feat. Nathan Ball & Caleb Femi) (00:04:54)
+◈ 04 - Remember (feat. Suli Breaks & LSK) (00:07:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE4D0B054F781B087EDD50D20E65A2021A49D012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816886   (3717) от 08.09.2025
+
+Faithless - Champion Sound (2025) 4CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Find A Way (feat. Suli Breaks) [00:03:02]
+02. Dollars And Dimes (feat. Bebe Rexha) [00:02:48]
+03. Champion Sound (feat. LSK) [00:02:31]
+04. Emmanuel (feat. Emmanuel Jal) [00:04:28](   Читать дальше...   )Жанр: Progressive House, Downtempo, Trip-HopПродолжительность: 00:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2CA3595990BEED1D4AB446307B2826100E4E309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816896   (3699) от 08.09.2025
+
+Big Thief - Double Infinity (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Indie Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Incomprehensible (3:53)
+02. - Words (3:47)
+03. - Los Angeles (3:57)
+04. - All Night All Day (4:49)(   Читать дальше...   )Жанр: Indie Rock, Indie FolkПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7CEFA35E42BA49136FD0A60D90A3EB42D7CB4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530351   (3663) от 09.09.2025
+
+Pantera (Damageplan; Rebel Meets Rebel) - Studio Albums (12 releases) (1983-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Trash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pantera — американская рок-группа из Арлингтона, штат Техас, образованная в 1981 году братьями Эбботтами (гитарист Даймбэг Даррелл и барабанщик Винни Пол)1983 - Metal Magic
+1984 - Projects In The Jungle
+1985 - I Am The Night
+1988 - Power Metal(   Читать дальше...   )Жанр: Glam/Heavy Metal; Groove/Trash MetalПродолжительность: 10:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95ADC536632AE62D010BBDB7A4A9662E0C6B239D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693204   (3598) от 09.09.2025
 
 Green Carnation - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal, Progressive Rock>
@@ -568,179 +742,6 @@ Sophie Ellis-Bextor - Perimenopop (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAD4B253319906DE4522191427CE7612A6146629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817649   (3155) от 12.09.2025
-
-Phil Collins - No Jacket Required (1985) Mix, 2025, Rhino Atlantic [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Power Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sussudio (2025 Mix)(4:24)
-02.Only You Know and I Know (2025 Mix)(4:21)
-03.Long Long Way to Go (2025 Mix)(4:23)
-04.I Don't Wanna Know (2025 Mix)(4:15)(   Читать дальше...   )Жанр: Pop Rock, Power PopПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2BB01E2E1E6C9E4ED0836329810AC872267B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817760   (3140) от 12.09.2025
-
-Ed Sheeran - Play (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening [00:04:00]
-02. Sapphire [00:02:59]
-03. Azizam [00:02:42]
-04. Old Phone [00:03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA79DFACFAAFE8324037F21E1AB077C5B6A94E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817761   (3126) от 12.09.2025
-
-Verses GT - Verses GT (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Trip Hop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragment [00:02:01]
-02. Unknown [00:04:00]
-03. Your Light [00:04:08]
-04. Left [00:02:57](   Читать дальше...   )Жанр: Trip Hop, DanceПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4B80B2ED6283F2B6B63EA687ED32D1FB6268A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817647   (3125) от 12.09.2025
-
-Hypermass - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hypermass - метал-группа из Норвегии, образована в 2012 году.2015 - Clouded Visions (EP)
-2022 - Empyrean
-2025 - Apparition Day (EP)Жанр: Melodic Death MetalПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329A08C375C03CEF7AA5D5BDB9528FC389639EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817749   (3122) от 12.09.2025
-
-Жнец - 2 Albums (2021, 2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Melodic black metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вольный Путь [00:04:18]
-02. Орден Каннибалов [00:06:29]
-03. Легенда О Кургане Синеуса [00:08:25]
-04. Твой Кошмар [00:04:38](   Читать дальше...   )Жанр: Melodic black metalПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E932C3D3AEDD9392781FE9B4EFF849B0CBB87EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817788   (3121) от 12.09.2025
-
-Crematory - Awake (1997) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maze(1:14)
-02. Lord Of Lies(5:11)
-03. Away(4:42)
-04. Temple Of Love(4:46)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AED09563B54B7784999394038F742423EDAE6A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

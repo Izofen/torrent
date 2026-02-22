@@ -1,3 +1,32 @@
+###  Публикация: 925413   (541492) от 06.08.2015
+
+Keith Jarrett - Backhand (1974) /2013, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inflight [09:08]
+02. Kuum [11:41]
+03. Vapallia [07:50]
+04. Backhand [11:09]Жанр: Jazz, Post-BopПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A645FC059C3F6EFF40B1790CB06C19A1A09EC17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925390   (541491) от 06.08.2015
 
 Curtis Fuller Quintet - South American Cookin' (1961) /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Hard Bop, Mainstream Jazz>
@@ -714,35 +743,6 @@ Helen Merrill & Gil Evans - Collaboration (1988) Nippon [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F97EC5B518B41C8D7362283CF038DA468AD9C94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925949   (537281) от 08.08.2015
-
-Plas Johnson - Positively (1976) /Concord Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Positively [03:34]
-02. Lover Man (Oh, Where Can You Be) [04:45]
-03. Let's Get It All Together [07:10]
-04. Easy For You To Say [04:39](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48A7B01FF2A616D114E4B05980862E81CD9B50F
 ```
 
 https://mybot314.ru/tekegram_catalog/

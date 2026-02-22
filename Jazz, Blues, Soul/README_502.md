@@ -1,3 +1,36 @@
+###  Публикация: 740183   (142096) от 30.12.2013
+
+Savoy Brown - Hellbound Train (2011) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't No Need To Worry
+02. Going Down To Mobile
+03. Spoonful
+04. Headline News
+05. Hellbound Train
+06. Listen To Your Heart
+07. Street Corner Talking
+08. When You Got A Good FriendЖанр: Blues-RockПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26962F5439AA25A4513E60D79224E86EC3EC5061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348897   (142080) от 29.12.2019
 
 Lee Konitz - Stereokonitz 1968 (1998) BMG [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
@@ -774,35 +807,6 @@ The George Shearing Quintet - As Requested (1972) 2005, Koch [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E434BE39F9B4503D7E1490209C2EA3791B9CF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272782   (140844) от 29.12.2018
-
-Jimi Hendrix - Blues (1994) Remaster 2010 [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hear My Train Comin’ (Acoustic) 3:05
-02. Born Under a Bad Sign 7:37
-03. Red House 3:43
-04. Catfish Blues 7:47(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05CD307FA3B9A11DB2089803A26C64A597548F49
 ```
 
 https://mybot314.ru/tekegram_catalog/

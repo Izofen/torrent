@@ -1,3 +1,32 @@
+###  Публикация: 1335808   (284555) от 04.11.2019
+
+Kacey Musgraves - Pageant Material (2015) [FLAC|Lossless|tracks] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - High Time (2:58)
+02 - Dime Store Cowgirl (3:35)
+03 - Late To The Party (3:38)
+04 - Pageant Material (3:54)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EB0E3479949EA89C1630BDB200A121EF011C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263393   (284361) от 21.11.2018
 
 Various Artists - Лондонские поля/ London Fields (Original Motion Picture Soundtrack) WEB-DL (2018) [MP3|320 Kbps] <Soundtrack>
@@ -713,35 +742,6 @@ Maryada Ram - Eternal Tibet (2017) [MP3|320 Kbps] <New age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B4636FF080523E5117B6BF11C01E2CED769CC59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187382   (280435) от 28.11.2017
-
-Gregorian - Holy Chants (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Celebrate Christmas (2:32)
-02.  Walking In The Air (3:56)
-03.  You'll See The Snow (4:09)
-04.  Ding Dong (2:14)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CB72C9786BEC614DEE8F696213A646CF582F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

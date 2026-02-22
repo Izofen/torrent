@@ -1,3 +1,108 @@
+###  Публикация: 618236   (971188) от 13.02.2013
+
+VA - In The Name Of House: Deep & Soulful Session Vol.15 (2013) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Yse - Magic in Your Eyes (feat. Frank H. Carter III) (Giom Remix) (05:52)
+02. Southbound - Forever Changed (Original Mix) (07:34)
+03. Ruben F - Go Back in Time (Original Mix) (05:25)
+04. Daniel Kyo - Hypnotized (Kelvin K Remix) (06:43)
+05. Jon Flores - La Bahia (Original Mix) (06:18)
+06. Pete Dafeet - Mistakes (Original Mix) (07:18)
+07. Stanny Abram - S’argamassa (Baunzz! ‘a Bit Deepeh’ Remix) (07:01)
+08. Manjane - If You Wanna (Original Mix) (06:22)
+09. Jon Flores - Good Feelings (Original Mix) (06:32)
+10. Oscar Barila, Maiki - Debbie White (Simone Tavazzi Remix) (07:03)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96FF9F83688AA1799FE7EC6FD4D4368C742F3F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744809   (970719) от 12.01.2014
+
+VA - Intricate Records: Essentials 2013 [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Fon.Leman - Lynx Eye (Jaytech Remix)
+002. Proff - Intensify (Original Mix)
+003. Sergey Tkachev - Syntro (Original Mix)
+004. Tasadi - You Know Me (Aerofeel5 Remix)
+005. Vadim Soloviev - Tempo (Flippers Remix)
+006. Verve & InSilico - Synergy (Shingo Nakamura Remix)
+007. Alexey Sonar - All Again (Dub Mix)
+008. Blend - Taking Flight (Original Mix)
+009. Cramp - 2030 A.d. (PROFF Remix)
+010. Fon.Leman - Heirloom (Original Mix)Жанр: Progressive HouseПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8445E1F7FFA6988BD2070D5488171D5DC0C5D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168010   (970144) от 20.01.2010
+
+VA - HouseVip (12.01.2010) [MP3|320 kbps]<Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970144.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Danger - 4h30 (F.O.O.L Remix) (5:42)
+2. Danny Soundz - Jack It Up (Original Mix) (5:09)
+3. Defunct! Feat. Mr Eyez - Drop the Bomb (Original Mix) (6:11)
+4. DJ Fenix feat. Supafly - Reason to live (Original rmx) (7:37)
+5. Foundation - Boogie Wonderland (Noll & Kliwer Travolta Remix) (5:39)
+6. Franklin & Navaro - I Need Love (Electro Banger Remix) (4:30)
+7. John Revox vs EasyTech - Sexy Ole (Disco Fanatics Bootleg) (5:26)
+8. Michael Feiner - The Feeling (Jean Elan Remix) (6:16)
+9. Ray Guarano - Killing Me (Original Club Mix) (7:55)
+10. Re-Deux - Another Lonely Night (Rev-Players Extended Remix) (6:06)(   Дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617300   (969884) от 14.02.2013
 
 VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
@@ -683,93 +788,6 @@ VA - Touch Me with House (Sensual House Music Dance) (2020) [MP3|320 Kbps] <Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E13DA02862A2D6D5D9D638079BF6AB7B9CAC4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089271   (950760) от 04.01.2017
-
-VA - 6 Years Of CibiCaldi Records (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro S - Just My Beat 07:53
-02. Sandro S, Mr Few - Walking On Hands 07:37
-03. Klaudio Greco - Italians Do It Better 05:50
-04. Sandro S - Reset Hall (Ozen Nouse) 07:33(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 04:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF1242F61C1BFB26E6398D7DA4DE9E41B744EF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089327   (950712) от 04.01.2017
-
-VA - If House Like To Party (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Maestro - Under A Palm Tree [00:06:24]
-02. Mama Maestro - Baby (Original mix) [00:06:20]
-03. Rousing House - Story House Piano [00:05:50]
-04. Big Bunny - Super Boom (Original mix) [00:05:09](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519E81750EF90AC136D84617AED045024A4A1C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089468   (950700) от 04.01.2017
-
-VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arent & Raxell - Damborola  [6:28]
-02. TimeMoment - Cosmo  [5:51]
-03. SHaRk - Summer Feelings  [5:46]
-04. Grim Mass - In Blizzard  [4:30](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01F819F9C15F5D497EF8989F5AC20320F6213C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1322412   (444570) от 31.08.2019
+
+Paul Cardall - Peaceful Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444570.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.A New Beginning (4:06)
+2.When Morning Comes (3:04)
+3.Deep Waters (3:24)
+4.Sweet Surrender (3:00)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283902C9A962F62FF389241D0E5E313A0DF5FC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061944   (444452) от 12.10.2016
 
 Geoff Hall - Understanding the Signs (2016) [FLAC|Lossless|tracks] <New Age>
@@ -737,35 +766,6 @@ Blonker - Wellness (Musik Fur Die Seele) (1990) [FLAC|Lossless]<Instrumental, Ne
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410426   (436080) от 21.09.2020
-
-VA - Still Like a Stone Structure: Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kurt Tepperwein - Dreaming Guitar (Long Version) (09:59)
-02. SanSouci - Silence (09:58)
-03. Antiphon - The Great Attractor (09:52)
-04. B-Less - Inner Journey (09:52)(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 04:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B782E63589E489AA02C6C82583C31B3D63E9F424
 ```
 
 https://mybot314.ru/tekegram_catalog/

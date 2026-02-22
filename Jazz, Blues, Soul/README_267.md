@@ -1,3 +1,90 @@
+###  Публикация: 811220   (580707) от 08.08.2014
+
+Count Basie & Oscar Peterson - The Two Great Albums: The Timekeepers & Night Rider (1998) [FLAC|Lossless]<Jazz, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Rider [12:35]
+02. Memories Of You [04:56]
+03. Sweet Lorraine [07:04]
+04. It's Wonderful World [03:20](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, Piano JazzПродолжительность: 01:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599E1E01BADDFDFB8CC8426A7552A53B1DAF9D68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042061   (580657) от 11.08.2016
+
+George Howard - Personal (1997) MCA Records[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Want You For Myself [05:30]
+ 02.Shower You With Love [05:02]
+ 03.Uptown [06:49]
+ 04.You And Me [06:12](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A52E71542FCCD3A56CCB148A10941B5B3B092E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042153   (580522) от 11.08.2016
+
+Seal - Commitment (2010) [FLAC|Lossless|tracks + .cue] <Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I'm Any Closer [03:29]
+02. Weight Of My Mistakes [04:20]
+03. Silence [04:10]
+04. Best Of Me [04:23](   Читать дальше...   )Жанр: SoulПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC285AF3CBA8F2C81A4E6D78698077E6335C10D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920470   (580196) от 22.07.2015
 
 Art Blakey - Jazz Messengers!!!!! & A Jazz Message (1961/1964) /2011, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop>
@@ -687,93 +774,6 @@ Jimmie Lunceford - 1939 - 1940 (1991) Classics [FLAC|Lossless|tracks + .cue] <Sw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE8777D25FE5E745A0B51E8725757B121693CD34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233739   (578169) от 01.07.2018
-
-V.A. - The Smooth Jazz Cruise: The Greatest Party At Sea (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter White - Smile
-02. Rick Braun - Kisses in the Rain
-03. Richard Elliot - License To Chill
-04. Marcus Miller - Blast!(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99151A370F1E0E9B37B03135959AF7A817D3838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150908   (578148) от 16.07.2017
-
-Nat Adderley Sextet - Work Song: Live at Sweet Basil (1990) 1993, Sweet Basil Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Work Song [10:43]
-02. High Fly [13:06]
-03. In a Sentimental Mood [10:52]
-04. Jive Samba [11:00]Жанр: Hard BopПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4935EAA28AEB01777E35D72625BD5EE11C5F1550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150946   (578143) от 16.07.2017
-
-Bireli Lagrene - Foreign Affairs (1988) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz,Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timothee - 4:38
-02. Josef - 05:23
-03. Rue de Pierre (Part IV) - 02:09
-04. Jack Rabbit - 04:19(   Читать дальше...   )Жанр: Contemporary Jazz,FusionПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4AF1A42956E76A03C8B5AA8A1E70B8BD9AF4FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

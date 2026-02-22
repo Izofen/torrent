@@ -1,3 +1,90 @@
+###  Публикация: 1456724   (1024880) от 23.03.2021
+
+Van Kery - New Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway (2:49)
+02. One Thing I Learned (3:26)
+03. Perfect Love (5:00)
+04. Not My Time (3:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F068ECFE191349FBAE7BBD4444C672792164485B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456711   (1024876) от 23.03.2021
+
+Chris Catena' Rock City Tribe - Truth In Unity (2020) [FLAC|Lossless|image + .cue] <Hard Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel City (4:48)
+02. The Trickster  (3:50)
+03. Down In The Black (3:57)
+04. Motorcycle Killers (4:34)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A5BE16DF89E6561E5A450FA36088497EA6CF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456717   (1024874) от 23.03.2021
+
+Ry Bradley - I've Got You Covered (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock 'n' Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Sister (3:42)
+02. My Babe (2:55)
+03. Johnny B. Goode (2:40)
+04. (You're the) Devil in Disguise (2:54)(   Читать дальше...   )Жанр: Blues Rock 'n' RollПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B035B7B59AF30F48B6069068E09AB4FDFAFE4106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456555   (1024863) от 23.03.2021
 
 VA - The Classics: Rock 'n' Roll Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
@@ -658,93 +745,6 @@ Dr. Lonnie Smith - Breathe (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D4099C6870B7C7E33A8C7C7DFD9C1A89C784E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459548   (1023125) от 02.04.2021
-
-Swingrowers - Hybrid (2021) Japan [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Blink Of An Eye (Intro)
-02. Hybrid
-03. Follow The Stars
-04. Seven Million Faces(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48B603C97A2FCF6C6C8EFDBA94D3463B16C27EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460179   (1022824) от 04.04.2021
-
-Swingrowers - Hits & Remixes (2017) Japan [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pump Up The Jam (feat. The Lost Fingers)
-02. Kiawami (Skeewiff remix)
-03. The Queen of Swing (feat. Gypsy Hill)
-04. Midnight(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EBCFF45817EFAA838ADEE6ED185590BAD203D8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460369   (1022618) от 05.04.2021
-
-Chet Baker - Sings Again (1985) 2020, Solid Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All of You [4:45]
-02. Body and Soul [6:34]
-03. Look for the Silver Lining [3:57]
-04. I Can't Get Started [6:57](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Vocal JazzПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154766BDDE8A56540CC082718C48EB672BF16C17
 ```
 
 https://mybot314.ru/tekegram_catalog/

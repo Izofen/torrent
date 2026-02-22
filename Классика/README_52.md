@@ -1,32 +1,3 @@
-###  Публикация: 1782560   (69997) от 01.03.2025
-
-VA - Best Classical Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Beyond (1:35)
-02. Sergey Bryukhno - 3 Gymnopédies No. 1, Lent et douloureux (2:53)
-03. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-04. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:28)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D79E356A61BAF99369F7759FD27512614A6D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782960   (69883) от 03.03.2025
 
 VA - Car Rides: Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -737,6 +708,35 @@ VA - Calming Classical Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DF13EA1E4B33A1A0B18ECB01B5E16E35EAB5F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736595   (50136) от 13.07.2024
+
+VA - Relaxing Sleep Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_50136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 - II. Largo (2:46)
+03. Anastasia Calmus - Sì dolce è'l tormento, SV 332 (Transcr. for Piano by Vyacheslav Gryaznov) (3:07)
+04. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 - No. 7, Ständchen (6:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568F7BA3990BDCFA2F9ACB504610FCA5BD148E51
 ```
 
 https://mybot314.ru/tekegram_catalog/

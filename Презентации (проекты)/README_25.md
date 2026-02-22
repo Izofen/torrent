@@ -1,3 +1,29 @@
+###  Публикация: 1028398   (690275) от 22.06.2016
+
+Проекты - VideoHive - Flat App Promo [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flat App Promo - презентационный промо-ролик. Это версия №2 от 4 июня 2015.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E074427422C981D090B21B30EF31E2D3F9A3E639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028285   (690255) от 22.06.2016
 
 Проекты - VideoHive - Modern Promo - Fashion Opener - 15238886 [AEP]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4D0C89C6F2ECF421C871D89DE73936ED18E93E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 676654   (679737) от 06.07.2013
-
-Проекты - VideoHive - Awards Show Package - 74113 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это захватывающий, потрясающий, роскошный и волшебный пакет в голливудском стиле Awards Show. Подходит для различного рода торжества, свадьба, 50 лет, выпускной или любой проект, который требует элегантный дизайн!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8A67192B252C51BC7ED5B1080CC2193E1ED82E
 ```
 
 https://mybot314.ru/tekegram_catalog/

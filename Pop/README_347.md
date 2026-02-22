@@ -1,3 +1,90 @@
+###  Публикация: 1806258   (65407) от 11.07.2025
+
+VA - Kohl's Cares For Kids: Songs Of The Season 2001 (2001) CD, Compilation [FLAC|Lossless|tracks + .cue] <Ballad, Light Music, Vocal, Holiday>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Armstrong & The Commanders - Cool Yule (2:57)
+02. Tony Bennett - Winter Wonderland (2:14)
+03. Lou Rawls - Have Yourself a Merry Little Christmas (2:29)
+04. Nancy Wilson - The Christmas Waltz (2:39)(   Читать дальше...   )Жанр: Ballad, Light Music, Vocal, HolidayПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AC6B997CF4B06B01903538053595AEFDC68F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806442   (65369) от 13.07.2025
+
+Юлия Kalina - Счастье моё (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Душенька [00:03:16]
+02 - Почему мы [00:03:20]
+03 - В День рождения [00:03:51]
+04 - Осторожно, горячо [00:02:39](   Читать дальше...   )Жанр: PopПродолжительность: 00:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83BB19FBE07E0B11C73A3985DE144CBD6718093F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806444   (65368) от 13.07.2025
+
+Сергей Лазарев - Мы и Есть Любовь (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руины (После тебя) [00:03:53]
+02. По твоим следам (Пальто) [00:02:49]
+03. Тут или Там [00:03:25]
+04. Я обещал тебе [00:03:19](   Читать дальше...   )Жанр: PopПродолжительность: 00:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588CE6116A31473E0A684582A36C5FC76A760015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806449   (65366) от 13.07.2025
 
 MY-RO - Краса Руси (2025) [MP3|320kbps] <Pop>
@@ -658,92 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D3ECB97A11292F38C5B090CF90AA8A3ADF0C623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809670   (64628) от 01.08.2025
-
-Юрий Кривицкий - 2 Albums (2019, 2011) [MP3|320 Kbps] <Pop, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Человек не любивший меня [00:02:46]
-02. Друзьям [00:04:12]
-03. Три дня [00:03:46]
-04. Календарная осень  (с Натали Черняк) [00:04:40](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 2 CD, 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEE93FCACDA2C229ECDD6B9E53A25C8F6433943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809917   (64608) от 02.08.2025
-
-Roxette - It Must Have Been Love (CDM) (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Must Have Been Love (4:18)
-02. Paint (3:30)
-03. Cry (Live) (5:42)Жанр: PopПродолжительность: 00:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B62484503E0A32D9B8F2BD5462D46C74950A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809891   (64604) от 02.08.2025
-
-La Vania - Singles Collection 5CDs (2000-2004) 1st Italian Press [APE|Lossless|image + .cue] <Italodance, Club>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2000 - O Meu Calor
-2000 - Agua Y Amor
-2001 - La Brisa Del Mar(   Читать дальше...   )Жанр: Italodance, ClubПродолжительность: 02:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:166D487639314327D76D225319CB8FAFF97253A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

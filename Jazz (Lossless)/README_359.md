@@ -1,32 +1,3 @@
-###  Публикация: 1752232   (103929) от 29.09.2024
-
-Betty Carter - 'Round Midnight (1963) 2012, Atlantic [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing More to Look Forward To [2:39]
-02. Who What Why Where When [3:11]
-03. Heart and Soul [3:19]
-04. Call Me Darling [3:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB4E134F6F154F47FE02AD70CB5D49DDBCE2424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752230   (103927) от 29.09.2024
 
 Harry James & His Orchestra - Embraceable You (1946) 1987, The Compact Selection [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -743,6 +714,35 @@ VA - Funky Jazz Saxophone (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA568F09D0FC4B89D4B9FA0E6454A6C909981006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754772   (103654) от 12.10.2024
+
+VA - Just Jazz (Luxurious Smooth Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IrisG - My Wildest Dreams (4:09)
+02. Hank Hehmsoth - Waltz for Carmen (5:26)
+03. Ingvi Þór Kormáksson - Always (3:04)
+04. Dora Pj - Taking Back My Love (4:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEA2C676A17BE8884B46469A06A27FA6C02A33C
 ```
 
 https://mybot314.ru/tekegram_catalog/

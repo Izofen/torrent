@@ -1,3 +1,90 @@
+###  Публикация: 1344601   (169102) от 12.12.2019
+
+VA - Acoustic Christmas (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169102.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Shannon, Keast - Frosty the Snowman (2:22)
+2.Thom Cooper - Silent Night (2:02)
+3.Karizma Duo - Lonely This Christmas (3:47)
+4.Landa - Winter Wonderland (1:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA086D2A20EA38C341B64649530075046EA11629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672290   (169063) от 28.10.2023
+
+Duran Duran - Danse Macabre (2023) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightboat (4:23)
+02. Black Moonlight (3:07)
+03. Love Voudou (4:29)
+04. Bury A Friend (3:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9C58D8251B876B63FF46F30CC342A8A278D4C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672421   (169043) от 28.10.2023
+
+Amanda Lear - The Sphinx•1976-1983 ( 2006 ) 3CD [MP3|320 Kbps] <Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fashion Pack - ( Studio 54 ) ( Albom Version ) - 1979
+02. Love Your Body - 1983
+03. Intellectualy - 1979
+04. Enigma ( Give A Bit Of Mmh To Me ) - 1978(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 02:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC99D9B306AEFBBB4EF5F846ED86FC99A4C3FF28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596777   (168990) от 11.12.2022
 
 A'Studio - A’21 (2022) [MP3|320 Kbps] <Pop>
@@ -658,93 +745,6 @@ El Pasador - Non Stop And Other Hits (2015) CD [MP3|320 Kbps] <Electronic, Funk 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66F18BBA485BF62B5162B3133902BA1CD2EB232C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516117   (167621) от 09.12.2021
-
-Sweet Connection - Need Your Passion (2008) CD, Compilation [MP3|320 Kbps] <Electronic, Synth-pop, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Need Your Passion (8:50)
-02. Dirty Job (Maxi-Version) (7:57)
-03. Heart To Heart (6:56)
-04. Love Bites (6:17)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Euro-DiscoПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A791E52337CAB506E8078CF99F0C98B9AE49DAC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516109   (167585) от 09.12.2021
-
-VA - Best Hits of 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John - Cold Heart (PNAU Remix) (3:22)
-02. Olivia Rodrigo - good 4 u (2:58)
-03. OneRepublic - Run (2:49)
-04. Justin Bieber - Peaches (3:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5586F49D3942E46AC48D890680D55409BE275DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661936   (167572) от 29.10.2023
-
-ВИА «Песняры» - Красная роза (1996) [FLAC|Lossless]<Retro|Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Мой родной кут (И. Лученок - Я. Колас)"
-02. "Людка (В. Мулявин - Я. Купала)"
-03. "Конь невзнузданный (Э. Ханок - Г. Буравкин)"
-04. "Сонет Шекспира (И. Резник - В. Шекспир , перевод С. Маршака)"(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0B8D713B93A7A91FD0875726744B0C6CA08E70
 ```
 
 https://mybot314.ru/tekegram_catalog/

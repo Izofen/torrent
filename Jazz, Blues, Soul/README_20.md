@@ -1,3 +1,90 @@
+###  Публикация: 1444606   (1034468) от 02.02.2021
+
+Nancy Wilson - Yesterday's Love Songs & Today's Blues (1963) 1991, Capitol Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song Is You [2:01]
+02. The Very Thought of You [2:54]
+03. Satin Doll [2:24]
+04. Bewitched [3:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4BA017471F76573A871E773E2E36998C9F8A35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444560   (1034467) от 02.02.2021
+
+3AM - On the Road Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Road Again (3:09)
+02. Reflections (4:07)
+03. Thank You Cyril Davies (2:32)
+04. Glory Box (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E32A3D79A856D37431BA423FF134168F2BFAD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444567   (1034466) от 02.02.2021
+
+E Van Olst - Songs for Hal (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Friend (4:24)
+02. Making It Worse (4:23)
+03. Song for Hal (2:26)
+04. Rocky Bottoms (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435BE41504BD4FB8405DDED4EF87B41E2B5C81F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444572   (1034464) от 02.02.2021
 
 Hot Nasho - A Stitch in Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ John Coltrane - Impressions (1963) 1987, Impulse! [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E30C2023C5F69DB232B13511BAF5CE466BCF633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618874   (1033711) от 13.03.2023
-
-Lionel Hampton - Jumpin' With Hamp (1951) 2001, Ocium [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Believe That You Are in Love with Me [3:08]
-02. Cool Train [3:02]
-03. Gladysee Bounce [2:58]
-04. Air Mail Special [3:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FBA44C3EE113503E14C5E8520576CC3B38692D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358251   (1033697) от 05.02.2021
-
-Charles Pasi - Collection 4 Releases (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz, Soul, Funk, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Single (3:05)
-02. Warm Embrace (2:55)
-03. Back To Casablanca (3:00)
-04. Don't Blame Me (3:10)(   Читать дальше...   )Жанр: Blues, Jazz, Soul, Funk, Rock |Продолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:971FB60FB7D55AF2A24429BA180D7433D1E57C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618878   (1033689) от 13.03.2023
-
-Fats Waller - 1940 - 1941 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Fats' Waller's Original E Flat Blues [3:23]
-02. Stayin' at Home [3:34]
-03. Hey! Stop Kissin' My Sister [2:51]
-04. Everybody Loves My Baby [2:57](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1D39075039C814B385AE5CD466E6BD774EFA7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

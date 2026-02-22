@@ -1,3 +1,32 @@
+###  Публикация: 1497921   (859653) от 25.09.2021
+
+VA - The Brutal Might (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859653.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wolvencrown - A Shadow Of What Once Was
+002. Cyrax - Truemetal
+003. Secret Sphere - Shaping Reality
+004. Purgatory - Grave Of Sorrow(   Читать дальше...   )Жанр: Metal, Hard Rock, HardcoreПродолжительность: 10:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E38526780174F0DF4381CD76136B06C9317AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497900   (859517) от 25.09.2021
 
 VA - For Freedom And Friends: Rock Classic Compilation (2021) [MP3|320 Kbps] <Classic Rock>
@@ -713,35 +742,6 @@ Marilyn Manson - 100% Marilyn Manson (2020) 2CD [MP3|320 Kbps] <Rock, Industrial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B4A27913CFED92A573617CF34206661BA6AFAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378078   (848031) от 24.04.2020
-
-Paul McCartney - 100% Paul McCartney (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe I’m Amazed (Remastered 2011)
-02. Uncle Albert / Admiral Halsey (Medley / Remastered 2012)
-03. My Love
-04. Band On The Run (Remastered 2010)(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19B95D04681FFC65A3D41A1FC47ACE03E0CCE61
 ```
 
 https://mybot314.ru/tekegram_catalog/

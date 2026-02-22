@@ -1,3 +1,177 @@
+###  Публикация: 1728754   (108188) от 09.06.2024
+
+Lamb Shelter - Out The Cage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambience (3:49)
+02. Harvest (1:27)
+03. Make (3:21)
+04. Port Wine Cherry Sauce (3:02)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E8DC2049150D5A7D75C4789415892E02C3A7A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728944   (108187) от 09.06.2024
+
+Paul Kleber - Little Home (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Little Loving (8:00)
+02. Fourty (4:34)
+03. Poisson d´or (5:47)
+04. Nachteule (6:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EAE93C3A4CBBF1806395E937281438E40657EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728946   (108184) от 09.06.2024
+
+Relaxing Jazz Music, Cuban Latin Collection - Nostalgic Cuban Nights: Soft Instrumental Latin Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuban Coffee (3:35)
+02. Slow Pace (3:07)
+03. Tango Fusion (3:26)
+04. Rumba Summer (3:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF15E0BCF14A22A8D584444907968A759F5876D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728947   (108177) от 09.06.2024
+
+Rikard From - In My Own Time (2024) [FLAC 24/48|Lossless|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can Never Get Enough (3:57)
+02. Keeping Up With Life (6:05)
+03. In My Own Time (4:57)
+04. When I Hold Your Hand (2:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F9F7B280357477837C420F09D62EECF48C9D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728990   (108174) от 09.06.2024
+
+Euge Valovirta - Hardtones (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Testify (feat. Samy Elbanna) (3:54)
+02. The Game (feat. Joonas Kosonen & Ben Varon) (3:44)
+03. Gone Without A Trace (feat. Nico Hartonen) (3:33)
+04. Pasadena '78 (feat. Jules Näveri) (3:05)(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09215456C5F0819A81DEB36CDF672DE217908E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728994   (108173) от 09.06.2024
+
+Dying Fetus - War of Attrition (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brutal Death Metal, Grindcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108173.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Homicidal Retribution
+A2 Fate Of The Condemned
+A3 Raping The System
+A4 Insidious Repression(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EA09B73307699C8A9EA7937EFA8396C76CFF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729028   (108172) от 09.06.2024
 
 Dying Fetus - Descend into Depravity (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brutal Death Metal, Grindcore>
@@ -571,180 +745,6 @@ A4 Throw Them In The Van(   Читать дальше...   )Жанр: Technical 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E23309185F361126F43CB3DA8C859B4B990F7D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729154   (108110) от 10.06.2024
-
-Mighty Joe Belson - The Doodle Cats: 2020 Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2020 Blues (5:48)
-02. Spring Swing (3:50)
-03. Candlelight Memories (4:38)
-04. Bel-Stones (Doodle Cats Theme Song) (3:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E27E423DDDA8CDCAA497BD5E50D802D2E727272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729150   (108109) от 10.06.2024
-
-Bob Recchione - Bellissima (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I See Your Face (5:00)
-02. Summer Blues (5:00)
-03. It Seems to be the End (5:00)
-04. Sneaking Around (5:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0441FFD2FB6D2955920FA922CCCE7411CAF616A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729292   (108108) от 10.06.2024
-
-Strange Fruit - Once So High (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely-Lonely (6:47)
-02. Ragged Soul (7:16)
-03. Once So High (4:22)
-04. Driving Me Mad (7:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13042C4FA5EB599F7AD2AFF4B180565D1D91EB53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729288   (108107) от 10.06.2024
-
-Freak Kitchen - Everyone Gets Bloody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everyone Gets Bloody (3:16)
-02. Medal (4:36)
-03. Slip (3:17)
-04. Small Acts Of Rebellion (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C4D5EC7EDA9240EB206EB6DDDE680CD7859A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729284   (108106) от 10.06.2024
-
-Collateral - Should've Known Better (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Sky (3:53)
-02. Original Criminal (3:56)
-03. Just One Of Those Days (3:18)
-04. Teenage Dreams (4:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B8A6F5872FD33271A349851EE563C17B9E1FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729157   (108105) от 10.06.2024
-
-Scott Gilman - So Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Night At The York (4:52)
-02. When I See You (4:45)
-03. Almost Home (5:35)
-04. Ensenada (6:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63A220CD7FCDA512939012185AFE7EB6BED7FB02
 ```
 
 https://mybot314.ru/tekegram_catalog/

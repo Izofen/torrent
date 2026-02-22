@@ -1,3 +1,90 @@
+###  Публикация: 1213582   (768183) от 17.03.2018
+
+VA - Wake Your Mind Sessions 003 (Mixed by Cosmic Gate) (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cosmic Gate & JES  -  Fall Into You (Eskai Intro Remix)  3:25
+02.  Di Rugerio  -  Aeternis (Original Mix)  7:24
+03.  Max Freegrant & Slow Fish  -  Sweet Lies (Original Mix)  3:50
+04.  Tinlicker feat. Thomas Oliver  -  Nothing Without You (Extended Mix)  7:22(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 05:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196F26713A3EFFC23007F25C6F710B3BDDC41E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125582   (768103) от 15.04.2017
+
+VA - Sirup Deep Anthems Mykonos (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Croatia Squad - The Best 03:25
+02. Sir Felix - Hope (Nora En Pure Radio Mix) 03:27
+03. Edx - Goombah (Radio Mix) 03:07
+04. Sons Of Maria - Surrender (Radio Mix) 04:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C5A5ADED71F27418AA37DEEAA04713D480B581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125587   (768068) от 15.04.2017
+
+VA - Special Sport Songs 7 (2017) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hr Troels - Chameleon (Radio Edit)  3:37
+02.  Dave Gate - I Can't Get You (Radio Edit)  2:56
+03.  Phun & Key - System Crash (Radio Edit)  3:05
+04.  Sequence 2 - Crazy (Radio Edit)  4:16(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC00DBE832F2856ACADBBBEF728B7142EB320362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125264   (767928) от 15.04.2017
 
 VA - 80s Comeback Hits Remixed & Reloaded (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -658,93 +745,6 @@ VA - Dance Party - Ready For The Summer (2016) [MP3|320 кб/с] <House, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C5F57418087171650B0A4729436A349F33E0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017586   (761224) от 17.05.2016
-
-VA - Groovedelicious, Vol. 2 (40 Deep & Tech House Sounds) (2016) [MP3|320 кб/с] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystall Refraction - Waterfalls in Catskills (7 Lights Mix) [05:42]
-02. Kalimba - Pillow Flight (The Sky Mix) [05:45]
-03. Deep Factor - Like a Circle (Melodic Synphony Mix) (feat. Martha Fox) [06:42]
-04. Diba Project - Leaving Sleepy Hollow (Progression Mix) [05:44](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F016A402FC18015FD86A441E9C89FEBAE547D84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017278   (761115) от 17.05.2016
-
-VA - Future EDM Essentials Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quantum Duxe - Sunwalker (Original Mix) 5:17
-02. Savant - Cassette (Notice Me Senpai Mix) 4:56
-03. Distrix - Violet Skies (Original Mix) 5:06
-04. Sasha Lemon - Sunshine (Original Mix) 4:38(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AA87F15DC250AFDEB74776C57AB8552C7699CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394887   (760515) от 07.07.2020
-
-VA - Workout Body Man Extreme (2020) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760515.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stan Kinley - The Party G (4:49)
-2. Yuri Salgado - Small Circle of Friend (3:43)
-3. Quentin - Dream X (4:33)
-4. Leo DJ - Bear Music (6:15)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7674F83ADF3BED756034D25E7DDC06D7D77AA8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

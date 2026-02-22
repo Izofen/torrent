@@ -1,3 +1,177 @@
+###  Публикация: 1745476   (105057) от 26.08.2024
+
+Shaman (a.k.a. Shaaman) - Studio Albums (5 releases) (2002-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shaman - бразильская прогрессив-пауэр-метал группа, образованная в 2000 году Рикардо Конфессори, Луисом Мариутти и Андре Матосом после того, как они покинули "Angra".2002 - Ritual
+2005 - Reason
+2007 - Immortal
+2010 - OriginsЖанр: Progressive/Power MetalПродолжительность: 04:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EE556676D92A88B8559B5000E429A09E42ACDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745459   (105056) от 26.08.2024
+
+Angra - Studio Albums (11 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angra — бразильская пауэр-метал-группа, основанная в 1991 году.1993 - Angels Cry
+1996 - Holy Land
+1998 - Fireworks
+2001 - RebirthЖанр: Power/Progressive MetalПродолжительность: 10:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50CDA7E32FE24EEA6468A53F3CD516B2A061FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745444   (105047) от 26.08.2024
+
+Alltheprettythings - Prose (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Teeth (3:49)
+02. Chin Up, Kid (3:09)
+03. Teenage Lines (3:45)
+04. I Want You Back (3:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F393C4EBB612770A3716CA40D5A086E50610746D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745465   (105046) от 26.08.2024
+
+Matyas Gayer Trio - Westbourne Park (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterdays (5:45)
+02. On Green Dolphin Street (6:20)
+03. Homage To Cedar (5:26)
+04. Mr Harris (6:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7831FE73276B14786C92F79A77AC0C78307812B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745484   (105045) от 26.08.2024
+
+Rune Robert Friis - Built For Comfort, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running on Empty (3:16)
+02. Annabelle (3:47)
+03. Glitter & Dirt (3:31)
+04. Gin Gin Mule (7:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA3E15C963E657BA4B7D6C5DE6A3A14892713F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745467   (105044) от 26.08.2024
+
+Almah - Studio Albums (5 releases) (2006-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Almah — бразильская метал-группа, сольный проект солиста "Angra" Эдуардо Фаласки.2006 - Almah
+2008 - Fragile Equality
+2011 - Motion
+2014 - UnfoldЖанр: Progressive/Power MetalПродолжительность: 04:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2BA07E0E0D4F9999C966DC00B013B460327009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745482   (105043) от 26.08.2024
 
 Mick Pini - Papa Voodoo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -571,178 +745,6 @@ Iamx - Fault Lines² (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <dark electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2298C008025E3F4AC27A39D04998935418161653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746178   (104943) от 30.08.2024
-
-Kehlani - While We Wait 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul, Funk, Contemporary R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Like [00:02:08]
-02. When He's Not There (feat. Lucky Daye) [00:04:28]
-03. Clothes Off (feat. kwn) [00:03:49]
-04. S.I.N.G.L.E. [00:03:56](   Читать дальше...   )Жанр: Soul, Funk, Contemporary R&BПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC04A48D70C8C36637D1F1936F415078F6545462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746377   (104942) от 30.08.2024
-
-Lord Of The Lost - Weapons Of Mass Seduction (2023) Deluxe Version [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Gothic, Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starman [00:04:46]
-02. Girl, You'll Be A Woman Soon [00:03:13]
-03. The Days Of Pearly Spencer [00:02:40]
-04. Hey You [00:04:43](   Читать дальше...   )Жанр: Rock, Gothic, Glam RockПродолжительность: 3 CD, 02:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A139B7D8506C57E6C3971F6CD6B1C56AA8B77C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746324   (104941) от 30.08.2024
-
-Tanzwut - Achtung Mensch! (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Metal, Industrial Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prügelknabe [00:03:25]
-02. Frei sein [00:03:53]
-03. Zauberland (Orchester Version) [00:04:12]
-04. Komet [00:02:50](   Читать дальше...   )Жанр: Folk Metal, Industrial Metal, Gothic MetalПродолжительность: 2 CD, 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19751044262F9835160617A2AB06D222BE7EE4F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746328   (104928) от 30.08.2024
-
-Gordo - Diamante (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guard Down [00:05:46]
-02. Sideways [00:04:13]
-03. Honeyland [00:04:36]
-04. Easier [00:04:40](   Читать дальше...   )Жанр: House, Dance-PopПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4732C416E90E329AF64AF61FA6923911EF8BFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746267   (104926) от 30.08.2024
-
-Endrick & the Sandwiches - Straight Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kill Ma Mo (2:10)
-02. Check Engine On (2:19)
-03. Mortgage Blues (3:08)
-04. Careful What You Wish For (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFD213A75C1CE1FF2FD8111D61BDD2C6FD77338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746396   (104922) от 30.08.2024
-
-Lazarus A.D. - Studio Albums (2 releases) (2009-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lazarus A.D. — американская трэш/грув-метал-группа из города Кеноша.2009 - The Onslaught
-2011 - Black Rivers FlowЖанр: Thrash/Groove MetalПродолжительность: 01:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C87E41B20A110DB4B29C14D6EFEC95C434D9EE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

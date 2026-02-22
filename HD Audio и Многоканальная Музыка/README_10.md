@@ -1,3 +1,178 @@
+###  Публикация: 868792   (894588) от 13.02.2015
+
+Академическая русская хоровая капелла - Музыка эпохи Петра I (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Sacred, Choral>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. «Стихи победительные во славу и честь Петру Алексеевичу…»  16:26
+Петровские торжественные песнопения. Десять номеров.
+Гаврюшов (бас), А. Лагуткин (тенор), Б. Шумилов (баритон).
+Сторона 2(   Читать дальше...   )Жанр: Sacred, ChoralПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53769531F15E4849297DAFCE5D80FBD0CFC8123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 868853   (894169) от 13.02.2015
+
+Ambra - Child Of The Universe (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <new age, electronic, ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinite Space (Part 1) 01:49
+02. Infinite Space (Part 2) 01:39
+03. The Rebirth Of The Sun 04:01
+04. La Renaissance Du Soleil 05:20(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6504199D66E4C771A6B3864569C6B4F758738273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859991   (892146) от 14.02.2015
+
+AC-DC - Rock Or Bust (2014) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892146.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Rock Or Bust (3:03)
+A2. Play Ball (2:47)
+A3. Rock The Blues Away (3:25)
+A4. Miss Adventure (2:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67C12FC1902186F85BEEDA0F14E0E0D6DC3CD8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102091   (890901) от 09.02.2017
+
+VA - RETROспектива, часть IX: Эстрадные оркестры IX (1934-1955) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танц. орк. Лейпцигского радио п.у. К. Хенкельса - Караван (фокстрот)
+02. Танц. орк. Лейпцигского радио п.у. К. Хенкельса (вокал-К. Гросс) - Манон (медленный фокстрот)
+03. Оркестр ''Беллакорд'' - Вспомни море (фокстрот)
+04. Оркестр п.у. Р. Ренара - Женщины и розы (танго)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949F976A69CEE853170542992D59907ACF4F0F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494092   (890865) от 06.09.2021
+
+Locomotiv GT. - In Warsaw. Recorded live at the Congress Hall (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz-Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890865.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tape Signal
+A2 Intro
+A3 Enfeleitett Szo • Forgotten Word
+A4 Es Jott A Dokto • And The Doctor Came(   Читать дальше...   )Жанр: Jazz-Rock, Prog RockПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2632D83DD71A5EC607A8CBCDDADC8E2DB2C3C62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494111   (890699) от 06.09.2021
+
+Поющие сердца - Зима любви (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890699.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Зима Любви
+A2 Где Найти Любовь
+A3 Все, Что Было
+A4 Стучись В Любую Дверь(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D67C4A9E97236D4B232BA33B1624E130E1A45B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102512   (887401) от 11.02.2017
 
 VA - RETROспектива, часть X: Эстрадные оркестры X (1935-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
@@ -576,180 +751,6 @@ Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375874   (863367) от 15.04.2020
-
-The Alan Parsons Project – Ammonia Avenue (1984) 2020 [DTS 5.1 CD-DA|44.1/16|image+.cue|BD-Audio] <electronic, rock, pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Prime Time 	5:03
-02. 	Let Me Go Home 	3:20
-03. 	One Good Reason 	3:36
-04. 	Since The Last Goodbye 	4:34(   Читать дальше...   )Жанр: art rock, pop/rockПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8B15944696DE84B0066BE98A511611AC43A136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497401   (862975) от 23.09.2021
-
-VA - Музыка РУ 5 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Верка Сердючка - Трали-вали
-02. Жуки - Властелин колец ауди vs. бумер
-03. А'Studio feat. Zied - Ты(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11B1B383658D143701BEA72C5C68C3CE018A6ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497402   (862972) от 23.09.2021
-
-Александр Маршал - Избранное 1998 - 2005 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Орёл
-02. Кленовый лист
-03. Снегопад
-04. Старое село(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE410BB158A70D41ED3BEE10B877975FBC145B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497416   (862971) от 23.09.2021
-
-Laid Back - Hole In The Sky (1990) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862971.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Bakerman
-A2 Hole In The Sky
-A3 Fly With Me
-A4 Highway Of Love(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1522C03026CBD0E7A02F5FDDDEA04217271C136C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497397   (862870) от 23.09.2021
-
-VA - Любимой Женщине 3. Сборник медленных композиций (1997) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Donna Lewis - I love You Always Forewer
-02. Eric Clapton - Change The World
-03. Alanis Morissette - Head Over Feet(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2164BE1D2527B0E031CC974F3F52A392329077D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376137   (861532) от 16.04.2020
-
-Linn Records - The Super Audio Collection Volume 4 Sampler (2010) [DSD 5.1, 2.0|2822,4/1|SACD] <demos/samplers>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Maeve O'Boyle - Pray It Never Happens
-02 Claire Martin - Everything I've Got Belongs To You
-03 Ian Shaw - A Good And Simple Man
-04 Carol Kidd - Stars Fell On Alabama(   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C9C19C798AADAAC61AEC0EBDCC09BF7C27C3A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

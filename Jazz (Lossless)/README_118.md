@@ -1,3 +1,32 @@
+###  Публикация: 1023439   (724416) от 05.06.2016
+
+Andy Williams - The Best Of (1992) [APE|Lossless|image + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Fool Never Learns
+02. Moon River
+03. Happy Heart
+04. Can't Get Used To Losing You(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AB5135CEEBC77A15B0251152BD296C40272832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023514   (724400) от 05.06.2016
 
 Laura Fygi - 25th Anniversary Collection: Fans' Choice (2015) 2CD, Compilation [FLAC|Lossless|tracks] <Jazz Vocal>
@@ -716,35 +745,6 @@ Cannonball Adderley Quintet - Cannonball In Japan (1966) 2004, Capitol [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6454EDCD2AE7B1B17BA90E2DB426C394D88C60D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129590   (720797) от 29.04.2017
-
-Shorty Rogers - Creative West Coast Swing (1951-1954) 4CD, 2005, Membran [APE|Lossless|tracks + .cue] <West Coast Jazz, Cool, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720797.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Popo [03:02]
-02. Over the Rainbow [03:01]
-03. Didi [02:27](   Читать дальше...   )Жанр: West Coast Jazz, Cool, Big BandПродолжительность: 02:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ED351E4DA7F9F9CB306919B8A268637903C4DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

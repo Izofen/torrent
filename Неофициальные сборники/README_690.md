@@ -1,3 +1,293 @@
+###  Публикация: 1819422   (1443) от 22.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [c003, Bonus] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1443.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cocino - Where Do We Go.mp3
+002. Coco, Joezi, Pape Diouf - 7 Seconds.mp3
+003. Code Beat feat. Snoop Dogg, T.I. & Beat Frequency - I Like It (David May & Ebbyman Mix).mp3
+004. Code Breakerz - POISON.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 08:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11128B1277B8C182C47F3E0AC5EF0E9DFD1385F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818864   (1301) от 23.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [a001] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1301.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A R I Z O N A - Summer Days.mp3
+002. A&G, Northmark feat. Gabri - Run With Me (Radio Edit).mp3
+003. A. Lee - Gotta Let Go (Dub Mix).mp3
+004. A. Rassevich - Come One Way (Original Mix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD6A633F06A0E897C78D63F47E21387D6AAB539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819564   (1270) от 23.09.2025
+
+Sammy Hagar - Voice Of Rock - Compilation (1973-2025) [MP3|320 Kbps] <Hard rock, Glam metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mas Tequila (& The Waboritas) {Red Voodoo}1999
+02. Something Going Wrong (& Chickenfoot) {Chickenfoot III}2011
+03. Halfway To Memphis (& The Waboritas) {Not 4 Sale}2002
+04. Heroes (& David Bowie & The Circle) {Lockdown 2020}2021(   Читать дальше...   )Жанр: Hard rock, Glam metalПродолжительность: 08:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756CCAFD9317E53AE7AF3A372FD0E0612EE8A111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819646   (1190) от 24.09.2025
+
+Пикник - Premium Playlist (2004-2024) [MP3|320 Kbps] <Psychedelic Rock, Post-Punk, Gothic Rock, Folk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aianostre (Королевство кривых, 2004).mp3
+02. А зовут его. Оторви и Брось (Один на один, 2024).mp3
+03. А может быть и не было меня (Чужой, 2004).mp3
+04. Азбука Морзе (Чужестранец, 2014) (2).mp3(   Читать дальше...   )Жанр: Psychedelic Rock, Post-Punk, Gothic Rock, Folk RockПродолжительность: 06:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED775E2EC36B60ABB3DC2B1FD0A29359E13B0107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819574   (1184) от 24.09.2025
+
+Amanda Lear - Premium Playlist (1976-2011) [MP3|320 Kbps] <Pop, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alligator {I'am A Photograph, 1977-2}.mp3
+02. Alphabet (Prelude In C By J.S. Bach) {The Collection, 1998}.mp3
+03. Alter Ego (Part 2) {Greatest Hits, 2003}.mp3
+04. Always On My Mind (Psychology Mix) {Brief Encounters Reloaded, 2010}.mp3(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 06:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B2F5EB0D574B6D750C3C1E39C1B9312BE7F14F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818887   (1182) от 24.09.2025
+
+VA - National Pop Dance Music - Premium Playlist [!!, nr, a] (2020-2025) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1182.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #Mallorcadassindwir - Mallorca Das Sind Wir.mp3
+002. (Dis)Amore - Conta Su Di Me.mp3
+003. (G)I-Dle - Oh My God.mp3
+004. 1Tak - I Don't.mp3(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 25:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D603D4AC97B14318A5E4C3D6A3724C6EDC08FFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819647   (1174) от 24.09.2025
+
+Тимур Шаов - Premium Playlist (1997-2019) [MP3|320 Kbps] <Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. «Товарищи ученые» 30 лет спустя (Минск, 2005).mp3
+02. Sex в носках (При чём тут Фрейд, 2017).mp3
+03. Аполитичная песня (Любовное чтиво, 1997).mp3
+04. Аутотренинг (О чём молчал Герасим, 2010).mp3(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 07:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B4B5FDB30C6DAEAA18B1CA4127C41A78DF9D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819584   (1170) от 24.09.2025
+
+Giorgio Moroder - Premium Playlist (1968-2018) [MP3|320 Kbps] <Euro Disco, Electronic Dance Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 74 is the New 24 {Deja Vu (Jap Ed), 2015}.mp3
+002. A Whiter shade of pale - Munich Machine {Giorgio Moroder & Co - Greatest Hits, 1996}.mp3
+003. Another Way (Instrumental) {Another Way, 1988}.mp3
+004. Another Way {Another Way, 1988}.mp3(   Читать дальше...   )Жанр: Euro Disco, Electronic Dance MusicПродолжительность: 10:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92D6ED05DAEFCB59C75DB1A33E7AE6B3E234721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819676   (1163) от 24.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [a002] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1163.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aelyn - Believe In Us (Radio mix).mp3
+002. Aelyn - Hypnosis.mp3
+003. Aerobatics & Cotry - Intuition (Feat. Cotry) (Original Mix).mp3
+004. Aeron Aether & Bobalino - Titans  feat. Jay Furze (Album Mix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D34D6CCBACC5131F4A8C9ACC52A91CAF2E4EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819642   (1157) от 24.09.2025
+
+Зоя Ященко и Белая Гвардия - Premium Playlist (1993-2020) [MP3|320 Kbps] <Sentimental Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1157.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. А в лесу сосновом... (Когда ты вернёшься, 2002).mp3
+002. Абсолютная ночь (Другие острова, 2001).mp3
+003. Айседора Дункан (Так восходит луна, 2013).mp3
+004. Алый парус (Кукла в кармане, 2005).mp3(   Читать дальше...   )Жанр: Sentimental RockПродолжительность: 08:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0EE3E96B703B2C04FC7D1176EEF13506E7E26D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819726   (1153) от 24.09.2025
 
 VA - Buddha Bar - Premium Playlist {c} (2007-2025) [MP3|320 Kbps] <Lounge, Chill-Out, World Music>
@@ -455,151 +745,6 @@ VA - 60 minutes. Old School Dance Music vol.26 (mixed by Dj V) (2024) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5B668ED6481C7B0CDA1B532D8B6A4FDE5DE43B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820731   (264) от 28.09.2025
-
-VA - National Pop Dance Music Vol.121 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_264.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kep1Er - Hell Or Heaven (02:54)
- 002. Andrea Berg - Nachstes Mal Sag Ich Dann Nein (03:13)
- 003. Frannko - Despierta Alma (03:48)
- 004. Malik Adouane - Strange Lotus (05:38)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 09:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD23FA9536C3AC1A967CBBA41A4759AADD40B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766009   (128) от 29.09.2025
-
-AC🗲DC - Compilation (1975-2020) [MP3|320 Kbps] <Hard rock, Blues rock, Rock & Roll, Heavy metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.N.T. {Live} 1992
-02. Two's Up {Blow Up Your Video} 1988
-03. Play Ball {Rock Or Bust} 2014
-04. Anything Goes {Black Ice} 2008(   Читать дальше...   )Жанр: Hard rock, Blues rock, Rock & Roll, Heavy metalПродолжительность: 05:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56CABD328E99C9D70AAACBFAFD00CC887641CA8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760875   (108) от 29.09.2025
-
-3 Doors Down - Compilation (2000-2016) [MP3|320 Kbps] <Hard rock, Alternative, Post grunge>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Away From The Sun {Away From The Sun} 2002
-02. Back To Me {Time Of My Life} 2011
-03. Be Like That {The Better Life} 2000
-04. Be Somebody {Seventeen Days} 2005(   Читать дальше...   )Жанр: Hard rock, Alternative, Post grungeПродолжительность: 02:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75AE6C264886297A5A5B4F8E2689F80949FA68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820809   (27) от 29.09.2025
-
-VA - Music News For Forum vol.136 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alexandra Stan & Patricia Zavala - Lipstick (02:25)
- 002. ADEX - Echoes (03:15)
- 003. ADISHAKTII - Down, Pull The Sling (03:38)
- 004. Agunda - Не верю (02:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4C39BA763AAF9942634D971D5BEAE3BF38DF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820787   (8) от 29.09.2025
-
-Eric Street Band - Compilation'25 (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Wanted [06:11]
-02. Can't Get You Out of My Head [03:43]
-03. Company Man [04:43]
-04. Eye of the Storm [04:59](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A608F80CBF77228303A850408FF1716C38DA8E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

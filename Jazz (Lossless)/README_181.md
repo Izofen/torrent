@@ -1,3 +1,32 @@
+###  Публикация: 929609   (518524) от 20.08.2015
+
+Bob Wilber & Kenny Davern - Summit Reunion (1990) /Chiaroscuro Records/ [FLAC|image+.cue]<Jazz, Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Long As I Live [05:39]
+02. Love Come Back To Me [06:11]
+03. St. Louis Blues [11:25]
+04. Black And Blue [04:57](   Читать дальше...   )Жанр: Jazz, Swing, Mainstream JazzПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED44BF41CE43A2BAE625F2CA2074AB0969BB799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929613   (518523) от 20.08.2015
 
 Benny Bailey Quintet - While My Lady Sleeps (1990) /Gemini/ [FLAC|image+.cue]<Jazz, Mainstream Jazz>
@@ -732,35 +761,6 @@ Steve Tibbetts - Hellbound Train: An Anthology (2022) Remastered[FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCDB9DD9C58946EA2F4A0CD6546DC1E014ABBED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561493   (514515) от 05.07.2022
-
-Ethel Waters - Am I Blue?: Ethel Waters Sings 'Em (1923 - 1940) 2CD, 2019, Retrospective Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514515.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- 1923-1931:
-01. Am I Blue? [3:25]
-02. Ethel Sings 'Em [3:19]
-03. Sweet Georgia Brown [3:13](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F47EF9DADD6B47AE945A8098253048F79912015
 ```
 
 https://mybot314.ru/tekegram_catalog/

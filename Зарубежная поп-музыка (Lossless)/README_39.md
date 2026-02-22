@@ -1,3 +1,32 @@
+###  Публикация: 1534701   (692386) от 03.03.2022
+
+Avril Lavigne - Love Sux (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cannonball (02:18)
+02. Bois Lie (feat. Machine Gun Kelly) (02:43)
+03. Bite Me (02:39)
+04. Love It When You Hate Me (feat. blackbear) (02:25)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC87882711A754EF21EBAAACBA6A3448DBB2DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535011   (690525) от 04.03.2022
 
 Bryan Adams - Pretty Woman - The Musical (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Soft Rock>
@@ -720,35 +749,6 @@ VA - Romantic Nights (2012) [FLAC|Lossless|image + .cue] <Pop, Ballads>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:910F612C3117D04E3CAFAA4D8C117D362184128F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290494   (676584) от 21.03.2019
-
-Maren Morris - Girl (2019) [FLAC|Lossless|tracks + .cue] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl (04:10)
-02. The Feels (03:07)
-03. All My Favorite People (feat. Brothers Osborne) (03:19)
-04. A Song for Everything (03:14)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C37ABB7AF9265267C8271352FD3569AEEB0251
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1350702   (1002975) от 07.01.2020
+
+VA - Chill Me Softly (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Psychill, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AuroraX - Limitless (feat. Milena) (06:20)
+02. Cabeiri - Undivided Substance (07:13)
+03. E-Mantra - Sublime Part II (05:56)
+04. Kliment & AuroraX - Wake up Forest (09:34)(   Читать дальше...   )Жанр: Chillout, Psychill, DowntempoПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC61057627A78C341E547A87F35A0018C6355FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350829   (1002967) от 07.01.2020
 
 Glary Utilities Pro 5.135.0.161 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -656,32 +685,6 @@ Ornatrix v1.0.0.21988 for Cinema 4D [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88BD1FAA75C270CD42740C3F363A7B003F41BC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351066   (1002640) от 08.01.2020
-
-Auslogics BoostSpeed 11.3.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BAAFCA476CE003D0BE7895CCFDE049745A99BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

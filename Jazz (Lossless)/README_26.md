@@ -1,3 +1,32 @@
+###  Публикация: 973712   (979314) от 09.01.2016
+
+Miles Davis - Water Babies (1967-1968) 2002, Columbia[FLAC|tracks+.cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Water Babies [05:08]
+ 02.Capricorn [08:30]
+ 03.Sweet Pea [08:03]
+ 04.Two Faced [18:03](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D6CA72A9B55C500BD738269DD2F2FED02C7E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742356   (979225) от 06.01.2014
 
 Stuff Smith and ... - 3 альбома (1995-2005) [FLAC|Lossless]<Swing, Bop, Easy Listening>
@@ -769,41 +798,6 @@ Enrico Rava & Joe Lovano - Roma (2019) ECM Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B52689526B69CB0FA35252FD99D1F2AF9A47DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616029   (976403) от 09.02.2013
-
-VA - Capitol's Great Ladies Of Song (1992) 2CD [FLAC|Lossless]<Jazz Vocal, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dinah Shore – Sentimental Journey [03:28]
-02. Helen Forrest – I Had the Craziest Dream [02:42]
-03. Andrews Sisters, The – Well All Right! (Tonight's The Night) [03:16]
-04. Keely Smith – I'll Never Smile Again [03:08]
-05. Mavis Rivers – Five O'Clock Whistle [02:38]
-06. Martha Tilton – And the Angels Sing [03:14]
-07. Peggy Lee – I Don't Know Enough About You [03:20]
-08. June Christy – Shoo Fly Pie and Apple Pan Dowdy [02:37]
-09. Helen O'Connell – Green Eyes [02:49]
-10. Ella Mae Morse – No Love, No Nothin' [02:36](   Читать дальше...   )Жанр: Jazz Vocal, SwingПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,264 @@
+###  Публикация: 1495041   (882502) от 11.09.2021
+
+Between Worlds - Between Worlds (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between Worlds
+02. These Walls
+03. Life Enough For Me
+04. Times Of Change(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF606EF5C06A915E26F8942D3A09150D67148266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495128   (882500) от 11.09.2021
+
+Skid Life - Awake (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Groove>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awake
+02. Salvation
+03. Corrupted
+04. Joker(   Читать дальше...   )Жанр: Heavy Metal, GrooveПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8924243BBCEC2901353C6164E10A5CA576FA5CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495036   (882497) от 11.09.2021
+
+Black Mass - Feast At The Forbidden Tree (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Unholy Libations
+03. Dead To The World
+04. A.S.H.E.S(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0FF5A23848A254A65B6D3F7E5CFC93D5CDD2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495086   (882481) от 11.09.2021
+
+Inferi - Vile Genesis (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Gods But Our Flesh
+02. Maelstrom Prison
+03. Simian Hive
+04. From Exile To Exaltation(   Читать дальше...   )Жанр: Technical Melodic Death MetalПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C0F86E0374874466B18A38095403263267981A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495011   (882474) от 11.09.2021
+
+Pentakill - III: Lost Chapter (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Chapter (feat. Jorn Lande)
+02. Predator (feat. TELLE & Tre Watson)
+03. Edge Of Night (feat. Jorn Lande)
+04. Gathering Storm (feat. Atalan, Jorn lande, Noora Louhimo & Tre Watson)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05680C165D87C784B9CABFD271E21672178971EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495079   (882467) от 11.09.2021
+
+Seven Spires - Gods Of Debauchery (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanderer’s Prayer
+02. Gods Of Debauchery
+03. The Cursed Muse
+04. Ghost Of Yesterday(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8451C9E0B00AF7724FCEF8C187F2C72F64AEE07A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495355   (882390) от 11.09.2021
+
+Jinjer - Wallflowers (2021) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Metalcore, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me A Symbol (4:21)
+02. Colossus (3:37)
+03. Vortex (4:02)
+04. Disclosure! (3:47)(   Читать дальше...   )Производство: Napalm Records – NPR1001DPЖанр: Alternative Metal, Metalcore, Progressive Metal, Groove MetalПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D599B2302414F0C93C90433B268884EC215F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495055   (882384) от 11.09.2021
+
+Anette Olzon - Strong (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Bye
+02. Sick Of You
+03. I Need To Stay
+04. Strong(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA78064129AA465D6A378647ABE720D8FBD23C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104216   (881975) от 14.02.2017
+
+Mors Principium Est - ...And Death Said Live (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Awakening 00:55
+02. Departure 05:44
+03. I Will Return 04:28
+04. Birth Of The Starchild 04:12(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B96EC161E59AF339611587228BBE0156AF6DA8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104266   (881881) от 14.02.2017
 
 Solution .45 - For Aeons Past (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Melodic Death Metal>
@@ -500,277 +761,6 @@ Mortillery - Shapeshifter (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8FF1CDC3271ACE38F041E150DE1C939FDB5B76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588057   (880222) от 06.04.2020
-
-Arcturus - Sideshow Symphonies (2005) [FLAC|Lossless]<Avantgarde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Avantgarde Black MetalПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F45D813DAF264098E44520CC8FE80541BF2366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169233   (880215) от 06.04.2020
-
-Nightingale - 7 Albums, 1 Compilation, 1 Live (1995-2017) [FLAC|Lossless|image + .cue] <Gothic Metal, Heavy Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightingale (Швеция) - музыкальный коллектив композитора, певца и мультиинструменталиста Дэна Свано (или Дана Сванё, как правильнее по-шведски), одного из самых значительных музыкантов в экстремальном металле 90-х годов.Список альбомов:
-1995 - The Breathing Shadow
-1996 - Closing Chronicles
-2000 - I(   Читать дальше...   )Жанр: Gothic Metal, Heavy Metal, Progressive MetalПродолжительность: 06:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25D1115D35D8CE27BCE5FD8D80A3A774F296C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764603   (880174) от 09.03.2014
-
-Metal Inquisitor - Ultima Ratio Regis (2014) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Confession Saves Blood
-02.Burn Them All
-03.Call the Banners
-04.Black Desert Demon
-05.Bounded Surface
-06.Death on Demand
-07.Self-Denial
-08.Servant of State
-09.The Pale Messengers
-10.Second Peace of ThornЖанр: Heavy MetalПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBB82184AA60678182C7304301118DAAB036C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104427   (880162) от 15.02.2017
-
-Them - Sweet Hollow (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebirth 01:19
-02. Forever Burns 05:08
-03. Down The Road To Misery 04:35
-04. Ghost In The Graveyard 05:14(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7266AD173482E35950730DE52FDFF6D8CD4E44C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638133   (880137) от 06.04.2020
-
-Angtoria - God Has A Plan For Us All (12-track version) (2006) [FLAC|Lossless]<Heavy Sympho Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Sympho MetalПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E504765BB10FD774D97C4B3FA09F64D153DA26E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104534   (880108) от 15.02.2017
-
-Overkill - The Grinding Wheel (2017) Limited Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mean, Green, Killing Machine 07:29
-02. Goddamn Trouble 06:21
-03. Our Finest Hour 05:49
-04. Shine On 06:03(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B6D087A56E883BC938FEE9952BAF55DDF4687A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764464   (879990) от 09.03.2014
-
-Axxis - Kingdom of the Night II (2014) 2 CD [FLAC|Lossless]<Heavy Metal/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Axxis — метал-группа из Германии, исполняющая музыку в стиле Пауэр-хэви-метал, образованная в 1988 году. Первый дебютный альбом Kingdom of the Night был выпущен в феврале 1989 года...01. Hall Of Fame (3:39)
-02. Heaven In Paradise (3:56)
-03. Living In A Dream (4:22)
-04. 21 Crosses (5:09)
-05. My Eyes (3:43)
-06. Dance Into Life (4:17)
-07. Mary Married A Monster (Her Version) (4:07)
-08. We Are The World (3:20)
-09. Take Me Far Away (3:18)
-10. Gone With The Wind (3:22)(   Читать дальше...   )Жанр: Heavy Metal/Power MetalПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9201B7017F999A5A82D433F49D1F92EE33B858D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104542   (879988) от 15.02.2017
-
-Battle Beast - Bringer of Pain (2017) Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight To The Heart 03:31
-02. Bringer Of Pain 03:04
-03. King For A Day 04:35
-04. Beyond The Burning Skies 04:39(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42472ADE15F64849960D729AE9CC3EFA5951C7F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764812   (879821) от 09.03.2014
-
-Locrian - Return To Annihilation (2013) [FLAC|Lossless|WEB-DL]<Black Metal, Avantgarde, Drone, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Part I
- 01. Eternal Return (2:51)
- 02. A Visitation From The Wrath Of Heaven (8:25)
- 03. Two Moons (4:26)
- 04. Return To Annihilation (6:45)
-4a Into One Light
- 4b Anathemata
- 4c All Mineral In UpheavalЖанр: Black Metal, Avantgarde, Drone, ExperimentalПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8AB40A00540E72CF33778092DFECE4FD9493348
 ```
 
 https://mybot314.ru/tekegram_catalog/

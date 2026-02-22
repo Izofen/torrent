@@ -1,3 +1,177 @@
+###  Публикация: 1721475   (110038) от 07.05.2024
+
+Broken Homes - Broken Homes (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Power Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110038.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In Another Land
+A2 An L.A. Rain
+A3 Out In The Fields
+A4 Painless Saturday(   Читать дальше...   )Жанр: Rock, Power PopПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CF3344BB4D85B9F6EAF97231318CE41197FF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721525   (110030) от 07.05.2024
+
+New Order - Power, Corruption & Lies (1983) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, New Wave, Post-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110030.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:16] 01. Age of Consent
+[5:14] 02. We All Stand
+[4:38] 03. The Village
+[7:30] 04. 5 8 6(   Читать дальше...   )Жанр: Synthpop, New Wave, Post-PunkПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9409052431F6654C77D89CD7996868422D79422D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721759   (110005) от 08.05.2024
+
+Sensual Lounge Music Universe, Romantic Jazz Music Club - Sex Before Noon: Morning Dalliance with Smooth Erotic Jazz Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion And Pomegranate (3:35)
+02. Absolute Satisfaction (3:02)
+03. Morning Kiss (3:39)
+04. Savage Feeling (3:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053957B97EEFF65ED6B797F72D600C8CD26A7416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721752   (109982) от 08.05.2024
+
+Gary Cain - Outside The Lines (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Got The Blues (3:11)
+02. Resting On My Mind (3:14)
+03. Pretty (3:27)
+04. Ain't Giving Up (2:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD80D86AC31FB6F7BAA6E2D4305F5B4C2E1D910F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721762   (109976) от 08.05.2024
+
+The Paddy Boy Zimmermann Band - The Paddy Boy Zimmermann Band (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Your Blood (4:56)
+02. Brick Wall Boogie (4:46)
+03. Spaghetti In The Night (6:36)
+04. Alive Shuffle (4:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77CF654719B89628144CDB4AB9101940F468CDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721742   (109975) от 08.05.2024
+
+Burning Sleeves - Turning the Light On (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire (4:30)
+02. The Price (4:39)
+03. Upside Down (2:39)
+04. Sunshine (3:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDD6D59B4B02CD1319FCF45636AE1D72074D88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721740   (109955) от 08.05.2024
 
 Bastardz Music Lab - Episode #64 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -568,180 +742,6 @@ Laibach - Opus Dei (1987) Remastered, 2024, Mute [FLAC 24/48|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:347D50CF5FBE726846D6A218CC69EF8F2FF65F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722342   (109762) от 10.05.2024
-
-The Bullseyes - Polish Sweethearts (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 20 Hours in Bed (3:39)
-02. THE BIG SAD (Happiness That Should've Been Mine) (1:59)
-03. NO LOVE (2:28)
-04. Feelin' Good Ain't Cheap (2:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401C40D79F780F1CDC06BD34EDAC64064898ACAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722340   (109760) от 10.05.2024
-
-Rusted Roof - Rustless (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King of the Day (4:55)
-02. Iron Horse (4:44)
-03. Bad Blood (4:55)
-04. Let It Rock (4:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3BAC746DF2A6B64694C6FF6F28AE92C5506C963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722337   (109756) от 10.05.2024
-
-King Zebra - Between The Shadows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlight (3:23)
-02. Children Of The Night (3:58)
-03. Wicked (3:42)
-04. Dina (3:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DB1D3584CFE17C24E90C8A194D58064C5A7E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722336   (109750) от 10.05.2024
-
-Jazztick - Super Jazztikong Country (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:22)
-02. Title theme (2:10)
-03. Simian Segue (2:52)
-04. Snakey Chantey (2:55)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7DA1246CED99D7E6376909704C8553A2AE6384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722343   (109749) от 10.05.2024
-
-The Treatment - Wake Up The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Wake Up This Town (3:07)
-02. Back To The 1970's (3:20)
-03. When Thunder And Lightning Strikes (4:14)
-04. This Fire Still Burns (3:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CA6F3BE851BFF232B36A77A72971EE54E48607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722223   (109746) от 10.05.2024
-
-Six Feet Under - Killing for Revenge (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks|Hi-Res tracks] <Death, Groove Metal, Death 'n' Roll>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Know-Nothing Ingrate (00:02:22)
-02 - Accomplice to Evil Deeds (00:02:17)
-03 - Ascension (00:04:30)
-04 - When the Moon Goes Down in Blood (00:03:46)(   Читать дальше...   )Жанр: Death, Groove Metal, Death 'n' RollПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56CD0D78CF92954CED8C6B42187F467AEF3F413
 ```
 
 https://mybot314.ru/tekegram_catalog/

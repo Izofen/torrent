@@ -1,3 +1,32 @@
+###  Публикация: 958789   (319371) от 23.11.2015
+
+Eloy Fritsch - The Garden of Emotions (2009) [FLAC|image+.cue]<Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Garden Of Emotions - Part I
+02. The Garden Of Emotions - Part II
+03. The Garden Of Emotions - Part III
+04. The Garden Of Emotions - Part IV(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618BF756AC17A771567F892BC30C94AC5184F1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958981   (319269) от 23.11.2015
 
 Medwyn Goodall - Dreamweaver (2014) [MP3|320 кб/с]<New Age, Relax>
@@ -722,35 +751,6 @@ VA - We Love Latin 2017 (Only Djs Extended Versions) [MP3|320 Kbps] <Latin Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0FE15FCED75B7008E26403D6A2F75FFA981D35D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182841   (312206) от 12.11.2017
-
-VA - Disco Dancer (OST Танцор диско) (1982) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vijay & Chorus - I Am A Disco Dancer  7:51
-02.  Parvati Khan - Jimmy Jimmy Jimmy Aaja  3:04
-03.  Usha Uthup, Bappi Lahiri & Chorus - Auva Auva Koi Yahan Nache  5:24
-04.  Kishore Kumar & Chorus - Ae Oh Aa Zara Mudke  5:47(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B8044B4230C3CFF01BD812999E0AB9B4A8A9A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

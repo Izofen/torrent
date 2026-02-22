@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1854419   (1057457) от 17.02.2026
+
+Element - Dreamer (2026) [MP3|320 Kbps] <Progressive Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Shine
+02. Over And Over
+03. Beat Of A Heart
+04. Love(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36069A7EA002A8A21C6DD5A8F511944D535B0BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853347   (1056521) от 12.02.2026
 
 Primaluce - Way Of Perfection (2026) [MP3|320 Kbps] <Progressive Metal>
@@ -717,35 +746,6 @@ Zombiophilia - 4 Albums (2020-2022) [MP3|320 Kbps] <Death Metal, Pagan Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6623CBDF2B921ED332421CA89708A8FC019B921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601698   (1046345) от 02.01.2023
-
-Katatonia - Sky Void of Stars (2022) EP [MP3|320 Kbps] <Doom Metal, Depressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atrium (4:11)
-02. Austerity (3:43)
-03. Night Comes Down (Judas Priest Cover) (4:20)
-04. Fighters (Enter the Hunt Cover) (3:40)(   Читать дальше...   )Жанр: Doom Metal, Depressive RockПродолжительность: 00:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0127CC87F135772DDBBA2365E6B9BB72C642286
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1817866   (2612) от 15.09.2025
+
+Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Numero Uno
+ 02 - Pasta Con Te (Dream Version)
+ 03 - Non Mi Amava Più (Club Version)
+ 04 - Bella Bavaria(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0697099B1E10B7126623E25EA8FABA2B1ACB505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818850   (2000) от 19.09.2025
 
 Romantic Dreams - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>

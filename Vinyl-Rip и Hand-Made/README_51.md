@@ -1,3 +1,177 @@
+###  Публикация: 1660657   (189404) от 13.09.2023
+
+Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189404.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Settle Down
+A2 After The Laughter (Came Tears)
+A3 Butterfly
+A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660750   (189373) от 13.09.2023
+
+Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Orchestra>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189373.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vienna Blood
+A2 Radetzky March
+A3 Tales From The Vienna Woods
+B1 The Blue Danube(   Читать дальше...   )Жанр: Classical, OrchestraПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590260   (189035) от 13.11.2022
+
+Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 48 Crash (3:57)
+ 02. Glycerine Queen (3:52)
+ 03. Shine My Machine (3:54)
+ 04. Official Suburbian Superman (3:10)(   Читать дальше...   )Жанр: Glam, Hard Rock, Rock & RollПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7463B9EC8E8C6AC4915BB7AA46B8BE1E2BBCDE2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590282   (189034) от 13.11.2022
+
+Алексей Рыбников - «Юнона» И «Авось» (1982) [FLAC 2.0|192/24|side-tracks|Vinyl-Rip] <Opera, Art Rock, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сторона 1 • «Юнона» И «Авось» • Опера
+02. Сторона 2 • «Юнона» И «Авось» • Опера (Продолжение 1)
+03. Сторона 3 • «Юнона» И «Авось» • Опера (Продолжение 2)
+04. Сторона 4 • «Юнона» И «Авось» • Опера (Окончание)(   Читать дальше...   )Жанр: Opera, Art Rock, ExperimentalПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E63F282DB24B5F59DB0ADDF88ADFCF16F8C0DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661107   (188800) от 14.09.2023
+
+Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.6 Pastoral (1977) A New Recording from the Berlin Philarmonic Hall [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classica ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ludvig Van Beethoven (1770 - 1817)
+Symphony No.6 In F Major, Op. 68 "Pastoral"
+A New Recording from the Berlin Philarmonic Hall
+A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590517   (188658) от 14.11.2022
+
+Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Moon Rising (2:19)
+ 02. Midnight Hour (2:26)
+ 03. I Feel The Earth Move (2:54)
+ 04. Walking The Dog (2:35)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543805   (188589) от 14.11.2022
 
 Red Hot Chili Peppers - Дискография (16 releases) (1983 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Rock>
@@ -566,175 +740,6 @@ Sirenia — норвежский готик-метал-проект, основ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CFFCE365B756EE82FACC92DDF929812D27B4FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664049   (186223) от 24.09.2023
-
-Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster Edition, A Steven Wilson stereo remix, 2023, Chrysalis [FLAC 24/96|Lossless|tracks] <hard rock, art rock, folk ro ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Game (demo, instrumental)Жанр: Progressive rock, hard rock, art rock, folk rock, electronic rockПродолжительность: 00:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83508DF59A7474A11DEBBBB4CD611833BE312D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827377   (186102) от 21.10.2025
-
-Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfheart - метал-группа из Лахти, Финляндия, основанная в 2013 году Туомасом Саукконеном.2013 - Winterborn
-2015 - Shadow World
-2017 - Tyhjyys
-2018 - Constellation Of The Black LightЖанр: Melodic Death MetalПродолжительность: 05:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98483922B70E817E9F7AE204A2AA39AC55E0ED7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664424   (185442) от 26.09.2023
-
-Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185442.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Wired For Sound
-A2 Once In A While
-A3 Better Than I Know Myself
-A4 Oh No, Don't Let Go(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FA0771DEE15908CA0EE4D13BCEC5D787A9288F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664746   (184834) от 27.09.2023
-
-Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adrenaline Mob — американская грув-метал супергруппа из Centereach, Long Island, New York, основанная Майком Портным (экс-Dream Theater), Расселом Алленом (Symphony X), Ричи Уордом (Stuck Mojo), Майком Орландо и Полом Ди Лео в начале 2011 года.2012 - Omerta
-2013 - Coverta (EP)
-2014 - Men Of Honor
-2017 - We The PeopleЖанр: Hard Rock, Groove MetalПродолжительность: 03:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD2E74B1B1559DC85FF52FB184AB90888821C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664670   (184797) от 27.09.2023
-
-Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] Heavy/Power/Symphonic Metal
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассел Аллен (англ. Russell Allen; родился 19 июля 1971 года в Лонг Бич) — американский певец, вокалист прогрессив-метал группы Symphony X, а также грув-метал супер-группы Adrenaline Mob.2005 - The Battle
-2007 - The Revenge
-2010 - The Showdown
-2014 - The Great DivideЖанр: Melodic Heavy Metal, Symphonic/Power MetalПродолжительность: 06:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE33D38FE0C4657501A4F9D5C808A0FAECA230E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665006   (183997) от 28.09.2023
-
-Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lost Horizon - пауэр-метал группа из Гетеборга, Швеция.2001 - Awakening The World
-2003 - A Flame To The Ground BeneathЖанр: Power MetalПродолжительность: 01:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C6AE0A14B08B4DD6B01EE17E315418169EB977
 ```
 
 https://mybot314.ru/tekegram_catalog/

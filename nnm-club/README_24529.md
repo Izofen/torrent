@@ -1,22 +1,25 @@
-###  Публикация: 1797265   (66836) от 15.05.2025
+###  Публикация: 1798571   (66618) от 22.05.2025
 
-Darwin's Game | Игра Дарвина (2012) [30 томов, 121 глава + Экстра] [Манга] [Русский] [PNG, JPG] [16+] [Complete]
+Салехард - Заочница (2025) [MP3|320 Kbps] <Chanson>
 
->>Манга и Арт
->>Манга, Манхва, Маньхуа
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66836.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Старшеклассник Судо Канаме получает от своего друга смс с просьбой помочь в одной игре. Не долго думая, он устанавливает на свой телефон приложение "Игра Дарвина", даже не подозревая о том, что чтобы победить в этой игре необходимо устранять своих соперников... в прямом смысле этого слова.Жанр: Приключения, фантастика, драма, сёнэн, эротика, эттиФормат: PNG, JPGПродолжительность: 12 декабря 2012 - 12 октября 2023
+01 - Заочница [00:03:33]
+02 - Я тебя позову [00:04:50]
+03 - Финочка [00:03:53]
+04 - По той дороге [00:05:27](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:38:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:244245378DA3EE59EFC104AD4D86C641A48265CE
+magnet:?xt=urn:btih:C198A2B8FADFCDEEDA7613C4D98D52AFF1D8B7DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,168 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797232   (66835) от 15.05.2025
+###  Публикация: 1798477   (66617) от 22.05.2025
 
-Shad Shadows - Wunderkammer Desire (2025) [MP3|320 Kbps] <Darkwave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wrong Rain [00:03:41]
-02 - Beautiful Crash [00:04:15]
-03 - Divination [00:03:51]
-04 - Human Voices [00:04:03](   Читать дальше...   )Жанр: Darkwave, SynthpopПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B6D1BA0AB25FE88082CB1F249580EE246667CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797255   (66834) от 15.05.2025
-
-Blood Incantation - Timewave Zero (2022) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66834.jpg" />
-</div>
-
-
-###  Подробнее
-
-A. Io (20:55)
-B. Ea (19:37)Жанр: Death MetalПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569861649132B22C712BA97C771CBDFE30872D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797221   (66833) от 15.05.2025
-
-Футбол. Чемпионат Мир РПЛ 2024/2025. 28-тур. Динамо (Москва) - Спартак (Москва) (11.05.2025) IPTVRip [H.264]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красно-белые мечтали о чемпионстве, но потеряли на него шансы за четыре тура до конца сезона. Теперь спартаковцы бьются за кубок, а в РПЛ — как пойдет. Да, есть шанс дойти до медалей, но после чемпионской задачи эта смотрится бледновато. А вот у "Динамо" мотивации побольше. Во-первых, бело-голубые слишком давно не обыгрывали "Спартак" — с группового (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 02:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41D73303D567039A90B94375FE891A55189F9A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797205   (66832) от 15.05.2025
-
-Legacy of Payne - Spawn of Creation (2025) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. We Born
-03. Open Neck
-04. State of Agression(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA5ADF1CA29B02B7BDF5D94540E702FE0457532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797252   (66831) от 15.05.2025
-
-Lewis Nash - Stompin' At The Savoy (2005) M&I Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stompin' at the Savoy [5:22]
-02. Delilah [7:07]
-03. Get Happy [4:27]
-04. I Thought About You [4:50](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B69BD407C8AF69693B73BE9B006ECD866306A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797140   (66830) от 15.05.2025
-
-Running Death - Overdrive (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Savage Oath - Divine Battle (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66830.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It Begins
-02. Hell on Earth
-03. Psycho
-04. Remote Controlled(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:30
+01. Knight Of The Night (7:20)
+02. Wings Of Vengeance (6:51)
+03. Blood For The King (6:45)
+04. Smoke At Dawn (2:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A4D69F4BA82E4BE852E5DF05F6C78E872791D64
+magnet:?xt=urn:btih:D54CF95F88248AFB07B78327619783FB3CA6C963
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797244   (66829) от 15.05.2025
+###  Публикация: 1798071   (66616) от 22.05.2025
 
-Echosoul - The Time of the Dragon (2025) [MP3|320 Kbps] <Progressive Heavy, Power Metal>
+Grails - Miracle Music (2025) [FLAC|Lossless|tracks + .cue] <Post Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66829.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66616.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Prologue [00:01:30]
-02 - Time Of The Dragon [00:04:40]
-03 - Path Of The Righteous [00:07:01]
-04 - Sister Suicide [00:04:43](   Читать дальше...   )Жанр: Progressive Heavy, Power MetalПродолжительность: 00:49:36
+01. Silver Bells (5:10)
+ 02. Primeval Lite I-III (6:35)
+ 03. Earthly Life (4:44)
+ 04. Homemade Crucifix (3:19)(   Читать дальше...   )Жанр: Post RockПродолжительность: 00:40:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92158817B1D90732BA32A5167CD5E408CA7F0B80
+magnet:?xt=urn:btih:641879210C51A84805BDF4B694CAF9BEBD2B0946
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,83 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797271   (66828) от 15.05.2025
+###  Публикация: 1798606   (66615) от 22.05.2025
 
-Gamaran | Гамаран (2009) [22 тома, 194 главы] [Манга] [Русский] [PNG, JPG] [Complete]
-
->>Манга и Арт
->>Манга, Манхва, Маньхуа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66828.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине периода Эдо, существовала страна, собравшая величайших мастеров боевых искусств, верующих только в силу, и ничего больше. Эта страна называлась Унабара - "Логово Демонов". Правитель этой страны устраивает Великий турнир, чтобы определить сильнейшую школу боевых искусств. В соискатели титула записывается Курогане Гама. Гама живет лишь для того, (   Читать дальше...   )Жанр: сёнэн, комедия, боевые искусства, историяФормат: PNG, JPGПродолжительность: 13 мая 2009 - 26 июня 2013
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2633D5EF8D17AFF68E4BEB5759C077EA920C79DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797246   (66827) от 15.05.2025
-
-Concrete Age - Awaken the Gods (2025) [MP3|320 Kbps] <Melodic Death, Thrash Metal, Ethnic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prey for Me [00:06:52]
-02 - Forbidden Ministry [00:04:43]
-03 - Awaken the Gods [00:03:45]
-04 - Cursed Reincarnation [00:04:24](   Читать дальше...   )Жанр: Melodic Death, Thrash Metal, EthnicПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465AE9C894BBECCA750CA529CEBD064D9D1B4191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797199   (66826) от 15.05.2025
-
-Novembre - Studio Albums (8 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Gothic/Doom/Death Metal>
+...and Oceans - The Regeneration Itinerary (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66826.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66615.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Novembre — итальянская метал-группа, образованная в Риме в 1990 году.1994 - Wish I Could Dream It Again
-1996 - Arte Novecento
-2000 - Classica
-2001 - Novembrine WaltzЖанр: Progressive Gothic/Doom/Death MetalПродолжительность: 09:02:56
+01 - Inertiae (04:30)
+ 02 - Fornyelse i Tre Akter (05:07)
+ 03 - Chromium Lungs, Bronze Optics (04:29)
+ 04 - The Form and the Formless (03:32)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70DAD989B45B7FDA08C4C8623FB5255A31B3681A
+magnet:?xt=urn:btih:1B28AFB8FFCA50E5A203E4CA1F1EC71CEDEB524A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,25 +114,284 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797311   (66825) от 15.05.2025
+###  Публикация: 1798300   (66614) от 22.05.2025
 
-Бомбы! / Bombs! (1916) WEBRip
+VA - EZ Ridin’ (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steppenwolf - Born to Be Wild    [0:03:29.72]
+02. Lynyrd Skynyrd - Call Me the Breeze    [0:05:08.68]
+03. Elvin Bishop - Rollin’ Home  [0:04:58.07]
+04. Bachman–Turner Overdrive - Free Wheelin’ (instrumental)    [0:03:46.38](   Читать дальше...   )Жанр: Pop Rock, RockПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7614EFD7ED7BCF4F23B5BA964EAEA21FD9621B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798604   (66613) от 22.05.2025
+
+Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Miracle (05:38)
+ 02 - Stormy (04:26)
+ 03 - Chandelier (04:59)
+ 04 - Don't Fool Me (04:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD0BAEEE4399FE2CB6AF34D389923B11F5C6E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798516   (66612) от 22.05.2025
+
+Николай Лесков | Привидение в Инженерном замке. Маленькая ошибка (1993) [MP3, Вадим Лобанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека. Малая проза.
+Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
+Рассказы (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5253B4838A8D4A0195BBF4CF6732EE1656D88101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798490   (66611) от 22.05.2025
+
+Tokyo Blade - Knights Of The Blade (2017) 4 x CD, Compilation, Remastered, Hear No Evil Recordings [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - Tokyo Blade:
+1-1 Powergame 4:13
+1-2 Break The Chains 5:08
+1-3 If Heaven Is Hell 6:05(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 03:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E25EA0B7B6585441169EAC085349B54ED88AB86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798521   (66610) от 22.05.2025
+
+Николай Лесков | Зверь (2021) [MP3, Юрий Елагин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения.
+Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
+«Зверь» – рассказ (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017AE624740473EC3DC42CE7B2BB8D60E1E50B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797565   (66609) от 22.05.2025
+
+Willie Nelson - Oh What A Beautiful World (2025) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66609.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. What Kind of Love (3:42)
+2. Banks of the Old Bandera (3:26)
+3. The Fly Boy & The Kid (3:51)
+4. Forty Miles from Nowhere (4:27)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1FB5FB1D06118D027170D17A2F462D37D2FCEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798480   (66608) от 22.05.2025
+
+Anoraak - Golden Hour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop, synthwave, disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reasoning Heavy (2025 Remaster) [00:04:36]
+02. Tension (2025 Remaster) [00:04:30]
+03. Words (2025 Mix) [00:03:52]
+04. Family Matters (2025 Remaster) [00:05:03](   Читать дальше...   )Жанр: synthpop, synthwave, discoПродолжительность: 01:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF3A8D4F15FC6C2A075DF388A062BA7F8EE0E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798560   (66607) от 22.05.2025
+
+Евгения Калина - Кокон (2025) [MP3|320 Kbps] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Здравствуй [00:02:42]
+02 - Я прячу тело под мутоном [00:01:41]
+03 - В вашем городе [00:01:16]
+04 - Мука [00:00:17](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B024DC36F1823455279C275DFFF7F012ECE0C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798482   (66606) от 22.05.2025
+
+PinkPantheress - Fancy That (2025) Mixtape [FLAC|Lossless|tracks + .cue] <Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illegal (02:29)
+02. Girl Like Me (02:24)
+03. Tonight (02:56)
+04. Stars (02:21)(   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73279A498F681767F10D029B673A6459AF5DD19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798780   (66605) от 23.05.2025
+
+Восток есть восток / East is East (1916) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66825.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фарс-комедия. Можно сказать политический фарс. В небольшом городке новый мэр-реформатор отказывается идти на поводу у местных коррупционеров. А они в отместку собираются расправиться с новым мэром. А еще там есть любовь, погони, бомбы. В общем традиционная бестолково-суматошная кейстоуновская комедия. Качество картинки невелико.Производство: США / Keystone Film CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Фрэнк ГриффинАктеры: Чарльз Мюррэй, Луиза Фазенда, Мэри Турман, Гарри Букер, Уэйлэнд Траск, Эдгар Кеннеди, Фрэнк Опперман, Аль Ст. Джон, Джордж Джеске, Jasper the Diving HorseПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:25:15
+Лирическая и забавная история. Восток, упоминаемый в названии - это Ист-Энд, восточный район Лондона. Район самый простецкий, может и не совсем нищенские трущобы, но что-то близкое к этому. И вот живет в этом районе девочка, каких там полно - рано лишилась родителей, ходит в драных чулках, подрабатывает на сборе урожая, но шустра, мила, сообразительна. А дальше, (   Читать дальше...   )Производство: Великобритания / Florence Turner ProductionsЖанр: драма, мелодрама, немое киноРежиссер: Генри ЭдвардсАктеры: Флоренс Тернер, Генри Эдвардс, Рут Маккэй, У.Г. Саундерс, Эдит ЭвансПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русскиеПродолжительность: 01:11:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C65810AB25DB88EEB045C9DC3EE7CA78EA4EB937
+magnet:?xt=urn:btih:8FE1ECF0AA95F8757654BE2B7E88DF5C1DCAABD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,26 +399,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797248   (66824) от 15.05.2025
+###  Публикация: 1798741   (66604) от 23.05.2025
 
-НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 5-й матч) Флорида Пантерз - Торонто Мэйпл Лифс (14.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+НХЛ. Кубок Стэнли 2025. Восток - Финал. 2-й матч. Флорида Пантерз - Каролина Харрикейнз (22.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66824.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 мая 2025, четверг. 02:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 319 зрителей (95% при вместимости 20 270)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Кил Марчисон (Кловердейл, Канада); Линейный: Джесси Маркис (Буктуч, Канада)Телекомпания: Setanta Sports 2Жанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 03:02:44
+23 мая 2025, пятница. 03:00 МСК, 1/2 финала. 2-й матч. Стадион: Леново Центр (Роли, США), 18 971 зритель (100% при вместимости 19 041)
+Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:47:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C91EAC12447AD931E2C80D995D08B8628647C88
+magnet:?xt=urn:btih:98B6DCF3A52737F7FAA6B3BEE75D12F192F30145
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,26 +426,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797253   (66823) от 15.05.2025
+###  Публикация: 1798740   (66603) от 23.05.2025
 
-НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 5-й матч) Эдмонтон Ойлерз - Вегас Голден Найтс (14.05.2025) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+Lila Tirando A Violeta - Dream of Snakes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Abstract, Ambient, Experimental, Deconstructed Club>
 
->>Спорт и активный отдых
->>Хоккей
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66823.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 мая 2025, четверг. 04:30 МСК, 1/4 финала. 5-й матч. Стадион: Ти-Мобайл Арена (Парадайс, США), 18 288 зрителей (98% при вместимости 18 702)
-Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Девин Берг (Китченер, Канада); Линейный: Биван Миллс (Суррэй, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:16
+01. Unworthy Praise [00:03:38]
+02. New Flesh [00:02:37]
+03. Ostrich/Ñandú [00:03:27]
+04. Heavy is the Soul [00:03:41](   Читать дальше...   )Жанр: Abstract, Ambient, Experimental, Deconstructed ClubПродолжительность: 00:41:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BF0FB5655EF4BEE4DB790B6D252C62F8B8C904C
+magnet:?xt=urn:btih:DE90468FC8BC08527F4033178919EAE266FFD250
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,135 +455,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796827   (66822) от 15.05.2025
+###  Публикация: 1798647   (66602) от 23.05.2025
 
-GT-R: Great Transporter Ryuji | Великий Водитель Рюдзи (2012) [1 том, 10 глав] [Манга] [Русский] [PNG, JPG] [16+] [Complete]
-
->>Манга и Арт
->>Манга, Манхва, Маньхуа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будучи одним из немногих давних друзей Онидзуки (GTO), Данма Рюдзи видел все фиаско, в которые тот попадал. Но владелец мотоциклетного магазина и самопровозглашенный самый быстрый гонщик в городе вот-вот попадет в переделку. Рюдзи начинает интересовать горячий подросток по имени Исикава Мимон, но, несмотря на внешность, она - опасный человек, который поставит Рюдзи (   Читать дальше...   )Жанр: Cёнэн, драма, комедияФормат: PNG, JPGПродолжительность: 27 июня 2012 - 3 октября 2012
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CDCFF5222114B827F9638BD0C4BFF830D20678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797296   (66821) от 15.05.2025
-
-Psycho Busters | Психо Нарушители (2006) [7 томов, 32 главы] [Манга] [Русский] [PNG, JPG] [Complete]
-
->>Манга и Арт
->>Манга, Манхва, Маньхуа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откуда не возьмись, красивая девушка просит помощи у Какеру. Возможно это и есть его шанс изменить свою жизнь, но происходит что-то необъяснимое. Оказывается, что девушка находится в бегах от теневой Правительственной Организации,которая использует ее психические способности для своих отвратительных целей. Но почему она нуждается в помощи Какеру? Может быть, у него (   Читать дальше...   )Жанр: мистика, научная фантастика, приключения, фантастикаФормат: PNG, JPGПродолжительность: 20 февраля 2006 - 20 сентября 2008
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4850E236767291A9D6BAFC230FFBDD3DC6910401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797231   (66820) от 15.05.2025
-
-Echosoul - The Time of the Dragon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (01:31)
- 02. Time Of The Dragon (04:41)
- 03. Path Of The Righteous (07:01)
- 04. Sister Suicide (04:43)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924E1B00644C03115F1A33584E04E2A8C2D689FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797319   (66819) от 15.05.2025
-
-Soul Eater NOT! | Пожиратель душ! Другая история (2011) [5 томов, 41 глава + Экстра] [Манга] [Русский] [PNG, JPG] [Complete]
-
->>Манга и Арт
->>Манга, Манхва, Маньхуа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динь-дон! Мертвый дон! Занятия вот-вот начнутся, а вы не хотите опоздать в свой первый учебный день! Присоединяйтесь к Цугуми Харудори в классе «НЕ» в Академии Мейстеров Оружия Смерти - школе, посвященной обучению трансформирующегося оружия, такого как Цугуми, и мейстеров, которые будут им владеть. Многие ученики «NOT» (Normally Overcome Target) стремятся попасть (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, сёнэнФормат: PNG, JPGПродолжительность: 12 января 2011 - 12 ноября 2014
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF7B1460EE11AD71DE785115BC3AB979A3BBBDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796670   (66818) от 16.05.2025
-
-Nora En Pure - Purified Miami (Jungle Island Miami, Miami Music Week, United States) (2025-05-01) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+VA - Armin van Buuren - A State Of Trance 1226 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66818.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66602.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nora En Pure - Indulgence
-02. Harmonee & Jack Emery - When I'm with You
-03. Nora En Pure - Pretoria
-04. Nora En Pure ft. Richard Walters - Protected(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:02:51
+01. Gouryella ft. Saskia Lie-Atjam – Marama (Moon & Stars)
+02. Going Deeper & Judgemxnt ft. CVKES – Holy Fire
+03. Nicole Moudaber – Soul Brothers
+04. Laura van Dam – Deep Shadow (Future Favorite)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1357823AF44AD0C5217E81197DF2B4D6F9C26947
+magnet:?xt=urn:btih:0A1FF4758AD13F2D1F8D384C99DFC97573521194
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -522,25 +484,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796301   (66817) от 16.05.2025
+###  Публикация: 1798117   (66601) от 23.05.2025
 
-Василь Быков | Его батальон (2014) [OPUS, Валерий Стельмащук]
+Rah - Orile to Berlin (2 Albums) (2024,2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Afro-House, Deep-House>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66817.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Великая Отечественная война. Комбат Волошин получает приказ - взять высоту. Как бывалый командир Волошин понимает, что взять высоту сходу не получится - это "самоубийство" для батальона. Понимая, что он будет отвечать перед командованием, Волошин даёт приказ об отступлении, чтобы сохранить жизни своих бойцов...Жанр: Военная прозаИздательство: Аудиокнига своими рукамиПродолжительность: 07:49:34
+01. Rodeo (Kid Fonque Refix) [00:08:13]
+02. MoonSun (Dead Rabbit Remix) [00:03:07]
+03. Agidi (Ben Gomori's Ego Trip) [00:05:14]
+04. MoonSun (møødify Remix) [00:04:33](   Читать дальше...   )Жанр: Afro-House, Deep-HouseПродолжительность: 2 CD, 01:26:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32B84DEDB987B208B62952FA5ABCCB3821701A7E
+magnet:?xt=urn:btih:06134F4E69B3ACACD29098807850FFCD61CB78F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,26 +513,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797513   (66816) от 16.05.2025
+###  Публикация: 1798701   (66600) от 23.05.2025
 
-МузЛофт-Дети / МузLoft. Любава Соляная (2025) WEBRip [H.264/1080p]
+Moonlight Haze - Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66816.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Любава Соляная. Про финансовую грамотность и дуэт с Лазаревым.
-Если вас удивляет или веселит фамилия этой талантливой девочки, то обязательно смотрите выпуск, она всё про неё расскажет. А ещё споет такой разнообразный набор песен, что понравится абсолютно каждому.Производство: Россия | Y-GenerationУчастники: Любава СолянаяПродолжительность: 00:41:20
+01. Beyond [00:02:19]
+02. Tame The Storm [00:03:30]
+03. Crystallized [00:03:01]
+04. Chase The Light [00:03:41](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:36:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E277C684F542AC7C898C5C655FA5C95A7D40CE3
+magnet:?xt=urn:btih:017270BDB52A892596C45997E381EF8AE7986D08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,25 +542,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797394   (66815) от 16.05.2025
+###  Публикация: 1798766   (66599) от 23.05.2025
 
-Газета | Загадки истории №20 (646) (2025) [PDF]
+Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [MP3|320 Kbps] <Electronic, Dance>
 
->>Журналы
->>Другие журналы
+>>Electronic
+>>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66815.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+01 - Let It Ride [3:36]
+02 - Let It Ride (Jamie Jones Remix) [3:27]
+03 - Let It Ride (Kungs Remix) [3:43]
+04 - Let It Ride (Wongo Remix) [3:03](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:24:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45875025991BCE9EBA603DBC1055A857F0E9CC26
+magnet:?xt=urn:btih:DE0B21D008C63D1B52B94A288F4E5669C21C86B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,25 +571,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797392   (66814) от 16.05.2025
+###  Публикация: 1798765   (66598) от 23.05.2025
 
-Газета | Загадки истории №19 (645) (2025) [PDF]
+Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66814.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+01 - Let It Ride [3:36]
+02 - Let It Ride (Jamie Jones Remix) [3:27]
+03 - Let It Ride (Kungs Remix) [3:43]
+04 - Let It Ride (Wongo Remix) [3:03](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:24:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D85B848894F3095E25A5615902C5C7B2982E0D0F
+magnet:?xt=urn:btih:A2C50F90FBD261BED0385469B4EFCACC154FC83F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,28 +600,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797506   (66813) от 16.05.2025
+###  Публикация: 1798660   (66597) от 23.05.2025
 
-Soul Seller - Fight Against Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Ronnie Romero - Live At Rock Imperium Festival (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Rock>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66813.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66597.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One Wasted Paradise (05:08)
- 02. The Sound Of The Last Survivor (04:18)
- 03. Fight Against Time (04:44)
- 04. Autumn Call (04:56)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:20
+01 - Cast Away On The Moon (03:57)
+ 02 - I've Been Losing You (04:59)
+ 03 - Chased By Shadows (05:45)
+ 04 - Ferrymen (05:39)(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 00:53:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A94FA2C40EFD03A08100AD9A65A62A53A859C75
+magnet:?xt=urn:btih:B189DE729685A83D9BC91C710415B0F29F114142
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,25 +629,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797385   (66812) от 16.05.2025
+###  Публикация: 1798643   (66596) от 23.05.2025
 
-Следствие вели... (26.04.2025) WEBRip [H.264/1080p]
+Макс Вебер | Аграрная история Древнего мира (2006) [MP3, Станислав Федосов]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66812.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Вася и "Брижит Бардо"». 1977 год. В Тамбовской области орудует опасный преступник. Вместе с подельниками он совершает ограбление, попадается, но дерзко сбегает из тюрьмы. Самое необычное — в преступлениях участвовала девушка. Неужели во всем была виновата любовь?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:06
+Перевод с немецкого под редакцией Д. Петрушевского
+Макс Вебер - немецкий социолог и экономист, крупнейшая фигура в мировой гуманитарно-социальной мысли XX века. Вебер внес особый вклад в философию истории, поставив на рельсы эмпирического исследования вопросы, доступные, как до него казалось, лишь отвлеченно-теоретическому, а то и вовсе умозрительно-спекулятивному (   Читать дальше...   )Жанр: Экономическая историяИздательство: АРДИСПродолжительность: 17:51:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:298E09CB53AD857F6E7E8B703D4D643C257FE3CB
+magnet:?xt=urn:btih:0B5CB6694132D1BA6FCEC756480D83812B8ACA1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,28 +656,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797420   (66811) от 16.05.2025
+###  Публикация: 1798580   (66595) от 23.05.2025
 
-Deep Sun - Storyteller (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+Козлов Игорь - 3 Albums (1990,1991) [MP3|320 Kbps] <Chanson>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66811.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Storyteller (04:31)
- 02. Tales That Should Have Never Been Told (04:14)
- 03. United Force (03:51)
- 04. Worlds Collide (04:49)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:43:35
+Список альбомов:
+1990 - Мальчики-налётчики
+1991 - Одесские дворики
+1991 - Привет от не уехавшего эмигрантаЖанр: ChansonПродолжительность: 4 CD, 02:41:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A9363EAFE112C24550B82410DCC460A8C3DDE5F
+magnet:?xt=urn:btih:E1F338E796CA6212986B43F38EF62DDF998B70C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798683   (66594) от 23.05.2025
+
+Skunk Anansie - The Painful Truth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - An Artist Is An Artist [3:12]
+02 - This Is Not Your Life [3:25]
+03 - Shame [4:07]
+04 - Lost and Found [4:16](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DEA183473D97B2E9F69F86BF42429DBF6FC9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798641   (66593) от 23.05.2025
+
+Эльвис Каримов | Привет, я Эльвис! Бизнес без фильтров (2025) [MP3, Эльвис Каримов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о том, как обычный парень шаг за шагом добивался своих целей и благодаря настойчивости в итоге пришел к построению компании – лидера рынка в сфере логопедии. История написана простым языком, в ней нет наставлений, но она мотивирует вас к действию и, возможно, поможет избежать некоторых ошибок. Книга не столько о бизнесе, сколько о жизни, о том, как важно следовать (   Читать дальше...   )Жанр: БизнесИздательство: Writer's WayПродолжительность: 07:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90C2F90301374D69C7B7DF6FAE83CA0AFE15092
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1213420   (772008) от 16.03.2018
+
+The BBC Big Band - Harlem Nocturne (2004) Galaxy Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Getting Sentimental Over You [03:35]
+02. Harlem Nocturne [02:50]
+03. Leave Us Leap [03:30]
+04. You Made Me Love You [03:19](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2153D6FF0D87F316DF4524ADC96AB99F0D88C7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213177   (772002) от 16.03.2018
 
 Swingle Singers - Best Of The Classic Years (1963 - 1968) 2003, Helicon [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Classical Crossover>
@@ -715,35 +744,6 @@ Norman Brown - Let It Go (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Fusi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DF6F3B59827964B0B20C2DB30725AB31D1ED41E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125657   (767932) от 15.04.2017
-
-Scott Bradlee's Postmodern Jukebox - 33 Resolutions Per Minute (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing, Vintage>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer (feat. Kenton Chen)
-02. Don't Stop Me Now (feat. Melinda Doolittle)
-03. I Will Survive (feat. Sara Niemietz)
-04. Ice Ice Baby (feat. Aubrey Logan)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, VintageПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE60D7C2E33D8F3C9302320B7365128B7DDCE1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

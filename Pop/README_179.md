@@ -1,3 +1,119 @@
+###  Публикация: 1050932   (532577) от 11.09.2016
+
+VA - Ministry of Sound - Good Vibes (2016) [MP3|320 Kbps] <Pop, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532577.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+1. Kungs & Cookin’ On 3 Burners – This Girl
+2. The Chainsmokers Feat. Daya – Don’t Let Me Down
+3. Sia Feat. Sean Paul – Cheap Thrills(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 03:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1343C1ED5E9A9D7B8E95BCA64D748D69C5FD6BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312595   (532250) от 04.07.2019
+
+VA - NOW 100 Hits Forgotten 80s (2019) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно не согласиться с авторами заголовка этого бокс-сета. В нем собраны не позабытые, а, для нашего не искушенного советского слушателя, вовсе почти не известные хиты из 80-х годов прошлого столетия. Десяток западных групп, которые были на слуху у интересующейся молодежи, конечно же не исчерпывали всего "хитового" многообразия того времени. Давайте восполним (   Читать дальше...   )CD1:
+01. Amazulu - Too Good To Be Forgotten  (3:06)
+02. F.R. David - Words  (3:27)
+03. Aneka - Japanese Boy  (3:56)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 06:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED389777498B68DFEEB8AEC1B1AF73D6E6BD671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926803   (531722) от 11.08.2015
+
+Heather Bond - So Long (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Enough
+ 02. Secrets
+ 03. Some Other Lover
+ 04. So Long(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6977788CF5B67BABAAFCFC7D7DDCC5DA919521ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558375   (531644) от 20.06.2022
+
+VA - Radio Hits 2022 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Animals - Heat Waves (3:58)
+02. OneRepublic - Sunshine (2:43)
+03. Deve - Cold Life (2:37)
+04. Alesso - When I'm Gone (2:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF20AD2FA27B2314C7FD87071F965931851B0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926914   (531612) от 11.08.2015
 
 Belinda Carlisle - Voila (2007) Remastered /2014, Edsel Records [FLAC|tracks + .cue] <Pop Chanson, Ballad>
@@ -642,122 +758,6 @@ Love Unlimited - Love Is Back (1979) LP [MP3|320 Kbps] <Funk, Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77C62F114969769B29B74E39C69446C044996C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558736   (528600) от 22.06.2022
-
-VA - Disco Top 50 (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop, Club>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Cheatham - Get Down Saturday Night (4:02)
-02. Lipps Inc. - Funkytown (Single Version) (3:55)
-03. Gloria Gaynor - I Will Survive (Original 7'' Version) (3:19)
-04. Bee Gees - Stayin Alive (4:46)(   Читать дальше...   )Жанр: Disco, Pop, ClubПродолжительность: 03:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92B98EB373401D3177CA47016726FB51671C819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156233   (528550) от 06.08.2017
-
-Roland Bocquet - 3 Albums (1977-1983) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Experimental>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Roland Bocquet с 1969 по 1977 был лидером французской инструментальной рок-группы Catharsis. Далее, сменив стиль, продолжил свое творчество в качестве исполнителя и композитора. Выпустил три предлагаемых альбома и начал писать саундтреки к фильмам.Список альбомов:
-1977 - Paradia
-1982 - Robot Rose (Claviers Synthetiseur)
-1983 - Robot Bleu(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, ExperimentalПродолжительность: 01:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E16FE16100746C820D4DD48F3D0E37CD98B0619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927403   (528508) от 13.08.2015
-
-C.C. Catch - Catch The Catch (2000) [FLAC|image+.cue]<EuroDisco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cause You Are Young (Maxi-Version)
-02. I Can Lose My Heart Tonight (Maxi-Version)
-03. You Shot A Hole In My Soul (Maxi-Version)
-04. One Night's Not Enough(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891F2B45CA0BD6F4A0A1DA25D82F84AEBF6D1F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156145   (528484) от 06.08.2017
-
-Eighth Wonder - 2 Albums (1987, 1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британская поп-группа 80-х годов. Образовались в 1983 году и пользовались большим успехом в Японии и Италии между 1985 и 1987 годом, до того как серия хит-синглов не прокатилась по Великобритании и далее по всей Европе в 1988 году. Безусловно "изюминкой" группы стала актриса Пэтси Кенсит (Patsy Kensit).01. When The Phone Stops Ringing (3:41)
-02. Loser In Love (3:23)
-03. Open Your Mind (3:58)
-04. Stay With Me (3:19)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997F71EE3DB5CB6C215A7B0538816DD099C77F3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

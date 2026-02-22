@@ -1,3 +1,38 @@
+###  Публикация: 613940   (981148) от 05.02.2013
+
+VA - Волшебные мелодии. Коллекция Ридерз дайджест (5CD) (2006) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981148.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Влюбленные в любовь76. In The Chapel In The Moonlight
+77. A Kiss In The Dark
+78. All Through The Night
+79. Serenade In The Night
+80. Moonlight Love
+81. Magic Is The Moonlight
+82. Fly Me To The Moon
+83. Moonlight In Vermont
+84. Stairway to the Stars
+85. Fool Moon And Empty Arms(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694A12A031A637F1F6CFDEE8E5C06483977403A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356005   (980899) от 28.01.2020
 
 Angelo Badalamenti - Twin Peaks (1990) [FLAC|Lossless|tracks] <Soundtrack>
@@ -744,41 +779,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78261D23BC8B9462F55712753AEAB7FE4320D912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 166030   (978790) от 13.01.2010
-
-Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, плохой, злой (Digitally Remastered) (2004) [MP3|320 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978790.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Il Buono, Il Cattivo, Il Brutto (The Good, The Bad And The Ugly) (Main Title) (2:42)
-2. Il Tramonto (The Sundown) (1:15)
-3. Sentenza (1:41)
-4. Fuga A Cavallo (1:07)
-5. Il Ponte Di Corde (1:52)
-6. Il Forte (The Strong) (2:22)
-7. Inseguimento (2:25)
-8. Il Deserto (The Desert) (5:17)
-9. La Carrozzo Dei Fantasmi (The Carriage Of The Spirits) (2:09)
-10. La Missione San Antonio (2:15)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

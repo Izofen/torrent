@@ -1,3 +1,63 @@
+###  Публикация: 291849   (51774) от 28.06.2024
+
+Gang Starr - 6 Albums + 2 Compilations (1989-2006) [FLAC|Lossless]<East Coast Hip-Hop / Jazz Rap / Alternative Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Gang Starr хип хоп дуэт, состоящий из MC Guru и диджея и продюсера DJ Premier. Стиль группы сочетает в себе элементы Нью-Йорк Джаза и East Coast rap.(   Читать дальше...   )Список альбомов:
+1989 - No More Mr. Nice Guy
+1991 - Step In The Arena
+1992 - Daily Operation
+1994 - Hard To Earn
+1998 - Moment Of Truth(   Читать дальше...   )Жанр: East Coast Hip-Hop / Jazz Rap / Alternative Hip-HopПродолжительность: 09:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108353E2B11D011ADE7C9381FD45DF9908AE77D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 311565   (51773) от 28.06.2024
+
+Naughty by Nature - 5 Albums + 2 Compilation + 8 Singles (1991-2003) [FLAC|Lossless|tracks + .cue]<Hip-Hop, East Coast Hip-Hop, East Coast Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Было время (лет 10-12 назад), когда для России существовало всего пять рэп-групп: Onyx, Cypress Hill, ледяная парочка Ice-T и Ice Cube, House Of Pain, Public Enemy и Naughty By Nature.Список альбомов:
+1991 - Naughty by Nature
+1993 - 19 Naughty III
+1995 - Poverty's Paradise(   Читать дальше...   )Жанр: Hip-Hop / Rap / East Coast Hip-Hop / East Coast RapПродолжительность: 10:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFB76B75BFD8A0B9DDA3460B89B582E5F12AF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 301577   (51759) от 28.06.2024
 
 Delinquent Habits - 5 Albums + Single (1996-2009) [FLAC|Lossless]<Hip-Hop, Rap, Latin Rap>
@@ -713,68 +773,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCC10240E7355B46FA60D42020889EC3EB8446F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 115300   (41032) от 09.10.2024
-
-Многоточие - 7 Альбомов (2000-2007) [APE|Lossless] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-15 ноября 1998 года появилась на свет группа «Многоточие». Само название коллектива «Многоточие» означает управление силой мысли.(   Читать дальше...   )Список альбомов:
-2000 - Жизнь и Свобода
-2002 - Атомы Сознания
-2003 - Третий Путь (Многоточие и M.Squad) - Кусок Жизни (Пяти Годам Равен)
-2003 - Неномерной
-2004 - Третий Путь - Буриме 12
-2005 - DOTS FAMILY - Fuckt # 1
-2007 - ...За Бесконечность Времени...(   Читать дальше...   )Жанр: Русский РэпПродолжительность: 06:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFD25BCCC4BC55B4D9E980AE4982D1C8E1FC0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760499   (37279) от 14.11.2024
-
-Naomi Sharon - Obsidian (Extended) (2024) [MP3|320 Kbps] <R&B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Definition of Love (3:15)
-02. If This Is Love (3:27)
-03. Another Life (4:30)
-04. Myrrh (3:16)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2A9D884EAD8C05560ED2FC69D8EC6EEC8055CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

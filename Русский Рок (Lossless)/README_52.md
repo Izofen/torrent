@@ -1,3 +1,32 @@
+###  Публикация: 1662836   (187336) от 19.09.2023
+
+Наутилус Помпилиус (Nautilus Pompilius) - Титаник (2022) 2CD [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тутанхамон ( Акустическая версия )
+02. Титаник
+03. Воздух
+04. Колёса любви(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41749AE2F523FCCCCACB1EEBEFADF24EA679118E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591399   (187286) от 18.11.2022
 
 KRAIDOL - Время настало (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
@@ -708,35 +737,6 @@ PALLEA - Парусник Маака (2022) [FLAC|Lossless|WEB-DL|tracks] <Screa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31D1431CFBF2BA95AAFB62471175943C86368309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592238   (184582) от 21.11.2022
-
-Пандемия - Смотри (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Апокалипсис [00:05:03]
-02. В темноте [00:03:54]
-03. Смотри [00:04:44]
-04. Зеркала [00:04:11](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF72D9CA741220D994BFECE26E369C705D157FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

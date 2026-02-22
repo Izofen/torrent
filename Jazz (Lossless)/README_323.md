@@ -1,38 +1,3 @@
-###  Публикация: 490697   (130215) от 02.05.2012
-
-VA - Smooth Jazz - Sexual Healing (2000) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kim Watters - Sexual Healing (5:21)
-02. Gerald Albright - The Night We Fell In Love (5:06)
-03. Kevin Toney - Extra Sensual Perception (4:44)
-04. Angela Bofill - Love Changes (5:25)
-05. Walter Beaslley - From The Moment On (4:38)
-06. Chuck Loed - Blue Kiss (6:53)
-07. Nelson Rangell - The Way To You (4:53)
-08. Jon Lucien - Hello Like Before (5:45)
-09. Fattburger - Joy (5:11)
-10. Special EFX - Oceanna (4:48)2000Жанр: Smooth JazzПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525084   (130017) от 19.01.2022
 
 Lionel Hampton - The Complete Lionel Hampton Quartets And Quintets With Oscar Peterson On Verve (1953 - 1954) 5CD, 1999, Verve [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -769,6 +734,35 @@ Thomas Hardin Trio - Jazz de kiku Beethoven (2003) Victor Entertainment [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05733FC1C18A62F3310798A496AF077A3BB626E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683753   (128239) от 12.12.2023
+
+VA - Smooth Jazz Beats & Modern Fusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulstance - Around Me (4:35)
+02. Lo Greco Bros - Bella M'Briana (4:23)
+03. David Florio - Lost Numbers (5:21)
+04. Papik - Feelings (4:12)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D0BC4FF60A798E58B187689612FF13CA448AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

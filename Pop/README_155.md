@@ -1,3 +1,137 @@
+###  Публикация: 526005   (598803) от 23.07.2012
+
+Непара - The Best (2012) [MP3|320 кб/с]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бай-бай
+02. Бог тебя выдумал
+03. Вздох-взгляд
+04. Где ты была
+05. Её звали Америка
+06. Письмо
+07. Плакала
+08. Плач и смотри
+09. Подарю тебе пол мира
+10. Сезонная(   Читать дальше...   )Жанр: РорПродолжительность: 02:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA18F4875BA5E68132569F2258ED01FFE23CF0C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805912   (598760) от 19.07.2014
+
+Silent Circle - Best Of Silent Circle (1991) [FLAC|Lossless]<Euro-Disco, Synht-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch In The Night (5:16)
+02. Stop The Rain (5:35)
+03. Hide Away - Man Is Comin'! (5:05)
+04. I Am Your Believer (5:42)
+05. Oh, Don't Lose Your Heart Tonight (5:46)
+06. Danger Danger (5:49)
+07. Lose Is Just A Word (5:45)
+08. Time For Love (5:07)
+09. Sib Dub Dua (3:05)
+10. Dreams (3:56)(   Читать дальше...   )Жанр: Euro-Disco,Synht-PopПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C02E586984DF9EE4F2A4C4D8AB4DCFF92998EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806178   (598757) от 19.07.2014
+
+Modern Talking - Milestones (2013) Compilation [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (3:22)
+02. Cheri Cheri Lady (3:50)
+03. You Can Win If You Want (3:47)
+04. Brother Louie (3:43)
+05. Geronimo's Cadillac (3:19)
+06. Atlantis Is Calling (S.O.S. For Love) (3:48)
+07. In 100 Years (3:59)
+08. Jet Airliner (4:22)
+09. Sexy Sexy Lover (3:35)
+10. You Are Not Alone (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A199147641AB2C0CABF9F41803CB727B3FFF40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149832   (598634) от 12.07.2017
+
+USS (Ubiquitous Synergy Seeker) - Advanced Basics (2014) EP [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hydrogenuine
+02. This Is The Best
+03. Nepal
+04. Freakquency(   Читать дальше...   )Жанр: Alternative Pop, Electronic Rock, Drum'n'Bass, Electropop, Hip-HopПродолжительность: 00:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7C950879A64963FF6D4F4126E0E5A11F69BFFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149771   (598626) от 12.07.2017
 
 USS (Ubiquitous Synergy Seeker) - Approved (2011) EP [MP3|256 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
@@ -638,122 +772,6 @@ VA - Italo Disco Classics (2013) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCD8D84D394D178B99BC7773BE310658D0C8C475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548820   (596188) от 04.05.2022
-
-Imagination - Like It Is - Revised And Remixed Classics (1989) [FLAC|Lossless|tracks + .cue] <Funk, Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Changes
-02. Burning Up
-03. Just An Illusion
-04. Body Talk(   Читать дальше...   )Жанр: Funk, Disco, PopПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5D9015D3FDD625DC1DA26501060C49DE04319D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299753   (596175) от 03.05.2019
-
-Stéphanie Bédard (Stephanie Bedard) - Ricochet (2019) EP [FLAC|Lossless|tracks + .cue] <Pop, Francophone>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596175.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tu m'emmènes (3:38)
-2. Tous ces gens (4:11)
-3. La dérive (4:35)
-4. Ensemble (3:09)Жанр: Pop, FrancophoneПродолжительность: 00:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C58CE7FC44413840B91ABC6549F5B93C5B42F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299724   (596162) от 03.05.2019
-
-VA - Die Deutschen Disco Charts - Schlager Superhits (2019) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eloy de Jong - An deiner Seite
-02. Daniela Alfinito - Du warst jede Träne wert
-03. De Lancaster Meets Bella Vista feat. Onkel J. - So wie im Film
-04. Norman Langen - Dieses Gefühl(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A782FF54CA4BC5A583A2277C63459A3FAAB08C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914273   (596112) от 03.07.2015
-
-A-ha - Greatest Hits (1999) [FLAC|tracks + .cue]<Pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me [03:47]
-02. Cry Wolf [04:08]
-03. Touchy [04:37]
-04. You Are The One (Remix) [03:47](   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E22C53AA99AA107EF7B7A31E655A49711512F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

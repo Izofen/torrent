@@ -1,3 +1,32 @@
+###  Публикация: 1592197   (184604) от 21.11.2022
+
+Jackie McLean - Eight Classic Albums (1957 - 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184604.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Gone With The Wind [7:28]
+02. Our Love Is Here To Stay [4:17]
+03. Mean To Me [8:46](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 05:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76423E77E97CAA2B44D8085299CE73001CE50ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427112   (184567) от 27.11.2020
 
 Brother Jack McDuff - Down Home Style (1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk>
@@ -717,35 +746,6 @@ Edu Souza - Grateful (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:605D131E7467E3CB5FE112ED9A2BC239D7BABEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665360   (182535) от 30.09.2023
-
-Paul Coombs - Paul's Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Higher Power (2:56)
-02. Work That Thing (3:50)
-03. Paul's Blues (4:03)
-04. Devil's Daughter (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A38A36963D6D72735AC910EAED8CC36913BAB807
 ```
 
 https://mybot314.ru/tekegram_catalog/

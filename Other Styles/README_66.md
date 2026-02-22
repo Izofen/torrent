@@ -1,3 +1,32 @@
+###  Публикация: 1013850   (777102) от 05.05.2016
+
+Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) [FLAC|Lossless|image + .cue] <Ambient, New age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Heart of Noise, Pt. 1 (feat. Rone)
+02. The Heart of Noise, Pt. 2
+03. Brick England (feat. Pet Shop Boys)
+04. These Creatures (feat. Julia Holter)(   Читать дальше...   )Жанр: Ambient, New age, ElectronicПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623C865CCDEE8DD8CC752447C6D0310E09CB01A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014176   (776889) от 06.05.2016
 
 Ani Yun Wiya - Indian Nation (2016) [MP3|320 кб/с] <World, Native American, Enigmatic, New Age>
@@ -714,35 +743,6 @@ Magick Numbers - Dreaming of Oceans (2018) [MP3|320 Kbps] <Ambient, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA8AD5F41AA5170AE70B97351FEFABD1A11133A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659765   (774419) от 23.05.2013
-
-VA - Лучшие песни из кинофильмов (2003 - 2004) 4 CD [APE|Lossless|image+.cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть фильмы, которые можно смотреть десятки раз и все равно не будет скучно. Это, конечно, лучшие советские фильмы. Многим из них уже пятьдесят, шестьдесят лет, но они не потеряли своей актуальности. Великие режиссеры создавали настоящие шедевры, великие актеры показывали на экране гениальных персонажей. Сегодня тоже снимают кино, но оно не то, что было раньше. У (   Читать дальше...   )01. Увертюра (т/ф 'Шерлок Холмс и Доктор Ватсон') (2:08)
-02. Непогода (т/ф 'Мэри Поппинс, до свидания') (3:12)
-03. Городские цветы (к/ф 'Куда он денется') (4:15)
-04. Цветные сны  (т/ф 'Мэри Поппинс, до свидания') (3:49)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74431FCDB11F843342DD7C28255AA024EE6A2E95
 ```
 
 https://mybot314.ru/tekegram_catalog/

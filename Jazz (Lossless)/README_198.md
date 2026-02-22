@@ -1,3 +1,32 @@
+###  Публикация: 1568945   (455800) от 11.08.2022
+
+Donald Fagen - Donald Fagen's The Nightfly Live (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Jazz, Jazz Rock, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I.G.Y. (05:26)
+02. Green Flower Street (04:11)
+03. Ruby Baby (04:48)
+04. Maxine (03:46)(   Читать дальше...   )Жанр: Jazz, Jazz Rock, PopПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDD6FEB387AA7C0144F1CDBA7BC93A3612C0BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408413   (455773) от 12.09.2020
 
 Gregory Porter - All Rise (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Soul>
@@ -716,35 +745,6 @@ Scott Hamilton - Moon Mist (2018) Blau Records [FLAC|Lossless|image + .cue] <Mai
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B00888B70C827E88BF1A75CCB74FD296DAE0595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322017   (452596) от 27.08.2019
-
-Charles Mingus - Mingus Ah Um (1959) 2019, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Hard Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Git It in Your Soul [7:29]
-02. Goodbye Pork Pie Hat [4:54]
-03. Boogie Stop Shuffle [3:48]
-04. Self-Portrait in Three Colors [3:12](   Читать дальше...   )Жанр: Hard Bop, Avant-Garde JazzПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BFB0D6F621979A6D05D2CC957D5E729B4C8695
 ```
 
 https://mybot314.ru/tekegram_catalog/

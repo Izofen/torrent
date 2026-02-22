@@ -1,3 +1,116 @@
+###  Публикация: 1106754   (871065) от 20.02.2017
+
+Falco - Falco 60 (2017) Limited Premium Edition [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Pop Rock, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganz Wien (1981) - 5:10
+02. Der Kommissar (1981) - 3:49
+03. Helden von heute (1982) - 4:04
+04. Maschine brennt (1982) - 3:36(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Pop Rock, New Wave, Dancepop, Pop RapПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D861DA4C60D3E86AC1EB9B02F0EA3A019BDB6013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374352   (870953) от 11.04.2020
+
+Денис Клявер - Ответ (2020) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870953.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ОтветЖанр: PopПродолжительность: 00:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59ADCEDF2EE53328ED48ECE6FEBB5830EE14EC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374878   (870943) от 11.04.2020
+
+VA - New Italo Disco Top 25 Compilation Vol.11 (2019) [MP3|320 Kbps] <Italo-Disco, Space-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casarano - Carillon (New Gen Vocal Short Remix) 4:31
+02. Modern Boots - Save My Heart (There's A Story) (Vocal Radio Mix) 5:02
+03. Rynar Glow - Take Your Time (Radio Mix) 3:44
+04. Aldo Lesina - Romance (Vocal Short Lost Remix) 4:26(   Читать дальше...   )Жанр: Italo-Disco, Space-Disco, Synthpop, Hi-NRG, Euro-Disco, DanceПродолжительность: 01:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159FFB798EF10662EF92A70D21595DED93036612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374881   (870942) от 11.04.2020
+
+VA - New Italo Disco Top 25 Compilation Vol.13 (2020) [MP3|320 Kbps] <Italo-Disco, Europop, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naomi - Give Me (Vocal Summer Radio Mix) 4:16
+02. Naomi - Sorrow (Why Did You Say Goodbye) (Vocal Summer Radio Mix) 5:27
+03. Captain Apollo - Far From Home (Short Vocal Apollo Mix) 4:24
+04. Boris Zhivago - Adagio For Love (Short Vocal Summer Mix) 4:28(   Читать дальше...   )Жанр: Italo-Disco, Europop, Hi-NRG, Euro-Disco, DanceПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354496EF9AE92AE86D067F113D064ECE5E115F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374898   (870751) от 11.04.2020
 
 Ricardo Caliente - Panpipes Play Boney M (1999) [MP3|320 Kbps] <Funk Soul, Disco, Schlager>
@@ -630,122 +743,6 @@ Tonschatz - Qi (2014) [FLAC|Lossless|image + .cue] <Euro-Disco, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD9DDA974F8A27B381DBF0DD03EFC81CC259A75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107630   (866482) от 23.02.2017
-
-Mascha - Stardust (2017) [MP3|320 Kbps] <Pop, Folk, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust 03:22
-02. By The Cherry Tree 03:05
-03. In The Cracks 04:00
-04. The Last Mile 03:25(   Читать дальше...   )Жанр: Pop, Folk, Indie PopПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324FAE0E723FC8A658BAB0159FABCC50677CA4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497359   (866457) от 21.09.2021
-
-Michael B. Tretow (feat. ABBA) - Let's Boogie (1976) Reissue CD, 1998, Universal [MP3|320 Kbps] <Pop, Funk-Soul, Soft Rock, Pop Rock, Parody>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Michael B. Tretow - шведский музыкальный продюсер, звукорежиссер, автор песен и музыкант, родился 20 августа 1944 года в Норчепинге, Швеция. Работал с ABBA в 1972-1982 гг. Первый сольный альбом Микке, выпущенный после того, как ABBA добилась успеха на международном уровне. Этот альбом знаменит тем, что ABBA и все участники их группы представлены в ролях сайдмена (   Читать дальше...   )01. Let's Boogie (3:23)
-02. Paper Dolls (3:24)
-03. Robot Man (2:41)
-04. Bottom Coming Up (2:50)(   Читать дальше...   )Жанр: Pop, Funk-Soul, Soft Rock, Pop Rock, ParodyПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A025759A93C0370D39706DF470188F3B8774D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999160   (866386) от 21.03.2016
-
-Кай Метов - ...Где-то Далеко Идут Дожди (1997) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где-То Далеко Идут Дожди... (Radio Version) (4:12)
-02. Дай Же Мне (4:44)
-03. Мне Так Хочется Тебя (4:07)
-04. На Сердце Грусть (4:18)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA01C5ADDFA55A70E8A807D9F04CCF9AB38C45BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375605   (865621) от 14.04.2020
-
-Leigha Moore - Ain't Your Girl No More (2020) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. See You Around [3:20]
- 2. Ain't Your Girl No More [2:22]
- 3. I Won't Stop You [2:53]
- 4. Lightning Bolt [3:40]Жанр: PopПродолжительность: 00:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC601881E7B8BA9C9DBA2F5A4B5D2723EDA636B
 ```
 
 https://mybot314.ru/tekegram_catalog/

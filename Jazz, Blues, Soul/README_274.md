@@ -1,3 +1,96 @@
+###  Публикация: 529411   (567262) от 31.07.2012
+
+Andre Christovam - Catharsis (1997) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Leading Brand
+02. Every Night and Every Day
+03. Snowy Wood
+04. I Like it This Way
+05. Sad Hours
+06. Hell Is Fine With Me
+07. Doctor´s Cage
+08. Me & My Woman
+09. Ain´t No Sunshine
+10. Chewing Bone Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787182   (567153) от 05.06.2022
+
+Claude Thornhill - Snowfall (2000) [FLAC|Lossless]<Swing, Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stealin' Aplles (A.Razaf - T. Waller) [03:14]
+02. Snowfall (C.Thornhill) [02:56]
+03. Where or When (R.Rodgers - L. Hart) [02:59]
+04. A Sunday Kind of Love (B.Belle -L. Prima - A. Leonard - S. Rhodes) [03:22](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDF9ACD586235330073C6FAED76399AD4DEDD9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044259   (567098) от 19.08.2016
+
+Susie Webb - Bossa Loves Abba (2016) [MP3|320 Kbps] <Jazz, Bossa Nova, Latin>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (4:01)
+02. Knowing Me, Knowing You (4:00)
+03. Chiquitita (4:39)
+04. Take A Chance (3:37)(   Читать дальше...   )Производство: Rockchicks LtdЖанр: Jazz, Bossa Nova, LatinПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1FB694762487A3DDFACC2BC38B095A2BD24029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529704   (567052) от 31.07.2012
 
 Stephane Grappelli & Yo Yo Ma - Anything Goes { Grappelli and Ma play (mostly) Cole Porter } (1989) [APE|Lossless]<Jazz>
@@ -690,102 +783,6 @@ Armand & Bluesology - Too Much Is Not Enough (2001) [FLAC|Lossless]<Modern Elect
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530170   (564965) от 01.08.2012
-
-Artie Kaplan - Confessions of a Male Chauvinist Pig (1997) [FLAC|Lossless]<Blues, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confessions Of A Male Chauvinist Pig
-02. Bensonhurst Blues
-03. Harmony
-04. God Fearin' Man
-05. Stay, Don't Go
-06. Music Is Sweet Music In My Soul
-07. The American DreamЖанр: Blues, JazzПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527239   (564963) от 01.08.2012
-
-Deniece Williams - This Is Niecy (1976) (2012 Remastered) [FLAC|Lossless]<Rhythm & Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открыл миру Денис Уильямс не кто иной, как сам Стиви Уандер (их познакомила кузина Денис, Джоан Харрис). Долгое время после знакомства Уильямс пела в бэк-трио Стиви. В 1975-м Уильямс ушла из трио и стала работать в паре с музыкантом и продюсером Морисом Уайтом, лидером группы Earth, Wind & Fire. В 1976-м на лэйбле Columbia выходит её дебютный альбом «This Is Niecey» и сразу попадает в Top 25 поп-чартов США.01. It's Important To Me :: 04:20
-02. That's What Friends Are For :: 04:26
-03. Slip Away :: 03:49
-04. Cause You Love Me Baby :: 04:07
-05. Free :: 05:58
-06. Watching Over :: 03:51
-07. If You Don't Believe :: 08:00
-08. Free (Short Single Version) (Bonus Track) :: 02:51
-09. That's What Friends Are For (Single Version) (Bonus Track) :: 03:47
-10. Free (Long Single Version) (Bonus Track) :: 03:27Жанр: Rhythm & Blues, SoulФормат: CD, Album, Reissue, RemasteredПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923441   (564633) от 31.07.2015
-
-Ornette Coleman - The Empty Foxhole (1966) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Old Days [06:51]
-02. The Empty Foxhole [03:22]
-03. Sound Gravitation [07:18]
-04. Freeway Express [08:19](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE09DB3B2A950D42C133389D886D8F8B997FF32
 ```
 
 https://mybot314.ru/tekegram_catalog/

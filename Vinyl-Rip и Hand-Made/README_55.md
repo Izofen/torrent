@@ -1,3 +1,177 @@
+###  Публикация: 1672139   (170154) от 27.10.2023
+
+Death - Scream Bloody Gore (1987) Reissue, 2001, Century Media [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infernal Death (02:54)
+02. Zombie Ritual (04:35)
+03. Denial Of Life (03:36)
+04. Sacrificial (03:43)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B402F6EDBEF9690352F641D849EA0611D83AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672551   (169459) от 28.10.2023
+
+Death - Leprosy (1988) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leprosy (06:20)
+02. Born Dead (03:28)
+03. Forgotten Past (04:37)
+04. Left To Die (04:37)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035C1F723584BCE25B0AEDE0AD0EBBF6F7BF2749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596711   (169069) от 11.12.2022
+
+Audioslave - Studio Albums (3 releases) (2002 - 2006) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audioslave — супергруппа, состоявшая из бывших инструменталистов группы Rage Against the Machine Тома Морелло (гитарист), Тима Коммерфорда (бас-гитарист и сопровождающий вокал) и Брэда Уилка (ударные), а также Криса Корнелла (бывший ведущий вокалист и ритм-гитарист группы Soundgarden) в качестве ведущего вокалиста. Группа сформировалась после распада Rage Against (   Читать дальше...   )2002 - Audioslave
+2005 - Out Of Exile
+2006 - Revelations
+.Жанр: Hard Rock, Post-GrungeПродолжительность: 03:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A4F82AD84BF0EB3C66DC0C808D4CC0E2CE0970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514954   (168973) от 07.12.2021
+
+ZZ Top - 5 Studio albums (1994-2012) hand made [restored, declipped] [FLAC|Lossless|16/44|tracks + .cue] <Blues Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168973.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZZ Top — культовая американская блюз-рок-группа, основанная в 1969 году в Хьюстоне, штат Техас. Группа называет себя также «that li'l ol’ band from Texas» и это название в том или ином виде широко используется в прессе.1994 - Antenna
+1996 - Rhythmeen
+1999 - XXX
+2003 - Mescalero(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 04:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:840F1C5C9B785A41B4DDB0A71C45C16FDAC70195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596639   (168869) от 11.12.2022
+
+Tarja (Nightwish) - Studio Albums (5 releases) (2007 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Metal/Rock, Neoclassical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Та́рья Со́йле Су́санна Ту́рунен Кабу́ли (фин. Tarja Soile Susanna Turunen Cabuli; род. 17 августа 1977, деревня Пухос, близ Китеэ, Финляндия) — финская оперная и рок-певица, пианистка, композитор, бывшая вокалистка симфоник-метал-группы Nightwish.2007 - My Winter Storm
+2010 - What Lies Beneath
+2013 - Colours In The Dark
+2016 - The Shadow SelfЖанр: Symphonic Metal/Rock, NeoclassicalПродолжительность: 05:28:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781609E457EF84EA151F424B69C932A1EB30BBE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430827   (168732) от 12.12.2020
+
+ЭВМ (Эх Вашу Мать! - экс "Круиз") - Здравствуй, Дурдом! (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168732.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1985 году Александр Монин, Григорий Безуглый, Олег Кузьмичёв и Николай Чунусов организовали проект под названием «Э. В. М.» (Эх Вашу Мать!). В 1985 году «Э. В. М.» выпустили магнитоальбом «Три дороги», а позже был выпущен альбом «Здравствуй, дурдом !». В эту пластинку вошли песни, записанные в 1989 году на студии Виктора Векштейна - известного музыканта и продюсера. (   Читать дальше...   )A1 Здравствуй, Дурдом!
+A2 Кинули!
+A3 Эйфория
+A4 Мария(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B62B3000B55DB173E73E57C52489EBA47E8C4F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431042   (168724) от 12.12.2020
 
 Tangerine Dream - Stratosfear (1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Ambient, Berlin-School>
@@ -572,180 +746,6 @@ Smackbound - 20/20 (2020) hand made [restored, declipped] [FLAC 2.0|Lossless|44/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BA8EFB778CDD57152F673E677A3578F02086CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598370   (161775) от 20.12.2022
-
-HIM - Studio Albums (10 releases) (1997 - 2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Rock, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161775.jpg" />
-</div>
-
-
-###  Подробнее
-
-HIM — финская рок-группа, созданная в 1991 году вокалистом Вилле Вало, гитаристом Микко Линдстремом и басистом Микко Паананеном. Первоначальное название коллектива было His Infernal Majesty (Его дьявольское Величество), но его заменили аббревиатурой HIM, когда начались обвинения в пропаганде сатанизма. Некоторое непродолжительное время во время гастролей по США и (   Читать дальше...   )1997 - Greatest Lovesongs Vol. 666
-2000 - Razorblade Romance
-2001 - Deep Shadows And Brilliant Highlights
-2003 - Love Metal(   Читать дальше...   )Жанр: Gothic Rock, Gothic MetalПродолжительность: 10:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE846906E176701A8A43C083589F4D1D55E0035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674268   (161365) от 05.11.2023
-
-Vektor - Studio Albums (4 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vektor — американская прогрессив/трэш-метал группа из Темпе, основанная в 2002 году. Тексты группы сосредоточены вокруг научных, философских и футуристических тем.2009 - Black Future
-2011 - Outer Isolation
-2016 - Terminal Redux
-2021 - Activate (Single)Жанр: Progressive Thrash MetalПродолжительность: 03:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD5B0B41551BF23A4268344AD8771A4A8319377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674569   (160861) от 06.11.2023
-
-DGM - Momentum (2013) Reissue, 2014, Night Of The Vinyl Dead Records [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160861.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Reason
-A2. Trust
-A3. Universe
-B1. Numb(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27BE03017CA1294C04BF4CA13EA7798BADCDA914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674546   (160839) от 06.11.2023
-
-David Coverdale - Snakebite (1978) [WavPack|24/192|image + .cue|Vinyl-Rip] <Blues Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On
-02. Bloody Mary
-03. Ain't No Love In The Heart Of The City
-04. Steal Away(   Читать дальше...   )Жанр: Blues Hard RockПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A0E81DF4E721EBDA49C8CD14E39E2B1CAB9954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674507   (160835) от 06.11.2023
-
-David Coverdale - Whitesnake (1977) Japan Edition [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Blues-rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady
-02. Blindman
-03. Goldie's Place
-04. Whitesnake(   Читать дальше...   )Жанр: Hard Rock, Blues-rockПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0DB99FE15017F7B8CD88B777045DA6B307DFBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674575   (160800) от 06.11.2023
-
-ABBA - Voyage (2021) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, EuroDance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160800.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:14] 01. I Still Have Faith In You
-[2:52] 02. When You Danced With Me
-[3:13] 03. Little Things
-[4:01] 04. Don't Shut Me Down(   Читать дальше...   )Жанр: Pop, Dance, EuroDanceПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADC408404D6B33744A367B7CA34F4C56E9C1BA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,293 @@
+###  Публикация: 1481734   (1007999) от 05.07.2021
+
+VA - Record Super Chart 03.07.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (3:20)
+02. Nessa Barrett feat. jxdn - la di die (3:15)
+03. Inna - Flashbacks (2:57)
+04. Markul, Джарахов - Я в моменте (2:06)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E03BE929205C5E56B12368B66CF0EDAAC9A20CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481872   (1007989) от 05.07.2021
+
+VA - Music News vol.113 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007989.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Леся Ярославская - Полюбила Другого (02:54)
+ 002. Ahzee - Royalty (03:10)
+ 003. Akim - Селяви (02:57)
+ 004. Akritis - Я Скучаю По Тебе (03:43)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED2D856A06FC57A2C7CB0EB9FB7756B5883FAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481895   (1007963) от 05.07.2021
+
+VA - Лето на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Nas X - MONTERO (Call Me By Your Name) (2:17)
+02. Nessa Barrett feat Jxdn - La di die (3:15)
+03. Minelli - Rampampam (3:20)
+04. Imagine Dragons - Follow You (2:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD91E5C3993BB4140D6AC663A0E6D5058A79088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482043   (1007790) от 07.07.2021
+
+VA - A Quantum State: Synth Electronic Mix (2021) [MP3|320 Kbps] <Synthetic, Syntwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007790.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Third Son - Everything In It’s Right Place
+002. Dmx Krew - Solar Transit
+003. Monday In Neptune - Laurence
+004. Anton Mazo - Surrealism(   Читать дальше...   )Жанр: Synthetic, Syntwave, ElectronicПродолжительность: 11:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB693A6D9C74CFCA675C1A16492A40B7DB080B87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482081   (1007786) от 07.07.2021
+
+VA - Beatport Tech House: Sound Pack #313 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007786.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Julian Iannone - Eclipse
+002. Greg Delon - Cezar
+003. Rex The Dog - Crasher
+004. Roc - Vocalicious(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5AE8A85813AE54232847688DBDE4348C5EC767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482077   (1007777) от 07.07.2021
+
+VA - Beatport Funky House: Sound Pack #312 (2021) [MP3|320 Kbps] <Funky, Disco House, Jackin House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007777.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elektromekanik - Over You
+002. Jonk & Spook - Get Down
+003. True2life - Bomb Jack 3
+004. Paul Parsons - We Know The Groove(   Читать дальше...   )Жанр: Funky, Disco House, Jackin HouseПродолжительность: 08:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AEAFBA5EA62BD166998274B66311B38703BE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482070   (1007767) от 07.07.2021
+
+VA - Exotic Ethnic House (2021) [MP3|320 Kbps] <Ethnic house, electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Counts - Mbodiene
+02. DJ Razor Dotcoza - Wena Wedwa
+03. Mahfoud - Fuji
+04. Gianni Romano - Woroko Kumba(   Читать дальше...   )Жанр: Ethnic house, electroПродолжительность: 06:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C871E80209A70DBF0035A4BFF409F3D6514C0AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482050   (1007763) от 07.07.2021
+
+VA - The Music Pie: Pop-Rock Indie (2CD) (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007763.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+001. Bartees Strange - Far
+002. Pj Harvey - This Mess We're In(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 12:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790FE77A964467DE4829940F08BCC5A227EA27F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482051   (1007745) от 07.07.2021
+
+VA - National Pop Dance Music (Vol.21) (2021) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klee - Club Der Liebenden
+002. Ross Antony - Himbeereis
+003. Arjon Oostrom - Het Is Een Nacht
+004. Vicky Leandros - Theo, Wir Fahr'n Nach Lodz(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 09:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CAB47EF4679205D73C7FF9529560ADD6D92719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482164   (1007722) от 07.07.2021
+
+VA - 100 Greatest Alternative 80s (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Smiths - How Soon Is Now? (2008 Remaster)
+02. Joy Division - Love Will Tear Us Apart (2010 Remaster)
+03. Pixies - Monkey Gone to Heaven
+04. New Order - Blue Monday(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942E4B6A5E937898A7D7E14B6B1CA4ECD651B824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482080   (1007715) от 07.07.2021
 
 VA - Rock covers (2021) [MP3|320 Kbps] <Rock>
@@ -455,296 +745,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB41CEE02D3BDFB842AE49D7F902E8E107B656E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483236   (1006955) от 12.07.2021
-
-VA - Виртуозы Жанра - Russian Blues (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анатолий Жемаев - Неспетая [04:15]
-02. Андрей Козловский и группа 'ГрассМейстер' - Нужно взять себя в руки [03:24]
-03. Декабрь - Одесса-Мама [04:11]
-04. Борис Булкин - Одиночество и блюз [04:47](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 09:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6747E071A9A4126CCB49F8C1FA1DC78931717AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483444   (1006883) от 13.07.2021
-
-VA - That Other World: Indie & Alternative Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006883.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pale Waves - Wish U Were Here
-002. The Natvral - Sylvia, The Cup Of Youth
-003. That Handsome Devil - Punch In The Face
-004. Flock Of Dimes - Hard Way(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA386C4CE0D5E38A077E339948380FFCFF4304B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483381   (1006850) от 13.07.2021
-
-VA - Новички в попсе Vol 9 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лёха Ерох - Дай мне себя (2:52)
-02. MARUSHOVA - Омут (2:46)
-03. White Punk, ulwu.nite - Холодный (3:21)
-04. Antew - Самая (3:00)(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043558CD2722A00E4480ACD097553AACABC12116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483456   (1006778) от 14.07.2021
-
-VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006778.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Peetu S - Afterlife
-002. Human Force - Sun Rising High
-003. Green Court - Silent Heart
-004. Wavetraxx - Lost Transition(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15575E00776F7C701B1013DD65AF3A8D40B4CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483744   (1006598) от 15.07.2021
-
-VA - Громкие новинки Июля (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. StaFFорд63, Яна Вайновская - Лебединая (2:52)
-02. Kane Brown, blackbear - Memory (2:33)
-03. Justin Bieber, The Kid LAROI. - Stay (2:21)
-04. DAVA - ОДИНОКИЙ ДЭНС (2:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE96EFC43E4831CBE434C8004A76A348321CF6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484309   (1006116) от 19.07.2021
-
-VA - Record Super Chart 17.07.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minelli - Rampampam (3:20)
-02. Markul, Джарахов - Я в моменте (2:06)
-03. Nessa Barrett feat. jxdn - la di die (3:15)
-04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C5BEA4B54B02613927134D0B6F79DCF4B62167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484115   (1006092) от 19.07.2021
-
-VA - Зайцев.нет Лучшие новинки Июля (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bogdan Vand - Под покровом ночи (3:06)
-02. Kessy Black, Melis Treat, Snilex - Ignore (3:32)
-03. NLO, Анет Сай - Выходи (1:48)
-04. Ербол Хамза & Айжан Сейтенова - С тобою (3:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06590AB750C7C84ED5F1E2440AD11576937A2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484270   (1006081) от 19.07.2021
-
-VA - Rock Hits (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006081.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pearl Jam - Release (9:06)
-002. Green Day - Jesus of Suburbia (9:08)
-003. Guns N' Roses - November Rain (8:57)
-004. Green Day - Holiday Boulevard of Broken Dreams (8:13)(   Читать дальше...   )Жанр: RockПродолжительность: 25:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91D6A9964C252C7AF5EB2E638CF3F7F6D863412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484815   (1005696) от 23.07.2021
-
-VA - Music News vol.117 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005696.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sonya - Парень (03:39)
- 002. Alchemist Project - Waiting For (02:53)
- 003. Alexander Oscar - Sunlight (03:19)
- 004. Alina Baraz - Alone With You (03:46)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8419FB80276CDA830BBA94D4522905386B3A7103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484852   (1005681) от 23.07.2021
-
-VA - Blues live concert (2021) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddy Guy - First Time I Met the Blues (Live)
-02. Delta Moon - Stuck in Carolina (Live)
-03. Eric Clapton/Steve Winwood - Georgia on My Mind (Live from Madison Square Garden)
-04. Johnny Winter - Leland Mississippi Blues (Live at The Woodstock Music & Art Fair, August 17, 1969)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 17:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F725112EA58D2C1272A4CA53E7162F96FA8D46
 ```
 
 https://mybot314.ru/tekegram_catalog/

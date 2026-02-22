@@ -1,22 +1,25 @@
-###  Публикация: 1790855   (67852) от 13.04.2025
+###  Публикация: 1792757   (67633) от 20.04.2025
 
-Тайная жизнь орангутанов / Secret Lives of Orangutans (2024) WEBRip [H.264/1080p] [DVO] [AD]
+VA - Italian Restaurant Chill Music Vol. 3 (Beats to relax) (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat, Lounge, Chill Out>
 
->>Остальное
->>Фильмы с Рекламой
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67852.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67633.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дэвид Аттенборо рассказывает о жизни семьи орангутанов из нескольких поколений: об их приключениях, достижениях и трудностях.Производство: Великобритания / Silverback FilmsЖанр: документальныйРежиссер: Хув КордиАктеры: Дэвид АттенбороПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:19:16Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+01. Papik - Tac (3:49)
+02. Bodyles - Washington (3:35)
+03. Papik - Gente Come Noi (4:25)
+04. Cristiana Polegri - Cocktail D'Amore (3:39)(   Читать дальше...   )Жанр: Nu Jazz, Broken Beat, Lounge, Chill OutПродолжительность: 01:48:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A8A5AD3A0BE8A1B6058FCA201051382682A03E0
+magnet:?xt=urn:btih:F513EE6523DD0DE7DED2D0F18290D253556FBA69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791284   (67851) от 13.04.2025
+###  Публикация: 1792687   (67632) от 20.04.2025
 
-Растровый клипарт - Creative Store - Creative Fabrica - Fall Orange Watercolor Flowers Patterns [JPG]
+Растровый клипарт - STCrafts - Creative Fabrica - Groovy Lilly Pulitzer Hippie Mug Wrap Sublimation Design [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67851.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67632.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние оранжевые акварельные цветочные узоры.Формат: JPGРазрешение файлов: 3600 x 3600
+Сублимационный дизайн для кружек.Формат: PNGРазрешение файлов: 2925 × 1425
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35D7C55870006136E5D99A4FD1FBA462CE36CAF2
+magnet:?xt=urn:btih:09E4AB99F98EBCE48F1B79621CD880C3AB22FA5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,135 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791302   (67850) от 13.04.2025
+###  Публикация: 1792183   (67631) от 20.04.2025
 
-История любви в Копенгагене / Sult / A Copenhagen Love Story (2025) WEBRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писательница Мия влюбляется в отца-одиночку Эмиля, но на пути к счастью им предстоят испытания: пара лечится от бесплодия, чтобы зачать общего ребёнка.Производство: Дания / Miso FilmЖанр: драма, мелодрамаРежиссер: Дитте Хансен, Луиза МирицАктеры: Розалинд Мюнстер, Хоаким Фьелструп, Магнус Милланг, Андерс В. Бертельсен, Бахар Парс, Сара Юэль Вернер, Милле Лефельдт, Юссеф Уэйн Виттфельтт, Alex Bankier, Джейд Уорнер и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:02Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E46927A71830DE2DFFF19B384D288F44B328CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791399   (67849) от 13.04.2025
-
-Формула 1. Сезон 2025. Этап 4. Гран-при Бахрейна. Квалификация (12.04.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67849.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 апреля 2025, суббота. 19:00 МСК. Этап 4, Сахир. Гран-при Бахрейна. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CEAF721B1DE2B1E324D8E5559A401650E6562F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791362   (67848) от 13.04.2025
-
-VA - Groove Paradise (The Deep-House Collection), Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vertefeuille - Let Time Fly [03:32]
-02. Sharkhuman - Be Ok (Extended Mix) [05:08]
-03. DS Hunt & Kallea P. - Tag Me In (Appt.829 Remix) [05:16]
-04. Jerry Ropero & Fab Morvan - Celebrate (Extended Mix) [04:17](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809C28C84D586D40FE3D733C13CE80119476314F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791287   (67847) от 13.04.2025
-
-Текстуры - STCrafts - Creative Fabrica - Pink Daisy Flowers Digital Paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с цветами - розовыми маргаритками.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE230D58A0AF7F6733736E7286A40BA91087CE49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790478   (67846) от 13.04.2025
-
-Александр Самсон - 1941-1945 (2025) [MP3|320 Kbps] <Военная песня>
+Ильдар Южный - Песни из чуланчика (2025) [MP3|320 Kbps] <Chanson>
 
 >>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67846.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67631.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - 1941-1945 [00:03:02]
-02 - Родина [00:04:12]
-03 - Последние Герои [00:04:22]
-04 - Фронтовое кино [00:02:44](   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:26:16
+01 - Да гори оно огнём [00:04:28]
+02 - А память над годами проплывает [00:03:37]
+03 - Прощание с вором [00:04:29]
+04 - Земля измучена войной [00:04:02](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:05:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A38A5AD62744780527D4E8419CB333226A7746C
+magnet:?xt=urn:btih:62B601C3CC43808379D0D40C25D7417312576004
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,25 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791291   (67845) от 13.04.2025
+###  Публикация: 1792683   (67630) от 20.04.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Magenta Pink Glitter Flowers Pattern [PNG]
+Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Pastel Ombre Digital Papers [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67845.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67630.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пурпурно-розовый узор из блестящих цветов.Формат: PNGРазрешение файлов: 3600 x 3600
+Абстрактные узоры пастельных тонов.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:097430EA2ED49730A0CA3A5561EB5AD5866DAA2F
+magnet:?xt=urn:btih:F468B84B72B8200823498C78E76E8DF87701FCD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,217 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791301   (67844) от 13.04.2025
+###  Публикация: 1792684   (67629) от 20.04.2025
 
-История любви в Копенгагене / Sult / A Copenhagen Love Story (2025) WEBRip [H.264/1080p] [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писательница Мия влюбляется в отца-одиночку Эмиля, но на пути к счастью им предстоят испытания: пара лечится от бесплодия, чтобы зачать общего ребёнка.Производство: Дания / Miso FilmЖанр: драма, мелодрамаРежиссер: Дитте Хансен, Луиза МирицАктеры: Розалинд Мюнстер, Хоаким Фьелструп, Магнус Милланг, Андерс В. Бертельсен, Бахар Парс, Сара Юэль Вернер, Милле Лефельдт, Юссеф Уэйн Виттфельтт, Alex Bankier, Джейд Уорнер и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:02Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D26968E991C02B106AAB61C393464730A5F22EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790846   (67843) от 13.04.2025
-
-Любовь навеки / Karlek farever / Love Forever (2025) WEBRip [H.264/1080p] [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара из Стокгольма собирается сыграть свадьбу на острове Готланд, но их самый важный день оборачивается катастрофой из-за семейных традиций.Производство: Швеция / JarowskijЖанр: мeлодрама, комедияРежиссер: Стаффан ЛиндбергАктеры: Matilda Källström, Чарли Густафссон, Челль Бергквист, Аня Лундквист, Самуэль Астор, Вильхельм Бломгрен, Elias Buskas, Stine Landin Dettmann, Никлас Энгдаль, Катарина Эверлоф и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:01Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A8358F93B2018C16D59EDD329EBCB3866B6482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791133   (67842) от 13.04.2025
-
-Izzy Reign - Izzy Reign (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Industrial Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sunken Place [00:03:33]
-02. Phobos [00:03:00]
-03. Broken by Design [00:03:26]
-04. Pandora's Box [00:04:08](   Читать дальше...   )Жанр: Alt. Metal, Industrial Rock, Female VocalПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F19A56598C10816ACCD313ABF2B8040FE2C58EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791270   (67841) от 13.04.2025
-
-Scott Bradlee's Postmodern Jukebox - Lounge Language Models (2025) [FLAC|Lossless|WEB-DL|tracks] <Swing, Jazz, Blue-Eyed Soul, Blues, Dance-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Good Luck, Babe! [3:21]
-02 - Rag Doll [2:59]
-03 - A Bar Song (Tipsy) [3:53]
-04 - It Must Have Been Love [4:28](   Читать дальше...   )Жанр: Swing, Jazz, Blue-Eyed Soul, Blues, Dance-PopПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98EF431334C3854C8BB17DC4393EA4EAB57DFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791359   (67840) от 13.04.2025
-
-Марк Лоуренс | Прилив, что ещё темнее (2025) [MP3, Faustloc]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое школьников увлечены строительством домика на дереве. Но беззаботные каникулы превращаются в мрачный герметичный триллер.
-Повесть в духе «Очень странные дела».Жанр: Фантастика, ужасыПеревод: Руслан ГимазовИздательство: Аудиокнига своими рукамиПродолжительность: 04:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5862C509224E4EF5262B3661B382EBA23CF86E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790848   (67839) от 13.04.2025
-
-Любовь навеки / Karlek farever / Love Forever (2025) WEBRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара из Стокгольма собирается сыграть свадьбу на острове Готланд, но их самый важный день оборачивается катастрофой из-за семейных традиций.Производство: Швеция / JarowskijЖанр: мeлодрама, комедияРежиссер: Стаффан ЛиндбергАктеры: Matilda Källström, Чарли Густафссон, Челль Бергквист, Аня Лундквист, Самуэль Астор, Вильхельм Бломгрен, Elias Buskas, Stine Landin Dettmann, Никлас Энгдаль, Катарина Эверлоф и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:01Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EDAC5B718937F7948E7C9DCC97BBDE2799D143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791394   (67838) от 13.04.2025
-
-VA - Chillout & Lounge Music Essentials (2025) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hints of soul - Smooth Transition (04:26)
-02. The Foxtrot Effect - Halong Bay (04:36)
-03. Exquisite Frame - Chasing Shadows (04:30)
-04. Premasara Council - Subliminal Effects (04:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92354B6A8E9F26746AAEF172B42B9E1CCA204B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791282   (67837) от 13.04.2025
-
-Текстуры - STCrafts - Creative Fabrica - Christmas Damask Texture Digital Paper [PNG]
+Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Splatters Seamless Patterns [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67837.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67629.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с рождественской дамасской текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+Бесшовные узоры - абстрактные брызги.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E2067197A378427A5796B2A9FAF273AB654843D
+magnet:?xt=urn:btih:521E63D5A7F70A6AB16C472EE96FC70945C836B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,54 +134,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791382   (67836) от 13.04.2025
+###  Публикация: 1792682   (67628) от 20.04.2025
 
-Maxwellium - Blood &Smoke (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King of the Smoke (3:18)
-02. Iron & Ashes (3:37)
-03. Devils Debt (3:29)
-04. Ravens & Rats (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD5EB49644E50813E2A18353D90CF612030683E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791281   (67835) от 13.04.2025
-
-Текстуры - STCrafts - Creative Fabrica - Rose and Gold Glitter Texture Digital Paper [PNG]
+Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Floral Seamless Patterns [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67835.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67628.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с блестящей розово-золотой текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+Цветочные бесшовные узоры. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D025433A81A58EF1CF7F4EC22316EDC2FB46F2C
+magnet:?xt=urn:btih:CAE6B93DCE607669CFACE7D11963766976ABD1BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,144 +160,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791300   (67834) от 13.04.2025
+###  Публикация: 1792499   (67627) от 20.04.2025
 
-VA - Love Legends (2002) [OGG Vorbis|480 Kbps] <Soft Rock, Soul, Ballad, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harold Melvin & The Blue Notes - If You Don't Know Me By Now
-02. Bonnie Tyler - Total Eclipse Of The Heart
-03. Will To Power - I'm Not In Love
-04. Jennifer Rush - The Power Of Love(   Читать дальше...   )Жанр: Soft Rock, Soul, Ballad, Rock, PopПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F349F72BDD074E5E62BB4125A391E221A5B17AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791121   (67833) от 13.04.2025
-
-Evgeny Rang Quartet - Midnight Cool (2024) Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Could Happen To You [5:56]
-02. Giant Steps [7:42]
-03. Round Midnight [5:58]
-04. Ladies In Mercedes [4:28](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39713A01226AECBB480E9AB162BA01130213042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791278   (67832) от 13.04.2025
-
-Mark Ambor - Rockwood (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rockwood [1:01]
-02 - Good To Be [2:28]
-03 - Academy Street [2:51]
-04 - Belong Together [2:29](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497E802897E487A5C3603D85544A8FAA3D92FBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791264   (67831) от 13.04.2025
-
-Rabengott - 2 Albums (2023,2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepwalker [00:04:28]
-02. Love Kills [00:03:50]
-03. White Widow [00:04:02]
-04. Black Rose [00:04:40](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 2 CD, 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4E663CDB25E0A691AE3C1782D4D332169B3986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791363   (67830) от 13.04.2025
-
-Fuzzripper - Poltergeist (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Ice on Fire - Nine Shades of Evil (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67830.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67627.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Poltergeist (05:10)
- 02. These City Nights (03:35)
- 03. Black and Red (06:00)
- 04. Ghost Rider (03:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:44
+01. Perfect World [00:06:59]
+02. Dry Your Tears [00:04:34]
+03. A Dream for My Mind [00:05:20]
+04. To Live Is to Die [00:04:41](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:48:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA8C68CB2830C154D5149EFC25A82EFC3EA88E93
+magnet:?xt=urn:btih:A133A32B21672B2F731D1CCA12728CD74F3F99CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,28 +189,193 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791342   (67829) от 13.04.2025
+###  Публикация: 1792676   (67626) от 20.04.2025
 
-Charlie Mingus - Four Classic Albums: Second Set (1956, 1957) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+Растровый клипарт - Pattern Universe - Creative Fabrica - Mother's Day Floral Butterfly Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узоры в виде цветов и бабочек. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697C2826316737732C867AF5D2AD3425FF04D0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792148   (67625) от 20.04.2025
+
+Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67625.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fighting The World
+A2. Blow Your Speakers
+A3. Carry On
+A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6A2FE8D7E39FFAD3B67F397330CDF2A633EEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792678   (67624) от 20.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Needle Plush Felt Flowers Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочные бесшовные узоры. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB92DB96E6C80301DA7766518BA56773895B89B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792631   (67623) от 20.04.2025
+
+Лев Биноклев | Солнечные зайчики и таинственное ограбление. (2025) [MP3, Данил Сидорин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67623.jpg" />
+</div>
+
+
+###  Подробнее
+
+В квартире старого дома, прямо в чудесной хрустальной вазе, живут Солнечные зайчики. Целое семейство радует хозяев: родители-зайчики мерцают в бокалах, а малыши носятся вокруг новогодней ёлки. Но всё меняется с приходом грабителей: из квартиры исчезает хрустальная ваза, а вместе с ней и солнечные малыши. Героям придется постараться, чтобы спасти семейную реликвию. (   Читать дальше...   )Жанр: детская литература, детектив, приключения.Язык озвучки: РусскийИздательство: Издательские решенияПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C025C8DB746B88721C5CD264829266DC24ADA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792764   (67622) от 20.04.2025
+
+Чудо техники с Сергеем Малозёмовым (20.04.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смотреть больно! Виноват ли компьютер в сухости глаз и как бороться с этой проблемой? Работают ли очки с дырочками или стоит покупать особые линзы, чтобы защитить глаза?
+ Честная битва кухонной техники: какие устройства — напрасная трата денег, а какие могут неожиданно удивить?
+ Британские инноваторы создали самоохлаждающуюся банку для напитков .
+ Шапочка для мыться (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720DC49E682622FBCAA5288A5AE74CCD5BC6D7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792775   (67621) от 20.04.2025
+
+Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|image|Vinyl-Rip] <Nu metal, Alternative metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67621.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1-742617000027
+A2-(Sic)
+A3-Eyeless
+A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792779   (67620) от 20.04.2025
+
+Ally Venable - Money & Power (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67829.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67620.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Haitian Fight Song [12:03]
-02. Blue Cee [7:55]
-03. Reincarnation Of A Lovebird [8:34]
-04. The Clown [12:17](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 02:32:33
+01.  Brown Liquor (3:48)
+02.  Maybe Some Day (3:19)
+03.  Money & Power (3:28)
+04.  Do You Cry (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C75942D7A9D25DB24FF7626690F1E34657331D2
+magnet:?xt=urn:btih:2DDA058783434EC3B6E92AAA479CE5AA44151FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,25 +383,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791381   (67828) от 13.04.2025
+###  Публикация: 1792756   (67619) от 20.04.2025
 
-MotoGP. Этап 04 из 22. Гран-при Катара. Квалификация (12.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Журнал | Лечащий Врач (том 28) №4 (2025) [PDF]
 
->>Спорт и активный отдых
->>Авто, Мото
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67828.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67619.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 апреля 2025, суббота. 15:40 МСК. Этап 4, Доха. Гран-при Катара. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:52:23
+Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: Медицинский научно-практический журналИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:521AC361805F3808A6F7A3087AEE4DB289024341
+magnet:?xt=urn:btih:CA8E957BD18A06C8BB2E1A4EC66B1C50C9CA3BFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,28 +409,294 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791297   (67827) от 13.04.2025
+###  Публикация: 1792429   (67618) от 20.04.2025
 
-Allan Clarke - Allan Clarke (1974) [FLAC|Lossless|tracks] <Folk Rock, Pop Rock, Soft Rock>
+Mashle | Mashle: Magic and Muscles | Магия и мускулы (2020) [16 томов, 162 главы + 4 экстра] [Манга] [Русский] [PNG, JPG] [Complete]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Манга и Арт
+>>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67827.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Don't Let Me Down Again
-2. Can't Get On
-3. I'll Be Home
-4. I Wanna Sail Into Your Life(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, Soft RockПродолжительность: 00:34:17
+Это мир магии, где магия используется для всего. Но в глубине леса живёт молодой человек, который проводит время, тренируя мышцы и набираясь сил. Он не может использовать магию, но он наслаждается мирной жизнью со своим отцом. Но однажды его жизнь подверглась опасности! Сможет ли его мускулистое тело защищать его от магов, которые хотят его захватить? Так и начинается (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, сёнэнПеревод: KomgerФормат: PNG, JPGПродолжительность: 27 января 2020 - 3 июля 2023
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12C8BE230145E73798521249637028C49983CC15
+magnet:?xt=urn:btih:5202F28C38A0917E167279C626D770DDA6AAB479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792544   (67617) от 20.04.2025
+
+Enen no Shouboutai | Пламенная бригада пожарных (2015) [34 тома, 304 главы + Экстра] [Манга] [Русский] [PNG, JPG] [Complete]
+
+>>Манга и Арт
+>>Манга, Манхва, Маньхуа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как вы бы хотели умереть? Состарится или умереть от болезни, укуса, яда или просто задохнутся? Но в этом мире самый ужасный способ умереть это - сгореть заживо. Люди начали воспламенятся то тут, то там, в пламени превращаясь в демонов и забирая жизни всех кто рядом. Так их начали называть огненными людьми. Никто не знает как они появляются, никто не может противостоять (   Читать дальше...   )Жанр: приключения, комедия, мистика, сёнэнФормат: PNG, JPGПродолжительность: 23 сентября 15 - 22 февраля 2022
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F05EC0752A1A84449A90EEF949BBF025B13DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792686   (67616) от 20.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Black Inky Flowers Seamless Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесшовные цветочные узоры. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0073EB3494B0B2A4D44CB6E43FC163B96625823F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792753   (67615) от 20.04.2025
+
+Photosphere, Unusual Cosmic Process - Mental Detachment (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A storm is coming (3:33)
+02. Mind reconstruction (3:32)
+03. Steps in to the future (3:47)
+04. Tempest of my soul (3:34)(   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD000803331D56291D7F60995DD8773EAF4AA47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792688   (67614) от 20.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Neon Skulls Halloween Pattern [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесшовные узоры - неоновые черепа.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCB8774E4C220F9671FB99BD70F50E28F298D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792781   (67613) от 20.04.2025
+
+Паттерны - Creative Fabrica - Autumn Pattern PNG Design Bundle [PNG, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние узоры в векторе и растре.Формат: PNG, EPSРазрешение файлов: 4167 x 4167
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA4FDA656CFF4110973E42CBDA8BB704121FB7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792807   (67612) от 20.04.2025
+
+Joachim Witt - Ich (2015) Remastered, 2025, Ventil [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uber das Meer (Remastered) [00:04:23]
+02. Was soll ich dir sagen (Remastered) [00:04:23]
+03. Warten auf Wunder (Remastered) [00:04:15]
+04. Bitte geh mir aus dem Weg (Remastered) [00:04:05](   Читать дальше...   )Жанр: Pop Rock, IndustrialПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B314756C624C6E78BDA27C0A938D8AA0E51CCCFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792679   (67611) от 20.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Blue Plaid Seamless Patterns [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клетчатые узоры.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063F74A39107C8145575B591DEB83314AD83B9AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792670   (67610) от 20.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Retro Fall Leaves Seamless Pattern Pack [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор бесшовных узоров на тему опавших листьев.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226DAB80C940AF7FCA6CFB45390EE42466CB594F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792673   (67609) от 20.04.2025
+
+Растровый клипарт - Creative Fabrica - Pattern Universe - Pink Blue Cute Flower Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочные бесшовные узоры на цифровой бумаге. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF47E05FA7D3BCCB7F3F56F5E4EDF9727A901D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792636   (67608) от 20.04.2025
+
+Fontaines D.C. - Romance (2024) Deluxe Edition, 2025, XL Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romance [00:02:33]
+02. Starburster [00:03:41]
+03. Here's The Thing [00:02:43]
+04. Desire [00:03:39](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91DB2D597AF6E54FE6207A38872AC17411266833
 ```
 
 https://mybot314.ru/tekegram_catalog/

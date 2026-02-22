@@ -1,3 +1,36 @@
+###  Публикация: 741030   (984951) от 02.01.2014
+
+VA - SuperBomb Club Music Pack 2 (3013) [MP3|320 кб/с]<Club, Electro House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Antillas & Vitodito feat. Fiora - Disconnected (Original Mix) (5:26)
+02. Bart Claessen - Chimaera (Original Mix) (5:32)
+03. Brass Knuckles feat. John Ryan - As Long As I'm Alive (Starkillers Remix) (5:26)
+04. Damien Le Roy & Richard Vission - Wonderland (Original Mix) (4:31)
+05. Dennis Von Dutch - Strobist (Original Mix) (5:23)
+06. EDX - Hazed (Extended Mix) (5:16)
+07. Iggy Azalea - Work (Gregor Salto Remix) (5:13)
+08. Jack Holiday & Dany Lorence - Only Girl (Original Mix) (5:11)(   Читать дальше...   )Жанр: Club, Electro House, Progressive HouseПродолжительность: 01:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162A6EC7E558A56BB6B8690F8FE9F018FA2033F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 435057   (984950) от 11.01.2012
 
 Singularity {1.1} [Ru] 2010 | R.G. Virtus [RePack]
@@ -657,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ###  Публикация: 434893   (984851) от 11.01.2012
 
 Маша и медведь / Дышите! Не дышите!  (22 серия) (2012) [720p ] HDRip
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Компьютерная анимация, ДетскийРежиссер: Олег Ужинов, Денис Червяцов, Марина Нефедова, Олег КузовковПерсонажи: Маша (Алина Кукушкина), Медведь (Борис Кутневич)Продолжительность: 00:07:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434992   (984848) от 11.01.2012
-
-Маша и медведь / Дышите! Не дышите!  (22 серия) (2012) [H.264] HDRip
 
 >>Архив торрентов
 >>Архив Мультфильмов

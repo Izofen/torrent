@@ -1,3 +1,90 @@
+###  Публикация: 1276401   (788220) от 16.01.2019
+
+Toto Bona Lokua (Gerald Toto, Richard Bona, Lokua Kanza) - Bondeko (2017) [FLAC|Lossless|tracks] <Vocal Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ma Mama
+02. Naleki
+03. Youwile
+04. Je Kango(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE94040FC36A8E72DC5A420BA3D4B2647E8A5B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203462   (788203) от 02.02.2018
+
+Beata Przybytek - Today Girls Don't Cry (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can Come To Me (4:15)
+02. Priceless Cure (4:09)
+03. Z Rozpaczy Blues (4:54)
+04. Nie Wiadomo (4:14)(   Читать дальше...   )Жанр: Jazz, Female VocalПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13654127960FADF1D97F98569BC76B8A68C632E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276477   (788156) от 16.01.2019
+
+Herbie Hancock - Then And Now (2008) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maiden Voyage [7:55]
+02. Cantaloupe Island [5:28]
+03. Wiggle Waggle [5:50]
+04. Chameleon [7:41](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54DE822EAFE4765EE1BCBC7ED3A754928D6A7BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512005   (787898) от 23.11.2021
 
 Houston Person - I'm Just A Lucky So And So (2019) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
@@ -658,93 +745,6 @@ Mustafa Donmez (Mustafa Dönmez) - Gizemli Yolculuk (2009) [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B9B6E42145F8C8F02D106523A3C8BB7696D8BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388758   (786572) от 07.06.2020
-
-Brian Culbertson - XX (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up! (ft. Mr. Talkbox & Marcus Anderson)
-02. Dance Like This (ft. Bootsy Collins)
-03. The Hangout (ft. Ray Parker Jr.)
-04. Prelude to More Than Thankful(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9F4B8852F7453A42DABE5BD4711BE73E49DF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123503   (786416) от 08.04.2017
-
-Eddie Shu / Bob Hardaway - Jazz Practitioners (1954, 1955) 2001, Toshiba [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's Sand, Man! [02:59]
- 02.Tom, Dick And Jim [03:15]
- 03.Day By Day [02:09]
- 04.Blues For Baby [02:21](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C97AB8D1571E5B262AC29998C8A249FCAC9573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123563   (786414) от 08.04.2017
-
-Valery Ponomarev - Trip To Moscow (1988) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Same Place, Same Time [08:15]
- 02.Gettin' to Bolshoi [07:52]
- 03.Gorky Park [08:13]
- 04.Trip to Moscow [09:21](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED0405FDD7644B1314D91FD87B6FEA8FE5C383F
 ```
 
 https://mybot314.ru/tekegram_catalog/

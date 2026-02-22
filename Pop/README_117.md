@@ -1,3 +1,119 @@
+###  Публикация: 1220142   (708168) от 17.04.2018
+
+Joy Peters - Back To Joy (2012) [MP3|320 Kbps] <Euro-Disco, Pop, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asian Heart (5:34)
+02. I Wish You Where Here (3:10)
+03. Don't Lose Your Heart (5:19)
+04. Sweetest Dream (3:25)(   Читать дальше...   )Жанр: Euro-Disco, Pop, EuropopПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250766BD38228BED83D2CF7D456DE3F62161CB38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 792527   (708138) от 03.06.2014
+
+VA - Pure... Guitar Heroes (2010) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Pop-Roc>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pure... Guitar Heroes предназначен для уже несколько подготовленного слушателя. Я бы даже сказал для любителя хорошего, забойного, культового поп-рока. Именно такой слушатель получит истинное удовольствие от знаковых, классических гитарных рифов, узнаваемых потому, что они появляются у настоящих героев гитары. На этих четырех дисках золотого рок-н-ролла вы услышите (   Читать дальше...   )01. Boston - More Than a Feeling  (3:30)
+02. Steve Ray Vaughan & Double Trouble - The House Is Rockin'  (2:25)
+03. Johnny Winter - Rock and Roll, Hoochie Koo  (3:33)
+04. Rory Gallagher - Moonchild  (4:47)(   Читать дальше...   )Жанр: Pop, Rock, Pop-RocПродолжительность: 04:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7F05BD3699A979C9F24FFBD05179300E435EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025853   (708031) от 13.06.2016
+
+Fresh Fox & Marco - Augenblicke (2016) [MP3|320 кб/с] <EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Nur Fuer Dich Allein
+02-Fieber Der Nacht
+03-Dein Laecheln
+04-Sehnsucht Nach Dir(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CEAE52075A93E6BA834FFCE2EC6E240E8B4BC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220060   (707997) от 17.04.2018
+
+Олег Газманов - Жить - так жить! (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707997.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жить - так жить!
+2. Никогда не проси
+3. На закате плачет Мачо
+4. Самая нежная(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98987A879406C032627B8C2D45C28B7F2A8DE516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026004   (707617) от 13.06.2016
 
 VA - Ultimate Dance (2016) 4CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, Dance>
@@ -626,122 +742,6 @@ Electronic Butterflies - Skylab (1977) LP [MP3|320 Kbps] <Electronic, Disco, Exp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BD3EC9705344DA0CE3652522909ACC595448132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287558   (703626) от 07.03.2019
-
-Sugar & Candy - Come To The Party (1979) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come To The Party (4:03)
-02. Chapel Of Love (2:54)
-03. Teardrops On My Pillow (4:03)
-04. Breaking Up Again (3:49)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49077FFB120041E890B8328BF2CD75BAAFE94A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287537   (703347) от 07.03.2019
-
-Dido - Still on My Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricanes
-02. Give You Up
-03. Hell After This
-04. You Don't Need a God(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6BF22248F105DCA3A766EE0B44B2193530D027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533639   (703326) от 25.02.2022
-
-Mario Renzi - Un Violino In Discoteca (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Love (3:28)
-02. Honey Pie (3:26)
-03. Copacabana (4:12)
-04. One For Me One For You (5:33)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FB607118BE3DE6AEACC6865FA75F3D1EA55B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287393   (703241) от 07.03.2019
-
-Mylene Farmer - Dance Remixes (1992) Compilation, Reissue, 2000, Polydor [FLAC|Lossless|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We'll never die (Techno remix) (7:28)
-02. Sans contrefaзon (Boy remix) (5:48)
-03. Tristana (Remix club) (7:14)
-04. Sans logique (Illogical club remix) (7:13)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FBA248849A749D474DF0798705F8543FA9CE25
 ```
 
 https://mybot314.ru/tekegram_catalog/

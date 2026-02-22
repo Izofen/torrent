@@ -1,3 +1,91 @@
+###  Публикация: 1112176   (844853) от 07.03.2017
+
+Moby - Suara Remixes (2017) [MP3|320 Kbps] <Techno, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go (Victor Ruiz Remix) 09:19
+02. Porcelain (Julian Jeweil Remix) 06:31
+03. Natural Blues (Reinier Zonneveld's Homage Remix) 07:17
+04. Go (Victor Ruiz Warehouse Mix) 07:43(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AEDF228A52E063F9C2C9B49C7CDCC166AE394D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003162   (843571) от 03.04.2016
+
+VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Thomas Feijk - Hi (Original Mix) 08:30
+02 Hazem Beltagui - She Came (Terry Da Libra Remix) 08:26
+03 Atlantis Ocean - Fuji (Original Mix) 07:15
+04 Labtracks - Robotic Love (Lenno Remix) 04:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE4668A1C63600DB04A288FE51860C216E6108D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112498   (843386) от 08.03.2017
+
+VA - Summer Is Coming So Get Ready For Some Running (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midimute — Idea [04:02]
+02. Mike Goldberg — Simon [03:45]
+03. Karasto — Plus [04:30]
+04. Klinikum — Stronger [04:32](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:50:09
+Лейбл: Skyheels - 10118910
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7946D771CF603196B5B56DEAB3B1E303EE19AF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112545   (843302) от 08.03.2017
 
 VA - Top 10 Putin Electro House (2017) [MP3|320 Kbps] <Electro House>
@@ -658,93 +746,6 @@ JIN SHI - My Digital Madness (2013) [MP3|320 кб/с] <Deep House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ADBE694E89110B5518C721631FAFAC804C44E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114919   (830070) от 16.03.2017
-
-VA - Never Miss A Beat (25 Crazy Deep-House Tunes) Vol.2 (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  House Vicious - Summer Leaves (Original Mix)  3:19
-02.  Chada - Through The Bar Line (Original Mix)  3:06
-03.  Julian Smith - Lacetti (Original Mix)  11:41
-04.  Tommy Harmond - Stay Together Forever (Extended Mix)  3:32(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375D04956B4F0A6737F6DB54AD0F0B0E1FEDBBBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114910   (830065) от 16.03.2017
-
-VA - Best Of Deep House 2017 Vol.02 (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Justin Oh - Good Morning (Claes Rosen Remix)  6:51
-02.  Dezza - Brit  5:49
-03.  Eskai - Tides  5:16
-04.  Dan Sieg - Everything U Need  5:56(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD91578171B0727CDCFAC0E9CE6DD5B7C086A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114856   (830063) от 16.03.2017
-
-VA - The Fitness Series Vol. 2 (2017) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norgzki - Butterfly Effect (Original Mix) 06:54
-02. Oliver Marks - Night Lover (Original Mix) 07:49
-03. Dark By Design - Words Are Not Enough (Original Mix) 06:47
-04. Cut-Up - Time To Rock (Original Mix) 06:17(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C003A5E6739A6ECE659587AD84F059F1DC8147
 ```
 
 https://mybot314.ru/tekegram_catalog/

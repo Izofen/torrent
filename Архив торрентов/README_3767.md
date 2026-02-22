@@ -1,3 +1,32 @@
+###  Публикация: 1323996   (385196) от 20.09.2019
+
+VA - Live @ Luminosity At The Beach, Beachclub Fuel Bloemendaal, Netherlands (2019) [MP3|192-320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alex Wright @ Luminosity At The Beach, Beachclub Fuel Bloemendaal, Netherlands 2019-08-31:
+01 Mescadi - Phlegm
+02 Gux Jimenez & Jab Vix - Green Civilization
+03 Gux Jimenez & Jab Vix - First View(   Читать дальше...   )Жанр: TranceПродолжительность: 09:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1109468B962B2E7E644045CC82E7E8FC3394C367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574574   (385191) от 05.09.2022
 
 MathType 7.4.10.53 RePack by KpoJIuK [Ru/En]
@@ -657,33 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29D9BC06EF1D9B477440EC23CC7FA45337C60080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414440   (385021) от 08.10.2020
-
-SIGERSHADERS XS Material Presets Studio 2.4.0 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385021.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIGERSHADERS XS Material Presets Studio - это обновлённая библиотека материалов для 3ds Max + V-ray/Corona/Octane, включающая в себя User Library material manager.
-Коллекция состоит из различных категорий материалов. Будь то: металлы, ткань, стёкло и т.д.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E27DFD02FE8C4B8D2CB47894CA05A8B822BA8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

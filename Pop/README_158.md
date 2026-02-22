@@ -1,3 +1,119 @@
+###  Публикация: 915495   (592356) от 05.07.2015
+
+Timecop1983 - Synthetic Romance (2014) EP [MP3|320 кб/с]<80's Retrowave, Synthpop, Dreamwave, Synthwave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indigo Tears 04:54
+02. Secret Love 05:52
+03. Echoes 05:06
+04. Lonely Nights 05:00(   Читать дальше...   )Жанр: 80's Retrowave, Synthpop, Dreamwave, SynthwaveПродолжительность: 00:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A692D4F75286538958270C2C2598FD100A3F52FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915519   (592306) от 05.07.2015
+
+Timecop1983 - Waves (2014) EP [MP3|320 кб/с]<80's Retrowave, Synthpop, Dreamwave, Synthwave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight 05:04
+02. Closer 05:07
+03. In Your Arms 05:30
+04. Waves 05:02(   Читать дальше...   )Жанр: 80's Retrowave, Synthpop, Dreamwave, SynthwaveПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72303EDB8734BC4827315E0C0F001CD12F5BAFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915445   (592272) от 05.07.2015
+
+Timecop1983 - Reflections (2015) Limited Edition [MP3|320 кб/с]<80's Retrowave, Synthpop, Dreamwave, Synthwave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before Dawn (Intro) (01:53)
+02. Don't Let Go (Feat. Dana Jean Phoenix) (04:16)
+03. New Horizons (04:10)
+04. Tonight (Feat. BackInTheFuture) (05:01)(   Читать дальше...   )Жанр: 80's Retrowave, Synthpop, Dreamwave, SynthwaveПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1233E7C549FA69114822C1E2B22BF74A0514C1AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915349   (592253) от 05.07.2015
+
+VA - Dance Classics (2CD Compilation) (1997) [MP3|320 кб/с]<Eurodance, House, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Varios - Dance Classics Mix (Radio Edit) (03:09)
+02. Technotronic - Pum Up The Jam (03:37)
+03. Corona - The Rhythm Of The Night (04:25)
+04. Culture Beat - Mr. Vain (06:35)(   Читать дальше...   )Жанр: Eurodance, House, Euro HouseПродолжительность: 02:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D738921552DDA36A2538CC4B05F61870B842FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915232   (592252) от 05.07.2015
 
 Bad Boys Blue - Bad Boys Best 2001 (2001) Compilation [FLAC|image + .cue]<Europop, Synth-pop, Disco>
@@ -646,122 +762,6 @@ Milk And Coffee (или Milk & Coffee) - итальянская группа, о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A619CA91CBEA27DC271F56B5BBF1ECD2456C626A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550947   (591195) от 13.05.2022
-
-Charli XCX - Crash (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Electropop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crash (2:11)
-02. New Shapes (3:20)
-03. Good Ones (2:17)
-04. Constant Repeat (3:09)(   Читать дальше...   )Жанр: ElectropopПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39760FC12E827613FE69CD7C6B99FFBD42806D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916692   (590399) от 09.07.2015
-
-Sky Ferreira - Night Time, My Time (2014) Limited Edition 2CD [OGG|458-572 кб/с]<Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590399.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Boys
-02. Ain't Your Right
-03. 24 Hours(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39D90D7ADF36D65470D0F23377E1FB0584F643C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916707   (590381) от 09.07.2015
-
-VA - Tango & Beatles (2012) [MP3|320 кб/с]<Argentina Tango, Covers>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tango Tripping Project feat. Ituana - Michelle [03:02]
-02. Le Griser feat. Dew - Dear Prudence [04:28]
-03. Meloscience Corp. - Come Together [04:39]
-04. Corcovado Frequency - Oh! Darling [03:32](   Читать дальше...   )Жанр: Argentina Tango, CoversПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CCEDAB1962EF12C740D4271B3ED768EF214A86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916816   (590380) от 09.07.2015
-
-Years & Years - Communion (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foundation
- 02. Real
- 03. Shine
- 04. Take Shelter(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720634245003C4A18823E9A4FDCA6E83A07FB72C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1736595   (50136) от 13.07.2024
-
-VA - Relaxing Sleep Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-02. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 - II. Largo (2:46)
-03. Anastasia Calmus - Sì dolce è'l tormento, SV 332 (Transcr. for Piano by Vyacheslav Gryaznov) (3:07)
-04. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 - No. 7, Ständchen (6:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568F7BA3990BDCFA2F9ACB504610FCA5BD148E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738997   (48264) от 31.07.2024
 
 Lindsey Stirling - 7 Albums (2013-2024) [MP3|320 Kbps] <Pop>
@@ -746,6 +717,35 @@ VA - Piano and Violin Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B56F309750D0CB913E0A3A145743EBEFD83F5178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762188   (36239) от 24.11.2024
+
+VA - Top Romantic Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)
+04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AE4A03CF7944723F01AAC03566BC38A09B7390
 ```
 
 https://mybot314.ru/tekegram_catalog/

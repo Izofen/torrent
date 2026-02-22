@@ -1,3 +1,38 @@
+###  Публикация: 519066   (637599) от 06.07.2012
+
+VA-Impulsive! - Revolutionary jazz reworked (2005) [MP3|320 кб/с]<Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Russell / A Helluva Town (Sa Ra Go remix)
+02. Charles Mingus / II BS (RZA's Mingus Bounce mix)
+03. Chico Hamilton / El Toro (Mark De Clive Low remix)
+04. Gabor Szabo / Mizrab (Prefuse 73 remix)
+05. Dizzy Gillespie / Swing Low, Sweet Cadillac (Gerardo Frisina extended remix)
+06. Clark Terry & Chico O'Farrill / Spanish Rice (DJ Dolores extended remix)
+07. Archie Shepp / Attica Blues (The Chief Xcel (Of Blackalicious) remix)
+08. Pharoah Sanders / Astral Traveling (Boozoo Bajou remix)
+09. Yusef Lateef / Bamboo Flute Blues (Kid Koala remix)
+10. Oliver Nelson / Stolen Moments (Telefon Tel Aviv remix)(   Читать дальше...   )Жанр: JazzПродолжительность: 51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F71E830776E7CD22E110A3BD37DEEB98BE5E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518820   (637587) от 06.07.2012
 
 [Графика] Digital Art (05.07.2012)
@@ -684,39 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D4F1E9CF516A27F80D52E43D0F9A40851C14F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519403   (637488) от 06.07.2012
-
-Andy Moor - Zero Point One (06.07.2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Andy Moor - Zero Point One (06.07.2012)
-
-Год: 06.07.2012
-Жанр: Trance
-Продолжительность: 02:41:51Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Andy Moor - Atmospherica (2:37)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D2A73EACBF8588847150E3DD0A96E8471B1087
 ```
 
 https://mybot314.ru/tekegram_catalog/

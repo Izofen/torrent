@@ -1,3 +1,119 @@
+###  Публикация: 1223409   (673459) от 05.05.2018
+
+VA - Dreamers Lounge (Easy Listening And Adult Casual Songs) (2018) [MP3|320 Kbps] <Pop, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandi See - Crow Maiden
+02. Angela Predhomme - Just Like Magic
+03. Patrick Joseph - Foot In The Door
+04. Larry Warren - You Can Change The World(   Читать дальше...   )Жанр: Pop, DowntempoПродолжительность: 02:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09233C727C345746C2D196992FDC1FEFC89014CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223614   (673457) от 05.05.2018
+
+The Simon Orchestra - Mr. Big Shot (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Big Shot (7:59)
+02. Love Is Comin' On (9:15)
+03. Don't Give Up (8:37)
+04. I Close My Eyes And Count To Ten, Dancing Suite (8:20)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985439CDACF8A552E05DB7F60F935E810632DE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223578   (673308) от 05.05.2018
+
+Pattie Brooks - Love Shook & Our Ms Brooks (2009) 2 Albums (1977, 1978), Reissue CD, Funky Town Grooves [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два диско-альбома Pattie Brooks, продюсером которых был не безызвестный Simon Soussan.01. Girl Don't Make Me Wait (10:47)
+02. Love Shook (8:34)
+03. Let's Make Love To The Music (8:46)
+04. Pop Collage Medley - Popcorn, Black Is Black, Na Na Hey Hey Kiss Him Goodbye (9:18)Жанр: Electronic, DiscoПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7AF50E43ED06B54EB1668EC73D59CA9E9623734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536278   (672657) от 13.03.2022
+
+Bryan Adams - So Happy It Hurts (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Happy It Hurts (3:35)
+02. Never Gonna Rain (3:18)
+03. You Lift Me Up (3:08)
+04. I've Been Looking For You (2:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D1D6AEA2800F9CFC5AE768FDAAFAE2D423D499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536351   (672555) от 13.03.2022
 
 Люся Чеботина - The End (2021) [FLAC|Lossless|WEB-DL|tracks] <Europop, Ballad, RnB, Swing, Dance-pop>
@@ -629,122 +745,6 @@ VA - Disco Tape Vol 1 (2016) [MP3|320 Kbps] <Disco, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E274D247F76A9BE68C29F6934769E1D22059C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030962   (670043) от 02.07.2016
-
-Sarah Brightman - Greatest Hits (2009) 2CD [FLAC|Lossless|image + .cue] <Europop, Vocal, Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Symphony 	04:47
-02. 	Arrival 	03:17
-03. 	Running 	06:09
-04. 	Harem 	05:45(   Читать дальше...   )Жанр: Europop, Vocal, ClassicalПродолжительность: 02:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8728D57B7ED7DAA9C0C7BE4E7312344F4CC85F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223955   (669773) от 07.05.2018
-
-Dear Rouge - Black To Gold (2015) [FLAC|Lossless|tracks] <Electronic Pop Rock, Dance Rock, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black To Gold
-02. Best Look Lately
-03. Nostalgia
-04. I Heard I Had(   Читать дальше...   )Жанр: Electronic Pop Rock, Dance Rock, Female VocalПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B288B2C5680272AB2C02902E74662AC0325A04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223935   (669766) от 07.05.2018
-
-Dear Rouge - Phases (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic Pop Rock, Dance Rock, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wicked Thing
-02. Live Through The Night
-03. Stolen Days
-04. Boys & Blondes(   Читать дальше...   )Жанр: Electronic Pop Rock, Dance Rock, Female VocalПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EA9EBCED04905A071D4A4393CC15C51535A80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223767   (669541) от 07.05.2018
-
-Fancy - 30 Years: The New Best Of (2018) Compilation [FLAC|Lossless|image + .cue] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Flames Of Love (3:30)
-02.Slice Me Nice (4:07)
-03.Come Back And Break My Heart (4:03)
-04.We Can Move A Mountain (3:50)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72F1CFFA90C1AF6D486A7DD1226F1A9B1123794
 ```
 
 https://mybot314.ru/tekegram_catalog/

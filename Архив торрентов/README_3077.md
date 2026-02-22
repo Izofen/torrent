@@ -1,3 +1,29 @@
+###  Публикация: 532604   (536852) от 08.08.2012
+
+Журнал | Cosmopolitan Shopping № 08 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cosmopolitan Shopping — незаменимый гид по стильным покупкам. Это модный, интересный и полезный журнал, который всегда готов ответить на три главных вопроса в жизни женщины: что купить? Где купить? С чем носить?Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CA78F1FC74DC02320B04581116CCF576921679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532506   (536846) от 08.08.2012
 
 Nature HD Wallpapers (08.08.12) [Wallpapers]
@@ -680,35 +706,6 @@ Ashampoo Snap - программа для создания скриншотов 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 696996   (536688) от 05.09.2013
-
-Myselor - Parallel Consciousness (2013) LP [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luminous Thread (Original Mix)
-02. Sly Wish (Original Mix)
-03. Dark Horizon (Original Mix)
-04. Alive (Insom Remix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C2906F7FCCC9A36C410F91A41BEFAB9117AF24
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,35 @@
+###  Публикация: 713014   (402540) от 20.10.2013
+
+Varios - Колокольные звоны - The Chimes (1980) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Church bells/Russian Falc>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_402540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Троице-Сергиева лавра:
+1. Звонница Духовской церкви  5.38
+2. Большая Лаврская колокольня  12.02
+3. Колокольня Ново-Девичьего монастыря  3.20
+Сторона 2
+1. Звонница Псково-Печерского монастыря  21.34Жанр: Church bells/Russian FalcПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA1367B21226442B9F0C0E7224A1B260E72BDF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564553   (402498) от 24.10.2012
 
 Wallpapers Sexy Girls (22.10.12) [Wallpapers 16+]
@@ -653,36 +685,6 @@ Sports Wallpaper (23.10.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFB16CFEEB0FD0F568A8925E9BCF348F08FD806A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564908   (402436) от 24.10.2012
-
-[Wallpapers] Nature Wallpapers №7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402436.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Wallpapers №7
-Название: Nature Wallpapers №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42419FE9FEF24745930F30B06335D884F7C53EA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,175 @@
+###  Публикация: 1817052   (3551) от 09.09.2025
+
+Skyharbor - Studio Albums (3 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skyharbor - рок-группа из Индии, образованная в 2008 году2012 - Blinding White Noise: Illusion & Chaos
+2014 - Guiding Lights
+2018 - Sunshine DustЖанр: Progressive MetalПродолжительность: 02:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0474B38978AAD1728E56BA52E6D21D1EBE9AC7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792383   (3486) от 10.09.2025
+
+In Mourning - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3486.jpg" />
+</div>
+
+
+###  Подробнее
+
+In Mourning - шведская метал-группа, образованная в 2000 году.2008 - Shrouded Divine
+2010 - Monolith
+2012 - The Weight Of Oceans
+2016 - Afterglow(   Читать дальше...   )Жанр: Progressive Melodic Death MetalПродолжительность: 09:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8256A23E63A238143D3D651E642F989C30AB0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817348   (3456) от 10.09.2025
+
+Orchestra Electrecord + Grupul vocal «Cantabile» - Non Stop Dancing I (1971) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Jazz-Funk, Soul, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aa Venus
+Ab Sugar, Sugar
+Ac Ob-La-Di, Ob-La-Da
+Ad Tzuri, Tzuri(   Читать дальше...   )Жанр: Jazz-Funk, Soul, DiscoПродолжительность: 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD390D04CFE8A254AE87D3CE107E50B0042370C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670652   (3201) от 12.09.2025
+
+Antimatter - Studio Albums (11 releases) (2001-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Antimatter — группа, образованная в 1998 году бывшим басистом Anathema Дунканом Паттерсоном и его старым другом Миком Моссом.2001 - Saviour
+2003 - Lights Out
+2005 - Planetary Confinement
+2007 - Leaving EdenЖанр: Progressive RockПродолжительность: 12:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753D371EC243A53626F0D8851ACDA89BAC6BB9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817647   (3125) от 12.09.2025
+
+Hypermass - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hypermass - метал-группа из Норвегии, образована в 2012 году.2015 - Clouded Visions (EP)
+2022 - Empyrean
+2025 - Apparition Day (EP)Жанр: Melodic Death MetalПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329A08C375C03CEF7AA5D5BDB9528FC389639EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685769   (2667) от 15.09.2025
+
+Demon Hunter - Studio Albums (13 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu/Groove Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Demon Hunter — американская группа, из Сиэтла, штат Вашингтон, основана в 2000 году.2002 - Demon Hunter
+2004 - Summer Of Darkness
+2006 - The Triptych
+2007 - Storm The Gates Of HellЖанр: Nu/Groove Metal, MetalcoreПродолжительность: 12:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B992995FA9CD1D101D6AA02D61366C2512F2D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818224   (2609) от 15.09.2025
 
 Caliban - Studio Albums (16 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
@@ -565,181 +737,6 @@ Rage — немецкая хэви-метал группа, основанная
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFCB17C237F91FE3648F97A1BD11C93E048F2391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633139   (858) от 26.09.2025
-
-Paradox - Studio Albums (9 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash/Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paradox — немецкая метал-группа, образованная в Вюрцбурге в 1986 году.1987 - Product of Imagination
-1989 - Heresy
-2000 - Collision Course
-2008 - ElectrifyЖанр: Progressive Thrash/Power/Speed MetalПродолжительность: 08:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0591D9EA2439308421092C674656A86E607E37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820085   (763) от 26.09.2025
-
-Vildhjarta - Studio Albums (5 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Deathcore, Djent>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vildhjarta — шведская метал-группа из Худиксвалля, образованная в 2005 году. Группа играет в стиле джент, вдохновлённом Meshuggah, используя сильно пониженные гитары, минорные гармонические аккорды, резкие стаккато-риффы и наслоения реверберирующих гитар и атмосферных эффектов.2009 - Omnislash (EP)
-2011 - Masstaden
-2013 - Thousands of Evils (EP)
-2021 - Masstaden Under Vatten(   Читать дальше...   )Жанр: Progressive Metal, Deathcore, DjentПродолжительность: 03:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E62E02E033361C36A90415F4E3A8220E249CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638474   (615) от 27.09.2025
-
-Revocation (ex-Cryptic Warning) - Studio Albums (11 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Revocation — американская метал-группа из Бостона, штат Массачусетс. Была основана в 2000 году как Cryptic Warning. В 2006 сменила название на Revocation.2008 - Empire Of The Obscene
-2009 - Existence Is Futile
-2011 - Chaos Of Forms
-2012 - Teratogenesis (EP)Жанр: Technical Death/Thrash MetalПродолжительность: 08:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9854B1F30D43785A508A1667C6FB63E7D0FEB943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686726   (591) от 27.09.2025
-
-Mors Principium Est - Studio Albums (9 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mors Principium Est - мелодик-дэт-метал группа с участниками из Финляндии и Великобритании. Основана в 1999 году.2003 - Inhumanity
-2005 - The Unborn
-2007 - Liberation = Termination
-2012 - ...And Death Said LiveЖанр: Melodic Death MetalПродолжительность: 07:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3812337D053039A139A526E65B6B87090809A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571320   (155) от 29.09.2025
-
-Manowar - Studio Albums (19 releases) (1982-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Manowar — американская хэви-метал-группа из Оберна, штат Нью-Йорк, основана в 1980 году.
-Группа известна воинской тематикой и эстетикой своих песен, приверженностью «истинному металу» (true metal) и частым обращением к скандинавской мифологии.1982 - Battle Hymns
-1983 - Into Glory Ride
-1984 - Hail To England
-1984 - Sign Of The Hammer(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 13:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3FB3F76D3777EE81EC6438409862EDFBF68D032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548439   (140) от 29.09.2025
-
-Motörhead (Motorhead) - Studio Albums (23 releases) (1977-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motörhead — британская рок-группа, образованная в июне 1975 года басистом, певцом и автором песен Иэном Фрейзером Килмистером (1945–2015). Группу часто считают одним из первых участников NWOBHM, которая вдохнула новую жизнь в хэви-метал в конце 1970-х — начале 1980-х годов.1977 - Motörhead
-1979_1 - Overkill
-1979_2 - Bomber
-1979_3 - On ParoleЖанр: Heavy MetalПродолжительность: 17:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82FBD1FA270076AFD781208BDAC208F7D3B74955
 ```
 
 https://mybot314.ru/tekegram_catalog/

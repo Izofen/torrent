@@ -1,3 +1,90 @@
+###  Публикация: 1491059   (913593) от 23.08.2021
+
+PM Warson - True Story (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Losing and Winning (4:10)
+02. Seen You Around (4:24)
+03. In Conversation (4:14)
+04. Say the Word (3:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12BCD678EBE6C059871E80E2E803AE7612DCF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367895   (913502) от 17.03.2020
+
+V.A. - Audiophile Analog Collection Vol. 2 (2020) [FLAC|24/192|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Vallee Trio - Lights of Barcelona
+02. Trio de Curda - Libertango
+03. Monique Page; Regis Rousseau - Seven Last Words of Christ Introduction
+04. Sonny Boy Williamson - The Sky Is Crying(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B712C45DF67367AFE08A896D1935744A213162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990205   (913398) от 24.02.2016
+
+Hughes Taylor - Hear My Melody (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streams (03:40)
+02. Hold You Tight (06:36)
+03. You'll Never Be Alone (03:36)
+04. Melody (06:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C8D4FFF5D5A1911819E6C302FF1FEE649F6D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 865635   (912955) от 02.02.2015
 
 Diana Krall - Wallflower (2015) Deluxe Edition [FLAC|Lossless]<Vocal Jazz>
@@ -658,93 +745,6 @@ The Joey Gilmore Band - Respect The Blues (2016) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFE84A19F97A12C350B5295CC75B0A250A38007F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097809   (910514) от 29.01.2017
-
-Snowy White - Released (2016) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Peace (4:03)
-02. The Blues Talking (5:14)
-03. It's All Down To Me (3:48)
-04. It's Always Love (That Breaks Your Heart) (4:12)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871A58C5D232D93B62C21D14A638A7D3866F47DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097828   (910511) от 29.01.2017
-
-John Mayall - Talk About That (2017) [MP3|320 Kbps] <British Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk About That (4:25)
-02. It's Hard Going Up (4:14)
-03. The Devil Must Be Laughing (6:57)
-04. Gimme Some Of That Gumbo (3:56)(   Читать дальше...   )Жанр: British Blues, Blues RockПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC04F21D219A40637CBB68064B488876F92E459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990694   (910047) от 26.02.2016
-
-Thierry Lang - Guide Me Home (2000) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Prelude To Sadness [05:41]
- 02.In Your Own Sweet Way [02:40]
- 03.Guide Me Home 'Jazz' [04:24]
- 04.The Days Of Wine and Roses [05:04](   Читать дальше...   )Жанр: Post-Bop, CoolПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BA7F9FCF9E12C67CDA681DBFBA0E31DB1B2C6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

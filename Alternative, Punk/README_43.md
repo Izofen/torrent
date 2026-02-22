@@ -1,61 +1,3 @@
-###  Публикация: 1701656   (116203) от 22.02.2024
-
-Smash Into Pieces - 44 Releases (2009-2024) [MP3|320 Kbps] <Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116203.jpg" />
-</div>
-
-
-###  Подробнее
-
-2013 Unbreakable
-2015 The Apocalypse DJ
-2017 Rise and Shine
-2018 EvolverЖанр: Alternative rockПродолжительность: 09:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330EE62FB2DF1CA5453FBE0C3E386417FF84D756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719210   (110601) от 29.04.2024
-
-Billy Idol - Rebel Yell (1982) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rebel Yell [00:04:48]
-02 - Daytime Drama [00:04:04]
-03 - Eyes Without A Face [00:04:59]
-04 - Blue Highway [00:05:07](   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, PunkПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D43952A2933CD5EB4629685B307189FA8614EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719225   (110578) от 29.04.2024
 
 Sidilarsen - Que la lumiere soit (2024) [MP3|320 Kbps] <Rapcore, Frenchcore, Technometal>
@@ -792,6 +734,76 @@ Aranda - Stop The World (2012) [MP3|320 кб/с]<Alternative Modern Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C05DAB83E7ED67AAC30E46A3EE54142A76C963D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463309   (96199) от 10.03.2012
+
+Mim - Illegal Cure (2012) [MP3|320 кб/с]<Indie|Alternative|Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 Check your progress [01:32]
+02 Euphoria theory [02:05]
+03 Choice [03:04]
+04 Interpretation [02:07]
+05 Alone [02:46]
+06 Rain [02:04]
+07 Reflex [02:54]
+08 Give me freedom [02:08]
+09 Like a joke [02:30]
+10 Stay positive [01:09](   Читать дальше...   )2012Жанр: Indie,  Alternative, ElectronicПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2663DE7CAB2C3C09DCBE2B6A2974AA0A15249902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463932   (95876) от 07.03.2012
+
+Elissa P. - Quickie Calendar (2010) [MP3|320 kbps]<Alternative Rock / Indie / Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Good Egg/Bad Seed (4:10)
+02. The Ink Grows Cold (4:29)
+03. Good Comics (5:13)
+04. Bully Waltz (4:35)
+05. Color Therapy (3:49)
+06. Ode To Margot (4:10)
+07. Paintbrush (4:19)
+08. City Kids (4:02)
+09. I'd Get To Know You/Bobo Brazil (5:54)
+10. It's Not It! (4:07)(   Читать дальше...   )Жанр: Alternative Rock, Indie & Lo-FiПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE22B7F9A4098B3EDA497A3E7B10B26D2EFB52BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

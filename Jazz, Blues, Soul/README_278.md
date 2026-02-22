@@ -1,3 +1,90 @@
+###  Публикация: 1235566   (558752) от 12.07.2018
+
+Teddy Charles - Seven Classic Albums (1956 - 1959) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558752.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Variations On A Motive By Bud [4:19]
+02. Wailing Dervish [4:29]
+03. Further Out [5:42](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 04:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8625D809940D528AFEEB4988929B4D744863A40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305202   (558386) от 29.05.2019
+
+John Kirby - 1941-1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coquette [3:02]
+02. Royal Garden Blues [1:45]
+03. Close Shave [2:32]
+04. Bugler's Dilemma [2:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FCF662F4E36B29C9BAC73A624F39768FA5F460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153591   (558266) от 27.07.2017
+
+Wes Montgomery - Down Here on the Ground (1989) [FLAC|Lossless|image + .cue] <Hard Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Song (2:19)
+02. Georgia On My Mind (2:44)
+03. The Other Man's Grass Is Always Greener (2:34)
+04. Down Here On The Ground (3:38)(   Читать дальше...   )Жанр: Hard Bop, Contemporary JazzПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64DB72CEFCE8B2F18C7E82D9D3B63305D43D69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153584   (558255) от 27.07.2017
 
 Miles Davis - Tutu (1986) [FLAC|Lossless|image + .cue] <Jazz-Funk>
@@ -654,90 +741,6 @@ Two Timer - The Big Easy (2018) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9EFAA613DDAB41927834DFC4F3A77CC7A7D1A7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235995   (556282) от 15.07.2018
-
-Keb Mo - Live - That Hot Pink Blues Album (2016) [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: BluesПродолжительность: 01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318AB95C4E4431131501415487930492439329EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305707   (556216) от 01.06.2019
-
-Scott Hamilton Quartet - Dean Street Nights (2014) Woodville Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Found Out About Love [7:42]
-02. Sweet & Lovely [8:52]
-03. Jitterbug Waltz [13:13]
-04. If I Had You [5:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963AA070D240105CD6E1B5BE3BBE3FA899478919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306048   (555941) от 02.06.2019
-
-Sofia Hoffmann - One Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Easy
-02 – One Last Time
-03 – Push It Or Pull It
-04 – Vaisakhan(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1A36ACA63BE2D047F6B69BDEEA63FDDFBF93CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

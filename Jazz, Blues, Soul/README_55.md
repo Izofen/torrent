@@ -1,3 +1,104 @@
+###  Публикация: 742356   (979225) от 06.01.2014
+
+Stuff Smith and ... - 3 альбома (1995-2005) [FLAC|Lossless]<Swing, Bop, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. How High The Moon [05:01]
+02. Blues In The Dungeon [08:37]
+03. Skip It [05:48]
+04. S'posin' [05:53]
+05. Willow Weep For Me [04:36]
+06. This Can't Be Love [08:50]Жанр: Swing, Bop, Easy Listening |Формат: track + cueПродолжительность: 02:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4BEFFCEE70108F52F2B45DF61B16DAD6151C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742430   (979224) от 06.01.2014
+
+Andy Sheppard, Michel Benita, Sebastian Rochford - Trio Libero (2012) [FLAC|Lossless]<Jazz, ECM>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Libertino (3:41)
+02. Slip Duty (3:40)
+03. I'm Always Chasing Rainbows (4:18)
+04. Spacewalk, Part 1 (3:13)
+05. Dia da Liberdade (4:21)
+06. Land of Nod (3:46)
+07. The Unconditional Secret (4:02)
+08. Ishidatami (3:48)
+09. Skin / Kaa (6:09)
+10. Spacewalk, Part 2 (3:50)(   Читать дальше...   )Жанр: Jazz, ECMПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7EF0FB354B4F1A27F1E0A2BD9350800618CC7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742428   (979221) от 06.01.2014
+
+Steve Kuhn Trio - Wisteria (2012) [FLAC|Lossless]<Jazz, ECM>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Chalet (6:28)
+02. Adagio (7:06)
+03. Morning Dew (6:37)
+04. Romance (4:29)
+05. Permanent Wave (6:38)
+06. A Likely Story (6:45)
+07. Pastorale (6:19)
+08. Wisteria (5:51)
+09. Dark Glasses (5:54)
+10. Promises Kept (5:34)(   Читать дальше...   )Жанр: Jazz, ECMПродолжительность: 01:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434A640F87BACC1F7EBD55BAE6D23586E170EE25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356332   (979196) от 30.01.2020
 
 Paquito D'Rivera & The United Nation Orchestra - Live at Manchester Craftsmen's Guild (1997) MCG Jazz [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz, Post-Bop>
@@ -701,108 +802,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:009AEC8FC29D114ECEC8660ED9451848FB990219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615330   (977598) от 08.02.2013
-
-VA - The Golden Age Of Swing "Big Band Legends" (1995-1997) 3CD[FLAC|Lossless]<Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Russell - Doctor Blues [03:16]
-02. Fletcher Henderson - New King Porter Stomp [03:12]
-03. Horace Henderson - I'm Rhythm Crazy Now [03:20]
-04. Chick Webb - That Naughty Waltz [02:59]
-05. Count Basie - Miss Thing [05:43]
-06. Earl Hines - G.T. Stomp [02:47]
-07. Andy Kirk - Big Jim Blues [03:00]
-08. Harlan Leonard - Hairy Joe Jump [03:14]
-09. Duke Ellington - Jack The Bear [03:22]
-10. Louis Armstrong - Harlem Stomp [03:05](   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:05:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742853   (977054) от 07.01.2014
-
-Benedikt Jahnel Trio - Equilibrium (2012) [FLAC|Lossless]<Jazz, ECM>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Gently Understood (5:02)
-02. Sacred Silence (7:12)
-03. Moorland & Hill Land (13:52)
-04. Wrangel (9:01)
-05. Augmented (4:41)
-06. Hidden Beauty (4:19)
-07. Equilibrium (9:39)Жанр: Jazz, ECMПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758B38997280BA2BA35911D35A2179EAEDC20B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742856   (977050) от 07.01.2014
-
-Jose Luis Monton - Solo Guitarra (2012) [FLAC|Lossless]<Jazz, ECM>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Rota (5:52)
-02. Española (5:08)
-03. Son & Kete (3:54)
-04. Air (3:30)
-05. Altolaguirre (2:51)
-06. Con permiso (4:52)
-07. Al oido (4:39)
-08. Conclusión (5:49)
-09. Detallitos (4:59)
-10. Hontanar (5:22)(   Читать дальше...   )Жанр: Jazz, ECMПродолжительность: 00:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE3AB0B2C151E2985B95B013ECC80E166886CC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

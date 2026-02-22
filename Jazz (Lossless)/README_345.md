@@ -1,32 +1,3 @@
-###  Публикация: 1718816   (110723) от 27.04.2024
-
-VA - Summer Jazz & Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Otis Redding - Stand by Me (2:52)
-02. John Coltrane - My Favorite Things, Pt. 1 (Single Version) (2:47)
-03. Wilson Pickett - In the Midnight Hour (2:37)
-04. Ray Charles - Mess Around (2:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0142BFD956FADD249ABF5CA486CE3AE38871798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718818   (110722) от 27.04.2024
 
 VA - Summer Jazzy Sounds (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -745,6 +716,35 @@ Bobby Watson - At the Gouvy Festival: In The Groove (2000) Challenge Records [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DFE943F1F7ADEB55B63A68D2BDF5E72FB5B8736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720344   (110289) от 03.05.2024
+
+Raphael Imbert, Johan Farjot & Guests - Les 1001 Nuits du Jazz: Live au Bal Blomet (2020) Music Development [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues for Angels [3:13]
+02. Gee, Baby, Ain't I Good to You [3:14]
+03. Yekermo Sew [9:11]
+04. All to Myself Alone [4:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Vocal JazzПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625EED25021BB53EC501B0A707687BAD6230FAD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

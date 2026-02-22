@@ -1,3 +1,84 @@
+###  Публикация: 633919   (912782) от 24.03.2013
+
+Alex Clare - Too Close (2nd Version) (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dubstep, SoulПродолжительность: 00:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC7A926F092DECF6E09E9817127136D78834CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634057   (912663) от 24.03.2013
+
+Louna - Проснись и Пой! (live) (2012) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертная видеосъемка и аудиозапись были осуществлены на большом сольном концерте группы Louna, который состоялся 26 октября 2012 года в московском клубе MILK. Интервью с группой было снято в помещении фотостудии "GetShot" (Москва). В фильме также использованы видеоматериалы выступлений группы на фестивалях "Нашествие-2012" и "Кубана-2011". (   Читать дальше...   )DVD1:
+01. Проснись и пой
+02. Кризис Крайст Суперстар
+03. Время Х(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADCA78A0946C8FA766A15CEEDC1CEA31BF5FAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634137   (912642) от 24.03.2013
+
+Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF50E9C7ED836031A446EE2229C27388CE3DBB85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 757926   (911782) от 19.02.2014
 
 The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
@@ -631,87 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98151821390053DD32F5389D34571A22020D3391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350780   (908696) от 20.03.2020
-
-Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Videos at Ozzy Osbourne: (00:11:03)
-2019 Ozzy Osbourne - Under the Graveyard [1080p] 2020 (00:05:47)
-2019 Ozzy Osbourne & Post Malone - Take What You Want (Live Video) [1080p] 2019 (00:02:46)
-2020 Ozzy Osbourne - Straight to Hell [1080p] 2020 (00:03:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782A59B121F5F3731DA24FB91E3C4C3EE33CDA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635880   (907830) от 27.03.2013
-
-Alisher - Money (2013) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145F5471FA6A3BAE2A8371EF5339D757825FC697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635889   (907822) от 27.03.2013
-
-Vocal Dj Esther - Crazy For You (2013) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9F9FE7FBBF669BB785F4E3E9E1551BFE38D7DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

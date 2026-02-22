@@ -1,3 +1,93 @@
+###  Публикация: 1030833   (670256) от 02.07.2016
+
+Greg Howe - Sound Proof (2008) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro
+02 - Emergency Exit
+03 - Tell Me Something Good
+04 - Connoisseur Part 1(   Читать дальше...   )Жанр: Jazz, Fusion, RockПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2083D0C73F75E997A3A64B7C9027F478CD947326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223943   (669777) от 07.05.2018
+
+John Patitucci - John Patitucci (1988) [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Growing (4:35)
+02. Wind Sprint (6:10)
+03. Searching, Finding (5:05)
+04. Baja Bajo (5:46)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F67EA8CCF1E6A7AC9B38FB57DDF9C0DA5891C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223947   (669774) от 07.05.2018
+
+Kathy Boye & The DTG Gang - I Feel Alive (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французская блюзовая исполнительница Кэти Бойе́ с бандой DTG Gang успешно гастролирует по Европе уже не первый год.
+Ее проникновенный, страстный и мощный голос вместе с ее игрой на губной гармони мало кого оставляют равнодушными.
+Kathy Boyé - Vocals, Piano, Harmonica
+Mister Tchang - Guitars, Vocals(   Читать дальше...   )01. I Feel Alive  05:11
+02. Well on My Road  03:43
+03. No More Baby  04:20
+04. Crazy 16 Blues  06:23(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6574FDC2CC23DCF7AD8D4FB77066A2CB8EE85DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223882   (669765) от 07.05.2018
 
 Joyann Parker - Hard To Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Rockin' Blues, Blues Soul>
@@ -658,93 +748,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19135974D121391821C6066E5544133B4FD8FF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137205   (667996) от 26.05.2017
-
-The Walter Norris Quartet - Sunburst (1991) Concord Jazz [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunburst [05:45]
-02. What's New [07:45]
-03. Bird [04:20]
-04. Naima [05:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCA6858FF9B401A03B417B17BAABC2CF94D5D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137426   (667990) от 26.05.2017
-
-The Zawinul Syndicate - The Immigrants (1988) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March Of The Lost Children (4:16)
-02. Criollo (4:21)
-03. Shadow And Light (5:06)
-04. King Hip (5:04)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC83B129BBF392B352973B93BB93FB788E353FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137412   (667942) от 26.05.2017
-
-Erin Boheme - What Love Is (2006) Сoncord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone To Love [04:08]
-02. One Night With Frank [04:17]
-03. Let's Make The Most Of A Beautiful Thing [04:42]
-04. What Love Is [05:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFD3932EFD4E6220C635B3EB3F393267DB612F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

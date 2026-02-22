@@ -1,3 +1,38 @@
+###  Публикация: 587074   (225888) от 09.12.2012
+
+V.A. - Суперхиты дискотеки 90-х - Золотые баллады (2011) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haddaway - I Miss You
+02. East 17 - Thunder
+03. Seal - Crazy
+04. Simply Red - Stars
+05. Rialto - Monday Morning
+06. Chris Rea - The Road To Hell (Part II)
+07. Coolio - Gangsta's Paradise
+08. Sarah Brightman - Eden
+09. Shakespears Sister - Stay
+10. East 17 ft. Gabrielle - If You Ever(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424862   (225873) от 18.11.2020
 
 The Beloved - Happiness (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, House, Synthpop, 90s>
@@ -726,35 +761,6 @@ Michael Jackson - Bad (1987) [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6055395D5DBDFE641A75A22B08D65DAC07BA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585696   (220252) от 23.10.2022
-
-Carly Rae Jepsen - The Loneliest Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surrender My Heart
-02. Joshua Tree
-03. Talking to Yourself
-04. Far Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8493BAB1077C601F1860B6341F7DDBACAE406986
 ```
 
 https://mybot314.ru/tekegram_catalog/

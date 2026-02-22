@@ -1,3 +1,32 @@
+###  Публикация: 1585820   (219187) от 24.10.2022
+
+Zach Ryan - Wanderer (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In My Arms (3:30)
+02. Drown Me In Your Love (3:46)
+03. Endless Blue (3:44)
+04. Forever Tonite (3:56)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F17058EB3A2CCED510E9557D2F12727EA9111164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425784   (219164) от 22.11.2020
 
 Mal Waldron - You And The Night And The Music (1983) 2005, King Record [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -737,41 +766,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E724544809C18DEFC00F8A1CFF535C52D666288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852797   (218275) от 24.12.2014
-
-VA - The Greatest Voices & Unforgettable Evergreens CD1 (2000) [APE|Lossless]<Jazz, Folk, Pop, Traditional>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Memories Are Made of This (1955) - Dean Martin
-02. We'll Meet Again (1962) - Vera Lynn
-03. Sentimental Journey(1959) - Dinah Shore
-04. Unforgettable (1963) - Peggy Lee
-05. P.S. I Love You (1961) - Kay Starr
-07. Portrait of My Love (1960) - Matt Monro
-08. They Can't Take That Away From Me (1958) - June Christy
-09. Change Partners (1961) - Vic Damone
-10. A Nightingale Sang in Berkeley Square (1962) - Bobby Darin
-11. Baby, It's Cold Outside (1959) - Dean MartinЖанр: Jazz, Folk, Pop, TraditionalПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4B5AA87DF7CC8CD254BC123A5953ED93E11B4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

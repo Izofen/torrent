@@ -1,3 +1,32 @@
+###  Публикация: 1106303   (873822) от 19.02.2017
+
+Max Greger und sein Orchester - Juke Box Hits (2007) [FLAC|Lossless|tracks + .cue] <Big Band, Smooth, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_873822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  B.-R. Boogie  (02:51) 
+02|  Maxi Rock  (02:16) 
+03|  Rumba Kautschuk  (02:33) 
+04|  Bongo Rock  (02:34) (   Читать дальше...   )Жанр: Big Band, Smooth, InstrumentalПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AC8065C3A553A9F1BEE811C0C5FBABA4ED60BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105136   (873821) от 19.02.2017
 
 Al Di Meola - Scenario (1983) Japanese Edition [FLAC|Lossless|image + .cue] <Jazz, Jazz Rock, Fusion>
@@ -755,35 +784,6 @@ Club Des Belugas - How To Avoid Difficult Situations (2021) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9806F8A230AD4444344584A70244C42D80A2CDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374759   (871357) от 11.04.2020
-
-Harry Allen - I Won't Dance (1999) BMG Japan [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O Pato [5:23]
-02. Corcovado (Quiet Nights) [3:56]
-03. Desafinado [7:02]
-04. Once I Loved [4:00](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72FC1DC75167C1585C29CBE55F9DCBD11F71E4E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

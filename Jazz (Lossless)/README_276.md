@@ -1,32 +1,3 @@
-###  Публикация: 1636266   (235643) от 29.05.2023
-
-People Like Us - In Heaven (1997) Koch Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight Ahead [7:35]
-02. Think... Pretty [8:45]
-03. Hofstra Goes to Heaven [8:05]
-04. The Road Ahead [12:55](   Читать дальше...   )Жанр: Mainstream Jazz, Post BopПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A82485A266CCCE3714C72BEA7594D085AE309C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641154   (235604) от 21.06.2023
 
 Oliver Nelson & Nobuo Hara - In Tokyo (1970) 2013, Columbia [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Big Band>
@@ -745,6 +716,35 @@ Toshiko Akiyoshi Jazz Orchestra - Desert Lady / Fantasy (1994) Columbia [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED96A20F45981360E5867A489A6AC6E328FA6535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637244   (235163) от 03.06.2023
+
+Anita Baker - Christmas Fantasy (2005) Par Media Music [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_235163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frosty's Rag (Frosty The Snowman) [3:48]
+02. Christmas Time Is Here [4:40]
+03. I'll Be Home For Christmas [5:26]
+04. Christmas Fantasy [4:36](   Читать дальше...   )Жанр: Smooth Jazz, Soul, R&BПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3A8D0856E36E8465BC78C418EB665FF7E7DEB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

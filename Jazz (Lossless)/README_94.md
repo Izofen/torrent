@@ -1,3 +1,32 @@
+###  Публикация: 1275523   (789937) от 12.01.2019
+
+Duende Libre - Drift (2018) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zephyr (for Meltem) (feat. Chava Mirel) (6:10)
+02. Drift (6:17)
+03. Spain (feat. Chava Mirel) (8:11)
+04. Subway (feat. Chava Mirel) (6:46)(   Читать дальше...   )Жанр: Latin Jazz, FunkПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C508AC14385AF285821424886D3BDB8D3920CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275497   (789935) от 12.01.2019
 
 Dragon's Brew - Cold Brew (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
@@ -716,35 +745,6 @@ Esther Phillips - Capricorn Princess (1976) Expanded Edition, SoulMusic Records,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4681386DD6252662B5FA56DC395DFA899ED9AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275980   (788611) от 15.01.2019
-
-Esther Kaiser - Songs of Courage (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masters of War
-02. Earth Song
-03. Open Your Eyes You Can Fly
-04. Where Have All the Flowers Gone(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DACF46D7790377C6703466726271392749CADB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

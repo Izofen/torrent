@@ -1,3 +1,176 @@
+###  Публикация: 1817649   (3155) от 12.09.2025
+
+Phil Collins - No Jacket Required (1985) Mix, 2025, Rhino Atlantic [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Power Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sussudio (2025 Mix)(4:24)
+02.Only You Know and I Know (2025 Mix)(4:21)
+03.Long Long Way to Go (2025 Mix)(4:23)
+04.I Don't Wanna Know (2025 Mix)(4:15)(   Читать дальше...   )Жанр: Pop Rock, Power PopПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2BB01E2E1E6C9E4ED0836329810AC872267B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817760   (3140) от 12.09.2025
+
+Ed Sheeran - Play (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening [00:04:00]
+02. Sapphire [00:02:59]
+03. Azizam [00:02:42]
+04. Old Phone [00:03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA79DFACFAAFE8324037F21E1AB077C5B6A94E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817761   (3126) от 12.09.2025
+
+Verses GT - Verses GT (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Trip Hop, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragment [00:02:01]
+02. Unknown [00:04:00]
+03. Your Light [00:04:08]
+04. Left [00:02:57](   Читать дальше...   )Жанр: Trip Hop, DanceПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4B80B2ED6283F2B6B63EA687ED32D1FB6268A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817647   (3125) от 12.09.2025
+
+Hypermass - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hypermass - метал-группа из Норвегии, образована в 2012 году.2015 - Clouded Visions (EP)
+2022 - Empyrean
+2025 - Apparition Day (EP)Жанр: Melodic Death MetalПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329A08C375C03CEF7AA5D5BDB9528FC389639EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817749   (3122) от 12.09.2025
+
+Жнец - 2 Albums (2021, 2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Melodic black metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вольный Путь [00:04:18]
+02. Орден Каннибалов [00:06:29]
+03. Легенда О Кургане Синеуса [00:08:25]
+04. Твой Кошмар [00:04:38](   Читать дальше...   )Жанр: Melodic black metalПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E932C3D3AEDD9392781FE9B4EFF849B0CBB87EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817788   (3121) от 12.09.2025
+
+Crematory - Awake (1997) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maze(1:14)
+02. Lord Of Lies(5:11)
+03. Away(4:42)
+04. Temple Of Love(4:46)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AED09563B54B7784999394038F742423EDAE6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817645   (3120) от 12.09.2025
 
 Maruja - Pain to Power (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Jazz-Rock>
@@ -568,179 +741,6 @@ David Bowie - I Can't Give Everything Away (2002 - 2016) (2025) Reissue, Remaste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47D13C653F4305EC61EDBE9B578550B566653240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818224   (2609) от 15.09.2025
-
-Caliban - Studio Albums (16 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caliban - металкор-группа из Германии, образованная в 1997 году в Хаттингене.1998 - Caliban (EP)
-1999 - A Small Boy And A Grey Heaven
-2001 - Vent
-2003 - Shadow HeartsЖанр: MetalcoreПродолжительность: 12:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44898F5A8576B2844B0872DE6E0C84E71638F224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818225   (2608) от 15.09.2025
-
-Tonix - Santo Domingo (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2608.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Dar Bara Manen Ser (Under The Moon Of Love)
-A2 Tornerai Tornero
-A3 Forever
-A4 Sen Jag Fann Dej (We Made Love)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB8B3BCF52FAB37BC9F26F76880FCF5D21E3C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818227   (2606) от 15.09.2025
-
-Taetre - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Taetre - метал-руппа из Гётеборга, Швеция, образована в 1995 году, распалась в 2009.1997 - The Art
-1999 - Out of Emotional Disorder
-2002 - Divine Misanthropic MadnessЖанр: Melodic Death/Thrash MetalПродолжительность: 01:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC54EACDF18F00A3E974E980B3645C56A5A69288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818211   (2600) от 15.09.2025
-
-Vargas Blues Band - Down Under Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Down Under Blues (4:19)
-02.  Tasmanian Blues (3:52)
-03.  Midnight Drive (4:45)
-04.  Sydney Street (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2B424C2CF34483F144C436C82D8ABAF460C980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818383   (2490) от 16.09.2025
-
-Led Zeppelin - Live EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bluse Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In My Time of Dying (Live from Earl's Court, 1975) [00:11:24]
-02. Trampled Under Foot (Live from Earl's Court, 1975) [00:09:05]
-03. Sick Again (Live from Knebworth, 1979) [00:05:17]
-04. Kashmir (Live from Knebworth, 1979) [00:09:02]Жанр: Bluse RockПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D035B89B76B53BC13907232C8A7827798763D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818329   (2469) от 16.09.2025
-
-Katya Filipova - Катя Филипова (1977) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2469.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Чай За Двама • Tea For Two • Чай Для Двоих
-A2 Начало • Beginning • Casanova Brown
-A3 Дълъг Ден, Кратка Нощ • A Long Day, A Short Night • Длинный День, Короткая Ночь
-A4 Танц За Теб • A Dance For You • Танец Для Тебя(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E38686F333013CC66C9DF98679E3721D24DBBB50
 ```
 
 https://mybot314.ru/tekegram_catalog/

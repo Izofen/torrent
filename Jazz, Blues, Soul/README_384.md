@@ -1,3 +1,61 @@
+###  Публикация: 1078284   (303008) от 30.11.2016
+
+Mezzoforte - Rising (1984) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Check It In (02:00)
+02. Take Off (05:42)
+03. Happy Hour (05:31)
+04. Waves (05:35)(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39990047B577426CC30FE7397F6F34B4265CB44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078260   (303007) от 30.11.2016
+
+Mezzoforte - Surprise, Surprise (1982) 1989, RCA, Germany [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surprise (01:27)
+02. Garden Party (06:10)
+03. Gazing At The Clouds (06:41)
+04. Early Autumn (06:29)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC8930A5DFAE3CC1DB68C7127C6DEEBA6F5749E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078291   (303005) от 30.11.2016
 
 Mezzoforte - Playing For Time (1989) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
@@ -693,64 +751,6 @@ National Youth Jazz Orchestra - London Pride (2006) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95C5C1B576F5C96D1AA0A9ED5367247E03821342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077996   (300873) от 01.12.2016
-
-George Lewis and His Ragtime Band - Jazz At Vespers (1954) 1992, OJC[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Just A Little While To Stay Here [05:16]
- 02.Bye And Bye [07:13]
- 03.The Old Rugged Cross [05:00]
- 04.Sometimes My Burden Is Hard To Bear [02:22](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF40E405F83BF988BA289B0CC745D8FA3D79217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423474   (300753) от 13.11.2020
-
-VA - One More: The Summary Music of Thad Jones, Vol.2 (2006) IPO Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Pixie [5:43]
-02. Let's [6:21]
-03. Don't Ever Leave Me [5:13]
-04. Groove Merchant [6:45](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EF72BF979943CE84C690B691E2887470F62CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

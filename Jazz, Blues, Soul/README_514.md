@@ -1,3 +1,32 @@
+###  Публикация: 1684850   (127402) от 17.12.2023
+
+Livin' Blues, Nicko Christiansen - Back on track (2023) [MP3|320 Kbps] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Crow [04:29]
+02. Lockdown [05:19]
+03. Back On The Track [03:52]
+04. Long Lost Son [03:41](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838D32F2777782D19FF616B0EDA88C7AAB88F668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684857   (127372) от 17.12.2023
 
 Art Pepper - Tokyo Debut (1977) 1995, Fantasy [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -716,35 +745,6 @@ The Brecker Brothers - Score (1988) 1991, Jazz Door [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B22CB68260C85402914640F74C0AF3EF94C8E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685890   (126768) от 21.12.2023
-
-Ella Fitzgerald & Louis Armstrong - Ella & Louis Wish You A Swinging Holiday (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz vocal, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleigh Ride [00:02:55]
-02. Cool Yule [00:02:56]
-03. Let It Snow! Let It Snow! Let It Snow! [00:02:43]
-04. I've Got My Love To Keep Me Warm [00:03:10](   Читать дальше...   )Жанр: Jazz vocal, SwingПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9632E059BA37F6EF7B0870A9806F82F97EA6DDEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

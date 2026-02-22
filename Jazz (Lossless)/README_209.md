@@ -1,3 +1,32 @@
+###  Публикация: 1064937   (421893) от 22.10.2016
+
+Peggy Lee - Classics & Collectibles (1952-1956) 2CD, 2003, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421893.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Classics:
+01.Mr. Wonderful [03:22]
+02.He's A Tramp [02:43]
+03.Black Coffee [03:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E746E36A67C3956577D5437B2B953DBBF9400D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324749   (421501) от 11.09.2019
 
 Pearl Bailey - The Best of Pearl Bailey (1950-e) 2012, Hallmark [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -733,35 +762,6 @@ Attila Zoller - Common Cause (1979) /2005, Enja/[FLAC|tracks+.cue]<Jazz Fusion, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE62C1BAB50CD1289E6E88756A1506DC1D423893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947415   (418393) от 17.10.2015
-
-Feyza - I Wish I Knew (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wish I Knew
-02. Look Of Love
-03. Bye Blackbird
-04. Never Let Me Go(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227BA328A50F84875C03FFD22B328139EE51B134
 ```
 
 https://mybot314.ru/tekegram_catalog/

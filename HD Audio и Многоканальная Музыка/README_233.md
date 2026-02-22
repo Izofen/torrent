@@ -1,3 +1,177 @@
+###  Публикация: 1761868   (36464) от 22.11.2024
+
+Viktoria Tolstoy - Stealing Moments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Love Song (2:27)
+02. Good and Proper End (4:43)
+03. Wherever You're Going (4:08)
+04. Hands Off (4:24)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B33866885584658166657BEEE8676190405ADBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761865   (36463) от 22.11.2024
+
+Ancient - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ancient — норвежская блэк-метал-группа из Бергена, образованная в 1992 году.1994 - Svartalvheim
+1995 - Trolltaar (EP)
+1996 - The Cainian Chronicle
+1997 - Mad Grandiose Bloodfiends(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 07:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EFEA486C8A12D06E97629472130E5B6657367E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761663   (36461) от 22.11.2024
+
+Storace - Crossfire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Screaming Demon (3:43)
+02. A New Unity (0:49)
+03. Rock This City (3:55)
+04. Adrenaline (4:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7656623FE9B8C4CF1401FB5083A029EBADD96415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761774   (36459) от 22.11.2024
+
+Sunstorm - Restless Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Stand For You (3:29)
+02. Love's Not Gone (4:26)
+03. Hope's Last Stand (3:32)
+04. Shot In The Dark (4:16)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EAF8815E2A23546DA892B9B85469339C2E5B785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761793   (36457) от 22.11.2024
+
+Tygers Of Pan Tang - Animal Instinct (2008) Reissue, 2024, Mighty Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Candy (4:22)
+02. Cry Sweet Freedom (4:19)
+03. Live For The Day (4:32)
+04. Let It Burn (4:07)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32319A0D8D7EF055FEECAFF780C2C51EC4024E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761920   (36456) от 22.11.2024
+
+Black Pumas - Live from Brooklyn Paramount (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic, Alternative Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fire (Live from Brooklyn Paramount) [4:41]
+02 - I'm Ready (Live from Brooklyn Paramount) [4:54]
+03 - Gemini Sun (Live from Brooklyn Paramount) [5:28]
+04 - Know You Better (Live from Brooklyn Paramount) [7:56](   Читать дальше...   )Жанр: Psychedelic, Alternative Rock, Indie RockПродолжительность: 01:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E84A560C80334AB48B6EEA46AFEE24855DF03D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761792   (36452) от 22.11.2024
 
 The Smoothies - It's Christmas Around the World: A Cozy Soulful Christmas (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
@@ -571,182 +745,6 @@ Megan McDuffee - Crimson Legacy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1187B6A393DFF7BC0088761ED5762A1EBF67A150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763569   (35413) от 02.12.2024
-
-CYN - Valley Girl (2024) Extended [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Eurodance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Losing Sleep [00:02:38]
-02. I Don't Care [00:03:26]
-03. Lemons [00:02:52]
-04. The Smiths [00:02:56](   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62314942B3E1DAE3B4E7D8573FD43761CEE72D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763547   (35408) от 02.12.2024
-
-Il Volo - Ad Astra (2024) International Edition, 2024, Masterworks [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Operatic pop, Classical Crossover>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Per Aspera...(intro) [00:01:29]
-02. Chiaro di luna [00:03:24]
-03. Capolavoro [00:03:20]
-04. Frammenti di universo [00:03:53](   Читать дальше...   )Жанр: Operatic pop, Classical CrossoverПродолжительность: 00:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99437D027E8F5CCA6979FB48D0BF188E59D034C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763644   (35317) от 03.12.2024
-
-Little Glee Monster - Break Out of Your Bubble (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <J-Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Break out of your bubble (00:03:56)
-02.PLANET (00:03:34)
-03.Memories (00:04:17)
-04.Jupiter -2024ver.- (00:05:01)(   Читать дальше...   )Жанр: J-PopПродолжительность: 00:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70891E1AFDDA5842B91F47A85045E6E19F211E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525950   (35264) от 04.12.2024
-
-Clannad - Studio Albums (15 releases) (1973-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Traditional Irish folk, Celtic, new-age>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clannad (Кла́ннад) — ирландская музыкальная группа.
-Музыку Clannad можно охарактеризовать как синтез кельтского фолка, рока, нью-эйдж и джаза. Поют на гэльском (ирландском) и английском языках.
-В состав группы входят Máire Brennan, её родные братья Ciarán и Pól Brennan, и двоюродные дяди Noel и Pádraig Duggan. Все они родом из городка Гвидор, (   Читать дальше...   )1973 — Clannad (The Pretty Maid)
-1975 — Clannad 2
-1976 — Dúlamán
-1980 — Crann ÚllЖанр: Traditional Irish folk, Celtic, new-ageПродолжительность: 12:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B227BB4338E6CF9319159AECEF5262600484B444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763999   (35216) от 04.12.2024
-
-Denigrate - To the Goddess Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom / Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystal Rest [00:06:26]
-02. The Ethics of Loss [00:06:49]
-03. Under Ether [00:03:25]
-04. The Apparition of One [00:07:14](   Читать дальше...   )Жанр: Doom / Gothic MetalПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2797D6526BB1A711EF333A751416772149E06713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764163   (35134) от 05.12.2024
-
-Duran Duran - Evil Woman (2024) The Remixes, 2024, BMG [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EVIL WOMAN [00:03:50]
-02. EVIL WOMAN (Medusa Mix Daytime Drama Edit) [00:03:29]
-03. EVIL WOMAN (Medusa Mix Night Version) [00:05:27]
-04. EVIL WOMAN (Bruno Martini Remix) [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F41842588412A756276333F5609A25DF2061B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

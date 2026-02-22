@@ -1,3 +1,38 @@
+###  Публикация: 431970   (991180) от 06.01.2012
+
+Didier Lockwood - Globe Trotter (2007) [FLAC|Lossless]<Jazz, Fusion,Violin>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. In India (2:47)
+02. In Andalousia (3:01)
+03. In Maroco (1:18)
+04. Takes the train (0:33)
+05. In Ireland (1:39)
+06. In Venice (1:31)
+07. On Danube (1:58)
+08. In China (1:24)
+09. In Chinatown (2:03)
+10. In Argentina (3:15)(   Читать дальше...   )2007Жанр: Jazz, FusionПродолжительность: 01:42:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 431945   (991179) от 06.01.2012
 
 [Wallpapers] Computer Desktop Wallpapers Collection (06.01.12)
@@ -729,39 +764,6 @@ VA - Hospitality Drum & Bass (2013)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:206C1A7101C0C78E73EE831EF53A0232D31BF3AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431981   (991139) от 06.01.2012
-
-Distal - Eel (2012) [MP3|320 kbps]<Electronic, Dubstep, Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Eel
-02. Kurgan
-03. Hut
-04. Hut (Machinedrum remix)
-05. Eel (DS1 remix)
-06. Kurgan (BD1982 remix)
-07. Hut (Dev79 & Thrills remix)
-08. Kurgan (ID remix)2012Жанр: Electronic, Dubstep, TechnoПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA56AF8FFD57DF4CEC0C977009BBCBEAB84310F
 ```
 
 https://mybot314.ru/tekegram_catalog/

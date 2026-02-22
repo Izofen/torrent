@@ -1,3 +1,61 @@
+###  Публикация: 1300770   (592762) от 07.05.2019
+
+VA - Purple Disco Machine - Glitterbox - Discotheque (2019) [FLAC|Lossless|WEB-DL|image, tracks] <House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Disco Machine - Glitterbox (Discotheque/Purple Disco Day (Continuous Mix) (1:10:26)
+02. Purple Disco Machine - Glitterbox (Discotheque/Purple Disco Day (Continuous Mix) (1:11:45)
+03. Forrrce with No Commercial Interruptions - Keep On Dubbin' (5:04)
+04. Catz 'n Dogz feat. Egla Sirvydyta - Good Touch (Maurice Fulton Remix) (6:13)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 06:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A72C2A2A3AE394F2B62C8F7ADF42B5B2E27818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915974   (591908) от 06.07.2015
+
+Satoshi Tomiie - New Day (2015) [FLAC|tracks + .cue]<House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Night (In This Dream I Watched A Film Of A Dream Within This Dream) [03:28]
+02. Landscape [07:06]
+03. Odyssey [06:52]
+04. New Day (feat. John Schmersal) [06:11](   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E048FEAD290CF170C86D9F7CF08A07FDD7031FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550907   (591223) от 13.05.2022
 
 Sonic Mine - Show Must Go On (2017) [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
@@ -689,64 +747,6 @@ Somerville & Wilson - Red Wasps EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1998E74FDCC0411807D6B359715393BC58F516B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042726   (578400) от 13.08.2016
-
-VA - Toolroom Ibiza 2016 Vol.2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kolsch & Michael Mayer - Dogma 1 [09:56]
-02. Paul Woolford - Mother & Child [07:25]
-03. Matador - The Enemy (feat Felix Da Housecat - Hot Since 82 remix)[06:05]
-04. Joris Voorn - Looks Fake Obviously [06:38](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 11:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BE33988F00A24BE68CDE851185B4D0A3CF34FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042553   (578388) от 13.08.2016
-
-VA - Schneeweiss VI (Presented By Oliver Koletzki) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cubicolor - Falling (feat Tim Digby-Bell)
-02. Frank Wiedemann - Moorthon II
-03. Stimming - Trains Of Hope
-04. Julian Wassermann & Oliver Deuerling - Schwabing(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 03:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF33CDEF31A9E7AEB1BE75AB6ECD769B9C7C8600
 ```
 
 https://mybot314.ru/tekegram_catalog/

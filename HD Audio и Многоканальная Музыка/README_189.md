@@ -1,3 +1,177 @@
+###  Публикация: 1787412   (68791) от 25.03.2025
+
+Ayreon - Into The Electric Castle (A Space Opera) (1998) Released, 2018, Music Theories Recordings [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68791.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Welcome To The New Dimension
+Lyrics By - Peter Daltrey
+A2 - Isis And Osiris
+Lyrics By - Fish(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D2467D9E45962D8740CB9B7320B70B98BD7516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787326   (68788) от 25.03.2025
+
+UMC - CHAPTER 4 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Never Be Like You [4:10]
+02 - MONEY ON THE DASH [2:24]
+03 - GIMME LOVE [3:15]
+04 - GREEDY [2:13](   Читать дальше...   )Жанр: Metal, Rock, Metal CoversПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A54C5A279879BFC346100C69679CB134DA57F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787486   (68787) от 25.03.2025
+
+The Sun Or The Moon - Into The Light (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mutant Discotheque (Part 1 - Fear Porn) [00:06:14]
+02. Mutant Discotheque (Part 2 - Alienation Hop) [00:05:17]
+03. Mutant Discotheque (Part 3 - The Circle) [00:04:29]
+04. Into The Light [00:06:23](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB073E499DF3FFE4D860B52058204933167E6B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787333   (68786) от 25.03.2025
+
+Arion - The Light That Burns The Sky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Darkest Day [1:54]
+02 - The Light That Burns The Sky [3:43]
+03 - Like The Phoenix I Will Rise [4:17]
+04 - Wings Of Twilight (feat. Melissa Bonny) [4:31](   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, MetalПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816A23B460AE5890BEC1D8F4CF915D2D87AA209C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787480   (68779) от 25.03.2025
+
+Nachtblut - Todschick (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Von Hass Getrieben [00:04:50]
+02. Todschick [00:03:58]
+03. Nachtgeweiht [00:04:18]
+04. Das Leben Der Anderen [00:03:52](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0868A892B7F2E19CCB37F879EA218B040E493AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787364   (68775) от 25.03.2025
+
+Nightwish - Oceanborn (1998) Released, 2010, Drakkar Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stargazers
+02. Gethsemane
+03. Devil & the Deep Dark Ocean
+04. Sacrament of Wilderness(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BAB3962A9DA59BA73103FD688889EDE186F52F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787454   (68771) от 25.03.2025
 
 Siberian - Modern Age Mausoleum (2014) [WavPack|32/192|image + .cue|Vinyl-Rip] <Sludge, Progressive Metal>
@@ -571,180 +745,6 @@ B1 Human Genocide(   Читать дальше...   )Жанр: Death MetalПро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4C42351CC132EC48D8684BF6FEE7708ED4650FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787812   (68678) от 27.03.2025
-
-Einherjer - Odin Owns Ye All (1998) Released, 2020, Funeral Industries [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68678.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Leve Vikingeaanden
-A2 - Out Of Ginnungagap
-A3 - Clash Of The Elder
-A4 - Odin Owns Ye All(   Читать дальше...   )Жанр: Viking MetalПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC5B3B682582B7E87E18E645C86925DC3F39649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788016   (68663) от 28.03.2025
-
-Arch Enemy - Blood Dynasty (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Melodic Death Metal, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dream Stealer [4:30]
-02 - Illuminate the Path [4:49]
-03 - March of the Miscreants [4:50]
-04 - A Million Suns [3:46](   Читать дальше...   )Жанр: Metal, Melodic Death Metal, Death MetalПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B609AF4422F8FD09D2494A39BA2869CBA2EDA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787626   (68657) от 28.03.2025
-
-Desire - Games People Play (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkside [00:04:11]
-02. Dangerous Drug [00:06:40]
-03. Human Nature [00:03:45]
-04. Dream Girl [00:04:25](   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5BDFF258EFFB2AD07625D43F604E2ABBEA7836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788096   (68656) от 28.03.2025
-
-Yelena Eckemoff - Scenes From the Dark Ages (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Jazz Fusion, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pilgrims
-02. Village Tavern
-03. From Peasants Life
-04. Spell-Bound Fortress(   Читать дальше...   )Жанр: Progressive Rock, Jazz Fusion, FolkПродолжительность: 01:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04F5EE3EC41EDF0EE318AC53311AE193C1D0EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787979   (68655) от 28.03.2025
-
-АИГЕЛ - Killer Qız (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <IDM, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68655.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Killer Qız
-2. Cir Tartımı
-3. Tönyaq Balqışı
-4. Qupşıl(   Читать дальше...   )Жанр: IDM, ElectronicПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AACB6852A7C3C5A5A89E174A80178CDB9A1DE48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787835   (68649) от 28.03.2025
-
-Kalya Scintilla - Tales from the Path, Pt. 1 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, Bass, Chillout, Downtempo, Dub, Psychedelic, Tribal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etched in Fallen Leaves [00:04:42]
-02. Cicada Serenade [00:06:09]
-03. Golden Road [00:06:29]
-04. When We Sleep [00:05:01](   Читать дальше...   )Жанр: Electronic, Bass, Chillout, Downtempo, Dub, Psychedelic, TribalПродолжительность: 00:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558DFD2137A73565C03F15629CC2542D5A3EB463
 ```
 
 https://mybot314.ru/tekegram_catalog/

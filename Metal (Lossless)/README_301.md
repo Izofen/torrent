@@ -1,3 +1,264 @@
+###  Публикация: 1429695   (176022) от 07.12.2020
+
+Disturbed - The Sickness (2000) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_176022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices (3:12)
+02. The Game (3:46)
+03. Stupify (4:05)
+04. Down With The Sickness (4:38)(   Читать дальше...   )Жанр: Nu Metal, Alternative MetalПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AACD8DC8533A51772804B36C287B8754F03796D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429793   (176014) от 07.12.2020
+
+Disturbed - Believe (2002) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_176014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayer (3:40)
+02. Liberate (3:27)
+03. Awaken (4:29)
+04. Believe (4:28)(   Читать дальше...   )Жанр: Nu Metal, Alternative MetalПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D3CDB00F392092FDB9F92B6167A90E5B61EB81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429698   (175996) от 07.12.2020
+
+Butcher - 666 Goats Carry My Chariot (2020) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inauguration of Steele (1:15)
+02. Iron Bitch (4:34)
+03. 45 RPM Metal (3:42)
+04. Metallström / Face the Bütcher (4:27)(   Читать дальше...   )Жанр: Speed Metal, Thrash MetalПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6A8401B35A8B28DEBD745E715BDB53DD8B3A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429705   (175729) от 07.12.2020
+
+Disturbed - The Sickness (2000) Remastered, 2010, Reprise Records [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices (3:12)
+02. The Game (3:47)
+03. Stupify (4:05)
+04. Down With The Sickness (4:39)(   Читать дальше...   )Жанр: Nu Metal, Alternative MetalПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9FE15E7B0B7A36EDD71FDD54A177A714666039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595410   (175717) от 05.12.2022
+
+Endtime - Impending Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harbinger of Disease [00:05:11]
+02. ICBM [00:05:51]
+03. They Live [00:04:05]
+04. Cities On Fire With The Burning Flesh Of Men [00:07:44](   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC936FEDD43E06354C0FE9DF51E63DC1961799E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595393   (175680) от 05.12.2022
+
+Nightmare - Aeternam (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temple Of Acheron
+02. Divine Nemesis
+03. The Passenger
+04. Downfall Of A Tyrant(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33086C99443DCDDC43BB82FD27EF972ACF8AD1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595325   (175677) от 05.12.2022
+
+Metal Order - Adventures & Nightmares (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Courage of a soldier (03:49)
+02 - Steelbrothers (03:59)
+03 - The tempters city (03:44)
+04 - Cthulhu-Rising from the sea (04:04)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3528F54AB28A62B940533D1B0024144B66CD34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595420   (175675) от 05.12.2022
+
+Asterise - Two Worlds (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal, Male Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 02:07
+02. High Above The Horizon 04:13
+03. Eternal Flame 07:52
+04. Frozen Lake 05:29(   Читать дальше...   )Жанр: Symphonic Power Metal, Male Female VocalПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA31035BD23F98D3D306F1AFC2F2E85B46F37E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595406   (175674) от 05.12.2022
+
+Mentalist - Freedom of Speech (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Metasphere (00:54)
+02 - Freedom Of The Press (06:05)
+03 - Life (05:38)
+04 - Whispering Winds (06:06)(   Читать дальше...   )Жанр: Melodic Power, Heavy MetalПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A1220784708BAFD02BAE0EB091D49BF03C4A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595350   (175669) от 05.12.2022
 
 Rosanna's Raiders - Calling Down Fire (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -484,267 +745,6 @@ Hanker - In Our World (1994) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D05FCF0689CBE9AB338AF73D73887943FCF3861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595435   (175183) от 06.12.2022
-
-Mephistopheles - Landscape Symphonies (1997) [FLAC|Lossless|image + .cue] <Melodic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Landscape Symphony (Introduction)
-02. Cosmos...
-03. Dark Clouds Rise Above The Kingdom
-04. Destiny Calls (Instrumental)(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F2D36DC1CD201C0D21B07AC27FA8263587C067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595436   (175180) от 06.12.2022
-
-Pale King - We Are but Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are but Memories [00:05:21]
-02. The Weight of Reality [00:04:12]
-03. The Last Farewell [00:04:03]
-04. Cursed [00:05:08](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37EDB540283508AF93DB5BDE0D413AC113356B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595454   (175179) от 06.12.2022
-
-Bark - Rambler of Aeons (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Death 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rambler Of Aeons [00:03:52]
-02. Underworld [00:04:10]
-03. Are You With Me ? [00:03:28]
-04. I'm Here For Rock N' Roll  [00:02:51](   Читать дальше...   )Жанр: Groove Metal, Death 'n' RollПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE7A0FED19BA3FD90E047478152BA9E192314C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595472   (175166) от 06.12.2022
-
-Meteora - Our Paradise (2017) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Chained
-02 - After The Civil War
-03 - Mind Sanctuary
-04 - Scavengers Of Vanity(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11988D5F2ACD082931F989ECC062DF55187AA690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595439   (175161) от 06.12.2022
-
-Mephistopheles - Songs Of The Desolate Ones (1999) [FLAC|Lossless|image + .cue] <Melodic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Desolation Hymn
-02. Kurgan Supremacy
-03. Twilight Shore
-04. Opaque Fortress(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8316306661C6BE14A09434733F6A3649CEA16DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429881   (175158) от 08.12.2020
-
-Oceans Of Slumber - Oceans Of Slumber (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Soundtrack To My Last Day
-02. Pray For Fire
-03. A Return To The Earth Below
-04. Imperfect Divinity (Instrumental)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90CF194E5ADEB025F9922DA23DE94A5562992204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430019   (175142) от 08.12.2020
-
-Jinjer - Cloud Factory (2014) Reissue, 2018, Napalm Records [FLAC|Lossless|image + .cue] <Metalcore, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outlander (3:56)
-02. A Plus or a Minus (4:34)
-03. No Hoard of Value (4:46)
-04. Cloud Factory (4:44)(   Читать дальше...   )Жанр: Metalcore, Groove MetalПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C76AAC17EB3B2582877C9C21E3529F456E5BC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595476   (175140) от 06.12.2022
-
-Meteora - Tragedy of Delusion (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Common Enemy
-02 - Memento Mori
-03 - My Reality
-04 - Stay Among Us(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07D47D6830B29BE9B6603758AAAC95436FD2507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595602   (175136) от 06.12.2022
-
-Mythika - Unholy Glory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.D. 1583
-02. Between Two Worlds
-03. The Cross and the Crown
-04. A.D. 1586(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0EFE0A1E7661DF0ED44AE7D90A1387BCE45883
 ```
 
 https://mybot314.ru/tekegram_catalog/

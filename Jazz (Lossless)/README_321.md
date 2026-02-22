@@ -1,37 +1,3 @@
-###  Публикация: 593315   (135437) от 23.12.2012
-
-Dado Moroni Trio - Shapes (2011) [FLAC|Lossless]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade Pour Gianni
-02. Brother Alfred
-03. Desafinado
-04. The Duck And The Duchess
-05. Love Dance
-06. F.B.S.
-07. For The Time Being
-08. Shark Attack
-09. Here's To LifeЖанр: Post-BopПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593311   (135401) от 23.12.2012
 
 Don Grusin & Bill Sharpe - Trans Atlantica (2012) [FLAC|Lossless]<Smooth Jazz>
@@ -793,6 +759,35 @@ Herb Ellis - Man With The Guitar (1965) 2021, Universal [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56E0B894D1C1390E3C69126A06B5888799896435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680963   (133453) от 01.12.2023
+
+Kenny G - Innocence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acapella Lullaby
+02. Rock-a-Bye Baby
+03. A Mother's Lullaby
+04. Nocturne Op. 9 No. 2(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511208B844C981F70E33AB5E7BB04F5E39E399B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

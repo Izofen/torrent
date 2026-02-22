@@ -1,3 +1,93 @@
+###  Публикация: 876223   (853010) от 09.03.2015
+
+Teodross Avery - My Generation (1996) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Addis Ababa [07:44]
+02. Mode For My Father [08:29]
+03. Theme For Malcolm [06:25]
+04. Lover Man [07:20]
+05. To The East [04:56](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:09:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C797D9E677AE0092454D710B7692776DB9C242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876452   (853009) от 09.03.2015
+
+North America Jazz Alliance - The Montreal Sessions (2013) [FLAC|Lossless|WEB-DL]<Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Just One Of Those Things
+02. Close Your Eyes
+03. Cute
+04. Oblivion
+05. Angel Eyes(   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC410377FFE75DDB6236C6B13038793B0B0A274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876220   (853008) от 09.03.2015
+
+Stan Getz - Soul Eyes (1999) [FLAC|Lossless]<Jazz, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage [09:01]
+02. Soul Eyes [08:02]
+03. Feijada [08:53]
+04. Blood Count [03:41]
+05. Stan's Blues [07:41](   Читать дальше...   )Жанр: Jazz, Cool, Mainstream JazzПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8285ABA467A5CC90D41C56D870130477CEEC842D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 876229   (853007) от 09.03.2015
 
 Dizzy Gillespie - Gillespiana (2011) [FLAC|Lossless]<Jazz, Bop, Big Band>
@@ -662,99 +752,6 @@ Ehud Asherie With Harry Allen - Lower East Side (2013) Posi-Tone Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE82470397FFCA09C770774CE12692D53D0E694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377630   (851941) от 22.04.2020
-
-Harry Allen - 007 Songs (2010) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The James Bond Theme [0:25]
-02. Surrender [5:23]
-03. On Her Majesty's Secret Service [5:13]
-04. You Only Live Twice [2:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2FFD3959D1D726B8F03062C7452FD2740F1FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377517   (851898) от 22.04.2020
-
-Harry Allen - Viva! Bossa Nova (2008) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [6:21]
-02. Desafinado [5:39]
-03. Dindi [5:04]
-04. Mais que Nada [6:23](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A061042B4FFF79420FF4721868E2F19143746E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647945   (851553) от 26.04.2013
-
-Los Amigos Invisibles - Repeat After Me (2013) [MP3|320 кб/с]<Funk, Latin, Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Intro
-02 La Que Me Gusta
-03 Corazn Tat
-04 Sex Appeal
-05 Ro Porque No Fue Un Sueo
-06 Stay
-07 Mostro
-08 Like Everybody Else
-09 Hopeless Romance
-10 Reino Animal(   Читать дальше...   )Жанр: Funk, Latin, Acid JazzПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985E9FDECD6696D06E8F8D63C3ACFDA3B93338DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

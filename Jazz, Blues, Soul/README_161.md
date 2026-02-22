@@ -1,3 +1,90 @@
+###  Публикация: 1275854   (789450) от 13.01.2019
+
+Jamie Lancaster - Duets (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamie Lancaster, Cassandra Beck - I Finally Found Someone 03:12
+02. Jamie Lancaster, Michelle Simonal - Endless Love 02:53
+03. Jamie Lancaster, Shelly Sony - Easy Lover 04:02
+04. Jamie Lancaster, Eve St. Jones - (I've Had) The Time of My Life 03:37(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Bossa NovaПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCCF0EAFD0723572965F53E6B8033FEE0BB6584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511294   (789376) от 20.11.2021
+
+Phil Woods With Strings - The Thrill Is Gone (2003) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And When We're Young [8:26]
+02. I Get Along Without You Very Well [4:54]
+03. You Go To My Head [5:30]
+04. It Never Entered My Mind [8:59](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9D81FECE12DA400F68697B60C925EC7CD095DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511153   (789369) от 20.11.2021
+
+Marina & The Kats - Different (2021) [FLAC|Lossless|image + .cue] <Swing Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pressure [0:02:48.33]
+02. Ponder [0:03:44.51]
+03. Different [0:03:56.23]
+04. No Means No [0:00:40.45](   Читать дальше...   )Жанр: Swing Jazz, Vocal JazzПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157B76F6E71F4DCF58A49D5FB9BC57AC1A326D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069831   (789298) от 20.11.2021
 
 Stan Getz & Laurindo Almeida - Stan Getz with Guest Artist Laurindo Almeida (1963) 1989, Verve[WavPack|Lossless|image + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
@@ -658,93 +745,6 @@ Gerald Toto - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6B2714925AFF218FCB80208184E5DE2BF94BCA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276401   (788220) от 16.01.2019
-
-Toto Bona Lokua (Gerald Toto, Richard Bona, Lokua Kanza) - Bondeko (2017) [FLAC|Lossless|tracks] <Vocal Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ma Mama
-02. Naleki
-03. Youwile
-04. Je Kango(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE94040FC36A8E72DC5A420BA3D4B2647E8A5B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203462   (788203) от 02.02.2018
-
-Beata Przybytek - Today Girls Don't Cry (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Female Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can Come To Me (4:15)
-02. Priceless Cure (4:09)
-03. Z Rozpaczy Blues (4:54)
-04. Nie Wiadomo (4:14)(   Читать дальше...   )Жанр: Jazz, Female VocalПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13654127960FADF1D97F98569BC76B8A68C632E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276477   (788156) от 16.01.2019
-
-Herbie Hancock - Then And Now (2008) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maiden Voyage [7:55]
-02. Cantaloupe Island [5:28]
-03. Wiggle Waggle [5:50]
-04. Chameleon [7:41](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54DE822EAFE4765EE1BCBC7ED3A754928D6A7BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

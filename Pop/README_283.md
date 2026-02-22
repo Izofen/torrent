@@ -1,3 +1,90 @@
+###  Публикация: 1616238   (206124) от 01.03.2023
+
+VA - Romantic Collection Vol.7 (2001) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lighthouse Family - High
+02. Sweetbox - Everything's Gonna Be Alright
+03. Kool & The Gang - Cherish
+04. Eric Clapton - Circus 432 Hz(   Читать дальше...   )Жанр: Electronic, Hip Hop, RockПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813F98FC3D19365D7DAA6005F304D419F216EB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653452   (206094) от 16.08.2023
+
+VA - Vintage Café - The Remixes Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Lounge>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anakelly - Speed of Sound (Ronan Remix) (3:25)
+02. Asonne - Flowers (Javier Penna Remix) (2:18)
+03. Nikko Mad - Die for You (3:13)
+04. No.On - What a Wonderful World (Krister Remix) (1:35)(   Читать дальше...   )Жанр: Pop, Easy Listening, LoungeПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B364E341A02468A565BA41A302E515CF0F2B47D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616138   (206084) от 01.03.2023
+
+VA - 80s Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes - Owner of a Lonely Heart (4:28)
+02. Fleetwood Mac - Everywhere (2018 Remaster) (3:43)
+03. a-ha - Take On Me (3:48)
+04. Tina Turner - What's Love Got to Do with It (3:50)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 05:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4D47F1DFDD303708E227F7DFF3CB3C26AA664E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616623   (205967) от 03.03.2023
 
 VA - Romantic Collection. Golden Woman Voices (2000) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Blues>
@@ -656,93 +743,6 @@ Toto Cutugno - Maestro Collection (2012) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A0B8BC903C0C980318241D24947E7578764D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829271   (201875) от 25.10.2025
-
-t.A.T.u. - Dangerous and Moving (2005) Deluxe Remastered Edition, 2025, Universal International Music BV [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201875.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Dangerous And Moving (Intro) (0:49)
-• 02. All About Us (3:01)
-• 03. Cosmos (Outer Space) (4:12)
-• 04. Loves Me Not (2:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F002D804854FACAE48B276C88DABEB93A6E7F598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617614   (201660) от 07.03.2023
-
-Александр Маршал - Блокпост - Сборник лучших песен (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201660.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Блок-пост «Акация»
-2. Братишка
-3. Приказ назад
-4. Третий тост(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B64B66C23CD5BC7D6D832534A9C71D1F9319505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617828   (201635) от 08.03.2023
-
-Олег Анофриев - Есть только миг (1995) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это было недавно ( из к/ф  Друзья и годы )
-02. Песня из к/ф  Путь к причалу
-03. Песня из к/ф  Там, где кончается асфальт
-04. Весенняя песенка(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974F3230A4C16A88889BDEDBAD3A6C48C1D84EBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

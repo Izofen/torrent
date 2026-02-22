@@ -1,3 +1,30 @@
+###  Публикация: 1232618   (382849) от 09.10.2020
+
+Zoot Sims - 12 Classic Albums 1956-1962 (2015) 6CD, Enlightenment [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382849.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Zoot Swings The BluesЖанр: Mainstream Jazz, Cool, Bossa NovaПродолжительность: 07:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533CBC0DE2409E6F6FB744EE399DC36C813EA574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 101275   (382188) от 23.10.2014
 
 Montefiori Cocktail - Дискография (1997-2007) /8 альбомов/[FLAC, APE|Lossless]<Easy Listening, Jazz, Lounge, Chillout, Downtempo>
@@ -723,35 +750,6 @@ Mel Torme - The Capitol Rarities (1949-1952) 2008, EMI[FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B6ECF0E22BA4E98858E1C86C3278350893E3DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068697   (378527) от 02.11.2016
-
-John Hicks, Elise Wood, Walter Booker - Single Petal of a Rose (1994) Mapleshade Productions[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sometime Ago [05:27]
- 02.Infant Eyes [08:46]
- 03.Yes or No [04:17]
- 04.Ballad of Black Man [03:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E738D7D9B051EEE4ABA0596479F3A19AE6AF53
 ```
 
 https://mybot314.ru/tekegram_catalog/

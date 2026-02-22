@@ -1,3 +1,32 @@
+###  Публикация: 617895   (891773) от 04.04.2013
+
+Aliens: Colonial Marines - Collector's Edition [Ru] (RePack/1.0.142.355/u2/3 DLC) 2013 | Fenixx
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В Aliens: Colonial Marines вы выступите в роли одного из четырех членов отряда колониальных десантников США и столкнетесь с
+нападением Чужих. Для уничтожения врагов в вашем распоряжении будет классический набор вооружения, начиная от импульсных
+винтовок и заканчивая огнеметами, а также совершенно новое оружие. Aliens: Colonial Marines – командный шутер от первого лица,
+в котором присутствует одиночный и кооперативный режимы игры.(   Читать дальше...   )Тип издания: RePackРазработчик: Gearbox SoftwareЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14798B33DC5A4251807D7DCDBE8C27E38C1589C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761095   (891767) от 02.03.2014
 
 Pharrell Williams - Girl (2014) [MP3|320 кб/с]<R&B>
@@ -694,35 +723,6 @@ CleanMyPC очищает компьютер от ненужных файлов, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99164F6CF8ACEE6E55EE2CFD4FA915D008DBABFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994173   (891651) от 07.03.2016
-
-VA - Xela - Boomkat Selected Mixtapes Volume 6 - Listen With Xela (2004) [FLAC|Lossless|tracks + .cue] <IDM, Experimental, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edward Artemiev - Solaris Part I (02:43)
-02. Carbon Framework - Krane (03:39)
-03. Spencer Moore - Driveway To The Cemetery (Night Of The Living Dead OST) (02:01)
-04. Goblin - Jane Mirror Theme (00:52)(   Читать дальше...   )Жанр: IDM, Experimental, AmbientПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBB19E89DD10688F43184B1902DF26118E17A1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

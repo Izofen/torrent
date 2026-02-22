@@ -1,3 +1,177 @@
+###  Публикация: 1795480   (67041) от 05.05.2025
+
+Paradise Slaves - With Hell In His Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – For Those Who Watch The Sea
+02 – Aesthetic Of Serpents
+03 – A Fever To Defeat
+04 – Dreamers(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9952880175B88D0ABF1D4B5304F44E56D7747E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795500   (67039) от 05.05.2025
+
+Charlie Rich - Behind Closed Doors (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67039.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Behind Closed Doors
+A2 If You Wouldn't Be My Lady
+A3 You Never Really Wanted Me
+A4 A Sunday Kind Of Woman(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7C6D617671F7FF6F3CC8E4F5A51C1013542E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795453   (67035) от 05.05.2025
+
+Gypsy Pistoleros - Welcome To The Church Of The Pistoleros (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Punk, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Church of the Pistoleros
+02 – Shadow Walker
+03 – Whatever happened to the Old Town
+04 – Last train to Nowhere(   Читать дальше...   )Жанр: Alternative Rock, Punk, GlamПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D38B0D542F51BE75BF92D5F848148D2A59F433A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795778   (67032) от 06.05.2025
+
+Avenger - Godless (...Assuming the Throne of Immortality...) (2003) [WavPack|32/192|image + .cue|Vinyl-Rip] <Black, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67032.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Enter My Darkness
+A2 - Even To The Bones Marrow
+A3 - Before Storm
+A4 - The Return Of Apocalypse(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00: 44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AF239EB08C6A19FADE5F73CFB91B2A6101E7B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795944   (67019) от 07.05.2025
+
+Blood Incantation - Starspawn (2016) Released, 2021, Century Media [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67019.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vitrification Of Blood (Part 1)
+A2 Chaoplasm
+B1 Hidden Species (Vitrification Of Blood Part 2)
+B2 Meticulous Soul Devourment(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9719182439FBF2997A2730134A356A4698923EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795878   (67018) от 07.05.2025
+
+Dissentient - Studio Albums (4 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dissentient - канадская метал-группа из Оттавы, Онтарио, образована в 2005 году.2011 - Black Hole Machine
+2013 - The Archillect (EP)
+2019 - Portal III
+2023 - Labyrinth(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 03:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0E7BE7295FF703BAC699862AFC7021626D834F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796101   (67011) от 08.05.2025
 
 Bowers Foreman - The Boy Who Learned To Fly (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
@@ -571,180 +745,6 @@ Star Overdrive - Star Overdrive 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECA80FD1C3A7BEA7961718781CEF67B6EC5C4451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796825   (66915) от 12.05.2025
-
-Kurt Deimer - And So it Begins (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dance (3:47)
-02.  Naive (3:19)
-03.  Burn Together (4:17)
-04.  Back of the School (3:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B65035C1FAA0BF9D1C129C708A47241FB17EAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796822   (66913) от 12.05.2025
-
-Mezcaleros - No Way Back (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Overdose (4:18)
-02.  Fallin' Down (4:54)
-03.  She is Gone (4:13)
-04.  Mojave Desert Storm (5:50)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E71F4B13A5807CB8E0B151524E34E6ED9FAB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796832   (66911) от 12.05.2025
-
-Tad Robinson - Soul In Blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Keep It In The Vault (4:47)
-02.  Out Of Sight and Out Of Mind (5:15)
-03.  Somewhere There's A Train (3:52)
-04.  (I'm) Down to My Last Heartbreak (3:50)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487BEECFC05AB1AE0AD457BCD48C47006ED3B086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796836   (66910) от 12.05.2025
-
-The Smoke Kings - Where Are Your Demons? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Running out of Time (2:23)
-02.  Powercopter (3:39)
-03.  Thanx No My Friend (3:39)
-04.  Right Under Leftovers (3:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6880CE505EC8C3B8841FA7ACBA86947B1FF28630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796742   (66894) от 13.05.2025
-
-Thin Lizzy - The Acoustic Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Hard-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Nature Said (Acoustic Version) (3:54)
-02. A Song For While I'm Away (Acoustic Version) (5:05)
-03. Eire (Acoustic Version) (4:19)
-04. Slow Blues (E.B / Acoustic Version) (5:17)(   Читать дальше...   )Жанр: Rock, Hard-RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14DF86674DA43B72CD006B95BACFAB550E1AA15C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796741   (66891) от 13.05.2025
-
-The Kooks - Never-Know (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt. Rock, Indie-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Know (2:55)
-02. Sunny Baby (3:19)
-03. All Over The World (3:37)
-04. If They Could Only Know (3:13)(   Читать дальше...   )Жанр: Alt. Rock, Indie-RockПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708D30C141E18EB7D5ED937B7C6592FE459187E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

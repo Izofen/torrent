@@ -1,32 +1,3 @@
-###  Публикация: 1589131   (190677) от 08.11.2022
-
-Sidney Bechet - 1938 - 1940 (1991) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ja Da [2:55]
-02. Really the Blues [3:39]
-03. When You and I Were Young, Maggie [2:44]
-04. Weary Blues [3:03](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C197B897E5A1D3B50C310CAEF4203278C91F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658827   (190674) от 10.09.2023
 
 McCoy Tyner - The Montreux Years (1981 - 2009) 2023, BMG [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -745,6 +716,35 @@ VA - Unforgettable Romantic Moments Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA33622AEC365F6BA9165847D85D386CBA7D8DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660384   (189371) от 13.09.2023
+
+VA - Jazz music to concentrate (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Davis - Générique (Bande originale du film "Ascenseur pour l'échafaud") (2:49)
+02. Tommy Flanagan Trio - In The Blue Of The Evening (3:42)
+03. Wes Montgomery - Days Of Wine And Roses (3:48)
+04. Wayne Shorter - Footprints (Remastered) (7:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF278BAEA733617C38985A6769B4C89C7B9C01D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

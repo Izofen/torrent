@@ -1,3 +1,177 @@
+###  Публикация: 1682682   (131078) от 08.12.2023
+
+The Killers - Rebel Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative rock, indie rock, post-punk, pop rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jenny Was A Friend Of Mine (4:04)
+02. Mr. Brightside (3:43)
+03. All These Things That I've Done (5:02)
+04. Somebody Told Me (3:18)(   Читать дальше...   )Жанр: Alternative rock, indie rock, post-punk, pop rockПродолжительность: 01:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885C417086ED6029383797E8D6445AD55E85F211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620165   (130690) от 09.12.2023
+
+КняZz (Князь; Андрей Князев; Король и Шут) - Студийные альбомы (10 релизов) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130690.jpg" />
+</div>
+
+
+###  Подробнее
+
+«КняZz» — российская рок-группа из Санкт-Петербурга, созданная в 2011 году Андреем Князевым, являвшимся на момент её создания участником панк-группы «Король и Шут». Весной того же года Андрей Сергеевич отказался от работы в театре над рок-оперой «TODD» совместно с Михаилом Горшенёвым и решил создать сайд-проект для реализации собственного творческого потенциала. (   Читать дальше...   )2005 - Любовь негодяя
+2011 - Письмо из Трансильвании
+2012 - Тайна кривых зеркал
+2013 - Роковой карнавалЖанр: Punk RockПродолжительность: 07:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D277B86D06D3816C4F580DA1E4B71CF5CE764C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525239   (130132) от 19.01.2022
+
+Devin Townsend - Empath (2019) 2020 [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audio] <Progressive Metal, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что поклонником Металла не являюсь, мне эта музыка показалась интересной. Чувствуется стиль большого мастера, даже на таком материале.
+Первоначально альбом вышел в марте 2019 года, на CD. В июне 2020 года состоялось переиздание - 4-х дисковый The Ultimate Edition, в состав которого входил блюр с многоканальным звуком, из которого, собственно, и сделан (   Читать дальше...   )01. Castaway 2:29
+02. Genesis 6:06
+03. Spirits Will Collide 4:40
+04. Evermore 5:30(   Читать дальше...   )Жанр: Progressive Metal, Symphonic RockПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DCB2DF173AA2E6C2404A0686CBFEB2BB4B1117E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682878   (129887) от 09.12.2023
+
+Kylie Minogue - Extension (2023) The Extended Mixes [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+01 - Various Albums
+02 - Extension (The Extended Mixes)Жанр: PopПродолжительность: 2CD, 01:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3477823AEAFC1A4852355CDC4BD137F641AFDF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682999   (129862) от 09.12.2023
+
+Cher - Cher's Greatest Hits 1965-1992. Volume 1 (1993) Compilation, Unofficial Release [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129862.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Oh No Not My Baby
+A2 Whenever You're Near
+A3 Many Rivers To Cross (Live From The Mirage)
+A4 Love And Understanding(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9190965DDD45DA2D9002C6F8CBC92C5D19BD4122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683004   (129831) от 09.12.2023
+
+Everdawn - Venera (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassiopeia [00:03:46]
+02. Century Black [00:03:15]
+03. Silver Lining [00:03:38]
+04. Karmic Partner [00:03:30](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775E70FF6ADA9C7F0C1C76513BB801094D87053D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525434   (129751) от 20.01.2022
 
 The Beatles - Abbey Road (1969) remix 2019 remaster [DTS-ES Discrete 6.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio] <Pop/Rock>
@@ -571,177 +745,6 @@ A4 Boom!(   Читать дальше...   )Жанр: Alternative Metal, Nu Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B885BCE2311F1E892EEE8D4BF17C19A95011F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683961   (128095) от 13.12.2023
-
-The Rah Band - Touchdown (Live at The Jazz Café, London, 2022) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dance 80's, Futuristic Synthpop, Space Disco, Britfunk, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Messages From The Stars (Live at The Jazz Caf‚, London, 2022)
-02 – Slide (Live at The Jazz Caf‚, London, 2022)
-03 – Perfumed Garden (Live at The Jazz Caf‚, London, 2022)
-04 – Falcon (Live at The Jazz Caf‚, London, 2022)(   Читать дальше...   )Жанр: Dance 80's, Futuristic Synthpop, Space Disco, Britfunk, JazzПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFE16A7A442C411C8ABE2A6325AAD4D437ECE3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683979   (128083) от 13.12.2023
-
-Egyptian Blue - A Living Commodity (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Matador
-02 – Nylon Wire
-03 – Belgrade Shade
-04 – Skin(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67509D5AB1ED30539F6538A815828609F3897311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684101   (127986) от 14.12.2023
-
-Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, Прекраснейшая ночь года (1990) Из собраний М. Магомаева, Ю. Крууса, О. Шишова, Н. Тюрина [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Classic ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из кинофильма "Потому, что ты моя"Жанр: Pop, Classical, RetroПродолжительность: 02:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02EC2818F0C326084AFCCFEA0EFE39D87FA3D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684204   (127977) от 14.12.2023
-
-Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Helsinki Ice Hall 2019 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under The Grass Clover (4:04)
-02. Platitudes And Barren Words (4:21)
-03. In Your Face (4:07)
-04. Shovel Knockout (4:13)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E733483D89687A7F585F8E216D860B24B87507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684236   (127975) от 14.12.2023
-
-Therion - Leviathan III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Rock, Operatic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ninkigal (3:06)
-02. Ruler Of Tamag (6:44)
-03. An Unsung Lament (6:58)
-04. Maleficium (3:34)(   Читать дальше...   )Жанр: Symphonic Rock, Operatic MetalПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77624E608EFB44CB04078FC19657D4E45F774D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684210   (127974) от 14.12.2023
-
-Evergrey - From Dark Discoveries to Heartless Portraits (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Out The Dark (Live Version) (5:10)
-02. Where August Mourns (Live Version) (5:39)
-03. My Allied Ocean (Live Version) (4:29)
-04. A Touch Of Blessing (Live Version) (5:53)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F983FC66256C09267AC4A0DC6666587E51930C56
 ```
 
 https://mybot314.ru/tekegram_catalog/

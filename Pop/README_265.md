@@ -1,3 +1,90 @@
+###  Публикация: 1624549   (242255) от 07.04.2023
+
+VA - Totally '80s (1993) 2 CD[OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-ha - Take on Me
+02. Buster Poindexter - Hot Hot Hot
+03. Billy Ocean - Caribbean Queen (No More Love on the Run)
+04. Bangles - Walk like an Egyptian(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E8271EE0E27BA693CD0787AC51873CF41C4539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628327   (242202) от 22.04.2023
+
+Everything But The Girl - Fuse (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, House, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Left To Lose (3:45)
+ 02. Run A Red Light (3:39)
+ 03. Caution To The Wind (4:07)
+ 04. When You Mess Up (3:48)(   Читать дальше...   )Жанр: Pop, House, DowntempoПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8270FD8FF9716B9B3C4AAFDB7590C5FDC6238793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624889   (242131) от 08.04.2023
+
+Bananarama - Masquerade (2022) 2CD, The Unmasked Edition, 2023, IN SYNK [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running With The Night (Almighty Remix Edit) [00:03:25]
+02. Forever Young (Lamentis Remix Edit) [00:03:53]
+03. Favourite (Shanghai Surprize Remix Edit) [00:02:54]
+04. Masquerade (Cahill & DTAG Remix Edit) [00:03:29](   Читать дальше...   )Жанр: PopПродолжительность: 2CD, 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05FE409186AD8A11236A9E1C7223F5A54C1C3C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372326   (242111) от 03.04.2020
 
 Corine - Un air de fete (2018) [MP3|320 Kbps] <Dance-Pop, Disco, Chanson>
@@ -658,93 +745,6 @@ Sparks - Balls (2000) Deluxe Edition, Remastered, 2022, BMG [MP3|320 Kbps] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C128D432CF93F74E9075CD36581B278BE9A676A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636252   (241026) от 29.05.2023
-
-Fred Ventura - Rewind Of Change (Italoconnection Reworks) (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind Of Change
-02. Heartbeat
-03. Lost In Paris
-04. The Years (Go By)Жанр: Italo-DiscoПродолжительность: 00:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD28D96A3A1414F4E88FEF3BB0EBF6875F089D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548335   (240980) от 02.05.2022
-
-VA - Mastermix Crate 034: Old Skool Fusion (2022) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apollo Four Forty - Stop The Rock (@440 Original)
-02. Bomfunk MC's - Freestyler (Clean)
-03. Chemical Brothers - Setting Sun (Radio Edit)
-04. Faithless - Mass Destruction (Single Mix)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:38:07 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36095BDA068900C1470FE96AB89E508591B040E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626053   (240959) от 13.04.2023
-
-VA - 80s Lost and Found (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Ha - The Sun Always Shines on T.V.
-02. Tina Turner - Private Dancer
-03. Duran Duran - Save a Prayer
-04. Fleetwood Mac - Big Love (2018 Remaster)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 05:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59EA7ECC02E965303DAE2420093EB030D6C32B94
 ```
 
 https://mybot314.ru/tekegram_catalog/

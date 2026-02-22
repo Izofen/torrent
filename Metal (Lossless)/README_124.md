@@ -1,3 +1,270 @@
+###  Публикация: 1038899   (598192) от 31.07.2016
+
+The Great Kat - Worship Me Or Die (1987) 1990 Roadracer Records [APE|Lossless|image + .cue] <Thrash Metal, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Messiah
+02. Kat Possessed
+03. Death To You
+04. Satan Goes To Church(   Читать дальше...   )Жанр: Thrash Metal, ShredПродолжительность: 0:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F858D3161F602A3E275D1EF099C550B55D757EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039159   (598190) от 31.07.2016
+
+Aeternam - Disciples of the Unseen (2010) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ars Almadel 01:51
+02. Angel Horned 03:15
+03. Esoteric Formulae 04:20
+04. The Coronation of Seth 05:16(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB63E027DC3088BACB7C44ABA3332F5374303864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039160   (598180) от 31.07.2016
+
+Deicide - Deny The Cross (1992) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead But Dreaming
+02. Oblivious To Evil
+03. Satan Spawn, The Caco-Daemon
+04. Dead By Dawn(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61FCC44BF6248FD2712E2DA636AA2C2C19BDC64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038904   (598066) от 31.07.2016
+
+The Great Kat - Rossini's Rape (2000) EP [APE|Lossless|image + .cue] <Thrash Metal, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598066.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rossini's "William Tell Overture" for Symphony Orchestra & Band 01:53
+2. Sodomize 01:40
+3. Castration 01:12
+4. Bazzini's "The Road of the Goblins" for Violin, Piano & Band 01:35Жанр: Thrash Metal, ShredПродолжительность: 0:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1BE8E14493AD6E62AB41A83281E61B18F98188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548456   (597910) от 03.05.2022
+
+Nuiterra - ...in the Dark (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro the Dark [00:01:36]
+02 - Hundred 4 One [00:03:38]
+03 - Roar of Engine [00:03:32]
+04 - Black Rain [00:04:00](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A0FF33E600A6266E1418587DBE1CDB0165CA74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914311   (597733) от 02.07.2015
+
+Tarja - Luna Park Ride (2015) 2CD [FLAC|image+.cue]<Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Masters Of Rock 2010 / Vizovice, Czech Republic
+01. In for a Kill
+02. I Walk Alone
+03. Archive of Lost Dreams(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 02:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00621F8C4ADD15128E5076DF05785D9390E655D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526679   (597651) от 24.07.2012
+
+ReinXeed - Welcome To The Theater (2012) [FLAC|Lossless]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_597651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome (Intro) (1:12)
+02. Life Will Find A Way (5:37)
+03. Follow Me (3:53)
+04. Save Us (5:56)
+05. Stranger Tides (5:31)
+06. Somewhere In Time (6:17)
+07. Freedom (8:14)
+08. No Fate (6:51)
+09. Temple Of The Crystal Skulls (4:36)
+10. Welcome To The Theater (3:46)Жанр: Symphonic Power MetalПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548564   (596279) от 04.05.2022
+
+Green Hog Band - Crypt of Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Psychedelic Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dragon (00:06:11)
+02 - Iron Horses (00:03:53)
+03 - Crypt of Doom (00:06:45)
+04 - Heavier than Mercury (00:05:36)(   Читать дальше...   )Жанр: Doom Metal, Psychedelic Rock, Stoner RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C30CDCFF05C7CE4BA993B695F7C56229B7EBF8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548608   (596273) от 04.05.2022
+
+Mors Principium Est - Liberate The Unborn Inhumanity (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cleansing Rain
+02. Eternity's Child
+03. The Unborn
+04. The Lust Called Knowledge(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A655329C52B7443D6053077B66D9E32DAEE506E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548849   (595104) от 05.05.2022
 
 Agathodaimon - The Seven (2022) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Gothic Metal>
@@ -484,267 +751,6 @@ Manowar - Into Glory Ride (1983) Imperial Edition MMXIX, 2019 [WV|lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC6B9DC498EE9BDED5AB08A9562E990841FC3932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300752   (592758) от 07.05.2019
-
-Manowar - Hail To England (1984) Imperial Edition MMXIX, 2019 [WV|lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Of My Enemies (04:42)
-02. Each Dawn I Die (04:32)
-03. Kill With Power (04:10)
-04. Hail To England (04:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120389A180A4FDB48AE8D751AFEB6BF43F1B7BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300650   (592747) от 07.05.2019
-
-Manowar - The Final Battle I (2019) EP [WV|lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March Of The Heroes Into Valhalla (02:39)
-02. Blood And Steel (04:42)
-03. Sword Of The Highlands (05:59)
-04. You Shall Die Before I Die (06:08)Жанр: Heavy MetalПродолжительность: 00:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8E57552AB4022393C5FEDF9B2C003ACCE58026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549724   (592638) от 09.05.2022
-
-Mike LePond's Silent Assassins - Whore Of Babylon (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dracul Son 03:54
-02. Ides of March 04:45
-03. Tell Tale Heart 06:13
-04. Night of the Long Knives 06:06(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1566E1EA19A4FED6F6CAD3820012695F8E5E2458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550069   (592536) от 10.05.2022
-
-Múcaro (Mucaro) - Jinete del Sur (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cibucan (00:07:45)
-02 - El Hombre del Jardin en la Espalda (00:07:20)
-03 - Daca (00:05:32)
-04 - Descartes (00:07:25)(   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A772EDD783509BFD1B47CE0657402062736D24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549715   (592535) от 10.05.2022
-
-Midnight Burial - Conjuring Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Engulfed in Terror (00:06:30)
-02 - Beneath the Ashes (00:07:09)
-03 - Caverns of Sorrow (00:08:27)
-04 - Solemn Death Encompass (00:02:16)(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Post-MetalПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CFDEBA6143819007C6870807052E3D98699ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550056   (592533) от 10.05.2022
-
-Aiwass - Wayward Gods (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Titan (00:06:02)
-02 - From Chains (00:10:24)
-03 - Man As God (00:05:16)
-04 - Call of the Siren (00:08:50)(   Читать дальше...   )Жанр: Psychedelic Doom MetalПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465D1C1964BCF4D4D60D12EE1B33A45C050E3C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550012   (592527) от 10.05.2022
-
-Icarus Witch - Rise (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End
-02. (We Are) The New Revolution
-03. Rise
-04. Asylum Harbour(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C8E263EDB935129DB16EDF66ECFCEDCE14E36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549916   (592524) от 10.05.2022
-
-Cain's Dinasty - The Witch & The Martyr (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rising - Renegades (01:24)
-02. Wanderer (04:21)
-03. Two Graves (04:41)
-04. The Past - Dark Lullaby (01:04)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D202FA38AE130812D1B3B5B059E436F4DC4609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550258   (592521) от 10.05.2022
-
-Cain's Dinasty - Eva (2018) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испанская Power Metal группа Cain s Dinasty появилась летом 2006 года усилиями вокалиста и автора текстов Рубена Пикасо. Изначально группа ориентировалась на вампирический образ и мрачную тематику в своих песнях, которые постепенно развились и стали визитной карточкой группы. Крупнейшими достижениями коллектива можно считать сотрудничество с такими группами, как (   Читать дальше...   )01. Darkness Call
-02. While Sleeping
-03. Cain's Dynasty
-04. Fire And Faith(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F47BC861C079187E1C8FC87396BA2DF338C56F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

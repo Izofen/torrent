@@ -1,3 +1,32 @@
+###  Публикация: 1374759   (871357) от 11.04.2020
+
+Harry Allen - I Won't Dance (1999) BMG Japan [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O Pato [5:23]
+02. Corcovado (Quiet Nights) [3:56]
+03. Desafinado [7:02]
+04. Once I Loved [4:00](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72FC1DC75167C1585C29CBE55F9DCBD11F71E4E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114309   (871237) от 18.09.2021
 
 Vladimir Danilin, Alexei Kuznetsov, Alex Rostotsky (Владимир Данилин, Алексей Кузнецов, Александр Ростоцкий) - Once I Loved (1998) Boheme Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Sw ...
@@ -762,36 +791,6 @@ George Russell Sextet - Stratusphunk (1995) [APE|Lossless]<Jazz, Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F716A66D8ED2D7BCF626840BF16AE87F66E01F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873261   (868748) от 28.02.2015
-
-Ama Jazz - In These Last Times (1995) [FLAC|Lossless]<Jazz, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Hearing The Voice Of HIM? [06:58]
-02. Choosing The Way [06:48]
-03. With The First Rainbow [07:24]
-04. Keep Movement [07:08]
-05. David's Dance [02:07](   Читать дальше...   )Жанр: Jazz, Avant-Garde JazzПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F9FAC0F10043AB2944F39BF0F0A462FA7937F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

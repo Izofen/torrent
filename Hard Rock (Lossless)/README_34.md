@@ -1,3 +1,32 @@
+###  Публикация: 1272370   (718471) от 27.02.2019
+
+Scorpions - Gentle Power (Best Of The Ballads) (2018) Remastered, Unofficial [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Send Me An Angel
+02. You And I
+03. Is There Anybody There
+04. When The Smoke Is Going Down(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B13F17AF60921BE7A59DEAF5DE848FE9B00BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024380   (718150) от 08.06.2016
 
 Vega - Who We Are (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -716,35 +745,6 @@ Soul Doctor (ex-Fair Warning, Bonfire) - 6 альбомов (2001 - 2009) Japan 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFE886E692F137093C8E679050D60D1139219B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401496   (709545) от 10.08.2020
-
-Rhino Bucket - The Hardest Town (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hardest Town (04:01)
-02. Justified (04:27)
-03. Know My Name (03:44)
-04. Dog Don't Bite (05:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744782C8941C1F8BAF0CA95B76457D733A2B2293
 ```
 
 https://mybot314.ru/tekegram_catalog/

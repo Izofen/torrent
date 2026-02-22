@@ -1,3 +1,38 @@
+###  Публикация: 528486   (571565) от 29.07.2012
+
+Breaks Co-op - Roofers (1997) [FLAC|Lossless]<Nu Jazz, Future Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking Forward
+02. To Faraway Lands
+03. Sound Advice
+04. Perpetual Breath
+05. Let Your Hair Down
+06. Solids
+07. Unfettered Mind
+08. Live At The Lister
+09. Charging Depths
+10. Such The Spot(   Читать дальше...   )Жанр: Nu Jazz, Future JazzПродолжительность: 01:44:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528916   (571559) от 29.07.2012
 
 Наталья Метелева | Огнетушитель для дракона [2009] [FB2]
@@ -676,32 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:874797F563694791A137AC8763C02C4DD393A926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360356   (571371) от 13.07.2011
-
-Linkin Park - Iridescent (2011) HDRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linkin Park сняли клип на песню "Iridescent" с альбома "A Thousand Suns". Кроме того песня вошла в диск с саундтреком к фильму "Трансформеры 3: Тёмная сторона Луны". Режиссёром клипа стал Джо Хан.Жанр: видеоклипРежиссер: Джо ХанАктеры: Linkin ParkПеревод: ОтсутствуетПродолжительность: 00:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A967589E7AC607B969253DB10863292CB60FFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1158982   (488136) от 18.08.2017
+
+Joe Zawinul - Concerto Retitled (1976) 2007, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Vienna With Love [04:27]
+02. My One And Only Love [03:50]
+03. Riverbed [05:10]
+04. Concerto Retitled [05:24](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305A40425773FDA1B9D4C91B48ED38415056AE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158855   (488132) от 18.08.2017
 
 The Dave Brubeck Quartet - For Iola (1985) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -722,35 +751,6 @@ Milt Buckner - Green Onions (1975, 1977) 2000, Black And Blue [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4623704CFCC4E7D35ED4030D54F673CDE5DF06E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244217   (484209) от 31.08.2018
-
-Urbie Green - East Coast Jazz, Vol.6 (1955) 2001, Bethlehem [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mutation [3:12]
-02. On Green Dolphin Street [3:34]
-03. Just One of Those Things [4:21]
-04. How About You? [2:49](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1138BA5FBEDDFE417C5FFEB502A8B649019EEB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

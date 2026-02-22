@@ -1,3 +1,177 @@
+###  Публикация: 1705686   (113785) от 09.03.2024
+
+Electro Deluxe - NEXT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nakie Nakie (4:38)
+02. One In A Million (4:17)
+03. 1979 (4:48)
+04. Who's Got Your Back? (5:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D184607725D99D06D09A9E5B294C4A00B77AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705588   (113782) от 09.03.2024
+
+Sonata Arctica - Clear Cold Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First In Line (5:22)
+02. California (4:25)
+03. Shah Mat (4:09)
+04. Dark Empath (6:05)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50F2EC87CAC8594EA5CF41EE0AA5AB2233AF280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705693   (113767) от 09.03.2024
+
+Vincent Touchard Trio - L'air du temps (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aujourd'hui (5:58)
+02. Lâcher-prise (4:20)
+03. 42 à Brest (4:59)
+04. Sobriété (4:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F716BDFBC601E930CE779BD1B161D3B5F9BA59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705602   (113765) от 09.03.2024
+
+Alterium - Of War and Flames (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drag Me to Hell [00:03:02]
+02. Siren's Call [00:04:09]
+03. Of War and Flames [00:04:46]
+04. Firebringer [00:03:52](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E7667C0489E0993E538C6BFB945484BE36C5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705830   (113760) от 10.03.2024
+
+Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossless|tracks] <Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Настоящее золото - легкая жизнь. Solid Gold, Lasy Actiont.
+02 - Парень ХХ века. 20th Century Boy.
+03 - Мечта малолеток. Teenage Dream.(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AED9FADE70D26B840E0FDA2D82801A4AB529BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705723   (113754) от 10.03.2024
+
+Сергей Маврин - Студийные альбомы (20 изданий) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113754.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Маврин» (ранее «Маврик», 1997–2001, и «Сергей Маврин», 2001—2009) — российская хеви-метал-группа, получившая название в честь основателя группы Сергея Маврина, бывшего гитариста группы «Ария». Существовала в течение четверти века: с 1998 по 2023 гг.1997 - Смутное время
+1998 - Скиталец
+2000 - Неформат 1
+2001 - Химический сонЖанр: Progressive Heavy MetalПродолжительность: 17:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5153A135BEDCE23ABA17CA1FC06930A9C7B55BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705829   (113752) от 10.03.2024
 
 Freddie Mercury & Montserrat Caballe - Barcelona (1988) 1992 [FLAC 24/192|Lossless|tracks] <Symphonic Rock>
@@ -571,180 +745,6 @@ VA - Летная погода. Песни на стихи Михаила Тан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63126EB0B7897E07B1C15273756C1E0F2F1F0262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706538   (113587) от 13.03.2024
-
-VA - Мир песни (1 серия) (1973) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Подмосковные вечера (В. Соловьев-Седой) – оркестр Рея Коннифа
-02. Пей из источника (Д. Холидей) – Джонни Холидей
-03. Влюбленные из Софии (В. Казасян - Д. Ценов) – Лили Иванова(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5117310C952C2444FCC81F1E705322C1916057A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706531   (113571) от 13.03.2024
-
-VA - Играй ещё - Keep On Playing (1981) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01 - Птица счастья (А. Пахмутова) — 3.16
-ВИА «Здравствуй, песня». Художественный руководитель А. Хаславский
-02 - День в сентябре (Р. Газизов) — 3.32(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C77DC329D6362CAB98D68F297861606B1447455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706532   (113567) от 13.03.2024
-
-VA - Леонид Дербенев - Треугольное солнце (Робинзон II) (1987) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01 - Новый танец «Робинзон» (О. Сорокин)
-02 - Небывальщина (О. Сорокин)
-03 - Треугольное Солнце (О. Сорокин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64E8A347E130BF14A72F250733C93DDF7619177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706543   (113564) от 13.03.2024
-
-ВИА «Скальды» (Польша) - Скальды (1973) [FLAC 24/192|Lossless|tracks] <Folk Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Размышления деревенского почтальона. (Слова Л.Мочульского, русский текст Г.Хила)
-02 - Прелестная виолончелистка. (Слова В.Миннарского, русский текст Г.Хила)
-03 - Если ты любим. (Слова А.Ястшембец-Козловского)(   Читать дальше...   )Жанр: Folk Rock, PopПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF325A340C78E3BCB2C441E20289BC180A4E19E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706497   (113537) от 13.03.2024
-
-Darkthrone - A Blaze in the Northern Sky (1992) Reissue, 2009, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113537.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Kathaarian Life Code
-A2 In The Shadow Of The Horns
-A3 Paragon Belial
-B1 Where Cold Winds Blow(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680077D83BA132D0C3704C8609291041C7621546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706679   (113536) от 13.03.2024
-
-M.O.D - U.S.A. for M.O.D (1987) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113536.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Aren't You Hungry
-A2 Get A Real Job
-A3 I Executioner
-A4 Don't Feed The Bears(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30EE1E98ADF72E3B6A7E779F085AA30AC48D3C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

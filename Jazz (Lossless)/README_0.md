@@ -1,3 +1,32 @@
+###  Публикация: 1602126   (1046224) от 04.01.2023
+
+Woody Herman & Erroll Garner - Music For Tired Lovers (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Melancholy Baby [4:00]
+02. I Hadn't Anyone 'Till You [3:51]
+03. Medley: Let's Fall in Love / Moonglow / I Don't Know Why (I Just Do) / You've Got Me Crying Again [10:26]
+04. If I Could Be With You (One Hour Tonight) [2:39](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583D00AB7BDDA593C823039E7C6E112F844324D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602130   (1046213) от 04.01.2023
 
 The Universal-International Orchestra - The Glenn Miller Story (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ Scott Hamilton & Karin Krog - The Best Things In Life (2015) Stunt Records [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E35DCD2E9AE1DF98D34D0FE7423191C730ED2F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603865   (1045584) от 11.01.2023
-
-Herb Alpert - Sunny Side of the Street (2022) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Childhood
-02. Pata Pata
-03. Goo Goo Eyes
-04. I'll Remember You(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D510111EED05706231C7E16E8C0C89E8F65381B
 ```
 
 https://mybot314.ru/tekegram_catalog/

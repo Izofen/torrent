@@ -1,3 +1,61 @@
+###  Публикация: 1235225   (562148) от 10.07.2018
+
+Johnyboy - Вне времени (2018) [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. На всю башку
+03. Русский рижанин
+04. Не надо учить(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87655193EF3B9D1FD38C1978BD83184CE60510AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152860   (561324) от 25.07.2017
+
+Соль Земли - О лютой ненависти и святой любви (2017) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - С менталитетом меченосца
+02 - День когда вскипят океаны
+03 - Боевое применение
+04 - Интерлюдия 1  (Уильям Блейк)(   Читать дальше...   )Жанр: RapПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96BAED95E71990E3ECB00D8FF23A924FE8B46E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235695   (557322) от 13.07.2018
 
 Krec - Head (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -687,64 +745,6 @@ UB40 feat. Ali Campbell & Astro - Unprecedented (2022) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFCAD409E61DEC1487FFBF793251ACC87F2E96BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936132   (493442) от 12.09.2015
-
-25/17 - Пар (2015) EP [MP3|320 кб/с]<Rap-Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Торт
-02. Каток
-03. Людмила
-04. Пар(   Читать дальше...   )Жанр: Rap-RockПродолжительность: 00:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3DA0A123EFD75016BDF724DC534DAE79D70F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054015   (491946) от 20.09.2016
-
-Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Electronic>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Have Candy
-02. Daddy
-03. Banana Brain
-04. Shit Just Got Real (Feat. Sen Dog)(   Читать дальше...   )Жанр: Hip-Hop, ElectronicПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5504BA87C1C2371A2BA5207F77911A96A7B90AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

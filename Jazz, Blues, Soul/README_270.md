@@ -1,3 +1,90 @@
+###  Публикация: 1151088   (574504) от 18.07.2017
+
+Art Pepper & Shorty Rogers - Complete Lighthouse Sessions (1951) 2001, The Jazz Factory [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Popo [11:30]
+02. What's New? [02:21]
+03. Lullaby in Rhythm [05:36]
+04. All the Things You Are [03:09](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6971E8D619B38DEF22A9E72B09BF597B6FFE330C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303372   (574458) от 20.05.2019
+
+Sonny Stitt - Stitt's It (1949 - 1952) 2001, TIM [APE|Lossless|image + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elora [3:12]
+02. Afternoon in Paris [3:05]
+03. Teapot [3:06]
+04. Blue Mode [3:47](   Читать дальше...   )Жанр: BopПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACB5C1FD42A5AD896E1ECF62331795B2F670058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554671   (574161) от 01.06.2022
+
+Bobby Short - You're The Top: Love Songs Of Cole Porter (1999) Telarc [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est Magnifique [3:54]
+02. I Love You, Samantha [4:22]
+03. You Do Something to Me [2:48]
+04. You'd Be So Nice to Come Home To [2:59](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB84B507E6B89FA9748486D9B12F247B073485CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554838   (574160) от 01.06.2022
 
 John Hart - Checkmate (2021) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -658,93 +745,6 @@ Incognito - In Search Of Better Days (2016) [FLAC|Lossless|image + .cue] <Funk, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:212E7C141FE879C347D97FB87952A79032D1CBDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555065   (572513) от 02.06.2022
-
-Andy Lindquist - Your Mother's Eye's (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Mother's Eyes
-02. Goodbye Mother
-03. The Lord Give Me That
-04. Brick(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190706A956CB536CA9EFE32BB0A9DC7D2D990562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555144   (571975) от 02.06.2022
-
-Mungo Jerry - Somelight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight City (3:54)
-02. Lord What Have We Done (4:03)
-03. Whole Lotta Rhythm (5:24)
-04. The Lockdown Thank You Song (3:02)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95DB4985FF9FB02E5F5BF1939778AC7B9CE5EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555177   (571969) от 02.06.2022
-
-Fantastic Negrito - White Jesus Black Problems (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Blues Rock, Reggae, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venomous Dogma (5:32)
-02. Highest Bidder (3:34)
-03. Mayor of Wasteland (0:49)
-04. They Go Low (3:43)(   Читать дальше...   )Жанр: Blues Rock, Reggae, SoulПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F42F07DDD97A362892E9C6A5CE88545507E15E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

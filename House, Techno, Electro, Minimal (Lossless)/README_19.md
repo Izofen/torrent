@@ -1,3 +1,61 @@
+###  Публикация: 1201485   (792262) от 25.01.2018
+
+VA - La Voile Rouge : St Tropez (2009) [FLAC|Lossless|tracks] <House, Electro House, Chill Out>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guru Josh Project - Infinity (Steen Thottrup Chill Mix)
+02. Love, Marchi's Flow, Miss Tia - Feel The Love (Paul Sander Klaas Mix)
+03. Reunited - Sun Is Shining (Gauzz Chill Mix)
+04. Bimbo Jones - Tell Me My Name(   Читать дальше...   )Жанр: House, Electro House, Chill OutПродолжительность: 02:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5518956784308C7BCCF64ED39B957710CCD6E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274716   (792253) от 08.01.2019
+
+Dark Strands - Unknown Truths (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Disco, Experimental, Space Rock, Krautrock>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Drive (06:13)
+02. Cold Turkey (05:37)
+03. Will Last Forever (06:40)
+04. Unknown Truths (05:09)(   Читать дальше...   )Жанр: Deep House, Disco, Experimental, Space Rock, KrautrockПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB05825B0909C87E09240FEDE9FCE1A0347A925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201498   (792233) от 25.01.2018
 
 DJ Koze - Seeing Aliens (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
@@ -684,64 +742,6 @@ VA - Sextape 50 Chansons Pour le Sexe (2009) [FLAC|Lossless|tracks] <Electronic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6685F94938A296704A5B145CBFDAAE039D6F2951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203068   (789099) от 31.01.2018
-
-Microtrauma - Sonar (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonar (08:18)
- 02. Vona 1.2 (06:44)
- 03. Filamenta (06:59)
- 04. 5254 (05:13)(   Читать дальше...   )Жанр: Techno, Progressive House, MinimalПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0785EEC134D394FAB49CE2B876E545D74E0AA028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203016   (789064) от 31.01.2018
-
-Svårmod Records (Svarmod Records) - Label 2 Releases (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Dark Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeterno (06:33)
- 02. Generator Insaniam (05:46)
- 03. Alternatively Insanire (05:30)
- 04. Sator Abstentia (06:32)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Dark AmbientПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C21A34FD6CB9282F2CE8984B3DFA51DBCAFA5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,95 @@
+###  Публикация: 1042845   (575963) от 14.08.2016
+
+VA - Sport Music Fitness Personal Trainer - 200 Songs (2016) [MP3|320 Kbps] <House, Electro House, Progressive, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575963.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Kold  -  Sidechain  4:49
+002. California Sun  -  Touch the Sky (Extended Mix)  5:18
+003. Alain Chavez  -  Private Area  5:42
+004. Calabria  -  Evolver (Club Mix)  6:19(   Читать дальше...   )Жанр: House, Electro House, Progressive, Dance, ClubПродолжительность: 19:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01102AC3CF5B373E4A399769552D55324C4794CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526457   (575061) от 27.07.2012
+
+Groove Armada - Goodbye Country (Hello Nightclub) (2CD) (2001) [MP3|320 кб/с]<Electronic,  House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575061.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Superstylin' (Q.A. Discotek Mix) (5:47)
+ 2. Moira's Theme (3:53)
+ 3. Mali (6:27)
+ 4. Lazy Moon (Live Version) (6:45)
+ 5. Rap (Q.A. Alternative Mix) (4:09)
+ 6. Your Song (Tim "Love" Lee's Semi-Bearded Remix) (7:36)
+ 7. A Private Interlude (Kinobe Remix) (5:38)
+ 8. Old Father Rhyme (4:20)
+ 9. My Friend (Dorfmeister Vs. Madrid De Los Austrias Dub) (6:23)Жанр: Electronic,  HouseПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7ECE04FD6B855468A7CCF3660C8DA4DDB19965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234175   (574701) от 03.07.2018
+
+VA - Future Workout Summer '18 (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Punks - Doing Faster
+02. Tim Space - Dirty Disco
+03. Jack Souza - Give Me Love Again
+04. Chris Taker - Believe in Me(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0E9FE3D75197B31939EA3C2D9717F86407E8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151283   (574635) от 18.07.2017
 
 VA - Selektor Music Presents Summer Jams (2017) [MP3|320 Kbps] <House>
@@ -666,93 +758,6 @@ VA - Essential House Society Vol. 2 (2016) [MP3|320 Kbps] <House, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22C672ED944DA52923441B82E8112A27B4D9306D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555922   (565310) от 06.06.2022
-
-VA - Summer Megamix 2022 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas - Shine A Light 2:59
-02. Micha Moor - Obsession 2:35
-03. Calmani & Grey, Alexandra Prince - Superstar 2:59
-04. The Disco Boys - Around The World (Dazz Remix) 2:39(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D4F1A7CE4A001259F482DD8ABCB22AE73AD626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304255   (564092) от 26.05.2019
-
-VA - 25 Compost Records (2019) [MP3|320 Kbps] <Nu Disco, Deep House, Electronica, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beanfield – Human Patterns (Roman Flugel Remix)
-02. Ron Deacon – Bring It On
-03. A Forest Mighty Black – Fresh In My Mind (I:Cube Remix)
-04. Marsmobil – It Doesn't Matter How You Are (Ripperton Remix Instrumental)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Electronica, DowntempoПродолжительность: 04:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BA83FA5088B873BD781D9923971D748045AC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923252   (562626) от 01.08.2015
-
-VA - Toolroom Ibiza 2015 (2015) [MP3|320 кб/с]<Tech House/Deep House/Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Like I Can (Jonas Rathsman Remix)
-02. Jon Hopkins - Open Eye Signal (George Fitzgerald Remix)
-03. Booka Shade, Karin Park - Line Of Fire Feat. Karin Park (Tube & Berger Remix)
-04. Claptone - The Music Got Me (Original Mix)(   Читать дальше...   )Жанр: Tech House/Deep House/TechnoПродолжительность: 11:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A0A7DE5361768080B4856C268DABEB5CD995C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

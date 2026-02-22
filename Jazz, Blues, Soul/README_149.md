@@ -1,3 +1,87 @@
+###  Публикация: 1010084   (804388) от 24.04.2016
+
+Jan Lundgren Trio - Svenska landskap (2003) Sittel Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Slangpolska efter Byss-Kalle [04:42]
+ 02.Allt under himmelens faste [04:09]
+ 03.Medley [06:48]
+ 04.Brannvin ar mitt enda gull [04:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22263B2B31CEBEA4A6EC8C32712AA4BDC9306D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384240   (804382) от 19.05.2020
+
+Miles Davis - Miles in St. Louis 1963 (1981) Soulard Intertainment Co. [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Thought About You [8:03]
+02. All Blues [12:46]
+03. Seven Steps to Heaven [10:36]
+04. St. Louis Interview [17:16](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61ED7D6803833421F99F9A555E5E987978A66CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 778574   (804339) от 19.04.2014
+
+VA - Pure... Jazz (2010) Box Set, 4 CD [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие из джазистов, представленных здесь, уже побывали в нашем клубе в различных релизах. Но, если вы хотите получить представление о всех стилях  джаза что называется "в одном флаконе", то обязательно послушайте эти 4 диска. Фирма Sony, продолжая свою серию Pure... (см. под спойлером остальные части), знакомит любителей музыки с самыми знаменитыми джазовыми (   Читать дальше...   )Жанр: Jazz (стили см. под спойлером)Продолжительность: 04:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6F1F0FC4A9C2521346356AAD7B1ACB84E1EFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010313   (804307) от 24.04.2016
 
 Reuben Wilson - Got to Get Your Own (1975) 2008, Dusty Groove America[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
@@ -658,93 +742,6 @@ VA - Five Star Blues Rock (2016) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE4A72FE108FF4E5DE410E56B38A455B22628F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199285   (801849) от 15.01.2018
-
-Charles Fambrough - The Proper Angle (1991) CTI [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Quixote [06:33]
-02. The Dreamer [07:19]
-03. Uncle Pete [04:16]
-04. Sand Jewels [07:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5800D00545A6A4A782F5F24AC4442869D8A95F66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199290   (801844) от 15.01.2018
-
-Bennie Moten's Kansas City Orchestra - 1929 - 1930 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Certain Motion [03:06]
-02. It Won't Be Long [02:50]
-03. When Life Seems So Blue [02:53]
-04. Loose Like A Goose [02:56](   Читать дальше...   )Жанр: Early Jazz, SwingПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AF2FD1B35ACA6173EBA6DBDE2BCCF54FA1403C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384641   (801830) от 21.05.2020
-
-The Horace Parlan Trio - No Blues 1975 (1992) SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Blues [6:14]
-02. My Foolish Heart [4:58]
-03. Have You Met Miss Jones? [5:08]
-04. A Theme for Ahmad [5:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8FC187EDE1E9D8995EE3CAF33C858DE57A5512B
 ```
 
 https://mybot314.ru/tekegram_catalog/

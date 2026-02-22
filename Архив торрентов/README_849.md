@@ -1,3 +1,29 @@
+###  Публикация: 984333   (939634) от 08.02.2016
+
+UsbFix Free 2016 8.189 Portable [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939634.jpg" />
+</div>
+
+
+###  Подробнее
+
+UsbFix бесплатная, утилита, базирующая на двигателе популярного антивируса BitDefender, для удаления вредоносных программ, которая поможет вам определить и удалить вредоносные программы с USB карты памяти или любых других извлекаемых USB устройств таких как внешний HDD (Hard Drive), телефоны, смартфоны, цифровые камеры или любых подключаемых устройств к вашему компьютеру (   Читать дальше...   )Язык интерфейса: Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61F8444CC13A65A2ED17D8CEB7EEFB336D3D7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983711   (939628) от 08.02.2016
 
 Any DVD Converter Professional 5.9.1 Portable by PortableAppZ [Multi/Ru]
@@ -674,32 +700,6 @@ W&W - Tomorrowland Friendship Mix 2020-02-27 [MP3|320 Kbps] <Electro House, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:003C7BB83A532F00140B71647698D1ED6A258681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364033   (939529) от 01.03.2020
-
-AMA Supercross Championship: Atlanta (29.02.2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939529.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Вячеслав Брыкин)Продолжительность: 02:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C72306114F95AD7A7AA4125AA465C133F0A1BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

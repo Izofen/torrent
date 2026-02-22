@@ -1,96 +1,3 @@
-###  Публикация: 1682221   (131533) от 07.12.2023
-
-Old Ruins - Always Heading East (2023) [MP3|320 Kbps] <Heavy, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Servant's Diary (01:10)
-02. The Dark Wanderer (05:47)
-03. Tristram (04:56)
-04. The Desert Sands (04:56)(   Читать дальше...   )Жанр: Heavy, Post-Black MetalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465A75F61A7ADAFC17563C7BD74CA3021416B584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682499   (131509) от 07.12.2023
-
-Six Foot Six - Beggar's Hill (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Raise the Dead (04:18)
- 02 - Tears (03:10)
- 03 - Voices Inside (04:59)
- 04 - Beggar's Hill (03:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C1120D5E4E7790ABE9DADE22F0137EE449111C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595357   (131018) от 31.12.2012
-
-Guttural Engorgement - The Slow Decay Of Infested Flesh [Digi-Pack Limited Edition] (2010) [MP3|320 кб/с]<Brutal Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Process Begins (Intro)
- 02. The Slow Decay of Infested Flesh
- 03. Job For A Hammer
- 04. Bile Defilement
- 05. Molested Dissection
- 06. Cadaveric Maggot Copulation
- 07. Omnipresent Ecchymosis
- 08. Cinder Block Facial Reconstruction
- 09. Steak Knife Face Fuck
- 10. Chopsaw Sodomy(   Читать дальше...   )Жанр: Brutal DeathПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EB1A848B3A2CACF68FE8657D85AD2AA92D1FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595335   (131011) от 31.12.2012
 
 General Surgery - A Collection of Depravation (2012) [MP3|320 кб/с]<Death Metal / Goregrind>
@@ -322,35 +229,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683543   (128381) от 11.12.2023
-
-Immortal Synn - The Singles Collection (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Don't Let Me Down (03:38)
- 02 - Haunted (04:41)
- 03 - Anamnesis (Radio Edit) (03:32)
- 04 - Satan's Tavern (Radio Edit) (03:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB396A8A2444346EE4C0AB6565F0C9A18A641A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684254   (127618) от 16.12.2023
 
 Therion - Leviathan III (2023) [MP3|320 Kbps] <Symphonic Rock, Operatic Metal>
@@ -431,35 +309,6 @@ Dusk - Dissolve into Ash (2023) [MP3|320 Kbps] <Doom Metal, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F160DCEA9EEF032D7574B9F42A8F1168A3E85B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686639   (126434) от 23.12.2023
-
-Third Eye - Vengeance Fulfilled (2023) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashes in the Rain (05:24)
- 02. At the Break of Dawn (04:32)
- 03. Forest of Lies (05:30)
- 04. Even the Gods Cry (06:05)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78120F24A2EE443226DF0E8AF4E1D27FA9A6D2BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,35 +490,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692857   (122162) от 18.01.2024
-
-Saxon - Hell, Fire and Damnation (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prophecy (01:24)
- 02. Hell, Fire And Damnation (05:33)
- 03. Madame Guillotine (05:25)
- 04. Fire And Steel (03:37)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E2CFEB5A0A426A681017C09C0B65E4E09AB75E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693531   (121702) от 21.01.2024
 
 Cartesian Ghost - Lux Arcana (2023) [MP3|320 Kbps] <Heavy Progressive Metal>
@@ -779,6 +599,180 @@ Byron - Chapter II: The Lotus Covenant (2024) [MP3|320 Kbps] <classic melodic me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69544D502F0C192854CC5E8E86FE968CB6D46BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694574   (120785) от 26.01.2024
+
+Static-X - Project Regeneration, Vol. 2 (2024) [MP3|320 Kbps] <Nu-Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Stay Alive [00:03:46]
+02 Z0mbie [00:03:11]
+03 Jic Boi [00:02:58]
+04 Black Star [00:04:00](   Читать дальше...   )Жанр: Nu-Metal, Industrial MetalПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E94B6A253F26BA2780DF5B76E60C795249FC3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694587   (120766) от 26.01.2024
+
+Any Given Day - Limitless (2024) [MP3|320 Kbps] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get That Done
+02. Unbreakable
+03. Limitless
+04. Come Whatever May(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEDC7BD87A8E65F392011F79215D8DE00310F75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694850   (120670) от 27.01.2024
+
+Second Shooter - Fury Made Flesh (2024) [MP3|320 Kbps] <Groove Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Protect And Serve [00:03:34]
+02 - Diana The Huntress [00:04:06]
+03 - Palm Reader [00:04:37]
+04 - Bringer Of Death [00:04:15](   Читать дальше...   )Жанр: Groove Metal, MetalcoreПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BB2055DE03EE4C8121AAAF5CB1098CD65AFD2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695492   (120251) от 29.01.2024
+
+Indignatio - Principium (2023) [MP3|320 Kbps] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destilando Odio (03:40)
+02. Mi Silencio (03:24)
+03. Indignación (04:38)
+04. Oscura Traición (03:57)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0656B3D43E56B7107FA91407370B7E51B552D965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696505   (119440) от 03.02.2024
+
+Nekonomicon - Choose Your Fighter! (2024) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Approaching the Void (03:38)
+02. Race of Life (03:30)
+03. Castlevanian Hunger (03:16)
+04. Fog of War (03:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28EBCBF5E5131229F44A4BBF37E81493C39ED155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696848   (119335) от 04.02.2024
+
+Black Tears of the Fallen - Mirroring (2024) [MP3|320 Kbps] <Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Just to Die Again [00:04:45]
+02 - The Key [00:06:20]
+03 - The Black Horse Comes [00:05:40]
+04 - The Devil in the Mirror [00:06:44](   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8966109ADAC623AEDA48E0D06AD952B7CE2624
 ```
 
 https://mybot314.ru/tekegram_catalog/

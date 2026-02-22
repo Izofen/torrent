@@ -1,3 +1,90 @@
+###  Публикация: 1359160   (964996) от 11.02.2020
+
+Новогодний концерт Венского филармонического оркестра / Neujahrskonzert der Wiener Philharmoniker (2020) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии. Концерты, которые Венский филармонический оркестр дает ежегодно, по праву считаются одним из крупнейших мировых музыкальных событий года. К этому концерту знаменитый симфонический оркестр долго (   Читать дальше...   )Carl Michael Ziehrer
+Overture to "Die Landstreicher (The Vagabonds)"
+Josef Strauss
+Liebesgrüße (Greetings of Love) Waltz, op. 56(   Читать дальше...   )Производство: Австрия/Sony Classical, ORFOЖанр: Музыкальный концерт, классическая музыкаРежиссер: Хеннинг КастенПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 01:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87E2E5ADF82B96DE958966EA5BB86688E087AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359222   (964934) от 11.02.2020
+
+Сборник клипов 01 (02.2020) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за февраль 202001_Francesca Lombardo - Call Me Wrong
+02_Боронина - Малолетка
+03_Milk Sugar, Münchner Symphoniker, Euphonica - Right Here, Right Now
+04_МАЧЕТЕ - Никуда не смыться(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F264249F1B1E5C1F4405E7307086D3098D60C23F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746255   (964828) от 17.01.2014
+
+Gregorian - Epic Chants Tour 2013 (2013) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964828.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Gregorian" проект знаменитого продюсера Франка Петерсона, среди подопечных которого Сара Брайтман, Офра Хаза, "Enigma". Название отражает суть, вернее, ее часть: в манере григорианского песнопения звучат отнюдь не молитвы, а знаменитые на весь мир поп и рок хиты! В раздаче находится бонусный DVD, вышедший в специализированном издании в Германии (   Читать дальше...   )01. Chariots Of Fire
+02. Conquest Of Paradise
+03. The Sound Of Silence
+04. The Rose(   Читать дальше...   )Производство: Nemo StudiosЖанр: New Age, Pop, Neo-Medieval, Symphonic Rock, Classical CrossoverСубтитры: НетПродолжительность: 01:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DEAA392C173C2CD730B7CE5D8A80F2A67CD7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 620688   (964376) от 19.02.2013
 
 Black Uhuru. Live in Essen (1987) DVDRip
@@ -653,90 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F30BB89780BEF1F2A8582EE4BAD756DF95B4DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622268   (960469) от 22.02.2013
-
-"O2label"/Pulsar (vol.2.) HDTV 720p (2013) HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here I Am
-02. In Harmony With The World
-03. Mysteries Of Baikal
-04. Nomads Of The North(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 01:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEA38059D829E2A862F34706F8C4776A9D62F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622299   (960464) от 22.02.2013
-
-"O2label"/Strannik (vol.1.) HDTV 720p (2013) HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Blue
-02. An Universe Is In A Pocket
-03. Autumn
-04. Out Of Mirror(About Love)(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3ABF01FE6A40FB23B591A4E47EC9BB44CCA473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622058   (960319) от 22.02.2013
-
-Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectronicПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38EDAF4941AC802103734A7644B8B967ACB6A44F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1055827   (485350) от 23.09.2016
+
+Шаблоны - GraphicRiver - Glitch Effect [PSD]
+
+>>След.
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересный шаблон для вашего творчество с эффектами глюка.Формат: PSDРазрешение файлов: 25002000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8030E87A3F2E3C74C58DEDEE1EB81DC1F01A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 700038   (484520) от 14.09.2013
 
 Шаблоны - Фотореалистичные макеты логотипов / Photorealistic Logo Mockups [PSD]
@@ -655,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA8E5E93A03E0549A63CA0DEA4F7315F843A6448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555841   (430735) от 03.10.2012
-
-(Шаблоны PSD) Blanc CD-DVD
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многослойный шаблон - Blanc CD-DVD
-Для оформления ваших релизов!Разрешение файлов: 4000х2500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44AF8189D6D42FD1DF6C08390D7511D24AA4E72
 ```
 
 https://mybot314.ru/tekegram_catalog/

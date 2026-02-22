@@ -1,3 +1,32 @@
+###  Публикация: 1829585   (202434) от 26.10.2025
+
+CWT (Clockwork Times) - CWT (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хулиганы низших лиг [00:03:20]
+02. Верни мне мой 2002 [00:02:35]
+03. Замещение [00:02:24]
+04. На концерте [00:03:16](   Читать дальше...   )Жанр: Punk, SkaПродолжительность: 00:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146C3D95D9B61664F98658C2C1CBEA77701AE1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 139849   (201829) от 30.08.2023
 
 Агата Кристи - Полное коллекционное переиздание (13 альбомов) (2008) [FLAC|lossless]<Rock>
@@ -711,35 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E392DA448A5A0D7C8D59EAE1C1453BD138412A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588665   (191396) от 05.11.2022
-
-Добрые Поступки - Антимир (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Антимир [00:03:08]
-02. Назло [00:04:06]
-03. Гулливеры [00:03:40]
-04. А Вы? [00:03:21](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975BEAF77188AB1FA34D3D048D0EAE1D590F7BE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

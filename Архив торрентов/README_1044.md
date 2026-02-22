@@ -1,3 +1,29 @@
+###  Публикация: 1097090   (915385) от 26.01.2017
+
+Bandicam 3.3.1.1191 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E4BF27A356C1F19C3CE67EDF527631CF9BBD56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096446   (915382) от 26.01.2017
 
 Mozilla Firefox Nightly 53.0a1 (2017-01-23) [Ru]
@@ -657,41 +683,6 @@ VA - Mental Asylum pres. 5ive Zero (Mixed by Matt Bowdidge, James Dymond & Eddie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A82FB9C520A3E1DB886DF0C7D000250DF6D68660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289828   (915189) от 02.02.2011
-
-Brooklyn Bounce - More BB-Styles (2011) [MP3|320 kbps]<Progressive House, Hardstyle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex, Bass & Rock'n'roll (Danceboy Remix Edit) (4:51)
-02. Bass, Beats & Melody (Skitz Clubb Remixx Edit) (4:18)
-03. Take A Ride (Douglas Palmer Remix Edit) (3:35)
-04. The Real Bass (Basslouder & DJ H@rd Tune! Remix Edit) (3:12)
-05. Loud & Proud (Dave Joy Meets The Sixth Sense Remix Edit) (3:04)
-06. Club Bizarre (DJ Zealot Remix Edit) (3:51)
-07. X2X (We Want More!) (Primax Main Edit) (3:14)
-08. X2X (We Want More!) (Primax Progressive Remix Edit) (3:18)
-09. Canda! (The Darkside Returns) (Mazell Remix Edit) (3:43)
-10. The Real Bass (Hardstomper Aka DJ Patrick Remix Edit) (2:46)(   Читать дальше...)Жанр: Progressive House, HardstyleПродолжительность: 01:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C339EDAB6F8FB6CBE5CA2614EC1F66E3E98A4A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

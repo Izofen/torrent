@@ -1,3 +1,92 @@
+###  Публикация: 1422038   (313048) от 07.11.2020
+
+VA - Rare80 Records - Rare80 Volume 3 (2013) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rare80 Volume 3 CD1
+01. Tea Es - Captain Terra X (24 More Hours) (Extended Version)
+02. Les Montes - Night Life (Single Version)
+03. Rewind - Rosalie (Pop & Go!) (Dub Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063C4C27A44DFDC38B2902FAD9971A6D6B0FBA4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583255   (312674) от 02.12.2012
+
+Supermax - Hello, Kurt! (2011) [MP3|320 кб/с]<Funk,Disco,Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Funk,Disco,ReggaeПродолжительность: 02:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C3971DB0B674B081C2EE4727879E08CA4B4876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583331   (312666) от 02.12.2012
+
+Frank Duval - Touch My Soul (1989) [MP3|320 кб/с]<Pop-Rock>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch My Soul (To Sai Baba) 7:31
+02. Avedana (Instrumental) 4:20
+03. Life Will Go On 4:12
+04. He Came From Space 4:29
+05. And At The End Of Every Street 4:02
+06. Children Of Our Time 4:15
+07. And One Day 5:05
+08. Closer To Heaven 5:13
+09. Help Me 5:25Жанр: Pop-RockПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF0D0CEAAB2E7301FCB7DD74B0A4900770E7A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582887   (312579) от 02.12.2012
 
 Bad Boys Blue - 25 Best Hits (2012) [MP3|320 кб/с]<Pop,Disco>
@@ -681,93 +770,6 @@ VA - A Playlist of Love Songs (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:489F8DD71DC90ABD3D1E4E533B16485F6CF2215C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260089   (310110) от 08.11.2018
-
-VA - Die Deutschen Disco Charts - Die Hits Des Jahres (2018) 3CD [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310110.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Eloy De Jong - Egal Was Andere Sagen
-02. Ella Endlich - Schwimmen Und Fliegen
-03. Joerg Bausch - Erst Wenn's Im Sommer Schneit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 03:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF55D5D879DE6ED5772E6D12DD0F54CBFF21D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260607   (310108) от 08.11.2018
-
-Илья Гусев - Зимушка (2018) [MP3|320 Kbps] <Pop, Neo-Disco>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зимушка (3:47)
-02. Подари свою любовь (3:40)
-03. После уроков (4:20)
-04. Танцуй (3:12)(   Читать дальше...   )Жанр: Pop, Neo-DiscoПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06FD8F336A06CDB0363514A16F09525EE6D5B4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260591   (310105) от 08.11.2018
-
-Сергей Войтенко - Я буду любить тебя! (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Просто надо любить (3:12)
-02. Я буду любить тебя (4:05)
-03. Остановка (3:24)
-04. Осень не права (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA375B8FDA7E2F9AF0C86C8FAC79F0F1E4FBC9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1032362   (645569) от 07.07.2016
+
+Нэнси - Grand Collection (2004) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645569.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дым сигарет с ментолом
+2. Ромео
+3. Черный Кадиллак
+4. Лада(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6FC2FB3FFBFB8334C94AE7B823E09C06DDD7E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906414   (645530) от 08.06.2015
+
+James Blunt - All The Lost Souls (2007) [MP3|320 кб/с]<Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1973 (04:40)
+02. One Of The Brightest Stars (03:12)
+03. I'll Take Everything (03:05)
+04. Same Mistake (04:59)(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D60DC90ECC2EBD942B058CFB8C0E291B6341F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905803   (645527) от 08.06.2015
+
+Sister Crayon - Devoted (2015) [MP3|320 кб/с]<Trip-Hop, Dream Pop, Indie>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armor (2:29)
+02. Devoted (3:11)
+03. Ride / Die (3:27)
+04. Into Solemn Hymns (3:42)(   Читать дальше...   )Жанр: Trip-Hop, Dream Pop, IndieПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C747A00B2DD446D5EC82D8D3C803EF5F309570AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032339   (645451) от 07.07.2016
+
+VA - Radio 538 Hitzone 78 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
+01. Justin Timberlake - Can't Stop The Feeling!  (3:58)
+02. Kungs vs. Cookin' On 3 Burners - This Girl  (3:17)
+03. Enrique Iglesias feat. Wisin - Duele El Corazon  (3:22)(   Читать дальше...   )Тип издания: Box Set, 2CDПроизводство: Sony Music B.V. - 88985332742Жанр: Top 40, Pop, RockПродолжительность: 02:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FACFAF88DCD12A784ADFA1FAE10A57ACB3CBE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518042   (645341) от 02.07.2012
 
 T.Ark - H.A.P.P.Y. Radio (2010) [APE|Lossless]<Italo-Disco>
@@ -629,122 +745,6 @@ London Grammar - Truth Is A Beautiful Thing (2017) Deluxe [FLAC|Lossless|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50507A91EC85B22AE476ED62EB2C4499B111B9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032774   (643911) от 08.07.2016
-
-G.G. Tonet - Why (1980) [MP3|320 Kbps] <Electronic, Experimental, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1947 (5:12)
-02. Dedicated To Norbert Wiener (5:35)
-03. Marketing (5:02)
-04. Total Time (3:52)(   Читать дальше...   )Жанр: Electronic, Experimental, DiscoПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03B26CD68D6B546FA9569023AD4784C0D1B595D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032508   (643691) от 08.07.2016
-
-VA - Disco 2.0 - Fever's Risin' Again (2016) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Imperatrice - La Lune (3:13)
-02. Bon Voyage Organisation - Shenzhen V (5:57)
-03. Marvin & Guy - Makin' Love (9:13)
-04. Monika - Secret In The Dark (The Juan MacLean edit) (6:28)(   Читать дальше...   )Производство: WeWantSoundsЖанр: Disco, Nu-DiscoПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DC5FD5970380CEC43EDFCB0970AE55A303AD47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032649   (643685) от 08.07.2016
-
-Алла Горбачёва - Я приду! (1997) [FLAC|Lossless|image + .cue] <pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где-то рядом (4:10)
-02. Прощай (4:04)
-03. Напиши (3:59)
-04. Зовущая любовь (3:55)(   Читать дальше...   )Жанр: popПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445578D4E1C3C4AC229B100950F7BEC508E4B84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906630   (643570) от 09.06.2015
-
-Tove Styrke - Kiddo (2015) [OGG|489-534 кб/с]<Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Got No... (03:52)
-02. Snaren (03:01)
-03. Ego (03:48)
-04. Samurai Boy (03:27)(   Читать дальше...   )Жанр: ElectropopПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056DBC37F83459CFCF7F3C2C60E893BD341DB62E
 ```
 
 https://mybot314.ru/tekegram_catalog/

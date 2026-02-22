@@ -1,3 +1,32 @@
+###  Публикация: 1083304   (1024725) от 24.03.2021
+
+Sweetback - Sweetback (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Electronic, Jazz, Trip-Hop, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaze (5:27)
+ 02. Softly Softly (4:29)
+ 03. Sensations (4:30)
+ 04. Au Natural (4:15)(   Читать дальше...   )Жанр: Electronic, Jazz, Trip-Hop, DowntempoПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29D5CB264E3B19DC6680CF648697378622E2574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457192   (1024523) от 25.03.2021
 
 Taylor Swift - Evermore (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Country>
@@ -717,35 +746,6 @@ Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BCEF7A8137EEE29F345D1D844290DEFA53AFE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470920   (1015474) от 18.05.2021
-
-Bonnie Tyler - The RCA Years (2019) 4CD, Box Set, Compilation, Cherry Red Records [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015474.jpg" />
-</div>
-
-
-###  Подробнее
-
-1977 - The World Starts Tonight
-1978 - Natural Force
-1979 - Diamond Cut
-1981 - Goodbye To The IslandЖанр: Pop, Pop Rock, Soft RockПродолжительность: 03:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8632BC642B888744BF6B32999CD14FEC96E795F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

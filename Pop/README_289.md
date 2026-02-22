@@ -1,3 +1,90 @@
+###  Публикация: 1591609   (185214) от 20.11.2022
+
+Various - Greatest Hits Of The 90's (2004) 8 CD Box [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maxi Priest - Close To You (3:59)
+02. Dignity - Talk To Me (4:27)
+03. Shara Nelson - Uptight (5:08)
+04. Carleen Anderson - Mama Said (4:06)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Reggae, PopПродолжительность: 08:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365CDDCA45DE567A3BB6616F792603E28E0E1EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426755   (185108) от 26.11.2020
+
+Caroline Vreeland - Notes On Sex & Wine (2020) [MP3|320 Kbps] <Pop, Jazz, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185108.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stay Drunk With Me (3:51)
+2. Madonna Whore (3:11)
+3. Love Is Here (4:00)
+4. Drinking For 2 (4:11)(   Читать дальше...   )Жанр: Pop, Jazz, BluesПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CFA821C574BD18EF199D8B963AFDFBA39F2CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664723   (184869) от 27.09.2023
+
+Екатерина Шаврина - Понарошку (2002) [FLAC|Lossless|tracks + .cue]<Retro, Folk>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Понарошку
+02. Пойдем со мной
+03. Все было несерьезно
+04. Любовь уходит не спеша(   Читать дальше...   )Жанр: Retro, FolkПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A4EA6E06902FA2A301BFDA2D5EAFC503CDB7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427284   (184462) от 27.11.2020
 
 Tala A.M. - Arabica (1978) Reissue LP, African Roadtrip, 2015 [MP3|320 Kbps] <Disco, Funk, Soul>
@@ -658,93 +745,6 @@ Fancy - Get Your Kicks (1985) [OGG Vorbis|950 Kbps] <Electronic, Disco, Italo-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FA133FEF60F3D33194BD4934EA15A4F073A32DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592910   (182465) от 24.11.2022
-
-Bad Boys Blue - Heart Beat (1986) Reissue, 2015, Мирумир [OGG Vorbis|600 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Hear Your Heartbeat (Sunday Girl)
-02. Mon Amie
-03. One Night In Heaven
-04. Baby I Love You(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF1910F2892391921E2507956DCEEE2BBFCD4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427724   (182407) от 29.11.2020
-
-Boogie People - Boogie People (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance In America  (8:05)
-02. Boogie Breakdown  (7:29)
-03. Boogie People  (10:11)
-04. Disco Is My Life  (5:06)Жанр: Electronic, DiscoПродолжительность: 00:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA58FAA5C68F625D587DF78503358520ED0AE84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592868   (182387) от 24.11.2022
-
-VA - Happy New Year 2023 (2022) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - Happy New Year
-02. The Black Eyed Peas - I Gotta Feeling
-03. Katy Perry - Firework
-04. Kool & The Gang - Celebration(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 04:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC4D7A771696913CCA3244424AD5A2973F3F6C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

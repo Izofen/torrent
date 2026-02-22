@@ -1,3 +1,177 @@
+###  Публикация: 1749723   (104265) от 16.09.2024
+
+80 Hundred Miles - Divergent Tales (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay Human - Part I (3:28)
+02. Gift Of God (5:08)
+03. Across The Waves (4:26)
+04. Coffee Break (3:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1D1188128180A8571CFF8DE49FDDD62B5A3CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750039   (104260) от 17.09.2024
+
+Francesco Bearzatti and Federico - And Then Winter Came Again (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Blossom (5:48)
+02. Nightwalker (6:45)
+03. Orchidée (3:30)
+04. And Then Winter Came Again (6:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C13651C2FCB701479841C08436681778F1E8F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750131   (104255) от 18.09.2024
+
+Earth Lux - Earth Lux (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On Me (3:50)
+02. Soul Stalker (5:28)
+03. In Your Heart (3:52)
+04. Back Stage Business (4:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED0AB1FD3412E55410BB008581263A0F685DF45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750135   (104251) от 18.09.2024
+
+Miseration - Studio Albums (4 releases) (2006-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Technical Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miseration — шведская дэт-метал-группа, организованная в 2006-м году. Коллектив является одним из многих проектов Яни Стефановича и бывшего вокалиста Scar Symmetry Кристиана Альвестама.2006 - Your Demons - Their Angels
+2009 - The Mirroring Shadow
+2012 - Tragedy Has Spoken
+2022 - Black Miracles And Dark WondersЖанр: Melodic/Technical Death MetalПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D98CA2F86CF4B4186141BB5BE9EA92C99D17C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750180   (104244) от 19.09.2024
+
+Bones Uk - Soft (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Imdustrial Rock, Garage Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bikinis [00:03:15]
+02. Me [00:02:42]
+03. Dopamine [00:04:32]
+04. Won't Settle [00:04:06](   Читать дальше...   )Жанр: Imdustrial Rock, Garage Rock, Blues RockПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90EC73E724AE8D487E4C965AC49D73C80879D746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750427   (104237) от 19.09.2024
+
+Fleetwood Mac - Mirage Tour '82 (1982) Remaster, 2024,  Rhino - Warner Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Hand News (4:06)
+02. The Chain (6:38)
+03. Don't Stop (3:48)
+04. Dreams (4:13)(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34EA7777E5D4D0DD024A2F9FA677BB5B38EBA83F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750364   (104232) от 19.09.2024
 
 Defiled - Horror Beyond Horror (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
@@ -570,180 +744,6 @@ Alyssa Galvan - Darling (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66540C4859B757CE276FE09F511F4E344ED41E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750583   (104156) от 21.09.2024
-
-JD Simo & Luther Dickinson - Do The Rump! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street People (3:11)
-02. Right Down There (4:03)
-03. Lonesome Road (4:46)
-04. Come and Go With Me (4:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907E67FD2F44C0564304E660AA0778BBF2E2BD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750590   (104155) от 21.09.2024
-
-Jumaane Smith - Come On Home (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know (3:03)
-02. Come On Home (5:17)
-03. Chief (5:35)
-04. I'm Gone (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39D6247A697EC519058C614C291F20DE9435BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750663   (104149) от 21.09.2024
-
-Lucinda Williams - Lucinda Williams (1988) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Folk Rock, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 I Just Wanted To See You So Bad
-A2 The Night's Too Long
-A3 Abandoned(   Читать дальше...   )Жанр: Folk Rock, Country RockПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B480B570961275EA1EFA46DD7CCD1469CC2A55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750587   (104148) от 21.09.2024
-
-Jessica Ackerley - All Of the Colours Are Singing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Free Jazz & Avant-Garde>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (4:26)
-02. Forward motion is never a straight line (6:04)
-03. To See Takes Time (2:47)
-04. All of the colours are singing (4:22)(   Читать дальше...   )Жанр: Free Jazz & Avant-GardeПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5D4455294D4EDA482F15FFA7FA88ADBCFC53F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750803   (104130) от 22.09.2024
-
-Big Mel - Blue Rose (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Rose (1:14)
-02. When The Smoke Clears (3:32)
-03. Leave You Alone (3:30)
-04. Nothing But You (4:03)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D848556B02718361C4EB44CA694FAB8214B59C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750849   (104129) от 22.09.2024
-
-Nicky Elisabeth - The Way Of Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, House, Dance, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shape Of Me [00:01:26]
-02 - The Way Of Love [00:03:15]
-03 - The Lights [00:03:45]
-04 - Dreams Of Reality [00:03:01](   Читать дальше...   )Жанр: Downtempo, House, Dance, ElectronicПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2178DB475EB4DADA643B44DAC70525170213BD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,96 @@
+###  Публикация: 1065303   (419338) от 23.10.2016
+
+VA - Ministry Of Sound - Chilled House Winter (unmixed tracks) (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kungs - Don't You Know (feat Jamie N Commons) [03:04]
+02. Jonas Blue - Perfect Strangers (feat JP Cooper) [03:16]
+03. Avicii - Gonna Love Ya [03:35]
+04. Felix Jaehn - Bonfire (feat ALMA) [03:03](   Читать дальше...   )Жанр: HouseПродолжительность: 04:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BC2A267AB497B5A54882DA5370000E29BEB2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557897   (417242) от 09.10.2012
+
+VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<House, Deep House, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulmagic - Someone Like You (Original)
+02. Rosie Gaines - Closer Than Close (Schwarz & Funk Classic House Mix)
+03. Angelina - Just Be Good to Me (feat. Angelina) (Robis Latin Breeze Mix)
+04. Erann - Is This Love (feat. Erann) (Deeper People Remix)
+05. Meshach Broderick - You (feat. Benjamin Broderick) (Benjamin Led & Rothmann Remix)
+06. Camille Jones - I AM (Jesse Funk's Lost in Space Dub)
+07. Clara Sofie - Flowing Over (feat. Clara Sofie) (Delicious Ibiza Remix)
+08. Deeper People - Missing (Matt Early Sunset Mix)
+09. ReUnited - Sing It Back (Sidelmann Funkelectric Mix)
+10. Sherell McKenzie - Any Love (feat. Sherell Mckenzie) (Scandall Sunset On Ibiza Remix)(   Читать дальше...   )Жанр: House, Deep House, Soulful HouseПродолжительность: 01:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31B30BAFB4A8CD216454937E6F8F8758A92587C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066109   (414947) от 25.10.2016
+
+VA - Jewels & Gems Vol.1: Selection Of Deep House (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pablo del Monte - Glide over Here - Julius Papp Remix
+02. Ricky Presta - Blind
+03. JP Chronic - It's Okay - DJ Vivona Remix
+04. Rockstar - The White Hole - Nikos Akrivos Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4147A38B348AAD92B0123890DD55D557D83F829C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066092   (414936) от 25.10.2016
 
 VA - Fashion Week Vol.3: Catwalk House & Beats (2016) [MP3|320 Kbps] <Deep House, Chill House>
@@ -694,105 +787,6 @@ VA - Pump & Run, Vol. 1 (Workout Selection) (2017) [MP3|320 Kbps] <Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E21B8DAD81DE6911B0EBB79631DA968FB8C4E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566857   (398128) от 28.10.2012
-
-VA - Best of: Ibiza Beach House 2007-2012 (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz City - Welcome 2 House Music (On and on Mix)
-02. Housework - Wanted Music (In the Air Mix)
-03. Aircraft 72 - I Can Fly (Beachflow Cut)
-04. Pascal Dubois - Beachdancer (Spheric Dream Cut)
-05. Calido - El calor (Chillhouse Mix)
-06. Phil Kinley - Tropicana Beach Club (Latin Mix)
-07. Housework - Can't Stop (On da Beach Cut)
-08. Clublife - Salsa del mare (Summer Vibrations Cut)
-09. Floating Clouds - No Silence (Francesco's Chillgroove Mix)
-10. Phil Kinley - On the Sunny Side (Factor 30 Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80802DC839B5E81B8A6F7002305B254E3F83CAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170836   (397770) от 03.10.2017
-
-DJ VoJo - Aloha (2017) [MP3|320 Kbps] <Tropical House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight
-02. Tropical Rain
-03. Adventure Island
-04. Lost in Sea(   Читать дальше...   )Жанр: Tropical HouseПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7988E463FAEA99D5AA8F5A390505A99324ECCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567679   (396148) от 30.10.2012
-
-VA - Halloween Nights (2012) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Calippo - Halloween - Original Mix (6:38)
-2. Dinka - Here I Am - Original Mix (6:36)
-3. Ad Brown - Good Feeling - Chris Reece Remix (6:06)
-4. George F. Zimmer - Progressive Nights - Original Mix (6:41)
-5. Johnson & Haske vs. Jerome Isma-Ae feat. Mo Morsy - Too Bad to Forgive - Original Mix (8:07)
-6. Leventina - Right or Wrong - Original Mix (6:22)
-7. Dave202 - Vintage - Original Mix (6:37)
-8. Helvetic Nerds - Herodes - Original Mix (6:06)
-9. Jidax - Thunder - Original Mix (5:53)
-10. Hailing Jordan - Rat - Original Mix (5:58)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C418E338B44248E0092814744884AAF041B313BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

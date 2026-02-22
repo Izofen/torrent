@@ -1,3 +1,119 @@
+###  Публикация: 1113019   (840123) от 10.03.2017
+
+Lunch Ladies - Down on Sunset Strip (2017) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine (04:23)
+02. You're Not There (03:19)
+03. Love Is Overrated (03:40)
+04. Sad Jeans (03:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716B333B690A15C5277D15052D6A4697B7E6A021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113066   (840098) от 10.03.2017
+
+Graham Gouldman - Animalympics (1980) LP [MP3|320 Kbps] <Electronic, Pop-Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go For It (3:36)
+02. Underwater Fantasy (3:17)
+03. Away From It All (2:34)
+04. Born To Lose (4:09)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, Synth-pop, DiscoПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7742FCAAF5B425B3264A3FA169CC691C999354A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113007   (840018) от 10.03.2017
+
+Slick - Slick (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Bass (6:58)
+02. Feelin' Good (7:51)
+03. Sexy Cream (8:07)
+04. Put Your Pants On (3:47)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934F6D5DA2AB68009B80DAFDA5681222E546CE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004298   (840017) от 05.04.2016
+
+Hypnosis - Hypnosis (1991) Reissue, 2001, ZYX Music [MP3|320 кб/с] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Droid    05:47
+02. Inesi    01:14
+03. Windland    04:47
+04. Argonauts    04:44(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C785A0012E933DD04197356B819D0F621BA1577A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004262   (840001) от 05.04.2016
 
 Peter Griffin - 2 Albums, 4 Singles & EPs (1977-1981) [MP3|320 кб/с] <Electronic, Disco, Pop Rock>
@@ -627,120 +743,6 @@ Sarah Brightman - 5 Disco Singles & EPs (1978-1983) [MP3|320 кб/с] <Pop, Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F50E2C6FB13F8D2B19A675E8D2504AF7E402017E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004978   (836661) от 07.04.2016
-
-Винтаж - Light (2014) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Искренность
-02. Деревья
-03. Ева (Slow)
-04. Запретный Мир(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B969D340541FC59EA7F5EB1DF6B7C77BE6F09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501379   (836571) от 09.10.2021
-
-VA - DMC Producer Mixes Paul Dakeyne Volume 1 (2021) [MP3|320 Kbps] <House, Dance,  Italo-Disco, Jazzdance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Summer Classic 2
-02. Various Artists - Alternative Classics
-03. Dr. & The Medics Vs Norman Greenbaum - That's The Spirit
-04. Tears For Fears - Tears For Fears Megamix(   Читать дальше...   )Жанр: House, Dance,  Italo-Disco, JazzdanceПродолжительность: 01:20:03 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42FAC125662F97F3C067E486521C643D438A8A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501391   (836568) от 09.10.2021
-
-VA - Full Tilt Remix Vol. 99 (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Khaled Ft. Post Malone, Megan Thee Stallion, Lil Baby & Dababy - I Did it (Full Tilt Remix)
-02. Anitta - Girl form Rio (Full Tilt Remix)
-03. Anitta Ft. Dababy - Girl form Rio (Full Tilt Remix)
-04. Erica Banks Ft. Beatking - Toot that (Full Tilt Remix - Clean Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:10:07 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF9B4219A742AED9BC66FB52BFDFAC64132AA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380084   (836529) от 01.05.2020
-
-Everything Everything - In Birdsong (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Birdsong (05:13)
-02. In Birdsong (Edit) (03:59)Жанр: Indie PopПродолжительность: 00:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13BB4476A035924F9EBD2A150FF20224EE25360
 ```
 
 https://mybot314.ru/tekegram_catalog/

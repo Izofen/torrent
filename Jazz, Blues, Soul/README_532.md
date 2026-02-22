@@ -1,3 +1,32 @@
+###  Публикация: 1704833   (114028) от 06.03.2024
+
+V.A. - Chill Out Cafe Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Milici - Slow Hot Wind (Lujon)
+02. Silvia Donati - Fale Claro
+03. Paolo Di Sabatino - Nature Boy
+04. Ida Landsberg - Close to You(   Читать дальше...   )Жанр: Pop Jazz, Nu JazzПродолжительность: 01:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F89B1E0E9C17D3A507B4481E5EC6A155BE21E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705049   (113988) от 07.03.2024
 
 VA - Modern Urban Jazz Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul & Funk>
@@ -716,35 +745,6 @@ Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDBF974D60C3ACC930624FF5C8F72EF92FE37BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705563   (113771) от 09.03.2024
-
-Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan [8:20]
-02. April in Paris [5:05]
-03. Cherokee [2:26]
-04. Goodbye [8:17](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5F78302854161D3901575A2CA3F52EF705ADEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

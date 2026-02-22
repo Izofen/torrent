@@ -1,3 +1,32 @@
+###  Публикация: 1180906   (337500) от 05.11.2017
+
+VA - Latino Top 30 Latin Hits (2017) [MP3|320 Kbps] <Latin, Salsa>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Los Chicos Playeros – Bamboleo 3:29
+02. Tony Estefano – Livin’ La Vida Loca 4:01
+03. Alessia Limonta – Conga! 4:11
+04. Chateau Pop – Lambada 3:23(   Читать дальше...   )Жанр: Latin, SalsaПродолжительность: 01:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5661E638BC290CE714BA618007FB44BBD4E87EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180676   (337011) от 05.11.2017
 
 Hans Zimmer - Hans Zimmer - Live In Prague (2017) [MP3|320 Kbps] <Score>
@@ -713,35 +742,6 @@ Dog Music - Christmas Piano Music For Dogs, Sleeping Music For Pets, Dog Music &
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC95372668ECC6E1C5C75B524C710EC94D72BA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 58904   (332992) от 14.10.2019
-
-Pulp Fiction / Криминальное чтиво - Soundtrack (1994) [ape+cue+log+сканы]
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332992.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dick Dale & His Del-Tones - Misirlou (2:30)
-2. Samuel L. Jackson And John Travolta - Royale With Cheese (1:45)
-3. Kool & The Gang - Jungle Boogie (3:06)
-4. Al Green - Let's Stay Together (3:17)(   Читать дальше...   )Жанр: OSTПродолжительность: 41:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDF39CC37B55E73E2340FE4399D2F2C481AB961
 ```
 
 https://mybot314.ru/tekegram_catalog/

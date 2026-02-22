@@ -1,3 +1,93 @@
+###  Публикация: 876087   (854342) от 08.03.2015
+
+Aurora Nealand and The Royal Roses - The Lookback Transmission (2014) [FLAC|Lossless|WEB-DL]<Dixieland, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Man
+02. Le Richelieu
+03. Don't Let Your Love Go Wrong
+04. T'aint Nobody's Business
+05. Hongo Fongo(   Читать дальше...   )Жанр: Dixieland, Vocal JazzПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B928D40DCCA223291E910A095C5DFB9BE8DF409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876021   (854340) от 08.03.2015
+
+Lucky 3 Blues Band - Howl! (2014) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Maxwell Street Blues (02:51)
+02. Junkyard (04:32)
+03. Boogaloo Test (02:26)
+04. Too Much Funky Business (03:44)
+05. So Alone (04:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8885275C076CDE64B2389AF23D9417F3230B51B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875988   (854236) от 08.03.2015
+
+Lyambiko - Muse (2015) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Muse
+ 02. I Went To Heaven
+ 03. Landslide
+ 04. Willow Weep For Me
+ 05. Do You Remember Me(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB307A1AD38888EB765E8E9D85A5E9B26553BB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110394   (853867) от 02.03.2017
 
 Joe Williams & Dave Pell - Prez & Joe: In Celebtration Of Lester Young (1979) 1989, GNP [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -743,96 +833,6 @@ Jack Teagarden - Jazz Great (2014) [FLAC|Lossless]<Jazz, Dixieland, New Orleans 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A63A42556FD9122C37D38FC8CCEA6CC99C20A322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876223   (853010) от 09.03.2015
-
-Teodross Avery - My Generation (1996) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Addis Ababa [07:44]
-02. Mode For My Father [08:29]
-03. Theme For Malcolm [06:25]
-04. Lover Man [07:20]
-05. To The East [04:56](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C797D9E677AE0092454D710B7692776DB9C242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876452   (853009) от 09.03.2015
-
-North America Jazz Alliance - The Montreal Sessions (2013) [FLAC|Lossless|WEB-DL]<Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Just One Of Those Things
-02. Close Your Eyes
-03. Cute
-04. Oblivion
-05. Angel Eyes(   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC410377FFE75DDB6236C6B13038793B0B0A274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876220   (853008) от 09.03.2015
-
-Stan Getz - Soul Eyes (1999) [FLAC|Lossless]<Jazz, Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage [09:01]
-02. Soul Eyes [08:02]
-03. Feijada [08:53]
-04. Blood Count [03:41]
-05. Stan's Blues [07:41](   Читать дальше...   )Жанр: Jazz, Cool, Mainstream JazzПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8285ABA467A5CC90D41C56D870130477CEEC842D
 ```
 
 https://mybot314.ru/tekegram_catalog/

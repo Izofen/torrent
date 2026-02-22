@@ -1,3 +1,90 @@
+###  Публикация: 1286178   (713280) от 02.03.2019
+
+Putney Dandridge - 1936 (1996) Classics [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's A Sin To Tell A Lie [2:56]
+02. All My Life [3:13]
+03. Ol' Man River [2:50]
+04. Why Was I Born? [2:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC642D59D2D0AFEEFC6C871E69B61C8513C22444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286198   (713279) от 02.03.2019
+
+Andrew Hill - Verona Rag (1987) Soul Note [WavPack|Lossless|image + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retrospect [14:29]
+02. Darn That Dream [6:17]
+03. Verona Rag [16:38]
+04. Tinkering [4:25](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B95B294C2B086268356CA602923771DC2597EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286439   (713211) от 02.03.2019
+
+Jan Johansson - 8 Bitar & Innertrio (1961, 1962) 1994, Heptagon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prisma [3:03]
+02. She's funny that way [5:01]
+03. Skobonka [2:18]
+04. De salde sina hemman (Emigrantvisa) [3:40](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6E67ABFE3A9C3441C1A4BF987ADEB477EADDAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286434   (713204) от 02.03.2019
 
 Jan Johansson - Live In Tallinn (1966) 1995, Heptagon Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
@@ -658,93 +745,6 @@ Jan Johansson - 300.000 (1967, 1968) 1994, Heptagon Records [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0E4436B20D5ED2E3AD62644CF835D535938F5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286596   (711182) от 03.03.2019
-
-Rosie Flores - Simple Case Of The Blues (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Don't Love Nobody 03:53
-02. Mercy Fell Like Rain 04:46
-03. I Want To Do More 03:35
-04. Simple Case Of The Blues 03:38(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF992E2566516589652EEA27275FF90CCCCC1A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401134   (710981) от 09.08.2020
-
-Maria Daines - Wisdom's Tooth (2007) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm The Lonely (5:16)
-02. What Are We Livin' For (4:16)
-03. Wisdom's Tooth (6:30)
-04. Pay For This (5:31)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2FD8643B018AF813D3891A209788BEC2C5136B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401136   (710875) от 09.08.2020
-
-Maria Daines - The River (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The River (7:10)
-02. Flames Of The Blues (3:28)
-03. Where Is Your Heart? (4:52)
-04. New World (5:04)(   Читать дальше...   )Жанр: Country, Rock, BluesПродолжительность: 01:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B20F166FBCB05BD8999700BD1CF210719C37F96
 ```
 
 https://mybot314.ru/tekegram_catalog/

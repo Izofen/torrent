@@ -1,3 +1,177 @@
+###  Публикация: 1770344   (100558) от 31.12.2024
+
+Bump2Soul - Bump2Soul Live Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We are Bump2Soul - Live at TONE Studio, Seoul (1:38)
+02. Let’s Clap - Live at TONE Studio, Seoul (5:05)
+03. Dopamine - Live at TONE Studio, Seoul (4:17)
+04. Do you like F? - Live at TONE Studio, Seoul (5:12)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635CA79CBAD602C7CBC0843040BBA14AA58C8AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770340   (100557) от 31.12.2024
+
+A Plane To Catch - Soul Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bamako Convention Center (4:48)
+02.  Corny Big (4:58)
+03.  Mr. Well Dressed (4:25)
+04.  At Least The Sky Is Blue (6:34)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFEE42248294764046708E27FCCEE20122FCB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770347   (100556) от 31.12.2024
+
+Juanma Torres - Swing City Sessions #3 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three O'Clock Blues (3:42)
+02. Fruit Boots (2:34)
+03. Tell me what's the reason (2:39)
+04. Mary Ann (4:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E4767ACDA3B85045987BB87E081E85D89BC19B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770350   (100555) от 31.12.2024
+
+Leavin' Trunk - The River (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claw Hammer (4:27)
+02. Shop Around (3:34)
+03. Trying to Live My Life Without You (4:07)
+04. The Love Mechanic (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85D7619B7FC6642AD7E134785B519085544DA90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770360   (100553) от 31.12.2024
+
+Rick Fowler Band - RFB (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hitchhiking (5:02)
+02. Worried About It (6:27)
+03. Willoughby, for Mr. Serling (4:08)
+04. Close to the Truth (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B2B696ACE10BAC26165F9B814FD0D36424E796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770356   (100551) от 31.12.2024
+
+Omar And The Howlers - Rhythm and Western (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get No Grindin' (2:15)
+02. Pipeline (2:42)
+03. Long Distance Call (3:31)
+04. Ida Red (2:34)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C22A2BB9A4DC9EE39422E544BA26237D8D7F2A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770352   (100550) от 31.12.2024
 
 Lo Greco Bros, The Man With The Horn and Soulstance - The Electric Sessions  (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -571,184 +745,6 @@ Elisabeth Elektra - Hypersigil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82981C5124CACCCCBB38EC0E497664D4ACACCE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821929   (91157) от 04.10.2025
-
-Sleazy Sweet - Sleazy Party (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Glam Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Intro (0:30)
-02. - Sweet Party (3:34)
-03. - Get it (2025) (2:58)
-04. - Testing Rehearsing (2025) (3:33)(   Читать дальше...   )Жанр: Glam Metal, Hard RockПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A4F5983719A357E20D1EB0428205549A97A637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821906   (91156) от 04.10.2025
-
-Kylie Minogue - Tension Tour Live 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lights Camera Action (Intro;Live From The Tension Tour) [00:01:45]
-02. Lights Camera Action (Live From The Tension Tour) [00:01:28]
-03. In Your Eyes (Live From The Tension Tour) [00:02:05]
-04. Get Outta My Way (Live From The Tension Tour) [00:02:22](   Читать дальше...   )Жанр: PopПродолжительность: 01:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:011F1A6455417E3AD9B847AD915B9982D6444ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821896   (91155) от 04.10.2025
-
-Wednesday - Bleeds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reality TV Argument Bleeds [00:03:02]
-02. Townies [00:03:15]
-03. Wound Up Here (By Holdin On) [00:03:28]
-04. Elderberry Wine [00:03:35](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCDAA0126EF760848BBE486A01364DED4DF853F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483502   (88881) от 16.04.2012
-
-Red Hot Chili Peppers – Californication (1999) [FLAC 2.0 24/192 | image (VinylRip)] <Funk Rock/Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Funk Rock/Alternative RockПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB63894A9936B5F9F40346F536EFE6F522B6EC9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482977   (88635) от 15.04.2012
-
-Чайф - 25 лет выдержки (2009) [FLAC 2.0 24/96 | image (VinylRip)]<Рок-н-ролл, Рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шаляй-валяй
-02. Кот
-03. Вольный ветер
-04. Белая ворона
-05. Оранжевое настроение
-06. Ой-йо
-07. Всему своё время
-08. Давай вернемся
-09. Поплачь о нём2009Жанр: Рок, Рок-н-РоллПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420BEC04286E9FAC5EB3CCA0CE1BD5DAF8614AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482730   (88403) от 14.04.2012
-
-Крематорий - Двойной альбом (1993) [APE 2.0 24/96 | tracks (VinylRip)]<Рок-н-ролл, Хард-рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Проходящие Мимо
-02. Реанимационная Машина
-03. Клаустрофобия
-04. Адольф
-05. Таня
-06. Кондратий1993Жанр: RockПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14E85105F90560DED479EC47FD0AEE807526CF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1191045   (265093) от 12.12.2017
+
+VA - Maximum Alternative (2017) [MP3|320 Kbps] <Rock Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265093.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rainbow - Love's No Friend
+002. Dreamcar - After I Confessed
+003. Anathema - 32.63N 117.14W
+004. Mallory Knox - Giving It Up(   Читать дальше...   )Жанр: Rock AlternativeПродолжительность: 10:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1CAEA5508A28F520A56D71FE2B90A5F8563A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191099   (265036) от 12.12.2017
 
 VA - Classic Rock Antems (2017) [MP3|320 Kbps] <Classic Rock>
@@ -752,35 +781,6 @@ Rainbow - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B159DD7718B0B0F5767837FD8606C9B40D16BDF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545206   (240837) от 18.04.2022
-
-Gary Moore - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Story of the Blues
-02. You Know My Love
-03. Torn Inside
-04. Trouble at Home(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 03:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C8E037EB3140964669BB69A897C13C5B0C4E8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

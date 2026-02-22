@@ -1,3 +1,108 @@
+###  Публикация: 603187   (995951) от 19.01.2013
+
+VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Deepshakerz - Silbidos 013 (07:52)
+02. Deniz Koyu - Hydra (07:05)
+03. Dabruck - I Found Love (Feat. Ollie James) (07:42)
+04. Jean Elan - What It Takes - Club Edit (03:16)
+05. DBN - Inside Out (06:15)
+06. DJ Shevtsov - Moscow Girls (Feat. Mic E.P.) - Sean Finn Dub Mix (06:30)
+07. Syke'N'Sugarstarr - So Alive - Tito & Slider Dub (06:34)
+08. Cosmic Funk - I'll Never Stop (Feat. Max'C) - Ian Osborn & Nicolas Francoual Remix (06:57)
+09. Kaelig - Bring Back (Feat. Jayhem) - Yves Murasca & Ezzy Safaris NeXu5 Big Room Edit (04:02)
+10. Tom Geiss - No More Tomorrows (Feat. Max C) - Alex Shaje & Luciano Vargas Remix (06:51)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB18251CF19BEA0361426C7F888F2F1A6B5B91E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603133   (995874) от 19.01.2013
+
+VA - Ministry Of Sound Pump It Up 2013 (2013) [MP3|320 kbps] <Club, House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Fresh - Gold Dust (Shy FX Re-Edit) (03:02)
+02. Wiley feat. Skepta - Can You Hear Me (Ayayaya) (03:52)
+03. Example - Changed the Way You Kiss Me (Radio Edit) (03:15)
+04. Carly Rae Jepsen - Call Me Maybe (Almighty Mix Radio Edit) (04:14)
+05. Jessie J feat. David Guetta - LaserLight (03:32)
+06. Nicki Minaj - Starships (Edited Version) (03:30)
+07. Lady Gaga feat. Colby O'Donis - Just Dance (04:02)
+08. LMFAO feat. Lauren Bennett & GoonRock - Party Rock Anthem (Radio Edit) (03:52)
+09. Maroon 5 feat. Christina Aguilera - Moves Like Jagger (Radio Edit) (03:21)
+10. Pitbull feat. Ne-Yo - Give Me Everything (03:48)(   Читать дальше...   )Жанр: Club, House, ProgressiveПродолжительность: 04:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B26D3305E562E13E1FC2B40B0D886A5FBE07E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605453   (995832) от 19.01.2013
+
+VA - InFine By Jean Michel Jarre (2013) [MP3|320 кб/с]<Deep House, Ambient>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Oxia – Exaila
+02. Murcof – Como Quisiera Decirte
+03. Rone – Tasty City
+04. Aufgang – Sonar
+05. Clara Moto – Goodnight Twilight
+06. Cubenx – Grass
+07. Spitzer – Marsch
+08. Composer – Polar Bear
+09. Agoria – Under the River
+10. Danton Eeprom – Vivid Love(   Читать дальше...   )Жанр: Deep House, AmbientПродолжительность: 01:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2A1CB8F45F2FBB5D9F2DC156FD71671F0B5795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606653   (995242) от 21.01.2013
 
 VA - House Vip (20.01.13) (2013) [MP3|320 кб/с]<Electro House>
@@ -756,105 +861,6 @@ Leseux - Funky Heroes EP (2010) [MP3|320 кб/с]<House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A0F19B54D637B434A5F5E721826D0BD7EF6CC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612061   (987426) от 01.02.2013
-
-Markojux - Impossible Objects EP (2008) [MP3|320 кб/с]<Deep House, Minimal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Verdade que e (07:38)
-02. Babelfiche (06:32)
-03. Ionenalter (07:04)
-04. Out On A Limb (06:21)Жанр: Deep House, Minimal HouseПродолжительность: 00:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3EE74C991628A9D43D2F41C6FA27686595A0C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611717   (987263) от 01.02.2013
-
-VA - Keep Movin: Late Nite House Grooves Vol.1 (2013) [MP3|320 кб/с]<Deep House, Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefan Mallmann - Night Drive - Drahosh Remix
-02. Marlose - Hey Na.. - Mollono.Bass Remix
-03. Christopher Wilde - Bitter Sweet Feelings (Feat. Lu Chase) - Motorcitysoul Basic Remix
-04. Alex Niggemann - Everybodys Darling
-05. Sebastian Davidson - Sunday Morning - BarBQ Remix
-06. Aquarell - Trumpet Lesson
-07. Kollektiv Turmstrasse - Altona Connection
-08. SIS - Janet
-09. The Messenger - Sense of Tomorrow - Arhitekt Remix
-10. Jaxson - Now You're Gone(   Читать дальше...   )Жанр: Deep House, Minimal, Tech HouseПродолжительность: 03:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB62355CECF739A10FB59506581210D3BE33F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612318   (987163) от 01.02.2013
-
-VA - Bigroom Party Shakers (2013) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ray Burnz - Closing Sun - Alex Del La South Remix
-02. Mykel Mars - Keep On Rockin' - Concert Mix
-03. Claudio Viti Feat Frankie D - The Sunrise - Ciccio Colonna Remix
-04. Maurizio Inzaghi - My Island - Mark Alvarado Remix
-05. Eav Kay - Help Me - Original
-06. Benny White - Simplicity
-07. Bernd Hall & Marco Zanfardino Feat. Gosia - Summer Music - Adam M & Luca Etb Remix
-08. B Van E - I Need You - Original Mix
-09. Christopher Felix Feat. Pamela - Enjoy Your Life - Like Never Before - Club Mix
-10. Davie Terry - Vibe - Radio Edit(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96AA5FEAF682F610EAE0F31C20DC58080FCD72D
 ```
 
 https://mybot314.ru/tekegram_catalog/

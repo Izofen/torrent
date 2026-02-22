@@ -1,3 +1,32 @@
+###  Публикация: 1089753   (950789) от 04.01.2017
+
+Chico Hamilton Trio - Introducing Freddie Gambrell (1958) Remaster, 1991, Toshiba[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lullaby Of The Leaves [05:42]
+ 02.Reservation Blues [04:56]
+ 03.These Foolish Things [04:09]
+ 04.Ex-Ray's Friends [04:11](   Читать дальше...   )Жанр: West Coast Jazz, Cool, Piano JazzПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936235B397324A2ACB1643C0D99AB2B957E6752C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089234   (950788) от 04.01.2017
 
 Woody Herman - Memorial: The 40th Anniversary Carnegie Hall Concert (1988) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -717,32 +746,6 @@ Konstantin Klashtorni - Groove Jazz N Chill #1 (2011) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDFD39F92EA71CFE316C97CAA9A80B63C1E82B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261069   (946869) от 12.01.2015
-
-JazzItaliano - Live at Casa del Jazz (2006 - 2010) 41x2 CD [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Casa del Jazz - место, ставшее меккой джаза в Италии.Это - комплекс зданий, расположенный в Риме (Villa Osio).Концерты в Casa del Jazz проходят непрерывно, причем выступает очень много молодых исполнителей из разных стран Европы. Выступают также лучшие итальянские джазмены, концерты которых издаются каждый год под эгидой RadioCapital и газеты La Repubblica.Исполнители: Danilo Rea, Enrico Pieranunzi, Enrico Rava, Francesco Cafiso, Paolo Fresu, Rita Marcotulli, Rosario Giuliani, Roberto Gatto, Stefano Bollani, Stefano Di Battista, Doctor 3, Franco Cerri & Enrico Intra, Franco D'Andrea, Fabrizio Bosso, Gianluca Petrella, Gianluigi Trovesi, Giorgio Gaslini, Giovanni Tommaso, Maria Pia De Vito, Maurizio Giammarco, Paolo (   Читать дальше...   )Жанр: Jazz |Продолжительность: 41:47:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

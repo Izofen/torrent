@@ -1,3 +1,32 @@
+###  Публикация: 1619496   (249639) от 16.03.2023
+
+Delerium - Signs (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Back To You (feat. Mimi Page)
+02. Rain
+03. Coast To Coast (feat. Phildel)
+04. Sun Storm(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A3E8C4F8539D801564776801DF27867E8DD832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619138   (249519) от 18.03.2023
 
 VA - Enigma-Forest-Transit 12 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
@@ -773,35 +802,6 @@ Tanzwut - Silberne Hochzeit (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Neue Deutsche
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9C4E84DB129BD9D42065EE252044169333985E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541035   (242694) от 03.04.2022
-
-Hush Money - Industry Standard (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over and Over
-02. You're Gone
-03. Starfish Blues (Bottom of the Sea)
-04. Open up Your Mind(   Читать дальше...   )Жанр: Modern Hard Rock, Southern RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62800AE88428CE9CE7F0846DBF83D81CFE801BF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

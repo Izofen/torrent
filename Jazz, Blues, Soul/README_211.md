@@ -1,3 +1,90 @@
+###  Публикация: 897273   (687750) от 12.05.2015
+
+Jeff Golub - The Vault (2015) [FLAC|Lossless]<Blues, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky Is As Funky Does
+02. One More Excuse to Play the Blues
+03. Open Up
+04. Gimmie Some(   Читать дальше...   )Жанр: Blues, Funk, SoulПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7491107E3F71044E909A0C219923003A2C6F6FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134703   (687670) от 16.05.2017
+
+Joe Newman - Four Classic Albums (1955 - 1958) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687670.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Corky [04:53]
+02. Mambo for Joe [04:01]
+03. Wolafunt's Lament [03:32](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46787774D0F0CD5D9A6010CE27A6DE093DFA162D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134695   (687668) от 16.05.2017
+
+Sheila Jordan - Little Song (1977) 2002, HighNote [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Song I Blackbird [02:15]
+02. Autumn In New York [07:47]
+03. Bardados [04:50]
+04. On a Slow Boat to China [05:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F665291D7F2058DD3617CBDDE5B9D578547B0142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134717   (687596) от 16.05.2017
 
 Duke Ellington - Live from the 1956 Stratford Festival (1989) Music and Arts Programs of America [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -664,93 +751,6 @@ Fats Navarro - Fat Girl (1946) 1989, Vogue [FLAC|Lossless|image + .cue] <Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D9351E4B88B0BB6D54D462379B3D5E865239F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222442   (685307) от 29.04.2018
-
-Art Pepper - Tokyo Encore (1979) 1991, Disques Dreyfus [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Besame Mucho [11:15]
-02. True Blues [09:36]
-03. Landscape [09:32]
-04. Over The Rainbow [09:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCA036FB5B67296D55A3C1CB5854E372A49DE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135030   (685231) от 17.05.2017
-
-Duke Ellington - Play 22 Original Big Band Hits (1946 - 1947) 1987, Hindsight Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train (Theme) [03:04]
-02. Crosstown [02:49]
-03. Passion Flower [03:34]
-04. Perdido [02:26](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB7DC8FF0414325F036D10B09FE713491C7B738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135026   (685230) от 17.05.2017
-
-Duke Ellington - Ellington '56 (1986) Charly [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East St. Louis Toodle-Oo [03:32]
-02. Creole Love Call [03:48]
-03. Stompy Jones [03:54]
-04. The Jeep Is Jumpin' [02:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD9098495D2E1A24EB0BB365141CEEC16801CC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

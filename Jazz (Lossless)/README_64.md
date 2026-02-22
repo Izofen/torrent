@@ -1,3 +1,33 @@
+###  Публикация: 873261   (868748) от 28.02.2015
+
+Ama Jazz - In These Last Times (1995) [FLAC|Lossless]<Jazz, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Hearing The Voice Of HIM? [06:58]
+02. Choosing The Way [06:48]
+03. With The First Rainbow [07:24]
+04. Keep Movement [07:08]
+05. David's Dance [02:07](   Читать дальше...   )Жанр: Jazz, Avant-Garde JazzПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F9FAC0F10043AB2944F39BF0F0A462FA7937F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 873345   (868747) от 28.02.2015
 
 Nicola Sergio Trio - Illusions (2012) [FLAC|Lossless|WEB-DL]<Post-Bop, Contemporary, Piano Jazz>
@@ -727,40 +757,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0D525286B0B4B3D349647125BF91384EF4470E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766976   (868008) от 16.03.2014
-
-Kevin Eubanks - Spiritalk 2 Revelations (1995) [FLAC|Lossless]<Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Faith 7:06
- 02. Like The Wind 5:08
- 03. Whispers Of Life 6:31
- 04. Revelations 7:29
- 05. Earth 2:42
- 06. Sun 4:25
- 07. Moon 1:47
- 08. Being 7:52
- 09. Passing 7:08Жанр: Contemporary Jazz, FusionПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21243668FD513A85DD263561C257EF12239E116
 ```
 
 https://mybot314.ru/tekegram_catalog/

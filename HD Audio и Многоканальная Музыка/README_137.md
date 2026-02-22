@@ -1,3 +1,177 @@
+###  Публикация: 1732149   (107508) от 23.06.2024
+
+The Mysterines - Afraid of Tomorrows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Dance [00:04:30]
+02. Stray [00:03:36]
+03. Another Another Another [00:03:19]
+04. Tired Animal [00:04:06](   Читать дальше...   )Жанр: Alt RockПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DABF9B9B1EEEEDFAC12456BE86D55A6878F1D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732139   (107507) от 23.06.2024
+
+Wasaya Feat. Aram Kalousdian - Curtain Falls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burden Of Memories , Franck Hermanny (Adagio) & Aram Kalousdian) [00:07:49]
+02. Silence , Kristoffer Gildenlow (Ex. Pain Of Salvation) & Aram Kalousdian) [00:05:44]
+03. If I Leave Today , Andrea Arcangeli (DGM) & Aram Kalousdian) [00:05:36]
+04. Into Flesh And Blood , Johan Niemann (Evergrey) & Aram Kalousdian) [00:06:35](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD2D220582A333DE71DB821F3DA2EB0064664463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731528   (107505) от 23.06.2024
+
+Kittie - Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fire (00:03:28)
+02 - I Still Wear This Crown (00:03:42)
+03 - Falter (00:03:57)
+04 - Vultures (00:03:18)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567013D330B67D91EBA58BB3EB2BDE651C703F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731919   (107504) от 23.06.2024
+
+INK - African Roots (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mitozan (2:38)
+02. Amazone (5:05)
+03. African Roots (5:13)
+04. Interlude I (0:57)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1173D0E8C95662AA63402C576FC592FF30F872E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731910   (107502) от 23.06.2024
+
+Bruno Hubert Trio - Fire Waltz (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Fall In Love Too Easily (8:02)
+02. Golden Earrings (7:58)
+03. I've Grown Accustomed To Her Face (6:44)
+04. Con Alma (8:35)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BE2D20FA798EABB0E9A3FECA0232F3D405BAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731838   (107499) от 23.06.2024
+
+Carpe - Choose to Stylish (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storm (3:35)
+02. Slow Root (3:33)
+03. Roll Back (2:59)
+04. Rockers Jah (1:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748DA2C11989AC28A1CCF1ACE1469B3CF4AEE363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732202   (107492) от 24.06.2024
 
 M.O.D. (Method of Destruction) - Studio Albums (9 releases) (1987-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover/Hardcore Punk>
@@ -571,180 +745,6 @@ Red Hot Org, Kronos Quartet - 2024 Red Hot Org (2024) [FLAC 24/96|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F22BB95944CB4529934616F1D5955F150E5C0A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732608   (107424) от 26.06.2024
-
-Linda Thompson - Proxy Music (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock, Pop, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Solitary Traveller [00:04:03]
-02. Or Nothing at All [00:04:23]
-03. Bonnie Lass [00:03:18]
-04. Darling This Will Never Do [00:03:10](   Читать дальше...   )Жанр: Blues Rock, Pop, Female VocalПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEFE7D86C96984B7EB559E04A139126AA7A1EA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732739   (107418) от 26.06.2024
-
-Lola Young - This Wasn't Meant For You Anyway (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Books [00:04:14]
-02. Wish You Were Dead [00:03:14]
-03. Big Brown Eyes [00:03:38]
-04. Conceited [00:03:59](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499ED5B06A3A74563F28D75512C4222BAC086969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732913   (107375) от 27.06.2024
-
-Naive New Beaters - Fvtvrvm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Electro, New Rave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sun [00:03:39]
-02. Desires [00:03:00]
-03. Dancing [00:02:14]
-04. Love Scares [00:02:40](   Читать дальше...   )Жанр: Alternative, Electro, New RaveПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC997924E4F304B78FC2F3D974C397661E031534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733022   (107345) от 28.06.2024
-
-Imagine Dragons - Loom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Indie Rock, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Up (2:47)
-02. Nice to Meet You (3:11)
-03. Eyes Closed (3:20)
-04. Take Me to the Beach (2:47)(   Читать дальше...   )Жанр: Pop Rock, Indie Rock, Alternative RockПродолжительность: 00:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F4C668F0340B6D66EDA91E30B578642F6757E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733172   (107330) от 28.06.2024
-
-Yes - Fragile (1971) Super Deluxe Edition, Steven Wilson Remix, 2024, Rhino Atlantic [FLAC 24/96,192|Lossless|WEB-DL|tracks] <Progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Original Album Remastered
-Disc 2: Remixes & Instrumentals
-Disc 3: Rarities(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 4CD, 04:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595B09B6BB4FA6C83BC8D36BBE7D2A9FDBCC2A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733002   (107302) от 28.06.2024
-
-Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LOST (3:32)
-02. Restored (4:41)
-03. Live Without (4:21)
-04. Lifeline (feat. McRocklin) (4:00)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C03EEE2794D08E9B7311D3B308A88B0D7EDC58
 ```
 
 https://mybot314.ru/tekegram_catalog/

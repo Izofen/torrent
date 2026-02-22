@@ -1,3 +1,96 @@
+###  Публикация: 110916   (247548) от 16.06.2023
+
+DJ Грув - Ты не со мной (2008) [MP3|320 kbps]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты Не Со Мной (при уч. Иракли,Гарик DMC B,Батишта)
+02. Счастье Есть 2008
+03. Forever Dancing (при уч. А. Чумакова)
+04. I Want You (при уч. Audio DJs(Android,M.Pravda)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7CCBA4EFCA0DF0000AE44AC12BFA272330167F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 16500   (247534) от 17.06.2023
+
+DJ Грув - Последние Киноремиксы (2007)
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Вокзал прощания из к/ф "17 мгновений весны"
+02 - Камыш 2007
+03 - Прелюдия из к/ф "9 рота"
+04 - Вальс из к/ф "Мой ласковый и нежный зверь"(   Читать дальше...   )Жанр: electronic
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A99B58489A1BEE274BFC71173C6EE5AC85ED57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491403   (246368) от 03.05.2012
+
+VA - Monotone Vol.7: Tech House Selection (2012) [MP3|320 кб/с]<House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Jesper Aubin - Back Up Down (Original Mix) (8:30)
+2. Darren Bailie - Dream (Danny Dewills & Damir Pushkar Remix) (7:13)
+3. Zoo Brazil - Tear the Club Up (Rene Amesz Snikkel Rework) (7:53)
+4. Nino Anthony - Awww Shhh (Original Mix) (5:27)
+5. Nick Fay - House in My House (Original Mix) (6:40)
+6. Matthew Codek - Dungusmartus (Original Mix) (6:24)
+7. Carlos Caballero - Moving Together (Original Mix) (7:17)
+8. D-Formation - Stuck in the Airport (Original Mix) (6:14)
+9. Supernova - Movimiento (Original Mix) (7:34)
+10. Mario Ochoa - The Fluteman (Original Mix) (6:29)(   Читать дальше...   )2012Жанр: House, Tech House, Deep HouseПродолжительность: 02:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D412A630BC69780746664E86BE224AF61F5325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490731   (246313) от 03.05.2012
 
 16 Bit Lilitas - Bits And Pieses Collected  Vol 1 (2012) [MP3|320 кб/с]<Progressive House>
@@ -676,93 +769,6 @@ VA - Ibiza Opening Party 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F76A922ABE082D82114B2C4D13099C6E9D75FC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624611   (242376) от 07.04.2023
-
-VA - Twelve Inch Nineties 90s - Loaded (2017) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Euro House, Synth-pop>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Primal Scream - Loaded (Terry Farley Remix)
-02. The Stone Roses - Fools Gold 95 (Full Length Version)
-03. Candy Flip - Strawberry Fields Forever (Raspberry Ripple Mix)
-04. Manic Street Preachers - The Everlasting (Deadly Avenger's Psalm 315)(   Читать дальше...   )Жанр: Electronic, Euro House, Synth-popПродолжительность: 03:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73F3C28B45876FCB75AFE1741AF6D235EFB6471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105487   (242371) от 18.02.2017
-
-VA - Black Hole House Music 02-17 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Myon - Rain (Extended Mix)  5:11
-02.  Phil Martyn - Shapes  3:52
-03.  Namatjira - Illuminar  4:59
-04.  Yuji Ono - Real Dark (Original Mix)  6:52(   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69FD8009CA9E9BD9245CB98B8067D54951975E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458237   (242329) от 28.03.2021
-
-VA - Spring Cardio Dance Hits 2021 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lawrence - Afterglow (Fitness Version 128 Bpm) (04:15)
-02. D'Mixmasters - 911 (Fitness Version 128 Bpm) (04:00)
-03. Kyria - Midnight Sky (Fitness Version 128 Bpm) (04:15)
-04. DJ Space'c - Goosebumps (Fitness Version 128 Bpm) (03:30)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5BAB3C68B5F2A225C59DCD9EEA5D4DEE005BED
 ```
 
 https://mybot314.ru/tekegram_catalog/

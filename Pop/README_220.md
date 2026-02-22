@@ -1,3 +1,119 @@
+###  Публикация: 1176345   (372174) от 21.10.2017
+
+Bat & Ryyd - Ehtaa Tavaraa (1989) Reissue CD, Snap Records, 2000 [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ehtaa Tavaraa (4:15)
+02. Stadissa (Osa 1) (4:37)
+03. Ryyd Rap (3:47)
+04. Stadissa (Osa 2) (2:14)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805B1E389D46C25FEDF57F27134B162274ECCAE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176320   (372166) от 21.10.2017
+
+Albert One - Everybody (1988) Reissue CD, ZYX Music, 2001 [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody (3:21)
+02. Don't Let Me Down (3:05)
+03. Broken Dreams (3:58)
+04. Talk To Me (3:58)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70AFB91601C7C08FDA06E4ADC101C80435BD352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416132   (371923) от 14.10.2020
+
+Shobizz - Shobizz (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It In The Dark  (5:22)
+02. I'm Gonna Live Till I Die  (5:50)
+03. Shortnin' Bread  (6:24)
+04. The Streets Of A Thousand Discos  (6:53)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B51D4408FC4BBB27816B763AD916DBA9BC9C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176327   (371648) от 21.10.2017
+
+Варвара Визбор - Многоголосье (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371648.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ниже ноля (Полная версия)
+2. Слушать себя
+3. Бродит дождик
+4. Во всём виновата погода(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859536D6D079E4F3BD02DF1FD506E9BF8B97243D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069655   (371401) от 05.11.2016
 
 VA - Studio 57 vol.1 (1983) 2xLP [MP3|320 Kbps] <Electronic, Disco>
@@ -677,125 +793,6 @@ A-ha - Minor Earth, Major Sky (2019) Deluxe Edition, Remastered [FLAC|24/44.1|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B5C614B29E058084ED6243D936635D4779847DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328089   (367696) от 28.09.2019
-
-A-ha - Lifelines (2019) Deluxe Edition, Remastered [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifelines (2019 Remaster)
-02. You Wanted More (2019 Remaster)
-03. Forever Not Yours (2019 Remaster)
-04. There's a Reason for It (2019 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 02:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DEA13CBA409043FEA856F997486387BA577788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575123   (367544) от 15.11.2012
-
-t.A.T.u. - 200 KM/H In The Wrong Lane (10th Anniversary Edition) (2012) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05CB0F62423ABECD23A5F89040A893428F879062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575677   (367529) от 15.11.2012
-
-Lana Del Rey - Born To Die (2CD, The Paradise Edition) (2012) [FLAC (tracks+cue)|Lossless]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_367529.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность: 01:00:42
-
-01. Born To Die
-02. Off To The Races
-03. Blue Jeans
-04. Video Games
-05. Diet Mountain Dew
-06. National Anthem
-07. Dark Paradise(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:33:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416407   (367260) от 16.10.2020
-
-Нюша (Nyusha) - Solaris Es (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367260.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Solaris Es
-2. Ruber Es
-3. Entrance
-4. Капкан(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527CEDD425DD1A25C1CA4C2D813C6DA2C5A0A2D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

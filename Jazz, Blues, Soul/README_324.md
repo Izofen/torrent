@@ -1,3 +1,90 @@
+###  Публикация: 1569275   (451343) от 13.08.2022
+
+The Southern Locomotive Band - Back In Town Tonight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Back in Town Tonight (00:04:51)
+02 - Money's All Done Spent (00:03:46)
+03 - Walk the Line (00:03:07)
+04 - Float My Way to Freedom (00:03:37)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D50B1642E0EA2F7EB40D3B6EC02C8BC3A9C51D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061002   (451295) от 09.10.2016
+
+Frank Strozier - Long Night (1961, 1962) 2002, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Long Night [04:35]
+ 02.How Little We Know [05:58]
+ 03.The Need For Love [04:41]
+ 04.The Man That Got Away [04:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFEA8DFC37A88337405C1D6E5DEBD93FF19ECE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061274   (451293) от 09.10.2016
+
+Frank Rosolino - Thinking About You (1976) 2CD, 2001, Sackville Recordings[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451293.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Sweet And Lovely [14:03]
+02.Who Can I Turn To [09:21]
+03.Round Midnight [11:16](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFA97C8DCE43905ECA105FC43A3E6C5A5EBA124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247672   (451199) от 16.09.2018
 
 VA - Chicago Plays The Stones (2018) [MP3|320 Kbps] <Blues Rock>
@@ -658,93 +745,6 @@ Harold Lopez-Nussa - El Viaje (2016) Mack Avenue [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DBF8900B49D84644FE0895A6FD82D1877A01A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247938   (448808) от 17.09.2018
-
-Don Elliott - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448808.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Angela [2:44]
-02. Five O Clock Whistle [4:27]
-03. Everything I Love [3:12](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 03:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F1F88E8D416C2D9CF17C6F46F7C16E106807AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 38638   (448738) от 15.09.2020
-
-Felix Slovacek - A Jeho Beatles (1996) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Феликс Словачек - это целая планета на мировом джазовом небосклоне. Без участия этого блистательного саксофониста и кларнетиста из Праги, без его знаменитого биг-бэнда не обходится почти ни один фестиваль мирового уровня. Феликс Словачек - мультиинструменталист. Он играет на кларнете, фортепиано, контрабасе, ударных, дирижирует и сочиняет музыку, прекрасно знает (   Читать дальше...   )01. Free As A Bird  (4:06)
-02. And I Love Her  (3:18)
-03. Something  (2:48)
-04. Eleanor Rigby  (2:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E87BD2CA94321DF0B86E4A731EEBA23794BF16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163637   (448583) от 06.09.2017
-
-Randy Brecker & Eliane Elias - Amanda (1985) Passport Records [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Splash [05:24]
-02. Para Nada (For Nothing) [07:10]
-03. Pandamandium [06:23]
-04. Samba De Bamba [08:17](   Читать дальше...   )Жанр: World Fusion, Latin JazzПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DC9E2FB41BCBEA4C406953CE250FDED4CA2428
 ```
 
 https://mybot314.ru/tekegram_catalog/

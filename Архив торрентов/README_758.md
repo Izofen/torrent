@@ -1,3 +1,29 @@
+###  Публикация: 1088707   (953216) от 02.01.2017
+
+Adobe Premiere Pro CC 2017.0.1 11.0.1 (6) RePack by PooShock [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпуск Premiere Pro CC 2017 (от ноября 2016 г.) вмещает в себя множество новых интересных функций. Обеспечьте эффективную совместную работу благодаря размещаемой службе «Проекты группы» (бета-версия), которая дает редакторам и художникам анимированной графики возможность совместно работать над проектами в Premiere Pro CC, After Effects CC и Prelude CC, позволяя беспрепятственно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FBD6E80E82DAA88CFB134D420747B924ACDAF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088988   (953197) от 02.01.2017
 
 Снежная королева 3. Огонь и лед (2016) TS
@@ -691,35 +717,6 @@ Curio – визуальный редактор для OS X с большими 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2AB716625F440D5F1B2AFB3F4B182707A99D00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979733   (953066) от 31.01.2016
-
-Northern Lite - Letters & Signs (Part One) (2009) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Letters & Signs [3:02]
- 02. The Sick Rose [3:28]
- 03. The Land of Dreams [5:05]
- 04. Gimme Your Number [3:42](   Читать дальше...   )Жанр: Synthpop, Rock, ElectronicПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA107FCC6DEF4974EF7BCDEBF9AD4BC48C6FF2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

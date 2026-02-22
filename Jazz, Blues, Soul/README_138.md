@@ -1,3 +1,90 @@
+###  Публикация: 1006437   (829205) от 11.04.2016
+
+Terry Evans - Live Like a Hurricane (2003) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Fancy You
+02. Rooftop Tomcat
+03. Honey Boy
+04. At The Dark End Of The Street(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85939E29C2B8A38C12D7FE7215A466C880580C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006449   (829201) от 11.04.2016
+
+Gabriela Anders - Last Tango in Rio (2004) [FLAC|Lossless|image + .cue] <Jazz, Latin Jazz, Nu-Tango>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Go To My Head
+02. Abracadabra
+03. Love Is Here To Stay
+04. God Bless The Child(   Читать дальше...   )Жанр: Jazz, Latin Jazz, Nu-TangoПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93961512F1D033A26DE669D4A9727C0131BC44C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006365   (829200) от 11.04.2016
+
+Toku - Dear Mr. Sinatra (2015) Sony Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Best Is Yet To Come [03:49]
+ 02.I've Got You Under My Skin [03:55]
+ 03.The Lady Is A Tramp [04:13]
+ 04.Fly Me To The Moon [03:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C122000E7F0212F6958377B692B5BC37284CC2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 194542   (828550) от 26.04.2010
 
 The Manhattan Transfer - Discography (1971..2009) [MP3|320 kbps]<Jazz, Funk, Vocal, Pop>
@@ -658,93 +745,6 @@ Carolyn Leonhart - Steal The Moon (2000) Sunnyside Communications [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96144D97513A67AC0E311A9B8AF5D1DD2B2A57C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115287   (826772) от 18.03.2017
-
-Organissimo - Waiting For The Boogaloo Sisters… (2003) Big O Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Meet Me @ 11 [03:56]
- 02.Jimmy Smith Goes To Washington [05:35]
- 03.Clap Yo' Hands [07:19]
- 04.Life Wish [06:21](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Jazz-FunkПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2C968D6DB4F66E33635946CB0824C160660E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115788   (826768) от 18.03.2017
-
-Harry Allen Quartet - London Date (2016) Trio Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This is My Lucky Day [07:56]
-02. A Time For Love / You Are There [09:46]
-03. June Song [11:03]
-04. Where No Man Has Gone Before (Theme From Star Trek) [09:34](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D453CEB1624412BB9FE470FBAA3524B314FF5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115372   (826662) от 18.03.2017
-
-Michel Camilo & Tomatito - Spain (2000) Universal [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Spain Intro [03:22]
- 02.Spain [05:34]
- 03.Besame Mucho [07:54]
- 04.A mi nino Jose [04:53](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Piano JazzПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9C17C786DECF312C28D2B7396E9F7BE34C8DC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

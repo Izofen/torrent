@@ -1,3 +1,90 @@
+###  Публикация: 1413596   (408435) от 04.10.2020
+
+Jimmу Ваrnеs - Му Сriminаl Rесоrds (2019) [FLAC|Lossless|image + .cue] <Rock, Classic Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Criminal Records
+02. Shutting Down Our Town
+03. I'm In A Bad Mood
+04. Stolen Car (The Road's On Fire)Жанр: Rock, Classic Rock, Blues RockПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B401CA1D0EAF6E4DF3A0DF3E35BDB96A04032BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413495   (408434) от 04.10.2020
+
+Louis Armstrong & King Oliver With Bessie Smith - High Society (1923 - 1926) 1997, Tradition [FLAC|Lossless|tracks + .cue] <Early Jazz, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Lovin' Man [2:48]
+02. Sugarfoot Stomp (Dippermouth Blues) [2:59]
+03. Southern Stomps [2:39]
+04. Big Butter and Egg Man from the West [3:11](   Читать дальше...   )Жанр: Early Jazz, New Orleans JazzПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCB80A3B99B56430F289D87D776541D32373175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948938   (408398) от 22.10.2015
+
+Grant Green - Visions (1971) /2009, EMI Music/[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Does Anybody Really Know What Time It Is [05:13]
+ 02.Maybe Tomorrow [04:56]
+ 03.Mozart Symphony #40 In G Minor, K550, 1st Movement [04:08]
+ 04.Love On A Two Way Street [04:48](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99099527530BBCB45A6DB9927D1D6D4F5E8E4E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067223   (408394) от 28.10.2016
 
 Nat King Cole - Top Pops (1963) 2007, Collectors' Choice Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -668,101 +755,6 @@ VA - The Sound Gallery (1995-1996) 2CD[FLAC|Lossless]<Jazz, Instrumental, Jazz-F
 08. Paris Studio Group - Accroche toi, Caroline [02:51]
 09. Francis Lai - Marseillaise Generique [02:11]
 10. Franck Pourcel - Francis Francis [02:11](   Читать дальше...   )Жанр: Jazz, Instrumental, Jazz-Funk, Easy ListeningПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561864   (405968) от 18.10.2012
-
-Carlos Garnett - Under Nubian Skies (1997) [FLAC|Lossless]<Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Daffodils
-02. Blues for John C.
-03. My One and Only Love
-04. Happy Children Song
-05. What
-06. Under Nubian Skies
-07. Epitapher Zackerism
-08. Mango Walk
-09. Down & Up AgainЖанр: Hard Bop, Post-BopПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561669   (405921) от 18.10.2012
-
-VA - This Is Soul (2007) [FLAC|Lossless]<Rhythm & Blues, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wilson Pickett - Mustang Sally [03:06]
-02. Carla Thomas - B-A-B-Y [02:54]
-03. Arthur Conley - Sweet Soul Music [02:18]
-04. Percy Sledge - When A Man Loves A Woman [02:50]
-05. Sam & Dave - I Got Everything I Need [02:55]
-06. Ben E. King - What Is Soul? [02:19]
-07. Otis Redding - Fa-Fa-Fa-Fa-Fa (Sad Song) [02:41]
-08. Eddie Floyd - Knock On Wood [03:03]
-09. Solomon Burke - Keep Looking [02:38]
-10. Aretha Franklin - I Never Loved A Man [02:41](   Читать дальше...   )Жанр: Rhythm & Blues, Soul, FunkПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561849   (405917) от 18.10.2012
-
-Julie London - Sophisticated Lady & For The Night People (1998) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sophisticated LadyЖанр: Jazz, VocalПродолжительность: 01:10:22
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,32 @@
+###  Публикация: 1215527   (757851) от 26.03.2018
+
+Александр Маршал - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Александр Маршал - Дай мне руку
+02 Александр Маршал - Обещай мне
+03 Александр Маршал - Погоди, постой
+04 Александр Маршал - Как тебя найти(   Читать дальше...   )Жанр: Rock, ShansonПродолжительность: 03:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B626EB888570C721C1CBD9CF081D7FB3554875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522727   (756498) от 08.01.2022
 
 Leonard Cohen - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
@@ -714,38 +743,6 @@ Kælan Mikla (Kaelan Mikla) - Gloomy Poetry & Darkwave (2016-2021) (Compilation 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADDA606581BC786DDC220419D23D0C7647B34727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127586   (730595) от 22.04.2017
-
-VA - Hits of My Soul Vol. 26 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. A Perfect Circle - The Outside (Resident Renholder Mix) (05:27)
-02. Disturbed - The Light (04:17)
-03. KoRn - Coming Undone (03:20)
-04. Sugababes - Come With Me (06:08)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6860190FE00D3CEBA11E52EC9B7A1589693783
 ```
 
 https://mybot314.ru/tekegram_catalog/

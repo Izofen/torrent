@@ -1,3 +1,32 @@
+###  Публикация: 1493935   (892411) от 05.09.2021
+
+Николай Емелин ( Никола Емелин ) - Коло колъ  (2005) [FLAC|Lossless|tracks + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Русь
+02. Царские забавы
+03. Вечерком
+04. Хватит стрелять(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BC70A54ADFB99C1F572FF5BAF67B71657332CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994245   (891576) от 07.03.2016
 
 Сети - Небо на земле (2002) [FLAC|Lossless|image + .cue] <Rock>
@@ -711,35 +740,6 @@ Moscow Death Brigade - Bad Accent Anthems (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91AF3AA9975CE2B7FA89DE82994A948BBFE51199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374507   (872338) от 10.04.2020
-
-Машина времени - 50 лет (2020) Live [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872338.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Увертюра (Live)
-2. Время ходит на мягких лапах (Live)
-3. Песня о капитане (Live)
-4. День рождения (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 02:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3066E60CE0C3B802A92AAFB00E2BDD22EC5A5D12
 ```
 
 https://mybot314.ru/tekegram_catalog/

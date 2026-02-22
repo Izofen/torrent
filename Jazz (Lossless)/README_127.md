@@ -1,3 +1,32 @@
+###  Публикация: 1133662   (693431) от 13.05.2017
+
+Art Pepper - The Complete Surf Ride Plus (1951 - 1954) 2CD, 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693431.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Brown Gold [02:24]
+02. The Foolish Things [02:39]
+03. Surf Ride [03:10](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 02:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29136C8109BAFF84D7A694EF6B18987D71FAAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534655   (692470) от 03.03.2022
 
 Buddy Rich - Three Classic Albums Plus (1953 - 1955) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FB54E0BD61458782ADEF8CC7DAE33911F9E457F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028476   (688757) от 23.06.2016
-
-Camille - I Sing Stevie: The Stevie Wonder Songbook (2014) [FLAC|Lossless|image + .cue] <Jazz, Latin, Contemporary R&B, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Flower.
-02. As.
-03. The Secret Life Of Plants (Duet with Will Lee).
-04. Free.(   Читать дальше...   )Жанр: Jazz, Latin, Contemporary R&B, Smooth JazzПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941B85133626F215D5B408793C2FC29EDE9F3A23
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 754839   (931998) от 08.02.2014
+
+Chris Botti - December (2002) [FLAC|Lossless]<Smooth Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Christmas Song (4:33)
+02. First Noel (2:51)
+03. Let It Snow, Let It Snow, Let It Snow (4:03)
+04. Hallelujah (3:04)
+05. Perfect Day (2:43)
+06. Santa Claus is Coming to Town (4:09)
+07. O Little Town of Bethlehem (3:11)
+08. Winter Wonderland (3:09)
+09. Little Drummer Boy (3:06)
+10. Hark! The Herald Angels Sing (2:02)(   Читать дальше...   )Жанр: Smooth Jazz, ChristmasПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB9E306262BD5681E27E8694FDE3FCC8EC9B899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986481   (931083) от 14.02.2016
 
 Jason Parker Quartet - Homegrown (2014) [FLAC|Lossless|WEB-DL|tracks] <Hard Bop, Bebop>
@@ -747,35 +782,6 @@ CD1 - Bluesology:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A60C59C850F16A9EB33E26EBFD80251809F97865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094621   (929390) от 18.01.2017
-
-Alfredo Rodriguez - Tocororo (2016) Mack Avenue[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion, Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chan Chan [02:10]
- 02.Yemaya [03:43]
- 03.Raices (Roots) [04:29]
- 04.Gitanerias [03:59](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Cuban JazzПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7775956C9958CBC2377C6BA3380CC8D79B3B682C
 ```
 
 https://mybot314.ru/tekegram_catalog/

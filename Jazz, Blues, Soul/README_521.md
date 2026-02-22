@@ -1,3 +1,32 @@
+###  Публикация: 1693935   (121313) от 23.01.2024
+
+VA - Talent Blues Condensed Vol 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lightnin' Slim -- That's All Right (2:59)
+02. Gregg Smith -- Money Talks (3:59)
+03. Jimmy Reed -- Cold And Lonesome (3:35)
+04. John Lee Hooker -- My First Wife Left Me (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB4148D57FC31BFBB00E75F82C823081A5461F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693916   (121288) от 23.01.2024
 
 VA - Relaxing Carefree Romantic Smooth Jazz Ride (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -716,35 +745,6 @@ Etta James - Late Night Etta James (2024) Compilation [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B58A856A7C23B0801AF3A7646C97122348F8508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694741   (120613) от 27.01.2024
-
-Charles Mingus - Four Classic Albums Plus (1954 - 1959) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia in Times Square [12:19]
-02. I Can't Get  Started [10:12]
-03. No Private Income Blues [12:51]
-04. Alice's Wonderland [8:58](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C278CBE8E0C9BB02FA1D4281C3811E0BD9A883F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

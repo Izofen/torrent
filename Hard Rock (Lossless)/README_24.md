@@ -1,3 +1,29 @@
+###  Публикация: 303847   (863401) от 03.03.2011
+
+Aerosmith - Gold (2005) 2CD [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 02:38:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497664   (863164) от 23.09.2021
 
 Peak Theory - Shattered (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -747,41 +773,6 @@ Ken Hensley - Live Tales (2013) [FLAC|Lossless]<Acoustic Hard Rock>
 06. Wise Man
 07. Through The Eyes Of A Child
 08. RainЖанр: Acoustic Hard RockПродолжительность: 01:01:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 190371   (854807) от 10.04.2010
-
-Slash - Slash (2010) Canadian Deluxe Edition [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost (Ian Astbury)
-02. Crucify The Dead (Ozzy Osbourne)
-03. Beautiful Dangerous (Fergie)
-04. Back From Cali (Myles Kennedy)
-05. Promise (Chris Cornell)
-06. By The Sword (Andrew Stockdale)
-07. Gotten (Adam Levine)
-08. Doctor Alibi (Lemmy)
-09. Watch This Dave (Dave Grohl & Duff McKagan)
-10. I Hold On (Kid Rock)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:59
 
 ## Скачать торент
 ```bash

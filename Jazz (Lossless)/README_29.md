@@ -1,3 +1,32 @@
+###  Публикация: 975981   (970931) от 16.01.2016
+
+Bob James - Rhodes Scholar: Jazz-Funk Classics (1974-1982) 2CD Compilation, 2013 [FLAC|Lossless|tracks + .cue] <Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Nautilus (5:00)
+02. Valley Of The Shadows (9:37)
+03. Farandole (L'arlesienne Suite #2) (8:24)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF9EA8CA07911750ED29188E57636A8DAA7C3FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358063   (970742) от 06.02.2020
 
 Thelonious Monk - Genius Of Modern Music, Vol. 2, 1952 (2001) Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
@@ -808,35 +837,6 @@ Blossom Dearie - My New Celebrity Is You (2020) 1976 [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20AEC42251A6003AE261576215997D3C17C2B43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108966   (968745) от 08.02.2020
-
-Chet Baker Quartet featuring Russ Freeman 1953 (1998) Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isn't it Romantic (3:30)
-02. The Lamp is Low (2:33)
-03. This Time the Dream's on Me (2:46)
-04. Maid in Mexico (2:56)(   Читать дальше...   )Жанр: CoolПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7697BF6E520D15637837421E71B02C06AA3A888F
 ```
 
 https://mybot314.ru/tekegram_catalog/

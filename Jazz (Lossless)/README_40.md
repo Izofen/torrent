@@ -1,3 +1,38 @@
+###  Публикация: 754301   (933759) от 07.02.2014
+
+VA - Jazz Guitar - From the Famous Savoy Jazz Archives 3CD (2005) [FLAC|Lossless]<Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Larry Coryell -  My Shining Hour  (5:06)
+02.  Grant Green -  Samba de Orpheus  (7:09)
+03.  Jazz Recital -  My Heart Stood Still  (3:17)
+04.  Jazz Recital -  Chuck a Tuck  (4:07)
+05.  Kenny Burrell -  In the Still of the Night  (10:24)
+06.  Pat Martino -  Days of Wine and Roses  (4:49)
+07.  Larry Coryell -  Sophisticated Lady  (5:07)
+08.  Jazz Recital -  My Funny Valentine  (3:37)
+09.  Larry Coryell -  'Round Midnight  (8:50)
+10.  Jazz Recital -  Spring Is Here  (3:05)(   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 02:49:33 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B849975A8D136E1C8A1D0317E529E03F46C7B007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754198   (933753) от 07.02.2014
 
 Stacey Kent - In Love Again (2002) [FLAC|Lossless]<Vocal Jazz>
@@ -777,41 +812,6 @@ Ella Fitzgerald & Count Basie - On The Sunny Side Of The Street (1984) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:615D9353A030CAFBDEF35451648AB78D5A38B63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754839   (931998) от 08.02.2014
-
-Chris Botti - December (2002) [FLAC|Lossless]<Smooth Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Christmas Song (4:33)
-02. First Noel (2:51)
-03. Let It Snow, Let It Snow, Let It Snow (4:03)
-04. Hallelujah (3:04)
-05. Perfect Day (2:43)
-06. Santa Claus is Coming to Town (4:09)
-07. O Little Town of Bethlehem (3:11)
-08. Winter Wonderland (3:09)
-09. Little Drummer Boy (3:06)
-10. Hark! The Herald Angels Sing (2:02)(   Читать дальше...   )Жанр: Smooth Jazz, ChristmasПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB9E306262BD5681E27E8694FDE3FCC8EC9B899
 ```
 
 https://mybot314.ru/tekegram_catalog/

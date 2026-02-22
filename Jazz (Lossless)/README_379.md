@@ -1,61 +1,3 @@
-###  Публикация: 1790253   (68070) от 09.04.2025
-
-Gene Krupa And His Orchestra - 1945 - 1946 (2002) Classics [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tea for Two [2:27]
-02. Harriet [2:52]
-03. Yesterdays [3:23]
-04. Lover [2:54](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F043F7CC96A38D32C76B22B2FF04891EFDB3ADDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790640   (68019) от 10.04.2025
-
-VA - Espresso Pronto Napoli! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, , Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Melania - Resta cu' mme (4:57)
-02.  Chiara Civello - Tu Si Na Cosa Grande (4:26)
-03.  Francia Damore - Un Giorno Che Non Va (3:56)
-04.  Fred Buccini - Nun è peccato (3:47)(   Читать дальше...   )Жанр: Lounge, , Smooth JazzПродолжительность: 01:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C1BC1BBFC19FEAB0BF88B9C1CD4E4373B3FC12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790641   (68015) от 10.04.2025
 
 VA - Noches de Jazz Latino (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -743,6 +685,64 @@ Yasuhiro Kohno - Princess Sayaka (1995) ASCAP Record [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05FE7E70EFFF8EF1661F29C38AD31C467C8DAA60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793528   (67487) от 25.04.2025
+
+VA - The Best of Classic Jazz 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Lounge, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Cosmic Junk - Day Relax (Original Mix)(03:13)
+02 James Voorn - Soul Terminal (Original Mix)(03:14)
+03 Lofi Shifters - Jazzy Invitation (Original Mix)(03:16)
+04 Code2875 - Da Vinchi (Original Mix)(03:08)(   Читать дальше...   )Жанр: Jazz, Lounge, Bossa NovaПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E70140EE4A6D70B3C882C23B8AA951E9B5D09F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793530   (67461) от 25.04.2025
+
+VA - Smooth Jazz Sounds 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Elegant Moves - Sweet Life (Original Mix)(03:37)
+02 Carter Davids - Sunshine Feelings (Original Mix)(03:22)
+03 John Burtons - Summer Devotion (Original Mix)(04:08)
+04 Marco Bonucci - Summer Garden (Original Mix)(03:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D0E680C585491F37CD27B48757A1AFB528FE1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

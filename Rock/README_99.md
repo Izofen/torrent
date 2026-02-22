@@ -1,351 +1,3 @@
-###  Публикация: 1774068   (71635) от 18.01.2025
-
-The Borstal Boys - Time Bomb (2025) [MP3|320 Kbps] <Classic Rock, Rock'n'Roll, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It'll Be Alright
-02. Rock n' Roll Freeway
-03. Be Yourself
-04. Partner In Crime(   Читать дальше...   )Жанр: Classic Rock, Rock'n'Roll, Blues RockПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C9E8794D2D3B424C7D13C28DDA0E4E5512472C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774149   (71583) от 19.01.2025
-
-Steve Booker - Dreamworld (серия "Другие восьмидесятые") (1990) [MP3|320 Kbps] <Soft Rock, Folk Rock, Ballads>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Side Of Heaven
-02. Poet Stone
-03. Everytime You Walk Away
-04. Running And Hiding(   Читать дальше...   )Жанр: Soft Rock, Folk Rock, BalladsПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F4430669D134440DF34AABEF7E9785810FBDF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775469   (71421) от 27.01.2025
-
-Fat Mattress - How Can I Live? Complete Recordings (2025) [MP3|320 Kbps] <Psychedelic Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Storm (2009 Remaster) [00:04:11]
-02. Anyway You Want (2009 Remaster) [00:03:48]
-03. Leafy Lanes (2009 Remaster) [00:02:48]
-04. Naturally (2009 Remaster) [00:03:02](   Читать дальше...   )Жанр: Psychedelic Rock, Blues, Country, FolkПродолжительность: 3 CD, 03:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDED507B570EFD8642F977101C31FD476B625CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775874   (71388) от 28.01.2025
-
-Joe Satriani, Eric Johnson, Steve Vai - G3 Reunion Live (2025) [MP3|320 Kbps] <Instrumental Guitar Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravitas (G3 Reunion Live) (1:43)
-02. Avalancha (G3 Reunion Live) (7:24)
-03. Little Pretty Intro (G3 Reunion Live) (1:53)
-04. Little Pretty (G3 Reunion Live) (6:36)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 02:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD24A9C8F462E2D835FA942B405FB391FCE60BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776723   (71201) от 02.02.2025
-
-Simple Minds - Once Upon A Time (1985) Super Deluxe, Remaster, 2015,  UMC [MP3|320 Kbps] <Rock, New Wave, Pop Rock, Synth-pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't You (Forget About Me) (Live) [00:06:37]
-02. Once Upon A Time (Live) [00:06:06]
-03. Book Of Brilliant Things (Live) [00:04:53]
-04. East At Easter (Live) [00:04:20](   Читать дальше...   )Жанр: Rock, New Wave, Pop Rock, Synth-popПродолжительность: 5 CD, 04:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC846D902C093416DE74053F2D0E3A4149B54AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786043   (69022) от 20.03.2025
-
-Grateful Dead - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Don't Ease Me In (Live) [00:03:38]
-02 - Sugar Magnolia (Live) [00:04:50]
-03 - Brokedown Palace (Live) [00:05:43]
-04 - Bertha (Live) [00:05:51](   Читать дальше...   )Жанр: RockПродолжительность: 02:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01076B990961A075963A2D1B9B7AD477B382CB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786891   (68892) от 23.03.2025
-
-Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [MP3|320 Kbps] <Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – I Might Have Been Queen (2015 Remaster)
-02 – What’s Love Got to Do with It (2015 Remaster)
-03 – Show Some Respect (2015 Remaster)
-04 – I Can’t Stand the Rain (2015 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 04:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADAE20D67E543C75A973092A96C2304524AA68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788896   (68439) от 01.04.2025
-
-White Willow - Signal to Noise (2006) Remastered, 2025, Karisma Records [MP3|320 Kbps] <Symphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68439.jpg" />
-</div>
-
-
-###  Подробнее
-
-(04:14) 1. Night Surf
-(06:08) 2. Dusk City
-(04:21) 3. Joyride
-(07:15) 4. Chrome Dawn(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155D488FB043E40B41BEBDCB9F54E9CD2C5E534B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788906   (68430) от 01.04.2025
-
-Outlasted - Universal Human Desire (2025) [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weight Of The World
-02. Save Your Love
-03. Tonight
-04. Lost Without You(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFE32D406DB17BBB6F6E11F3182B71C88697460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789061   (68352) от 02.04.2025
-
-Tarzen - 2 Albums (1984,1989) Remaster, 2025, Metallic Blue Records [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inmediate Obedience [00:03:54]
-02. Victim of Pleasure [00:03:09]
-03. Glad All Over [00:03:00]
-04. Walls and Rivers [00:04:42](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 2 CD, 01:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCAC2F9A9065BA08E9478D7F6A1D8B4EEAD6F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789272   (68335) от 03.04.2025
-
-Metamorphosis - 6 Albums, 1 EP (2002-2021) [ MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark World
-02. I'm Not A Hero
-03. Little Stars Desintegrate
-04. When Life Starts Again(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 06:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A327DB23FF4C656FE944D6366B5AEE603DAB0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792416   (67475) от 25.04.2025
-
-Projekt JU - In alle Ewigkeit (2025) [MP3|320kbps] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prélude [00:01:01]
-02. Marie [00:03:10]
-03. Mon Signore [00:05:18]
-04. Vater Unser [00:05:02](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4959B744799BA779B7219F8C879FF167E66D3603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793602   (67473) от 25.04.2025
 
 Cosmic Cathedral - Deep Water (2025) [MP3|320 Kbps] <Progressive Rock>
@@ -745,6 +397,357 @@ Various Artists - Punk Floyd: A Tribute To Pink Floyd (2024) [MP3|320 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B3B9AB235D7F5E67DC0B6D681B3DB6976327BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724474   (55931) от 20.05.2024
+
+Mark Knopfler - Duets & Collaborations (2024) [MP3|320 Kbps] <Rock, Country, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55931.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Going Home: Theme Of The Local Hero (05:00)
+2. Emmylou Harris – Red Staggerwing (03:00)
+3. B.B. King – All Over Again (04:53)
+4. The Way It Always Starts (feat. Gerry Rafferty) (04:01)(   Читать дальше...   )Жанр: Rock, Country, Blues RockПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2BBB20CF3EA3894E1FC6959AABBB1DB011F1A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725202   (55617) от 23.05.2024
+
+Lenny Kravitz - Blue Electric Light (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Just Another Fine Day (In This Universe of Love) (6:20)
+02. TK421 (5:27)
+03. Honey (3:50)
+04. Paralyzed (4:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEDCEB65CDEE63B024F0B2B27F9E7A8C11CA7FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729866   (53415) от 13.06.2024
+
+Astral Magic - Shadows Over Jupiter Remixed (2024) [MP3|320 Kbps] <Psychedelic, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cult of the Dead (Remix) (05:29)
+ 02. The Gateway Experience (Remix) (05:03)
+ 03. Fuzzy Fields (Remix) (07:06)
+ 04. Thousand Eyes (Remix) (03:21)(   Читать дальше...   )Жанр: Psychedelic, Space RockПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06956209FFB343719DD24BD557108D0653CEE7C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732120   (52219) от 24.06.2024
+
+R.E.M. - Live from the Pyramid Stage, Glastonbury Festival, June 25, 1999 (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lotus [00:04:36]
+02 - What's The Frequency, Kenneth [00:04:09]
+03 - So Fast, So Numb [00:04:47]
+04 - The Apologist [00:04:36](   Читать дальше...   )Жанр: RockПродолжительность: 01:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E600BE3F5A753E173C2D577620C2CE766804B41F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734005   (51281) от 02.07.2024
+
+R.E.M. - R.E.M.'s Top Forty Playlist (according to Berry, Buck, Mills and Stipe) (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - World Leader Pretend (Remastered) [00:04:19]
+02 - Country Feedback [00:04:09]
+03 - Strange Currencies (Remastered) [00:03:52]
+04 - The Lifting [00:04:39](   Читать дальше...   )Жанр: RockПродолжительность: 02:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1EB0FF5D26208B89C1D91149CC14EF1CC7FC4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734548   (51069) от 04.07.2024
+
+Eric Clapton - To Save a Child (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voice Of A Child (Live) [03:31]
+02. Tears In Heaven (Live) [04:31]
+03. Layla (Live) [06:00]
+04. Nobody Knows You When You're Down And Out (Live) [03:24](   Читать дальше...   )Жанр: RockПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769550A170248CC1D4E8FE6B9343B2C72D7EA7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735510   (50649) от 08.07.2024
+
+Blue Cheer - Lone Star Cafe, New York 1984 Live (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_50649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rock Me Baby (Live) [00:05:38]
+02 - Girl Next Door (Live) [00:04:22]
+03 - Just a Little Bit (Live) [00:03:12]
+04 - Blues Cadillac (Live) [00:03:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93F54A1AB54B06A79CE6B60F47BE69E2FF75A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738613   (49070) от 23.07.2024
+
+VA - Classic Rock 100 Epic Songs (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starship - We Built This City
+02. Linkin Park - Numb
+03. The Arrows - I Love Rock ''n'' Roll
+04. Fleetwood Mac - Dreams (2018 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 06:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE302566809704BE8AB3890F70A439EEE990D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741292   (47649) от 06.08.2024
+
+Seven Steps To The Green Door - The ? Truth (2024) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelations (05:21)
+ 02. Africa (15:32)
+ 03. Hearing Voices (05:15)
+ 04. Alpha & Omega III (09:00)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FD559580CF55B495A57836DC7F9B0D1AF9783A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742054   (47329) от 09.08.2024
+
+Avi Rosenfeld - Black Rock Mountain (2023) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Black Rock Mountain (05:36)
+ 02 - Tell Me The Truth (03:26)
+ 03 - Dancing In The Night (04:55)
+ 04 - Day After Day (03:40)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019A2DD00FAD7A42F8EF96F386DAF33D94E38398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414567   (46887) от 14.08.2024
+
+Рок-опера "Икар" (2020 - 2024) [MP3|320 Kbps] <Rock Opera, Musical>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок-опера-антиутопия «Икар»:
+Молодой ученый из закрытого куполом Полиса после общения с "дикарями", живущими за его пределами загорается идеей создания крыльев. Но полеты в закрытом от неба Полисе запрещены...
+ 
+ (   Читать дальше...   )32. Равные [4:05]
+33. Время верить [3:26]
+34. Прикоснись ко мне [4:32]
+35. Баррикады [2:51](   Читать дальше...   )Жанр: Rock Opera, MusicalПродолжительность: 03:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70EF7439A58E53BA1B809A6604C1B5022BB0A211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742903   (46813) от 14.08.2024
+
+Phantom Vision - 3 Albums (2005-2019) [MP3|320 Kbps] <gothic rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:09:11]
+02. Dirty Walls [00:03:40]
+03. Happy Moons [00:04:24]
+04. Alone [00:04:04](   Читать дальше...   )Жанр: gothic rockПродолжительность: 3 CD, 03:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810D1A6B9D35A6AC2A3F2FC452125C2D723F3842
 ```
 
 https://mybot314.ru/tekegram_catalog/

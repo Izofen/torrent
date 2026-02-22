@@ -1,3 +1,38 @@
+###  Публикация: 481498   (88038) от 12.04.2012
+
+Madonna - MDNA (2012) Japan Edition [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Girl Gone Wild [3:43]
+02. Gang Bang [5:26]
+03. I'm Addicted [4:34]
+04. Turn Up The Radio [3:47]
+05. Give Me All Your Luvin' (Featuring Nicki Minaj & M.I.A.) [3:23]
+06. Some Girls [3:54]
+07. Superstar [3:55]
+08. I Don't Give A (Featuring Nicki Minaj) [4:19]
+09. I'm A Sinner [4:52]
+10. Love Spent [3:46](   Читать дальше...   )Жанр: PopПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478535   (86841) от 06.04.2012
 
 Katy Perry - Teenage Dream - The Complete Confection (2012) [FLAC|Lossless]<Dance, Pop>
@@ -811,35 +846,6 @@ Banshee - FABLES (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77EB93CDE3ED7B1BFF78DEF19133CCFC0C721D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776613   (71186) от 02.02.2025
-
-VA - Valentines Day 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Mraz - I’m Yours (Radio Edit) (3:34)
-02. Ed Sheeran - Perfect (4:23)
-03. Sia - Gimme Love (2:57)
-04. All-4-One - I Swear (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D355E215F1A781DD74D7371A912E7AA26C83AD64
 ```
 
 https://mybot314.ru/tekegram_catalog/

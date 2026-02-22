@@ -1,3 +1,183 @@
+###  Публикация: 1181126   (323187) от 07.11.2017
+
+Кар-Мэн - Вокруг Света (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Dance, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323187.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:02] 01. Чио-Чио-Сан
+[4:20] 02. Эй, ухнем
+[4:59] 03. Дели
+[3:58] 04. Знойный Истамбул(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FA9FF347B4F1AAA4C072672C61DB7060B54E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181362   (323186) от 07.11.2017
+
+Технология - Нажми на кнопку (1991) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Techno-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Нажми на кнопку
+03. Интро
+04. Всё, что ты хочешь(   Читать дальше...   )Жанр: Techno-PopПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C03E4276109C1644BA065810D1ACE0900D64992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181279   (323180) от 07.11.2017
+
+VA - Super Rock Ballads (1992) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Uriah Heep - Lady In Black
+02. Kingdom Come - What Love Can Be
+03. Deep Purple - Soldier of Fortune(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63342A13601F279899EF74185BFEEB361ED1B49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181373   (323177) от 07.11.2017
+
+Владимир Кузьмин и гр.Динамик - 1-й Концерт (1982) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323177.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:14] 01. Делай физзарядку (39-й круг)
+[4:14] 02. По-прежнему вдвоём (Капюшон)
+[7:10] 03. Музыканты (В воскресный день)
+[8:32] 04. Тоска(   Читать дальше...   )Жанр: ROCKПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52753032840E59A0DF8D7F55356562BB7F392C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582344   (323006) от 09.10.2022
+
+Rainbow - Ансамбль Rainbow (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323006.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Человек На Серебряной Горе • Man On The Silver Mountain
+A2 Я Все Еще Грустен • Still I'm Sad
+A3 Да Здравствует Рок-Н-Ролл • Long Live Rock'n'Roll
+A4 Всю Ночь • All Night Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA387D8B0DCBC532BCA999543DC9270E9A70FED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580932   (322080) от 28.11.2012
+
+Chris Rea - Road to hell (1989) [FLAC 2.0 96/24 |tracks(VinylRip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road To Hell (Part I) 04:53
+02. The Road To Hell (Part II) 04:33
+03. You Must Be Evil 04:22
+04. Texas 05:11
+05. Looking For A Rainbow 08:04
+06. Your Warm And Tender Love 04:33
+07. Daytona 05:07
+08. That's What They Always Say 04:28
+09. I Just Wanna Be With You 03:41
+10. Tell Me There's A Heaven 06:01Продолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347B0C39054828C5477118EB37132CD600B5FCD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582338   (320742) от 10.10.2022
 
 UB40 - Крыса На Кухне • Rat In The Kitchen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae, Dub, Synth-pop>
@@ -597,177 +777,6 @@ Claire Martin - Too Darn Hot! (2002) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A3074BDB59008AD4C4DFB6298FC65EE30BCF1E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077139   (308748) от 27.11.2016
-
-Bad Company - Dangerous Age (1988)  [FLAC 2.0|192/24|image|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308748.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. One Night (4:41)
-A2. Shake It Up (3:59)
-A3. No Smoke Without A Fire (4:39)
-A4. Bad Man (3:49)(   Читать дальше...   )Производство: Atlantic Records - 1A-81884Жанр: Hard RockПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA475E5CE2F3EEFAF18C64652D1AB21CF0516EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260899   (307448) от 09.11.2018
-
-The Camerata Romana, Eugen Duvier Conducting - Vivaldi - Famous Concerti (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A
-Concerto Grosso in C. RV 558
-01. Allegro Molto
-02. Andante Molto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8872EBA9B73A060C86B6D649719B590EA03041D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846032   (306813) от 30.11.2014
-
-Gillan - Double Trouble (1981) 2LP [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306813.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. No Laughing In Heaven (Live) (6:26)
-A2. No Easy Way (Live) (10:33)
-A3. Trouble (Live) (3:10)
-B1. Mutually Assured Destruction (Live) (5:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1796E721D60DCA059F5A81EB25D43527FD3474F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077561   (306599) от 28.11.2016
-
-Московский камерный оркестр - В.А.Моцарт. Симфония №41 до мажор, KV 551 "Юпитер" (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Allegro vivace  11:16
-2. Andante cantabile  11:38
-Сторона 2(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667EED501812EE8E43984624F8A6CEB3206B44E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 417026   (306239) от 05.12.2011
-
-The Beatles - 16 Альбомов (1969-2003) [DTS 5.1 | Tracks (Upmix)]<Rock, big beat>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, big beatФормат: dts, wave, + coversПродолжительность: 15:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46547012B614DA2DDBC426A829C53AD30798FF06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261194   (305322) от 10.11.2018
-
-VA - Сергей Рахманинов - Золотая коллекция (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Neo-Classical, Romantic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 18 Вариаций На Тему Рапсодии Паганини Для Фортепиано с Оркестром соч. 43
-02. Итальянская Полька Для Фортепиано в Четыре Руки
-Концерт Для Фортепиано с Оркестром №2 соч. 18
-03. I Allegro Moderato(   Читать дальше...   )Жанр: Classical, Neo-Classical, RomanticПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DECAD830D1DCFB61844782748EB1F18428C8684
 ```
 
 https://mybot314.ru/tekegram_catalog/

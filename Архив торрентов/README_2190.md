@@ -1,3 +1,29 @@
+###  Публикация: 1398884   (734801) от 28.07.2020
+
+Allegorithmic Substance Alchemist 2020.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Substance Alchemist выводит искусство создания 3D-материалов и управления ими на новый уровень, благодаря новым функциям для более простого и быстрого создания материалов. Художники могут рассчитывать на мощный, оптимизированный рабочий процесс и интуитивно понятный пользовательский интерфейс.Тип издания: macOS SoftwareРелиз состоялся: июль 2020Разработчик: AllegorithmicПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A8088BFE4A3956799D31D1166E3351BBEC597F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398880   (734797) от 28.07.2020
 
 Cantoma - Into Daylight (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03A984FA27DA9EAEB3C0B3508F7B59A781D3A800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398809   (734571) от 28.07.2020
-
-Navicat Premium 15.0.17 x86/x64 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium - это мощный инструмент для администрирования баз данных, позволяющий подключаться к базам MySQL, MariaDB, MongoDB, SQL Server, Oracle, PostgreSQL и SQLite одновременно в одном приложении. Программа совместима с облачными базами данных Amazon RDS, Amazon Aurora, Amazon Redshift, Microsoft Azure, Oracle Cloud, Google Cloud и MongoDB Atlas. Теперь Вы (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27873A524FFC008B82D4E20CFB9A752C5D15BC61
 ```
 
 https://mybot314.ru/tekegram_catalog/

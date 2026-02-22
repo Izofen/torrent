@@ -1,3 +1,32 @@
+###  Публикация: 1737116   (106560) от 16.07.2024
+
+Duran Duran - Skin Trade (1987) Mix, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skin Trade (Radio Cut) [00:04:26]
+02. We Need You [00:02:53]
+03. Skin Trade (Stretch Mix) [00:07:43]
+04. Skin Trade (Parisian Mix; 2010 Remaster) [00:08:08](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514B832767FF9D13844699412ECEA30E7ABDD72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737844   (106437) от 20.07.2024
 
 Fancy - Fancy For Fans (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
@@ -713,35 +742,6 @@ Sylvester - Live At The Opera House (1979) 2024, Craft Recordings [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F5488320C39D96E31C0089CDDC1403FFAA2B1A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749169   (104526) от 13.09.2024
-
-London Grammar - The Greatest Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - House [3:11]
-02 - Fakest Bitch [4:20]
-03 - You And I [5:01]
-04 - LA [4:32](   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAF3C60F48CD06D8AE703CFC4F88895111143F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

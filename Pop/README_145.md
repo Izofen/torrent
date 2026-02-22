@@ -1,3 +1,119 @@
+###  Публикация: 1294883   (624122) от 10.04.2019
+
+Billy - I'm Not Ok (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Don't Break Me (3:36)
+ 02. Not Over You (3:57)
+ 03. Odds Are Against Us (4:00)
+ 04. California High (4:27)(   Читать дальше...   )Жанр: Pop, Electro, DowntempoПродолжительность: 00:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D487866B7F7A7C49E51F29ABC4032616A7E4F53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295012   (624116) от 10.04.2019
+
+Captain & Tennille - Come In From The Rain (1977) CD, Album, Remastered, 2005, Universal Music Special Markets [MP3|320 Kbps] <Pop, Soft Rock, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come In From The Rain
+02. Sad Eyes
+03. Let Mama Know
+04. Easy Evil(   Читать дальше...   )Жанр: Pop, Soft Rock, Female VocalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60B13559D39BCED48B51BD38F79F1F787B3B589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910197   (624080) от 19.06.2015
+
+Andee - Black And White Heart (2015) Deluxe Version [MP3|320 кб/с]<Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Want Me
+02. Bit O' Love
+03. Never Gone
+04. Hope(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0EE0292BDEB4AE47C7737CE345C669B73E49881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294975   (623872) от 10.04.2019
+
+Belle Epoque - The Best Of (2015) DV Digital [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, 70s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Is Black (Mix) (13:34)
+ 02. Bamalama (Mix) (11:25)
+ 03. Miss Broadway (7:19)
+ 04. Let Men Be (4:21)(   Читать дальше...   )Жанр: Disco, Funk, 70sПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFE43441437E6F57E30043BD7B6369627727D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909904   (623837) от 19.06.2015
 
 Игорь Николаев - Линия жизни (2014) [MP3|256 кб/с]<Pop>
@@ -636,119 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E8BEA49726D6528A47387F73D503837E8245B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145370   (621410) от 25.06.2017
-
-Veorra - Official Discography (2015-2016) 4EP [MP3|320 Kbps] <EDM, Bass, Trap>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative Pop, EDM, Bass, Trap, DubstepПродолжительность: 01:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1039B9AA57F30AC977B2CF0E69129B75588D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036412   (621171) от 20.07.2016
-
-Pebbles - Straight From My Heart (1995) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Club Laid Back (Intro) (2:53)
-02.Like The Last Time (4:07)
-03.'Are You Ready?' (4:36)
-04.I Can't Help It (5:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115EFF9BDC979BC8AF0B265DBDD65A6EADAC03AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036250   (621080) от 20.07.2016
-
-VA - 2005 Grammy Nominees (2005) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Eyed Peas - Let's Get It Started 03:38
-02. Ray Charles (Feat. Norah Jones) - Here We Go Again 03:56
-03. Green Day - American Idiot 02:56
-04. Los Lonely Boys - Heaven 03:36(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010A2D02E62E50FD9B8ADD055B86335BE1D4CCE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036363   (621010) от 20.07.2016
-
-La Mama - Voulez-Vous Coucher Avec La Mama (1983) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа вокальной поддержки таких суперзвёзд как BONEY M., Precious Wilson и некоторых других проектов FAR Music. В её состав вошли первоклассные исполнительницы Madeleine Davis, Patricia Shokley и Cathy Bartney. Фрэнк Фариан всегда знал толк в подборе солисток, обладающих прекрасными голосами. Профессионализм этого студийного трио был настолько высок, что в 1983-м (   Читать дальше...   )01. Voulez-Vous Coucher Avec Moi (Lady Marmalade) (3:37)
-02. Moonlight (2:29)
-03. What Am I Living For (3:41)
-04. Boy You Lift Me Up (3:23)(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FA7170887492FEAD4BEFB010B9B86D23737ACF
 ```
 
 https://mybot314.ru/tekegram_catalog/

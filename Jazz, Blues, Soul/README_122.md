@@ -1,3 +1,93 @@
+###  Публикация: 874790   (861371) от 04.03.2015
+
+Rosa King - The Best Of Rosa King & Upside Down (1995) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. You've Changed Your Mind (05:44)
+02. Georgia On My Mind (04:44)
+03. I Never Knew (04:02)
+04. Why (07:54)
+05. Lonely Me (03:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD32924458330FFDA48FEB31E29B0A56F6C657EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874699   (861279) от 04.03.2015
+
+Nighthawks - As The Sun Sets (2004) [FLAC|Lossless]<Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Descend (6:02)
+02. Norways (5:46)
+03. Receptions In Brazil (5:15)
+04. Managing The Beatles (4:44)
+05. Capetown Unvisited (5:53)(   Читать дальше...   )Жанр: Future JazzПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49E62E4B792AD9DF11EDC4A65EB06678839D8F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874899   (861278) от 04.03.2015
+
+Nir Felder - Golden Age (2014) [FLAC|Lossless]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Lights
+02. Bandits
+03. Ernest / Protector
+04. Sketch 2
+05. Code(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44B4F56EAB343726497F5C848ED645DDA343D65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874653   (861276) от 04.03.2015
 
 Dewa Budjana - Dawai In Paradise (2013) [FLAC|Lossless]<Fusion, Jazz-Rock>
@@ -695,99 +785,6 @@ Toots Lorraine - Make It Easy (2014) [MP3|320 кб/с]<Blues, Blues-Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BE85880FE0451F722CF0F4DDEC4A6FE3D7DAFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768341   (860423) от 20.03.2014
-
-Jim Byrnes - St. Louis Time (2014) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. I Get Evil
-02. Somebody Lied
-03. Nadine
-04. Old Dogs, New Tricks
-05. You'll Miss Me (When I'm Gone)
-06. The Duck's Yas Yas Yas
-07. The Journey Home
-08. St. Louis Blues
-09. Cake Alley
-10. I Need A Change(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC48F465683FF7742B1AF7633583BE155443A653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376182   (860376) от 17.04.2020
-
-The Penitent Man - The Penitent Man (2020) [MP3|320 Kbps] <Heavy Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Devil Was Christ [00:10:46]
-02 - Purple Kiss [00:05:42]
-03 - Stone [00:08:44]
-04 - Buffalo [00:09:36]Жанр: Heavy Blues RockПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848C309F445484207D82B6BE403963A16646B1A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376162   (860238) от 17.04.2020
-
-Fiona Apple - Fetch the Bolt Cutters (2020) [FLAC|Lossless|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want You to Love Me (03:57)
-02. Shameika (04:08)
-03. Fetch the Bolt Cutters (04:58)
-04. Under the Table (03:21)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A656C2148496A8F92A20AC23A52762CF18FEEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

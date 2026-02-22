@@ -1,3 +1,32 @@
+###  Публикация: 1118273   (813614) от 25.03.2017
+
+Bill Evans - Homecoming (1979) 1999, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Re: Person I Knew [04:50]
+ 02.Midnight Mood [06:47]
+ 03.Laurie [08:08]
+ 04.Song From MASH [04:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BA4D568A55BDA25000883BF801754D807BA560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008992   (812252) от 20.04.2016
 
 Reuben Wilson - A Groovy Situation (1970) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
@@ -716,35 +745,6 @@ Sidney Bechet - Weary Blues (1938 - 1940) 1992, Jazz Hour [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:677595A753C5588264A755D620E6FD5B5D248F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009466   (809899) от 21.04.2016
-
-Art Farmer - Benny Golson Jazztet - Here And Now (1962) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tonk [06:53]
- 02.Rue Prevail [04:28]
- 03.Richie's Dilemma [05:15]
- 04.Whisper Not [05:24](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A938A48D4FAA7FF7FABCC6A2F946452BD36B3066
 ```
 
 https://mybot314.ru/tekegram_catalog/

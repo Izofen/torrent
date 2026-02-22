@@ -1,3 +1,119 @@
+###  Публикация: 1258661   (334600) от 31.10.2018
+
+VA - Hits From The Dancefloor (2018) [MP3|320 Kbps] <Funky, Vocal, Club, Nu Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Busiello - My Friend
+02. Alex Barattini - Abc
+03. Corti & Lamedica - I Rock I Sweat I Dance
+04. Nick Detti - I Do It For Money (Funky Bull Remix) (Feat. Francesca)(   Читать дальше...   )Жанр: Funky, Vocal, Club, Nu DiscoПродолжительность: 02:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0AE880AC5B4248EF284022BF03D8CC124CA6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258650   (334592) от 31.10.2018
+
+Intercity Sound Association - Philly Sound (1976) LP [MP3|320 Kbps] <Space-Age, Disco, Jazz-Funk, Easy Listening>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Train (2:29)
+02. Alaska Flight (2:43)
+03. Proud Horse (2:33)
+04. Night Shift (2:48)(   Читать дальше...   )Жанр: Space-Age, Disco, Jazz-Funk, Easy ListeningПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F484DD83911FB27A3CA3ACEFE9726610669E3B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258768   (334240) от 31.10.2018
+
+Игорь Саруханов - RЕАНИМАЦИЯ (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334240.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Парень с гитарой (Dance version 2018)
+2. Зелёные глаза (Dance version 2018)
+3. Лодочка (Dance version 2018)
+4. Моя любовь по городу (Dance version 2018)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F8A63475E270FED4F681E908784A4C39DD1C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420075   (333770) от 31.10.2020
+
+Roxette - Bag Of Trix Vol. 1 (Music From The Roxette Vaults) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help! (Abbey Road Sessions November 15, 1995) (2:54)
+ 02. Listen To Your Heart (Abbey Road Sessions November 15, 1995) (3:34)
+ 03. Let Your Heart Dance With Me (3:07)
+ 04. Waiting For The Rain (Studio Vinden Demo 1997) (3:33)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0EA0F33A3DA3CD05CC14CBCD774E2BAD7D3291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420114   (333768) от 31.10.2020
 
 Amy Macdonald - The Human Demands (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative Rock>
@@ -78,41 +194,6 @@ Mylene Farmer - Interstellaires (2015) [APE|Image+cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75845C558B25BC7A34C6335784BC36475EEAADC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258072   (333101) от 18.11.2010
-
-La Bouche - Greatest Hits (2007) [FLAC|Lossless]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Dreams (03:25)
-02. Be My Lover (04:01)
-03. In Your Life (04:06)
-04. Take Me 2 Heaven 2 Night (03:21)
-05. Fallin' In Love (03:57)
-06. Say You'll Be Mine (03:33)
-07. Bolingo (Love Is In The Air) (04:29)
-08. Unexpected Lovers (03:18)
-09. A Moment Of Love (04:26)
-10. Shoo Bee Do Bee (I Like That Way) (03:27)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,93 +748,6 @@ Karel Gott - Hinter Der Sonne-Lieder, Die Ich Im Herzen Trage (2011) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23ACB17975236D83206542466500D24342896A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420545   (331268) от 02.11.2020
-
-VA - Acoustic Classic Rock Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shannon & Keast - Free Fallin’ (04:17)
-02. Meg Birch - Never Tear Us Apart (03:02)
-03. Karizma Duo - Somebody Told Me (03:36)
-04. Thom Cooper - Sex on Fire (03:19)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CE7D4AE91B19B59EBFA2F87ABBDA58BE9AAA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955886   (331207) от 13.11.2015
-
-Hedley - Hello (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Pop,Punk,Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost In Translation (2:49)
-02. Hello (4:12)
-03. Quit (3:30)
-04. Can't Slow Down (3:36)(   Читать дальше...   )Жанр: Pop,Punk,RockПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9DF2E0FA903890C028F4EC395F9DDAD591DDBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956106   (331149) от 13.11.2015
-
-Дуэт Однажды - Гром (2000) [APE|image+.cue]<Pop,Lounge>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гром [03:38]
-02. Падаю я [03:48]
-03. Я одна [04:19]
-04. Поцелуй [03:51](   Читать дальше...   )Жанр: Pop,LoungeПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769CFE1C5DD3ED3122EA139AC2295D8E282B7DB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

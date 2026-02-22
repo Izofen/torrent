@@ -1,3 +1,178 @@
+###  Публикация: 617610   (219319) от 09.08.2023
+
+Rainbow - 7 альбомов (1975-1983) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219319.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Stranded 4:31
+A2. Can't Let You Go 4:22
+A3. Fool For The Night 4:04
+A4. Fire Dance 4:30(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678C1E76A64F21449B32FE44894297827A3BABE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585684   (218906) от 24.10.2022
+
+Slaughter - Studio Albums (7 releases) (1990 - 2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slaughter (Сло́тер) — американская хард-рок группа. Название группы переводится как "бойня". Марк Слотер был поклонником творчества Льва Толстого, который говорил: "Не было бы боен, не было бы войн". Но Марк Слотер решил, что "одна бойня всё-таки будет. И это будем мы!"
+Группа Slaughter была сформирована в 1988 году бывшими участниками (   Читать дальше...   )1990 - Stick It To Ya
+1992 - The Wild Life
+1995 - Fear No Evil
+1997 - Revolution(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 07:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5551D4F2EC9F35AD93C7175935EC410E81E47434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966329   (217951) от 18.12.2015
+
+Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] <Blues, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Le Jardin Du Luxembourg - Люксембургский Сад  11:52
+2. Il Etait Une Fois Nous Deux - Однажды мы были вдвоем  3:52
+Сторона 2(   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1792E8B78554439E52F65A953BD7C250C029B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652007   (217915) от 11.08.2023
+
+Linda Ronstadt - Living In The USA (1978) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Country Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_217915.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Back In The U.S.A.
+A2 When I Grow Too OId To Dream
+A3 Just One Look
+A4 Alison(   Читать дальше...   )Жанр: Country Rock, Soft RockПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7861D3A51DE2A409E76E5BC53E0E3E83478CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652169   (217891) от 11.08.2023
+
+VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Pop, Acoustic, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_217891.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Familie Silly - Bette Davis Eyes
+A2 Monika Hauff Und Klaus-Dieter Henkler - Birds Of Paradise
+A3 Roland Neudert - Some Broken Hearts Never Mend
+A4 Eva-Maria Pieckert - Maledetta Primavera(   Читать дальше...   )Жанр: Pop, Acoustic, Soft RockПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADD5164C486517397B0807D42F6A1F0B686C002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084837   (217767) от 19.12.2016
+
+The Alan Parsons Project - Tales of Mystery and Imagination [40th Anniversary Edition] (2016) 1976 [DTS 5.1|44.1/16|image +.cue|BD-Audio] <pop/rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 .«A Dream Within a Dream» – 4:14
+02. «The Raven» – 3:57
+03. «The Tell-Tale Heart» – 4:38
+04. «The Cask of Amontillado» – 4:33(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C34CB758DFA8DE2304D4769AFD7990C09BDCD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651323   (217708) от 11.08.2023
 
 VA - Естрадна Панорама 3 (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
@@ -571,181 +746,6 @@ Brahms - Piano Quartet No. 1, Op. 25
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3C660166311E5563D4DABB66BFA0E8F67AA48B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638374   (212054) от 08.06.2023
-
-Sweet - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Set Me Free
-02. Keep It In
-03. Give The Lady Some Respect(   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABBB3609798A7AC5A9202CBF01CA363336DD64D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584773   (211987) от 19.10.2022
-
-Hiromi - Spectrum (2019) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaleidoscope
-02. Whiteout
-03. Yellow Wurlitzer Blues
-04. Spectrum(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BB26AEB46DCB90CB4F7CB22944F535FE6BB9CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638614   (211934) от 09.06.2023
-
-Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Hear You Calling Me
-02. Nasty Reputation
-03. Dreams Of Passion(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6FAB84FC4BA1F43C91B6643E388F302776B9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626297   (211882) от 09.06.2023
-
-Gloryhammer - Studio Albums (4 releases) (2013-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gloryhammer — шотландская пауэр-метал-группа, основанная клавишником Кристофером Боузом, ведущим вокалистом группы Alestorm. Каждый участник группы представляет персонажа в сюжетной концепции. Группа появляется на сцене в доспехах и костюмах, чтобы представить своих персонажей.2013 - Tales From The Kingdom of Fife
-2015 - Space 1992: Rise of the Chaos Wizards
-2019 - Legends From Beyond The Galactic TerrorvortexЖанр: Symphonic Power MetalПродолжительность: 03:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD43CF7A96F69B1C66BAF50A6C8A2AAA715EC087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639009   (211804) от 11.06.2023
-
-Janis Joplin - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half Moon
-02. Me And Bobby McGee
-03. Piece Of My Heart
-04. Move Over(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2EC3EA1552B50F7040E67FAA32B619846642D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585636   (211570) от 24.10.2022
-
-Massimo Farao And The Jazz Magicians Orchestra - Magic Swing: Tribute To The Music Of Count Basie (2022) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211570.jpg" />
-</div>
-
-
-###  Подробнее
-
-A tribute to the Count Basie Orchestra, the pinnacle of swing jazz big band! The sound of the 18-piece Count Basie Orchestra is recreated by overdubbing the brass sections of the jazz musicians performing here. Just magic!
-
-SHM-SACD (Super High Material SACD) is the ultimate Super Audio CD that utilizes the materials and technologies that were developed for the SHM-CD (   Читать дальше...   )1. DEEP READ
-2. IT`S OH SO NICE
-3. LOVER MAN
-4. MOTEN SWING(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6DFD828195E35DFE6228D03FB2F24A6932F2F37
 ```
 
 https://mybot314.ru/tekegram_catalog/

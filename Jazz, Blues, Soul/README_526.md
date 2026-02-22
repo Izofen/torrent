@@ -1,3 +1,32 @@
+###  Публикация: 1699461   (117788) от 13.02.2024
+
+Kitty Kallen - Our Lady... Kitty Kallen (1946 - 1952) 2003, Sepia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Belongs to Daddy [3:08]
+02. Just the Other Day [3:08]
+03. Should I Tell You I Love You [3:03]
+04. If I'm Lucky [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80675653E88A2E31AE4DDA60893506E2627D385B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699509   (117773) от 13.02.2024
 
 Adam Astrup - Songs From Before (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -716,35 +745,6 @@ The Barry Harris Sextet - Luminescence! (1967) 1997, Original Jazz Classics [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B81AEC2C335DFABF1FCE69AECDBE7411FB55E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700199   (117146) от 16.02.2024
-
-Ray Drummond - Excursion (1993) Arabesque Jazz [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Susanita [8:53]
-02. Penta-Major [4:22]
-03. Prelude [1:45]
-04. Quads [9:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F6FB9E550E50CCAA9C2CD5212FFEF914D15F33F
 ```
 
 https://mybot314.ru/tekegram_catalog/

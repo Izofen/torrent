@@ -1,32 +1,3 @@
-###  Публикация: 1700204   (117145) от 16.02.2024
-
-Donald Byrd & Kenny Burrell - All Night Long (1956) 2003, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long [17:15]
-02. Boo-Lu [6:49]
-03. Flickers [6:13]
-04. Li'l Hankie [8:25](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8460AA4E00157436EBD08F8E39C71E0CA6FC879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700206   (117141) от 16.02.2024
 
 Svend Asmussen - Spotlight (1991) Sonet [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
@@ -745,6 +716,35 @@ David Becker Tribune - Germerica (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:538838447BD98D886173AFAD9E6242B2BCEB2765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701259   (116486) от 20.02.2024
+
+Eddie Higgins - Eddie Higgins (1960) Victor [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zarac, the Evil One [5:19]
+02. Falling in Love with Love [4:39]
+03. You Leave Me Breathless [4:29]
+04. Ab's Blues [2:34](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BB327C7BD7CB91901DD3F4C07B1D7813D930EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

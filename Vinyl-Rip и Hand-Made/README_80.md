@@ -1,3 +1,176 @@
+###  Публикация: 1780434   (70440) от 18.02.2025
+
+Innerspace - Studio Albums (3 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Innerspace - прог-рок коллектив, основан в Монреале, Квебек, Канада в 2009 году.2012 - The Village
+2017 - Rise
+2024 - The Last SignЖанр: Progressive RockПродолжительность: 02:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B419DBBE1A7874884CE39AC8FC615F2F551AA459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780615   (70370) от 19.02.2025
+
+Ritual (Sweden) - Studio Albums (5 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ritual был сформирован в 1992 году в Стокгольме, Швеция, барабанщиком Йоханом Нордгреном, басистом Фредриком Линдквистом, гитаристом Патриком Ландстром и клавишником Джона Гамблом.1995 - Ritual
+1999 - Superb Birth
+2003 - Think Like A Mountain
+2007 - The Hemulic Voluntary BandЖанр: Progressive RockПродолжительность: 04:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39709344AA50CB2FE2B26C5FCB2CF9DE66F5DF4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780851   (70339) от 20.02.2025
+
+JoNo - Studio Albums (4 releases) (2006-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70339.jpg" />
+</div>
+
+
+###  Подробнее
+
+JoNo - рок-группа была основана в Готланде, Швеция, в 2006 году.2006 - JoNo
+2013 - Requiem
+2015 - Silence
+2017 - LifeЖанр: Progressive Rock, AORПродолжительность: 03:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D88F3F3E52DA0822861F8270E1656415EE051B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781287   (70250) от 22.02.2025
+
+Greta Van Fleet - Studio Albums (4 releases) (2017-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard rock, Blues rock, Progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Greta Van Fleet - хард-рок -группа из Франкенмута, Мичиган (США)2017 - From The Fires (EP)
+2018 - Anthem Of The Peaceful Army
+2021 - The Battle At Garden's Gate
+2023 - StarcatcherЖанр: Hard rock, Blues rock, Progressive rockПродолжительность: 03:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE654F16C7372F156FBF78A93C82F53AAD4533F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781193   (70235) от 22.02.2025
+
+Von Hertzen Brothers - Studio Albums (9 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Von Hertzen Brothers - финская рок-группа, сформированная в 2000 году тремя братьями.2001 - Experience
+2006 - Approach
+2008 - Love Remains the Same
+2011 - Stars AlignedЖанр: Progressive RockПродолжительность: 08:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796CC5343902C10793666EE3898A6BE37C1AC58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781374   (70214) от 23.02.2025
+
+Starset - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic rock, Progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Starset — американская рок-группа из Колумбуса, штат Огайо, сформированная в 2013 году.2014 - Transmissions
+2017 - Vessels 2.0
+2019 - Divisions
+2021 - HorizonsЖанр: Electronic rock, Progressive rock, Alternative metalПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18BB3154237C7AA7BEBD0C9DA875F75E08D12021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781492   (70212) от 23.02.2025
 
 Dead Sara - Studio Albums (6 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Punk Blues, Grunge>
@@ -564,180 +737,6 @@ A4 - Skulls Adorn The Traitor's Gate(   Читать дальше...   )Жанр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FA06595D62FEB50298EBC18DE98F4753D2661B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785098   (69410) от 14.03.2025
-
-Sentenced - Shadows of the Past (1991) Released, 2011, Century Media [FLAC|24/96|tracks|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69410.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 When The Moment Of Death Arrives
-A2 Rot To Dead
-A3 Disengagement
-A4 Rotting Ways To Misery(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:690D9CAE2362CA0706FB1A876132B21D6AF33BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784921   (69406) от 14.03.2025
-
-Seventh Storm - Maledictus (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69406.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Pirate's Curse
-A2 - Saudade (English Version)
-A3 - Sarpanit
-B1 - Gods of Babylon(   Читать дальше...   )Жанр: Progressive, Gothic MetalПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11AE5B0D3663E69980224660A739910366C09EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785150   (69400) от 14.03.2025
-
-Sentenced - North From Here (1993) Reissue, 2009, 	Century Media [FLAC|24/96|tracks|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69400.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 My Sky Is Darker Than Thine
-A2 Wings
-A3 Fields Of Blood; Harvester Of Hate
-A4 Capture Of Fire(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C4217F949E17F13F253737210D4124E05CB6FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785326   (69331) от 15.03.2025
-
-Swallow The Sun - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swallow the Sun — финская группа из Йювяскюля, основанная в 2000 году2003 - The Morning Never Came
-2005 - Ghosts of Loss
-2008 - Hope
-2009 - New MoonЖанр: Melodic Doom/Death MetalПродолжительность: 10:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43FC1B90DBC99B4E9153207DA5894F9AB1C1352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785314   (69312) от 15.03.2025
-
-Carach Angren - Death Came Through A Phantom Ship (2010) Reissue, 2013, Season Of Mist [DSD128|24/44,1|tracks|Vinyl-Rip] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69312.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Electronic Voice Phenomena
-A2. The Sighting Is A Portent Of Doom
-A3. ...And The Consequence Macabre
-B1. Der Decken's Triumph(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85B302155E9D54E64D71050186124036DE25D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785569   (69275) от 16.03.2025
-
-Elton John - Star Collection (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Eldorado
-02. Bellive
-03. Blessed(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCEACC1D0125A4C8AB39D886499204267272E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 944954   (438312) от 08.10.2015
+
+Janet Jackson - Unbreakable (2015) [FLAC|tracks]<Pop, Soul, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438312.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:38] (01) Unbreakable
+ [4:10] (02) BURNITUP! (feat. Missy Elliott)
+ [3:55] (03) Dammn Baby
+ [4:18] (04) The Great Forever(   Читать дальше...   )Жанр: Pop, Soul, RnBПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8462D4A8B680029E5F0F34524FE1D2BD51656518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570837   (438295) от 19.08.2022
+
+Shania Twain - Greatest Hits (2014) [OGG|485 Kbps] <Pop, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever And For Always	4:03
+02. I'm Gonna Getcha Good!	4:02
+03. Up!	2:53
+04. Ka-Ching!	3:21(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBA77D82B27B34876A7D30023AEDF9505EA6CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410190   (438228) от 20.09.2020
+
+VA - 90er Hits (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Doubt - Don't Speak (04:22)
+02. Vanilla Ice - Ice Ice Baby (04:29)
+03. 4 Non Blondes - What's Up? (04:55)
+04. 3 Doors Down - Kryptonite (03:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA898E1EB21148624CF4457B047C5641FCBA448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571049   (438192) от 19.08.2022
+
+Sandra - The Long Play (1985) [OGG|485 Kbps] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Heat Of The Night	5:20
+02. On The Tray (Seven Years)	3:45
+03. Little Girl	3:11
+04. You And I	6:44(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FFB3AD000826BA8145134B30FAF8DE49FF37AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570834   (438180) от 19.08.2022
 
 Radiorama - Desires And Vampires (1986) [OGG|485 Kbps] <Italo-Disco>
@@ -626,122 +742,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9D45C08CC811844826E2E317870B80C85CFEFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249396   (435725) от 23.09.2018
-
-John Davis & The Monster Orchestra - 4 Albums (1976-1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1976 - Night & Day
-1977 - Up Jumped The Devil
-1978 - Ain't That Enough For You(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 02:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885ADB887978BD8B6777B75988001FE51C04B8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249295   (435325) от 23.09.2018
-
-Technotronic - The Best Remixes (1991) Compilation [MP3|320 Kbps] <House, Euro-House, New Beat>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Techno Medley (Pettibone Mix) (8:33)
-02. This Beat Is Technotronic (Dust Mix) (4:16)
-03. This Beat Is Technotronic (Get On It Club Mix) (7:43)
-04. Get Up! (J Wave Mix) (5:23)(   Читать дальше...   )Жанр: House, Euro-House, New BeatПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66591E7404BA8B8337A5807C102FD5EF79DCEBFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249294   (435324) от 23.09.2018
-
-D.J. BoBo - The Hits (1999) Reissue [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:45)
-02. Somebody Dance With Me (3:34)
-03. Take Control (4:31)
-04. Everybody (3:54)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27384FD88561811D476F190F395A1601075811E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945150   (435260) от 09.10.2015
-
-Selena Gomez - Revival (Deluxe Edition) (2015) /Scene/ [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival
-02. Kill Em With Kindness
-03. Hands to Myself
-04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39BED64C2B451501E2113E5FD4A054BC6353E00B
 ```
 
 https://mybot314.ru/tekegram_catalog/

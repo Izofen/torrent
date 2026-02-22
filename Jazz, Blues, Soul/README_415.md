@@ -1,3 +1,32 @@
+###  Публикация: 1058415   (245515) от 01.10.2016
+
+Harry Manx - 20 Strings And The Truth (2015) [FLAC|Lossless|tracks] <Blues, Folk, World>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veenarama   (03:24)
+02. Phunkistan   (04:24)
+03. Summertime   (02:59)
+04. Waiting in Vain   (04:32)(   Читать дальше...   )Жанр: Blues, Folk, WorldПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4045BCB064556835C34FFF22225F2253A66BFF5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624196   (245500) от 04.04.2023
 
 Karl Seglem - Nye nord (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Nordic Folk>
@@ -716,35 +745,6 @@ George Cables - Shared Secrets (2001) MuseFX Records [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B7AFAF382112FA002E647CE0F603ED44101CDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267181   (244908) от 05.12.2018
-
-Count Basie - Swinging The Blues (1937 - 1949) 2000, Disques Dreyfus [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumpin' At The Woodside [3:03]
-02. Louisiana [2:27]
-03. Katy [2:57]
-04. Broadway [2:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60BCF1DAFCB13E3DE6BA407877F5DB6A19A7CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

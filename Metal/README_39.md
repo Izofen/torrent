@@ -1,3 +1,32 @@
+###  Публикация: 1116550   (822747) от 20.03.2017
+
+Nocturnal Bloodlust - The Best '09-'17 (2017) 2CD [MP3|320 Kbps] <Metalcore, Deathcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Determination (01:17)
+02.BREAK THIS FAKE (04:32)
+03.Malice against (04:58)
+04.Punch me if you can (03:43)(   Читать дальше...   )Жанр: Metalcore, Deathcore, Post-HardcoreПродолжительность: 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273EAE3427990803EBD43D4B0DFEC4737839648A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007300   (822719) от 14.04.2016
 
 Crematory - Monument (2016) [MP3|320 кб/с] <Gothic Metal>
@@ -713,35 +742,6 @@ This Ending - Garden Of Death (2016) [MP3|320 кб/с] <MDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C015B87144C0615F5D1F4B2F9550AD32E7366FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504613   (808214) от 25.10.2021
-
-Тінь Сонця - Тернистий Шлях (2021) [MP3|192 Kbps] <Folk Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808214.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:46] 01. Спалена земля
-[4:30] 02. Над прірвою
-[4:50] 03. У надрах снів
-[4:13] 04. Моя Україна(   Читать дальше...   )Жанр: Folk Rock, Heavy MetalПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE911B1E569EF32B10B11D4ACE42A76E49CC5EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

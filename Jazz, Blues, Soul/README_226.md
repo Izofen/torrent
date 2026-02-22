@@ -1,3 +1,89 @@
+###  Публикация: 1139998   (658220) от 04.06.2017
+
+Sandi Thom - Merchants And Thieves (2010) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maggie McCall  (03:47) 
+02. Runaway Train  (04:25) 
+03. Gold Dust  (03:48) 
+04. Let It Stay  (04:35) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130DCA0343E0BC94D885A99C25870E90019AF7FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139990   (658215) от 04.06.2017
+
+The Kentucky Headhunters & Johnnie Johnson - Meet Me in Bluesland (2015) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658215.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stumblin'  (03:08) 
+2. Walking With The Wolf  (03:28) 
+3. Little Queenie  (03:31) 
+4. She's Got To Have It  (03:18) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5874BB81D1D46C8B2CBBBF175BEFB3BC41EE5C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903466   (658173) от 31.05.2015
+
+Frank Lowe - Black Beings (2008) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Trane's Name [33:28]
+02. Brother Joseph [04:45]
+03. Thulani [22:11]Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2916DD1EF1B88D77805FC3D1E560B44976F4CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903547   (658168) от 31.05.2015
 
 Tony Holiday & The Velvetones - No Need To Rush It (2015) [MP3|320 кб/с]<Harmonica blues>
@@ -658,99 +744,6 @@ Jessy Martens & Band - Touch My Blues Away (2015) Live [MP3|320 кб/с]<Contemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FC994B178B23374DD8808B9B307DF6DEDB31534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903860   (656887) от 01.06.2015
-
-Duke Ellington - Duke Ellington At The Bal Masque (1958) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656887.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alice Blue Gown
-2. Who's Afraid Of The Big Bad Wolf
-3. Got A Date With An Angel
-4. Poor Butterfly(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2015138D921330E304DCE46ABE9C4944F68519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903834   (656886) от 01.06.2015
-
-Johnny Hammond - Gears (1975) [FLAC|tracks+.cue]<Jazz-Funk, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me What To Do (5:21)
-02. Los Conquistadores Chocolates (6:12)
-03. Lost On 23rd Street (5:57)
-04. Fantasy (6:09)(   Читать дальше...   )Жанр: Jazz-Funk, Soul JazzПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C9FE05373D60A7E1075E354A615014F2ECC8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515603   (656009) от 26.06.2012
-
-Mel Torme & Cleo Laine - Nothing Without You (1992) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_656009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Nothing Without You (Coleman, Zippel) [03:04]
-02. I Thought About You (Mercer, VanHeusen) [03:51]
-03. Where or When (Hart, Rodgers) [05:09]
-04. I Wish I Were in Love Again (Hart, Rodgers) [03:11]
-05. Girl Talk (Hefti) [05:09]
-06. After You've Gone (Creamer, Layton) [04:44]
-07. Brazil/Bahia (Barroso, Russell) [04:19]
-08. Birdsong (Sambalaya) (Dankworth) [02:53]
-09. Isn't It a Pity? (Gershwin, Gershwin) [04:04]
-10. Love You Madly (Ellington) [03:34](   Читать дальше...   )Жанр: JazzФормат: *.flacПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

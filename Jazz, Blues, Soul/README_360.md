@@ -1,3 +1,90 @@
+###  Публикация: 1416686   (365399) от 17.10.2020
+
+Donald Byrd - Slow Drag (1967) 1993, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Drag [9:47]
+02. Secret Love [3:59]
+03. Book's Bossa [6:53]
+04. Jelly Roll [5:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218AD2575CB7B5AE294471A03E5AE3D3414E92C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416548   (365389) от 17.10.2020
+
+Spaza - 3 Albums (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bantu Education (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:02:28]
+02. Sizwile (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:08:28]
+03. Mangaliso Sobukwe (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:01:32]
+04. Solomon, Tsietsi & Khotso (feat. Nonku Phiri, Malcolm (   Читать дальше...   )Жанр: Jazz, ExperimentalПродолжительность: 3 CD, 02:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7441526EA750618A06968DCD1B4AEB896EEC58BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416682   (365387) от 17.10.2020
+
+Tito Puente And His Orchestra - Mambo Macoco (1949 - 1951) 1992, Tumbao Cuban Classics [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mambo, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mambo la Roca [2:37]
+02. Lo Dicen Todos [3:19]
+03. Babaratiri [3:04]
+04. A Burujon Punao [3:14](   Читать дальше...   )Жанр: Latin Jazz, Mambo, Big BandПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B84FB137CB54287BFB052FA5481BB8AEAA7DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416713   (365385) от 17.10.2020
 
 Music Magic - One Man Lady (1981) 2005, Cool Sound [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
@@ -655,93 +742,6 @@ VA - Gentlemen in Jazz (2017) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3F9C0DB5C57F5B42032430FFF20470D84F62F16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328508   (363121) от 30.09.2019
-
-Paul Gabriel - Man Of Many Blues (2019) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Good 04:32
-02. Maybe We Can Talk Awhile 04:27
-03. Cold, Cold, Cold 06:06
-04. It Be That Way Sometimes 06:10(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBB60F784A89FC219DCD2F4454182C97DFB8DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177635   (362834) от 25.10.2017
-
-Билли Новик (Billy's Band) - Джазовые стандарты. Часть 1 (2016) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foggy Day
-02. From This Moment On
-03. April In Paris
-04. I Thought About You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B112BC1DDC86FC756C402AD0B5F7572BA5A5A383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177616   (362832) от 25.10.2017
-
-Билли Новик (Billy's Band) - Джазовые стандарты. Часть 2 (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Get A Kick Out Of You
-02. Alone Together
-03. Get Out Of Town
-04. It Could Happen To You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F6A4DD3D5D8164BB52F815F8351DD8D744D83BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,173 @@
+###  Публикация: 1772504   (31269) от 11.01.2025
+
+VA - Legend Rock Ballads vol.1 - vol.3 (1996) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 02:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54501A797742A1E8A27B91017DF64843A38CD094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593932   (31199) от 12.01.2025
+
+Tremonti (Creed, Alter Bridge) - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] <Hard Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mark Tremonti — американский гитарист и вокалист. Со времен участия в Creed, Тремонти стал широко известен своими способностями в написании песен и техническим мастерством и был награждён несколькими наградами, в число которых входит Грэмми. В течение трех лет подряд журнал Guitar World выбирал его в качестве гитариста года. В 2011 году Total Guitar включил его в (   Читать дальше...   )2012 - All I Was
+2015 - Cauterize
+2016 - Dust
+2018 - A Dying MachineЖанр: Hard Rock, Post-grungeПродолжительность: 05:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF115C64D6E8BE7803DF7B4F9AE91766861C727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315031   (31112) от 13.01.2025
+
+Mark Duffy - Tribute To Glen Campbell (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country, Pop Rock, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31112.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 By The Time I Get To Phoenix
+A2 Gentle On My Mind
+A3 Try A Little Kindness
+A4 Mary In The Morning(   Читать дальше...   )Жанр: Country, Pop Rock, Easy ListeningПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D4B38EF5C7D7EF32B226734F85391AEC28A60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306733   (31101) от 13.01.2025
+
+Paper Lace - First Edition (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31101.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In The Morning
+A2 Stoney End
+A3 Lady
+A4 I've Got You, That's Enough For Me(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D08FB8E2A8620390BEB7EEFFBBF9EAADC9A8F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773028   (31078) от 13.01.2025
+
+Vivaldi Metal Project - Studio Albums (3 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vivaldi Metal Project - симфоник-метал-проект, переосмысливающий музыку Антонио Вивальди.2016 - The Four Seasons
+2018 - The Extended Sessions
+2022 - EpiClassicaЖанр: Symphonic MetalПродолжительность: 03:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1519AECA61FA985A8D8BD1E64613BB16B452716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773193   (30992) от 14.01.2025
+
+VA - Romantic Collection. Italia '2000 (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30992.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Toto Cutugno - l'Italiano
+02. Collage - Donna Musica'99
+03. Adriano Celentano - Il Tempo Se Ne Va(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE78891696DFF776329E58CD0CFF2D54C16D6DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675044   (30568) от 18.01.2025
 
 HammerFall (& Cans) - Studio Albums (20 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
@@ -572,180 +742,6 @@ A4 Hace Un Año(   Читать дальше...   )Жанр: PopПродолжи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467C4C58E99006E65E1B2302813029D7C1F50EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560684   (25556) от 06.03.2025
-
-Destruction - Studio albums (21 releases) (1984-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Destruction — трэш-метал-группа из Германии, основанная в 1982 году. Изначально группа называлась «Knight of Demon», но была переименована ещё до выхода первого альбома. Destruction — одна из четырёх наиболее влиятельных групп немецкого трэш-метала, наряду с Kreator, Sodom и Tankard. Эти четыре группы составляют так называемую «большую тевтонскую четверку трэш-метала». (   Читать дальше...   )1984-1985 - Sentence Of Death (EP),  Infernal Overkill
-1986 - Eternal Devastation
-1987 - Mad Butcher (EP)
-1987 - Release From AgonyЖанр: Thrash MetalПродолжительность: 17:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9AC54AAEE8B9849808BDACFEC0438B8E7C335D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784325   (25145) от 10.03.2025
-
-Scorpions - Gold Ballads (1992) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Wind Of Change
-02. Still Loving You
-03. Believe In Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04532FDD6B50A8B18CA4CD58C86EBD69BFCCA0EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620922   (25142) от 10.03.2025
-
-Spiritbox - Studio Albums (6 releases) (2017-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Progressive Metal, Djent>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spiritbox — канадская метал-группа из Виктории, Британская Колумбия. Дуэт мужа и жены, гитариста Майка Стрингера и вокалистки Кортни ЛаПланте, основан в 2017 году. Музыкальный стиль группы трудно отнести к определённому жанру метал-музыки, и он представляет собой множество стилей, включая электронную музыку.2017 - Spiritbox (EP)
-2019 - Singles Collection (EP)
-2021 - Eternal Blue
-2022 - Rotoscope (EP)Жанр: Metalcore, Progressive Metal, DjentПродолжительность: 03:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18DF46E1B8EF09FB3EE0FA4115CDCFBAFB2A024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784788   (24773) от 13.03.2025
-
-Iron Maiden - Collection 1980-1982 (1993) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24773.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Running Free
-02. Prowler
-03. Phantom Of The Poera(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE473B138EE1C2A7B0A242DD154CF3D523B2ACA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641536   (24595) от 15.03.2025
-
-Septicflesh (Septic Flesh) - Studio Albums (12 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Atmospheric/Symphonic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Septic Flesh — метал-группа из Греции. Коллектив сочетает в своём звучании такие жанры как дэт-метал, симфоник-метал и дум-метал.1994 - Mystic Places of Dawn
-1995 - Esoptron
-1997 - Ophidian Wheel
-1998 - A Fallen TempleЖанр: Atmospheric/Symphonic Death MetalПродолжительность: 11:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2F2FB70D24FFE987691F13935D0B58511A7D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785351   (24573) от 15.03.2025
-
-AC/DC - Star Colletion (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Stiff Upper Lip
-02. Big Gun
-03. The Jack(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DF406D0C1FC71E7A6689D5B781563CC3557D22
 ```
 
 https://mybot314.ru/tekegram_catalog/

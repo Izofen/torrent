@@ -1,3 +1,32 @@
+###  Публикация: 1697616   (118772) от 07.02.2024
+
+VA - Top 10 January 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LR Uplift - Yesterday's Rain (Extended Mix) [9:07]
+02. Elissandro - Awakening (Original Mix) [7:12]
+03. Grande Piano vs. Iberian vs. Calvin O'Commor - The Silent Cannons (DreamSkies Mashup) [5:47]
+04. Victor Special & Milosh K - Just Believe (André Wildenhues Remix) [8:16](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E45205892A80C6F6BE8FA9BF5F1BEE72215E279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698283   (118545) от 08.02.2024
 
 VA - Cooperation Trance Selection: Year of the Rabbit (2024) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Redux Selection Vol. 4 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6996AECCE8D13E1883662E2C5D202E2492714AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711551   (112363) от 31.03.2024
-
-VA - Ablazing Spring Sessions 2024 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mercurial Virus - Legacy (Rene Ablaze Extended Remix) [6:54]
-02. Transaphonic - Beamworld (Extended Mix) [7:05]
-03. Thomas Lloyd & Hidden Tigress - Faded Whisper (Claas Inc. Extended Remix) [6:11]
-04. Tranzvission - Resilience (Extended Mix) [6:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3438B041FFF8766F136B2BF68D403E3D6915E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

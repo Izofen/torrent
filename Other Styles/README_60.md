@@ -1,3 +1,32 @@
+###  Публикация: 1122210   (793430) от 06.04.2017
+
+VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Collision (02:53)
+02. Scrap Yard (01:42)
+03. Leverage (01:50)
+04. Juliet (02:55)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BE5CFB191E8CB9EF052F8E0F19E0466DB921BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122646   (793428) от 06.04.2017
 
 Frank Steiner Jr. - 2 альбома (1996-2004) [APE|Lossless|tracks + .cue] <New Age>
@@ -716,35 +745,6 @@ Neil Davidge - BRITANNIA (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD49EE35723E09C929A2B3973375E350C99249F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201908   (790939) от 27.01.2018
-
-Noorvik - Noorvik (2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790939.jpg" />
-</div>
-
-
-###  Подробнее
-
-[10:20] 01. Denali
-[08:06] 02. Shishaldin
-[08:35] 03. Malaspina
-[07:29] 04. Chugach(   Читать дальше...   )Жанр: Post-Rock, Post-Metal, InstrumentalПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1F51C42B92237B46B287A42A5C20416149F020
 ```
 
 https://mybot314.ru/tekegram_catalog/

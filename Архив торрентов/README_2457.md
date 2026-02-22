@@ -1,3 +1,29 @@
+###  Публикация: 1029405   (669895) от 02.07.2016
+
+Ведение договоров 5.6 RePack by Злой неадмин [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для учета и ведения договоров в организациях. Предоставляет возможности для ведения договоров любого количества фирм (с филиалами), имеет настройки правила формирования номера договора, оповещения по незакрытым договорам с истекающим сроком действия и т.д. Программа поддерживает сетевой режим работы.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8DBE5AF1A6F778578DF0F838026A492D56ACD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223923   (669877) от 07.05.2018
 
 Carbon Copy Cloner 5.1.1 (5406) [En]
@@ -662,35 +688,6 @@ TextSoap  для Mac OS - Поможет подчистить текстовые
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97545F137D13DCD564C4CD95166D95A326D4DBFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137069   (669464) от 25.05.2017
-
-Independent Art - Uplifting Trance Collection By Independent Art Vol.11 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legacy (Original Mix)
-02. Offshore (Original Mix)
-03. The Final Walk (Original Mix)
-04. Cyberion (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57CC21E370FD347C0EEE57D79192BDED8900518
 ```
 
 https://mybot314.ru/tekegram_catalog/

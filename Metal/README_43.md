@@ -1,3 +1,32 @@
+###  Публикация: 1205166   (784035) от 08.02.2018
+
+Therion - Beloved Antichrist (2018) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn From Heaven
+02. Where Will You Go?
+03. Through Dust, Through Rain
+04. Signs Are Here(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3857492065A332009273AF92917A727295AB5942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390495   (783058) от 15.06.2020
 
 Killitorous - The Afterparty (2020) [MP3|320 Kbps] <Death Metal>
@@ -722,35 +751,6 @@ Axel Rudi Pell - Knights Call (2018) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE3C303E5F04A67537906E64B20DCD5504CD0AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277854   (775099) от 22.01.2019
-
-Helevorn - Aamamata (2019) [MP3|320 Kbps] <Gothic Metal, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sail to Sanity
-02. Goodbye, Hope
-03. Blackened Waves
-04. Aurora(   Читать дальше...   )Жанр: Gothic Metal, DoomПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E0CFDC221B01192055767B484162AEBE958B36
 ```
 
 https://mybot314.ru/tekegram_catalog/

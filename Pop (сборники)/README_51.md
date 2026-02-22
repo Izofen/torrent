@@ -1,3 +1,38 @@
+###  Публикация: 515238   (656620) от 25.06.2012
+
+VA - Самый Лучший Хит-Парад DFM (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656620.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fly Project - Back In My Life (Radio Edit)
+002. DJ Snach & Supermax - Любовь Как Диско (Dance Version)
+003. Akcent - Chimie Intre Noi (Radio Edit)
+004. Герр Антон (Herr Anton) - Алка Now!
+005. Maroon 5 - One More Night
+006. Sara Oks & Иван Кит - Бой Без Правил
+007. DJ Nano & Kate Ryan feat. Dmol - The Next Road
+008. NikitA - Калинка-Малинка
+009. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
+010. Градусы - Нефть(   Читать дальше...   )Жанр: PopПродолжительность: 06: 12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1441F604D7AF43BCFB1F6289B4D878E3A260A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903781   (656291) от 01.06.2015
 
 VA - Только русский свежак. Топ новинок поп музыки (2015) [MP3|256 кб/с]<Pop>
@@ -756,35 +791,6 @@ VA - Зарубежная Дискотека ХХ Века - 51 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:487B772467ED98FC3CD7776957CE5FC50B55658A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031514   (652148) от 04.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 55 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue - Come Back And Stay ( 1987 )
-02. C. C. Catch - Summer Kisses ( 1988 )
-03. Falco - Coming Home ( Jeanny Part II, One Year Later 1986 )
-04. ABBA - I Saw It In The Mirror ( 1973 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87A1D9D1A440DF67AA2D775948592BA0FC1349E
 ```
 
 https://mybot314.ru/tekegram_catalog/

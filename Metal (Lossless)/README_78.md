@@ -1,3 +1,264 @@
+###  Публикация: 625124   (817589) от 17.04.2016
+
+Caladan Brood - Echoes Of Battle (2013) [FLAC|Lossless|image+.cue]<Epic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Of Azure Fire
+02. Echoes Of Battle
+03. Wild Autumn Wind
+04. To Walk The Ashes Of Dead Empires(   Читать дальше...   )Жанр: Epic Black MetalПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CDF4021739972104C68BE16AADE17E49FC156D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382835   (817532) от 12.05.2020
+
+Wallack - Black Neons (2020) [FLAC|Lossless|Web-DL|tracks] <Industrial Metal, Doom Metal, Stoner Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All That's Ever Been Pt.1 (5:18)
+02. Anxiety (3:42)
+03. Century Boy (4:26)
+04. Black Neons (6:40)(   Читать дальше...   )Жанр: Industrial Metal, Doom Metal, Stoner Rock, Electronic, Psychedelic RockПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF36F3465BA996524CC7353E93BAB445F2A0C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 785463   (817385) от 12.05.2020
+
+Lanfear - The Art Effect (2003) [FLAC|Lossless]<Progressive Metal  /Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heresy [00:54]
+02. Stigmatized [04:45]
+03. Traces Of Infinity [03:53]
+04. The Artefact [06:27](   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE0029955D55B5B7BD5C0ECB46D0041FF39942E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196992   (817282) от 06.01.2018
+
+Epica - Epica Vs Attack On Titan Songs (2017) EP, Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson Bow And Arrow (5:42)
+ 02. Wings Of Freedom (5:34)
+ 03. If Inside These Walls Was A House (3:43)
+ 04. Dedicate Your Heart! (5:41)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85EC4B96542ADCFD44A07E61503A4D0D9CA254BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117495   (817184) от 23.03.2017
+
+Disperse - Foreword (2017) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay
+02. Surrender
+03. Bubbles
+04. Tomorrow(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390745132F7CBBE4E73E8F3EB2813920719020D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008116   (817156) от 17.04.2016
+
+Metallica - Kill'em All (1983) Remastered 2016 [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit the Lights
+02. The Four Horsemen
+03. Motorbreath
+04. Jump in the Fire(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E13618B9FF76D7A5538AC5821754A4DF832495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008118   (816986) от 17.04.2016
+
+Metallica - Ride The Lightning (1984) Remastered 2016 [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816986.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fight Fire with Fire
+2. Ride the Lightning
+3. For Whom the Bell Tolls
+4. Fade to Black(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D07AA62500C01BCA1EA61B70862ED7A89097865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503802   (816130) от 21.10.2021
+
+Thunderhead - 4 Studio Albums (1989-1993) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thunderhead - немецкая хард-рок- и метал- группа, просуществовавшая с 1988 по 2000 год. В 2002 году была основана компания Donnerkopf . Сегодня некоторые из участников активны как Nitrogods . Thunderhead была основана в 1988 году Хенни Вольтером (гитара, экс) и Оле Хемпельманном (электробас), которые познакомились с американским певцом Тедом Буллетом . Bullet остался (   Читать дальше...   )1989 - Behind The Eight-Ball
+1990 - Busted At The Border
+1991 - Crime Pays
+1993 - Killing With StyleЖанр: Heavy MetalПродолжительность: 03:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50000B6388AAECF6E85D60AC95E16128E802F6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008292   (816029) от 18.04.2016
+
+Riot - Fire Down Under (1981) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Swords and Tequila
+02.	Fire Down Under
+03.	Feel the Same
+04.	Outlaw(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F4D32DA2B14AE607B496D1DD755266D504353C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197469   (815915) от 07.01.2018
 
 Steingrab - Mystik (2017) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
@@ -485,266 +746,6 @@ Sarkrista - The Acheronian Worship (2013) [FLAC|Lossless|image + .cue] <Black Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35FA26E9C5B8C452652F7415F14F448955A0448A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118735   (811934) от 26.03.2017
-
-Nekrokrist SS - Nekrokrist SS (2009) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knife
-02. Divine Light
-03. There's no Place for You
-04. Cremation(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6449A7BD55381EA77B7FD129BFC85EE3441AB44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118437   (811933) от 26.03.2017
-
-Master's Hammer - Formulae (2016) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Den nicoty 03:40
-02. Maso z kosmu 04:13
-03. Votava 03:29
-04. Shy Gecko 03:18(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6197D1D2CA133BDCE4E9881C90FD1AF63B0DFC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118412   (811825) от 26.03.2017
-
-Sad - Utter Nihil Worship (2016) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tricked by the Light
-02. Immerse into Submission
-03. Apophenia
-04. Extended Lysergic Perception(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06A070EE84A4373CC22B5F82FBBD63B0BDDE2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118417   (811824) от 26.03.2017
-
-Sacrificium Carmen - Ikuisen tulen kammiossa (2015) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucifer
-02. Öisen haahkan liekeissä
-03. Pimeän silmän goetia
-04. Kaaoksen käärme(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE7386AE83AB409F612A57257C9E686C69E65B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118440   (811822) от 26.03.2017
-
-Poltergeist - Back to Haunt (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to Haunt
-02. Gone and Forgotten
-03. Patterns in the Sky
-04. And So It Has Begun(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB092398D779236660E5B4C1243F539A5957A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118423   (811821) от 26.03.2017
-
-Ofard - Words From The Dead (2012) Reissued, 2013 [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Words From The Dead (The Living Won't Listen)
-02. Völvans spådom
-03. Man Of Iron (Bathory cover)Жанр: Folk MetalПродолжительность: 00:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477BEE8E9BD276D503462AF03B2BBD1D4D5A5A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118447   (811818) от 26.03.2017
-
-Helion Prime - Helion Prime (2016) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Alien Terrain
-02. The Drake Equation
-03. Life Finds a Way
-04. Into the Black Hole(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5D7206A2059E4B943DB2E1E1BF07B7BE2E7BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118692   (811816) от 26.03.2017
-
-Molybaron - Molybaron (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy Prog, Prog-metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fear Is Better Business Than Love (3:09)
-02. Moly (4:23)
-03. Let's Die Together (3:28)
-04. Dance (Addicted To The Disco) (4:49)(   Читать дальше...   )Жанр: Heavy Prog, Prog-metalПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFF95614AA9BA299A36EFD93CCB2EBB666348A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118401   (811809) от 26.03.2017
-
-Stryper - Soldiers Under Command (1985) Japan [FLAC|Lossless|image + .cue] <Hair Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Soldiers Under Command 5:03
-02 Makes Me Wanna Sing 2:53
-03 Together Forever 4:04
-04 First Love 5:51(   Читать дальше...   )Жанр: Hair Heavy MetalПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8527A809DBBB1564C7154A8AB9124B13EEF167
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1370486   (896915) от 27.03.2020
+
+Little Dragon - New Me, Same Us (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On (03:30)
+02. Rush (03:29)
+03. Another Lover (04:26)
+04. Kids (04:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D66D75B8CF5369C8DEABA8B2646D258F6EBE89E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493479   (895374) от 03.09.2021
 
 Lady Gaga - Dawn Of Chromatica (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Dance-pop, House>
@@ -736,35 +765,6 @@ Wax - A Hundred Thousand In Fresh Notes (1989) [FLAC|Lossless|WEB-DL|tracks] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A05454FFACBD57D6531A0E40B432E8E8C5EFDB23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994469   (889641) от 08.03.2016
-
-VA - Die Hit-Giganten - Sommerhits (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haiducii - Dragostea Din Tei (3:33)
-02. Bellini - Samba de Janeiro (2:48)
-03. Loona - Bailando (3:34)
-04. Mr. President - Coco Jamboo (3:38)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F6F0C185F9CF6AFAE3C46EC426C4DAB72EB566D
 ```
 
 https://mybot314.ru/tekegram_catalog/

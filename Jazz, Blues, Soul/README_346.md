@@ -1,3 +1,87 @@
+###  Публикация: 563947   (403841) от 22.10.2012
+
+Princess Velasco - 2 альбома (2010-2011) [FLAC|Lossless]<Ballads, Jazz, Pop, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just The Way You AreЖанр: Ballads, Jazz, Pop, VocalПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169353   (403217) от 27.09.2017
+
+Don Ewell - Free 'n Easy! (1957) 2000, Good Time Jazz [FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolverine Blues [03:54]
+02. Ain't Misbehavin' [03:30]
+03. If I Could Be With You [03:12]
+04. Lulu's Back In Town [02:57](   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221CD0B2C2D42C813A459FBD7F1F1893A10A917F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169362   (403195) от 27.09.2017
+
+Stephane Grappelli - 1935-1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Louis Blues [03:34]
+02. Limehouse Blues [03:15]
+03. I Got Rhythm [03:01]
+04. I've Found A New Baby [03:09](   Читать дальше...   )Жанр: Swing, Gypsy JazzПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706CD1BB54AFD52C5E3338ABEC5721DB66268B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169406   (403153) от 27.09.2017
 
 Eddie Boyd With Peter Green's Fleetwood Mac - 7936 South Rhodes (1968) Reissue, 2001, Aziя Records [MP3|320 Kbps] <Blues>
@@ -712,93 +796,6 @@ Pam Taylor - Steal Your Heart (2017) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:802292CD59C36A2FE51DDDA25E7B2D91E7CD0805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170230   (399623) от 01.10.2017
-
-Steve Marcus - Smile (1993) Red Baron [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oleo [03:53]
-02. Hillary [07:47]
-03. Confirmation [07:13]
-04. Smile [06:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFE9CAC8CE801DB3C5CD65098A6339D16E8A8BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170188   (399544) от 01.10.2017
-
-Jessy Martens & Band - Tricky Thing (2017) [MP3|320 Kbps] <Contemporary Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stronger (03:50)
-02. Pack Of Lies (04:50)
-03. Hush Now (06:05)
-04. Tricky Thing (04:32)(   Читать дальше...   )Жанр: Contemporary BluesПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F941515A27F91C1898C79E618749DE43169131D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170395   (399475) от 01.10.2017
-
-Black Stone Cherry - Black To Blues (2017) EP [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Built For Comfort (04:24)
-02. Champagne & Reefer (03:44)
-03. Palace Of The King (02:58)
-04. Hoochie Coochie Man (04:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF029D112FDD244DB47D6ECD8152937F04F0AD8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

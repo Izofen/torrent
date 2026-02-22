@@ -1,3 +1,32 @@
+###  Публикация: 1755400   (103603) от 17.10.2024
+
+Kenny Werner - Vida Nueva (New Life) (2001) Laurel Tree Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [5:03]
+02. Corcovado (Quiet Nights) [5:03]
+03. Girl from Ipanema [4:27]
+04. Morning of Carnival [5:00](   Читать дальше...   )Жанр: Post-Bop, Latin JazzПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAE7D856932D069E8775D24B82C87B1AFB8FB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755804   (103602) от 17.10.2024
 
 Tas Cru - Tas Cru Band LIVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ Frank Sinatra - In The Wee Small Hours (1953 - 1955) 2019, State Of Art [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA80C1C83F05943A4147A08B4FCCE60CB55E6A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758235   (103415) от 01.11.2024
-
-Charles Tolliver - New Tolliver (1977) 2009, BMG [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earl's World [12:46]
-02. Impact [5:38]
-03. Compassion [11:00]
-04. Truth [9:48]Жанр: Post-BopПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C866DAE135F76D2BA9AFC789466378502473ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1454760   (1025993) от 17.03.2021
+
+Dena DeRose - I Can See Clearly Now (2000) Sharp Nine Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Should Lose You [4:44]
+02. Detour Ahead [6:37]
+03. I've Never Been in Love Before [4:23]
+04. I Can See Clearly Now [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB31B53B60D2C53572A729DA3E15545CD413353E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454895   (1025985) от 17.03.2021
+
+Dena DeRose - Travelin' Light: Live in Antwerp, Belgium (2010) 2012, MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice 'n Easy [4:27]
+02. 'S Wonderful [4:24]
+03. Two Different Worlds [4:11]
+04. East of the Sun (And West of the Moon) [5:29](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F688FB8413641AAA13F9D87FCD520241796914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454619   (1025969) от 17.03.2021
+
+VA - 50 Rockin' Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZZ Top - Beer Drinkers & Hell Raisers - [3:26]
+ 02. Little Feat - Forty-Four Blues - [3:18]
+ 03. Kenny Wayne Shepherd - King's Highway (Tom Lord-Alge Remix) - [4:18]
+ 04. Brownsville Station - Mama Don't Allow No Parkin' - [3:07](   Читать дальше...   )Жанр: BluesПродолжительность: 03:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDEC22AF70D0DBEF5C619DA50B72F1B0C7BCEAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454621   (1025965) от 17.03.2021
 
 VA - A Woman's Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ Zoe Schwarz Blue Commotion - Chameleon (2020) [FLAC|Lossless|image + .cue] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC061D6F3A3FFB6980F0C31D2450765A288F119D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456724   (1024880) от 23.03.2021
-
-Van Kery - New Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runaway (2:49)
-02. One Thing I Learned (3:26)
-03. Perfect Love (5:00)
-04. Not My Time (3:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F068ECFE191349FBAE7BBD4444C672792164485B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456711   (1024876) от 23.03.2021
-
-Chris Catena' Rock City Tribe - Truth In Unity (2020) [FLAC|Lossless|image + .cue] <Hard Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel City (4:48)
-02. The Trickster  (3:50)
-03. Down In The Black (3:57)
-04. Motorcycle Killers (4:34)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A5BE16DF89E6561E5A450FA36088497EA6CF11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456717   (1024874) от 23.03.2021
-
-Ry Bradley - I've Got You Covered (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock 'n' Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Sister (3:42)
-02. My Babe (2:55)
-03. Johnny B. Goode (2:40)
-04. (You're the) Devil in Disguise (2:54)(   Читать дальше...   )Жанр: Blues Rock 'n' RollПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B035B7B59AF30F48B6069068E09AB4FDFAFE4106
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1332484   (313647) от 20.10.2019
+
+Alai Oli - Sad Princess (2019) [MP3|320 Kbps] <Reggae, Alternative Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313647.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дурге 2
+2. Sad Princess
+3. So Bad
+4. Howl in Despair(   Читать дальше...   )Жанр: Reggae, Alternative RockПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B33BB51213F04518FB0F3B531B97B4995C50780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076282   (313536) от 25.11.2016
+
+Триада - 9 (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Руки выше
+02 - Онемел
+03 - Не забудь
+04 - Однажды(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5D0D6977D93D72115BC4D4D1A2BB5B9261C3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076427   (313012) от 25.11.2016
 
 The Weeknd - Starboy (2016) [MP3|320 Kbps] <R&B>
@@ -687,64 +745,6 @@ Schnitt - Die Nacht der langen Messer (2011) [MP3|320 Kbps] <German Hip-Hop, Rap
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C272CBFC263BE13D172F7CC5D5C37EC86BA31BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334902   (290970) от 31.10.2019
-
-VA - Boogie Funk Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, RnB>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graham Blvd - Living in America
-02. The Funky Groove Connection - In My House
-03. Chateau Pop - Young Guns (Go for It)
-04. Regina Avenue - Night Birds(   Читать дальше...   )Жанр: Funk, Disco, RnBПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C2859BE7D5D1ADBACF2DA875CB626CA3790A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962869   (290618) от 06.12.2015
-
-The Chemodan - Абсурд и аллегория (2015) [MP3|320 кб/с]<Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый релиз от the Chemodan Clan, а по сути — сольный альбом Грязного Луи. Всю музыку на релиз писал FD Vadim, который так описывает процесс работы над альбомом: "Я поставил себе задачу написать непохожих друг на друга инструменталов, объединенных той же мистикой, магией и мрачной тайной, присущей манере исполнения Луи".01. Абсурд и аллегория
-02. Мы шагаем дальше (feat. Murovei)
-03. Электроник
-04. Каменный лес (feat. Жора Порох & DJ Chinmachine)(   Читать дальше...   )Жанр: RapПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FDEBBA58DBAEE9B56675C2D3F10396709B9F54
 ```
 
 https://mybot314.ru/tekegram_catalog/

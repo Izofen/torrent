@@ -1,3 +1,32 @@
+###  Публикация: 1149359   (601225) от 10.07.2017
+
+Stan Kenton - New Concepts of Artistry in Rhythm (1952) 1989, Capitol [FLAC|Lossless|tracks + .cue] <Big Band, Progressive Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (This is an Orchestra!) [10:00]
+02. Portrait of a Count [03:17]
+03. Young Blood [03:15]
+04. Frank Speaking [03:14](   Читать дальше...   )Жанр: Big Band, Progressive JazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8E6B1B5B19934F894CD886C082210BD5B79FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149446   (601220) от 10.07.2017
 
 John Hicks, Cecil McBee, Elvin Jones - Power Trio (1991) BMG Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -734,35 +763,6 @@ Torque - Forward (2011) Neuklang [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0325D46369B4CCDDF31213F033A479A2A2664FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914824   (596581) от 03.07.2015
-
-Curtis Fuller - Soul Trombone (1961) /2015, Universal Music/[FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Clan [06:20]
-02. In The Wee Small Hours Of The Morning [04:58]
-03. Newdles [07:41]
-04. The Breeze And I [04:04](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8B66A921A67F4C0F5C09002E911255894C5B08
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1855173   (1057819) от 
+
+Keys - Infinity Parabellum (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinity Parabellum
+02. Message From The Void
+03. Jannus
+04. Catapult(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991B60F82593EEECE0260AC361C8BC632E3EF926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853698   (1056612) от 14.02.2026
 
 Austen Starr - I Am The Enemy (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
@@ -717,35 +746,6 @@ Steele - Steele (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CC74A8F8BA6324FCA94DEC6A592570F2A3A8262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602044   (1046255) от 03.01.2023
-
-N.Y. Fury - I Want It All (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play The Game [00:03:25]
-02. I Want It All [00:03:32]
-03. Danger I Face [00:03:39]
-04. Dance [00:03:06](   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB03B9633D91297036B912DF4B3DF131E6AEC89
 ```
 
 https://mybot314.ru/tekegram_catalog/

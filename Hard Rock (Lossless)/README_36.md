@@ -1,3 +1,32 @@
+###  Публикация: 1289137   (686637) от 16.03.2019
+
+Tesla - Shock (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Won't Take Me Alive (03:34)
+02. Taste Like (03:12)
+03. We Can Rule The World (04:15)
+04. Shock (03:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D731D94E14FD8C4BA85C342E2FAB475A0A9804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178621   (685976) от 16.03.2019
 
 ELF | The Elves (featuring Ronnie James Dio) - 5 альбомов, 8CD (1971-2018) [FLAC|Lossless| image + .cue | tracks+.cue] <Hard Rock, Classic Rock>
@@ -717,35 +746,6 @@ Edge Of Forever - Seminole (2022) Japanese Edition [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC852109DEA1553427D2FB505EA1CFFBC42F20A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536820   (672790) от 13.03.2022
-
-Heartwind - Strangers (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strangers In The Night
-02. Line Of Fire
-03. Amanda
-04. Angels Cry Again(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E72DC4096B67C3BB8BCC391324511AF2A8E4F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

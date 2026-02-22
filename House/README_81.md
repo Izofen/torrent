@@ -1,3 +1,96 @@
+###  Публикация: 591930   (136290) от 20.12.2012
+
+Funkzelle - A Day Within A Day (2010) [MP3|320 кб/с]<Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Day Day (Coney Island Remix) (07:32)
+02. Day Day (Funfair Mix) (08:04)
+03. Day Day (Light And Shadow Edit) (08:09)
+04. Night Night (06:36)Жанр: Deep House, Tech HouseПродолжительность: 00:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A34E85FB44754576FF68B640A20C9AFF6B05992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591959   (136289) от 20.12.2012
+
+Marodelmimo - The Real Life (2011) [MP3|320 кб/с]<Deep House, Minimal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ideologie (07:00)
+02. Addiction (07:31)
+03. Number 13 (06:00)
+04. Ego (05:32)Жанр: Deep House, MinimalПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA96D0144A5AEA41D2952DD6886CFB3F148FE61F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591996   (136274) от 20.12.2012
+
+VA - Illustrate Your Sound (2012) [MP3|320 кб/с]<Deep House, Downtempo, Minimal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Juan Demal - Noctambulo (05:54)
+02. Angel Galan - Colonization (05:08)
+03. Rodrigo Atler - En Frio Y Sin Aviso (07:38)
+04. E-teb - Ekomat2 (07:34)
+05. Meto - Space Ducks (05:57)
+06. Marodelmimo - Molécule (05:48)
+07. Krzho - God Mode (08:42)
+08. Movemat - Individroid (04:51)
+09. Argon - Schokoschlacht (07:07)
+10. Evade - Reminder Version (04:12)(   Читать дальше...   )Жанр: Deep House, Downtempo, MinimalПродолжительность: 01:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580C01DDB7667419A498053879DDA6DC8807BA0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592368   (136004) от 21.12.2012
 
 Korablove - Jazzy Mope EP (2010) [MP3|320 кб/с]<Deep House>
@@ -729,105 +822,6 @@ VA - Dance The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EB25CE998002C7563EC118978DEB4AD5971ED5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682833   (129872) от 09.12.2023
-
-VA - 50 DJ Tracks 2024 Vol. 1 (2023) [MP3|320 Kbps] <House, Dance, Club, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer & Alex Hilton - Dare Me (Extended Mix) [3:55]
-02. Alex Megane & Vitalyon - I Wanna (Extended Mix) [3:22]
-03. Tom Mountain - Falling (Extended Mix) [3:51]
-04. Secal - Party Rock Anthem (Extended Mix) [4:22](   Читать дальше...   )Жанр: House, Dance, Club, ElectronicПродолжительность: 03:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC79A24ED54446C8DD203DE5EA2C173CD73D1AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489564   (129624) от 30.04.2012
-
-Danism - Sine Of The Times (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Danism & Haze – Closer (Dub) (7:02)
-02. Danism & Tasita D’mour – The Message (Main Mix) (7:29)
-03. Danism - 824 (Main Mix) (6:45)
-04. Danism - Closer (Vocal Mix) (6:49)
-05. Danism - Gotta Feel (Original Mix) (7:11)
-06. Danism - Love The Way (6:33)
-07. Danism - Love The Way (Crazy P Remix) (6:59)
-08. Danism - Say Out Loud (7:50)
-09. Danism - Say Out Loud (Something Good Remix) (6:51)
-10. Erick Morillo Featuring Deborah Cooper – I Get Lifted (Michael Gray & Danism Remix) (8:07)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 01:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957CC92FDAE13951983A6EB227A90AC0379E7884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489584   (129436) от 29.04.2012
-
-VA - Infectious House Vibes Vol.4 (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Demoro - Black - Ivan Pica Remix (7:07)
-02. K-Drive - Goodshidze - Mike Newman Remix (6:38)
-03. Dj Fist - All Night - Original Mix (6:29)
-04. Dave Kurtis - Avusadora - DJ Fist Remix (6:29)
-05. Hauswerks - Funk 46 - Original Mix (6:26)
-06. Rosie Romero - Magnetic - Josha & Romee Remix (6:02)
-07. Nimo Iero - Move U - B Mix (6:37)
-08. Boogie Pimps - Half Baker - Original Mix (6:04)
-09. Fallen Ken - Hybris - Those Guys Remix (6:36)
-10. Ciaran Osborne - Dont Hold Back - Original Mix (6:58)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430B5F3905FB75E9FCF29392296493366128546D
 ```
 
 https://mybot314.ru/tekegram_catalog/

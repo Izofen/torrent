@@ -1,3 +1,177 @@
+###  Публикация: 1726864   (108609) от 31.05.2024
+
+Lucius - Wildewoman - The New Recordings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wildewoman (00:04:12)
+02 - Turn It Around (00:03:29)
+03 - Go Home (feat. Marcus Mumford) (00:03:28)
+04 - Hey, Doreen (00:04:37)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB4AF29AB0577D10275F207096DA3E33F9BD1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727276   (108607) от 01.06.2024
+
+Bad Omens - Concrete Jungle (2024) The OST [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C:\Projects\CJOST\BEATDEATH
+02. V.A.N
+03. THE DRAIN
+04. TERMS & CONDITIONS(   Читать дальше...   )Жанр: Metalcore, Alternative Metal, Alternative RockПродолжительность: 01:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D93C6468550E3069C33E8A78BA04518DCA1001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549201   (108594) от 01.06.2024
+
+Silverstein - A Beautiful Place To Drown (2020) [FLAC 2.0|96/24|WEB-DL|tracks] <Post-Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Habits (feat. Intervals)
+02. Burn It Down (feat. Caleb Shomo)
+03. Where Are You
+04. Infinite (feat. Aaron Gillespie)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC598591F380B50515DACC3E9E09AD18CA76545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727094   (108590) от 01.06.2024
+
+P.O.D. (Payable On Death) - Studio Albums (14 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108590.jpg" />
+</div>
+
+
+###  Подробнее
+
+P.O.D. (сокращение от Payable on Death) — американская рок-группа из города Сан-Диего, Калифорния. Работает в стилях ню-метал, альтернативный метал, христианский метал, добавляя элементы рэгги.1994 - Snuff The Punk
+1996 - Brown
+1999 - The Fundamental Elements Of Southtown
+2001 - Satellite(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 11:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3674AFD02131E9454ACC28B6741FC99BBF13D2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727093   (108573) от 01.06.2024
+
+VA - Metal Massacre 15 (2021)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal, Death Metal, Thrash, Speed Metal, Doom Metal, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108573.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Midnight - Masked And Deadly
+A2 - Poison Ruin - Demon Wind
+A3 - Fuming Mouth - Master Of Extremity
+A4 - Many Suffer - The Trees Die Standing(   Читать дальше...   )Жанр: Heavy Metal, Death Metal, Thrash, Speed Metal, Doom Metal, Black MetalПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD170013916B7E70821EA3EE61234EA8B7377925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727087   (108557) от 01.06.2024
+
+Beak> - >>>> (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strawberry Line [00:08:00]
+02. The Seal [00:06:10]
+03. Windmill Hill [00:02:25]
+04. Denim [00:05:44](   Читать дальше...   )Жанр: Trip-Hop, Experimental rockПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0C0430E2D01AB7C1E663CA997957C38079FE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727048   (108539) от 01.06.2024
 
 Cosmic Jaguar - El Era Del Jaguar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Avant-Garde Death Metal, Folk Metal>
@@ -571,180 +745,6 @@ Barock Project - Time Voyager (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6447C4BDD31AD84B73273B5F8C075CEC801D64D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727667   (108403) от 03.06.2024
-
-Young Acid - Murder At Maple Mountain (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Depths [00:02:52]
-02. Bitter Little Man [00:03:32]
-03. Fightmaker Street [00:02:49]
-04. PV 444 [00:03:25](   Читать дальше...   )Жанр: Alternative Rock, Garage RockПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922E8A66A841F0B46B1F2F7508F1C334BD2E13E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727928   (108392) от 04.06.2024
-
-Channel Zero - Studio Albums (8 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Channel Zero — бельгийская метал-группа, образованная в Брюсселе в 1990 году. На пике своей карьеры в 1997 году, группа приостановила детельность, однако в 2009 произошло воссоединение коллектива.1992 - Channel Zero
-1993 - Stigmatized For Life
-1994 - Unsafe
-1996 - Black FuelЖанр: Thrash/Groove MetalПродолжительность: 06:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A5F19740E499FA19EC48ED9D579F25ECAA0F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727866   (108380) от 04.06.2024
-
-Kreator - Terrible Certainty (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blind Faith (04:06)
-02 - Storming With Menace (04:26)
-03 - Terrible Certainty (04:28)
-04 - As The World Burns (03:51)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA834B1AE0427B304A8D19C590199FBAEDADFC33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728418   (108346) от 07.06.2024
-
-Chorus and Orchestra of Teatro Communale, Firenze, cond. E. Ghili - Bizet – Carmen (1966) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical, Opera, Romantic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Act I
-A1 Habanera: L'amour Est Un Oiseau Rebelle
-A2 Parlez-Moi De Ma Mere
-A3 Seguidilla: Pres Des Rampart De Seville(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B8E051941F5B10140DEC7251090EEEC3D4E70F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728449   (108345) от 07.06.2024
-
-VA - Bubblegum Is Back (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108345.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 1910 Fruitgum Company – Simon Says
-A2 1910 Fruitgum Company – Indian Giver
-A3 1910 Fruitgum Company – Goody Goody Gumdrops
-A4 The Lemon Pipers – Jelly Jungle(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DFED17E6073EB62A7E8FC3819F09C9FDF099FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728562   (108342) от 07.06.2024
-
-DarWin - Five Steps On The Sun (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Police (3:53)
-02. Inside This Zoo (5:23)
-03. Be That Man (5:18)
-04. One Step on the Sun (1:32)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69EC687915CD5476C92255D91ABA6B1E1B72869
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1737322   (49703) от 17.07.2024
+
+VA - 80s Mixtape (The Ultimate Collection) (2017) Box Set: 5CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Jazz, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human League - Don't You Want Me
+02. Abc - The Look Of Love (Part 1)
+03. Blondie - Heart Of Glass
+04. Kurtis Blow - The Breaks(   Читать дальше...   )Жанр: Electronic, Pop, Jazz, RockПродолжительность: 06:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3122CF91D32D5EA974ACF16CDF6CF5C927219EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737568   (49613) от 18.07.2024
+
+Marc Almond - I'm Not Anyone (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m the Light
+02. Reflections of My Life
+03. Gone with the Wind (Is My Love)
+04. I Talk to the Wind (feat. Ian Anderson)(   Читать дальше...   )Жанр: Indie Pop, SynthpopПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9D5E1E351D8ACC73CB7FD03C81591ADEB67C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737679   (49521) от 19.07.2024
+
+SEREBRO - 11 (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49521.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love Song
+2. Сладко
+3. Не время
+4. Давай держаться за руки(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE582789CD377E0AD5A28D682C03FB38A94A4002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737731   (49510) от 19.07.2024
 
 VA - DJ Hits 145 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -660,91 +747,6 @@ VA - Lentos y acusticos 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0F5DB36EAFEE6B22205CA56077588900F1CC04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742333   (47148) от 11.08.2024
-
-VA - Top 100 Songs of 2024 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47148.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Benson Boone - Beautiful Things (3:00)
-002. Dua Lipa - Training Season (3:29)
-003. Zach Bryan - 28 (3:53)
-004. Charli XCX - 360 (2:13)(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBBE1EA6C47A8E562E7DBF98B18DA24E5B0AC6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742699   (47023) от 12.08.2024
-
-Niel De One - Retrospectiva (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niel De One - Retrospectiva (Original Mix)
-02. Niel De One - Retrospectiva (Funk Mix)Жанр: Nu Disco, DiscoПродолжительность: 00:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9962CA6627B4A17676B39DB3E96C0B8C191F625A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742703   (46919) от 13.08.2024
-
-Слава - The Best (2007) [WavPack|Lossless|image + .cue] <Europop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бабье Лето
- 02. Классный
- 03. Восьмерка На Нули
- 04. Люблю Или Ненавижу(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7D1A7791356D9C70059E725A02093B8D0C2925
 ```
 
 https://mybot314.ru/tekegram_catalog/

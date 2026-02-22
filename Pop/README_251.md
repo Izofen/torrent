@@ -1,3 +1,96 @@
+###  Публикация: 1188016   (275977) от 01.12.2017
+
+Robbie Williams - Under the Radar, Vol. 2 (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275977.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Satellites
+2. 9 to 5
+3. Ms Pepper
+4. Bambi(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEC0BC116A6E11FC4C430FF8D020326F6DFE58B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337069   (275857) от 09.11.2019
+
+VA – Мамина пластинка 2. Лучшие хиты 70х-80х (2003) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олег Кацура - Большая медведица
+02. виа Лейся, песня! - Где же ты была
+03. виа Самоцветы - Чернобровая дивчина
+04. виа Лейся, песня! - Песенка про сапожника(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9294C30F71A7134B88D470A432F74331D80445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273466   (275846) от 21.12.2010
+
+Falco - Out Of The Dark (Into The Light) (1998) [MP3|320 kbps]<Pop/Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Not Time For Revolution                          00:03:49
+02.Out Of The Dark                                      00:03:35
+03.Shake                                                      00:03:38
+04.Der Kommissar 2000                               00:03:45
+05.Mutter, Der Mann Mit Dem Koks Ist Da    00:03:34
+06.Hit Me                                                      00:03:42
+07.Cyberlove                                               00:03:34
+08.Egoist                                                     00:03:08
+09.Naked (Full Frontal Version)                   00:06:02
+10.Matth. XI, 15..                                        00:03:40Жанр: Pop/RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188015   (275768) от 01.12.2017
 
 Дима Билан - Эгоист (2017) [MP3|320 Kbps] <Pop>
@@ -656,93 +749,6 @@ Mary Wilson - Mary Wilson (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:275EC3EE6AA3A37AE4ED860989B5E62398AF5F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265487   (274127) от 28.11.2018
-
-VA - Future Trance - Return to the Millennium 2000er (2018) 3CD [MP3|320 Kbps] <Italo Dance, Hardstyle, Hard Trance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274127.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Gigi D'Agostino - L'Amour Toujours (Small Mix)
-02. Scooter - Weekend!
-03. Groove Coverage - Moonlight Shadow(   Читать дальше...   )Жанр: Italo Dance, Hardstyle, Hard TranceПродолжительность: 03:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3CA6DD37E77F391D1910448F9C006399884654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083691   (273704) от 16.12.2016
-
-Champagne Explosion - Champagne Explosion (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Action Is Tight  (5:27)
-02. Sexy Changes  (6:02)
-03. Love Now Hurt Later  (7:03)
-04. Jesus Christ Super Star  (4:06)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF52B544078B0ED4CD484B13115232F76681462B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188469   (273669) от 03.12.2017
-
-Lucio Dalla - Storie di casa mia (1971) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Itaca
-02 - Un uomo come me
-03 - Il bambino di fumo
-04 - Il colonnello(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796AE908BFAC29431FE04E82229336B344280244
 ```
 
 https://mybot314.ru/tekegram_catalog/

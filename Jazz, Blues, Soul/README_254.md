@@ -1,3 +1,90 @@
+###  Публикация: 1148149   (603949) от 06.07.2017
+
+Ignasi Terraza Trio - Let Me Tell You Something (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When It's Sleepytime Down South [05:42]
+02. Misty [04:28]
+03. Love for Sale [06:16]
+04. I Can't Get Started [05:20](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991136198C2516884223F2DBFAC3AE50B0A91B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148154   (603948) от 06.07.2017
+
+Ignasi Terraza Trio - Jazz a les Fosques I (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candy [05:41]
+02. September Song [06:25]
+03. Love for Sale [05:56]
+04. I Remember Clifford [07:13](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528D506D2736AEA991875CAC7077025708A7AFF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148161   (603947) от 06.07.2017
+
+Susana Sheiman & Ignasi Terraza Trio - Swing Appeal (2011) Swit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Glad There Is You [05:35]
+02. P.S. I Love You [04:15]
+03. Spring Can Really Hang You Up the Most [05:13]
+04. Just One of Those Things [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0599BC5588194726DCF98FA25DB54C34E90BB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148175   (603946) от 06.07.2017
 
 Ignasi Terraza - Sol-IT (2010) 2CD, 2012, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -657,93 +744,6 @@ Kenny G - The Moment (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7B645CAD97FC2F43A9C11C2B3FE9D8DAF61084D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148808   (603002) от 08.07.2017
-
-Don Braden - Workin' (2006) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spoken Introduction by Cecil Brooks III [00:52]
-02. You Can't Hide love [07:28]
-03. Spoken Introduction by Don Braden [00:34]
-04. Looking for Her [01:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2C001D1E840FD2F99FD7E28DB1680FC0610667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148805   (603001) от 08.07.2017
-
-David Grisman Quintet featuring Svend Asmussen - Svingin' With Svend (1988) Zebra Acoustic [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svingin' With Svend [04:04]
-02. Nadja [06:24]
-03. Lap-Nils Polska [08:25]
-04. It Don't Mean A Thing [06:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DDB709A4423D88FF86650C7A309CC98F89745FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148661   (602999) от 08.07.2017
-
-Stan Kenton - Summer Of '51 (1987) Garland [FLAC|Lossless|tracks + .cue] <Big Band, Progressive Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artistry In Rhythm [00:45]
-02. Machito [02:24]
-03. Stardust [03:18]
-04. Gone With the Wind [02:46](   Читать дальше...   )Жанр: Big Band, Progressive JazzПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9149BF086B6F56D4804254BB6C65DE095540DDA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

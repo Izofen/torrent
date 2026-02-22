@@ -1,3 +1,32 @@
+###  Публикация: 1697673   (118734) от 07.02.2024
+
+Eric Dolphy - Muses (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone Together (Schwartz) - 12:07
+02. Muses (Dolphy) - 8:49
+03. Iron Man (Dolphy) - 8:27
+04. Love Me (Young) - 3:40(   Читать дальше...   )Жанр: Free JazzПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E986F4FE9EED5177617B4C940BEDCBB252734B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697572   (118733) от 07.02.2024
 
 Grant Geissman - Bop! Bang! Boom! (2012) Futurism Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Contemporary Jazz>
@@ -716,35 +745,6 @@ Cheikh Ouza - African Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF90B36C53DD1FD22DB7D2BC689FCF32C042181F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699461   (117788) от 13.02.2024
-
-Kitty Kallen - Our Lady... Kitty Kallen (1946 - 1952) 2003, Sepia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Belongs to Daddy [3:08]
-02. Just the Other Day [3:08]
-03. Should I Tell You I Love You [3:03]
-04. If I'm Lucky [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80675653E88A2E31AE4DDA60893506E2627D385B
 ```
 
 https://mybot314.ru/tekegram_catalog/

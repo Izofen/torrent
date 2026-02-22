@@ -1,3 +1,29 @@
+###  Публикация: 1486761   (1004467) от 01.08.2021
+
+SketchUp Pro 2021 21.1.299 (01.08.2021) RePack by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004467.jpg" />
+</div>
+
+
+###  Подробнее
+
+SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A00D5101EEC2EE55CAEE17C9D4E5D8A2DAB1F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486382   (1004466) от 01.08.2021
 
 Windows 7/10 Pro х86-x64 by systemp 7.7.2021 [Ru]
@@ -655,35 +681,6 @@ Yugen Blakrok - Anima Mysterium (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop, G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A2F761F73FDB17DA01E6EBCD9B1B6E96398C80A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349629   (1004307) от 02.01.2020
-
-Kryder - Kryteria Radio 219 (Best Of 2019) 2020-01-01 [MP3|192 Kbps] <House, Tech House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN ft. RAYE - Make It To Heaven
-02. Meduza X Becky Hill X Goodboys - Lose Control (Jose De Mara & Crusy Remix)
-03. SWACQ - No Strings Attached
-04. Cato Anaya & Dave Ruthwell & Mr. Sid ft. Dragonfly - Salomé(   Читать дальше...   )Жанр: House, Tech House, Progressive HouseПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1184DBD16C49A13FED4E8A062D6B640B93518F14
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1101494   (895368) от 06.02.2017
+
+PowerISO 6.8 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895368.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B036602986A642CE32ECE4ADD7F3B546C70ABBE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 183516   (895367) от 16.03.2010
 
 Valtec 2.0.0.3.2 [Русский]
@@ -703,41 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4900440A2819DF5A750725F3529BC96973ECCA01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638576   (895222) от 03.04.2013
-
-Lazy Bonez - Vol. 1 (2013) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Bring It All Now (feat. Stefan Schwarzmann)
-02. Stainless Steel
-03. First to Go — Last to Know (feat. Marco Hietala & Udo Dirkschneider)
-04. Frozen Love (feat. Stefan Schwarzmann)
-05. Written in the Sky (feat. MC Raaka Pee)
-06. M.I.L.F.
-07. Got a Soul
-08. Free Ride
-09. Poker Face
-10. Return to MeЖанр: Heavy Metal, Hard RockПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046B6CC2A26CD61263A8A44BC636E26213959A0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

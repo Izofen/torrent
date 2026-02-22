@@ -1,3 +1,293 @@
+###  Публикация: 1398736   (735254) от 27.07.2020
+
+VA - Morphine Bride (2020) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735254.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alluvion - Preemptive Ascension
+002. Daniel Gren - Opening B
+003. Stages In Faith - Out Of Turn
+004. Hawkwind - Flesh Fondue(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 13:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039C3E06CBC7AD0FC50A0AFCE7EE5A88D85D28D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398714   (735247) от 27.07.2020
+
+VA - Beatport Trance: Electro Sound Pack #137 (2020) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Relais - Over Vanity
+002. California Sunshine - Sababa Time
+003. Structural Mind Engine - Eternalix
+004. Tromo - The Dreamer(   Читать дальше...   )Жанр: TranceПродолжительность: 10:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9431EB46FF21F3F7E65792D9C38507E8498AFDCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398731   (735225) от 27.07.2020
+
+VA - Deep House NME New Collection (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Marshall - Phased Reasoning
+02. Don Wolf - Particular Enviromnent
+03. Cristian Viviano - Astral Connection
+04. Angela Mont Clair - The Right Time(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 05:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF29CFDCCECD6FC6AF578972EC6D7E9F9E728C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398702   (735220) от 27.07.2020
+
+VA - Beatport Chillout: Electro Sound Pack #133 (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735220.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Man Drake - Trinity Soft
+002. Sealovers - Wild Huntress
+003. Mirko Firzlaff - Nostalgia (Original Mix)
+004. Albedo 067 - Sigh(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302B430447DCDCC2D8403DAE8713908EB6F1725D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528215   (734941) от 01.02.2022
+
+Группа Парад - Раз, Два, Три! (1989) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкий альбом забытой группы из 80-90хх. Самиздат.01. Девчонка, слёзы не лей - 4:30
+02. Ночь без правил - 2:59
+03. Паренёк - 3:52
+04. Потанцуй-ка со мной - 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7F0D2F30C5E657C0195C8D8864F1719F525864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398834   (734651) от 28.07.2020
+
+VA - 100 Greatest Driving Songs (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Go Your Own Way (2018 Remaster) (03:39)
+02. Chris Rea - The Road to Hell, Pt. II (04:32)
+03. Jackson Browne - Running on Empty (04:58)
+04. Eagles - Take It Easy (2013 Remaster) (03:31)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 06:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECDD03AE28BBB6A2CA8CD1BF3B7C3F49A9F3BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398853   (734557) от 28.07.2020
+
+VA - 100 Greatest Songs Of The 90s (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734557.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nirvana - Smells Like Teen Spirit [5:02]
+002. U2 - One [4:35]
+003. Backstreet Boys - I Want It That Way [3:33]
+004. Whitney Houston - I Will Always Love You [4:32](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E69A9A814C1B1D3C91D673A45F6CD24EC3C789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528575   (734449) от 02.02.2022
+
+VA - World Music (Unified Land) (2022) 2CD [MP3|320 Kbps] <World Music>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pietra Montecorvino - Qualcosa arrivera (02:50)
+02. Sounds of Isha - Bhairavi Shatakam (04:16)
+03. Ludovico Einaudi - Taranta (04:23)
+04. Очелье Сороки - Песнь (05:28)(   Читать дальше...   )Жанр: World MusicПродолжительность: 07:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68DB0484606F3181463C78F286BF7861B2FAD19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528538   (734414) от 02.02.2022
+
+VA - Tik Tok Треки выстрелили зимой 2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. James Arthur - Train Wreck (3:28)
+002. Ritt Momney - Put Your Records On (3:30)
+003. The Kid LAROI - WITHOUT YOU (2:41)
+004. Justin Wellington, Small Jam - Iko Iko (My Bestie) (3:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE420A5A97D0A97D6002980E966A26385C25D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398918   (734337) от 29.07.2020
+
+VA - Beatport Psy Trance: Electro Sound Pack #139 (2020) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hipnotic - Paranormal Fields
+002. Hyperceptiohm - Magic Mushuroms
+003. Burn In Noise - Shamanic
+004. Materia And Escape - On Sequence(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504A65767122DF935D13C8B74F8FACBA1951FD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398923   (734305) от 29.07.2020
 
 VA - Beatport Future House: Sound Pack #138 (2020) [MP3|320 Kbps] <Future House>
@@ -453,296 +743,6 @@ VA - Music News vol.164 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7C39353DFF9F30D88B1F5D9F27E5A414D1E4FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399561   (732913) от 01.08.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 31.07.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NRD1 - All Good Things (Come To An End) 3:27
-02. Pascal Letoublon - Friendships 4:02
-03. Imanbek & Martin Jensen - I'm Just Feelin' (Du Du Du) 2:45
-04. The Weeknd - Blinding Lights 3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EEE2D344F7075F14FC86D31D16D28F8659C725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399521   (732907) от 01.08.2020
-
-The Dead Daisies - From Yesterday To Tomorrow (2020) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mainline
-02. Angel in Your Eyes
-03. Your Karma
-04. Long Way to Go(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2379D9B5A44BFEE10778D71D6361F8E4FFFE6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399590   (732836) от 01.08.2020
-
-VA - Glam, Heavy Metal Ballads (2020) 5CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helloween - Forever and One (Neverland)
-02. Bon Jovi - Runaway
-03. Twisted Sister - We’re Not Gonna Take It
-04. Vision Divine - The Sin Is You(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 15:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3666035BE8260D7C09BF03470F276B4A5987750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529411   (732685) от 06.02.2022
-
-VA - Pop Party 2 (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732685.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Spiller, Sophie Ellis-Bextor, Riva Starr - Groovejet (If This Ain't Love) (7:31)
-002. EKAE - See Me Fall (2:05)
-003. Lucas Estrada, Wahlstedt, AMAYA - Naked (3:17)
-004. PRE55URE - The Way It Is (3:25)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F3F2F7B4D73445360B0BE27E9A9411A66F16AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529216   (732655) от 06.02.2022
-
-Sven Zetterberg - Compilation (2022) [MP3|320 Kbps] <Blues, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Sweetest Touch
-02. The Handwriting Is on the Wall
-03. All For Business
-04. More Love(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 02:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8799A89F802F5E11C087436856771DFC2036601A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529740   (732531) от 07.02.2022
-
-VA - Pop Drive 2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732531.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kygo, X Ambassadors - Undeniable (3:00)
-002. Alesso, Katy Perry - When I’m Gone (with Katy Perry) (2:41)
-003. Taylor Swift - Wildest Dreams (3:38)
-004. The Kid LAROI, Miley Cyrus - WITHOUT YOU (2:41)(   Читать дальше...   )Жанр: PopПродолжительность: 05:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCE532FCB12464B63F2360211D09E367A49CBBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529609   (732518) от 07.02.2022
-
-Blue Tribe - Walks With Indian (compilation) (2022) [MP3|320 Kbps] <Native American, New Age, World>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Sun (05:14)
- 02. Earth Spirit (05:04)
- 03. Sacred Spirits (04:45)
- 04. Daybreak (04:21)(   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 02:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5394B4D91D0D2E551C9B1DEDC36A3A1A986B6EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021334   (732293) от 29.05.2016
-
-VA - Стёбный Кавер! (Забавные Кавер-Версии и Пародии Популярных Песен) Часть 1 [Compiled by Zebyte] (2016) [MP3|256-320 кб/с] <Covers, Parody>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Mr.Ladies & The Hitkids - No Limit (03:34)
-02 Mainzelmannchen - Bin Ein Mainzelmann (03:32)
-03 Duo - Da Da Da (Ich Lieb Dich Nicht) (Extended Mix) (05:16)
-04 General Base - Apache (Extended Version) (04:43)(   Читать дальше...   )Жанр: Covers, ParodyПродолжительность: 01:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923344ABB0CC3849239F7B38C1F625922A696DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125665   (732214) от 21.04.2017
-
-VA - Весенняя танцевальная вечеринка выпуск № 12 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732214.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Регина Тодоренко - Не Обижу 2:58
-002. Milen - Флюиды 4:02
-003. Dj Mrid & Борис Агаджанян - Самая 4:02
-004. Анжелика Варум - Женщина Шла 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F76677ED5E13F65761594CA998A94630DE837AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283883   (732151) от 18.02.2019
-
-VA - German Top 50 Party Schlager Charts 18.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Maite Kelly - Die Liebe Siegt Sowieso(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170A00C8B57F67473920BD2CB5C7B4842B078FED
 ```
 
 https://mybot314.ru/tekegram_catalog/

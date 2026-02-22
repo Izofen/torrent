@@ -1,3 +1,32 @@
+###  Публикация: 1228899   (632191) от 03.06.2018
+
+Enrico Pieranunzi - Monsieur Claude A Travel with Claude Debussy (2018) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bluemantique [5:32]
+02. Passepied nouveau [4:53]
+03. L'autre ballade [5:38]
+04. Romance [5:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2309A16B5CDBCB5E6432F2568F98DFCA4DEE4F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543228   (631834) от 10.04.2022
 
 Louis Armstrong - Classics & Rarities: Milestones Of A Jazz Legend (1927 - 1961) 10CD, 2018, The Intense Media [FLAC|Lossless|tracks + .cue] <Dixieland, Swing, Vocal Jazz>
@@ -732,35 +761,6 @@ VA - The Real... Bossa Nova (The Ultimate Bossa Nova Collection) (2014) 3CD [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2D79E1BBEFBE81A01787A58EC0B54EC6E9D41AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 802625   (626611) от 06.07.2014
-
-Diana Krall - The Very Best Of Diana Krall (2007), Limited Canadian Edition [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'S Wonderful 4:26
-02. Peel Me A Grape 5:49
-03. Pick Yourself Up 3:01
-04. Frim Fram Sauce 5:00(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059C094309B73986BA7807BF173001295C6E7834
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,38 +1,3 @@
-###  Публикация: 485869   (89767) от 21.04.2012
-
-V.A. - The Mood Mosaic (1999) Vol.8 [FLAC|Lossless]<Easy Listening, Jazz-Funk,   Free Funk, Funk, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Connell dantzler - Bo gha :: 02:29
-02. Little ed - Petite soul :: 02:01
-03. Kenneth wells - Contagious :: 02:30
-04. Tony newman - Soulthing :: 02:26
-05. Elaine delmar - Sneaking up to you :: 02:13
-06. Mohawks - Studio 69 :: 01:47
-07. Ian langley - Chicano chaser :: 03:19
-08. Janko nilovic - Chorus for leslie :: 02:04
-09. The shifters - Ghost :: 02:02
-10. Dave grusin - Gasoline alley :: 02:58(   Читать дальше...   )1999Жанр: Easy Listening, Jazz-Funk, Free Funk, Funk, Latin JazzФормат: CD, CompilationПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485686   (89632) от 20.04.2012
 
 Renaud Garcia-Fons - Solo: The Marcevol Concer (2012) [FLAC|Lossless]<Contemporary Jazz>
@@ -328,36 +293,6 @@ The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Loss
 08..  Down to the Bone -  Gotta Get Back To You  (5:11)
 09..  The Crusaders -  Spiral  (6:10)
 10..  Down to the Bone -  Brooklyn Heights  (7:13)(   Читать дальше...   )2012Жанр: Jazz, FusionПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481890   (87952) от 12.04.2012
-
-Алексей Козлов и ансамбль "Арсенал" - Reconciliation/Примирение (2011) [APE|Lossless]<Jazz, Fusion, Bebop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Year / Ещё один год(3:10)
-02. Lonely Dandy / Одинокий денди(6:07)
-03. Third Wind / Третье дыхание(8:52)
-04. Miles Blues / Майлз-блюз(6:34)
-05. Brothers Reconciliation / Примирение братьев(9:05)(   Читать дальше...   )Жанр: Jazz, Fusion, BebopПродолжительность: 01:13:12
 
 ## Скачать торент
 ```bash
@@ -862,6 +797,76 @@ ACT 1
 7. Moon Glow (Eddie De Lange / Will Hudson)
 8. No Love, No Nothin’ (Mack Gordon / Harry Warren)
 9. Amapola (Albert Gamse / James Lacalle)(   Читать дальше...   )2005Жанр: Jazz, SwingПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472507   (84037) от 24.03.2012
+
+Charlie Parker - Charlie Parker for Lovers (2006) [FLAC|Lossless]<Jazz, Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Easy to Love [03:29]
+02. Loverman [03:23]
+03. I Didn't Know what Time It Was [03:12]
+04. I'm in the Mood for Love [02:51]
+05. Laura [02:58]
+06. Un Poquito De Tu Amor [02:41]
+07. Everything Happens to Me [03:15]
+08. I Love Paris (Take 3) [05:07]
+09. Summertime [02:46]
+10. Autumn in New York [03:28](   Читать дальше...   )2006Жанр: Jazz, Bop, Big BandФормат: CD, CompilationПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472360   (84029) от 24.03.2012
+
+Marcel Loeffler - Source Manouche (2006) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84029.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Swing Suspens
+2. Ma Référence
+3. Fiso Place
+4. Douce Ambiance
+5. Them There Eyes
+6. All the Things You Are
+7. Passion
+8. Pont de Venise
+9. Ruby
+10. Joshua Fit the Battle of Jericho(   Читать дальше...   )2006Жанр: JazzПродолжительность: 00:58:00
 
 ## Скачать торент
 ```bash

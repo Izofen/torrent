@@ -1,3 +1,32 @@
+###  Публикация: 1310042   (547844) от 23.06.2019
+
+Sun Kil Moon ‎ - I Also Want To Die In New Orleans (2019) 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coyote (12:31)
+02. Day in America (15:06)
+03. L-48 (04:51)
+04. Cows (09:58)(   Читать дальше...   )Жанр: Indie Rock, Folk RockПродолжительность: 01:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBE75B6679AF06AF5D258EA118DDB877AB340F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047957   (547352) от 01.09.2016
 
 Casey Barnes - Live As One (2016) [MP3|320 Kbps] <Country Rock, Pop Rock, Blues>
@@ -731,35 +760,6 @@ Ocean Waves For Sleep - Collection Of Ocean Sounds (2016) [MP3|320 Kbps] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52E02D10C559A79FE226B39A7CE90625CE503B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925471   (541322) от 06.08.2015
-
-Kaan Luum - Potala Mousse (2015) [MP3|320 кб/с]<New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Space
-02. Feathers
-03. Silver Lake
-04. Letter from Kaan Luum(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80738A44B01C470FDEBDCDE99B75C8E6C9717639
 ```
 
 https://mybot314.ru/tekegram_catalog/

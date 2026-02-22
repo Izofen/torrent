@@ -1,3 +1,61 @@
+###  Публикация: 958589   (324036) от 21.11.2015
+
+Claudia Franco - Soul Dance (2015) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night And Day
+02. The Man I Love
+03. Day In Day Out
+04. The Boy Next Door(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:553DB4BE98E56A77179633DF8960FB9A5C519E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958569   (324030) от 21.11.2015
+
+Claudia Koval - With Heart and Soul (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body and Soul
+02. Moody's Mood / I'm in the Mood for Love
+03. Ain't Misbehavin
+04. Can't Help Falling in Love(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D247EA915EC180A5068F984990A0A615CA17947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958583   (324029) от 21.11.2015
 
 Nina Bradlin - Stardust (2015) [FLAC|image+.cue]<Vocal Jazz>
@@ -686,64 +744,6 @@ Nora Jean Wallace - BluesWoman (2020) [FLAC|Lossless|WEB-DL|tracks] <Chicago Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C6A06BB8E5E7A224D43EA47B4E7E21DB0012686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181792   (322116) от 08.11.2017
-
-Rene Thomas & Bobby Jaspar - Thomas & Jaspar Quintet (1961) 2006, BMG [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oleo  [05:05]
-02. Theme For Freddie [04:17]
-03. Half Nelson [07:10]
-04. But Not For Me [06:06](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E767E2117243072B5C3878AAF3EE0E65D88C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420963   (322110) от 03.11.2020
-
-VA - Late Night Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julie London - Sway (Remastered) (02:35)
-02. Louis Armstrong - Moon River (02:56)
-03. Diana Krall - The Look Of Love (04:42)
-04. Carla Bruni - Stand By Your Man (02:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B6F8416159BB885CC5304CEE1EAD5AA98C28E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

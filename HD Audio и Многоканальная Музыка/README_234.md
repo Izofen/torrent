@@ -1,3 +1,179 @@
+###  Публикация: 1763569   (35413) от 02.12.2024
+
+CYN - Valley Girl (2024) Extended [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Eurodance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Losing Sleep [00:02:38]
+02. I Don't Care [00:03:26]
+03. Lemons [00:02:52]
+04. The Smiths [00:02:56](   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62314942B3E1DAE3B4E7D8573FD43761CEE72D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763547   (35408) от 02.12.2024
+
+Il Volo - Ad Astra (2024) International Edition, 2024, Masterworks [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Operatic pop, Classical Crossover>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Per Aspera...(intro) [00:01:29]
+02. Chiaro di luna [00:03:24]
+03. Capolavoro [00:03:20]
+04. Frammenti di universo [00:03:53](   Читать дальше...   )Жанр: Operatic pop, Classical CrossoverПродолжительность: 00:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99437D027E8F5CCA6979FB48D0BF188E59D034C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763644   (35317) от 03.12.2024
+
+Little Glee Monster - Break Out of Your Bubble (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <J-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Break out of your bubble (00:03:56)
+02.PLANET (00:03:34)
+03.Memories (00:04:17)
+04.Jupiter -2024ver.- (00:05:01)(   Читать дальше...   )Жанр: J-PopПродолжительность: 00:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70891E1AFDDA5842B91F47A85045E6E19F211E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525950   (35264) от 04.12.2024
+
+Clannad - Studio Albums (15 releases) (1973-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Traditional Irish folk, Celtic, new-age>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clannad (Кла́ннад) — ирландская музыкальная группа.
+Музыку Clannad можно охарактеризовать как синтез кельтского фолка, рока, нью-эйдж и джаза. Поют на гэльском (ирландском) и английском языках.
+В состав группы входят Máire Brennan, её родные братья Ciarán и Pól Brennan, и двоюродные дяди Noel и Pádraig Duggan. Все они родом из городка Гвидор, (   Читать дальше...   )1973 — Clannad (The Pretty Maid)
+1975 — Clannad 2
+1976 — Dúlamán
+1980 — Crann ÚllЖанр: Traditional Irish folk, Celtic, new-ageПродолжительность: 12:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B227BB4338E6CF9319159AECEF5262600484B444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763999   (35216) от 04.12.2024
+
+Denigrate - To the Goddess Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom / Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystal Rest [00:06:26]
+02. The Ethics of Loss [00:06:49]
+03. Under Ether [00:03:25]
+04. The Apparition of One [00:07:14](   Читать дальше...   )Жанр: Doom / Gothic MetalПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2797D6526BB1A711EF333A751416772149E06713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764163   (35134) от 05.12.2024
+
+Duran Duran - Evil Woman (2024) The Remixes, 2024, BMG [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EVIL WOMAN [00:03:50]
+02. EVIL WOMAN (Medusa Mix Daytime Drama Edit) [00:03:29]
+03. EVIL WOMAN (Medusa Mix Night Version) [00:05:27]
+04. EVIL WOMAN (Bruno Martini Remix) [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F41842588412A756276333F5609A25DF2061B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764088   (35125) от 05.12.2024
 
 VA - Golden Hitss  III. Классика Зарубежной Эстрады (2002) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
@@ -571,177 +747,6 @@ Love Music Zone, Marco Rinaldo, Sensual Lounge Music Universe, Sexual Piano Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36CEDF8211C4A5CE45628A0F51AF401CCD5D5CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765317   (34399) от 12.12.2024
-
-The James Oliver Band - Frantic (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' Your Life Away (3:51)
-02. Do You Really Do (3:18)
-03. Me - A Criminal (3:26)
-04. JOB Done (3:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:295E2F36BD8C9941D2FFE1AB0958423763AFCB29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765319   (34396) от 12.12.2024
-
-Tony D - Electric Delta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There’s A Chance (3:27)
-02. New Attention (3:44)
-03. Can't Be Satisfied (4:08)
-04. I Wanna Shout (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FBB121BB6FB58C599B156ECF8085E23CDD5368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765316   (34394) от 12.12.2024
-
-The Black Sorrows - The Way We Do Business (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's What I'd Give (3:58)
-02. Shelley (3:34)
-03. The Way We Do Business (3:02)
-04. Maybe the Sun Won't Shine (3:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00304CB3C9660948CD4D7A8F2653E64138C36C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765320   (34393) от 12.12.2024
-
-Toral Shah - Uncovered (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowers (3:29)
-02. Daddy Lessons (4:22)
-03. Cry Me a River (2:41)
-04. Give Me One Reason (4:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC018050704DEEB9AA1FCADE495462F2A6B46A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659020   (34121) от 15.12.2024
-
-Laibach - 1 Albums, 5 Singles (2023-2024) [FLAC 16, 24/44.1, 48, 96|Lossless|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Laibach - 2023 - Amerika (Single)
-Laibach - 2023 - O, Triglav, moj dom (Single)
-Laibach - 2024 - Opus Dei Revisited(   Читать дальше...   )Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 7CD, 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EFF4FF63C1D089819A9ABB5AC85A93C52585FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765912   (34061) от 15.12.2024
-
-Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Mysteries (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, House, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Downtempo, House, AmbientФормат: FLAC 24/44.1Продолжительность: 02:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382CDD720B4401734B1A94F3E4582BC764AB39DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

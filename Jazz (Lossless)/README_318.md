@@ -1,32 +1,3 @@
-###  Публикация: 1272649   (141550) от 29.12.2018
-
-Claude Hopkins - 1937 - 1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday [3:12]
-02. Swingin' Down The Lane [2:57]
-03. Honey [3:10]
-04. June Night [2:36](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21695DA30C5E778F91E739F17603E1420269AFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272810   (141544) от 29.12.2018
 
 Frank Wright - Unity (1974) 2006, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -771,6 +742,35 @@ Harry Allen & Mike Renzi - Rhode Island Is Famous For You (2019) GAC Records [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:220447764E7DA552297801446BF1E0C6E6832340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436031   (139838) от 30.12.2020
+
+Dizzy Gillespie - Concert of the Century: A Tribute to Charlie Parker (1980) 2016, Justin Time [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue 'n' Boogie (10:59)
+02. If I Should Lose You (5:56)
+03. Darben the Redd Foxx (5:48)
+04. Time on My Hands (8:16)(   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC544A491FD37D6D28C54563F15751030463BCDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

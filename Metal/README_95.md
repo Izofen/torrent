@@ -1,3 +1,32 @@
+###  Публикация: 1424131   (296029) от 15.11.2020
+
+Sombre Holiday - The Failed Sun (2020) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Second Son (04:09)
+ 02. Man of the Earth (04:30)
+ 03. Masterpiece (07:58)
+ 04. New Darkness (06:21)(   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F515D885C7F9734CF51FF0D94C0C2709B9AAA65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079453   (294277) от 04.12.2016
 
 Naberus - The Lost Reveries (2016) [MP3|320 Kbps] <Melodic Death, Thrash, Groove Metal>
@@ -716,35 +745,6 @@ Blind Guardian Twilight Orchestra - Legacy Of The Dark Lands (2019) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:682393FDF2B8E307793720C2BFD02A6837080453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264870   (277712) от 25.11.2018
-
-Virgin Steele - The Book of Burning (2018) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Conjurtion of the Watcher 4:24
-02.Don't Say Goodbye (Tonight) 4:43
-03.Rain of Fire 6:27
-04.Annihilation 1:05(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792E3925DEF17598CB193E6EA7435192DAD993C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

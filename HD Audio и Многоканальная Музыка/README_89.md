@@ -1,3 +1,177 @@
+###  Публикация: 1694918   (120617) от 27.01.2024
+
+Louis Mezzasoma - Good or bad time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funny boy (2:13)
+02. That rage inside (2:26)
+03. They're sick (4:02)
+04. Decent man (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495CE40EC59501E29D44946D850A7B4F8D03D883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694916   (120614) от 27.01.2024
+
+Dust & Bones - Mission Back to the Forbidden Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mission Start (0:32)
+02. UR R´N`R (2:56)
+03. Move (3:54)
+04. Remedy (2:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C728E7B62E8515B88780D47D9ACC121F957832E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694713   (120611) от 27.01.2024
+
+Sleater-Kinney - Little Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell [00:03:14]
+02. Needlessly Wild [00:02:51]
+03. Say It Like You Mean It [00:03:44]
+04. Hunt You Down [00:03:32](   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76E7DFFA9DF28707E84DDCE6AA0E3B67A6D899B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694716   (120610) от 27.01.2024
+
+Emerald Table - Book of illusion's fragments (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic, Doom, Alternative-Metal, Male-Female-Vocals>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The table [00:02:07]
+02 - Elements [00:02:20]
+03 - Blackwood [00:04:18]
+04 - Lost memories of life [00:04:52](   Читать дальше...   )Жанр: Gothic, Doom, Alternative-Metal, Male-Female-VocalsПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7F55300749D043FCE75F921D03F19A43AD0633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694690   (120608) от 27.01.2024
+
+Thunder - Live at Islington Academy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Loser (00:07:32)
+02 - River of Pain (00:03:53)
+03 - The Devil Made Me Do It (00:05:21)
+04 - Low Life in High Places (00:05:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043EFE4F8560474257AB0ECEB78397C5A56A5AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694907   (120607) от 27.01.2024
+
+Bjorn (Bjørn)  Berge - Introducing SteelFinger Slim (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Said (3:51)
+02. Get it On (3:24)
+03. Your Man (3:53)
+04. Devil Calling (3:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65134935EE4494FDC58A7E970DEB81D7A35A51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695014   (120604) от 27.01.2024
 
 Nevermore (& Sanctuary; Warrel Dane) - Studio Albums (12 releases) (1995-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Progressive Metal>
@@ -571,180 +745,6 @@ Qow Trio - The Hold Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63F39EBDCF3F6BE2237AF6B7844464888306D575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695425   (120248) от 29.01.2024
-
-Scheen Jazzorkester, Cortex & Thomas Johansson - Frameworks (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoo-Hah (12:06)
-02. Weaving (4:46)
-03. Strings (11:37)
-04. Inklings (9:32)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44599DEA987940069B49E810BAAA5886A57C891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695412   (120245) от 29.01.2024
-
-Felix Tellier Pouliot - Hometown Zero (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hometown Zero (4:15)
-02. World (5:05)
-03. 7 O'Clock (6:29)
-04. Upsy Daisy (6:14)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE838EFBCA08057D27DD72C2C18591B14FBDD12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695416   (120243) от 29.01.2024
-
-Hiruy Tirfe - 10,000 Hours (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 10,000 Hours (THE OPENER) (2:10)
-02. A CRY FOR HELP (2:22)
-03. TRIAL (9:46)
-04. INCENTIVE (9:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11A9886A91A667210D71E7126F79256C27F0641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695859   (120133) от 30.01.2024
-
-Reign of Fury - Studio Albums (4 releases) (2011-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reign of Fury - мелодик-трэш-метал группа из Великобритании.2011 - Psycho Intentions
-2012 - World Detonation
-2015 - Death Be Thy Shepherd
-2019 - Exorcise RealityЖанр: Thrash MetalПродолжительность: 02:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8934EE90D1F6E22BD222517F5E5D8FF3AE53A89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695709   (120097) от 30.01.2024
-
-Gianluca De Palo - My Kind Of Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Long Years (6:56)
-02. I'm Tore Down (3:57)
-03. Bad Boy (4:45)
-04. Got My Mojo Working (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22D00CC2DD7CB8D58F8F1AB2BD6B1023AF65F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695706   (120064) от 30.01.2024
-
-Anbaric - Generator (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Generator (3:29)
-02. Mile After Mile (3:51)
-03. The Changing Tides (4:07)
-04. The Alarmist (3:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365E9FE985ED5DA41C849792A056E3B28C84C703
 ```
 
 https://mybot314.ru/tekegram_catalog/

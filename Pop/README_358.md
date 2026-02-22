@@ -1,3 +1,90 @@
+###  Публикация: 1756287   (39776) от 20.10.2024
+
+VA - Best Of 93 (1993) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freddie Mercury - Living On My Own
+02. Paul McCartney - Hope Of Deliverance
+03. DJ Bobo - Somebody Dance With Me
+04. Charles & Eddie - Would I Lie To You(   Читать дальше...   )Жанр: Electronic, Rock, Reggae, PopПродолжительность: 02:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD1C5DBDE9841468B8881D31DC9A5097DDB40A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756298   (39770) от 20.10.2024
+
+VA - Super Hits 80's Volume 2 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chilly - We Are The Popkings
+02. Taco - Puttin' On The Ritz
+03. Toto Cutugno - L'Italiano
+04. Fine Young Cannibals - She Drives Me Crazy(   Читать дальше...   )Жанр: Electronic, Pop, ItalodanceПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CB5FCDBFAD03FAA6765E0368ACC338A0AA5A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755952   (39750) от 20.10.2024
+
+Barbra Streisand - The Broadway Album (1985) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Putting It Together    [0:04:21.37]
+02. If I Loved You    [0:02:38.38]
+03. Something’s Coming    [0:02:55.10]
+04. Not While I’m Around    [0:03:29.40](   Читать дальше...   )Жанр: Pop, Ballad, VocalПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3CA8C0A971144E69CDBFCBECA784AFDDF05143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 222664   (39726) от 21.10.2024
 
 Modern Talking & Blue System - Das Nummer 1. Album! (2010) [MP3|320 kbps]<Pop|Eurodisco>
@@ -656,93 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:870337EA48BDCA853A9F9D2EF63E6908AC8C0077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759034   (38129) от 06.11.2024
-
-VA - best music all the time (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Ha - Take On Me (3:48)
-02. Peter Schilling - Major Tom (Single Version) (3:59)
-03. Roxette - The Look (3:57)
-04. THE GOO GOO DOLLS - Iris (4:49)(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5A28FD10B3C1AF2AB8A05A6F1DE4C05A60F96D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759380   (37939) от 08.11.2024
-
-INSTASAMKA & Ленинград - Бумеры и зумеры (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37939.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Хорошо
-2. За деньги нет
-3. Имба
-4. Ай лав ю(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1409F5EB44EA89BBEE387D9D4BC6B78D3FE5090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759378   (37907) от 08.11.2024
-
-INSTASAMKA & Ленинград - Бумеры и зумеры (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37907.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Хорошо
-2. За деньги нет
-3. Имба
-4. Ай лав ю(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396D831DDD219DCE1F6895E9FCC5CB60F5A2001F
 ```
 
 https://mybot314.ru/tekegram_catalog/

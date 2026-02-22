@@ -1,3 +1,119 @@
+###  Публикация: 1839710   (1046838) от 30.11.2025
+
+VA - 00s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gorillaz - Feel Good Inc (3:42)
+02. Red Hot Chili Peppers - Snow (Hey Oh) (5:34)
+03. Kylie Minogue - Can’t Get You out of My Head (3:51)
+04. Coldplay - Yellow (4:26)(   Читать дальше...   )Жанр: PopПродолжительность: 05:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2549AF7AE834132595EE5751414823C00CDB6A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839404   (1046633) от 29.11.2025
+
+Ed Sheeran - Play (2025) Deluxe, 2025, Atlantic Records UK [FLAC 24/44.1, FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening [00:04:00]
+02. Sapphire [00:02:59]
+03. Azizam [00:02:42]
+04. Old Phone [00:03:41](   Читать дальше...   )Жанр: PopПродолжительность: 01:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD306F6A429944F3D81BFB6BFCBA7B116F16B58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839497   (1046632) от 29.11.2025
+
+Madonna - Bedtime Stories – The Untold Chapter (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Survival (Quiet Storm Demo Remix)
+02 - Secret (Allstar New Single Mix)
+03 - Right On Time (Original Demo Edit)
+04 - Don't Stop (Original Demo Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093FB05551CF8E5066A01C74D6BFDABE55DAF903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839545   (1046624) от 01.12.2025
+
+Baccara - Evolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vamos al Cielo (3:15)
+02. Don’t Let This Feeling Go Away (2:54)
+03. Baila Baila (2:33)
+04. My Love in China (3:39)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9CF96BF26BBD46ED7B902AB23B1CA16C42CEC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839450   (1046553) от 28.11.2025
 
 Thomas Anders - … Sings Modern Talking: Magic the Long Versions (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ Shania Twain - Not Just A Girl (The Highlights) (2022) [FLAC|96/24|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A83AB2737A4EDDC9B79E81A08FB8BDDFD669FDE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603295   (1045682) от 10.01.2023
-
-Billy Joel - Streetlife Serenade (1974) Reissue, Remastered, 2015, Audio Fidelity [OGG Vorbis|500 Kbps] <Rock, Folk Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streetlife Serenader
-02. Los Angelenos
-03. The Great Suburban Showdown
-04. Root Beer Rag(   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50EE7278BF9E753F9DD32E57547FDA90098C73E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603346   (1045635) от 10.01.2023
-
-DJ Bobo - Instrumentals (2020) [MP3|320 Kbps] <Eurodance, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1000 Dreams (Instrumental) (03:29)
-02. 1000 Miles (Instrumental) (03:46)
-03. A Good Heart (Instrumental) (04:44)
-04. A Moment to Remember (Instrumental) (03:23)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 17:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85047F74ACF0C710E13A09E67971314D98D3A6C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603822   (1045552) от 11.01.2023
-
-VA - Winter Club Hits 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geo Da Silva feat. DJ Combo - Gimme Sunshine (Extended Mix) (4:55)
-02. Danilo Orsini & Ariel El Leon - Vive Tu Vida (Original Mix) (3:04)
-03. DJ Pasi - Verano Forever (Extended Mix) (3:43)
-04. Bbx feat. Kari B - Self Control (Bakun Remix) (3:17)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 03:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C407763891EFF4385C0909D1515350638019EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604154   (1045485) от 12.01.2023
-
-Альберт Сигалов - Красавчик Беня (1995) [MP3|320 Kbps] <Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хава Нагила
-02. Семь сорок
-03. Бабушка здорова
-04. Бублички(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E97A34DA8185160FD322C62C184B2EBD980B0D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

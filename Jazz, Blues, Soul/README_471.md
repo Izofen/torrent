@@ -1,3 +1,32 @@
+###  Публикация: 1666112   (180333) от 03.10.2023
+
+Jeff Michaels - Late Night & Low Down (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Feels Right (9:08)
+02. Late Night (7:30)
+03. Not This Time (6:40)
+04. I Don't Recall (6:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E016C09AFC759E28F15C212A64D1B2D8E311777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666116   (180324) от 03.10.2023
 
 Wreckless Strangers - Orange Sky Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -710,35 +739,6 @@ J.C. Heard & Bill Perkins Quintet - Live At The Lighthouse (1964) 2018, Fresh So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79D4E5240020A41814761B6E6CC190893D641F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666566   (178901) от 05.10.2023
-
-Zucchero - Blue's (1987) [MP3|320 Kbps] <Blues, Pop>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue's Introduction [00:15]
-02. Con Le Mani [04:43]
-03. Pippo [04:44]
-04. Dune Mosse [05:32](   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93102286572F0EC25FF02E95F76E3AF2AB435CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

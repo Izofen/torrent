@@ -1,3 +1,117 @@
+###  Публикация: 1251467   (418031) от 01.10.2018
+
+Mehdi - When Will I Be Famous (2008) Single, 2 Tracks Kleiner Preis [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Will I Be Famous (Single Edit) (3:20)
+02. When Will I Be Famous (Karaoke Version) (3:16)Жанр: PopПродолжительность: 00:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC7EDF2672183F6F2E55F6F717C13AB8204C450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947573   (417979) от 17.10.2015
+
+VA - Very Best Of Jeans Hits (1994) 2CD [FLAC|tracks + .cue]<Pop, Rock, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Lee Hooker / Boom Boom [0:02:41.70]
+02. Lee Dorsey / Working in the Coalmine [0:02:46.40]
+03. Sam Cooke / Wonderful World [0:02:07.27]
+04. Desmond Dekker / You Can Get It If You Really Want [0:02:43.63](   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 01:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF571EA3BBB464A2B3A35B6A237E98DD55E3B9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251476   (417922) от 01.10.2018
+
+Thomas Anders - Songs Forever (2006) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Songs That Live Forever (3:04)
+02. All Around The World (4:04)
+03. Cry For Help (4:18)
+04. Have I Told You Lately (3:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75756625BB5B61B32FD0077E1479EBBDE0310863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251463   (417848) от 01.10.2018
+
+London Boys - The Twelve Commanments Of Dance (1989) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Requiem (4:20)
+02. Kimbaley (My Ma-Mama Say) (4:18)
+03. Harlem Desire (3:49)
+04. Chinese Radio (3:50)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E156CE0EAF1999DFA3F499A11008B2C8562C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947710   (417816) от 17.10.2015
 
 Pupo - Аллея Звёзд (2005) [FLAC|image+.cue]<Pop, Disco>
@@ -627,119 +741,6 @@ VA - Acoustic Music (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF42B36248D88448365952FCBD90A2593E01F241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 396102   (415438) от 05.10.2011
-
-Леонид Агутин - Коллекция легендарных песен (2011) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 03:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0000A4C6C38C218F02C07D0BC6980CC2F77D7730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251139   (415240) от 02.10.2018
-
-Nile Rodgers & Chic - It’s About Time (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Till The World Falls (5:18)
- 02/10. Boogie All Night (3:30)
- 03/10. Sober (3:08)
- 04/10. Do You Wanna Party (3:22)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C2E355D21B3B2FB532366F6642A58B6BFB9A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 248646   (415191) от 22.10.2010
-
-Arabesque - II, III - Japan (1979, 1980) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_415191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peppermint Jack
-02. In The Heat Of A Disco Night
-03. Rock Me After Midnight
-04. Lucifer's Lover(   Читать дальше...   )Жанр: Disco |Продолжительность: 01:10:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167600   (415077) от 21.09.2017
-
-VA - Retro Futurism - Italo Is Still Alive (2017) [MP3|320 Kbps] <Italo-Disco, Synthwave, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Emotion - Full Control (Original Mix) 06:07
-02. Maxthor - Hunters (Extended Edit) 05:30
-03. Italoconnection - Neon Disco (Also Playable Mono Remix) 07:00
-04. Magic System DJ - Frozen Hearts (Extended Version) 06:22(   Читать дальше...   )Жанр: Italo-Disco, Synthwave, Nu-DiscoПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0B02B88183C62F89D37044D4363C9A44F47BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

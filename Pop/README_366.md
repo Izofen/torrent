@@ -1,3 +1,90 @@
+###  Публикация: 1791600   (21325) от 15.04.2025
+
+Don Amore - I Look in Your Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco, Synth-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Look in Your Eyes (Extended Vocal Modern Mix) [6:31]
+02 - I Look in Your Eyes (Extended Instr Modern Mix) [6:31]
+03 - I Look in Your Eyes (Short Vocal Modern Mix) [4:01]
+04 - I Look in Your Eyes (Extended Vocal Crazy Mix) [7:16](   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6453BB58F4C94DCAA7494A1D984AEBB8E5CE60AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791909   (21259) от 16.04.2025
+
+VA - 20s Soft Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Warren - Ordinary (Wedding Version) (3:06)
+02. Zach Bryan - I Remember Everything (feat. Kacey Musgraves) (3:47)
+03. Teddy Swims - Are You Even Real (feat. Givēon) (2:27)
+04. Benson Boone - Beautiful Things (Acoustic) (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 03:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5E99C7C7BC63725F4B7109C64053ADDCFFC843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791852   (21253) от 16.04.2025
+
+VA - The All Time Greatest Love Songs Of The 60's, 70's, 80's & 90's Volume II (1997) 2 CD [OGG Vorbis|480 Kbps] <Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wet Wet Wet - Love Is All Around
+02. Celine Dion - Because You Loved Me
+03. Cherry - 7 Seconds
+04. Texas - Say What You Want(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 02:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4745D0DA62D946C67F806D59D26BDB46AB41CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792171   (21138) от 17.04.2025
 
 VA - Pop Legends (2000) [OGG Vorbis|480 Kbps] <Pop>
@@ -658,93 +745,6 @@ Britney Spears - Oops!... I Did It Again (2000) 25th Anniversary Edition, 2025, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B26AC0EC9D2E5339C34AFDD292086835E68829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797684   (17970) от 17.05.2025
-
-VA - 50s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Little Anthony & The Imperials - Tears on My Pillow [00:02:19]
-02 - Cliff Richard - Livin' Lovin' Doll (1997 Remaster) [00:02:07]
-03 - Frankie Lymon & The Teenagers - Who Put the Bomp (In the Bomp Bomp Bomp) [00:02:59]
-04 - Ray Charles - What'd I Say, Pt. 1 & 2 [00:05:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3376696C6E4FB2FE74355BD3CC82B16DE2DA5173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797687   (17867) от 18.05.2025
-
-VA - 50s Best Hits (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Little Anthony & The Imperials - Tears on My Pillow [00:02:19]
-02 - Cliff Richard - Livin' Lovin' Doll (1997 Remaster) [00:02:07]
-03 - Frankie Lymon & The Teenagers - Who Put the Bomp (In the Bomp Bomp Bomp) [00:02:59]
-04 - Ray Charles - What'd I Say, Pt. 1 & 2 [00:05:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31979AEA2D822D14450325649FB25CB27588185A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797923   (17796) от 19.05.2025
-
-Денис Майданов - Патриотические песни. часть 2 (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Это мой бой [00:03:59]
-02 - Верность [00:03:51]
-03 - ВДВ [00:03:41]
-04 - Тишина [00:04:33](   Читать дальше...   )Жанр: PopПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1729C56551578C1F3EE1A35469797DC0CAFE9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

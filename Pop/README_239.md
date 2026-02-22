@@ -1,3 +1,90 @@
+###  Публикация: 1260089   (310110) от 08.11.2018
+
+VA - Die Deutschen Disco Charts - Die Hits Des Jahres (2018) 3CD [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310110.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Eloy De Jong - Egal Was Andere Sagen
+02. Ella Endlich - Schwimmen Und Fliegen
+03. Joerg Bausch - Erst Wenn's Im Sommer Schneit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 03:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF55D5D879DE6ED5772E6D12DD0F54CBFF21D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260607   (310108) от 08.11.2018
+
+Илья Гусев - Зимушка (2018) [MP3|320 Kbps] <Pop, Neo-Disco>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зимушка (3:47)
+02. Подари свою любовь (3:40)
+03. После уроков (4:20)
+04. Танцуй (3:12)(   Читать дальше...   )Жанр: Pop, Neo-DiscoПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FD8F336A06CDB0363514A16F09525EE6D5B4BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260591   (310105) от 08.11.2018
+
+Сергей Войтенко - Я буду любить тебя! (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Просто надо любить (3:12)
+02. Я буду любить тебя (4:05)
+03. Остановка (3:24)
+04. Осень не права (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA375B8FDA7E2F9AF0C86C8FAC79F0F1E4FBC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960157   (310079) от 27.11.2015
 
 Братья Грим - Zомби (2015) [MP3|320 кб/с]<Pop, Rock>
@@ -667,93 +754,6 @@ VA - Club House Culture: Indie Dance & Nu Disco Meets Deep House (2016) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7982EB0A7D82B2492F87CE2B588CA10262003BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729372   (306677) от 03.12.2013
-
-Anna German - Tanczace Eurydyki (1966, 2013) [FLAC|Lossless]<Retro, Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда после показа фильма "Анна Герман. Тайна белого ангела" (снятого к 30-летию смерти) поляки кинулись за дисками легендарной певицы, оказалось, что01. Tanczace Eurydyki (4:26)
-02. Wroc do Sorrento (3:30)
-03. Andaluzyjska romanza (3:44)
-04. Bal u Posejdona (3:29)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B87BB6818A8458281F0D3E644B2521E64B047A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077545   (306585) от 28.11.2016
-
-Magazine 60 - Costa Del Sol (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rendez-Vous Sur La Costa Del Sol (Maxi Version)  (4:33)
-02. Don Quichotte (No Estan Aqui) (Maxi Version)  (5:04)
-03. Stay Away, Stay By Me  (3:31)
-04. Dance Melody (Around The World)  (3:14)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EA4FC9DD410D0899DF632C9C8A44F78DA9FEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077783   (306434) от 28.11.2016
-
-Lx24 - Зависимость (2016) [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зависимость (03:34)
-02. Море (03:21)
-03. Мы останемся в городе одни (feat. Мари Краймбрери) (03:32)
-04. Давай Станцуем (03:11)(   Читать дальше...   )Жанр: Pop, R&B, Hip-HopПродолжительность: 00:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F86725F55E9F7880CADFFE7A0D5CAC1F508F54
 ```
 
 https://mybot314.ru/tekegram_catalog/

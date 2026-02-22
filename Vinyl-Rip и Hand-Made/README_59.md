@@ -1,3 +1,176 @@
+###  Публикация: 1824988   (136850) от 16.10.2025
+
+Alien Weaponry - Studio Albums (3 releases) (2018-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alien Weaponry — новозеландская метал-группа из Вайпу, образованная в Окленде в 2010 году.2018 - Tū
+2021 - Tangaroa
+2025 - Te RāЖанр: Groove/Thrash MetalПродолжительность: 02:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEB6617791BB0EDDE730568EE155EF4BFEEA738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825420   (136750) от 17.10.2025
+
+Arcturus - Studio Albums (6 releases) (1996-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Avant-garde Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arcturus — норвежская группа, играющая авангардный метал, созданная в 1987 году.1996 - Aspera Hiems Symfonia
+1997 - La Masquerade infernale
+1999 - Disguised Masters
+2002 - The Sham MirrorsЖанр: Avant-garde Progressive MetalПродолжительность: 05:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40F45A128E4EB1B8FC3F1992EE06F089970B4B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547377   (136740) от 17.10.2025
+
+Sabaton - Studio Albums (12 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sabaton — шведская хэви-пауэр-метал группа, основанная в декабре 1999 года. Основной темой для песен являются войны и отдельные сражения и подвиги. Название группы в переводе с английского означает латный ботинок, часть рыцарских доспехов.2005 - Primo Victoria
+2006 - Attero Dominatus
+2007 - Metalizer
+2008 - The Art Of WarЖанр: Heavy/Power MetalПродолжительность: 11:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03A16672CE4EC97B33F11FC26C041D01801B51A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679568   (135329) от 26.11.2023
+
+Opeth - Heritage (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135329.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Heritage (02:04)
+A2. The Devil's Orchard (06:39)
+A3. I Feel the Dark (06:37)
+B1. Slither (04:03)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49269CE9A95AB7D03D11EEDCA85332FAB051E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679533   (135301) от 26.11.2023
+
+Opeth - Ghost Reveries (2005) Reissue, 2013, 	Roadrunner Records, Cargo Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135301.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Ghost of Perdition (10:28)
+A2. The Baying of the Hounds (10:40)
+B1. Beneath the Mire (07:57)
+B2. Atonement (06:30)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89F8A35A60B642F0F62640D7A456FE28BE0A101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679884   (134951) от 27.11.2023
+
+Michal David + The Paces - I'd Love To Live (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134951.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I'd Love To Live (Chtel Bych Zit Tak, Jak Se Ma)
+A2 You're Special (Jsi Zvlastni)
+A3 You Know What It's All About (Kam Tak Nahle Pospichas?)
+A4 Story Of A Girl I Knew (Lasko Ma, Nerikej Dik)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05263E71FB7BC6D610F935F3E66650053AA3C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680060   (134943) от 27.11.2023
 
 Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge>
@@ -569,176 +742,6 @@ A1 В Ритме «Леткисс»
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30EBB19F725636BF292EB77C7F3EBC60A978D875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824494   (128871) от 15.10.2025
-
-Ihsahn - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Experimental/Extreme Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ihsahn - Вегард Сверре Твейтан — норвежский композитор, гитарист, бас-гитарист, клавишник и вокалист. Более известен как вокалист, гитарист и клавишник группы Emperor2006 - The Adversary
-2008 - Angl
-2010 - After
-2012 - EremitaЖанр: Experimental/Extreme Progressive MetalПродолжительность: 08:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8972B0F12D968E481C81A6523DDE6C68A08DE19A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824485   (128870) от 15.10.2025
-
-Bloodywood - Studio Albums (2 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloodywood - индийская метал-группа из Нью-Дели, образованная в 2016 году. Они начинали как пародийный коллектив, выкладывающий каверы на поп-песни на YouTube, но позже стали писать собственный оригинальный материал. Среди музыкальных источников вдохновения для группы значатся Linkin Park, Rage Against the Machine, System of a Down, Alter Bridge и Limp Bizkit.2022 - Rakshak
-2025 - Nu DelhiЖанр: Folk Metal, Nu MetalПродолжительность: 01:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51661B315415AA1F34CB8BA655550AFAE553FAFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824589   (128807) от 15.10.2025
-
-The Hu - Studio Albums (2 releases) (2020-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128807.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Hu - монгольская фолк-метал группа, образованная в 2016 году в Улан-Баторе. Используя традиционные монгольские музыкальные инструменты, такие как морин хуур, товшуур и горловое пение, группа называет свой музыкальный стиль «хунну-рок».2020 - The Gereg
-2022 - Rumble of ThunderЖанр: Folk MetalПродолжительность: 03:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6553A1F79AA5D7DA718EBF8E489A346E4646314B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577393   (128583) от 14.10.2025
-
-Trivium (& Ibaraki) - Studio Albums (12 releases) (2003-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Thrash/Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trivium — американская метал-группа из Орландо, Флорида, образованная в 1999 году.2003 - Ember To Inferno
-2006 - Ascendancy
-2006 - The Crusade
-2008 - ShogunЖанр: Metalcore, Thrash/Heavy MetalПродолжительность: 14:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D819840B377D25E8AE4BEE79E81291FAF4DDEE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683357   (128547) от 10.12.2023
-
-Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ancient Ceremony — немецкая симфо блэк-метал-группа, образованная в 1991 году. После 2005 года от группы не поступало никаких новостей и, предположительно, на данный момент она распущена.1995 - Cemetary Visions
-1997 - Under Moonlight We Kiss
-1999 - Fallen Angel's Symphony
-2000 - Synagoga DiabolicaЖанр: Symphonic Black MetalПродолжительность: 03:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F6C776EE1B96B68C075E188564D25862C5161E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683242   (128544) от 10.12.2023
-
-Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaos
-02. Dawn Of A Million Souls
-03. Journey On The Waves Of Time
-04. To The Quasar: а) The Taurus Pulsar b) Quasar 3C273(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA58600C7A0A869A21F41F7C0F800DCD50D342F
 ```
 
 https://mybot314.ru/tekegram_catalog/

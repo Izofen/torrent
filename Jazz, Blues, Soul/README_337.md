@@ -1,3 +1,90 @@
+###  Публикация: 1324749   (421501) от 11.09.2019
+
+Pearl Bailey - The Best of Pearl Bailey (1950-e) 2012, Hallmark [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takes Two to Tango [2:43]
+02. That's Good Enough for Me [2:56]
+03. Row, Row, Row [2:12]
+04. Legalize My Name [3:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A4ABD429496D7CC716981A52188E01E58A336D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324748   (421499) от 11.09.2019
+
+Katie Thiroux - Off Beat (2017) Capri Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Off Beat [3:15]
+02. When Lights Are Low [5:24]
+03. Why Did I Choose You? [5:09]
+04. Slow Dance with Me [5:59](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB849933B6446A68958E404702D8D288165D199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324752   (421498) от 11.09.2019
+
+Chet Baker With The Per Husby Trio - The Improviser (1983) 1995, Cadence Jazz Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Margarine [9:37]
+02. Polka Dots and Moonbeams [8:15]
+03. Beatrice [9:04]
+04. Gnid [10:26](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93468F02D5B1526864D07ACD73326136848F135F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324833   (421133) от 11.09.2019
 
 VA - Smooth Sax (2018) Compilation, 2CD [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -670,93 +757,6 @@ Vulfpeck - Thrill of the Arts (2015) [FLAC|Lossless|WEB-DL|tracks] <Funk, Jam Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:502F9E526E55F8F9D9544CD5D13A1FF540C1E347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065511   (419239) от 23.10.2016
-
-Melissa Etheridge - Memphis Rock And Soul (2016) [FLAC|Lossless|tracks + .cue] <Blues Rock, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memphis Train 03:50
-02. Respect Yourself (People Stand Up) 04:25
-03. Who's Making Love 03:51
-04. Hold On, I'm Coming 03:23(   Читать дальше...   )Жанр: Blues Rock, Funk, SoulПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB2D5C45F70459524CBC8D0321D8E6ACC5100C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324954   (419002) от 12.09.2019
-
-Yusef Lateef - Live At Ronnie Scott's (1966) 2017, Gearbox Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Eyes [9:10]
-02. Blues for the Orient [7:33]
-03. Song of Delilah [10:01]
-04. Last Night Blues [5:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686A591521D66AED2C8225782EF72C1B5148D4E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324952   (418994) от 12.09.2019
-
-Catherine Hunter - Dream Maker (2006) ABC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comes Love [2:55]
-02. The Look of Love [5:23]
-03. Save Your Love for Me [5:22]
-04. Moon River [2:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC600971AEE191AAC932C509B1FF7ADE085D606
 ```
 
 https://mybot314.ru/tekegram_catalog/

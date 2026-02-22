@@ -1,3 +1,38 @@
+###  Публикация: 743118   (975596) от 08.01.2014
+
+VA - Alle 40 Goed: Easy Listening (2013) 2CD /EMI/ [FLAC|Lossless]<Easy Listening, Oldies, Vocal Jazz>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Tom Jones - It's Not Unusual
+02. Engelbert Humperdinck - Quando Quando Quando
+03. Al Martino - Spanish Eyes
+04. Bobbie Gentry - Son Of A Preacher Man
+05. Nancy Wilson - Spinning Wheel
+06. Andy Williams - Music To Watch Girls By
+07. Helen Shapiro - Walkin' Back To Happiness
+08. Chris Montez - The More I See You
+09. Eartha Kitt - The Girl From Ipanema(   Читать дальше...   )Жанр: Easy Listening, Oldies, Vocal JazzПродолжительность: 01:50:13 (00:56:19 + 00:53:54)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D5571019C184CF517C8609ABE39524BF3FC0BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357095   (975548) от 02.02.2020
 
 Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (Original Soundtrack + Original Score) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
@@ -797,35 +832,6 @@ Nicholas Britell - The King / Король (Original Score from the Netflix Film
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F3FB6A51FDFC40FF5400ED90827D3863864DD5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357346   (973157) от 04.02.2020
-
-Nicholas Britell - The King / Король (Original Score from the Netflix Film) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973157.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:29| 01. Ballade in C# Minor: Coronation
-|01:16| 02. Estampie - Eastcheap
-|05:12| 03. Song of Hal: Strings in C# Minor
-|02:14| 04. Tetrachord - War and Fate(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A524B2DD25B7210AC4DEE7ADDA5EB647B076CCE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

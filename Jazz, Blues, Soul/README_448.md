@@ -1,3 +1,32 @@
+###  Публикация: 1269089   (223510) от 13.12.2018
+
+Bunny Berigan - 1938 - 1942 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Dark [2:46]
+02. Walkin' The Dog [3:07]
+03. Patty Cake, Patty Cake [3:31]
+04. Jazz Me Blues [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE79954FF30CB325A7B6E97315F6B3000F416A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268807   (223500) от 13.12.2018
 
 Ted Sirota's Rebel Souls - Breeding Resistance (2004) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -734,35 +763,6 @@ Mark Pontin Group - Kaleidoscope (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58A3AC2A17877513FC3E99E97133BBAE2599D4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513606   (222278) от 30.11.2021
-
-Blues Attack - Bringing Down the House (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once and for All (4:04)
-02. In for the Kill (4:04)
-03. I Need Time (3:47)
-04. Long Gone (5:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66168616D0375997FA5F1876F5339C8B9A9717F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

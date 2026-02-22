@@ -1,3 +1,32 @@
+###  Публикация: 1029440   (682601) от 26.06.2016
+
+Art Pepper - Chili Pepper (2001) [FLAC|Lossless|tracks] <Instrumental Jazz, Saxophone Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Count On Rush Street    03:11
+02.  Pooch Mcgooch    02:43
+03.  Brown Gold    02:26
+04.  Holiday Flight    03:11(   Читать дальше...   )Жанр: Instrumental Jazz, Saxophone JazzПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7F96D5C1DBA94415DD68C95F6CC68598269416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535762   (682509) от 08.03.2022
 
 Buddy Rich - Seven Classic Albums (1955 - 1961) 4CD, 2019, Real To Reel [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ Duke Ellington - This Is Jazz (1927 - 1959) 1996, Columbia [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2748E8A4B90A2261E86BD6A00E7950F3088508D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135578   (679511) от 20.05.2017
-
-Duke Ellington - Jazz Profile (1953, 1954, 1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll [03:00]
-02. Star Dust [02:30]
-03. One O'Clock Jump [05:16]
-04. Stormy Weather [03:13](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5441C457FA8921AD172D7D088A531DBF5F39A6AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

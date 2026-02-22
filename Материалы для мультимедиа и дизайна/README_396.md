@@ -1,3 +1,186 @@
+###  Публикация: 1793519   (67482) от 25.04.2025
+
+Паттерны - Behance - Hawaiian Tiki Patterns - 184491561 [PNG, AI, EPS, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные гавайские узоры.
+Материал раздаётся с официальной документацией.Формат: PNG, AI, EPS, PSDРазрешение файлов: 2084 x 2084 - 2085 x 2085
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667427717B1D7A814AFCC4F51564C5C783BB3D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793538   (67481) от 25.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Mix Chunky Glitter Sparkle Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изображения с блёстками для сублимационного дизайна.Формат: PNGРазрешение файлов: 2925 x 1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477217647E59BA79F8AD633996B8A1A093830C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793526   (67463) от 25.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Blooming Flowers Seamless Pattern [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пастельные узоры с распускающимися цветами.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAC4C7428FA31549C3446ABC729A75AAC61C3C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793525   (67460) от 25.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Pastel Holographic Diamond Texture Tumbler Wrap [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обёртка для стаканов с голографической алмазной текстурой в пастельных тонах.Формат: PNGРазрешение файлов: 2790 x 2460
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF3EC2D41C7E71FB2976C77D0F3F5AF8B53D7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793527   (67459) от 25.04.2025
+
+Растровый клипарт - FlyingMonkies - Creative Fabrica - Magenta Golds Vintage [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт в виде винтажных пурпурно-золотых украшений. Присутствует авторская рекламаФормат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C04F58511A17AD8B98A4E722CDF8B19CBE6FF82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793903   (67420) от 27.04.2025
+
+Паттерны - Free PSD Templates - Camouflage Day Patterns [JPG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные паттерны под камуфляж в векторе и растре.Формат: JPG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2084
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B776EA2A2EBDC31A5FBADD9DC7C16BAB83BEF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794171   (67414) от 27.04.2025
+
+Текстуры - Design Stocks - Behance - 10 Rough Plastic Textures - 224509793 [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные шероховатые текстуры.Формат: JPG, PNGРазрешение файлов: 3000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76439569730CDC9C9E0F326843CB8E18B96D220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793906   (67413) от 27.04.2025
 
 Текстуры - Company Folders - Card Stock Paper Textures [JPG]
@@ -486,188 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD4BA55D1A9B419E54969020B88EB474B2C1A252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794294   (67345) от 28.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Santa Claus Christmas Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождественский клипарт с Санта-Клаусом.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F500DB6CAD9A5B103AD089CE3C6DFBA8CAC64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794201   (67344) от 28.04.2025
-
-Растровый клипарт - DesignScape Arts - Creative Fabrica - Mandala Pattern Coloring Book Pages 51 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскраска с рисунком Мандалы. Материал раздаётся с официальной документацией.Формат: PNGРазрешение файлов: 1533 x 2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BAD4E0F0D18530C97C1832EDAEE5E3BD633335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794210   (67340) от 28.04.2025
-
-Паттерны - Free PSD Templates - Space Patterns Set [PNG, AI]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные узоры на космическую тему.Формат: PNG, AIРазрешение файлов: 2817 x 2817
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C690037BE5E1E8F18D2E492C43FE4829E37584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794184   (67337) от 28.04.2025
-
-Паттерны - Free PSD Templates - Wedding Patterns Set Template [JPG, PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор бесплатных свадебных узоров в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2662 x 2662
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9320210F601B48E47C1B0717807E7826289F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794194   (67335) от 28.04.2025
-
-Фоны - Design Stocks - Behance - Opulent Gradient Texture - 222489797 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные градиентные текстурные фоны.Формат: JPGРазрешение файлов: 6400 x 4400
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A0A64E367DD29922C461869F7F1535DA308A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794189   (67329) от 28.04.2025
-
-Паттерны - Free PSD Templates - Valentine’s Day Patterns [PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор бесплатных узоров на День Святого Валентина.Формат: PNG, AI, PSD, EPSРазрешение файлов: 1318 x 1318 - 1319 x 1319
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33ABA3E28FC0BEBCEC72808D13FFA6D4477BABA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794290   (67328) от 28.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Wedding Cosmos Flower Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свадебный цветочный клипарт.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1ACDDA34C2FC37B93BB0EA6F4EC53357DE39CEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

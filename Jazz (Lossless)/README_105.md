@@ -1,3 +1,32 @@
+###  Публикация: 1125657   (767932) от 15.04.2017
+
+Scott Bradlee's Postmodern Jukebox - 33 Resolutions Per Minute (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing, Vintage>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer (feat. Kenton Chen)
+02. Don't Stop Me Now (feat. Melinda Doolittle)
+03. I Will Survive (feat. Sara Niemietz)
+04. Ice Ice Baby (feat. Aubrey Logan)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, VintageПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE60D7C2E33D8F3C9302320B7365128B7DDCE1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125735   (767884) от 15.04.2017
 
 Michael Franks - Collection 1975 - 1987 (2012) Light Mellow [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Funk>
@@ -718,35 +747,6 @@ Freddy Cole - He Was The King (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FFA70E6D7083EDC595C59162B95E4C15FF56714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521215   (766224) от 01.01.2022
-
-Rob Parton's Jazztech Big Band - The Count Is In! (1993) Sea Breeze Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seems Like Old Times [4:05]
-02. The Count Is In! [6:31]
-03. Over the Rainbow [5:23]
-04. Dear Old Stockholm [8:28](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1835A772F54BF7DD9F51FDEDF827DB59B1EAE7E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

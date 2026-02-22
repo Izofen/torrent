@@ -1,3 +1,90 @@
+###  Публикация: 970101   (143570) от 29.12.2015
+
+Иварс (Ивар) Калныньш - Актер И Песня (2003) [APE|Lossless|image+.cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Город Любви
+02	Сказка Любви
+03	Ниточка
+04	Цветочек(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB17ED0289E24179045EAEDB29131BC9D273446C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678647   (143562) от 22.11.2023
+
+VA - Disco Fantasy '79 (1979) 2LP [MP3|320 Kbps] <Funk / Soul, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gala Gypsy Orchestra - The Stranger (3:44)
+02. Fantastic Sounds Orchestra - Macho (A Real, Real, One) (4:00)
+03. Fantastic Sounds Orchestra - Fantasy (4:06)
+04. Hollywood - Don't Treat Me Like Your Sister (3:38)(   Читать дальше...   )Жанр: Funk / Soul, Pop, DiscoПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E90CEB345060B46EB406F29894629B4C77BE27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195152   (143472) от 28.12.2017
+
+VA - Популярные песни 60-х годов (2006) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А годы летят (М.Фрадкин - Е.Долматовский) - Валентина Левко
+02. Тишина (Э.Колмановский - В.Орлов) - Владимир Трошин
+03. Ландыши (О.Фельцман - О.Фадеева) - Гелена Великанова
+04. В нашем городе дождь (Э.Колмановский - Е.Евтушенко) - Лили Гегелия(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC47CE364AAF90922269F1E07F282A8EEA1F559A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348623   (143349) от 28.12.2019
 
 VA - 100 Greatest 00s The Best Songs from the Decade (2019) [MP3|320 Kbps] <Pop>
@@ -660,93 +747,6 @@ Sonny & Cher - The Collection (1990) [FLAC|Lossless|image + .cue] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A4D80BB7480B6979006CB7D5D008B6190ED13BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348948   (141438) от 29.12.2019
-
-VA - 100 Greatest Indie: The Best Guitar Pop Rock (2019) [MP3|320 Kbps] <Indie, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141438.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blur - Parklife
-002. The Smiths - This Charming Man (2011 Remaster)
-003. Liam Gallagher - Wall of Glass
-004. The Futureheads - Hounds of Love(   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 06:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBC89D472D20EA360E72CBD70F09985F70A2475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435698   (141386) от 29.12.2020
-
-VA - Ciao Italia (1997) 3CD Box Set [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriano Celentano - Azzurro
-02. Lucio Battisti - Emozioni
-03. Ricchi E Poveri - M'Innamoro Di Te
-04. Patty Pravo - Pazza Idea(   Читать дальше...   )Жанр: PopПродолжительность: 02:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C9F78C42202CF49B5B357319FC999FD338B430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435699   (141230) от 29.12.2020
-
-VA - Disco Fever CD3 (1998) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Chocolate - You Sexy Thing
-02. Indeep - Last Night A D.J. Saved My Life
-03. Musique - In The Bush
-04. Evelyn Thomas - High Energy(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8A141A7C9C2D1F87573CF5739105134864E952
 ```
 
 https://mybot314.ru/tekegram_catalog/

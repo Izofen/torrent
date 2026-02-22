@@ -1,3 +1,89 @@
+###  Публикация: 1715772   (111494) от 13.04.2024
+
+E-Bomber - Your Tee Is Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Dance-Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E-Bomber – Your Tee Is Hot (radio mix) (3:51)
+02. E-Bomber – Your Tee Is Hot (Party XL remix) (4:07)
+03. E-Bomber – Your Tee Is Hot (Piano Xs remix) (3:36)Жанр: Euro-Dance, Dance-PopПродолжительность: 00:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A81AB05B459A6054DED9393A8CFFCE16FBB60F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716643   (111325) от 16.04.2024
+
+Giuseppe Alicata - Take Me To Your Heart (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Disco House, Electro Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Alicata – Take Me to Your Heart (Radio Version) (3:29)
+02. Giuseppe Alicata – Take Me to Your Heart (80er Radio Edit) (3:28)
+03. Giuseppe Alicata – Take Me to Your Heart (Hitmix) (5:13)
+04. Giuseppe Alicata – Take Me to Your Heart (Instrumental) (3:28)Жанр: Euro-Disco, Disco House, Electro PopПродолжительность: 00:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C4362EBA082DD82261F04CAD899A21979E561E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716549   (111300) от 17.04.2024
+
+Linda Ronstadt - Live in Los Angeles 1980 (2024) [MP3|320 Kbps] <Country Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Can't Let Go (Live) [00:03:28]
+02 - Party Girl (Live) [00:04:14]
+03 - It's So Easy (Live) [00:03:01]
+04 - Willin' (Live) [00:04:04](   Читать дальше...   )Жанр: Country Rock, Soft RockПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC7BF1BCADD6422BB58090B74892CC94BA74551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717563   (111160) от 20.04.2024
 
 Breeze - It's Only A Matter Of Time (1977) LP [MP3|320 Kbps] <Pop, Pop Rock>
@@ -651,93 +737,6 @@ VA - The Best of Italo Disco, Vol. 2 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76D97BA803D3DC9CA87C3C9DB0346F24E16ADC5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723122   (109589) от 14.05.2024
-
-Xana - The Sex Was Good Until It Wasn't (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lip Service
-02. the sex was good!
-03. Better Kind Of Best Friend
-04. Homewrecking Era(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C260DF8B198B2CB5980BF93651359AD37F3A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722702   (109560) от 14.05.2024
-
-Teenage Bad Girl - Separate (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Dance, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Separate [00:03:38]
-02. Provision [00:04:29]
-03. California Wang [00:03:23]
-04. Buried Feeling [00:03:09](   Читать дальше...   )Жанр: Electro, Dance, DiscoПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D413AF51492CDC19D96BB921F125AD22259376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723194   (109538) от 15.05.2024
-
-VA - The Best of Italo Disco, Vol. 3 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patty Johnson - I'm In Love (Europe Version) (6:03)
-02. Jimmy Ross - First True Love Affair (Larry Levan Remix) (7:09)
-03. International Music System - Dancing Therapy (128 Bpm) (6:05)
-04. Tom Hooker - Love Attack (Extended Mix) (5:25)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2938F1514B387EC76DE7352D3FFFFBC41C5B51
 ```
 
 https://mybot314.ru/tekegram_catalog/

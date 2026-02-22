@@ -1,3 +1,32 @@
+###  Публикация: 1240534   (524473) от 12.08.2018
+
+Kool&Klean - Best of so Far (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Away
+02. Sail
+03. I Can Only Imagine
+04. Feel the Light(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EAFE3CAA4FE73EA6AEC86FADBB14889BD271645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559425   (524417) от 25.06.2022
 
 Brian Lynch Big Band - The Omni-American Book Club: My Journey Through Literature In Music (2019) 2CD, Hollistic [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
@@ -717,35 +746,6 @@ Joan Chamorro & Andrea Motis - Feeling Good (2012) [FLAC|tracks+.cue]<Vocal Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91FF9EB044B9AA4A95FE9EA3567F296AC417CBCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313847   (522358) от 11.07.2019
-
-John McLean & Clark Sommers Band - Parts Unknown (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blondie Roundabout [8:23]
-02. Labor Day [5:31]
-03. Time Window [8:43]
-04. Parts Unknown [5:31](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7EDC345AD80657B218956EA9DC41F95D7575E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

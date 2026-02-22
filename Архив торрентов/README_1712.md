@@ -1,3 +1,38 @@
+###  Публикация: 194319   (837034) от 21.04.2010
+
+VA - House Vip (19.04.10) [MP3|320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alchemist Project - Love Is Gone (Mike McPower Remix) (5:56)
+02. Andrea Kerubini - Yo DJ Pump This Party (Stefano Valli Big Pumping Mix) (6:12)
+03. Aria, Mark M., DJ Ortzy - Party In Miami (Jewelz Remix) (5:45)
+04. Bastian van Shield - Rock & Roll (Original Mix) (5:17)
+05. Caudill & Turnipseed - InsideOut (Radio Edit) (3:56)
+06. Cheese People - I Just Can Shoot (Relanium Mix) (6:42)
+07. Dirty Midget - In My Style ( Original Mix ) (5:16)
+08. DJ Jam - Like Goes (Main Mix) (7:04)
+09. DJ Jurij - I'll House You (Original mix) (7:15)
+10. Filgei - Forever (Upbeat Mix) (5:28)(   Читать дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 194521   (837033) от 21.04.2010
 
 VA - House Vip (20.04.10) [MP3|192-320 kbps]<Electro House>
@@ -701,32 +736,6 @@ Layouts for Keynote представляет собой набор из 79 те�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DF9CBBC04655B224DC11537AD7741CC46B6BCFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113627   (836817) от 12.03.2017
-
-Журнал | Таинственные истории №5 (2017) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё самое таинственное и необычное из жизни простых людей, нас с вами. Рассказ от первого лица и немного о таинственном в биографиях знаменитых людей.Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5907DF24108075D4D5B1F862A74121B9DECF8379
 ```
 
 https://mybot314.ru/tekegram_catalog/

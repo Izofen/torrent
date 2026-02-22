@@ -1,3 +1,32 @@
+###  Публикация: 1369560   (901993) от 24.03.2020
+
+VA - Different Shades Of World Song (2020) [MP3|320 Kbps] <Pop Folk, Shancon, World Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901993.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aaron Watson - Red Bandana
+002. Pistol Star - Jennifer Blu
+003. Mandela - Kitem Baw Love
+004. Steevy - Voleur De Cœur(   Читать дальше...   )Жанр: Pop Folk, Shancon, World MusicПродолжительность: 07:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A12A297D4EC7382C3132D93856787581F42CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099888   (901557) от 03.02.2017
 
 VA - Взрывной хит-парад Выпуск № 10 (2017) [MP3|256 Kbps] <Pop>
@@ -721,35 +750,6 @@ VA - Crystal Pop Jam Party (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4277F2162E55C1F91937B0E146862B6E15AB107C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493663   (893813) от 04.09.2021
-
-VA - German Top 100 Single Charts 03.09.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893813.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Kid Laroi & Justin Bieber - Stay (2:21)
-002. Ed Sheeran - Bad Habits (3:51)
-003. Montez - Auf & Ab (2:45)
-004. Shouse - Love Tonight (Edit) (4:01)(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6667AEC2F7B49AA19C9C23FA6E31321FDE64D0B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

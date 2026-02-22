@@ -1,3 +1,176 @@
+###  Публикация: 1790723   (68000) от 10.04.2025
+
+Blue Stalk - Roller Coaster (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roller Coaster (3:55)
+02. Society (4:19)
+03. Cold Sand (5:48)
+04. Like a Broken Tile (5:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692CCBB3803B13CE908AAC011EC7DC795008FD4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790755   (67999) от 10.04.2025
+
+Vincent Ryder - Way Too Quiet (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Generation Lost Love (4:41)
+02. The Feeling (3:28)
+03. Be (4:58)
+04. Children in The Woods (2:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD17A311A3BA59C80CFBA542C23B144AA548D3CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790668   (67998) от 10.04.2025
+
+Elusive (Norway) - Studio Albums (3 releases) (2001-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Goth Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elusive — норвежская музыкальная группа, исполнявшая готик-рок вплоть до своего распада в 2009 году.2001 - Destination Zero
+2005 - The Great Silence
+2007 - Locked doors, drinks and funerals (songs from the desert)Жанр: Goth RockПродолжительность: 03:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C14E7AED4F1296D9B4BE30BAB502C9000340BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791022   (67994) от 11.04.2025
+
+Empire Of The Sun - Ask That God (2024) Remixes, 2025, EMI Recorded[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electropop, Synth-pop, Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67994.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. Changes (DJ Tennis Remix) [00:03:33]
+00. Cherry Blossom (Vintage Culture Remix) [00:04:13]
+00. Music On The Radio (Adam Ten Remix) [00:03:54]
+00. The Feeling You Get (TELYKAST Remix) [00:03:36](   Читать дальше...   )Жанр: Electropop, Synth-pop, Indie PopПродолжительность: 00:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B03E7B98F68C53E9E2B9E110FD142B66CA6EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790906   (67978) от 11.04.2025
+
+Magnolia Park - Vamp (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, Metalcore, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pain [00:03:26]
+02. Shadow Talk [00:02:58]
+03. Cult [00:03:06]
+04. The Screams [00:03:13](   Читать дальше...   )Жанр: Alt. Metal, Metalcore, ElectronicПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D26E4627ACD39DCD0318EAFCC389CF204C3787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790932   (67975) от 11.04.2025
+
+Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music
+02. Noise
+03. Shoemaker
+04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F40D7463340ACB4CC674DB740EFF55E5027CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790902   (67970) от 11.04.2025
 
 Manowar - Hail to England (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
@@ -572,179 +745,6 @@ A4 I Feel The Heat Of The Night • Я Чувствую Жар Ночи(   Чи�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D87B9C631605660766791C2BDC4A3E6F87046EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792210   (67764) от 17.04.2025
-
-Insolate - Full Disclosure (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Your Knees [00:06:15]
-02. Stand Strong [00:05:20]
-03. The Proof [00:05:32]
-04. Survival Symphony [00:06:03](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E888B7AB7CB0867C41A056DA018E449DA2EF7953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792199   (67763) от 17.04.2025
-
-Juno Francis - Melancholia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fading Memories [00:05:00]
-02. Hey You Goodbye Me [00:04:25]
-03. All I Need [00:04:39]
-04. Labyrinth [00:04:34](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F67AF4170E1B67DA134F2B9E02401E68983701F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791357   (67762) от 17.04.2025
-
-Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music
-02. Noise
-03. Shoemaker
-04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A9D05148E448F7B57F62B866C2D20A315C7588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791405   (67759) от 17.04.2025
-
-Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67759.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fighting The World
-A2 Blow Your Speakers
-A3 Carry On
-A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EE362D7BB4F8975E2E84D7050B8705647A7EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791931   (67757) от 17.04.2025
-
-Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Damnation Plan - метал-группа из Эспоо, Финляндия, образована в 2004 году.2013 - The Wakening
-2017 - Reality Illusion
-2023 - The New HorizonЖанр: Progressive/Melodic Groove MetalПродолжительность: 02:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1683E08EECD22897B0BC9C3A35ACCEB85624A8BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791741   (67756) от 17.04.2025
-
-Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67756.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1-Eye For An Eye
-A2-No Hope = No Fear
-A3-Bleed
-A4-Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCF9F0D8C0D076FDFEDBBC808DAA98297268B6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

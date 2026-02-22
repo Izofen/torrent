@@ -1,3 +1,32 @@
+###  Публикация: 1618057   (250038) от 10.03.2023
+
+Van Morrison - Moving On Skiffle (2023) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freight Train (3:27)
+02. Careless Love (5:38)
+03. Sail Away Ladies (3:18)
+04. Streamline Train (4:03)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 01:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFFDBD65A42D02E7500784CC66C0F75314212C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618393   (250017) от 11.03.2023
 
 Matt Andersen - The Big Bottle of Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
@@ -722,35 +751,6 @@ Fourplay - Elixir (1995) 2025, 30th Anniversary Edition, Remastered [FLAC 24/192
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D861EC353E3C870BD4D7EF2A4BF6F51F7467ECA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834371   (249032) от 03.11.2025
-
-The Soul of John Black - Soul Salvation (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Begging You Baby (2:27)
-02.  Georgia Peaches (3:08)
-03.  Take Your Time (3:17)
-04.  Come and Get It (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF0000A22F6A17D459C386B79D19B9BD254ACBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

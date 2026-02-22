@@ -1,3 +1,90 @@
+###  Публикация: 1563254   (505391) от 13.07.2022
+
+Vincent Bloyet - Step on Your Groove (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Step on Your Groove (4:46)
+02. Happy Dream (4:18)
+03. Death Valley (4:06)
+04. Hobo Song (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109C2B42A9500587414D186B4E5F8CDAD5106FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563247   (505388) от 13.07.2022
+
+Sam Collie and The Roustabouts - One Eye Open (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roads (6:23)
+02. Whispers in the Dark (4:30)
+03. Fake Smiles (4:44)
+04. Beware Those Eyes (4:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718BDBB2AB31938E1D07A56341B771E14F451F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933711   (505369) от 02.09.2015
+
+VA - Cocktail Hour (Smooth Jazz & Lounge Music) (2015) [MP3|320 кб/с]<Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Keck - Cocktail Hour (02:52)
+02. E.L. Mahon - Feelin Good (03:07)
+03. Curtis S. D. Mac Donald - Sleazy Cheese (06:08)
+04. Richard Freitas - Manhattan Rainbow (03:00)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Jazz, LoungeПродолжительность: 01:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D71938E64757FADE0BD510879AC0C730632FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539828   (504850) от 28.08.2012
 
 Larry Coryell - 2 альбома (1984 & 2006) [FLAC / WavPack|Lossless]<Jazz, Instrumental>
@@ -683,96 +770,6 @@ Paul Brown - Promised Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D71599818E3225C25E5BD4E439619FE0D41854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316980   (503371) от 29.07.2019
-
-Chick Corea - The Spanish Heart Band: Antidote (2019) Concord Jazz [FLAC|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antidote [9:15]
-02. Duende [10:13]
-03. The Yellow Nimbus - Part 1 [5:48]
-04. The Yellow Nimbus - Part 2 [5:57](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B14F03BFC00AEB167CD01FED2D013B6EA11E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540795   (503317) от 29.08.2012
-
-The Cinematic Orchestra - Presents In Motion #1 (2012) [FLAC (tracks+cue)|Lossless]<Contemporary Jazz, Future Jazz, Downtempo>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Necrology
-02. Lapis (ft. Austin Peralta)
-03. Outer Space (ft. Dorian Concept & Tom Chant)
-04. Dream Work (ft. Dorian Concept & Tom Chant)
-05. Entr'acte
-06. Regen (ft. Grey Reverend)
-07. ManhattaЖанр: Contemporary Jazz, Future Jazz, DowntempoПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934574   (502635) от 05.09.2015
-
-Bheki Mseleku - Celebration (1992) /World Circuit/[FLAC|image+.cue]<Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celebration [07:52]
-02. One For All - All For One [07:46]
-03. Angola [07:27]
-04. Blues For Afrika [06:20](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DCB397A82E5D3A300F63198E2CBD4425BD3ED2
 ```
 
 https://mybot314.ru/tekegram_catalog/

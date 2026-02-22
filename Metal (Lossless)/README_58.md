@@ -1,3 +1,268 @@
+###  Публикация: 657615   (897358) от 02.09.2021
+
+The Suicider - Death Surround (2010) [FLAC|Lossless]<Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Road to Silence [04:07]
+02. Death Surround [03:49]
+03. Someone Who Wasn't Me [04:54]
+04. Mayakovsky [04:36](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0DEA374EE575568DDB085F8DE3251710DDA6A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493217   (897189) от 02.09.2021
+
+Iron Maiden - Senjutsu (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senjutsu
+02. Stratego
+03. The Writing On The Wall
+04. Lost In A Lost World(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB4EE9FF6FC04796CFC84EB4411C56CF8B9DC43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370534   (897063) от 27.03.2020
+
+Svengali - Sayonara (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alcatraz (04:34)
+02. Breakaway (03:55)
+03. This Is Kombat (03:33)
+04. Better Off (03:27)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE8E7F7AF7230ABE9E66AABA554205172F21727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370437   (897058) от 27.03.2020
+
+Shaark - Again With Hatred (2006) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.H.T.T 01:01
+02. Face It 04:10
+03. Fire 03:25
+04. The River 04:41(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E233DD26ED66AAB03902466E49A975B3BDEE1CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370243   (896920) от 27.03.2020
+
+Almanac (Victor Smolski's) - Rush Of Death (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Predator (4:48)
+02. Rush Of Death (6:31)
+03. Let The Show Begin (1:19)
+04. Soiled Existence (5:19)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D4C366835C612EFCF85AF950217D4CAFF6780B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101475   (896169) от 06.02.2017
+
+September Mourning - 2 Albums + 1 EP (2012-2016) [FLAC|Lossless|image + .cue] <Gothic Metal, Alternative Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896169.jpg" />
+</div>
+
+
+###  Подробнее
+
+September Mourning - проект, созданный Эмили Лазар в 2007 и основанный на истории девушки September - потрошительницы, забирающей души живых. Она может входить как в мир живых, так и в мир мёртвых, а также влиять на судьбы людей, игнорируя смерть.
+Известность к September Mourning пришла после выступлений вместе с такими группами как The Birthday Massacre, I Am Ghost, (   Читать дальше...   )Жанр: Gothic Metal, Alternative Metal, Female VocalПродолжительность: 00:42:53
+
+01 | The Collection | 01:10
+02 | Angels To Dust | 04:14(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9279CEC927679AC53FCD68DFE5AB06F534E7EE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493444   (895583) от 03.09.2021
+
+Crowned In Sorrow - In Memoriam (2021) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Beyond Death
+02. Ending It All
+03. Slipping Away
+04. Ashes(   Читать дальше...   )Жанр: Melodic Doom Metal, Melodic Death MetalПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBC4EBB12DA8A6626C8E5898E7EBF64A159C3CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993222   (895377) от 05.03.2016
+
+Myrath - Legacy (2016) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jasmin (1:48)
+02. Believer (4:32)
+03. Get Your Freedom Back (3:57)
+04. Nobody's Lives (5:43)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70ED3F8B4D2F688D954614747AE75B60E08B08AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493433   (895261) от 03.09.2021
+
+Iron Maiden - Senjutsu (2021) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Senjutsu (примерный перевод - «Стратегия и тактика») - грядущий семнадцатый студийный альбом британской хеви-метал группы Iron Maiden, выход которого запланирован на 3 сентября 2021 года. Как и предыдущий альбом, The Book of Souls, это двойной альбом группы.
+Line Up:
+Steve Harris - Bass, Keyboards (British Lion, ex-Gypsy's Kiss, ex-Smiler)
+Dave Murray - Guitars (ex-Hear (   Читать дальше...   )CD - 1:
+01. Senjutsu
+02. Stratego
+03. The Writing On The Wall(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951C762F0294718A8AA36901807B0EF729BF22F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370660   (895229) от 28.03.2020
 
 Ocean Grove - Flip Phone Fantasy (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcore, Hardcore>
@@ -489,274 +754,6 @@ Nightwish - Elan (2015) /CDS/ [FLAC|Lossless]<Symphonic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CBF0FAEAA15354B2508FBDBD6B37E99E8EB5B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493794   (892412) от 05.09.2021
-
-At Vance - 9 Studio Albums (1999-2012) 9xCD [FLAC|Lossless|image + .cue] <Power Metal, Neo-Classical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892412.jpg" />
-</div>
-
-
-###  Подробнее
-
-At Vance – немецкая метал-группа, основанная в 1998 году гитаристом-виртуозом Олафом Ленком (Olaf Lenk) и вокалистом группы Centers Оливером Хартманном (Oliver Hartmann). Уже весной следующего года новоиспечённый коллектив подписал контракт с лейблом Shark Records, а в сентябре - выпустил дебютный альбом под названием «No Escape».1999 - No Escape
-2000 - Heart Of Steel
-2001 - Dragonchaser
-2002 - Only Human(   Читать дальше...   )Жанр: Power Metal, Neo-Classical MetalПродолжительность: 08:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578920D1836D2890FC03C6E4A40648624DFF7A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869063   (892288) от 14.02.2015
-
-Metallica - Master Of Puppets (1986) [FLAC|Lossless]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Battery (5:13)
-02. Master of Puppets (8:35)
-03. The Thing That Should Not Be (6:36)
-04. Welcome Home (Sanitarium) (6:27)
-05. Disposable Heroes (8:17)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:428DC2AF0103A044687C3DDF32B20A0975C9A791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296487   (891718) от 05.09.2021
-
-Iron Maiden - 59 аlbums, 7 Box-sets, 207 CD (1979-2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>След.
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iron Maiden — британская хеви-метал-группа, которая в начале 1980-х гг. являлась одним из известнейших представителей новой волны британского хеви-метала (NWOBHM), а позже оказала значительное влияние на развитие метала в целом. История группы Iron Maiden неразрывно связана с именем её отца-основателя, идейного вдохновителя и бессменного лидера бас-гитариста Стива (   Читать дальше...   )--------------------------
-
-01. Senjutsu (8:20)
-02. Stratego (5:00)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 159:16:19 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9241A5792742B5B1060304A1BC8CB8D23440E229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993641   (891666) от 07.03.2016
-
-Krallice - Krallice (2008) [FLAC|Lossless|image + .cue] <Avant-garde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wretched Wisdom 10:14
-02. Cnestorial 10:42
-03. Molec Codices 09:35
-04. Timehusk 06:05(   Читать дальше...   )Жанр: Avant-garde Black MetalПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307E2CBEA8EF84DA445BBF1199E58FD5102FB8AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993642   (891656) от 07.03.2016
-
-Jarra - Test of Faith (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Love
-02. Black Snow (The Final Sign)
-03. Pain
-04. Indian War Love Song (Deliver Me)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A754F755BACB2AA10B61A1992E8719A362BB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993636   (891648) от 07.03.2016
-
-Paths Of Possession - Promises In Blood (2005) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Darklands
-02.The Butchers Bargain
-03.Bleed the Meek
-04.The Second Coming(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BDE8B5028203E3A86C096E12BFE86777F164E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993646   (891646) от 07.03.2016
-
-Dreamlike Horror - Delightful Suicides (2005) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Hunt
-02. The House That Breathes with Ghosts
-03. Moonshine
-04. Damien(   Читать дальше...   )Жанр: Atmospheric Black Metal, Gothic MetalПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7558CD4251B54AEAC4A76D0D2C8BAFC8C58469D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868877   (891516) от 15.02.2015
-
-Exence - Hystrionic (2009) [FLAC|Lossless]<Progressive Thrash/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. We Will Never 5:35
-2. In Eternal Dynamics 5:07
-3. Shaman 7:28
-4. When Words Are Loose 3:26
-5. Fix From The Ground 5:16(   Читать дальше...   )Жанр: Progressive Thrash/Death MetalПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F557EBBC0A051408E3B013365BDEF08CA931FC2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639824   (891371) от 05.04.2013
-
-Heavatar - Opus I: All My Kingdoms (2013) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Replica 04:38
-02. Abracadabra 03:33
-03. All My Kingdoms 04:08
-04. Elysium At Dawn 04:19
-05. Long Way Home 05:34
-06. Born To Fly 04:19
-07. Luna! Luna! 04:55
-08. The Look Above 11:04
-09. To The Metal 04:52Жанр: Heavy MetalПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

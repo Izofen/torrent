@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1854812   (1057721) от 19.02.2026
+
+VA - Low Light, Warm Feelings (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Warren - Ordinary (Wedding) (3:06)
+02. Fleetwood Mac - Dreams (4:17)
+03. Teddy Swims - Lose Control (3:30)
+04. Bruno Mars - Love’s Train (5:07)(   Читать дальше...   )Жанр: PopПродолжительность: 03:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED490A4011DBDD5D0E554826F59AA6AD74EBFFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853782   (1057055) от 14.02.2026
 
 King Sis - Late to the Party (Lover’s Deluxe) (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative R&B, Soul>
@@ -57,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854015   (1056911) от 
+###  Публикация: 1854015   (1056911) от 15.02.2026
 
 VA - Pure... 80s Soul Grooves (2013) 4 x CD [FLAC|Lossless|tracks + .cue] <Pop, R&B, Soul, Disco>
 
@@ -715,35 +744,6 @@ VA - Disco Hits of The '70s, '80s & '90s (2013) [FLAC|Lossless|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E94219E3AF657AD833AAE0533352B0D78DA357BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847813   (1052293) от 14.01.2026
-
-Cher - Heart Of Stone (1989) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немногие артисты могут похвастаться такой богатой карьерой, как Cher, и хотя её творчество получало неоднозначные оценки, её неизменная популярность обеспечила альбому Heart Of Stone грандиозный успех; этот альбом, безусловно, входит в число лучших, выпущенных в 1989 году. Девятнадцатый студийный альбом, Heart Of Stone стал поворотным моментом в карьере певицы и, (   Читать дальше...   )01. If I Could Turn Back Time (4:01)
-02. Just Like Jesse James (4:08)
-03. You Wouldn't Know Love (3:32)
-04. Heart of Stone (4:18)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2358852A1B6BD504586AF21BE51AE07A1C719B
 ```
 
 https://mybot314.ru/tekegram_catalog/

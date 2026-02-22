@@ -1,3 +1,38 @@
+###  Публикация: 577131   (361520) от 18.11.2012
+
+VA - Trance In Motion: Sensual Breath 020 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Platinum Monkeys Feat. Ange - Why (Original Mix)
+02. Velvetine - The Great Divide (Soundprank Remix)
+03. Chris Montana & Chris Bekker - Me & Me (Original Mix)
+04. The Noise Feat. Adele Yeoman - The Game (John Chamberlain Remix)
+05. Heavyfeet & Nate James - Back Foot (Stonebridge Classic Mix)
+06. Mykleby - Three Days Ago (Original Mix)
+07. dBerrie - Aquarius (Original Mix)
+08. Shanghai - Smoke & Mirrors (Michael Cassette Remix)
+09. Calvin Harris Feat. Ellie Goulding - I Need Your Love
+10. Walden - Ciaco (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 02:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B35F2941770F0B5EF68E8DA5D7EF36D5157CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255626   (361508) от 19.10.2018
 
 Maxthon Browser 5.2.6.200 beta + Portable [Multi/Ru]
@@ -697,36 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDFDAA7420D084B014ADFDF943F9CC52E60DC6AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407412   (361298) от 07.11.2011
-
-Русские (2008) TVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их родной язык - русский. Их вера - православие. Многие из них никогда не были в России, но все хотят поехать в страну, о которой знают
-только по рассказам своих родителей, бабушек и дедушек.
-Герои фильма - потомки эмигрантов первой волны: белых офицеров, дворян, купцов, мещан, крестьян, казаков, уехавших из России в 18-20 годах прошлого века.
-Сегодня их можно встретить по всему земному шару - во Франции, Австралии, Германии, США, Великобритании... Но в какой бы стране они ни жили,
-они никогда не называют себя эмигрантами - только русскими.Жанр: ДокументальныйРежиссер: О. СевостьяноваПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D3E1DD6F81E5EB6F0A48342179C0653E0D80AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

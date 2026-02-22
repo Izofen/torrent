@@ -1,3 +1,32 @@
+###  Публикация: 1649846   (228741) от 29.07.2023
+
+PistonFist - Redline (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Become the Rage
+02 - Dig In
+03 - Resent the Day
+04 - Blue Cheese(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60A1BCBD929D035DD38AF463E9A6E58285A01D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583804   (228045) от 16.10.2022
 
 Raider - Runaway (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -728,37 +757,6 @@ Mammoth WVH - Mammoth WVH II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:992E18A98DD2BAB46DC47840B237A7BA10BB524D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513535   (223933) от 29.11.2021
-
-Steelover - Glove Me (1984) Reissue, 2021, Mausoleum [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steelover - hard rock/heavy metal группа из Льежа, Бельгия, образованная в 1982 году.
-После распада в 1986 году группа была реформирована в 2016 году Руди Леннерсом, Ником Гарди и Пэтом Фресоном.
-Их последний концерт в 1986 году, который проходил во Дворце Конгрессов в Льеже, был снят для шоу Music Box совместно с BBC.01. Forever
-02. Give It Up
-03. Rock Bottle
-04. Hold Tight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E68990ACA5C82EA82556B3A537E9FFE8493AB43
 ```
 
 https://mybot314.ru/tekegram_catalog/

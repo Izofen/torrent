@@ -1,3 +1,61 @@
+###  Публикация: 973538   (1014647) от 23.05.2021
+
+Dave Gahan - Hourglass Remixes (2008) [FLAC|Lossless|tracks + .cue] <EBM, Synthpop, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeper And Deeper (The Juan MacLean Club Mix) (5:08)
+ 02. Kingdom (Booka Shade Club Remix) (5:36)
+ 03. Love Will Leave (Kap10kurt Mix) (3:43)
+ 04. Use You (Maps Remix) (3:38)(   Читать дальше...   )Жанр: EBM, Synthpop, Techno, MinimalПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D692E0696AA594A041F7E591B44C468F039C439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473227   (1013825) от 28.05.2021
+
+Solomun - Nobody Is Not Loved (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean (feat. Jamie Foxx) (3:38)
+ 02. Home (3:41)
+ 03. Your Love Gives Me Gravity (feat. Planningtorock) (4:40)
+ 04. The Center Will Not Hold (3:50)(   Читать дальше...   )Жанр: EDM, Tech House, Deep HouseПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE39FB11307E6B0DD9FC35474BAEC7F4DEA9A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473394   (1013678) от 29.05.2021
 
 VA - Maretimo Chillhouse Flight, Vol. 1 - Join This Spheric Lounge Trip (2021) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Deep House>
@@ -679,64 +737,6 @@ Part 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB221BEB45B7FD936A502F32BB261D3F67E99617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479601   (1009591) от 24.06.2021
-
-DVS NME - The Electro Manifesto (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strike Wave (04:54)
- 02. Red Scare (04:47)
- 03. Commanding Heights (04:52)
- 04. Relative Form (04:39)(   Читать дальше...   )Жанр: Electro, IDM, AcidПродолжительность: 01:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE720C426DA90E64A35AD92D1C9E173E9E1DB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139573   (1009474) от 24.06.2021
-
-Morphology - Discography 29 Releases (2010-2021) Zyntax Motorcity, Abstract Forms, FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inflexion (06:13)
- 02. Indefinite (06:15)
- 03. Reduplication (05:08)
- 04. Past Tense (06:09)(   Читать дальше...   )Тип издания: WebЖанр: Electro, Acid, IDM, Techno •Продолжительность: 13:21:58 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658859ACD50B00F6B0C905BA75804D6EBF7452BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

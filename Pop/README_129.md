@@ -1,3 +1,119 @@
+###  Публикация: 1224021   (668107) от 08.05.2018
+
+The Three Degrees - Greatest Hits (1998) [FLAC|Lossless|image + .cue] <Disco, Soul, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Jump The Gun
+02.	Long Lost Lover
+03.	Red Light
+04.	Together(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A44A42E2C91A06CFA0AB1B5EEF788BA501E79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224128   (668106) от 08.05.2018
+
+West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|image + .cue] <Musical, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Grease
+02.	Summer Nights
+03.	Hopelessly Devoted To You
+04.	You're The One That I Want(   Читать дальше...   )Жанр: Musical, PopПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD52C0EEA786807C365E7A9FCC0D6A6ABE8F896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537184   (667891) от 16.03.2022
+
+VA - Mastermix Pro Disc 259 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Oh My God
+02. Danny Byrd & D Double E - Selecta
+03. Joy Crookes - Trouble
+04. D.O.D feat. Carla Monroe - Still Sleepless(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:10:54 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95E15D0EB7FEB0C6D354E986B72F6B3F8FDEF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137568   (667880) от 26.05.2017
+
+Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Is A Place On Earth (4:07)
+02. I Get Weak (4:52)
+03. World Without You (4:42)
+04. Runaway Horses (4:42)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B4EBF2ED4C5AC40DBDF82D4D8B451D0433D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537192   (667844) от 16.03.2022
 
 VA - Mastermix Pro Disc 260 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
@@ -635,122 +751,6 @@ VA - Mastermix Pro Remix 1 (2022) [MP3|320 Kbps] <Soulful House, Indie Dance, Du
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BA4DFC0D78EE7D6923DD642FC1113A811096A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538111   (662294) от 21.03.2022
-
-VA - Mastermix Pro Remix 2 (2022) [MP3|320 Kbps] <Soulful House, Indie Dance, Dubstep, Nu Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B. Live Feat. Becky Hill & Jme - Don't Know About You (Original Mix)
-02. Belters Only Feat. Jazzy - Make Me Feel Good (Extended Mix)
-03. Ben Nicky X Distorted Dreams - We Come 1 (Extended Mix)
-04. Chaney - Love Again (Extended Mix)(   Читать дальше...   )Жанр: Soulful House, Indie Dance, Dubstep, Nu DiscoПродолжительность: 01:04:16 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83A9CEA3F0266B98A615CABD134BC95BD90BF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538184   (662196) от 21.03.2022
-
-Charli XCX - Crash (2022) Deluxe Edition [MP3|320 Kbps] <Hyperpop, Dance-pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Crash
-02 – New Shapes (feat. Christine and the Queens and Caroline Polachek)
-03 – Good Ones
-04 – Constant Repeat(   Читать дальше...   )Жанр: Hyperpop, Dance-pop, Synth-popПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE1A8A4E325E7C4DC90660E766850214D3A850B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138977   (661292) от 01.06.2017
-
-Opus - Up And Down (1984) [FLAC|Lossless|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up And Down
-02. Vivian
-03. There Is Need For
-04. She Loves You(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C923BDCD35B1B4039787E2419DBCD94F6FC892BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538792   (661274) от 22.03.2022
-
-VA - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nashville Cast - Ho Hey (2:05)
-02. Nelly Furtado - I'm Like A Bird (Acoustic Version) (3:56)
-03. Amos Lee - Sweet Pea (2:09)
-04. Longpigs - On & On (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB104461A8653ADF03AC2C1BEFBA58AB25935F31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1696830   (119315) от 04.02.2024
-
-Joe Pass - Meditation: Solo Guitar (1992) 2002, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation (Meditacao) [4:52]
-02. Shadow Waltz [2:06]
-03. Mood Indigo [3:24]
-04. More Than You Know [3:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CA487108EDA048F7749853C26B4872564AC24E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696834   (119311) от 04.02.2024
 
 Joe Pass - Virtuoso In New York (1975) Victor Entertainment [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
@@ -745,6 +716,35 @@ Norah Jones - Visionary Jones (Curated by Don Was) (2024) Compilation [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66ADE9F3024A7341C3D477700C6628CF3FBA06F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698938   (118081) от 11.02.2024
+
+Al Grey & Bjarne Nerem - Al Meets Bjarne (1989) Gemini [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things Ain't What They Used to Be [5:48]
+02. Sad Sam [6:13]
+03. Lester Leaps In [5:29]
+04. Blue and Sentimental [4:06](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E3F1CD409494E193F558F6B71B1C836F04190E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,131 @@
+###  Публикация: 920498   (579919) от 22.07.2015
+
+Bad Boys Blue - 30 (2015) 2CD [FLAC|tracks+.cue]<Disco, Euro-Disco, Synth-pop, Dance-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of Hearts (Reloaded)
+02. Jungle In My Heart (Reloaded)
+03. Baby Blue (New Hit Version)
+04. The Woman I Love (New Hit Version)(   Читать дальше...   )Жанр: Disco, Euro-Disco, Synth-pop, Dance-popПродолжительность: 02:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4145C8D812DE9DBDC60826F0E58E69873CEAA0A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811579   (579518) от 09.08.2014
+
+King Kong & D'Jungle Girls - King Kong Greatest Hits (2000) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boom Boom Dollar (Red Monster Mix) 5:54
+02. Walkie Talkie 3:59
+03. Love & American Dollars 5:27
+04. Lies 4:15
+05. Bingo 6:34
+06. Love Of The Angel 5:41
+07. Gimme Gimme Gimme 6:04
+08. Panic In New York 6:29
+09. It's So Funny 2:53
+10. Don't Let Me Be Misunderstood 3:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293DF28A83DBC842085D8D54D92567C5A4B3BBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811577   (579459) от 09.08.2014
+
+King Kong & The D. Jungle Girls - King Kong Greatest Hits (2000) [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boom Boom Dollar (Red Monster Mix) 5:54
+02. Walkie Talkie 3:59
+03. Love & American Dollars 5:27
+04. Lies 4:15
+05. Bingo 6:34
+06. Love Of The Angel 5:41
+07. Gimme Gimme Gimme 6:04
+08. Panic In New York 6:29
+09. It's So Funny 2:53
+10. Don't Let Me Be Misunderstood 3:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35D278F72A487C321BBD1D2833FB3A6BD3F08B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042435   (579416) от 12.08.2016
+
+Emly Starr - Emly Starr (1980) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock & Roll Woman (3:32)
+02. Music In The Air (3:15)
+03. Santiago Lover (6:21)
+04. I Need Help (3:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4D07DD413FB1AA176B970148F5796D2001BEF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042505   (579410) от 12.08.2016
 
 VA - Disco Tape Vol 3 (2016) [MP3|320 Kbps] <Disco>
@@ -635,128 +763,6 @@ VA - Легендарные песни - Коллекция (гр. Форум 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DC366A1C9996E91D6CD6309C1E6DF04B1FC21C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042955   (576541) от 14.08.2016
-
-Kebekelektrik - Kebekelektrik (1977) Reissue, 2003, Unidisc [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kebekelektrik - студийный проект канадского продюсера Pat Deserio и начинающего клавишника-профессионала, а в дальнейшем известного исполнителя - Gino Soccio.01. Bolero (Tom Moulton Mix) (14:03)
-02. Magic Fly (Tom Moulton Mix) (6:27)
-03. Mirage (Tom Moulton Mix) (6:25)
-04. Wardance (Tom Moulton Mix) (9:05)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8EAC1A1E534B1669E18E206A253837F6A87E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527643   (576529) от 26.07.2012
-
-Melanie C - Northern Star (2000) [FLAC|Lossless]<Pop, Pop Rock, Dance Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go! [3:39]
-02. Northern Star [4:41]
-03. Goin' Down [3:36]
-04. I Turn To You [5:52]
-05. If That Were Me [4:33]
-06. Never Be The Same Again [4:54]
-07. Why [5:30]
-08. Suddenly Monday [2:38]
-09. Ga Ga [3:52]
-10. Be The One [3:37](   Читать дальше...   )Жанр: Pop, Pop Rock, Dance PopПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303138   (576316) от 19.05.2019
-
-VA - Die Hit Giganten Best Of 2000er (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576316.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Britney Spears - Toxic
-02. OutKast - Hey Ya!
-03. Sean Paul - Get Busy(   Читать дальше...   )Жанр: PopПродолжительность: 03:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E898775432ED722FF464B14B295ABD919294FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303055   (576313) от 19.05.2019
-
-VA - New Hit 2019 (Vol.2) (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alegria Amaya feat. El Versatil - Calma (Remix) 4:07
-02. DJ ROY - Giant (Remix) 3:45
-03. Sephora - Sweet but Psycho 3:05
-04. Nadine - Speechless 3:31(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E9D8B5D92FBCCE6CC144FE71AAF4AC4F6CD3DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

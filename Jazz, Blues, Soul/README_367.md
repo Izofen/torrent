@@ -1,3 +1,90 @@
+###  Публикация: 1418642   (346944) от 25.10.2020
+
+J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1955) 1989, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Devil Moon [3:38]
+02. Jay [3:43]
+03. Time After Time [3:54]
+04. Too Marvelous for Words [4:07](   Читать дальше...   )Жанр: BopПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68644FC117C8B63A838C9FF7DC97EE75E2BD22C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418640   (346942) от 25.10.2020
+
+J.J. Johnson - The Eminent Jay Jay Johnson, Vol.1 (1953) 1989, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capri (alternate take) [3:51]
+02. Capri [3:42]
+03. Lover Man [3:57]
+04. Turnpike [4:22](   Читать дальше...   )Жанр: BopПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72FC120986611BED3BCE99C43F4F1F68477BE99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953524   (346712) от 05.11.2015
+
+Black Cat Bone - Growl (2015) [MP3|320 кб/с]<Blues Rock, Dirty Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Growl
+02. Move On
+03. Remiss
+04. Punks And Pushers(   Читать дальше...   )Жанр: Blues Rock, Dirty BluesПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83813DF21E41C399BB79C72F0C05F37CE896FE15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 724915   (345991) от 22.11.2013
 
 Count Basie & His Orchestra - Good Time Blues (Budapest 1970) (2004) [MP3|320 кб/с]<Jazz>
@@ -666,93 +753,6 @@ St. Paul & The Broken Bones - Half the City (2014) [Flac|track+.cue]<Soul, Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED8CEED192029D445493A61A0AA18A9E6E56B867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418860   (344308) от 26.10.2020
-
-Karen Souza - Language Of Love (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Masquerade
-02. Everybody Knows
-03. Love's Not Fair
-04. Language Of Love(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9427762ABFD4AB4797814F8997C66A49A29BD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330216   (343657) от 09.10.2019
-
-Paul Bley - Basics (2001) Justin Time [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Lost [4:42]
-02. Basics [2:29]
-03. Speed Kills [2:04]
-04. Told You So [9:15](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDEDC30EE01D1CCE55D1C62244AD6EF05FC75192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578734   (343649) от 24.09.2022
-
-Enrico Pieranunzi - Jazz Roads (1980) 2002, CAMJazz [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entropy [4:34]
-02. Monologue 1 - Country Sketch [1:28]
-03. New Lands [5:04]
-04. Monologue 2 - Introspection [2:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22663AF9370C1D92299C3C77BC1CBF9D5AC4AC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

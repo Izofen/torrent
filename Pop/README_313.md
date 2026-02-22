@@ -1,3 +1,90 @@
+###  Публикация: 1348948   (141438) от 29.12.2019
+
+VA - 100 Greatest Indie: The Best Guitar Pop Rock (2019) [MP3|320 Kbps] <Indie, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141438.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blur - Parklife
+002. The Smiths - This Charming Man (2011 Remaster)
+003. Liam Gallagher - Wall of Glass
+004. The Futureheads - Hounds of Love(   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 06:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBC89D472D20EA360E72CBD70F09985F70A2475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435698   (141386) от 29.12.2020
+
+VA - Ciao Italia (1997) 3CD Box Set [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adriano Celentano - Azzurro
+02. Lucio Battisti - Emozioni
+03. Ricchi E Poveri - M'Innamoro Di Te
+04. Patty Pravo - Pazza Idea(   Читать дальше...   )Жанр: PopПродолжительность: 02:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C9F78C42202CF49B5B357319FC999FD338B430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435699   (141230) от 29.12.2020
+
+VA - Disco Fever CD3 (1998) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Chocolate - You Sexy Thing
+02. Indeep - Last Night A D.J. Saved My Life
+03. Musique - In The Bush
+04. Evelyn Thomas - High Energy(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8A141A7C9C2D1F87573CF5739105134864E952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088160   (141119) от 30.12.2016
 
 Bamboo Industry - Tortured By Pleasure (1989) [MP3|320 Kbps] <Alternative Pop, Synthpop>
@@ -665,93 +752,6 @@ Oren Lavie - Bedroom Crimes (2017) [FLAC|Lossless|tracks + .cue] <Folk, Indie, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:660A6956C63CD053C9201B25A578436B8C843CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195811   (138838) от 31.12.2017
-
-VA - Cafe Puls Italo Hits '17 (2017) [MP3|320 Kbps] <Italo Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francesco Gabbani - Occidentali's Karma (Radio Edit) 3:32
-02. Umberto Tozzi - Gloria 4:16
-03. Al Bano - Felicita 3:04
-04. Ricchi e Poveri - Mamma Maria 2:47(   Читать дальше...   )Жанр: Italo Disco, PopПродолжительность: 02:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3BD88DB2369ABD79458AD1EE57424DA0C1EC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195734   (138799) от 31.12.2017
-
-VA - I Love Tocata 80's (2012) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138799.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Atlanta  -  Romantic Break  5:06
-02.  Modern Talking  -  You're My Heart, You're My Soul  5:33
-03.  Spagna  -  Easy Lady  6:53(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5071C46F7AE81317BE93C05A4F28FE02EEF132EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195821   (138733) от 31.12.2017
-
-Darren Hayes - Spin (2002) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Strange Relationship
-2. Insatiable
-3. Heart Attack
-4. I Miss You(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BD30B7269D92B2C762DA5DA14608940CEFE7E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

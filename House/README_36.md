@@ -1,3 +1,90 @@
+###  Публикация: 1026139   (706155) от 14.06.2016
+
+VA - Melodies For Ravers (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prash - Bring That Bass (Extended Mix) (4:48)
+02. Chives & Splash - Love & Rage (Extended Mix) (4:50)
+03. United States of Dance - We Are the Night (Extended Mix) (4:57)
+04. Rock Massive - You Know Why (Ph Electro Radio Mix) (3:36)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED72647A38A4ED81B66FF83BD0F901964F3643E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286798   (705523) от 06.03.2019
+
+VA - Running House (Compilation 2019) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky Lyke feat. Nathan Brumley - Perfect Moments (Original Mix) 04:58
+02. Lucky Lyke feat. Jessia - Dancing In The Moonlight (Original Mix) 04:18
+03. James KJ - Universe (Original Mix) 05:56
+04. House Legion - Baby (Original Mix) 04:44(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4AF0EEA8588BCA0D12055BB396E5E99820154AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220538   (704507) от 19.04.2018
+
+VA - Summer Tech House 50 Fantastic Summer Groove Songs (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pen T. - Feel Me
+02. Page Two - Deeper
+03. Qamil Stello - Ring My Bell
+04. Phatt - Donter(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0342340E582C6B9CA4DD6E55714786A2CB0069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220546   (704496) от 19.04.2018
 
 VA - EDM For Running And Workout 2018 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -657,96 +744,6 @@ Public Service Broadcasting - The Race For Space / Remixes (2016) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AE5284E37FF828907D8ECD57DC9A467547E393D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288989   (688383) от 15.03.2019
-
-VA - Ibiza Springtime (20 Sunset Cocktails) (2019) [MP3|320 Kbps] <House, DeepHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokyo Kono - Happiness (Yves St. John Mix) 2:59
-02. Mr. Kay - Angel In The Abyss (Original Mix) 3:16
-03. JTB Project - The Light (Soulful Mix) 3:20
-04. London 54 - The Black Horse (Original Mix) 3:17(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD41A771B208F3F51A5E6082FF15F5D45B2B558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505237   (686268) от 07.06.2012
-
-Ghosting Season - The Very Last Of The Saints (2012) [MP3|320 кб/с]<Deep House, Ambient, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Deep House, Ambient, ElectronicПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A8350D325D953B52E998091A37DA51FDD1F3BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506572   (686130) от 07.06.2012
-
-VA - Club Session Pres. Ibiza Beach Clubbing 2012 (2012) [MP3|320 кб/с]<House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Micah The Violinist - Sunshine of Ibiza - Les Schmitz and Alex Del Amo Remix (6:48)
-02. D-Wave - Calinda - Menini & Viani Remix (7:30)
-03. Jochen Pash - Voyage - Dj PP Remix (7:30)
-04. Coqui Selection - Push Me! - Original Mix (6:54)
-05. Drumcomplex - Insomniac - Original Mix (8:34)
-06. Alex Del Amo - We Are Family - DJ PP Remix (7:21)
-07. Haroun Hickman - Lets Be Free - David Amo & Julio Navas Remix (6:16)
-08. Funkagenda - Antidote - Sonny Wharton Remix (6:25)
-09. Andy Vajna - Sensations - Javi Del Valle Remix (7:07)
-10. Jesse Voorn - Pop - Midnite Sleaze Remix (6:35)(   Читать дальше...   )2012Жанр: House, Club HouseПродолжительность: 02:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF44F666753EAE3A201E72D1DBC2EC687F271E08
 ```
 
 https://mybot314.ru/tekegram_catalog/

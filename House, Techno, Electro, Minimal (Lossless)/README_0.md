@@ -1,3 +1,61 @@
+###  Публикация: 1603616   (1045507) от 12.01.2023
+
+Korablove - Basshole (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Splish (4:55)
+02. Wherever (4:15)
+03. Zurkaf (6:31)
+04. Come with Me (4:06)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3101C225B68FD1E1D56D96983A1A188FCFE5FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604373   (1045405) от 13.01.2023
+
+Denis Kenzo & Whiteout - Intelligency (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vetra (4:55)
+ 02. Indivisibility (4:17)
+ 03. Fire & Wide (5:27)
+ 04. Ametist (4:06)(   Читать дальше...   )Жанр: Progressive House, Trance, Tech HouseПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84C2AAB40DD0E2CAB9A793E0F14EEC5A0114270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604661   (1045305) от 14.01.2023
 
 Above & Beyond - Group Therapy Best Of 2022 pt.2 (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech House>
@@ -683,64 +741,6 @@ Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) Compilation, DJ Mix
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BEA5DB01AA2D15274253C31B5D872F0BD45B337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439699   (1039564) от 14.01.2021
-
-Shingo Nakamura - Silk Digital Pres. Shingo Nakamura 01 (2014) Compilation, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundprank - Burner (Shingo Nakamura remix) 08:23
-02. PROFF - Starstruck (Shingo Nakamura remix) 08:06
-03. Dan & Sam - Breaking The Illusion (Shingo Nakamura remix) 07:23
-04. Jacob Henry & Approaching Black - Yesterday's Tears (Shingo Nakamura remix) 08:41(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564F7D4EC9A28B158D5640FC4C3E4D19DBFE630A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613985   (1039087) от 20.02.2023
-
-VA - The Sound of 2023 Mix 2: Seoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blufeld -  Allusive Alive  (6:00)
-02.  Gabriel Carminatti, Abel Mezzomo -  Ignition  (4:19)
-03.  Vladislav Maximov, 3-YA -  Heartbeat  (3:52)
-04.  DatabassЖанр: Progressive House, Techno, TranceПродолжительность: 01:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DC7EC3732B648A7383405ECFADA9DB6DBEE857
 ```
 
 https://mybot314.ru/tekegram_catalog/

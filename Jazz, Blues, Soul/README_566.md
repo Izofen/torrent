@@ -1,3 +1,32 @@
+###  Публикация: 1752719   (103905) от 01.10.2024
+
+Jesse "The Rad Hatter" Bedard - Lonely Busker Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro/Welcome to the Station (0:37)
+02. Lonely Busker Blues (2:56)
+03. Stuck On You (4:00)
+04. Ganja Babe (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C903C8B675B2CFD96FC6B346A74EE6B8C5321F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753003   (103878) от 03.10.2024
 
 Sonny Stitt - Stitt's Bits: The Bebop Recordings (1949 - 1952) 3CD, 2006, Prestige [FLAC|Lossless|tracks + .cue] <Bop>
@@ -716,35 +745,6 @@ VA - Country Blues: The Ultimate Collection, Vol. 1 (2024) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B6CBA2AF6B13A4F09173ECEB5D0FBA5F8F32751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753677   (103766) от 06.10.2024
-
-Frank Sinatra - A Superb 2CD Collection Of Ol' Blue Eyes Classics (2002) 2CD, Air Music And Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There’s No Business Like Show Business [3:21]
-02. Oh, What A Beautiful Mornin’ [2:34]
-03. Soliloquy [8:09]
-04. Time After Time [1:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB9B977EF3485BB3A35FB609901FA4F119A2CAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

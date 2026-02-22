@@ -1,3 +1,32 @@
+###  Публикация: 1543698   (627900) от 12.04.2022
+
+Leader Of Down - The Screwtape Letters (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cat's Eye Night
+02. Holloway Motel
+03. Hitman
+04. The Screwtape Letters(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8071BAD958568F391C20E6EAC90DE82B30BD5B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543717   (627589) от 12.04.2022
 
 Nazareth - Surviving The Law (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -716,35 +745,6 @@ Felt - Felt (1971) Reissue, 2000, Akarma [FLAC|Lossless|image + .cue] <Psychedel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:349CF1515BB0F2C65FEA7231B3B42F8C129E022F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295413   (613190) от 16.04.2019
-
-Scorpions - The Best Of (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alien Nation
-02. No Pain No Gain
-03. Rhythm of Love
-04. Big City Nights(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B088B80AE7777EA5E83588B48E72D7B3F650770
 ```
 
 https://mybot314.ru/tekegram_catalog/

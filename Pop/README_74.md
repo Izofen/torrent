@@ -1,3 +1,119 @@
+###  Публикация: 1197893   (813520) от 08.01.2018
+
+VA - Bravo 100 Hits – Das Beste Aus 100 Bravo Hits (2018) 5CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813520.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  U 96  -  Das Boot (Techno Version)  5:14
+02.  Die Fantastischen Vier  -  Die Da!  4:25
+03.  Charles & Eddie  -  Would I Lie To You  3:42(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FA247B3BEA7A48BAB131382CBC5D98647734CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118329   (813498) от 25.03.2017
+
+Dino Dvornik - Pandorina kutija (Special Edition) (2010) [FLAC|Lossless|image + .cue] <Funk, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813498.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Iden Ća Ka I Moj Ćaća
+2.Hipnotiziran
+3.Ideja
+4.Više Ili Manje(   Читать дальше...   )Жанр: Funk, PopПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EFCEEE6800572689091634AC20CD7996A91C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118504   (813489) от 25.03.2017
+
+VA - I Am Woman (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destiny's Child - Independent Women, Part 1 (3:42)
+02. Fifth Harmony feat. Ty Dolla $ign - Work from Home (3:35)
+03. Little Mix - Shout Out to My Ex (4:06)
+04. Jessie J, Ariana Grande & Nicki Minaj - Bang Bang (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1A93DF9025E5EF41A3E1CA82EA6066DD88FE13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118228   (813322) от 25.03.2017
+
+VA - New Italo Disco Top 25 (Compilation Vol.6) (2017) [MP3|320 Kbps] <Disco, Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boy Blue - More Sadness In Her Eyes  4:50
+02.  Ken Martina - My Love Is Still Forever  3:45
+03.  Aldo Lesina - Goodbye (Short Romance Mix)  4:54
+04.  Emy Care - Dream Of Fantasy (Radio Mix)  4:05(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC85D0892B9419105E55AAC081F5CFAAEACAD67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118239   (813312) от 25.03.2017
 
 VA - New Italo Disco Top 25 (Compilation Vol.5) (2016) [MP3|320 Kbps] <Disco, Italo Disco>
@@ -629,119 +745,6 @@ Lana Del Rey - Blue Banisters (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indie-Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7655AFF505FCF473DEE80672E9278B4256FF160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119058   (809288) от 27.03.2017
-
-VA - WMC Bonzai Progressive (2017) [MP3|320 Kbps] <Dance, Club, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809288.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Airwave - The Quest For Beauty (Jam El Mar Remix) 8:50
-002. Stan Kolev - Forsaken (Original Mix) 6:51
-003. Darko De Jan - Reflections 6:34
-004. Phi Phi - Breaking Danger 8:27(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 08:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A61B07F54F6E608ECA2E20C58F576360EE99D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119234   (809151) от 27.03.2017
-
-VA - Moon River: 20 All-Time Favourite Love Songs (1998) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Disco, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon River (2:40)
-02. My Guy (3:25)
-03. Friends (4:51)
-04. Dont Let The Sun Catch You Crying (2:23)(   Читать дальше...   )Жанр: Pop, Soft Rock, Disco, OldiesПродолжительность: 01:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B735EFF307DB54AE1A0DB04F418454B1D87D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119120   (808943) от 27.03.2017
-
-Charli XCX - Number 1 Angel (2017) [FLAC|Lossless|tracks] <Dance-Pop, Electro, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Dreamer (feat. Starrah and RAYE)  (03:58) 
-02|  3AM (Pull Up) (feat M)  (03:59) 
-03| Blame It On You  (03:47) 
-04| Roll With Me  (03:21) (   Читать дальше...   )Жанр: Dance-Pop, Electro, Synth-popПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57E69A55121B544D57406607008D72C128B423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119261   (808913) от 27.03.2017
-
-VA - NRJ Spring Hits (2017) 3CD [MP3|320 Kbps] <Pop, Dance, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, R&BПродолжительность: 03:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F2F71FA957640FFBDFC9A211840CD17F07C981
 ```
 
 https://mybot314.ru/tekegram_catalog/

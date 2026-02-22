@@ -1,3 +1,61 @@
+###  Публикация: 1203068   (789099) от 31.01.2018
+
+Microtrauma - Sonar (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonar (08:18)
+ 02. Vona 1.2 (06:44)
+ 03. Filamenta (06:59)
+ 04. 5254 (05:13)(   Читать дальше...   )Жанр: Techno, Progressive House, MinimalПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0785EEC134D394FAB49CE2B876E545D74E0AA028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203016   (789064) от 31.01.2018
+
+Svårmod Records (Svarmod Records) - Label 2 Releases (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Dark Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeterno (06:33)
+ 02. Generator Insaniam (05:46)
+ 03. Alternatively Insanire (05:30)
+ 04. Sator Abstentia (06:32)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Dark AmbientПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C21A34FD6CB9282F2CE8984B3DFA51DBCAFA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275941   (789043) от 14.01.2019
 
 Ross From Friends - Family Portrait (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Lo-Fi, Tech House>
@@ -686,64 +744,6 @@ James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C359F5010B7AEB2296F0402D0C3B445CC6BF30B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204873   (783799) от 09.02.2018
-
-VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dizzee Rascal - Dirtee Disco (4:46)
-02.Example - Kickstarts (Wideboys Stadium Mix) (4:52)
-03.J2K; Jodie Connor; Wiley - Electric Boogaloo (Find a Way) (2:59)
-04.Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 02:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204895   (783796) от 09.02.2018
-
-VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cicada - The Things You Say (Dirty South Remix) (3:47)
-02.Kortezman Feat. Rozalla - Everybody's Free (3:15)
-03.Mason - Exeeder (Original Mix) (2:56)
-04.Sebastien Leger - Git Girl (3:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
 ```
 
 https://mybot314.ru/tekegram_catalog/

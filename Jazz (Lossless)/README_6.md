@@ -1,3 +1,32 @@
+###  Публикация: 1442703   (1036362) от 26.01.2021
+
+Buddy De Franco (DeFranco) - Four Classic Albums Plus (1952 - 1954) 2014, 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036362.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Gone with the Wind [2:53]
+02. Sweet Georgia Brown [2:50]
+03. Street of Dreams [2:42](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE1E740AE716B4B3D5DF1B813983A5AE04F8179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442757   (1036357) от 26.01.2021
 
 Jimmie Lunceford And His Harlem Express - Wham (2005) [FLAC|Lossless|image + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ Bar-Kays - The Best Of Bar-Kays (1993) [FLAC|Lossless|tracks + .cue] <Funk, Rhyt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A406E9B22C5773459B9EBAEBC8BE34AEB9AA7B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617960   (1034572) от 09.03.2023
-
-Bertha Hope - Elmo's Fire (1991) SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Low Tide [6:58]
-02. Mirror-Mind Rose [2:18]
-03. Bai Tai Blues [9:17]
-04. For Duke and Cannon [9:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E1FED5AE9D5C0FF2B8FAAFE22FEB0DC5FFA7D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

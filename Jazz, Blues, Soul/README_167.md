@@ -1,3 +1,90 @@
+###  Публикация: 1205499   (783548) от 10.02.2018
+
+The Three Sounds - Moods (1960) 1987, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love for Sale [06:38]
+02. Things Ain't What They Used To Be [08:55]
+03. On Green Dolphin Street [05:37]
+04. Loose Walk [04:56](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AA43B50F40DA44EB9EEEDAC86A9504DEE1BE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205581   (783525) от 10.02.2018
+
+Blindstone - Live In Denmark (2015) Grooveyard Records [MP3|320 Kbps] <Blues Rock, Rock, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Freedom's Calling 3:12
+02. Temple Trippin' 3:38
+03. Rock Your Mojo 5:03
+04. Land Of 1000 Nights 6:34(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9913699ABECA7A90EAD1122569EB8F8CE0C595AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205618   (783516) от 10.02.2018
+
+Blindstone - The Seventh Cycle Of Eternity (2016) Grooveyard Records [MP3|320 Kbps] <Blues Rock, Rock, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Dead Man's Blues 4:53
+02. Rolling 4:14
+03. Rebel In Black 4:48
+04. On My Way 4:29(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B342D212FE6696B1AECD63688B5F82D85E52878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205429   (783512) от 10.02.2018
 
 Blindstone - Greetings from the Karma Factory (2012) Grooveyard Records [MP3|320 Kbps] <Blues Rock, East Coast Blues>
@@ -655,93 +742,6 @@ Jean-Louis Rassinfosse, Chet Baker, Philip Catherine (1983) 1985, Igloo [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFA2966200E809F0E0A87042F3411EF3B5D8560B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206516   (782161) от 14.02.2018
-
-Dinah Washington - Ballads (1962, 1963) 2002, Roulette Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover Man [03:01]
-02. I Wanna Be Around [03:41]
-03. I Didn't Know About You [03:07]
-04. Funny Thing [02:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2EB95DE7413E6991806622BCEE1FFC2335B562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206537   (782160) от 14.02.2018
-
-Ron Carter And The WDR Big Band - My Personal Songbook (2015) In+Out Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eight [07:03]
-02. Receipt, Please [06:00]
-03. Ah, Rio [06:09]
-04. Doom Mood [07:49](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Big BandПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D8B82148656DE819E55009EB7F32C99E1A8A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206526   (782151) от 14.02.2018
-
-Mike Garson - Mike Garson's Jazz Hat (2008) Reference Recordings [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rumble [05:08]
-02. All Blues [09:49]
-03. It's You or No One [05:22]
-04. A Song For You [10:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28EC1362FCD2C99508A41CDB335B36C3136C2F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

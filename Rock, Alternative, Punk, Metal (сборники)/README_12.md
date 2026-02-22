@@ -1,3 +1,32 @@
+###  Публикация: 1381558   (820872) от 10.05.2020
+
+VA - Life under the rubble - collection (2020) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abuser - Creations (05:01)
+02. Accept - Stalingrad (05:59)
+03. Accuser - Perish By Oblivion (04:06)
+04. Agent Steel - Illuminati Is Machine (05:01)(   Читать дальше...   )Жанр: MetalПродолжительность: 07:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA2098A79493DAD310B22B218759CB25E443B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382472   (819280) от 11.05.2020
 
 VA - Life under the rubble vol.3 (2020) [MP3|320 Kbps] <Metal>
@@ -716,35 +745,6 @@ VA - Autumn Rock Fest (2021) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4250AED739403E9EEEFF3964D1CE5F56B0B8F571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385824   (795985) от 27.05.2020
-
-VA - Ancient World: Modern Alternative Rock (2020) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795985.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Los Lobos - I Wan'na Be Like
-002. Stereophonics - Don't Let
-003. Coreleoni - Boom Boom
-004. Michael Schenker Fest - Ascension(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 06:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB3F90AF6CE01F7E7EC7F2053572ED742E7F686
 ```
 
 https://mybot314.ru/tekegram_catalog/

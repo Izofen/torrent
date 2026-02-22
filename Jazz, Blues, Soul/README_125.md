@@ -1,3 +1,102 @@
+###  Публикация: 1376907   (857013) от 19.04.2020
+
+Harry Allen With Monty Alexander Trio - Soul Of My Life (2006) Swing Bros. Records Inc. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Send Me [6:09]
+02. I Just Called to Say I Love You [4:24]
+03. You Make Me Feel Brand New [5:57]
+04. You Are the Sunshine of My Life [5:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4329B7DA98894D5922ADF17746A43F5A1FB3BB4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305700   (856990) от 07.03.2011
+
+Sara Wasserman - Solid Ground (2009) [FLAC|Lossless]<Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Little Bird (3:31)
+02. I Am A Song (4:02)
+03. Leap Of Faith (3:48)
+04. Fly Away (4:18)
+05. Sara Smile (3:13)
+06. Fresh Out Of Tears (3:49)
+07. Solid Ground (5:06)
+08. Somehow Forever (4:20)
+09. Need To Know (3:59)
+10. Hindsight (4:08)(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769203   (856986) от 22.03.2014
+
+Kim Pensyl - Under The Influence (1996) [FLAC|Lossless]<Smooth-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Minute By Minute
+ 02. Home At Last
+ 03. A Short Walk From Home
+ 04. Morning Isle
+ 05. That's The Way Of The World
+ 06. Love Light In Flight
+ 07. Mornin'
+ 08. Little Willy C.
+ 09. Casting Shadows
+ 10. BucklesЖанр: Smooth-JazzПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123792882D22CFBF686C9B9764EFAA8743AD7D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 769178   (856976) от 22.03.2014
 
 Jack Jezzro with The Beegie Adair Trio - Jazz on Broadway (2005) [FLAC|Lossless]<Jazz, Guitar>
@@ -691,99 +790,6 @@ Keiko Matsui - Wildflower (2003) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:823A845F7CB5D5993FCF7F1B3C31D848501FED3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000980   (855596) от 27.03.2016
-
-VA - New Jazz Divas (2016) [MP3|320 кб/с] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diana Krall - This Can’t Be Love (04:32)
-02. Youn Sun Nah - Jockey Full of Bourbon (03:41)
-03. Terez Montcalm - Docteur (04:09)
-04. Fay Claassen - Conception / Deception (04:15)(   Читать дальше...   )Производство: Wagram MusicЖанр: JazzПродолжительность: 02:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5E61E396645C85EB9631CA85163E32142B765E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109946   (855563) от 01.03.2017
-
-Southern Avenue - Southern Avenue (2017) [MP3|320 Kbps] <Memphis Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Give Up (04:43)
-02. What Did I Do (03:54)
-03. It's Gonna Be Alright (03:16)
-04. Slipped Tripped and Fell In Love (03:26)(   Читать дальше...   )Жанр: Memphis BluesПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB8134DB72A1D9E817C7DD32381044D862B8F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305229   (855292) от 08.03.2011
-
-Joe Beck - Brazilian Dreamin' (2006) [FLAC|Lossless]<Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Vivo Sonhando (5:18)
-02. Manha De Carnaval (4:53)
-03. Aquarius (6:51)
-04. O Grande Amor (4:53)
-05. Felicidade (5:31)
-06. And Here's To You (5:54)
-07. Brazil (5:52)
-08. Ela E Carioca (4:55)
-09. Falando De Amor (6:26)
-10. Zanzibar (5:19)(   Читать дальше...)Жанр: Fusion, Post-BopПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

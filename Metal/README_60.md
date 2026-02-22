@@ -1,3 +1,32 @@
+###  Публикация: 907277   (640036) от 11.06.2015
+
+Karakoram - Ov Shangri-La (2015) [MP3|320 кб/с]<Heavy / Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azathoth
+02. Sagarmatha
+03. En Sabah Nur
+04. Via Betelgeuse(   Читать дальше...   )Жанр: Heavy / Groove MetalПродолжительность: 00:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0B73058516BB46FC8B43007D132AFA45B9C54F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907374   (640033) от 11.06.2015
 
 Quiet Prayer - The Failure of Religion (2015) [MP3|320 кб/с]<Heavy Metal, Melodic Death Metal>
@@ -747,35 +776,6 @@ Ghost - Prequelle (2018) Deluxe Edition [MP3|320 Kbps] <Heavy Metal, Occult Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FD712557255BA8E13EB07180E1F0BBFFCA3CF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293665   (635671) от 04.04.2019
-
-Demons & Wizards - Demons & Wizards (1999) 2000, NEMS Enterprises [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rites Of Passage (0:56)
- 02 - Heaven Denies (5:17)
- 03 - Poor Man's Crusade (4:02)
- 04 - Fiddler On The Green (5:56)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C14723C184E38D5D8092F3CC2FDFDFDC146A09F
 ```
 
 https://mybot314.ru/tekegram_catalog/

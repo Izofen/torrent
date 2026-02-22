@@ -1,3 +1,32 @@
+###  Публикация: 1662023   (188076) от 17.09.2023
+
+VA - Top 9 August 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naki (JPN) - Firmament (Cedric Paul & A L O N 3 L Y Remix) (08:40)
+02. Louie Xtra - Breeze (DreamLife Remix) (07:34)
+03. Young Hu - Forget Me (Pink Pig Vocal Remix) (07:57)
+04. D.J.G.; M.I.K!; Jasmine Dean - Who You Really Are (Original Mix) (04:10)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1850CC987DAC17491C140D561BA90D952312E408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827555   (187978) от 22.10.2025
 
 VA - Progressive Trance Awakening, Vol. 08 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -715,35 +744,6 @@ VA - Levitated Trance: Autumn (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEF9E244C164C622054E6D4260DDA2350F8493CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666895   (177464) от 07.10.2023
-
-VA - Trance 2023 Vol.9 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stoneface & Terminal - Lost (Ciaran McAuley Remix) (3:20)
-02. Allen Watts - Spectral (2:57)
-03. Aly & Fila - Eye Of The Storm (4:41)
-04. Thirdwave - Love Is The Answer (3:56)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07907D63B3C5C3C9811F490FA383743A7C8C2F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

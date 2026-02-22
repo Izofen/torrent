@@ -1,3 +1,29 @@
+###  Публикация: 1205935   (783188) от 11.02.2018
+
+Ant Download Manager PRO 1.7.3 Build 48180 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ant Download Manager - быстрый и простой загрузчик любых файлов из Интернета с передовой функцией для скачивания видео с видеосервисов, таких как Youtube, Myspace, Google Video, DailyMotion и других. Загружает с любого сайта, любой контент, быстро и надёжно. Интегрируется в браузеры - Internet Explorer 8+, Mozilla Firefox 32+, Google Chrome 31+. Поддерживает HTTP (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B5F5D6E35D486B85FCCF8A70A2627814C8026F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205729   (783187) от 11.02.2018
 
 Пираты Сомали / The Pirates of Somalia  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
@@ -658,35 +684,6 @@ Dalot & Sound Awakener - Little Things (2018) Fluid Audio [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12EF31C325DB52A4C1485F3BC4A0648D2021BAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206028   (782953) от 12.02.2018
-
-Egoprisme - Among Noise (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Darkwave>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  En Secret  3:07
-02.  Etendard  3:12
-03.  Le Vertige  3:08
-04.  Call Of Duty  3:04(   Читать дальше...   )Жанр: Synthpop, Synthwave, DarkwaveПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D6694DB30CF22B2196D775A078CA25A2579FD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

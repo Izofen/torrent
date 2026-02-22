@@ -1,3 +1,38 @@
+###  Публикация: 233622   (934182) от 20.01.2015
+
+Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New age, Ethnic, Fusion>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+2014 - Kashi. Songs From the India Within (with Chintan) --- добавлен 18.01.2015
+2010 - Luminous Secrets (with Band)
+2008 - In Concert (with Band)
+2006 - Taranga
+2006 - Ahir (with Chintan)
+2005 - Yatri - Mystics of Sound
+2003 - Water Down the Ganges (with Manish Vyas)
+2003 - Shiva Moon (Remixed by Maneesh De Moor)(   Читать дальше...   )Жанр: World, New age, Ethnic, FusionПродолжительность: 17:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB1091317CB88BBEEE2A7B584D1820F8A1A6DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984916   (934092) от 12.02.2016
 
 VA - Lo Mejor Del Folklore Canario (2008) [FLAC|Lossless|tracks + .cue] <Folklore, Latino>
@@ -767,35 +802,6 @@ MIDIval Punditz - Light (2015) [MP3|320 кб/с] <New Age, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49C04094EAAEAB9A053EA5C3609F68B06931A1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986672   (931010) от 14.02.2016
-
-Mauro Usai and friends - Ethnico (my wind instruments) (2016) [MP3|320 кб/с] <New Age, World, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dijieridoo
-02. Non e semplice
-03. La voce del vento
-04. Tundu(   Читать дальше...   )Жанр: New Age, World, EthnicПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966B815154842A769D874AA8FBFAA525CF80414B
 ```
 
 https://mybot314.ru/tekegram_catalog/

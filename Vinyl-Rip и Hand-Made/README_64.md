@@ -1,3 +1,177 @@
+###  Публикация: 1700800   (116847) от 18.02.2024
+
+Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Filmrolle
+02. Zauberer
+03. Hört Mein Wort
+04. Willst Du Mich(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934A76C055C325057C9FB8071FCD2F2514063C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700860   (116830) от 18.02.2024
+
+Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Uhrwerk
+02. Luftschiff
+03. Ich Will Alles
+04. Goldene Zeiten(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE1702BD282D85C1C19285E9DC846C16F386EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700717   (116829) от 18.02.2024
+
+Unheilig - Das 2. Gebot (2003) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eva
+02. Maschine
+03. Gib Mir Mehr
+04. Sternenschiff(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0259EA072B97EE5E6B0AE74F96CFFDF13AD52C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701220   (116527) от 20.02.2024
+
+Лариса Мондрус - Поет Лариса Мондрус (1970) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116527.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Синий Лён
+(Р. Паулс – А. Круклис, перевод А. Дмоховский)
+A2 Озёрный Край
+(Р. Паулс - З. Пурвс, перевод А. Дмоховский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B779520909E7A97AEEB60580E800121343F35DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701224   (116500) от 20.02.2024
+
+Unheilig - Grosse Freiheit (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Meer
+02. Seenot
+03. Für Immer
+04. Geboren Um Zu Leben(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6F193CF087F09D28236E094D5CB202106DB4FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701200   (116499) от 20.02.2024
+
+Unheilig - Puppenspiel (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vorhang Auf
+02. Puppenspieler
+03. Spiegelbild
+04. Dein Clown(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A83BC102CBADA30FB2BE3C0421948E5DD1F0F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701230   (116485) от 20.02.2024
 
 Unheilig - Lichter der Stadt (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
@@ -572,180 +746,6 @@ Side 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:150755A436A964C98B5487901B92D73EDA2A024E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703592   (115020) от 29.02.2024
-
-Александр Барыкин - Букет (1988) [FLAC 24/192|Lossless|tracks] <Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01-Букет (Н. Рубцов) — 3.38
-02-Дождь и снег (М. Рябинин) — 4.36
-03-Осенний парк (Б. Дубровин) — 5.05(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE54B21CD285E88C05B2FCD7A20FA74B73BF13F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703590   (114998) от 29.02.2024
-
-AC/DC - Dirty Deeds Done Dirt Cheap (1976) Reissue, 1987, Albert Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Deeds Done Dirt Cheap
-02. Ain't No Fun (Waiting Round to Be a Millionaire)
-03. There's Gonna Be Some Rockin
-04. Problem Child(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7C58CF7641C37D42FBA92A43F49D18BBE43C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703542   (114996) от 29.02.2024
-
-AC/DC - T.N.T (1975) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Long Way to the Top (If You Wanna Rock 'n' Roll)
-02. Rock 'n' Roll Singer
-03. The Jack
-04. Live Wire(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35446AD24DA6384B1BC64871208B6EA7AAD1B28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703485   (114991) от 29.02.2024
-
-Автограф - Каменный край (1989) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01-Город.
-02-О, мой мальчик.
-(Группа "Автограф" - С.Патрушев)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5238997836B32FA01B1BE91F11FF12AFC0456B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703571   (114989) от 29.02.2024
-
-Brymir - Studio Albums (4 releases) (2011-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Melodic Death/Pagan Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brymir — финская мелодик-дэт-метал/симфоник-метал группа из Хельсинки, основанная в 2006 году.2011 - Breathe Fire to the Sun
-2016 - Slayer Of Gods
-2019 - Wings Of Fire
-2022 - Voices in the SkyЖанр: Symphonic/Melodic Death/Pagan MetalПродолжительность: 03:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CD34E232C0EB34F4C42508B817BA2C6EAF8130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703782   (114835) от 01.03.2024
-
-VA - Рок-панорама - 87 (1) (1987) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01 - Найти и потерять (музыка и слова Г. Рябцева) — 4.57
-Г. Рябцев
-02 - Выше голову (музыка и слова С. Попова) — 3.31(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12858237BB9964ACC8017741E3EEE09B53C42B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

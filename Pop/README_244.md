@@ -1,3 +1,90 @@
+###  Публикация: 1185225   (294916) от 20.11.2017
+
+Eros Ramazzotti - Eros Duets (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eros Ramazzotti Duet With Tina Turner – Cosas De La Vida (Can't Stop Thinking Of You)
+02. Eros Ramazzotti & Nicole Scherzinger – Hasta El Extasis
+03. Giorgia feat. Eros Ramazzotti – Inevitabile
+04. Eros Ramazzotti & Anastacia – I Belong To You (El Ritmo De La Pasion)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579494ADC9AF5E57380B2810231F3C6EB918C884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262477   (294915) от 15.11.2018
+
+Mariah Carey - Caution (2018) [MP3|320 Kbps] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GTFO
+02. With You
+03. Caution
+04. A No No(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7DF94DDF68F9941CA550297E6DC3F744E90E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184884   (294902) от 20.11.2017
+
+Bjork (Björk) - Utopia (2017) [MP3|320 Kbps] <Electronic, indie, Experimental, trip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arisen My Senses
+02. Blissing Me
+03. The Gate
+04. Utopia(   Читать дальше...   )Жанр: Electronic, indie, Experimental, trip-HopПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A66AC07A440C4257400839A74F1F66D200D1AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334438   (294876) от 29.10.2019
 
 Wolfgang Maus Soundpicture - Children Of The Universe (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -658,93 +745,6 @@ The Real ABBA Gold - Janus (1998) Hey Presto! 1999 [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A502BF9C8A4A95A3D692EEEC2C07B4721F1C62C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962554   (292841) от 05.12.2015
-
-Tanita Tikaram - The Best Of Tanita Tikaram (1996) [FLAC|tracks+.cue]<Pop Rock, Soft Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twist In My Sobriety (4:51)
-02. Cathedral Song (2:52)
-03. World Outside Your Window (4:52)
-04. Good Tradition (2:51)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, BalladПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A02A022AF17693FC7008C83CC90429F31EA4CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262675   (292654) от 16.11.2018
-
-Кватро - XV лет. Часть 1 (2018) [MP3|320 Kbps] <Pop, Retro>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292654.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kyrie Eleison
-2. Скажите, девушки, подружке вашей
-3. Шум берёз
-4. Если б не было тебя(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B928B267FF11089791C9F6D3EC04F3F7F32C11BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080014   (292062) от 05.12.2016
-
-Ann Joy - Love Dance (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Your Way Around  (5:29)
-02. Love Dance (It's Gotta Be Magic)  (8:01)
-03. You Make Me Feel Good  (3:01)
-04. Love Now, Hurt Later  (6:23)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D609D887BE8F5BCAC407CC587516A0811098751
 ```
 
 https://mybot314.ru/tekegram_catalog/

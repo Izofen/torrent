@@ -1,3 +1,177 @@
+###  Публикация: 1805935   (65427) от 09.07.2025
+
+DGM - Endless (2024) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65427.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Promises
+A2. The Great Unknown
+B3. The Wake
+B4. Solitude(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB3673CE45CC421835DAB2973AE5A594119B0EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805972   (65426) от 09.07.2025
+
+DGM - Life (2023) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65426.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Unravel The Sorrow
+A2. To The Core
+B1. The Calling
+B2. Second Chance(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D7F0E29F9D40AFEFE5D0A059600288E8D94BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805920   (65425) от 09.07.2025
+
+Dead Fields Of Woolwich - Monarch Of The Grave (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Bleeding Willow [00:03:57]
+02. Hideous Heart [00:04:50]
+03. Cult Of The Cemetery Light [00:03:46]
+04. Love Lies Bleeding [00:04:26](   Читать дальше...   )Жанр: Gothic / Doom MetalПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C957EDA963AF7D7E47123282902E600C8E514952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805999   (65422) от 09.07.2025
+
+Mississippi MacDonald - Slim Pickin' (acoustic) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Trouble Doing The Right Thing (acoustic) (3:52)
+02.  Slim Pickin' (acoustic) (3:26)
+03.  My Bad Attitude (acoustic) (3:28)
+04.  I'm Sorry (acoustic) (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA532B4628AE0E56406715CA8BFB5C8A63A3CE88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805922   (65421) от 09.07.2025
+
+Cult Of Frey - By The Blood Of Odin, Pt. 2: Asgard (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pagan / Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood line of the Aesir [00:11:47]
+02. The Glory of Valhalla [00:11:52]
+03. Rode on Steeds of Gold [00:13:20]
+04. Binder of Wolves [00:09:26](   Читать дальше...   )Жанр: Pagan / Folk MetalПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A919042D60E6DCBD5BFBCE9D38DD6AE553C1574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805990   (65420) от 09.07.2025
+
+Alldori - Isle of Lesbos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Black Wind Returns to the Earth (3:20)
+02.  Bury Me (3:13)
+03.  Draw, Pilgrim (3:37)
+04.  The Ale Never Forgets (2:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9514D39126DD9662D75CB070462DF775D25BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805992   (65418) от 09.07.2025
 
 Bare Wires - Cheap Perfume (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -568,180 +742,6 @@ Humble Rebel & the Guesthouse - Sweet Morning (2025) [FLAC 24/48|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C91A47B488E9C234E9612624675B671F159AE33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807521   (65169) от 19.07.2025
-
-Abigail Williams - A Void Within Existence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life, Disconnected [00:05:31]
-02. Void Within [00:05:52]
-03. Nonexistence [00:04:32]
-04. Still Nights [00:04:21](   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075938A27F0FEA440FE90441A32F784E4C9E88E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807602   (65165) от 19.07.2025
-
-Maggie Lowe - Comin' in Hott (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Comin' in Hott (4:08)
-02.  Sweet Treat (4:01)
-03.  Ruined (3:47)
-04.  He's Mine (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D73ABBAF90FF8C8B7FE83DBF5F10F9EA6E8155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807598   (65164) от 19.07.2025
-
-Lone - We Came a Long Way (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You Gave Me Stories (3:14)
-02.  Like a Mountain (3:43)
-03.  Jump (3:55)
-04.  We Came a Long Way (4:41)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD4FF9D87B68A2761A99509E744CB43265613F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807605   (65162) от 19.07.2025
-
-Odd Berries - Dark Waters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Black Eyed Woman (3:37)
-02.  Ride (5:14)
-03.  Shake It Down (2:39)
-04.  Be Happy (2:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48EF4A557D7BE80DFBCA78B22340D3890379FE75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807524   (65153) от 19.07.2025
-
-Bush - I Beat Loneliness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scars [00:03:29]
-02. I Beat Loneliness [00:04:23]
-03. The Land of Milk and Honey [00:03:14]
-04. We're All the Same on the Inside [00:03:21](   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D88AB5BDBD291DD0CDEB3B321D514286009117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807404   (65150) от 19.07.2025
-
-Recorruptor - Sorrow Will Drown Us All (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Deathcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bathe in the Ashes of Heaven [00:01:46]
-02. Sorrow Will Drown Us All [00:04:26]
-03. Bearing the Befouled Spawn [00:04:39]
-04. Within the Vault [00:03:56](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCEC224E6DA35F8A49BB41CDA82E6AD79A8A50D
 ```
 
 https://mybot314.ru/tekegram_catalog/

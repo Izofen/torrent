@@ -1,3 +1,302 @@
+###  Публикация: 611025   (989607) от 30.01.2013
+
+Arise - 3CD (2003 - 2009) [WavPack|Lossless]<Melodic Death Metal / Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrenaline Rush [01:53]
+02. No Memory Of Light [03:41]
+03. Blindead [04:59]
+04. They Are Coming For You [04:24]
+05. Pitch Black [02:45]
+06. The Reckoning [03:29]
+07. Reclaiming The Soul [04:37]
+08. The Fury [02:49]
+09. Dead Silence [04:11]
+10. End Of Days [08:31]Жанр: Melodic Death Metal / Thrash MetalПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610795   (989548) от 30.01.2013
+
+Arkhon Infaustus - Hell Injection (2001) [WavPack|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arising [05:05]
+02. Day Of The Doom [04:29]
+03. Dead World [04:03]
+04. Queen Of The Night [04:36]
+05. Struggle With Death [03:56]
+06. Lost Fool [04:05]
+07. Ruins Of Life [03:31]
+08. Prayer [04:01]
+09. Hungarian Dance [01:04]Жанр: Black MetalПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591242   (989346) от 30.01.2013
+
+1349 -  7 CD (2001-2011) Дискография [FLAC|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989346.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 - Rapture (Morbid Angel cover)
+25 - Strike Of The Beast (Exodus cover)
+26 - Nerves (Bauhaus cover)
+27 - The Heretic (Possessed cover)
+28 - Pandemonium War Bells (live)
+29 - When I Was Flesh (live)
+30 - Atomic Chapel (live)Жанр: Black MetalПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163113   (989254) от 04.01.2010
+
+Sentenced - Coffin - The Complete Discography (2009) [FLAC|Lossless]<Death Metal / Gothic Metal>
+
+>>След.
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+2009Жанр: Death Metal / Gothic MetalПродолжительность: 11:08:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354327   (989110) от 21.01.2020
+
+Elixir - Mindcreeper (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989110.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Don't Trust The Preacher
+2 Mindcreeper
+3 Hot Metal
+4 Rescue My Soul(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB1F3B0C4EB30B7E17881F7895975337F4C3B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163459   (988332) от 05.01.2010
+
+Bathory - Дискография (1983-2006) [FLAC|Lossless]<Black, Epic Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1983 - 1984 - Demos - Celtic Frost Live Weinheim
+1984 - Bathory
+1985 - The Return
+1986 - Under The Sign Of The Black Mark
+1988 - Blood Fire Death
+1990 - Hammerheart
+1991 - Twilight Of The Gods
+1992 - Jubileum volume I
+1993 - Jubileum volume II
+1994 - Requiem(   Дальше...)01. The Wheel of Sun (8:46)
+02. Apocalypse (3:48)
+03. Black Dimons (6:09)
+04. Woman of Dark Desires (4:06)
+05. Destroyer of Worlds (4:50)
+06. Sea Wolf (5:24)
+07. Duce (3:42)
+08. The Return of Darkness and Evil (3:50)
+09. Day of Wrath (7:10)
+10. Sleeping   (2:56)(   Дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611312   (988307) от 31.01.2013
+
+As Likely As Not - Stand Up and Nerve (2011) [WavPack|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Designed Love [03:43]
+02. Realization [04:22]
+03. My Last Confession [05:08]
+04. Red Fleer [04:48]
+05. Only Echoes Of Dreams [01:09]
+06. Inhale Exhale [04:17]
+07. Nerving Empathy [05:01]
+08. Omega [06:24]Жанр: Melodic Death MetalПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 245615   (987616) от 22.01.2020
+
+Metallica - 11 альбомов (1983-2008) Japan Mini-LP SHM-CD /2010, Universal Music/[FLAC|image+cue]<Thrash Metal>
+
+>>След.
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Was Just Your Life :: 7:08
+02. The End Of The Line :: 7:52
+03. Broken, Beat & Scarred :: 6:25
+04. The Day That Never Comes :: 7:56(   Читать дальше...   )Жанр: Thrash Metal |Продолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BCC90C9FD39021CFA63FF8332F20A7863A616E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163318   (987533) от 06.01.2010
+
+Kyuss - 3 CD (1992, 1994, 1995) [WavPack|Lossless]<Stoner Rock/Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Kyuss  — известная стоунер-группа из Калифорнии, США. Многими признаётся родоначальниками стоунер-рока. Группа была образована в 1989 и первоначально носила название Sons of Kyuss. Под этим же названием был выпущен дебютный EP Sons of Kyuss. Название «Sons of Kyuss» было взято из ролевой игры Dungeons & Dragons и позже укорочено до «Kyuss». Первый состав группы выглядел следующим образом: Джон Гарсия (вокал), Джош Хомме (гитара), Ник Оливери (бас) и Брэнт Бьорк (барабаны). Джош Хомме стал известен тем, что играл на электрической гитаре, пропуская звук через басовые усилители для того, чтобы получить «тяжёлый» звук. Многие могли бы посчитать их просто очередной рок-металической группой, если бы не талант Джоша Хомме и его психоделичная манера игры.
+
+MySpace01. Hurricane (2:42)
+02. One Inch Man (3:31)
+03. Thee Ol' Boozeroony (2:47)
+04. Gloria Lewis (4:02)
+05. Phototropic (5:13)
+06. El Rodeo (5:36)
+07. Jumbo Blimp Jumbo (4:40)
+08. Tangy Zizzle (2:39)
+09. Size Queen (3:47)
+10. Catamaran (3:00)(   Читать дальше...   )Жанр: Stoner/Hard Rock/PsychedelicПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 162979   (987454) от 06.01.2010
 
 Masterplan - Дискография (2003 - 2007) [FLAC|Lossless]<Heavy/Power Metal>
@@ -533,285 +832,6 @@ Ensiferum - Victory Songs (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18E8B3D80B527854265DDEF8CD113548E974B491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355213   (984975) от 25.01.2020
-
-Breaking Benjamin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking Benjamin - So Cold (Aurora Version) (04:32)
-02. Breaking Benjamin, Michael Barnes - Failure (Aurora Version) (03:37)
-03. Breaking Benjamin, Scooter Ward - Far Away (04:52)
-04. Breaking Benjamin - Angels Fall (Aurora Version) (03:46)(   Читать дальше...   )Жанр: Alt.Metal, Post-GrungeПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43631DF186D37CC77BF2356BF5D0B90ED4348987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355217   (984823) от 25.01.2020
-
-Ironsword - Servants of Steel (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hyborian Scrolls (02:14)
-02 - Rogues in the House (05:45)
-03 - Upon the Throne (02:42)
-04 - Tower of the Elephant (05:05)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648C02AA994F7AF2E82269D07A1796BC7DA223DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613002   (984716) от 03.02.2013
-
-Requiem - Falsos Poemas (2009) [FLAC|Lossless]<Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. La Espada Y La Cruz
-02. Inmaculada Realidad
-03. Espejismos
-04. Claro Oscuro
-05. N.E.U.R.O.S.I.S.
-06. Mis Ruinas
-07. Sin Ti
-08. Opera Negra
-09. Amadis De Gaula (En Vivo)
-10. Extasis Extrano (En Vivo)Жанр: Gothic MetalПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971339   (984596) от 04.01.2016
-
-Mechina - Progenitor (2016) [FLAC|tracks|WEB-DL]<Industrial, Symphonic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984596.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:40] 01. Mass Locked
-[06:26] 02. Ashes Of Old Earth
-[07:31] 03. Starscape
-[06:26] 04. Cryoshock(   Читать дальше...   )Жанр: Industrial, Symphonic Death MetalПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D566BBC7767E4631618E7DC91333A3B4B9601A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613104   (984523) от 03.02.2013
-
-Centurian - Contra Rationem (2013) Scene [FLAC|Lossless]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thou Shallt Bleed For The Lord Thy God
-02. Crown Of Bones
-03. Feast Of The Cross
-04. Judas Among Twelve
-05. Antinomian
-06. The Will Of The Torch
-07. Sin Upon Man
-08. Damnatio Memoriae
-09. Adversus
-Альбом выпущен 28 января 2013 года лейблом Listenable Records.Жанр: Death MetalПродолжительность: 00:29:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741455   (983751) от 03.01.2014
-
-Benedictum - Obey (2013) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Of The Banshee 0:58
-02. Fractured 3:58
-03. Obey 4:51
-04. Fighting For My Life 2:59
-05. Scream 4:08
-06. Evil That We Do 3:51
-07. Crossing Over 6:02
-08. Cry 4:06
-09. Thornz 4:23
-10. Die To Love You 3:40(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5ADE4214D2AD37DE15AE0F6C43B27AB3D198D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355388   (983632) от 26.01.2020
-
-Meshiaak - Mask Of All Misery (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miasma (04:07)
-02. Mask of All Misery (05:26)
-03. Bury the Bodies (05:10)
-04. City of Ghosts (04:04)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE59EECFFC54E86CB43D175DAEF34F6309470A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355440   (983627) от 26.01.2020
-
-Wastelands - Until the End of Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prelude in E Major (02:36)
-02 - Conspiracy (05:20)
-03 - Game Over (04:58)
-04 - Dangerous Time (04:51)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F719D36E3126156C66C8DAF964E9CF79DBB43922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355473   (983623) от 26.01.2020
-
-Konvent - Puritan Masochism (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puritan Masochism
-02. The Eye
-03. Trust
-04. World of Gone(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000BEDD9631FCB900382AA0A9967499C7AA92344
 ```
 
 https://mybot314.ru/tekegram_catalog/

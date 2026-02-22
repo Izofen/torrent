@@ -1,3 +1,32 @@
+###  Публикация: 1291429   (670702) от 24.03.2019
+
+VA - Miami Dance & Trance: WMC (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Cooper feat. Natasha Burnett - Eyes Shut (O.B.M Notion Remix) 6:56
+02. Milosh K feat. Paula P'cay & Victor Special - Your Choice (NyTiGen Remix) 6:40
+03. Ward Palmen & Adam Cooper - Flames (Adam Cooper WMC Miami Club Mix) 6:12
+04. Em Appelgren - Game Over (Adam Cooper Remix) 6:17(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Progressive House, DanceПродолжительность: 03:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC90689ED493DEE813EE2D78A0CD0D576DE2C4C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291338   (670569) от 24.03.2019
 
 Ben Gold & Sivan - Stay (Sneijder Remix) (2019) [MP3|320 Kbps] <Trance, Uplifting>
@@ -714,35 +743,6 @@ Floe - Attributes (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E18A19A68230D3623E7F7E26F09ED696173F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140913   (654018) от 08.06.2017
-
-VA - Recoverworld Trance Sessions 17.03 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emad Ebeat - Goddess In The Rain (08:00)
-02. Soul Entity - Inside The Mountains (06:29)
-03. Ciro Visone - Someone Save Me (06:29)
-04. Madwave - Mayhem (07:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757867BBF349015233CC7C6B0BFA7388C69C08C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

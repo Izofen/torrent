@@ -1,3 +1,108 @@
+###  Публикация: 765184   (876454) от 11.03.2014
+
+Julian & Roman Wasserfuhr - Running (2013) [FLAC|Lossless]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Weary Journey
+ 02. Bachelor (Over The Ear Look)
+ 03. Behind Blue Eyes (Pete Townshend)
+ 04. Adonis
+ 05. Stoned Remote
+ 06. Nowhere Man (Lennon/McCartney)
+ 07. 7 Gegner
+ 08. Rocholz-Korosak
+ 09. Go On
+ 10. Joy And Sorrow(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD1290B16C7E082CF2F2C0E8602EE852997CAE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765401   (876453) от 11.03.2014
+
+Ken Peplowski - Maybe September (2013) [FLAC|Lossless]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. All Alone by the Telephone - 4:58
+ 02. Moon Ray - 7:33
+ 03. Always a Bridesmaid - 5:31
+ 04. (Now and Then There's) A Fool Such as I - 6:44
+ 05. Romanza - 4:47
+ 06. Caroline, No - 7:58
+ 07. For No One - 1:58
+ 08. I'll String Along With You - 6:48
+ 09. Main Stem - 5:24
+ 10. Maybe September - 8:15(   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23771F88EBD73DA65AA1CD9C3ABE491D409CFB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765390   (876452) от 11.03.2014
+
+Kenny Wheeler, Norma Winstone, London Vocal Project - Mirrors (2013) [FLAC|Lossless]<Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Humpty Dumpty
+ 02. The Broken Heart
+ 03. The Lover Mourns
+ 04. Black March
+ 05. Through The Looking Glass
+ 06. The Hat
+ 07. Breughel
+ 08. Tweedledum
+ 09. The Bereaved Swan
+ 10. The Deathly Child(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5F81C60CB1AC8482275435BFC94D1AC609B1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765080   (876444) от 11.03.2014
 
 Ken Navarro - Dreaming Of Trains (2010) [FLAC|Lossless]<Smooth Jazz>
@@ -703,94 +808,6 @@ Altered Five Blues Band - Holler If You Hear Me (2021) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B7BEBDCF4E2EB835381B15915E80F1BED896DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495954   (875706) от 15.09.2021
-
-Band Of Friends - Spotlight on the G-Man Vol.2  (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Treat Her Right (3:20)
-02. Lonely Mile (4:45)
-03. Secret Agent (4:50)
-04. Livin' Like a Trucker (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08959FC9C8381CE6DCD14BD82B548C4DEFA4443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495866   (875700) от 15.09.2021
-
-Chris Rea - Blue Guitars IV - Electric Memphis Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Guitar (4:44)
-02. Electric Memphis Blue (4:17)
-03. All Night Long (4:14)
-04. Born Bad (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A1BE35AE23369376D11D5A43EB91544417F11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872307   (875685) от 24.02.2015
-
-Frank Sinatra - Sings His Greatest Hits (1997) [FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. All Of Me [02:44]
-02. I Could Write A Book [02:45]
-03. I've Got A Crush On You [03:18]
-04. Night And Day [03:42]
-05. Saturday Night (Is The Loneliest Night Of The Week) [02:46](   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Swing, Easy ListeningПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A469F80BCC9A3EBC3E58F829AC191F627C7BA255
 ```
 
 https://mybot314.ru/tekegram_catalog/

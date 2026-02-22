@@ -1,3 +1,32 @@
+###  Публикация: 1749109   (104521) от 13.09.2024
+
+VA - Soulful Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan Henlich - Yellow Moon (4:21)
+02. Kim Levien - All My Love (4:10)
+03. Robin Flam - When Eyes Meet (4:10)
+04. Don Leviev - Black and Blue (3:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E524DEFEF3F8BE9CE56821E216887A56814D1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822724   (104454) от 09.10.2025
 
 Shen Lab - Relaxing Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -716,35 +745,6 @@ Glenn Gatsby - Mission Prohibition (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1FFFD392A3923FA2BF404F39C9E6E617B9C1C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752719   (103905) от 01.10.2024
-
-Jesse "The Rad Hatter" Bedard - Lonely Busker Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro/Welcome to the Station (0:37)
-02. Lonely Busker Blues (2:56)
-03. Stuck On You (4:00)
-04. Ganja Babe (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C903C8B675B2CFD96FC6B346A74EE6B8C5321F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,61 +1,3 @@
-###  Публикация: 1516238   (166973) от 10.12.2021
-
-ДМЦ (Дороги Меняют Цвет) - Электроакустика, Часть 1 (2021) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166973.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сирень
-2. Накорми голубей
-3. Целуй ниже
-4. Запой(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4D143D6C6172DF2C5E3AC70D5064AEFED0D7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516219   (166946) от 10.12.2021
-
-Pink Floyd - Live In Rome Palaeur 20 June 1971 (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atom Heart Mother (Live In Rome Palaeur)
-02. Careful With That Axe, Eugene (Live In Rome Palaeur)
-03. Fat Old Sun (Live In Rome Palaeur)
-04. The Embryo (Live In Rome Palaeur)(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F199CD4328096AC3A008A4A7BFA229FEC8BA33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516221   (166908) от 10.12.2021
 
 Pink Floyd - Lyon 12 June 1971 & Tokyo 16 March 1972 (2021) [MP3|320 Kbps] <Rock>
@@ -252,35 +194,6 @@ DISC 03(   Читать дальше...   )Жанр: Rock, Singer & SongwriterП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5EE2520F629A36B59DE9DD98E6A21C956162E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673384   (165411) от 01.11.2023
-
-Aura - Hallucinations (2023) [MP3|320 Kbps] <Progressive Rock, Prog Related>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 24 February 2022 (05:12)
- 02 - Casus Belli (2023 version) (05:24)
- 03 - Stalemate (2023 version) (06:55)
- 04 - Cannon Fodder (03:19)(   Читать дальше...   )Жанр: Progressive Rock, Prog RelatedПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DFF5BD65778D170916E4F0BD305D71BADFF407
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -745,6 +658,93 @@ Mark Murdock - The Phoenix Has Risen (2020) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DFECC7F1B99BB57ACE2068EB24510A4836E5C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674838   (160585) от 07.11.2023
+
+VA - Maximum Rock The 1970s (Live) (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sabbath - War Pigs (Live) [07:03]
+02. Pink Floyd - Breathe (In The Air) (Live) [02:50]
+03. Genesis - The Musical Box (Live) [09:40]
+04. Led Zeppelin - Stairway to Heaven (Live) [09:52](   Читать дальше...   )Жанр: RockПродолжительность: 06:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4051966A07B65B7E2948224E9600164BD9A5EA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599732   (159650) от 24.12.2022
+
+Aerosmith - Rocks (1976) Reissue, 2000, Columbia [OGG Vorbis|480 Kbps] <Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In The Saddle
+02. Last Child
+03. Rats In The Cellar
+04. Combination(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FCEEBFC3A9BFD68B3354A7BF4905860AF2799A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599764   (159567) от 24.12.2022
+
+King Crimson - In the Court of the Crimson King: King Crimson at 50 (Music from the Film Soundtrack and Beyond) (2022) [MP3|320 Kbps] <Progressive Rock, Avant-garde>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Introductory Bellscape - Live 06-07;11;18 [00:04:05]
+02 - 21st Century Schizoid Man (edit) - mixed by Steven Wilson 2019 [00:06:54]
+03 - Moonchild (including cadenzas) - Live in Philadelphia, 23;09;19 [00:07:27]
+04 - Cat Food - from Cat Food EP Alt. mix by David Singleton [00:05:03](   Читать дальше...   )Жанр: Progressive Rock, Avant-gardeПродолжительность: 04:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2A6C5873EF71857A00FFA20EDFC16AA9EF1FEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

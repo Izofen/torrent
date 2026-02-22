@@ -1,32 +1,3 @@
-###  Публикация: 1703876   (114620) от 02.03.2024
-
-Avi Yifrah, Asher Fedi - The Avi Yifrah / Asher Fedi Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chik Chok (3:54)
-02. Buleria (4:02)
-03. Old Song (3:52)
-04. Funk Market (4:48)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FD3528180142170394918C91E9554AD6A07A87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703863   (114614) от 02.03.2024
 
 Donald Byrd - A City Called Heaven (1991) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -745,6 +716,35 @@ Mark Maxwell, Dr. SaxLove - Lofi Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Sm
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56FE77B342B613A70B9524B973E6D897781EE825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705063   (113966) от 07.03.2024
+
+Toni Germani - Easy Pieces Against War, Virus And Crisis (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desejo da Banalidade do Bem (9:34)
+02. A War Is Knockin' At Your Door (8:32)
+03. Waiting For The Rain (8:02)
+04. Elena Is A Name Of Beauty (10:08)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA06812183508FD80B71C3C6037FFF546F7BD75D
 ```
 
 https://mybot314.ru/tekegram_catalog/

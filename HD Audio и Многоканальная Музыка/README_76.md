@@ -1,3 +1,176 @@
+###  Публикация: 1679135   (139951) от 24.11.2023
+
+Yes - The Yes Album (1971) Super Deluxe Edition, Remaster, Steven Wilson Remix, 2023, Rhino [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1: Original Album (2023 Remaster)
+Disc 2: Steven Wilson 2014 Remix and Instrumentals
+Disc 3: Rarities (2023 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F9AD47B6ED88A35E001557C3660E848EFD9591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678561   (139726) от 24.11.2023
+
+КИНО - Атаман (1990 / 2012) hand made, remastered [FLAC|16/44.1|tracks|CD-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139726.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:16] 1. Атаман
+[4:16] 2. Атаман (Karaoke)
+[3:01] 3. Атаман (Acoustic version 1990)Жанр: RockПродолжительность: 00:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B270A962F96D1E5B86AD73E708F79046F07FECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679208   (139716) от 24.11.2023
+
+Atlanta Rhythm Section - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Southern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Up Against The Wall (Live in Atlanta, 1978) [00:04:49]
+02. Sky High (Live In Pittsburgh, 1977) [00:05:20]
+03. Homesick (Live in New York City, 1971) [00:04:50]
+04. Champagne Jam (Live in Tokyo, 1978) [00:04:44](   Читать дальше...   )Жанр: Southern RockПродолжительность: 2 CD, 02:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD5717D7CC5E21D05CC939CF58B6603AC86E38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436084   (139412) от 30.12.2020
+
+Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий джазовый музыкант, саксофонист, руководитель оркестра и дирижер. Родился 2 апреля 1926 года в Мюнхене-Гизинге, Германия, умер 15 августа 2015 года в Мюнхене, Германия. Отец Макса Грегера-младшего.Seite 1:
+A1 Girls, Girls, Girls
+A2 Save Your Kisses For Me
+A3 The Song Is You(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B3AA6E7A62379B1211A40C3788E8C030AB90C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273047   (138945) от 30.12.2018
+
+VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Хоралов - А снег рисует...
+02. Л. Долина - Страна Лимония
+03. И. Саруханов - Падал снег
+04. Группа "НРГ" - Время зовет меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3DE25AFA03C429A843CCE9D2E9A08D81E04FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436103   (138880) от 30.12.2020
+
+VA - The Greatest Old Traditional Christmas Songs 1942-2017 (2020) Unofficial Release [FLAC 2.0|44.1/24|image+m3u|MC-Rip] <Pop, Traditional>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Gene Autry - Rudolph the Red-Nosed Reindeer
+Ultimate Christmas, Vol. 1
+1994 compilation - Collectables - Marks(   Читать дальше...   )Жанр: Pop, TraditionalПродолжительность: 01:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE42AAD15DE06B40A307BB5F86301B14A7F2561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679464   (138537) от 25.11.2023
 
 Mirror - Pyramid of Terror (2019) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
@@ -569,180 +742,6 @@ Chris Maragoth - Gatherer of Souls (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:221FA57FF04133B79BBD8E3F2BBCBD43785CEBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679983   (134987) от 27.11.2023
-
-Don Broco - Live at The Royal Albert Hall (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Come Out To LA (00:05:00)
-02 - Pretty (00:04:09)
-03 - Swimwear Season (00:04:36)
-04 - Everybody (00:03:31)(   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5029CF3F1D649E586B042FC5BE73EAF9BA07C1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679997   (134970) от 27.11.2023
-
-King Buffalo - Live At Burning Man (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silverfish [00:03:35]
-02. Grifter [00:05:16]
-03. Shadows [00:09:56]
-04. Longing to Be the Mountain [00:10:30](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279DA12BCA1C2A293EDAAA45D1F1D566B4033409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679840   (134965) от 27.11.2023
-
-Block of Flats - No Hope For The Hopeless (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134965.jpg" />
-</div>
-
-
-###  Подробнее
-
-10. Black Swan [00:03:15]
-09. Never Forgotten [00:02:54]
-08. Burnout [00:02:37]
-07. Dead Inside [00:02:59](   Читать дальше...   )Жанр: Alt-MetalПродолжительность: 00:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7D60AEE656A693E9F5A4015001D62E3D0CCF02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679884   (134951) от 27.11.2023
-
-Michal David + The Paces - I'd Love To Live (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134951.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I'd Love To Live (Chtel Bych Zit Tak, Jak Se Ma)
-A2 You're Special (Jsi Zvlastni)
-A3 You Know What It's All About (Kam Tak Nahle Pospichas?)
-A4 Story Of A Girl I Knew (Lasko Ma, Nerikej Dik)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05263E71FB7BC6D610F935F3E66650053AA3C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680060   (134943) от 27.11.2023
-
-Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская рок-группа, образованная гитаристом и автором песен Карлом Беллом и басистом Джеффом Аберкромби в 1994 году.1998 - Sunburn
-2000 - Something Like Human
-2003 - Natural Selection
-2007 - Angels & DevilsЖанр: Hard Rock, Post-GrungeПродолжительность: 04:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC20FB2D7A206ED1F7F303F5EE0549799AE4DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679853   (134925) от 27.11.2023
-
-Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Water [00:03:49]
-02. Lover [00:03:58]
-03. Breakdown [00:03:35]
-04. Don't Let Them Push You [00:04:57](   Читать дальше...   )Жанр: Classic Hard RockПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5883FCDEC9EC654BA6E6F89AB5BD53F94DF04BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

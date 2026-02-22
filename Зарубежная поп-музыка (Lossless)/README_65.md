@@ -1,3 +1,32 @@
+###  Публикация: 1578595   (340798) от 25.09.2022
+
+VA - Golden Pop Ballads '97 Volume 1 (1997) [FLAC|Lossless|image + .cue] <Pop, Ballads>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Braxton - Un-Break My Hear [4:34]
+02. No Doubt - Don't Speak [4:25}
+03. Spice Girls - 2 Become 1 [4:04]
+04. East Seventeen - Hey Child [4:34](   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55557D7D885EF4146383C050CE11D4335A8DD81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954582   (339966) от 08.11.2015
 
 Anouk - Greatest Hits (2015) 2CD [FLAC|image+.cue]<Pop Rock, Soft Rock>
@@ -711,35 +740,6 @@ Hedley - Hello (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Pop,Punk,Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD9DF2E0FA903890C028F4EC395F9DDAD591DDBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956158   (330979) от 13.11.2015
-
-Ellie Goulding - Delirium (Deluxe Edition) (2015) [FLAC|Image+cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Delirium)
-02. Aftertaste
-03. Something In The Way You Move
-04. Keep On Dancin'(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EEB9CB2422AB13B9C6008554F83F4AB93CFD392
 ```
 
 https://mybot314.ru/tekegram_catalog/

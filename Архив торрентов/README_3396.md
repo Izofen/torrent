@@ -1,3 +1,29 @@
+###  Публикация: 940254   (469423) от 24.09.2015
+
+Футбол. Кубок России 2015-16. 1/16 финала. Байкал (Иркутск) – ЦСКА (Москва) (2015) HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок России 2015-16, 1/16 финала.Телекомпания: НТВ+ Наш ФутболЖанр: Спорт, ТелепередачаПродолжительность: 02:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07226B9513C5C90D1FEA0DA7C02D8CE1035BC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 702432   (469358) от 21.09.2013
 
 Джобс: Империя соблазна / jOBS (2013) WEBRip [Line]
@@ -662,35 +688,6 @@ Alex M.O.R.P.H. - Not All Superheroes Wear Capes (2016) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F26543CAE63A9AA8DEB9D4678A77F979FAE4868F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058408   (469048) от 01.10.2016
-
-Rodg - High On Life (2016) [MP3|320 Kbps] <Progressive Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rodg & Manu Zain - Parachute (3:24)
-02. Rodg - Dream (3:28)
-03. Rodg Ft. Louise Rademakers - Alibi (3:26)
-04. Rodg - High On Life (3:52)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A176757840ECA10DB6872FB3A133314E888314B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

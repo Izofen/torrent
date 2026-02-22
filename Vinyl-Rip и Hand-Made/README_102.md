@@ -1,3 +1,175 @@
+###  Публикация: 1813406   (6893) от 19.08.2025
+
+AmongRuins - Studio Albums (3 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6893.jpg" />
+</div>
+
+
+###  Подробнее
+
+AmongRuins — греческая мелодик-дэт-метал группа, образованная в 2012 году.2013 - Bring out Your Dead
+2016 - No Light
+2023 - Land of the Black SunЖанр: Melodic Death MetalПродолжительность: 01:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D2C27212EAF0CA0660DF775DCD36E62E3FAC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813608   (6771) от 20.08.2025
+
+Guns•N•Roses - Greatest Hits (2024) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Welcome To The Jungle
+02. Sweet Child 0' More
+03. Patience (Album Version)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0161D7EE083F232AC27327375794B1EE9DC0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813776   (6584) от 21.08.2025
+
+Heaven Shall Burn - Studio Albums (11 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heaven Shall Burn - метал-группа из Тюрингии, Германия, образованная в 1996 году.1998 - In Battle... There Is No Law
+2000 - Asunder
+2002 - Whatever It May Take
+2004 - AntigoneЖанр: Melodic Death Metal, MetalcoreПродолжительность: 13:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2A44239342F9A3F054D3F7B44BC05A1FB0357C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582401   (6505) от 22.08.2025
+
+Deftones - Studio Albums (12 releases) (1995-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deftones — рок-группа из Сакраменто, Калифорния, США. Первый их альбом «Adrenaline» вышел в 1995 году, на год позже дебютного диска Korn. Эти группы считаются основателями жанра «нью-метал», но Deftones играли намного раньше Korn, в конце 80-ых — андерграундные странствия без издателя. Хотя Korn и остаются куда более коммерчески выгодным проектом, однако стилистика (   Читать дальше...   )1995 - Adrenaline
+1997 - Around The Fur
+2000 - White Pony
+2003 - DeftonesЖанр: Nu Metal, Alternative MetalПродолжительность: 10:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A4775F3E5855982F91B52D7CA83A426C8AED52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704390   (6498) от 22.08.2025
+
+Burning Witches - Studio Albums (6 releases) (2017-2025) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burning Witches — метал-группа, основанная гитаристкой Романой Калкуль в Бругге, Аргау, Швейцария.2017 - Burning Witches
+2018 - Hexenhammer
+2020 - Dance With The Devil
+2021 - The Witch Of The NorthЖанр: Heavy/Power MetalПродолжительность: 05:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A45862329C724F1E269750EF7A5A238494E397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615148   (6484) от 22.08.2025
+
+Meshuggah - Studio Albums (15 releases) (1991-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Groove/Thrash Metal, Djent, Math Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Meshúggah — шведская метал-группа, играющая в направлении мат-метал и являющаяся основателем этого жанра. Образована в 1987 году в городе Умео. Название группы являет собой вошедшее в английский язык из идиша слово משוגע (сумасшедший)1991 - Contradictions Collapse
+1995 - Destroy Erase Improve
+1998 - ChaosphereЖанр: Technical Groove/Thrash Metal, Djent, Math MetalПродолжительность: 14:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758FE6A67DB2A881237F6EA2FEF344DB89A233FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697282   (6475) от 22.08.2025
 
 Blackbriar - Studio Albums (6 releases) (2017-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Symphonic Metal>
@@ -571,178 +743,6 @@ A4 Desperate Surrender (Amor Moriendo)(   Читать дальше...   )Жан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2390F97368F5172C30DA62BCD1184C81EFAD8553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817052   (3551) от 09.09.2025
-
-Skyharbor - Studio Albums (3 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skyharbor - рок-группа из Индии, образованная в 2008 году2012 - Blinding White Noise: Illusion & Chaos
-2014 - Guiding Lights
-2018 - Sunshine DustЖанр: Progressive MetalПродолжительность: 02:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0474B38978AAD1728E56BA52E6D21D1EBE9AC7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792383   (3486) от 10.09.2025
-
-In Mourning - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3486.jpg" />
-</div>
-
-
-###  Подробнее
-
-In Mourning - шведская метал-группа, образованная в 2000 году.2008 - Shrouded Divine
-2010 - Monolith
-2012 - The Weight Of Oceans
-2016 - Afterglow(   Читать дальше...   )Жанр: Progressive Melodic Death MetalПродолжительность: 09:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8256A23E63A238143D3D651E642F989C30AB0A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817348   (3456) от 10.09.2025
-
-Orchestra Electrecord + Grupul vocal «Cantabile» - Non Stop Dancing I (1971) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Jazz-Funk, Soul, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aa Venus
-Ab Sugar, Sugar
-Ac Ob-La-Di, Ob-La-Da
-Ad Tzuri, Tzuri(   Читать дальше...   )Жанр: Jazz-Funk, Soul, DiscoПродолжительность: 00:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD390D04CFE8A254AE87D3CE107E50B0042370C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670652   (3201) от 12.09.2025
-
-Antimatter - Studio Albums (11 releases) (2001-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Antimatter — группа, образованная в 1998 году бывшим басистом Anathema Дунканом Паттерсоном и его старым другом Миком Моссом.2001 - Saviour
-2003 - Lights Out
-2005 - Planetary Confinement
-2007 - Leaving EdenЖанр: Progressive RockПродолжительность: 12:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753D371EC243A53626F0D8851ACDA89BAC6BB9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817647   (3125) от 12.09.2025
-
-Hypermass - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hypermass - метал-группа из Норвегии, образована в 2012 году.2015 - Clouded Visions (EP)
-2022 - Empyrean
-2025 - Apparition Day (EP)Жанр: Melodic Death MetalПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329A08C375C03CEF7AA5D5BDB9528FC389639EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685769   (2667) от 15.09.2025
-
-Demon Hunter - Studio Albums (13 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu/Groove Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Demon Hunter — американская группа, из Сиэтла, штат Вашингтон, основана в 2000 году.2002 - Demon Hunter
-2004 - Summer Of Darkness
-2006 - The Triptych
-2007 - Storm The Gates Of HellЖанр: Nu/Groove Metal, MetalcoreПродолжительность: 12:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B992995FA9CD1D101D6AA02D61366C2512F2D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

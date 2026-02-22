@@ -1,3 +1,61 @@
+###  Публикация: 1509704   (793860) от 13.11.2021
+
+Oxxxymiron - miXXXtape III: Смутное Время (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793860.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мох
+2. Погружение
+3. Flashback
+4. Reality(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687E7CEA448887E0A00CE16BAC7C9DD2BE825F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509819   (792844) от 14.11.2021
+
+B.o.B - Murd & Mercy (2021) Deluxe [MP3|320 Kbps|Web-DL] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Loves Violence (3:10)
+ 02. Built Like This (3:18)
+ 03. DoGG feat. Sonny Digital (2:57)
+ 04. OTS (3:28)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BAB8AE6381EEDFEFAE7265BFCFE8E81DB688408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388044   (790058) от 04.06.2020
 
 Run The Jewels - RTJ4 (2020) [MP3|320 Kbps] <Hip-Hop>
@@ -687,64 +745,6 @@ VA - Old School Rap Classics (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B7CA622FD458C40FE8CD4729A32C9F390A49F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205171   (784008) от 08.02.2018
-
-Каста - Лучшие песни (2014) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Корабельная песня
-02. Мы берем это на улицах
-03. На порядок выше
-04. Горячее время(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91010D33893FE0A8C913E7109B5DACD308829CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389915   (783935) от 12.06.2020
-
-Макулатура - утопия (2020) [MP3|320 Kbps] <Hip-Hop, Abstract, Indie>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. утопия [03:55]
-02. пепел [05:17]
-03. тиссеран [04:32]
-04. проклятие [06:15](   Читать дальше...   )Жанр: Hip-Hop, Abstract, IndieПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE893B03B9165842DABF93E1A6CD311AAAB37A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

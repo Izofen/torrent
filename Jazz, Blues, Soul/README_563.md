@@ -1,3 +1,32 @@
+###  Публикация: 1744044   (105311) от 19.08.2024
+
+Charlie Mariano - Boston All Stars (1951 - 1953) 1990, Original Jazz Classics [FLAC|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boston Uncommon (master A) [2:10]
+02. Boston Uncommon (master B) [2:09]
+03. The Wizard (master A) [2:35]
+04. The Wizard (master B) [2:32](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDAB052A538CF9BB1EE1FFF203B3DB259BF693DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744562   (105264) от 22.08.2024
 
 Devon Allman - Miami Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock, Soul>
@@ -716,35 +745,6 @@ Loose Ends - Look How Long (1990) [FLAC|Lossless|tracks + .cue] <Contemporary R&
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C2DD5A779E9DFCB4C4C642FA6FEE32D831B20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746877   (104800) от 03.09.2024
-
-Stan Getz - In Stockholm (1955) 2008, Verve [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indiana [4:54]
-02. Without A Song [4:42]
-03. I Don't Stand A Ghost Of A Chance With You [5:53]
-04. I Can't Believe That You're In Love With Me [5:22](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFBD96CC86BE14D2D846F702CEBD70F8DE06A5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

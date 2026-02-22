@@ -1,3 +1,90 @@
+###  Публикация: 1190505   (267764) от 09.12.2017
+
+Inna - Nirvana (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruleta (feat. Erick)
+02. Gimme Gimme
+03. My Dreams
+04. Tropical(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFDC2F4798B799116DF2E9E2DAAE86187ACFA0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190495   (267756) от 09.12.2017
+
+VA - Первый танцевальный, Vol. 14 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ева Польна - Глубокое синее море
+02. Градусы - Выходи за меня
+03. Нюша - Не боюсь
+04. MONATIK - То, от чего без ума(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB38BFEF491FDC9644216B66BEEEB2A7EAE56631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190485   (267678) от 09.12.2017
+
+Plazma - Indian Summer (2017) [MP3|320 Kbps] <Рор>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tame Your Ghosts
+02. Angel Of Snow
+03. Brilliant Water
+04. Mystery (The Power Within)(   Читать дальше...   )Жанр: РорПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C6C078919C9BE9ACCFFC3C67526FE735D00D3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339268   (267116) от 18.11.2019
 
 Мохито - Refresh (2019) [MP3|320 Kbps] <Pop>
@@ -658,93 +745,6 @@ Walk the Moon - What If Nothing (2017) [MP3|320 Kbps] <Indie Pop, Indie Rock, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97A81DDE99C911469706B74536E32053CC9A84D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191301   (264475) от 13.12.2017
-
-VA - Italo Disco - The Lost Legends Vol. 7 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fockewulf 190 - Gitano (6:04)
-02. Middle Ages - Stop Your Lies (6:12)
-03. Nord Est - Overnight (6:08)
-04. Bandeaux - Black And White (6:44)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82020FE3A1047608E7D1628703BD43C7408C2824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191165   (264473) от 13.12.2017
-
-St. Vincent - Masseduction (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Pop, Art Pop, Baroque Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hang on Me (02:48)
-02. Pills (04:40)
-03. Masseduction (03:17)
-04. Sugarboy (04:01)(   Читать дальше...   )Жанр: Alternative Pop, Art Pop, Baroque Pop, Electropop, New Wave, Ambient RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8920CC4363A7AB1F408F68E4C954FB61439B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191256   (264472) от 13.12.2017
-
-VA - BBC Radio 2: The Piano Room (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Piano>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264472.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Ed Sheeran  -  This Year's Love (Recorded for BBC Radio 2)  2:36
-02.  Sam Smith  -  Stay With Me (Recorded for BBC Radio 2)  3:26
-03.  George Michael  -  Let Her Down Easy (Live From Prague Opera House, 2011)  3:41(   Читать дальше...   )Жанр: Pop, Easy Listening, PianoПродолжительность: 02:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D755AC0E12041C376EA38E90112BD80127E83D
 ```
 
 https://mybot314.ru/tekegram_catalog/

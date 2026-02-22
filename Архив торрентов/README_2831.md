@@ -1,3 +1,32 @@
+###  Публикация: 916662   (590442) от 09.07.2015
+
+Stefan Torto - The Forbidden Journey (2015) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ampoule (05:41)
+02. Radical Consciousness (05:14)
+03. Inside You I Can See (06:24)
+04. Hidden Forms Of Happiness (06:34)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75477D16ADA7370BBB318B3F0D4F576C17B83754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916754   (590440) от 09.07.2015
 
 QQ Browser 9.0.2315.400 [Cn]
@@ -648,32 +677,6 @@ CastleStorm - Free to Siege v1.76 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F79781A8225D7CD3048505CA53F8D673A1FCB6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916777   (590338) от 09.07.2015
-
-Adobe Flash Player 18.0.0.203 Final [3 в 1] RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBDD9104D52F223A3520FB9BAF330F2C5827FF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

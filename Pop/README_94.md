@@ -1,3 +1,119 @@
+###  Публикация: 1013313   (777631) от 04.05.2016
+
+Модель поведения - Кому что (2016) [MP3|320 кб/с] <Synthpop, Indie Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В этом сезоне
+02. Кости (Album Version)
+03. Шторм
+04. Рыбы(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31C832EDD2BABF340576023089027A3326BB19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211324   (777565) от 07.03.2018
+
+Kállay Saunders - Grind (2018) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockstar (04:00)
+02. Hunger (03:28)
+03. I Don't Really Care (03:16)
+04. Why Can't (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD28C25C0A64B50A37DB1F00EA646403D883F3BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211543   (777270) от 08.03.2018
+
+Girls Aloud - Sound Of The Underground (2003) Polydor [MP3|320 Kbps] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777270.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин (   Читать дальше...   )01 Sound Of The Underground 3:41
+02 No Good Advice 3:48
+03 Some Kind Of Miracle 3:09
+04 All I Need (All I Don't) 3:40(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4239AFB788C344C715F59068ED1FDD2B19CA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211376   (777268) от 08.03.2018
+
+VA - Hot Parade Dance Winter (2018) [MP3|320 Kbps] <Dance, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777268.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ofenbach & Nick Waterhouse - Katchi (Ofenbach Vs. Nick Waterhouse)
+02. Betta Lemme - bambola
+03. Lost Frequencies & Zonderling - Crazy(   Читать дальше...   )Жанр: Dance, Pop, Euro HouseПродолжительность: 2:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276D39E91EF550AA1FD450FD4BE075764CF48138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211692   (777244) от 08.03.2018
 
 VA - Mastermix Pro Disc 213 - March (2018) [MP3|320 Kbps] <Indie, Folk, Neo Soul, Dancehall, Electropop>
@@ -631,122 +747,6 @@ VA - BRAVO Hits 93 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:060DEAF290E2D5B8B91E29138FB3BDD5FA3D51FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014884   (775848) от 09.05.2016
-
-Niila - Gratitude (2016) [MP3|320 кб/с] <Pop Rock, Folk Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Love Nobody (03:34)
-02. Restless Heart (03:31)
-03. Better Off (feat. Laila Samuels) (04:05)
-04. Play You (03:41)(   Читать дальше...   )Жанр: Pop Rock, Folk RockПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381555B64AB9FC2E9C9C0AA5DEDB31F99C8F32FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014912   (775839) от 09.05.2016
-
-Nicole - Mit Dir Vielleicht (1994) [FLAC|Lossless|image + .cue] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mit Dir vielleicht.
-02. Ich brauch nur Dich.
-03. Moderne Piraten.
-04. Du bist der Mann (You Are the One).(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4CCC133BB72678F81F64541670428087FEB05F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014965   (775811) от 09.05.2016
-
-Gino Vannelli - Big Dreamers Never Sleep (1987) [APE|Lossless|image + .cue] <Pop, Synth-Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Name Of Money
-02. Time Out
-03. Wild Horses
-04. Young Lover(   Читать дальше...   )Жанр: Pop, Synth-Pop, ElectronicПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A835180FA01687E1269692EEA6108BA09E64EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212629   (775776) от 12.03.2018
-
-Judit Neddermann - Nua (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Em diras adeu
-02. Vai Vai Vai
-03. Els ocells
-04. 21(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C982859EA24B606F93BA3C67448769A48FC8B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 495650   (251395) от 12.05.2012
+
+VA - The Real Blues Brothers Vol. 2 (1998) [MP3|320 кб/с]<Blues, Electric Chicago Blues, Harmonica Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Brownie McGhee - Ease My Worried Mind (2:49)
+02. Hubert Sumlin - Late In The Evening (2:21)
+03. Roscoe Gordon - What You Got On Your Mind (1:54)
+04. Charlie Brantley - Boogie Me Baby (2:16)
+05. Sam Lightnin' Hopkins - See That My Grave Is Kept Clean (2:59)
+06. Champion Jack Dupree - Somebody Done Changed The Lock On My Door (2:51)
+07. Connie McBooker - Rich Women Blues (2:35)
+08. L.C. Williams - Lazy J. (2:54)
+09. Sonny "Hootin" Terry & the Night Owls - Crying Blues (3:03)
+10. Perry Cain - (   Читать дальше...   )Жанр: Blues, Electric Chicago Blues, Harmonica BluesПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98E216CF0E5C0CFF742FFD990E14B7746A8DC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495238   (251166) от 11.05.2012
 
 Fausto Papetti - Grand Collection (1988) [FLAC|Lossless]<Pop, Jazz>
@@ -764,35 +799,6 @@ Nick Schnebelen - What Key Is Trouble In? (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51DFD8F0BF711FDBCF4F77DDDC703086A4DB47C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618057   (250038) от 10.03.2023
-
-Van Morrison - Moving On Skiffle (2023) [MP3|320 Kbps] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freight Train (3:27)
-02. Careless Love (5:38)
-03. Sail Away Ladies (3:18)
-04. Streamline Train (4:03)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFFDBD65A42D02E7500784CC66C0F75314212C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

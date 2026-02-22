@@ -1,3 +1,32 @@
+###  Публикация: 1073046   (347512) от 15.11.2016
+
+Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Soundtrack from the Netflix Original Series) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crown Main Title (01:24)
+02. Duck Shoot (04:07)
+03. Sagana (04:32)
+04. Government (04:07)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC24B81246D73579E0BCCBF1841AA59B55DC3041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073237   (347401) от 15.11.2016
 
 Marcin Patrzalek - Hush (2016) [MP3|320 Kbps] <Acoustic Guitar, Instrumental>
@@ -721,35 +750,6 @@ VA - Modern Sound Orchestras - Morning Has Broken (1992) [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:976D8FAF52FDDC1A4258C5A34461384E7AD5208B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578222   (341076) от 25.09.2022
-
-Phil Thornton - Rhythm of the Rainforest (2009) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Vine Part 1
-02. Heart Of Green
-03. Dietera Dreams
-04. Yage(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43739D1CAE29E751F3BDEC50C361334BA8BEE4DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

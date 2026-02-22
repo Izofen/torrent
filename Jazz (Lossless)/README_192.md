@@ -1,3 +1,32 @@
+###  Публикация: 1057064   (477713) от 27.09.2016
+
+Max Roach, Clifford Brown Quintet - Brownie Lives! (Live At Basin Street And In Concert At Carnegie Hall) 2005 [WavPack|Lossless|image + .cue] <Jazz, Hard bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477713.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Waltz Hot (7:44)
+2. I Feel A Song Comin' On (5:17)
+3. What's New (3:19)
+4. Daahoud (5:23)(   Читать дальше...   )Жанр: Jazz, Hard bopПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31505189B09FDCFB9A46C6B0F724AEB5FBE7EDC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057080   (477604) от 27.09.2016
 
 Billie Holiday - Lady In Satin (1958, 1959) 2CD, 2011, Not Now Music[FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -746,35 +775,6 @@ John Lewis & Hank Jones - An Evening with Two Grand Pianos (1979) 2000, Collecta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07B8C5D1DD46D313ED508F5FF5DECD909A43DA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057846   (473304) от 29.09.2016
-
-Masabumi Kikuchi - Susto +2 (1981) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Circle/Line [14:58]
- 02.City Snow [07:42]
- 03.Gumbo [10:15]
- 04.New Native [15:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8317FEC39E728BB31B16044C5BE37803E35430F
 ```
 
 https://mybot314.ru/tekegram_catalog/

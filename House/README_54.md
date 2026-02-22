@@ -1,3 +1,90 @@
+###  Публикация: 1159167   (486132) от 19.08.2017
+
+L.S.G. - Double Vision (2017) [MP3|320 Kbps] <Progressive House, Downtempo, Electronica>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Seven Worlds (Original Mix)  4:54
+02.  Escape The Gravity (Original Mix)  10:41
+03.  Vapor (Original Mix)  11:01
+04.  Spotter (Original Mix)  7:55(   Читать дальше...   )Жанр: Progressive House, Downtempo, ElectronicaПродолжительность: 04:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747BC7600D3A1400618F0D5FB9DBBE914A313D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056190   (484007) от 24.09.2016
+
+VA - Body Pump #1 - Best of Workout (2016)  [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light In Color - Take Cover 05:27
+02. David K (Ger) - In Love : In Love (Robin Schulz Remix) 06:49
+03. Acido Domingo - Lagerfeuer 05:08
+04. David K (Ger) - Open Eyes 06:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E8A5F6D8C7B548586B3D3338AE92CA48E06546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244584   (480045) от 02.09.2018
+
+VA - EDM Bass Running (Workout Music) (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dobie - Bambola (Radio Edit) 03:27
+02. DJ Sinestro - Sandglass 03:43
+03. Crossthy - Altogether 03:29
+04. DiskBastian - Wild 03:46(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C0465A21992149CE1126129690D0CDB554DE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938780   (480004) от 19.09.2015
 
 VA - Finest Selection Of Summer Anthems (2015) [MP3|320 кб/с]<Club, Progressive, House>
@@ -674,111 +761,6 @@ VA - Endless Summer - Ibiza Closing 2012 (12/09/2012) [MP3|320 кб/с]<Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E85D5B795323828B24F38018F54DBF591E99D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547872   (465318) от 19.09.2012
-
-Mobbing (Alle Benassi) - Rock the dog (2008) [MP3|320 кб/с]<Electro House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ohm-O-Genik
-02. Angell
-03. Excellent)
-04. Butter my bisquit
-05. Open legs
-06. What is this!
-07. Eat more pasta
-08. Freeze
-09. Kondanna
-10. Aut aut(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B06F62838555AF727CCF7393E78519EACD0135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548464   (463331) от 20.09.2012
-
-VA - DJ Antoine - Live In Bangkok (2008) [MP3|~190 кб/с (V2)]<Electro House / House / Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Antoine - Back From The Tour 2:25
-02. DJ Antoine - December (Original mix) 3:05
-03. DJ Antoine - Bangkok Street Party (Every Sensation) (Original mix) 3:08
-04. DJ Antoine - On My Way (Original mix) 3:42
-05. Remady "P&R" - I"m Not A Superstar (Mr.Pink remix) 2:50
-06. DJ Antoine - One Night In Bangkok (Original mix) 3:12
-07. DJ Antoine - Figaro (Original mix) 2:59
-08. Remady "P&R" - What Ever (Gated Vocal edit) 2:38
-09. DJ Antoine - Don"t You Hide (Original mix) 3:25
-10. DJ Antoine vs Mad Mark - Be Yourself (Original mix) 5:05(   Читать дальше...   )Жанр: Electro House / House / Progressive HouseПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879645B879D43D5DFC777C5E8C3E8D3AE09D6A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388171   (463248) от 15.09.2011
-
-DJ Грув - Я верю (2011) [MP3|320 kbps]<Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поздно (feat. Александр Маршал)
- 02. Я верю (feat. Иракли & Гарик DMC B)
- 03. Неминуема (feat. Loc Dog & Phil Shabin)
- 04. Все вместе (feat. Корни)
- 05. Так и знай! (feat. Audio Girls)
- 06. I Can' Take
- 07. Мир без любви 2010 (feat. DJ Sandra)
- 08. My love (feat. Audio Girls)
- 09. Rain
- 10. Sasha WTF?(   Читать дальше...   )2011Жанр: Progressive House, Electro HouseПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB32FEE49481390CC12CED9A290512E575938180
 ```
 
 https://mybot314.ru/tekegram_catalog/

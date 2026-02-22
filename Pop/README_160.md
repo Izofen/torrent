@@ -1,3 +1,125 @@
+###  Публикация: 809257   (588339) от 31.07.2014
+
+K.B. Caps - Catch Me Now I'm Falling (2005) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Really Need Me? (maxi mix)
+02. Catch Me Now I'm Falling
+03. Julia (maxi mix)
+04. Dancing In The Dark
+05. Angel Of The Dreamland (extended version)
+06. Wait, Baby, Wait
+07. Do You Really Need Me? (original version)
+08. Julia (funk b-mix)
+09. Catch Me Now I'm Falling (instrumental)
+10. Dancing In The Dark (crazy version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA502B0D44C9C79436174333E9FDAFDAEEA09D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918180   (587993) от 14.07.2015
+
+Life In Film - Here It Comes (2015) Deluxe Version [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alleyway
+02. Set It Off
+03. Are You Sure?
+04. Lose Control(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0239846A9DF7968B5E4E56F766E70416306617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918184   (587987) от 14.07.2015
+
+VA - Super Vara 2015 (2015) [FLAC|image + .cue]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587987.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+
+01.Amna feat. Glance - Evacuat (4:16)
+02.Anda Adam feat. CRBL - Seri de mai (3:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F317E36127C418FC4C401BB5899FE67238918C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918249   (587938) от 14.07.2015
+
+VA - Women’s Stories (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sade – Smooth Operator
+02. Annie Lennox – Why
+03. Beverly Craven – Promise Me
+04. Celine Dion – My Heart Will Go On(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FC6EDC1B4229AC59193BD4DF0665BBF52257D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918307   (587869) от 14.07.2015
 
 Kim Wilde - Love Blonde - The Best Of (1993) Compilation [FLAC|image + .cue]<Pop, New Wave>
@@ -661,122 +783,6 @@ VA - The Original Masters, Vol. 4 (The Music History of the Disco) (2016) [MP3|~
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F70740C18D6B325B3769431FF445A5EE16987420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552160   (585835) от 22.05.2022
-
-VA - The Original Masters, Vol. 6 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muscle Shoals Horns - Break Down (3:41)
-02. Brooklyn Express - Hollywood Party (6:13)
-03. Cissy Houston - Think It Over (7:59)
-04. Glitter Band - Makes You Blind (5:04)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A35959F7AFFF15F87EAADA9713DC744AAB5FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917891   (585796) от 16.07.2015
-
-Фристайл - Юбилейный №10 (2014) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Московская любовь
-02. Давайте выпьем за мужчин
-03. Листок календаря
-04. Капелька(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A30CE135C32933671143CD719C4B8EE1C38658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552856   (585792) от 22.05.2022
-
-VA - DMC Halloween In The Mix (Classic Mixes) (Volume 1) (2019) [MP3|320 Kbps] <Electronic, Synth-pop, Dance-pop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Jackson - Thriller (Dmc 2019 Remix) (Remixed By Keith Mann)
-02. Various - Halloween Party Hits (2019) (Mixed By Dj Ivan Santana)
-03. Christina Aguilera Fe. Nile Rodgers Vs Ray Parker Jr. - Telepathy Vs Ghostbusters (Dj Ivan Santana)
-04. Various - Halloween (Michael Myers Theme Song) (Halloween 2018 40th Anniversary Mix) (Mixed By Kevin Sweeney)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Dance-pop, PopПродолжительность: 01:18:14 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0CC2B72321811D498529A9BFA28CC38330E91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552168   (585786) от 22.05.2022
-
-VA - The Original Masters, Vol. 12 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brock Landers - Angels Live in My Town (7:50)
-02. Afro Cuban Band - Something's Gotta Give (5:28)
-03. Disco Spectacular - Aquarius, Let the Sunshine In (9:11)
-04. Billy Frazier and Friends - Billy Who (6:42)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B69D50D44E5B4AAF1DFCFBAD541DAA8573A1845
 ```
 
 https://mybot314.ru/tekegram_catalog/

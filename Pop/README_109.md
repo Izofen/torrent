@@ -1,3 +1,119 @@
+###  Публикация: 1127805   (730617) от 22.04.2017
+
+VA - Первый танцевальный, Vol.12 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LP - Other People (Swanky Tunes & Going Deeper Remix Radio Edit)
+02. Nyusha - Always Need You
+03. The Parakit - When I Hold You (feat. Alden Jacob; Radio Edit)
+04. Burito - По волнам (S.p.l.a.s.h Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A25D2C315E2A21041545958E8E23F42F2E2D156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127775   (730474) от 22.04.2017
+
+VA - Первый дачный, Vol.3 (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Денис Клявер - Необыкновенная
+02. Нюша - Тебя любить
+03. Денис Майданов - Что оставит ветер
+04. Алексей Воробьёв - Самая красивая(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22072955AA2F32308F6D2917081075304568DB17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 666869   (730137) от 10.06.2013
+
+Black - Wonderful Life (2013) Expanded Edition, 2CD [FLAC|image + .cue]<Pop, Synth-pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_730137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful Life [04:50]
+02. Everything's Coming Up Roses [04:08]
+03. Sometimes For The Asking [04:11]
+04. Finder [04:15](   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:53:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283919   (729957) от 20.02.2019
+
+VA - 100 Hits: The Girls (2018) 5CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729957.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Anastacia - Left Outside Alone
+02. Pink - Just Like A Pill
+03. Rita Ora - I Will Never Let You Down(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F6BDED2D9F6AA740FF8181DEC2CD468588BED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022187   (729886) от 01.06.2016
 
 Roberta Kelly - 5 Albums (1976-1981) [MP3|320 кб/с] <Electronic, Disco, Soul>
@@ -626,122 +742,6 @@ Texas - Jump On Board (2017) [FLAC|Lossless|image + .cue] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81363537BAF79EA0412218B227FF8218D85590BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022773   (727361) от 03.06.2016
-
-Roxette - Good Karma (2016) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Dontcha?
- 02. It Just Happens
- 03. Good Karma
- 04. This One(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898A3D86BC92C20FA32A8DF68D11DBF22EBC536A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022755   (727243) от 03.06.2016
-
-Roxette - Good Karma (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Don'tcha? (2:45)
-02. It Just Happens (3:46)
-03. Good Karma (3:19)
-04. This One (3:11)(   Читать дальше...   )Жанр: Pop, Rock, Pop Rock, Soft RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4441E12694DF9D2DDD9017C8EDB892E1AE4220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023392   (726701) от 04.06.2016
-
-Vanessa Daou - Make You Love (2000) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You (3:52)
-02. A Little Bit of Pain (2:55)
-03. Mess Around (3:52)
-04. Make You Love (4:26)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E806772A3CE08FEE1A1BD8D8BF6AA29747299D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023306   (726689) от 04.06.2016
-
-David Christie - The Best Of (1994) [MP3|320 кб/с] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saddle Up ( 5:47)
-02. Our Time Has Come ( 3:19)
-03. Lazy Love ( 3:03)
-04. Stress ( 3:51)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3EEDE05A33384845900A22976E3A682280718D
 ```
 
 https://mybot314.ru/tekegram_catalog/

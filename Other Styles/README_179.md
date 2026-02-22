@@ -1,3 +1,32 @@
+###  Публикация: 1519716   (147092) от 25.12.2021
+
+Blackmore's Night - Winter Carols (2006) Deluxe Edition, Remastered, 2021, Ear Music [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coventry Carol
+02. Deck The Halls
+03. God Rest Ye Merry Gentlemen
+04. Oh Christmas Tree(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36381591E3BE4018B21762B2DD28279CBBBF3759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271690   (147074) от 25.12.2018
 
 Johnny Cash - More Cash (2018) [MP3|320 Kbps] <Country>
@@ -745,35 +774,6 @@ David Arkenstone - Celtic Chillout (2010) [FLAC|Lossless]<New Age, Lounge, Celti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7666DD192AA59DD5E14A9C95D60D76929009B9A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087216   (144324) от 28.12.2016
-
-Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Score, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Initiation / Intro Running (02:38)
-02. Execution Onwards (02:39)
-03. Abstergo Rooftop (04:18)
-04. The Animus Room (04:41)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FCC4FF5C72A61ECBBF2BDCB6AC96367745B303F
 ```
 
 https://mybot314.ru/tekegram_catalog/

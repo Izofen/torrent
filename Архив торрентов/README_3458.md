@@ -1,3 +1,32 @@
+###  Публикация: 1060531   (455181) от 07.10.2016
+
+Лион - Улицы знают правду (2016) [MP3|320 Kbps] <Rap, Hip-Hop instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455181.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Улицы знают правду (Feat. Sonya/The Erised)
+2. Шальная прямая (Feat. Darom Dabro)
+3. Моя музыка (Feat. Sonya/The Erised)
+4. Азбука (Feat. Нигатив/Триада )(   Читать дальше...   )Жанр: Rap, Hip-Hop instrumentalПродолжительность: 00:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041E57E80B8D6CE50063EF92DDEA79E4D461FA49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060593   (455179) от 07.10.2016
 
 Mozilla Thunderbird 45.4.0 Portable by PortableApps [Ru]
@@ -672,32 +701,6 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44D2CE130991A2A6B3BC47A3CDE60AB927D07194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569038   (454908) от 11.08.2022
-
-Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5278.1000 VL (x86) RePack by SPecialiST v22.8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1378D736146673709F4C6D7190E6EBEBD1A58FAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

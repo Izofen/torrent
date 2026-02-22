@@ -1,3 +1,119 @@
+###  Публикация: 1109310   (858660) от 27.02.2017
+
+VA - The Best Disco '80 (Syndicate) (1980) Unofficial Release [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Ocean - Stay The Night (4:01)
+02. La Flavour - Mandolay (6:21)
+03. Lipps, Inc. - Funky Town (8:08)
+04. Ottawan - You're O.K. (5:13)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F25E9D2D0CD3CC0A9DDF4F39219802C89693AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319179   (858120) от 18.04.2020
+
+Bad Boys Blue - In The Mix (80s Best) (2002) [FLAC|Lossless|tracks + .cue]<Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Woman (Maxi Version)
+02. Pretty Young Girl (Extended Version)
+03. Kisses And Tears (Remix 1994)
+04. I Wanna Hear Your Heartbeat - Sunday Girl (Maxi Version)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592E1BB83B548F97247FD39A08B23AB8249E81F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000596   (857502) от 26.03.2016
+
+Masha Qrella - Keys (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ticket To My Heart
+02. Pale Days
+03. Keys
+04. Simple Song(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, ElectronicПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A47D5663A979ED2B85C8C9E3290BB71EC284CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000839   (857498) от 26.03.2016
+
+Ardis - Love Addict (1994) [APE|Lossless|image + .cue] <Electronic, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayer For Africa [03:41]
+02. Sweet As Candy [04:00]
+03. Ain't Nobody's Business [03:12]
+04. Fugitive [03:21](   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA54DA67BB4CE9106F990009F976DF8FBEA5AA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000679   (857444) от 26.03.2016
 
 Cosmic Gal - Keep On Moving (1979) LP [MP3|320 кб/с] <Electronic, Pop, Disco>
@@ -630,119 +746,6 @@ Tokio Hotel - Dream Machine (2017) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2687E615736FE6183F8BC6F9EDA023C8F56F2DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110298   (853677) от 02.03.2017
-
-VA - Disco Fox 80 Vol.7 (The Original Maxi-Singles Collection) (2016) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  T. Ark - Under Cover Lover (12'' Version)  6:13
-02.  Bad Boys Blue - Hungry For Love (12'' Version)  5:57
-03.  Mike Mareen - Dancing In The Dark (Galactica Remix)  7:09
-04.  The Twins - Time Will Tell (Dance Mix)  6:50(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393EBAE5576856B6CBC05E6D830197DBDC6DAE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109797   (853594) от 02.03.2017
-
-Артём Пивоваров - Дискография (2013-2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 02:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7BEE1E04B786353D594BB88C6A13B1155B8553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377207   (853567) от 21.04.2020
-
-Marc Almond - Chaos and a Dancing Star (2020) [FLAC|Lossless|tracks + .cue] <Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sunrise                                                         [05:45]
-02. Hollywood Forever                                                     [04:50]
-03. Chevrolet Corvette Stingray                                           [03:54]
-04. Dust                                                                  [04:35](   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 01:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C01B81FF64B5E90A87D2B0A742F2B699304ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769909   (852983) от 24.03.2014
-
-Belinda Carlisle - A Woman & A Man (1996) [FLAC|Lossless] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  In Too Deep   (4:06)
-02.  California   (2:59)
-03.  A Woman And A Man   (5:12)
-04.  Remember September   (4:33)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DD5A536727A4C03C3E7FA6605D9107CF9825CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

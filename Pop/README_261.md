@@ -1,3 +1,90 @@
+###  Публикация: 1835294   (250972) от 05.11.2025
+
+Kristian Torgalsen - 2 Albums (2023-2025) [FLAC 24/44.1, FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250972.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. Get your mind straight [00:03:14]
+00. I figured it out [00:03:58]
+00. Normal world [00:03:48]
+00. Why the hell should I care [00:02:40](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3414CDB0D79E5DFC88426208B4A141C15EC9B121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835394   (250966) от 05.11.2025
+
+Mylene Farmer - 86-97 Mylene Farmer (2025) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250966.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Maman a tort (nouvelle version)
+02. Plus Grandir
+03. Libertine(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9679A37459452FA883F08E3F35EEF3DA940A6B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835365   (250936) от 06.11.2025
+
+VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Dreams (2018 Remaster) (4:17)
+02. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!) (3:21)
+03. Racey - Boy Oh Boy (2:53)
+04. Tina Turner - Sometimes When We Touch (3:59)(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCAEAE156F971E95586DADEB2B9410B21A7F48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 494611   (250935) от 10.05.2012
 
 Евгений Мартынов - Виниловая коллекция (1975 - 1987) (1975 - 1987) [MP3|320 кб/с]<Ретро>
@@ -681,99 +768,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34C2E46B180666211381642D67DC3C5ED8668397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447545   (246066) от 14.02.2021
-
-Edna B. Jerano - Let Your Feelings Show (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Producer (3:37)
-02. Just A Step Closer (3:34)
-03. Just Because I Love You (2:57)
-04. Devil Dance (3:41)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783ADB2B276F67AB59A2E454382F50AC6316F6D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258410   (246063) от 26.03.2022
-
-Laid Back - Good Vibes - The Very Best Of Laid Back (2008) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe I'm Crazy
-02. Sunshine Reggae
-03. High Society Girl
-04. White Horse
-05. Elevator Boy
-06. One Life
-07. I'm Hooked
-08. It's A Shame
-09. Bakerman
-10. Highway Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EE7CAD665E29F3F652D73A6940B43F5E769248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623311   (246020) от 01.04.2023
-
-Whitney Houston - I Go to the Rock: The Gospel Music of Whitney Houston (2023) [FLAC|Lossless|image + .cue] <Pop, Soul, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безошибочно узнаваемый голос Whitney Houston мощный и неподвластный времени. Она достигла вершины популярности и успеха, став одной из самых опытных исполнителей всех времен. Но ее сердце было отдано gospel'у, стилю который повлиял на всю ее карьеру. Познакомьтесь с той стороной Whitney, которая присуща самой ее душе, с выпуском I Go to the Rock: The Gospel Music (   Читать дальше...   )01. I Go To The Rock (4:05)
-02. Jesus Loves Me (5:12)
-03. He Can Use Me (4:54) (Previously Unreleased)
-04. Joy to the World (4:41)(   Читать дальше...   )Жанр: Pop, Soul, GospelПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6173D805159D66B11F2F2C699F13419C1FDC0F42
 ```
 
 https://mybot314.ru/tekegram_catalog/

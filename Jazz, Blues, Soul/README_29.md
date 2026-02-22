@@ -1,3 +1,90 @@
+###  Публикация: 1453089   (1027115) от 10.03.2021
+
+Willie ''The Lion'' Smith - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woodland Fantasy [2:53]
+02. Let's Mop It [2:53]
+03. Muskrat Ramble [2:46]
+04. Bugle Call Rag [2:52](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD71F219C2891B7887F4295D26CF7ED6E77227F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453251   (1027114) от 10.03.2021
+
+Bud Powell - How High The Moon (1992) Pigeon [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How High the Moon [3:58]
+02. Body and Soul [6:07]
+03. Satin Doll [4:46]
+04. Parisian Thoroughfare [1:58](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A972E8C39EC3A6ACCDDBD3786F4996CD2E589277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453177   (1027043) от 10.03.2021
+
+Harvey Mandel (Snake) - Best of the Janus Years (2020) [MP3|320 Kbps] <Blues Rock, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Batter (03:41)
+ 02. Shangrenade (04:15)
+ 03. Feel the Sound (06:01)
+ 04. What the Funk (03:05)(   Читать дальше...   )Жанр: Blues Rock, Jazz RockПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:125DFBE5101A60DD159EBF524B59CBBD36575C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453553   (1026977) от 11.03.2021
 
 Willie ''The Lion'' Smith - 1950 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
@@ -658,93 +745,6 @@ Chris Shaw - The Blue Lights (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:947DA3D0FB768392D56B0CE405B6350EF6D08DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454760   (1025993) от 17.03.2021
-
-Dena DeRose - I Can See Clearly Now (2000) Sharp Nine Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Should Lose You [4:44]
-02. Detour Ahead [6:37]
-03. I've Never Been in Love Before [4:23]
-04. I Can See Clearly Now [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB31B53B60D2C53572A729DA3E15545CD413353E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454895   (1025985) от 17.03.2021
-
-Dena DeRose - Travelin' Light: Live in Antwerp, Belgium (2010) 2012, MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice 'n Easy [4:27]
-02. 'S Wonderful [4:24]
-03. Two Different Worlds [4:11]
-04. East of the Sun (And West of the Moon) [5:29](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F688FB8413641AAA13F9D87FCD520241796914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454619   (1025969) от 17.03.2021
-
-VA - 50 Rockin' Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZZ Top - Beer Drinkers & Hell Raisers - [3:26]
- 02. Little Feat - Forty-Four Blues - [3:18]
- 03. Kenny Wayne Shepherd - King's Highway (Tom Lord-Alge Remix) - [4:18]
- 04. Brownsville Station - Mama Don't Allow No Parkin' - [3:07](   Читать дальше...   )Жанр: BluesПродолжительность: 03:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDEC22AF70D0DBEF5C619DA50B72F1B0C7BCEAB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

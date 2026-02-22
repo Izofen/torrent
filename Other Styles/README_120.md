@@ -1,3 +1,32 @@
+###  Публикация: 821005   (483701) от 16.09.2014
+
+M83 - Oblivion (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless] <Leftfield, Modern Classical, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack's Dream (01:23)
+  02. Waking Up (04:09)
+  03. Tech 49 (05:59)
+  04. Starwaves (03:41)(   Читать дальше...   )Жанр: Leftfield, Modern Classical, SoundtrackПродолжительность: 01:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EAE96D459D97A55C98194849C41ACCD37846399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938280   (483655) от 17.09.2015
 
 Blackmore's Night - All Our Yesterdays (2015) [MP3|320 кб/с]<Folk, Rock>
@@ -754,35 +783,6 @@ Helen Jane Long - Perspective (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DF6C3EB1FC09F61EFFFEE051FC6CB55CBA45B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244617   (479923) от 02.09.2018
-
-Stephen Rhodes - Pure Angel Healing (2018) [MP3|320 Kbps] <New Agе, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmony in Motion (07:20)
-02. Tearful Moments (08:51)
-03. Stationary Spirits (09:57)
-04. The Pathway of Life (06:39)(   Читать дальше...   )Жанр: New Agе, Relax, MeditativeПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8830FC9B6D55638A1F08FB8FBEF32198F854740F
 ```
 
 https://mybot314.ru/tekegram_catalog/

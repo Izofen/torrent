@@ -1,3 +1,177 @@
+###  Публикация: 1807521   (65169) от 19.07.2025
+
+Abigail Williams - A Void Within Existence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life, Disconnected [00:05:31]
+02. Void Within [00:05:52]
+03. Nonexistence [00:04:32]
+04. Still Nights [00:04:21](   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075938A27F0FEA440FE90441A32F784E4C9E88E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807602   (65165) от 19.07.2025
+
+Maggie Lowe - Comin' in Hott (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Comin' in Hott (4:08)
+02.  Sweet Treat (4:01)
+03.  Ruined (3:47)
+04.  He's Mine (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D73ABBAF90FF8C8B7FE83DBF5F10F9EA6E8155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807598   (65164) от 19.07.2025
+
+Lone - We Came a Long Way (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You Gave Me Stories (3:14)
+02.  Like a Mountain (3:43)
+03.  Jump (3:55)
+04.  We Came a Long Way (4:41)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD4FF9D87B68A2761A99509E744CB43265613F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807605   (65162) от 19.07.2025
+
+Odd Berries - Dark Waters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Black Eyed Woman (3:37)
+02.  Ride (5:14)
+03.  Shake It Down (2:39)
+04.  Be Happy (2:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48EF4A557D7BE80DFBCA78B22340D3890379FE75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807524   (65153) от 19.07.2025
+
+Bush - I Beat Loneliness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scars [00:03:29]
+02. I Beat Loneliness [00:04:23]
+03. The Land of Milk and Honey [00:03:14]
+04. We're All the Same on the Inside [00:03:21](   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D88AB5BDBD291DD0CDEB3B321D514286009117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807404   (65150) от 19.07.2025
+
+Recorruptor - Sorrow Will Drown Us All (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bathe in the Ashes of Heaven [00:01:46]
+02. Sorrow Will Drown Us All [00:04:26]
+03. Bearing the Befouled Spawn [00:04:39]
+04. Within the Vault [00:03:56](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCEC224E6DA35F8A49BB41CDA82E6AD79A8A50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807595   (65149) от 19.07.2025
 
 Chyco Simeon - Future (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -569,180 +743,6 @@ Galactic & Irma Thomas - Audience With the Queen (2025) [FLAC 24/48|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C397C0CE5ACE577E1C49D7FD55F3CC40EA1068B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808142   (65040) от 22.07.2025
-
-Harem Scarem - Chasing Euphoria (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chasing Euphoria (3:32)
-02.  Better The Devil You Know (3:55)
-03.  Slow Burn (3:45)
-04.  Gotta Keep Your Head Up (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348FD5F8408A895F5735B6672C2B402E857E8EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808140   (65039) от 22.07.2025
-
-Gazzara - Criminal Sounds (A Musical Journey Into 1960_70s Cop and Spy Movies) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hung Up On My Baby (Three Tough Guys OST) (5:51)
-02.  Gotcha! (Theme From Starsky & Hutch) (3:05)
-03.  Three Days Of The Condor (4:47)
-04.  Bullitt Main Theme (2:35)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500B9AB9AD7B692A40266A6880D4CD1760904B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808143   (65038) от 22.07.2025
-
-Harry Newcock - My Unexamined Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stars Misaligned (3:15)
-02.  Akai Ito (The Thread Between Us) (3:15)
-03.  The Rented Room (3:15)
-04.  The Beast Under My Bed (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D4C794A7ABB07FC74F290DCD633830EB839A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808074   (65035) от 22.07.2025
-
-VA - 4-й Альбом Супрафона 2 (1966) Partially Mixed, Sampler [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening, Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65035.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Rudolf Cortés - Tiše Den Zhasíná
-A2 Jana Beláková - Lampy Už Dávno Zhasly
-A3 Jiří Popper - Bílou Tmou
-A4 Yvonne Přenosilová - Mě Se Líbí Bob(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 00:28:5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6867976673CE29AEC16CC887766E8F41E3CBD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808052   (65031) от 22.07.2025
-
-Dio - Lock Up The Wolves (1990) Reissue, 2021, Vertigo [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65031.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Wild One
-A2. Born On The Sun
-A3. Hey Angel
-B1. Between Two Hearts(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1714BC883CFB7745D916978CBB72608436C162E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808153   (65028) от 22.07.2025
-
-Christophe Deschamps, Philippe Almosnino - Go Cats Go Rockabilly (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rockabilly>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just A Rose [00:02:13]
-02. Slowly Softly Gently [00:02:38]
-03. La Bamba [00:02:14]
-04. Maggy [00:01:57](   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21EF06A8B2ED29DEABBFB19F67E9476956A323F
 ```
 
 https://mybot314.ru/tekegram_catalog/

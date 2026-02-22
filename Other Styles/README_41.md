@@ -1,3 +1,32 @@
+###  Публикация: 783854   (874193) от 09.04.2020
+
+Troika (David Arkenstone) - Shaman (2000) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling (7:14)
+02. Vision Quest (6:21)
+03. Crossing the Light (6:00)
+04. Other World (6:43)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C4F966F89DF960DAF2147DA5640FA9AA38ED3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 791724   (874132) от 09.04.2020
 
 David Arkenstone - Citizen of the World (1999) [FLAC|Lossless]<New Age>
@@ -751,35 +780,6 @@ Sarah Patterson - Buddhasongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Wor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A406732959A4E7C5FD8AE63ACF7E6F4EDF772C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106831   (871391) от 20.02.2017
-
-2002 - Celtic Fairy Lullaby (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seoithín Seo Hó Gartan Mother's Lullaby
-02. Cariad
-03. Bí Thusa Mo Shúile
-04. Away from the Roll of the Sea(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23EAF3FFF7DD4436495704E6EF134AA11F9CECDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

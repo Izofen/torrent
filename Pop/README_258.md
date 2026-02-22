@@ -1,3 +1,90 @@
+###  Публикация: 1193455   (262134) от 21.12.2017
+
+Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Verità (05:02)
+02. Luomo Nero (04:28)
+03. Canzone Contro La Paura (03:44)
+04. Lamezia Milano (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4ACB198147C457E1AFB24F337D5B511C425599C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193594   (262120) от 21.12.2017
+
+VA - Italo Disco: The Lost Legends Vol.6 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Demode Boulevard  -  The Height Of The Fighting  5:15
+02.  Black Tie  -  Double Time  4:58
+03.  Three Of You  -  Grace  6:03
+04.  Bobby J.  -  Number One  5:05(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A284DE6511A9C0C3E22A1284DCA3BC91F02B274B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193646   (261957) от 22.12.2017
+
+Mistral - Best Of Mistral 1977-80 (2012) Compilation [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект от Kid van Ettinger, Rick Van Der Linden, Robbie van Leeuwen с привлечением различных популярных вокалисток. Так в создании "Neon City" приняла участие Mariska Veres из  "Shocking Blue". В компиляцию вошли все синглы проекта.01. Jamie (3:51)
+02. Starship 109 (3:02)
+03. Neon City (2:48)
+04. You're My Hero (3:25)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED2A610FE101A2811DD3D129AF1C73E4D538DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193844   (261890) от 22.12.2017
 
 VA - Новый русский хит 2 (2017) [MP3|320 Kbps] <Pop>
@@ -664,99 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8345051B2EE441D2E7752DFB2D01A3695F7ED237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838630   (260557) от 24.11.2025
-
-VA - 20s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ROSÉ - APT. (2:49)
-02. Ed Sheeran - Sapphire (2:59)
-03. Dua Lipa - Dance The Night (From Barbie The) (2:56)
-04. Alex Warren - Ordinary (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 04:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A13531AE8BF4775F8A0517D20672B981E0E090F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838259   (260055) от 22.11.2025
-
-Tina Turner - Good Hearted Woman (1979) Remaster, 2025, Explore Rights Management LTD [FLAC 24/96|Lossless|WEB-DL|tracks] <Country, Pop, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay It Down  (2025 Remaster) [00:03:38]
-02. Lovin' Him Was Easier  (2025 Remaster) [00:04:23]
-03. Good Hearted Woman  (2025 Remaster) [00:03:30]
-04. If This Is Our Last Time  (2025 Remaster) [00:03:24](   Читать дальше...   )Жанр: Country, Pop, BluesПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4886857F613013A435C6D35D2A23A42B8C51DF34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502917   (259313) от 29.05.2012
-
-Olly Murs - In Case You Didn't Know (2011) [MP3|320 кб/с]<Dance-Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Skips a Beat (feat. Rizzle Kicks)
-02. Oh My Goodness
-03. Dance With Me Tonight
-04. I've Tried Everything
-05. This Song Is About You
-06. In Case You Didn't Know
-07. Tell the World
-08. I'm Ok
-09. Just Smile
-10. On My Cloud(   Читать дальше...   )Жанр: Dance-PopПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F9F392C11ED3BAFDA5EA43661926426086822F
 ```
 
 https://mybot314.ru/tekegram_catalog/

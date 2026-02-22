@@ -1,3 +1,264 @@
+###  Публикация: 1667000   (178439) от 06.10.2023
+
+Salacious Gods - Oalevluuk (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise, Oh Horned One, Rise! (4:41)
+02. Morbid Revelations in Blood and Semen (6:00)
+03. Bloedkloete (4:59)
+04. Devotion (7:52)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E8B31E95474D474DBF4DB2A9B64011FD7C1B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666854   (178433) от 06.10.2023
+
+Unheilig - Puppenspiel Live - Vorhang Auf! (2008) 2CD [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vorhang Auf
+02. Puppenspieler
+03. Spiegelbild
+04. Astronaut(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 01:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06EDD72C0AD028CB9047354D16801B650C7ABF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666985   (178429) от 06.10.2023
+
+Iron Altar - Promethean (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Moderm Metal, Technical Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End [00:05:04]
+02. Hunted [00:05:01]
+03. Mortality [00:05:53]
+04. Path To Empyrean [00:05:19](   Читать дальше...   )Жанр: Groove Metal, Moderm Metal, Technical DeathПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5BCA5ADAB62DFBBC5D0ADFE1863CA33791C945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666993   (178426) от 06.10.2023
+
+Lunar Tombfields - An Arrow To The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Elegy to the Fog Dancer (3:01)
+02. Solar Charioteer (9:17)
+03. Représailles (9:02)
+04. As Iron Calls, So Pile the Dreams (8:39)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030D5F57E8A95ED0DBEBCC99376CC67C20888FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666857   (178419) от 06.10.2023
+
+Unheilig - Danke! Ein Letztes Mal - Live (2016) 2CD [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Berg
+02. Hinunter Bis Auf Eins
+03. Winter
+04. Als Wars Das Erste Mal(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 01:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F29515A4AB9E3EEA17DABED2A07FC9494F51D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666887   (178396) от 06.10.2023
+
+Epica - Live At AFAS Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unleashed (6:01)
+02. The Skeleton Key (5:16)
+03. Rivers (4:59)
+04. Code of Life (6:15)(   Читать дальше...   )Жанр: Symphonic metalПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233D74A263EF4637E255EC61BCB048A6E44F2DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428913   (178388) от 04.12.2020
+
+Ellefson - No Cover (2020) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178388.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Freewheel Burning (Judas Priest cover)
+02. Tear It Loose (Twisted Sister cover)
+03. Love Me Like A Reptile (Motorhead cover)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A650105B9432A5E1F123F122F35FEA6850109BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666719   (178365) от 06.10.2023
+
+Carnifex - Necromanteum (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Torn In Two (3:53)
+02. Death's Forgotten Children (4:10)
+03. Necromanteum (4:27)
+04. Crowned In Everblack (4:35)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625285BD474EE7CF619E099CCA25C2CEDF5687D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666893   (178330) от 06.10.2023
+
+Unheilig - Als Musik Meine Sprache Wurde (2013) Digipack 5CD [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Auf Ein Wort
+02. Komm, Setz Dich Zu Mir
+03. Ohne Worte
+04. Der Vorhof Zur Holle(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 06:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D7C5A24BE2C37BB39482980DEF077857B41AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594490   (178263) от 01.12.2022
 
 Anomaly - Planet Storm (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
@@ -484,267 +745,6 @@ Dr.X - Music as Soul Assistance (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:645AB4931088F33D5665F0DC5AFD6BF4AACC57FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594583   (177996) от 01.12.2022
-
-Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super Trouper (4:12)
-02. Gimme! Gimme! Gimme! (a Man After Midnight) (4:32)
-03. SOS (3:01)
-04. Head over Heels (3:40)(   Читать дальше...   )Жанр: Neoclassical, Power Metal, Female VocalПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D308A4839E0393188195077216939F86EE65FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594542   (177975) от 01.12.2022
-
-Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Neoclassical, Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super Trouper (4:12)
-02. Gimme! Gimme! Gimme! (a Man After Midnight) (4:32)
-03. SOS (3:01)
-04. Head over Heels (3:40)(   Читать дальше...   )Жанр: Neoclassical, Power Metal, Female VocalПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225E4D5BE082DD301F4AEE79D0CADC6AFE6D1EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594589   (177898) от 01.12.2022
-
-Heathen Foray - Weltenwandel (2020) [FLAC|Lossless|image + .cue] <Melodic Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schicksalsknecht
-02. Essenz
-03. Tanz
-04. Verfall(   Читать дальше...   )Жанр: Melodic Viking MetalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1298D6E613769A3EE1E49487C61F45B7C5F5F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667125   (177739) от 07.10.2023
-
-Graveyard of Souls - Infinitum Nihil (2015) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nada es eterno (02:48)
-02. Poison in the Mouth of God (06:34)
-03. My New World (07:12)
-04. Mirrors of Pain (06:47)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20AE6A53F02F472DFA93E967BB63C2FB02BC75EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667166   (177736) от 07.10.2023
-
-Graveyard of Souls - Todos los caminos llevan a ninguna parte (2016) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Todos los caminos llevan a ninguna parte (07:08)
-02. Frío (07:35)
-03. In Lost Dimensions (05:51)
-04. Where? (06:33)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267DCACC5D2A92BC4C8FD0AFC4248AA15E0534D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667270   (177734) от 07.10.2023
-
-Saltatio Mortis - Erwachen (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hor Die Trommeln
-02. Falsche Freunde
-03. Lass Mich Los
-04. Traumreise(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4539953F8E0BDA237279E4D86ACD3B2A369D7BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667248   (177731) от 07.10.2023
-
-Quantum Void - Escaping Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Void 01:14
-02. Out of the Void 05:26
-03. Insidious Bane 07:57
-04. Old Enemy 05:49(   Читать дальше...   )Жанр: Progressive, Thrash MetalПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9C35F24B62014A03C1DC0BD8C2E9349CEA25A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667263   (177729) от 07.10.2023
-
-Saltatio Mortis - Das Zweite Gesicht (2002) [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Junges Blut
-03. Heuchler
-04. Dunkler Engel(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D886D77E8D76F888551A39B87723E20760FD3E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667280   (177726) от 07.10.2023
-
-Saltatio Mortis - Des Konigs Henker (2005) [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Des Konigs Henker
-02. Salz Der Erde
-03. Rette Mich
-04. Verfuhrer(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFA30460585500BE72A817C3F4B9A7AA38ED37E
 ```
 
 https://mybot314.ru/tekegram_catalog/

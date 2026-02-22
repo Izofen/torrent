@@ -1,3 +1,32 @@
+###  Публикация: 919942   (581121) от 21.07.2015
+
+Keith Jarret - The Carnegie Hall Concert (2006) [FLAC|image +.cue]<Jazz, Avant-Garde Jazz, Modern Creative, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part VI (06:51)
+02. Part VII (08:35)
+03. Part VIII (05:20)
+04. Part IX (08:26)(   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Modern Creative, Free ImprovisationПродолжительность: 01:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6815566B5FA40380FC3A30D0D2B6C2D3FD6EF3DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920100   (581051) от 21.07.2015
 
 Shakatak - The Magic Of Shakatak (2015) [FLAC|Lossless]<Smooth jazz>
@@ -727,35 +756,6 @@ John Lamb - Conversations: North of the Border (2010) [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA8B092000BF0538661884544C1DA96D8879C882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150897   (578135) от 16.07.2017
-
-The David Hazeltine Trio - The Jobim Songbook in New York (2007) Chesky Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamer [06:45]
-02. Once I Loved [06:31]
-03. Meditation [05:27]
-04. Quiet Nights [04:38](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C45A2B8C6703E84EC5EB72F4F9816560AF5A663
 ```
 
 https://mybot314.ru/tekegram_catalog/

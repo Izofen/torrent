@@ -1,3 +1,38 @@
+###  Публикация: 380130   (500876) от 26.08.2011
+
+Альфа (Сергей Сарычев) - Гуляка (1983) [APE|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гуляка [3:20]
+02. Расклейщик афиш [4:21]
+03. Привычка [3:53]
+04. Шторм [5:22]
+05. Нет звезд на свете... [7:35]
+06. И опускался в сердце мой покой... [3:34]
+07. Икар [3:59]
+08. Бесконечность [3:19]
+09. Гонка ( 1-й вариант ) [5:15]
+10. Театр [5:26]Жанр: RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564231   (500586) от 18.07.2022
 
 Джоконда - Каждый охотник желает знать (2021) [FLAC|Lossless|image + .cue] <Symphonic Rock, Female Vocal>
@@ -744,35 +779,6 @@ VA - Детский сад. Штаны на лямках (2002) [FLAC|lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A6245B36E85D988244E36F2E79001059B17764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567634   (470191) от 04.08.2022
-
-Amatory - Книга мертвых (2006) Reissue, 15th Anniversary Edition, 2022, Self-Released [FLAC|Lossless|tracks + .cue] <Metalcore, Nu Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Помнишь? (1:22)
-02. Семь шагов (3:30)
-03. Здесь и сейчас (4:19)
-04. Снег в аду (3:24)(   Читать дальше...   )Жанр: Metalcore, Nu Metal, Alternative RockПродолжительность: 03:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A999C2A61828719644B834413CF8ECDFBB30F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

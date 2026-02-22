@@ -1,3 +1,90 @@
+###  Публикация: 1085603   (156334) от 22.12.2016
+
+VA - ZYX Italo Disco New Generation Bootmix 1-4 (2013-2016) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156334.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZYX Music — студия звукозаписи (лейбл), основанный в Германии в 1971 году Бернхардом Микульски. До 1992 года лейбл носил имя Pop-Import Bernhard Mikulski. Лейбл специализировался в диско и ранней хаус-музыке. Основатель студии Бернард Микульски вкладывал средства в итало-диско в 80-е годы. В 1997 году, после смерти Бернхарда, студия перешла его вдове Кристине Микульски. (   Читать дальше...   )2013 - ZYX Italo Disco New Generation Bootmix 1
+01. Dyva - Joy (2:57)
+02. Dario - All The Night (2:21)
+03. Miko Mission - Let It Be Love (2:04)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 03:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158EEECE9E3B5D8AC9E73798C585D92BDA772BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085695   (156282) от 22.12.2016
+
+Блестящие - Best 20 (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Там, только там
+02. Цветы
+03. Облака
+04. Ча-ча-ча(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F77AC3309B7A64719B168D8F38981589ACEC543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085813   (156058) от 22.12.2016
+
+Dschinghis Khan - Greatest Hits (2012) Compilation, 2CD [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocking Son Of Dschinghis Khan (4:22)
+02. Temudschin (3:25)
+03. China Boy (4:07)
+04. Pistolero (4:21)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5C402D5F11487CFE62C7B8D7C774A5C4C365B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968039   (156034) от 23.12.2015
 
 Boney M. - Hit Collection (1996) 3CD Box, Compilation [FLAC|Lossless|tracks + .cue] <Disco>
@@ -659,92 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF7E6E55194C4BF0E2ECE068BF66C70F98B69340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676920   (154721) от 15.11.2023
-
-VA - Hit News Vol. 3/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  2 Unlimited - Here I Go
-02.  Sabrina - Angel Boy
-03.  Masterjam - I Wanna Know
-04.  Hyena - Naked In The Rain(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C3FAE67723BC99A15796A31F30CAA92A64097A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676954   (154654) от 15.11.2023
-
-VA - Hit News Vol. 4/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cartouche - Touch The Sky (Remix)
-02.  Osmania - Face Of A Stranger
-03.  Moratto - Warriors
-04.  Laurae - Vita Spericolata(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD70E5FE7CCBBC2A83D85AAC669902E22B23FDFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271017   (154538) от 21.12.2018
-
-Run 4 Fun - Please Don't Talk To Jessica (1994) Maxi-Single [APE|Lossless|image + .cue] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Don't Talk To Jessica (3:43)
-02. Please Don't Talk To Jessica (Remix) (5:45)
-03. Dancing With Somebody (4:15)Жанр: Pop, EurodanceПродолжительность: 00:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6402C45945644A363B0566FAE15E5AF4BB824B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1297065   (606807) от 20.04.2019
+
+Kool Keith - Controller of Trap (2018) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-Hop, Underground Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Be Shy (3:07)
+02. Bottle Pop (3:51)
+03. Life Is Hard (3:34)
+04. Mug Up (4:54)(   Читать дальше...   )Производство: Ocean Ave RecordsЖанр: Rap, Hip-Hop, Underground Hip-HopПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E1FCFD14F305355E8F3D1E5852FD8DBB53406F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231313   (606779) от 17.06.2018
+
+VA - Sexy Soul R&B For Late Night Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get It Right - Teedra Moses 03:24
+02. Nothin' On You - Marques Houston 02:53
+03. I Wanna Ta-Ta You Baby - Leela James 03:48
+04. Can't Let Go (Acoustic) - Calvin Richardson 04:04(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B8914338D66AE5071074C7FE17E9C86E0F8EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546425   (605933) от 24.04.2022
 
 TRUEтень, Красное Дерево - Кадык (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -684,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC2E19EA7634B383E5DC21706FD25BB2688E51A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235225   (562148) от 10.07.2018
-
-Johnyboy - Вне времени (2018) [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. На всю башку
-03. Русский рижанин
-04. Не надо учить(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87655193EF3B9D1FD38C1978BD83184CE60510AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152860   (561324) от 25.07.2017
-
-Соль Земли - О лютой ненависти и святой любви (2017) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - С менталитетом меченосца
-02 - День когда вскипят океаны
-03 - Боевое применение
-04 - Интерлюдия 1  (Уильям Блейк)(   Читать дальше...   )Жанр: RapПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96BAED95E71990E3ECB00D8FF23A924FE8B46E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

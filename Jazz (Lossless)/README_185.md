@@ -1,3 +1,32 @@
+###  Публикация: 1316640   (504235) от 28.07.2019
+
+Gene Ammons - Groove Blues & The Big Sound (1958) 2СD, 2003, Азбука Звука [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504235.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- Groove Blues:
+01. Ammon Joy [13:20]
+02. Groove Blues [9:35]
+03. Jug Handle [10:12](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1E8A3F2EAC4BB14A5FB34AC3F1E73654CF0D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934218   (503768) от 04.09.2015
 
 Taylor Cook - The Cook Book (2015) [FLAC|tracks+.cue]<Mainstream Jazz>
@@ -725,35 +754,6 @@ Max Roach Double Quartet - Easy Winners (1985) Soul Note [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CB6E0C0F7983CC7A5EF1EC989D4868C23481D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564651   (499668) от 19.07.2022
-
-V.A. - The Power of Love Soulful Easy Jazz Instrumentals (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Fade into the Sunset
-02. eJazz Artistry - I Can't Stop Loving You
-03. Chillaxonic - Dream into Reality
-04. Kool&Klean - Share My Life(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E1B02D3159D000DB654A6366FC77DC5EDD01CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

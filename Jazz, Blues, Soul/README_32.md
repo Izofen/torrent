@@ -1,3 +1,90 @@
+###  Публикация: 1459548   (1023125) от 02.04.2021
+
+Swingrowers - Hybrid (2021) Japan [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Blink Of An Eye (Intro)
+02. Hybrid
+03. Follow The Stars
+04. Seven Million Faces(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48B603C97A2FCF6C6C8EFDBA94D3463B16C27EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460179   (1022824) от 04.04.2021
+
+Swingrowers - Hits & Remixes (2017) Japan [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pump Up The Jam (feat. The Lost Fingers)
+02. Kiawami (Skeewiff remix)
+03. The Queen of Swing (feat. Gypsy Hill)
+04. Midnight(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBCFF45817EFAA838ADEE6ED185590BAD203D8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460369   (1022618) от 05.04.2021
+
+Chet Baker - Sings Again (1985) 2020, Solid Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All of You [4:45]
+02. Body and Soul [6:34]
+03. Look for the Silver Lining [3:57]
+04. I Can't Get Started [6:57](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Vocal JazzПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154766BDDE8A56540CC082718C48EB672BF16C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460288   (1022612) от 05.04.2021
 
 The Sassy Swingers - So Sassy (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Swing>
@@ -658,93 +745,6 @@ Yaniv Taubenhouse - Perpetuation: Moments In Trio, Vol.II (2019) Fresh Sound Rec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36BAD88D6F63EE57B0B20375DFCBB7582C8E7963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461828   (1021598) от 11.04.2021
-
-V.A. - Women Of Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etta James – At Last
-02. Norah Jones – Don’t Know Why
-03. Nina Simone – Feeling Good
-04. Ella Fitzgerald – Mack The Knife (Live)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40649C02F49FB3AA59B7B5A6F2C6F44A4E786CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461790   (1021540) от 11.04.2021
-
-Black Lung Lucy - Black Lung Lucy (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thousand Men (3:22)
-02. Watch Me Bleed (3:52)
-03. Lana (4:22)
-04. Right by Me (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA321DC43209E061B03B4DAF075C5D980B1EC63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461792   (1021536) от 11.04.2021
-
-Jim Preen - Cat in the Spirit House (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shopping for Clothes (3:39)
-02. Big Red Cars (3:28)
-03. Armani Suit, New Guitar (3:12)
-04. Framed (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943FDC1531F86DF3AAF8E74ABE417AF02EF646C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

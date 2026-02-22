@@ -1,3 +1,87 @@
+###  Публикация: 1030616   (672406) от 01.07.2016
+
+The Cheaters - Train to Wilderness (2008) [FLAC|Lossless|image + .cue] <British Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Hip GirlЖанр: British Blues-RockПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB56D61031C945045F0D042F5CB8DCD0328A4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030775   (672405) от 01.07.2016
+
+Tim Bowman - Paradise (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Of Love [04:55]
+02. Paradise [04:49]
+03. The Only One [04:41]
+04. I'll Never Forget [04:51](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F42A6B964C9393607D64C9D5779E73CFD1CC362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291103   (672323) от 23.03.2019
+
+Robin Trower - Coming Closer To The Day (2019) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diving Bell
+02. Truth Or Lies
+03. Coming Closer To The Day
+04. Ghosts(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6909963E86A06F16DEB4ED3CFE3179B41DAF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291134   (672231) от 23.03.2019
 
 Konstantin Klashtorni - Kool&Klean (Volume VIII) (2019) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
@@ -658,96 +742,6 @@ Ben Poole - Let’s Go Upstairs (2012) [FLAC|Lossless|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DFBEAF3D878A67441A0DF618A53A1CDDAECCAEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030833   (670256) от 02.07.2016
-
-Greg Howe - Sound Proof (2008) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - Emergency Exit
-03 - Tell Me Something Good
-04 - Connoisseur Part 1(   Читать дальше...   )Жанр: Jazz, Fusion, RockПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2083D0C73F75E997A3A64B7C9027F478CD947326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223943   (669777) от 07.05.2018
-
-John Patitucci - John Patitucci (1988) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growing (4:35)
-02. Wind Sprint (6:10)
-03. Searching, Finding (5:05)
-04. Baja Bajo (5:46)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F67EA8CCF1E6A7AC9B38FB57DDF9C0DA5891C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223947   (669774) от 07.05.2018
-
-Kathy Boye & The DTG Gang - I Feel Alive (2018) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французская блюзовая исполнительница Кэти Бойе́ с бандой DTG Gang успешно гастролирует по Европе уже не первый год.
-Ее проникновенный, страстный и мощный голос вместе с ее игрой на губной гармони мало кого оставляют равнодушными.
-Kathy Boyé - Vocals, Piano, Harmonica
-Mister Tchang - Guitars, Vocals(   Читать дальше...   )01. I Feel Alive  05:11
-02. Well on My Road  03:43
-03. No More Baby  04:20
-04. Crazy 16 Blues  06:23(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6574FDC2CC23DCF7AD8D4FB77066A2CB8EE85DED
 ```
 
 https://mybot314.ru/tekegram_catalog/

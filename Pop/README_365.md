@@ -1,3 +1,90 @@
+###  Публикация: 1784381   (24986) от 11.03.2025
+
+Good Ride - Faces (2023) [MP3|320 Kbps] <Italo-Disco, Italo-Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're Gonna Dance (Extended) (5:46)
+02. What Can I Say (4:13)
+03. One Moment (Extended) (6:10)
+04. Star Cloud (5:42)(   Читать дальше...   )Жанр: Italo-Disco, Italo-DanceПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35239E03586F138345F5E37206D4E82497109AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784435   (24985) от 11.03.2025
+
+VA - ZYX Italo Disco Collection (The Memory Label) (2002) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyber People - Polaris (Club Mix)
+02. Ken Laszlo - Hey Hey Guy (US Remix)
+03. Brian Ice - Tokyo (DJ Version)
+04. Hypnosis - Droid (Automatic Piano)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, DiscoПродолжительность: 03:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75ECDB8F1DE2B26E7133E7F8DBB01EBA154D44BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784726   (24890) от 12.03.2025
+
+Maxi Talo - Emotions (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run To The Sun (6:05)
+02. Say You Love Me (5:02)
+03. Sea And You (5:43)
+04. Among Millions Of Stars (6:04)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D47ABD0C3ED445AC15F9E1CFD3AAE44850B368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784642   (24888) от 12.03.2025
 
 Maxi Talo - Emotions (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
@@ -658,93 +745,6 @@ Don Amore - Memories of Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7516C94A306B82F4DA9F4C4475532016655522A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791600   (21325) от 15.04.2025
-
-Don Amore - I Look in Your Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Look in Your Eyes (Extended Vocal Modern Mix) [6:31]
-02 - I Look in Your Eyes (Extended Instr Modern Mix) [6:31]
-03 - I Look in Your Eyes (Short Vocal Modern Mix) [4:01]
-04 - I Look in Your Eyes (Extended Vocal Crazy Mix) [7:16](   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6453BB58F4C94DCAA7494A1D984AEBB8E5CE60AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791909   (21259) от 16.04.2025
-
-VA - 20s Soft Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Warren - Ordinary (Wedding Version) (3:06)
-02. Zach Bryan - I Remember Everything (feat. Kacey Musgraves) (3:47)
-03. Teddy Swims - Are You Even Real (feat. Givēon) (2:27)
-04. Benson Boone - Beautiful Things (Acoustic) (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 03:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5E99C7C7BC63725F4B7109C64053ADDCFFC843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791852   (21253) от 16.04.2025
-
-VA - The All Time Greatest Love Songs Of The 60's, 70's, 80's & 90's Volume II (1997) 2 CD [OGG Vorbis|480 Kbps] <Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wet Wet Wet - Love Is All Around
-02. Celine Dion - Because You Loved Me
-03. Cherry - 7 Seconds
-04. Texas - Say What You Want(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 02:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4745D0DA62D946C67F806D59D26BDB46AB41CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

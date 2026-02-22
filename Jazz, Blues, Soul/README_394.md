@@ -1,3 +1,32 @@
+###  Публикация: 1264857   (277918) от 25.11.2018
+
+Gil Evans Orchestra - Live at Umbria Jazz 87, Vol.2 (2000) Egea [FLAC|Lossless|image + .cue] <Jazz-Rock, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Free [18:16]
+02. Little Wing [21:15]
+03. Wake Up [6:32]
+04. There Comes a Time [12:44](   Читать дальше...   )Жанр: Jazz-Rock, Jazz FusionПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66419D6C67365DD1B78BDAEE9FBCF3149791CFF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264860   (277916) от 25.11.2018
 
 Gil Evans - The Honey Man (1986) 1994, New Tone Records [FLAC|Lossless|image + .cue] <Jazz Fusion>
@@ -719,35 +748,6 @@ Barney Wilen & Mal Waldron - Movie Themes from France (1990) Timeless Records [W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BE3057226ED7CC1FE20E0E454B68F089D8A3AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188093   (276160) от 01.12.2017
-
-Marcus Printup - Young Bloods (2015) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Route [07:47]
-02. The Bishop [07:38]
-03. My Foolish Heart [07:03]
-04. Young Blods [07:07](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A732A94A71B743EF08577892F5F2C695C8CE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

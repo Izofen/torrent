@@ -1,3 +1,95 @@
+###  Публикация: 1571526   (431775) от 22.08.2022
+
+Al Jarreau - Tomorrow Today (1999) Verve Music [FLAC|Lossless|image + .cue] <Vocal Jazz, Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just To Be Loved [4:19]
+02. Let Me Love You [4:42]
+03. In My Music [4:05]
+04. Through It All [4:30](   Читать дальше...   )Жанр: Vocal Jazz, Smooth Jazz, SoulПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F93D42E305B72DE32E3BE2D33D307ACCF5F03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945693   (431745) от 11.10.2015
+
+Omar Hakim - Rhythm Deep (1989) [FLAC|tracks+cue]<Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crucial 2 Groove
+02. Rhythm Deep
+03. Take My Heart
+04. Amethyst Secrets(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2AADBCECB60E3BDEE7662AD7A930B5A44BCEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553743   (431709) от 03.10.2012
+
+Dave Douglas Quintet - Be Still (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_431709.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Be Still My Soul (05:01)
+2. High On A Mountain (02:37)
+3. God Be With You (05:00)
+4. Barbara Allen (04:22)
+5. This Is My Father's World (03:43)
+6. Going Somewhere With You (05:23)
+7. Middle March (05:46)
+8. Living Streams (05:02)
+9. Whither Must I Wander? (05:59)Жанр: JazzПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323729   (431693) от 06.09.2019
 
 Bill Evans - 3 Essential Albums (1959 - 1963) 3CD, Universal, 2017 [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop, Piano Jazz>
@@ -673,93 +765,6 @@ The Dragons - It's Your Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F42EBC22B5C2E3E8E4D564388C7F4EEB067A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571738   (429847) от 23.08.2022
-
-The Strongman Blues Remedy - The Strongman Blues Remedy Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Luck (3:02)
-02. Swansong (feat. Steve Marriner)(3:20)
-03. Fine Young Man (feat. Dawn Tyler Watson) (3:45)
-04. I Don't Miss You (feat. Harrison Kennedy) (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C2CC08E603AEDA984B81550B7D70FC0D6A0CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571715   (429846) от 23.08.2022
-
-Jim Dan Dee - Real Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Things That I Used To Do (3:11)
-02. Weep For Me (3:03)
-03. Real Blues (3:44)
-04. Two Timing Woman (2:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A896F2FB3055033ED1F0C5E1A3C7C8293D43D6C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571707   (429844) от 23.08.2022
-
-Big Johnny Blue - Big Johnny Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Amerikah (4:47)
-02. I'm Hurtin (6:05)
-03. Bee Bop Rocket (3:45)
-04. PB & J (4:31)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82947F780F9CC9C26C61F647756867561D39AEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

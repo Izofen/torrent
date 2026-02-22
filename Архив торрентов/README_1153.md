@@ -1,3 +1,29 @@
+###  Публикация: 1370530   (896675) от 27.03.2020
+
+Opera 67.0.3575.115 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25EDBB28D0E2CF01D9EC92D42F3CE8864F640D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370533   (896669) от 27.03.2020
 
 O&O DiskImage Professional 15.3 Build 176 RePack by elchupacabra [Ru/En]
@@ -690,35 +716,6 @@ Folx Pro 5.1.13668 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EF279C26BB2AD5ECDC501C2E62FA0AA38ABBBE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101286   (896207) от 06.02.2017
-
-Roland Romanelli (ex. Space) - Amour: Romantishe Melodien aus Paris (1986) [FLAC|Lossless|image + .cue] <Easy listening, Synth-pop, Accordion>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Einen Herzschlang Lang
-02. Julias Traum
-03. Sonnenaufgang
-04. Sirenengesang(   Читать дальше...   )Жанр: Easy listening, Synth-pop, AccordionПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9901E93B3CD248B088DBDDC94B62CAE85BE14A88
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1761903   (103026) от 23.11.2024
+
+Ice Cube - Man Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rollin' At Twilight [2:58]
+02 - It's My Ego [3:47]
+03 - So Sensitive [2:49]
+04 - She’s Sanctified [4:18](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C4BCD023602DFBCFE5F74E2A40562EBD25843D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762028   (103016) от 23.11.2024
+
+Max Lorens - Танцы под луной (2008) [FLAC|Lossless|tracks + .cue] <Hip Hop, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: Килиманджаро 2:53
+02. Схожу с ума 4:56
+03. Город-Эльдорадо 3:06
+04. Танцы под луной 3:22(   Читать дальше...   )Жанр: Hip Hop, PopПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE6B014D293F4520FC188A78721C1A10E6703B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762690   (102904) от 26.11.2024
 
 VA - Omakase (2023) Mello Music Group [FLAC|Lossless|tracks + .cue] <Hip-Hop, Jazzy Hop, Underground Hip-Hop>
@@ -727,64 +785,6 @@ Red Snapper - Barb and Feather (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C16CC13810FC31F5A1E4CDA500824553A2112AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799017   (66542) от 25.05.2025
-
-Aesop Rock - Black Hole Superette (2025) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Knock (3:33)
- 02. Checkers (3:57)
- 03. Movie Night (3:21)
- 04. EWR - Terminal A, Gate 20 (3:49)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77772350BF8766BB1209FEA28CB38F512FC45474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801758   (66168) от 12.06.2025
-
-VA - Chillhop Essentials Summer (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruck P, Gabiga – Velvet Sutra (2:14)
-02. dennisivnvc – Jake, ft. Dani Catalá (2:07)
-03. Aves – Fly by (1:57)
-04. Birocratic, Kosmicho, Ross Mayfield – Midnight Veil (3:18)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B22F91DEFA9B7454E721123DEA28B4619EDDA0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

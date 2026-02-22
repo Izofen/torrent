@@ -1,3 +1,32 @@
+###  Публикация: 1093254   (935435) от 14.01.2017
+
+Melvin (Mel) Rhyne - Organ-izing (1960) 2000, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Things Ain't What They Used to Be [11:00]
+ 02.Blue Farouq [10:45]
+ 03.Barefoot Sunday Blues [12:53]
+ 04.Shoo, Shoo Baby [08:43]Жанр: Hard BopПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366D01F4287121678121D3D32EABA222E8C1CDD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092981   (935430) от 14.01.2017
 
 Ornette Coleman And Prime Time - Virgin Beauty (1988) [FLAC|Lossless|image + .cue] <Jazz-Rock, Free Improvisation, Fusion>
@@ -758,41 +787,6 @@ Lonnie Liston Smith & The Cosmic Echoes - Astral Traveling (1973) 2014,  BGP Rec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EC3EB0773524CE799F7D0ACC6DA24AA9141C23B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754301   (933759) от 07.02.2014
-
-VA - Jazz Guitar - From the Famous Savoy Jazz Archives 3CD (2005) [FLAC|Lossless]<Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Larry Coryell -  My Shining Hour  (5:06)
-02.  Grant Green -  Samba de Orpheus  (7:09)
-03.  Jazz Recital -  My Heart Stood Still  (3:17)
-04.  Jazz Recital -  Chuck a Tuck  (4:07)
-05.  Kenny Burrell -  In the Still of the Night  (10:24)
-06.  Pat Martino -  Days of Wine and Roses  (4:49)
-07.  Larry Coryell -  Sophisticated Lady  (5:07)
-08.  Jazz Recital -  My Funny Valentine  (3:37)
-09.  Larry Coryell -  'Round Midnight  (8:50)
-10.  Jazz Recital -  Spring Is Here  (3:05)(   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 02:49:33 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B849975A8D136E1C8A1D0317E529E03F46C7B007
 ```
 
 https://mybot314.ru/tekegram_catalog/

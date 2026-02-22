@@ -1,3 +1,85 @@
+###  Публикация: 454456   (76928) от 18.02.2012
+
+Надежда Кадышева - Романсы (2011) [FLAC|Lossless|image + .cue]<Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_76928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, FolkПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 445155   (73499) от 01.02.2012
+
+Highland - Bella Stella / Dimmi Perche (2000, 2008) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_73499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Highland - Nicole Heiland, Dean Burke и Patrice "Lady Scar" Gansau (учавствовала в записи альбома "Bella Stella").
+Коллектив соединяет в своей музыке поп, дэнс и рэп с элементами псевдооперы и шотландским фолком. Получается очень интересный коктейль, сдобренный своеобразным и глубоким вокалом, исполняемым на итальянском и английском языках со (   Читать дальше...   )Жанр: PopПродолжительность: 01:32:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771456   (71859) от 07.01.2025
+
+VA - I Love Disco France 80's (2013) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F.R. David - Words
+02. Bandolero - Paris Latino
+03. Magazine 60 - Don Quichotte (U.S. Remix)
+04. Noe Willer - Toi, Femme Publique (Remix)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EuropopПродолжительность: 02:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9872004CCA3FF6B5663E2BD023216078808CF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772473   (71781) от 11.01.2025
 
 VA - Nipper's Greatest Hits - The 60's Volume 2 (1988) [OGG Vorbis|480 Kbps] <Rock, Folk, World, & Country>
@@ -658,93 +740,6 @@ VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:677A13D455960AD26F54954AF7E525DB8B6E4746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775689   (71376) от 28.01.2025
-
-VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritchie Family - The Best Disco In Town
-02. Gloria Gaynor - Never Can Say Goodbye
-03. Kool & The Gang - Celebration
-04. Earth, Wind & Fire - September(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC53B775E038784EE74703583B7ABC015143E0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775632   (71374) от 28.01.2025
-
-VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jacksons - Blame It on the Boogie
-02. McFadden & Whitehead - Ain't No Stoppin' Us Now
-03. The Gap Band - Say Oops Upside Your Head
-04. Donna Summer - Last Dance(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD99B6EA5EB972AD06715B755B888A9D05552A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775687   (71371) от 28.01.2025
-
-VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritchie Family - The Best Disco In Town
-02. Gloria Gaynor - Never Can Say Goodbye
-03. Kool & The Gang - Celebration
-04. Earth, Wind & Fire - September(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB16539F317FB6C34ACEC464E7BFCE518D7D493
 ```
 
 https://mybot314.ru/tekegram_catalog/

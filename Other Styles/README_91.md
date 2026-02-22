@@ -1,3 +1,32 @@
+###  Публикация: 905944   (647540) от 07.06.2015
+
+Kerani - Equilibrium (2015) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equilibrium
+02. Fragrant Mountain
+03. Anchoress
+04. Bouddica, Heart On Fire(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DECE6D817D7ADEAE2E08FD930974BA9ABCD9E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905612   (647307) от 07.06.2015
 
 VA - Romantic Collection. Country (2000) [FLAC|Lossless]<County>
@@ -749,35 +778,6 @@ VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Cla
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292820   (643184) от 31.03.2019
-
-Андрей Дергачев - Возвращение (2004) [FLAC|Lossless|tracks + .cue] <Soundtrack, Ambient, Non-Music>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Под водой (2:04)
-02. Старик (1:43)
-03. Мелкий (0:13)
-04. В спальне (5:04)(   Читать дальше...   )Жанр: Soundtrack, Ambient, Non-MusicПродолжительность: 0:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB21847BF950E16EE6EBE34EDF84286E22FB88D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 999132   (865724) от 21.03.2016
+
+Jason Graves - Far Cry Primal (Original Game Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shaman's Story
+02. Save the Wenja
+03. Prowl of the Snowblood Wolves
+04. The Fires of Conquest(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F16F3ADB1117A0751960FC7BD15175E8087F407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 645199   (865663) от 18.04.2013
 
 Patrick Ball - 8 альбомов (1983-2003) [MP3|320 кб/с]<Instrumental, Celtic, New age, Harp>
@@ -759,35 +788,6 @@ Atlas - Прогревочный и размагничивающий диск (2
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109183   (860759) от 26.02.2017
-
-The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [MP3|320 Kbps] <Soundtracks, Classical, Epic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title ("from Game of Thrones")
-02. Goodbye Brother
-03. Season 1 Finale
-04. Warrior of Light(   Читать дальше...   )Жанр: Soundtracks, Classical, EpicПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A8C2670D20363F347BAAE3CA0C40BE4C39AB97
 ```
 
 https://mybot314.ru/tekegram_catalog/

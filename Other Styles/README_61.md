@@ -1,3 +1,32 @@
+###  Публикация: 1201908   (790939) от 27.01.2018
+
+Noorvik - Noorvik (2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790939.jpg" />
+</div>
+
+
+###  Подробнее
+
+[10:20] 01. Denali
+[08:06] 02. Shishaldin
+[08:35] 03. Malaspina
+[07:29] 04. Chugach(   Читать дальше...   )Жанр: Post-Rock, Post-Metal, InstrumentalПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1F51C42B92237B46B287A42A5C20416149F020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510460   (790799) от 17.11.2021
 
 Dr. Jeffrey Thompson - Brainwave Suite: Insight & Intuition (2003) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
@@ -715,35 +744,6 @@ Variations & Gary Ryan - Romantic Guitar (2006) [FLAC|Lossless|tracks + .cue] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08A6A83BEDC0FED3E192BC0CD18269900F0547EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276736   (787614) от 17.01.2019
-
-VA - Yoga Chill Out 2019 [MP3|320 Kbps] <New Age, Ambient, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Sunshine - Alala (Intro Chill Mix)
-02. Illegal Substances - Lost Civillization (Edit)
-03. Ufomatka - Sunrise On Venus
-04. The Same Old Souls - Strange Light Anomalies(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 03:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EF0BA8E934DB69AFD18A8263A2D394BFF6DA9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

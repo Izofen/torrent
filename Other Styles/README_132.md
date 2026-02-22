@@ -1,3 +1,38 @@
+###  Публикация: 564122   (402794) от 23.10.2012
+
+Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_402794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Elena [03:49]
+02. Maria-La-O [03:27]
+03. La Mer [05:10]
+04. Concierto De Aranjuez [04:33]
+05. One Note Samba [03:54]
+06. Amapola [04:00]
+07. Besame Mucho [04:23]
+08. The Girl From Ipanema [04:25]
+09. It's Now Or Never [03:45]
+10. Guantanamera [04:26](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564144   (402789) от 23.10.2012
 
 Manuel Granada - The Hi-Fi Sound of Spanish Guitar (2007) [FLAC|Lossless]<Guitar, Instrumental>
@@ -746,35 +781,6 @@ Jesse Cook - Beyond Borders (2017) [MP3|320 Kbps] <Instrumental, Easy Listening>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A6FC1E3C7FB1D09AB4CE2226C1989F024D5AC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171443   (396560) от 04.10.2017
-
-Nino Rota & Carmine Coppola - The Godfather Trilogy I - II - III: 30th Anniversary (2001) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Godfather - Waltz
-02 - The Godfather - Love Theme from The Godfather
-03 - The Godfather - Sicilian Pastorale
-04 - The Godfather - The Pick-Up(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6EDEA0E1F5C14EE1D00DCC3D6C169B5456E922
 ```
 
 https://mybot314.ru/tekegram_catalog/

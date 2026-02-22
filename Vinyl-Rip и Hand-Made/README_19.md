@@ -1,3 +1,183 @@
+###  Публикация: 1140331   (655727) от 06.06.2017
+
+Александр Вертинский - Печальные песни (перепись с пластинок зарубежных и советских фирм грамзаписи, 1930-1944 гг.) Unofficial Release [FLAC 1.0|44,1/16|image+.cue|MC-Rip] <Chanson, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Письмо к даме (запись 1930 года, Германия)
+02. Моя звезда (запись 1930 года, Германия)
+03. О всех усталых (запись 1930 года, Германия)(   Читать дальше...   )Жанр: Chanson, RetroПродолжительность: 01:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D6D6EEB67041995F7BCF1A55D3711D31481A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140156   (655725) от 06.06.2017
+
+Александр Вертинский - Коллекция винила (1969-1989) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Chanson, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Минуточка
+02. Испано-Сюиза
+03. Над розовым морем
+04. Пред ликом Родины(   Читать дальше...   )Жанр: Chanson, Retro
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFEB989B4CD8C7BD61090E9C84943678829E540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514977   (655621) от 26.06.2012
+
+Yehudi Menuhin - Stephane Grappelli - Tea for two (1978)  [FLAC 2.0 24/96|image + cue (Vinyl rip)]<Classical, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655621.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Crazy Rhythm – Josef Meyer, Roger Wolfe Kahn [02:49]
+A2 - The Man I Love – George Gershwin [04:41]
+A3 - Tea For Two – Vincent Youmans [03:37]
+A4 - Highgate Village – Stephane Grappelli [04:54]
+A5 - Air On A Shoe String – Max Harris [03:38]
+A6 - A Foggy Day – George Gershwin 03:44]
+
+B1 - Viva Vivaldi – Max Harris [02:22]
+B2 - My Funny Valentine – Richard Rogers [04:05]
+B3 - Limehouse Blues – Philipp Braham [02:53](   Читать дальше...   )Жанр: Classical, JazzФормат: Vinyl 12"Продолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03E31F139E916812BC34C9BC3A4E56AAE5AECC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904948   (653000) от 04.06.2015
+
+Чернавский-Матецкий - Банановые Острова (1983) /2013, Мирумир/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653000.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Банановые острова (7:01)
+A2. Зебра (4:13)
+A3. Здравствуй, мальчик Бананан! (7:07)
+A4. Становитесь в очередь за мной (5:02)(   Читать дальше...   )Производство: МирумирЖанр: RockПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9DF6F41C7DB2AFED9DBC307CDCF51D06D307AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031631   (651363) от 04.07.2016
+
+Nazareth - Play 'N' The Game (1976) Reissue, 1979, Vertigo [WavPack 2.0|192/32|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody To Roll (3:59)
+02. Down Home Girl (5:06)
+03. Flying (4:23)
+04. Waiting For The Man (4:59)(   Читать дальше...   )Производство: Vertigo - BT-5286Жанр: Hard RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F170DB64E7AEDF65F7012F2B62263E60440339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905001   (650918) от 05.06.2015
+
+U.D.O. - 13 Альбомов (1987-2015) [WavPack 2.0 32/192|image (Vinyl-Rip)]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Speeder
+02 Decadent
+03 House Of Fake
+04 Mystery(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 13:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FE9E3F7F58B8107D2454FCDD6BE8573A955AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905762   (649060) от 06.06.2015
 
 The Alan Parsons Project - Pyramid (1978) [FLAC 2.0 24/96|image (Vinyl-Rip)] <Progressive Rock>
@@ -568,180 +748,6 @@ B На Последнем Сеансе Кино
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500BF53E0757A5064D6012EAF2F0FF6152D4A9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059776   (621889) от 15.04.2022
-
-Надежда Чепрага - Только Ты (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Человеческий Голос
-02. Симфония Чувств
-03. Только Ты
-04. В Краю Родном(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B272478996D8909E21DC36B088F507449B86998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934459   (621888) от 15.04.2022
-
-VA - Лето 2002/Зарубежная супер двадцатка (2002) [FLAC 2.0 16/44,1|image+cue (MC Rip)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solid Base - This Is The Summer
-02. French Affair - I Like It
-03. Destiny's Child - Nasty Girl
-04. Bosson - Happy(   Читать дальше...   )Жанр: /PopПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316664C28A0FCF08E2A801AB2A6EE50B470BC939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862438   (621882) от 15.04.2022
-
-Премьер-Министр - Грязные танцы (1999) [FLAC 2.0|44/16|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Атомное чувство любовь
-/муз. В. Бодолика, сл. М. Максимова/
-02. Горе не беда
-/муз. А. Мисаилов, М. Максимова, сл. К. Арсенева/(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C0DCC7F7A9903533C7F7305C8CBCBE848DC0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957066   (621878) от 15.04.2022
-
-Инструментальный Ансамбль Рококо (1971) [FLAC 2.0 24/96|tracks+.cue (Vinyl-Rip)]<Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арабески
-02. Акварель
-03. Королевство гномов
-04. Старый антикварЖанр: Easy ListeningПродолжительность: 00:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA4C97DCE04F51CD4B6A92C9B4BEC965FAAF942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935363   (621739) от 15.04.2022
-
-John Denver - Rocky Mountain High (1972) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Country, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621739.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Rocky Mountain High
-Steel Guitar – Eric Weissberg
-A2	Mother Nature's Son
-A3	Paradise(   Читать дальше...   )Жанр: Country, Soft RockПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D293571A8D6F193CA1EF84D8D5B7FC09C7D2368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059770   (621736) от 15.04.2022
-
-Вилли Токарев - Над Гудзоном (1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С Днем Рождения, Милая Мама
-02. Мама, Я Сын Твой
-03. Нью-Йоркский Таксист
-04. В Шумном Балагане(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347EE62C1E788F55075A5CF9E06FCFABE28D9ED5
 ```
 
 https://mybot314.ru/tekegram_catalog/

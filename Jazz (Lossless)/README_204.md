@@ -1,3 +1,32 @@
+###  Публикация: 1165032   (437398) от 11.09.2017
+
+Joel Weiskopf - Change in My Life (2002) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's Been a Change in My Life [05:46]
+02. Enigma [07:46]
+03. Righteousness, Peace and Joy [06:47]
+04. First Love [06:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEBDD7CEC337DC3A70899C49649C18F89445CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165082   (437397) от 11.09.2017
 
 Johan Clement Trio - Some Over Time (2014) Johan Clement [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -716,35 +745,6 @@ Marc Antoine - Laguna Beach (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5B8418899B6D1390E919C70383E287E43E4C7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063386   (434664) от 16.10.2016
-
-Katie Melua - In Winter (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Folk, World>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Little Swallow
-02. River
-03. Perfect World
-04. Cradle Song(   Читать дальше...   )Жанр: Vocal Jazz, Folk, WorldПродолжительность: 00:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E71C3DDD342814CAC6F506222676162FB2EDDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

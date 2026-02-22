@@ -1,3 +1,32 @@
+###  Публикация: 1764913   (34724) от 09.12.2024
+
+Nautilus Pompilius - Compilation (1983-1997) [MP3|320 Kbps] <New wave, Art rock, Soft Rock, Post punk>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Три Хита (Оркестровая Увертюра) (Атлантида 1997)
+02. Эпиграф (Разлука 1986)
+03. Эта Музыка Будет Вечной (Разлука 1986)
+04. Отход На Север (Наугад 1994)(   Читать дальше...   )Жанр: New wave, Art rock, Soft Rock, Post punkПродолжительность: 05:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9DA6A5012644D35224F14C30CDFA99DBDB7EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764347   (33908) от 17.12.2024
 
 Владимир Кузьмин - Баллады (лучшее) (Mixed and Compiled by DJ Zhuk) (2015) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ Leo Moracchioli - Metal Covers Compilation (2014-2024) [MP3|320 Kbps] <Metal, Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E59D77A443BF60C31F4559C16C463AB2FE4EF05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782143   (26275) от 27.02.2025
-
-Axel Rudi Pell - The Ballads Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Say Goodbye [05:42]
-02. Where the Wild Waters Flow [05:35]
-03. You Want Love [04:34]
-04. Forever Angel (Acoustic) [04:33](   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 09:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A812F25E2A89C2DEBF0128E20400187BE8F464DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1196321   (824234) от 02.01.2018
+
+Dharma Frequency - Yoga Retreat (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Meditation
+02. Andalusian Relaxation
+03. Floating Dreams
+04. Purple Water(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFBE0EF20B0685810B3DC29D46CF8DB113A94AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975477   (824221) от 19.03.2017
 
 7Zipper 2.8 [Ru/Multi] - Работа с архивами
@@ -646,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A74CC9270DC32DEBC46AEFA2F22D899F87F5A9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116215   (823970) от 19.03.2017
-
-Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer SP1 15.0.4911.1000 VL (x86) RePack by SPecialiST v17.3 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2013 – лучший пакет прикладных программы для работы над документами различных типов. В его состав входят лучшие средства для развития бизнеса, а так же для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия, не важно, Office 2013 просто обязан быть установлен на любом (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3131B36445F03D53B485CA414978E01847DE506C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1763548   (35434) от 02.12.2024
+
+Taylor Dayne - Greatest Hits (1995) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <House, Electro, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say a Prayer (Morales mix) (4:00)
+02. Tell It to My Heart (3:40)
+03. I'll Always Love You (4:20)
+04. Can't Get Enough of Your Love (4:27)(   Читать дальше...   )Жанр: House, Electro, Synth-popПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715EC4072F786E820B473D12CAC9F2F4464EEFFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763583   (35411) от 02.12.2024
 
 Donna Lewis - Now In A Minute (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock, Downtempo>
@@ -717,35 +746,6 @@ VA - Best 80s Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29138464F84DC9B711F95852FE5B70CC37DDE7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780929   (27001) от 20.02.2025
-
-VA - All Stars 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy Swims - Bad Dreams (3:04)
-02. Rose - APT. (2:49)
-03. Benson Boone - Beautiful Things (3:00)
-04. Charli XCX - Apple (2:31)(   Читать дальше...   )Жанр: PopПродолжительность: 02:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0174A28DA2BCBAEF5F56AC466A7E46701834FFEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1100954   (898012) от 05.02.2017
+
+Rob Tognoni - 4 Album (2012 - 2016) [FLAC|Lossless|image + .cue] <Heavy Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Robert John Tognoni (Тоньони) родился в Улверстоне, на северо-западном побережье Тасмании в 1960 году, в семье итальянских эмигрантов. детство RJT было достаточно далеким от музыки, кроме как пения его матери в кругу семьи и ее спектаклях пантомимы "Al Jolson" в местных залах сообщества. В 60-е Тасмания была в глубокой изоляции и вплоть до 70-х Blues не (   Читать дальше...   )Список альбомов:
+2012 - Art
+2013 - Casino Placebo
+2015 - Birra For Lira(   Читать дальше...   )Жанр: Heavy Blues RockПродолжительность: 03:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FE0E0BB0E54056BBCCBFA146DF135891B9CB2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100838   (897959) от 05.02.2017
+
+Eric Clapton - Eric Clapton (1997) [FLAC|Lossless|image + .cue] <Blues Rock, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Your Witchdoctor (John Mayall's Bluesbreakers feat. Eric Clapton)
+02. For Your Love (The Yardbirds with Eric Clapton)
+03. Boom Boom (The Yardbirds feat. Eric Clapton)
+04. Good Morning Little Schoolgirl (The Yardbirds with Eric Clapton)(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 00:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A394CED82AF3C6F2FE18B4B8DA29C7D993AB9824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100851   (897945) от 05.02.2017
+
+Eric Clapton - Backtrackin': 22 Tracks Spanning The Career Of A Rock Legend (1984) 2CD [FLAC|Lossless|image + .cue] <Pop/Rock, Blues, Classic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk1:
+01. I Shot The Sheriff (04:24)
+02. Knockin' On Heavens Door (04:25)
+03. Lay Down Sally (03:53)(   Читать дальше...   )Жанр: Pop/Rock, Blues, Classic RockПродолжительность: 01:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56543B6D6FAA75D2EE06A792BA541BA239F1B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992955   (897780) от 04.03.2016
 
 The Dave Bailey Sextet - One Foot In The Gutter (1960) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -659,93 +746,6 @@ Helen Humes - 1945 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Vocal J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4969B60049BB9A63221375331B2BBD4204A7820C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993493   (895682) от 05.03.2016
-
-Jazz Funk Soul (Chuck Loeb, Everette Harp, Jeff Lorber) - More Serious Business (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Thing
-02. Connections
-03. Tuesday Swings
-04. Fall Departs(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0EB4D6AEA5E605A7C3201089FC24F0C4E62EA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993542   (895675) от 05.03.2016
-
-OneFloorDown - Unraveled (2011) [FLAC|Lossless|image + .cue] <Nu Jazz, Smoth Jazz, Jazz Funk Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unraveled Side (Live) (5:23)
-02. KOKOmotion (3:56)
-03. Bali Dreams (4:50)
-04. Jilly Juliet (4:04)(   Читать дальше...   )Жанр: Nu Jazz, Smoth Jazz, Jazz Funk LoungeПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB2AAE88777E8113C00A4092DE765449D257614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993661   (895667) от 05.03.2016
-
-VA - Vintage Dream: Best of Vintage Jazz, Bebop & Electro Swing (2016) [MP3|320 кб/с] <Jazz, Swing Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Potter - Willy Wonky (02:28)
-02. Hillary Thaddeus - Catalina Ballroom (03:05)
-03. Homer Greencastle - I Like a Uniformed Soldier (02:26)
-04. Mike Potter - Kitty's Swing (01:39)(   Читать дальше...   )Производство: Machiavelli RecordsЖанр: Jazz, Swing JazzПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFAC4465122A8B1C03D115AF11C3FEDC631839A
 ```
 
 https://mybot314.ru/tekegram_catalog/

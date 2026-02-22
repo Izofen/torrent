@@ -1,3 +1,32 @@
+###  Публикация: 1139127   (661194) от 01.06.2017
+
+Tape Five - Soiree Deluxe (2017) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Step into My Time Machine
+02. Hush Hush Magazine
+03. Love Gun
+04. Get Down Luna Park(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E8BBC9473B4F2CA3DE71976468929C7255C675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902367   (660886) от 28.05.2015
 
 Melody Gardot - Currency Of Man [Deluxe Edition - The Artist's Cut] (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
@@ -733,35 +762,6 @@ Frank Lowe - Black Beings (2008) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2916DD1EF1B88D77805FC3D1E560B44976F4CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225962   (658046) от 18.05.2018
-
-Takao Uematsu - Straight Ahead (1977) 2010, Art Union [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Fire [07:50]
-02. Mysterious Jump [08:32]
-03. Fancy Free [02:34]
-04. Afro Blue [05:17](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B426FCD83321F01C8A9C75124BF1160A247AE2B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

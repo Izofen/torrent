@@ -1,3 +1,32 @@
+###  Публикация: 1731267   (107737) от 20.06.2024
+
+Johnny Griffin - Masters Of Jazz (1964 - 1989) 2006, Storyville Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wee Dot [4:50]
+02. Exactly Like You [10:00]
+03. A Night In Tunesia [8:31]
+04. Blues Up And Down [10:50](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64873155ED15758B9F6A20833FCAF22C0A724E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731577   (107710) от 21.06.2024
 
 Ben Tankard - The Godfather Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -716,35 +745,6 @@ Louis Prima - 1937 - 1939 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D11C50DAD5DE633201F56222E49E8120A80BF79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732668   (107416) от 26.06.2024
-
-Rex Stewart - 1948 - 1949 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vernon's Story [2:33]
-02. Jug Blues [2:45]
-03. Blue Jay [2:17]
-04. Fine and Dandy [2:11](   Читать дальше...   )Жанр: SwingПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A311031BE93FC9BC8EE653881301271363112742
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1587497   (192721) от 31.10.2022
+
+Laurence Jones - Destination Unknown (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anywhere With Me (3:56)
+02. Can't Keep from Loving You (3:05)
+03. Give Me That Feeling (3:00)
+04. Gave It All Away (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B981A269C69747273451B45FB276AC49496128FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587498   (192714) от 31.10.2022
 
 Lee O'Nell Blues Gang - This Is Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -715,35 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD706B3A9342FC9E43908BBDBC56A69EF80BC08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658279   (191636) от 07.09.2023
-
-Mal Waldron & Jackie McLean - Left Alone '86 (1987) Bellaphon [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left Alone (master take) [8:27]
-02. God Bless the Child [3:23]
-03. All of Me [6:49]
-04. Cat Walk [9:46](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443830DB512A985A5DA0C58606D67642F795B7B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

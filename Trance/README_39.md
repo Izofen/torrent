@@ -1,3 +1,32 @@
+###  Публикация: 1336580   (277520) от 08.11.2019
+
+VA - Black Hole Trance Music (05-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten & Nevve - Freefall (Extended Club Mix) 6:26
+02. Christian Burns - Fire + Ice (Yang Extended Remix) 5:30
+03. Somna feat. HALIENE - Secret (Extended Mix) 6:08
+04. The Spacelovers - Space Lover (Genix Remix) 7:29(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940A1BAE3D3B13EDA3D4FD822AB4F1ADFEAF1042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336588   (277516) от 08.11.2019
 
 VA - Black Hole Trance Music (06-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTrance>
@@ -716,35 +745,6 @@ Alter Future - To New Horizons (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AF55985B9B2BE7E36F355698A62FA16AB61015C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188997   (272439) от 04.12.2017
-
-VA - Redux Presents: The Finest Selection (Mixed by Rene Ablaze) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  TrancEye  -  Distant Dream (Original Mix)  4:10
-02.  UDM  -  Arrival (Original Mix)  3:24
-03.  Miroslav Vrlik  -  Cosmos (Original Mix)  3:26
-04.  Kiyoi & Eky  -  Moon River (Original Mix)  4:16(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348D21E814FA1DEF152301312EA37E779B42D5FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

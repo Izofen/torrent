@@ -1,3 +1,90 @@
+###  Публикация: 1851356   (1055136) от 02.02.2026
+
+Ari Lennox - Vacancy (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Neo-Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mobbin in DC [00:04:25]
+02. Vacancy [00:03:03]
+03. Pretzel [00:03:23]
+04. Under The Moon [00:03:26](   Читать дальше...   )Жанр: Neo-SoulПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42ECFDEF357413E6B0B20A5CA8A70F0BBDC02D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851138   (1054756) от 31.01.2026
+
+Robin Trower - One Moment In Time - Live In The USA (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Blues Rock, Rhythm & Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Razor's Edge (Live) (03:05)
+ 02 - Too Rolling Stoned (Live) (08:06)
+ 03 - Wither On The Vine (Live) (03:46)
+ 04 - Somebody Calling (Live) (07:55)(   Читать дальше...   )Жанр: Blues, Blues Rock, Rhythm & BluesПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A13286E67347CC9BA0D083366D2648DBDB30D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850315   (1054202) от 27.01.2026
+
+Casa De Los Santos - Black Crown Bluess (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Black Chain (7:53)
+02.  Black Crown Blues (5:06)
+03.  Black Dragon (3:52)
+04.  Blues of the Abyss (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1B0B3E64AD59CF9B0A289D7A2798072B259611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850317   (1054201) от 27.01.2026
 
 Danny Bryant - Nothing Left Behind (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -659,93 +746,6 @@ Trigg & Gusset - Event Horizon (2025) 2026, Amber Music [FLAC 24/44.1, 24/48|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8D328F9B456F7C4CF20FFC500FBD233B2F699F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847521   (1052192) от 12.01.2026
-
-496 West - Heights (2026) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Horizons (3:51)
-02.  Velvet Groove (4:55)
-03.  Crush On You (3:53)
-04.  Piano Funk (3:50)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF8681E56CA191F3D1FAE9A2F50EFD2939D59B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847523   (1052191) от 12.01.2026
-
-Electro Swing Celebration - Electro Swing Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Disco Shuffle (2:52)
-02.  Bourbon & Brass (2:36)
-03.  Radio Electroswing (2:26)
-04.  Electro Swing Party (2:57)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDAA610B1734ED24A6D041BF89E36518BE97B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847526   (1052189) от 12.01.2026
-
-Lowell Hopper - Mystique (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Free Fallin' (5:02)
-02.  Mystique (4:27)
-03.  Hit And Miss (4:45)
-04.  Romance (4:26)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985A846A2EEC3586020973E11756BE4E88EA92BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

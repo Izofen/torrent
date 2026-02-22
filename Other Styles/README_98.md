@@ -1,3 +1,32 @@
+###  Публикация: 1230622   (614052) от 13.06.2018
+
+Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dreamtime Initiation
+02 – Crystal Journey
+03 – Ocean Calling
+04 – Equinox Ambience(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFDEBEBDA4C5F127F6B80B73536BACBE33EF6AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037458   (613965) от 24.07.2016
 
 Jamie Llewellyn - Muzyka do spania: Marzy delfinow (To Dream of Dolphins) (2014) [MP3|320 Kbps] <New Age>
@@ -743,35 +772,6 @@ Arnaud Rebotini - Curiosa (Bande originale du film) (2019) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ADACAF335D1A847BEFEEE1FD581D6EA5D4DEBB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296191   (610126) от 18.04.2019
-
-Faun - XV - Best Of (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pagan, Folk, Medieval>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Diese kalte Nacht (3:05)
-02.Federkleid (4:43)
-03.Feuer (4:39)
-04.FAUN feat. Micha Rhein - Buntes Volk (4:19)(   Читать дальше...   )Жанр: Pagan, Folk, MedievalПродолжительность: 02:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93A480B5324D7CC711002FE2CF7E764CBEA211B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

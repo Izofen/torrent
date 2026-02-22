@@ -1,3 +1,90 @@
+###  Публикация: 1360290   (237281) от 15.02.2020
+
+Elite Force - Modern Primitive (2006) [MP3|320 Kbps] <House, Downtempo, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern:Primitive (0:46)
+02. Coming Back For More (6:44)
+03. My Generation (6:43)
+04. You (5:45)(   Читать дальше...   )Жанр: House, Downtempo, Tech HouseПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6812C5D58A90D63A59B892AB7EE4E32B53B6FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640511   (237264) от 18.06.2023
+
+VA - We Love Summer Vol. 2 (2023) [MP3|320 Kbps] <Deep House, Deep Tech, Soulful, Deep Groove>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_237264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga - Autumn (Dj Malte of Real Xs Mexican Club Mix)
+02. Mad Meyer - Diggi Dang
+03. Lounge Groove Avenue - It Ain't Right
+04. Mo'jardo - I Am Fashion(   Читать дальше...   )Жанр: Deep House, Deep Tech, Soulful, Deep GrooveПродолжительность: 02:29:48 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFEE26032F3133A77787A6CD740CC0BC7F8EF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640510   (237236) от 18.06.2023
+
+VA - Deep House Summer Paradise Pt. 1 (2023) [MP3|320 Kbps] <Deep House, Deep Tech, Soulful, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_237236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Itu - A Minor Accident
+02. Mr. Anderson - Cinderella (Jamie Lewis Remix)
+03. Harry Color - The Wrong House (Ankaph's Number 6 With Extra Dub)
+04. Circuito Zeta - Congas Rulez(   Читать дальше...   )Жанр: Deep House, Deep Tech, Soulful, TechnoПродолжительность: 03:35:17 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C7E26522D1B9399A44A4C9BD68944309212786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630622   (237117) от 02.05.2023
 
 VA - Best Collection Of The Year - OMNE ONE (2023) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House>
@@ -658,93 +745,6 @@ Step By Step [ex. Lime] - Reason Of My Life (1994) [MP3|320 Kbps] <Electronic, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0C1FBEDCBAC5F22AD12716F0608F1692839977F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648342   (231017) от 23.07.2023
-
-VA - 40 Summer Hits 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Emotion - Fade To Grey [02:59]
-02. Teknova - Around the World (La La La La La) [02:37]
-03. Aldo Bit - Stolen Dance [02:13]
-04. Rene Rodrigezz - Feel Good [01:58](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374205070D21AB6F8F3386C5087A721B06D272A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648076   (230958) от 22.07.2023
-
-VA - Black Hole House Music 07-23 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Sheperd & Koni Blank - Majestic (Extended Mix) [5:54]
-02. The Madison - Can't Save You (Extended Mix) [7:07]
-03. Meyer (ofc) - Deep State (Extended Mix) [7:08]
-04. Myon - Albion (Pavel Khvaleev Extended Remix) [6:35](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1E21722AB39726E380B2F1991E8640CE6782C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648168   (230857) от 23.07.2023
-
-VA - Milk & Sugar Summer Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk & Sugar feat. Ayak - Lift Your Hands Up (Extended Club Mix) (6:52)
-02. Bob Sinclar - I Feel For You (Mercer Extended Remix) (6:39)
-03. Alison Goldfrapp & Claptone - Digging Deeper (Extended Mix) (6:09)
-04. Paul McCabe - Sweet Love (Original Mix) (5:20)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2FCFE708C86B6DE008B1829F64C1E13F22898B
 ```
 
 https://mybot314.ru/tekegram_catalog/

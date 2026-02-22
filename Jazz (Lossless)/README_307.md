@@ -1,32 +1,3 @@
-###  Публикация: 1674623   (160868) от 06.11.2023
-
-Toshiyuki Miyama & The New Herd - The New Herd At Monterey (1974) 2CD, 1999, Absord Music [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Fiesta [10:19]
-02. Tin Tin Deo [7:28]
-03. Manteca~Encore [18:16]
-Продолжительность: 00:36:03Жанр: Big Band, Post-BopПродолжительность: 01:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E811AF1B6F780E0717D294F44F5441700315B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674674   (160866) от 06.11.2023
 
 Chico Hamilton Quintet with Eric Dolphy - The Original Ellington Suite (1958) 2000, Capitol [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
@@ -745,6 +716,35 @@ Clark Terry Quintet - Serenade To A Bus Seat (1957) 2007, Riverside [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F92F6DAABB6359CD96A1C5E442CEC18C802AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600185   (159043) от 26.12.2022
+
+Toots Thielemans - 100th Birthday Celebration (2022) 2CD, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159043.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bluesette [2:50]
+02. Stars Fell on Alabama [3:15]
+03. Skylark [2:04](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D551E22310B657DC3C075B8A9FC22E5B1145EC4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

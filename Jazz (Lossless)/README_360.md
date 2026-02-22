@@ -1,32 +1,3 @@
-###  Публикация: 1754772   (103654) от 12.10.2024
-
-VA - Just Jazz (Luxurious Smooth Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IrisG - My Wildest Dreams (4:09)
-02. Hank Hehmsoth - Waltz for Carmen (5:26)
-03. Ingvi Þór Kormáksson - Always (3:04)
-04. Dora Pj - Taking Back My Love (4:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEA2C676A17BE8884B46469A06A27FA6C02A33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754750   (103653) от 12.10.2024
 
 VA - Dinner Jazz Instrumentals_ The Ultimate Collection, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -745,6 +716,35 @@ Frank Sinatra - Close To You And More (2002) Capitol Records [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EFA183D54FDFC250EF0C4228D3A304F1B5B9B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758549   (103339) от 03.11.2024
+
+Frank Sinatra - Where Are You? (2002) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Are You [3:30]
+02. The Night We Called It A Day [3:29]
+03. I Cover The Waterfront [2:59]
+04. Maybe You’ll Be There [3:07](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD688184A250D65D5C93B4D971E4893D13B0255
 ```
 
 https://mybot314.ru/tekegram_catalog/

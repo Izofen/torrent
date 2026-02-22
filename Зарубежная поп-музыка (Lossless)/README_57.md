@@ -1,3 +1,38 @@
+###  Публикация: 546749   (475757) от 14.09.2012
+
+Pink (P!nk) - The Truth About Love (2012) [FLAC|Lossless]<Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are We All We Are
+ 02. Blow Me (One Last Kiss)
+ 03. Try
+ 04. Just Give Me A Reason (ft. Nate Ruess)
+ 05. True Love (ft. Lily Rose Cooper‎)
+ 06. How Come You're Not Here
+ 07. Slut Like You
+ 08. The Truth About Love
+ 09. Beam Me Up
+ 10. Walk Of Shame(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939490   (475357) от 21.09.2015
 
 VA - 80s Love (2015) [FLAC|tracks|WEB-DL]<Rock, Ballad, Pop>
@@ -742,35 +777,6 @@ VA - Хочите танцев? (Got dance?) (2004) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD0CBDB05DE45F79C7EEA1AAA46323D4263C1036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246539   (461310) от 11.09.2018
-
-Bad Boys Blue - Super 20 (1989) [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461310.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lady In Black (Radio Edit) [03:49]
-2. Come Back And Stay [04:08]
-3. Gimmie, Gimmie Your Lovin' (Little Lady)[03:57]
-4. Hungry For Love (Radio Edit) [04:16](   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961B2E0184CB203A679DB70735910718986548D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

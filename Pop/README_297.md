@@ -1,3 +1,90 @@
+###  Публикация: 1345552   (165107) от 17.12.2019
+
+VA - MNM Big Hits - Best Of 2019 (2019) 3CD Box Set [FLAC|Lossless|tracks + .cue] <Pop, House, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165107.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ava Max - Sweet But Psycho
+02. Tones and I - Dance Monkey
+03. Marco Borsato, Armin van Buuren & Davina Michelle - Hoe Het Danst(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 03:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D55E916F08F6EA2DB5A7A1CB31D90D1670C146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673506   (165091) от 01.11.2023
+
+MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165091.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. SEX
+2. Шишки (Колбасный Цех 3)
+3. Колбасный Цех 2
+4. Дискотэка(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902EC44F55E952D9C4F0A2469DEF12AA112C06B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597864   (164981) от 16.12.2022
+
+VA - Sensation 80s - The Ultimate Funk & Disco Classics (2022) 2CD, Compilation [MP3|320 Kbps] <Post-Disco, Electro, Dance, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164981.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Earth, Wind & Fire - Fantasy (Single Version)
+02. Dan Hartman - Relight My Fire (Single Version)
+03. Midnight Star - Midas Touch (DJ Bronco Mix)(   Читать дальше...   )Жанр: Post-Disco, Electro, Dance, Euro-DiscoПродолжительность: 01:17:51 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:933C6FC7B7E4401715E71B743588E4825C8F0E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597827   (164807) от 16.12.2022
 
 Моя Мишель - Из цветов и темноты (2022) [MP3|320 Kbps] <Pop>
@@ -661,96 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C41508F29F268D795E368171D0C01B8CA299C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475594   (163799) от 02.11.2023
-
-Анна Герман - Z archiwum Polskiego Radia (2008) [FLAC|Lossless]<Ретро, эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163799.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1: (01:17:35)
-01. A kiedy wszystko zgaśnie (4:08)
-02. Stanęliśmy nad jeziorem (4:09)
-03. Ożeń się, Johny (3:18)(   Читать дальше...   )Жанр: Ретро, эстрадаПродолжительность: 01:18:04
-
-01. Człowieczy los (2:38)
-02. Kupiłabym Ci me kochanie (3:29)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C5305453FDD0DFA5F831B4DAD0B6FAF919EDF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482008   (163788) от 02.11.2023
-
-ВИА Пламя - Лучшее (2008) [FLAC|Lossless]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Идет солдат по городу
-02. Оксана
-03. Чаклунка гир
-04. На дальней станции сойду(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6AD79F6648D34939A1C585ABE0D08970F147BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503654   (163781) от 02.11.2023
-
-ВИА Верасы - Записи 70-х - 80-х годов (2001) [FLAC|Lossless]<Эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Малиновки заслышав голосок (Э. Ханок - А. Поперечный) (2:30)
-02. Я у бабушки живу (Э. Ханок - И. Шаферан) (3:54)
-03. Завируха (Э. Ханок - Г.  Буравкин) (4:20)
-04. Звезда любви (В. Раинчик -  В. Некляев) (5:00)(   Читать дальше...   )Жанр: ЭстрадаПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C4C1DB5863BF2A5466EA55412354B3720FA2CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

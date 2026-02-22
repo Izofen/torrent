@@ -1,3 +1,90 @@
+###  Публикация: 1521854   (763540) от 04.01.2022
+
+Honey Suckle Vine - Painted Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like We Did Back Then (3:27)
+02. She Gets Me (4:06)
+03. Aint The Same (6:08)
+04. Wasting Time (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1783D38078F95C9FE8D80145C554D19BA09B9DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521852   (763539) от 04.01.2022
+
+The Eclectic Beast Band - Off the Grid (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pitstop (4:03)
+02. Little Hipster (4:24)
+03. U No Good (3:19)
+04. B-Jamming (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB3ABF0640E9391E40B1AB14629DA62FA1A9056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214886   (763305) от 23.03.2018
+
+Rein De Graaff - Chasin' The Bird (1981) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasin' The Bird [05:15]
+02. Little Willie Leaps [04:18]
+03. Improvisation On Confirmation [03:03]
+04. Just Friends [09:16](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951076F2F8F73545EB69DE2E53F59AEC2A2975A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017184   (763265) от 16.05.2016
 
 Gary Burton - Who Is Gary Burton? (1960-1962) 2013, Essential Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -658,93 +745,6 @@ McKinney's Cotton Pickers - 1929 - 1930 (1992) Classics [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB565140C3989206231B8395E97646A53880DC51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280495   (760630) от 03.02.2019
-
-Blue Mitchell - Vital Blue (1971) 2017, Solid Records [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booty Shakin' [5:30]
-02. Vital Blue [5:25]
-03. Unseen Sounds [3:34]
-04. Herman's Helmet [7:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C57D70BF17A41F9CF4139CFE48E662DF22FAFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280334   (760624) от 03.02.2019
-
-Ant Law - Life I Know (2018) [FLAC|Lossless|tracks+.cue] <Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Movies. 4:52
-02. Searching. 2:40
-03. Aquilinus. 7:45
-04. Pure Imagination. 2:50(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3839CE322AFD9E918F58B9AA365A456863579B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394850   (760622) от 07.07.2020
-
-Andre Previn - Plays Songs By Harold Arlen 1960 (1994) Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Old Black Magic [4:36]
-02. Come Rain or Come Shine [4:38]
-03. My Shining Hour [3:42]
-04. Happiness Is a Thing Called Joe [4:32](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194A9BF809C9927C0DEA8480CB11CC9E4CA98B84
 ```
 
 https://mybot314.ru/tekegram_catalog/

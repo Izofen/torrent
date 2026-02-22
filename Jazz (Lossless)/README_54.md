@@ -1,3 +1,32 @@
+###  Публикация: 994119   (891571) от 07.03.2016
+
+Nicki Parrott - Angel Eyes (2014) [FLAC|Lossless|image + .cue] <Contemporary Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Be Around
+02. You Make Me Feel So Young
+03. The Nearness Of You
+04. I'll Never Be The Same(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795E8A9FF44C1DAEB8F1E024102A06FB8B2114A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869374   (891519) от 15.02.2015
 
 Nick Gorphai & Friends - Contemporary Thai Percussions (2007) [FLAC|Lossless]<Fusion, Ethnic>
@@ -749,41 +778,6 @@ Beegie Adair - Embraceable You (2004) [FLAC|Lossless]<Piano Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D53990E2D767A535BDD17E15C53DFEDDD440C815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763041   (888961) от 04.03.2014
-
-VA - Spaced Out Jazz (2009) [FLAC|Lossless]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Многие из засветившихся на этом сборнике имен уже достаточно полно представлены в клубе. Тем не менее рекомендую всем любителям джаза послушать этот диск. Эти в большинстве своем знакомые (ну кто ж например не знает Here Comes The Sun Джоржа Харрисона) медленные композиции, исполненные великими мастерами не оставят Вас равнодушными.01. George Benson -  Here Comes The Sun  (2:36)
-02. Don Ellis -  Mirror-Pond Of Stars  (3:26)
-03. Roy Ayers Ubiquity -  Time & Space  (4:08)
-04. George Duke -  Capricorn  (5:08)
-05. Roland Kovac Orchestra -  Milky Way  (3:02)
-06. Alphonse Mouzon -  Electric Moon  (4:53)
-07. Mike Nock Underground -  Space Bugaloo  (6:50)
-08. Pharoah Sanders -  Astral Traveling  (5:50)
-09. Sun Ra & His Intergalactic Research Arkestra -  Walkin' On The Moon  (8:53)
-10. Alice Coltrane -  Galaxy In Turiya  (9:57)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05DED27F53BE3B62ED7073BF56730C392681FFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

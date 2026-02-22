@@ -1,32 +1,3 @@
-###  Публикация: 1663730   (186490) от 23.09.2023
-
-Sahib Shihab - Summer Dawn (1963) 2008, Rearward [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lillemor [7:59]
-02. Please Don't Leave Me [9:47]
-03. Waltz for Seth [6:20]
-04. Campi's Idea [8:27](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30AA929E44AD1D3C4CA85114EE8F1FE72F4416D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663734   (186481) от 23.09.2023
 
 Renee Rosnes - As We Are Now (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -745,6 +716,35 @@ Lori Williams - Behind the Smiles (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5114BD6D04AD305D1E1FE921C2E5829801F4E708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427441   (183577) от 28.11.2020
+
+Kenny Dorham - Jerome Kern Showboat (1960) 1990, Bainbridge Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Do I Love You? [6:02]
+02. Nobody Else But Me [5:41]
+03. Can't Help Lovin' Dat Man [6:37]
+04. Make Believe [5:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3CD5F322EF879840232504679B109772C0808F
 ```
 
 https://mybot314.ru/tekegram_catalog/

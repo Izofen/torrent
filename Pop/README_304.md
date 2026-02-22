@@ -1,3 +1,90 @@
+###  Публикация: 967328   (158684) от 20.12.2015
+
+Анита Цой - Без вещей (2015) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Береги меня
+02. История одной подписи
+03. Без вещей
+04. Лето. Латте. Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76552D281DA13BE415B2ED867905DC9D39947380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966983   (158626) от 20.12.2015
+
+Taylor Swift - Fearless (2008) Reissue, Platinum Edition, 2010, BIG Machine Records [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump Then Fall (03:59)
+02. Untouchable (05:12)
+03. Forever & Always (Piano Version) (04:29)
+04. Come In With The Rain (03:59)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC2D789CAE736012B4F34DC16053374116675CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967272   (158591) от 20.12.2015
+
+VA - Хит-парад 70-х. Выпуск 2 (1998) [MP3|320 кб/с] <Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весёлые ребята - Отчего
+02. Цветы - Честно говоря
+03. Ариэль - Зимы и вёсны
+04. Лейся, песня - Не знаю, что и думать(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B865D9582296682B9FBE1FB1C35ECBCF9AE0BFFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967489   (158170) от 22.12.2015
 
 Enigma - A Posteriori (Private Lounge Remix) (2007) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Electronic, Trance>
@@ -658,93 +745,6 @@ VA - Amazon Music Best Songs Of 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B73783130DE5C37F89E21875BC9538E9ECBA7409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085603   (156334) от 22.12.2016
-
-VA - ZYX Italo Disco New Generation Bootmix 1-4 (2013-2016) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156334.jpg" />
-</div>
-
-
-###  Подробнее
-
-ZYX Music — студия звукозаписи (лейбл), основанный в Германии в 1971 году Бернхардом Микульски. До 1992 года лейбл носил имя Pop-Import Bernhard Mikulski. Лейбл специализировался в диско и ранней хаус-музыке. Основатель студии Бернард Микульски вкладывал средства в итало-диско в 80-е годы. В 1997 году, после смерти Бернхарда, студия перешла его вдове Кристине Микульски. (   Читать дальше...   )2013 - ZYX Italo Disco New Generation Bootmix 1
-01. Dyva - Joy (2:57)
-02. Dario - All The Night (2:21)
-03. Miko Mission - Let It Be Love (2:04)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 03:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158EEECE9E3B5D8AC9E73798C585D92BDA772BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085695   (156282) от 22.12.2016
-
-Блестящие - Best 20 (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Там, только там
-02. Цветы
-03. Облака
-04. Ча-ча-ча(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F77AC3309B7A64719B168D8F38981589ACEC543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085813   (156058) от 22.12.2016
-
-Dschinghis Khan - Greatest Hits (2012) Compilation, 2CD [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocking Son Of Dschinghis Khan (4:22)
-02. Temudschin (3:25)
-03. China Boy (4:07)
-04. Pistolero (4:21)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5C402D5F11487CFE62C7B8D7C774A5C4C365B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

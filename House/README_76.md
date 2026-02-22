@@ -1,3 +1,96 @@
+###  Публикация: 585892   (215331) от 13.12.2012
+
+VA - Full Body Workout Volume 10 (2012) [MP3|320 кб/с]<Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Smash TV – Stop Me Feat. MZ Sunday Luv (Original Mix) 6:43
+2. Flashmob – Ninety Five (Argy ’95 Mix) 6:34
+3. Dachshund & Quenum – Wurlitzer & Cocktail (Original Mix) 6:26
+4. Nolan – Skat (Original Mix) 6:01
+5. Just Be – Dusty Fingers (Original Mix) 8:32
+6. Tiger Stripes – Runaways (Original Mix) 5:36
+7. Javier Logares – Balaklava (Original Mix) 10:35
+8. Chris James – My Love (Original Mix) 6:20
+9. Simon Baker – Dreams (Original Mix) 7:37
+10. Sonartek, Andrea Landi – Never Mine (Original Mix) 7:00Жанр: Deep House, Tech HouseПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162289381AE82FEBED3CDD879DEDB624B8A55041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085527   (214738) от 21.12.2016
+
+VA - Best of Bedrock 2016 (2016) [MP3|320 Kbps] <Tech House, Techno, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagles & Butterflies - Murder Was the Bass (Nick Muir Remix) (7:47)
+02. Marc Romboy - Counting Comets (Ruede Hagelstein Remix) (9:46)
+03. Eagles & Butterflies - Fireworks (8:30)
+04. BOG - Rewired (7:40)(   Читать дальше...   )Жанр: Tech House, Techno, Progressive HouseПродолжительность: 02:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586E896A86C162D42F798B02A215645D8FF4447E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085571   (214654) от 21.12.2016
+
+VA - Ibiza Winter Session 2017: 25 Deep Smoothies (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lisa Reinhard - Take My Heart
+02. Tonya Oliveras - Flowers and Sun
+03. Yard Damn - Overnight
+04. Tiger Healer - Beauty Cat(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095BE67BDCB9A2D4C13ABFFB496427EE445296A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270293   (214503) от 18.12.2018
 
 VA - BC2 Winter (2 CD) (2018) [MP3|320 Kbps] <House, Deep House, Tech House>
@@ -658,93 +751,6 @@ VA - Deep-House World Vol. 2 (2022) CD, Compilation [MP3|320 Kbps] <Deep-House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5607B2B55EE79C3C558F9FBE3D9618146C722413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657803   (191915) от 06.09.2023
-
-VA - Dancing Services, Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leonora Garcia - Get High [03:59]
-02. Narra - Bodyrock [04:52]
-03. Mags - Cookin beats [05:17]
-04. DiviDance - Out My Head [03:06](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C00DAA085DE3DA68BDB36A33CE8A0F91C8F5DD32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658561   (191304) от 08.09.2023
-
-VA - I Love Ibiza 2023 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aribo - Worth the Wait (Plastik Funk Remix) (2:28)
-02. Nicky Jones - Vroom Vroom (2:37)
-03. DAZZ - When the World Goes Down (2:20)
-04. Paul C - Wakan (6:57)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF95D1393D3CA2895B359E9F090D485C5C0AFBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588745   (191107) от 06.11.2022
-
-VA - House It Up Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Funky House, Club House, Groove>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrey Exx - Got the Feeling (Original Mix)
-02. Berin - Midnight Drive (Original Mix)
-03. Zoom.Like - I'm so Excited (DJ Kone & Marc Palacios Extended Remix)
-04. Italo Vieira - Diamond (Original Mix)(   Читать дальше...   )Жанр: Funky House, Club House, GrooveПродолжительность: 01:35:05 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7868F1A9D503B33B4780DFFBD291B067BFEB013F
 ```
 
 https://mybot314.ru/tekegram_catalog/

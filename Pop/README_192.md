@@ -1,3 +1,119 @@
+###  Публикация: 821452   (483415) от 16.09.2014
+
+VA - 101 Love Songs: The Greatest Love Songs of all Time (2003) [FLAC|Lossless]<Pop, Rock, Classical , Soul, Funk, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Percy Sledge - When A Man Loves A Woman [02:56]
+02. Ben E King - Stand By Me [02:54]
+03. Phyllis Nelson - Move Closer [04:12]
+04. Al Gree - Let's Stay Together [03:16](   Читать дальше...   )Жанр: Pop, Rock, Classical , Soul, Funk, Jazz |Продолжительность: 05:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B028E75E0EF1FDFEFE3C8EE70B1574067DBE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545611   (482509) от 11.09.2012
+
+Sandra - Maybe Tonight (CD Single) (2012) [FLAC (tracks+cue)|Lossless]<Pop, Eurodisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe Tonight (Original Version)
+02. Maybe Tonight (Extended Version)
+03. Maybe Tonight (Dub Version)
+04. Maybe Tonight (Instrumental Version)Жанр: Pop, EurodiscoПродолжительность: 00:16:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566453   (482335) от 29.07.2022
+
+Bananarama - Masquerade (2022) [FLAC|Lossless|image + .cue] <Dance-pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482335.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2022 году легендарная Bananarama отмечает 40-летие сенсационного прорыва на мировой музыкальный Олимп. Именно тогда, в далеком 1982 году синглы новой girl group возглавили UK Singles Chart, а затем покорили музыкальные хит-парады многих стран мира. Феноменальный успех как в pop-, так и в dance чартах привел к тому, что Bananarama была занесена в Книгу рекордов (   Читать дальше...   )01. Favourite (3:08)
+02. Stay Wild (3:47)
+03. Velvet Lies (2:46)
+04. Masquerade (4:13)(   Читать дальше...   )Жанр: Dance-pop, Synth-popПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9B5329F35776C06F792A57FAC4036A54CB3B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566519   (482332) от 29.07.2022
+
+VA - All Time Summer Hits (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Animals - Heat Waves (3:58)
+02. Alexandra Stan - Mr. Saxobeat (Radio Edit) (3:15)
+03. ABBA - Summer Night City (3:33)
+04. Aloe Blacc - Brooklyn In The Summer (3:28)(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C8E8BCC7350E329855B1945FE40533F75BD0E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244411   (482024) от 01.09.2018
 
 Вячеслав Малежик - Альбом (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -647,128 +763,6 @@ A' La Carte - 4 Albums (1980-1989) Reissue CD [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32A6A5CE4C0A99284886AEE1372D58186AAFA614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405875   (478977) от 01.09.2020
-
-VA - 80s Road Trip (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UB40 - Red Red Wine (7” Version) (05:20)
-02. Tears For Fears - Everybody Wants To Rule The World (04:10)
-03. R.E.M. - Losing My Religion (04:28)
-04. Bryan Adams - Summer Of '69 (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 02:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D654F29DB29241034FF6F55D96E7B4B85E4D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406044   (478968) от 01.09.2020
-
-VA - DanceNet (1998) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Eurodance, Euro-Disco, Euro-House, Trance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking feat. Eric Singleton - You're My Heart, You're My Soul '98 (3:18)
-02. Ace of Base - Life is A Flower (3:43)
-03. The Tamperer feat. Maya - Feel It (3:14)
-04. Solid Harmonie - I Want You to Want Me (3:29)(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, Euro-House, TranceПродолжительность: 01:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C15D09E19B2C6DC12CF87043852930C7B2416B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385233   (478425) от 08.09.2011
-
-Inna - I Am The Club Rocker (2011) [MP3|320 kbps]<Electropop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un Momento
-02. Club Rocker
-03. House Is Going On
-04. Endless
-05. Sun Is Up
-06. W.O.W.
-07. Senorita
-08. We're Going In The Club
-09. July
-10. No Limit (Play & Win Club Mix)(   Читать дальше...   )2011Жанр: Electropop, DanceПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2DCB878F3B69D480EE582DDEBC372D5BCA430AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566728   (478335) от 31.07.2022
-
-Beyonce - RENAISSANCE (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'M THAT GIRL
-02. COZY
-03. ALIEN SUPERSTAR
-04. CUFF IT(   Читать дальше...   )Жанр: Pop, R&B, HouseПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2B7B696E1DAADC60020F4B0723280A613E2877
 ```
 
 https://mybot314.ru/tekegram_catalog/

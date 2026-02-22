@@ -1,3 +1,32 @@
+###  Публикация: 1156293   (526305) от 09.08.2017
+
+Кино - Черный Альбом (Последний) (1990)  [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <POP-ROCK>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кончится лето (05:53)
+02. Красно-Желтые дни (05:51)
+03. Нам с тобой (04:49)
+04. Звезда (04:27)(   Читать дальше...   )Жанр: POP-ROCKПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74747CD716FF9923C13E706702196DC60098F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157036   (526302) от 09.08.2017
 
 Cumulative Update KB4034658 for Windows 10 [Ru/En]
@@ -684,35 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838DD8590864836CBDC30C25158478ED9A73EAEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053320   (526047) от 17.09.2016
-
-Cubicolor - Brainsugar (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [02:21]
-02. Mirror Play [05:56]
-03. Dead End Thrills [04:28]
-04. Fictionalise [05:56](   Читать дальше...   )Жанр: Chill House, DowntempoПродолжительность: 01:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0721B968D51414D96934EEB42A52D1EEFDFC8902
 ```
 
 https://mybot314.ru/tekegram_catalog/

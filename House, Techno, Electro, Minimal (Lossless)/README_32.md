@@ -1,3 +1,61 @@
+###  Публикация: 1294230   (629994) от 07.04.2019
+
+VA - Solee - 10 Years Parquet Recordings (2016) Parquet Recordings [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solee - Ten (Original Mix) (08:19)
+ 02. Solee - Ten (Petar Dundov Remix) (08:59)
+ 03. Solee - Ten (Luca Bacchetti Endless Remix) (08:25)
+ 04. Solee - Ten (Habischman Remix) (07:08)(   Читать дальше...   )Тип издания: WEBЖанр: Tech House, Deep House, Progressive House •Продолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947726DE40A4C0D5606CB403365500A073228FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294375   (629985) от 07.04.2019
+
+Jayda G - Significant Changes (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629985.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Unifying The Center (Abstract) (03:13)
+2. Renewal (Hyla Mix) (04:58)
+3. Stanley’s Get Down (No Parking On The DF) (05:22)
+4. Leave Room 2 Breathe (Feat. Alexa Dash) (07:00)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E93CD1FB8B545EA37E1A740F7DBAF716F05459E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035347   (628614) от 16.07.2016
 
 Flava D - Fabriclive 88 (2016) [FLAC|Lossless|tracks] <House>
@@ -686,64 +744,6 @@ VA - Be Free 5 Years (2018) Be Free Recordings [FLAC|Lossless|WEB-DL|tracks] <De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7235ACE3404DBFA835C339CE54D8BE8372263041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295318   (618603) от 13.04.2019
-
-DJ Smash - Twenty Three (Special Burger King Edition) (2011) Special Edition [FLAC|Lossless|tracks + .cue] <House, Electronic, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Need You (Feat. Terri B! & MC Shayon) (4:08)
-02.Show Me To Your Love (Feat. Los Devchatos) (3:25)
-03.From Russia With Love (Feat. Los Devchatos) (3:17)
-04.Этой ночью (Feat. Лариса Долина) (3:47)(   Читать дальше...   )Жанр: House, Electronic, PopПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEEFE82D4A614AB7DE66823DCF0FFD30ECEB602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544947   (618388) от 17.04.2022
-
-Swedish House Mafia - Paradise Again (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Euro House, Bassline>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time (feat. Mapei) (04:41)
-02. Heaven Takes You Home (feat. Connie Constance) (03:34)
-03. Jacob's Note (feat. Jacob Muhlrad) (01:04)
-04. Moth to a Flame (feat. The Weeknd) (03:54)(   Читать дальше...   )Жанр: EDM, Electro House, Euro House, BasslineПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A66DA5DE1B5926F236DF38E9D081834A025CB92
 ```
 
 https://mybot314.ru/tekegram_catalog/

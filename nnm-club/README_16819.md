@@ -1,306 +1,25 @@
-###  Публикация: 1257494   (334713) от 31.10.2018
+###  Публикация: 1419584   (335700) от 30.10.2020
 
-Roxy Coss - The Future Is Female (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nevertheless, She Persisted [6:15]
-02. Little Did She Know [4:10]
-03. She Needed A Hero, So That's What She Became [6:07]
-04. Females Are Strong As Hell [3:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DFA50F9A71F317A5C18E0BF20B8B4E3C7C34D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579018   (334712) от 28.09.2022
-
-We are Legend - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - We Are Legend (EP)
-2013 - Rise of the Legend (Extended Version Remastered)
-2022 - Fallen AngelЖанр: Power MetalПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD1D76BF8976E6022DCABCCD9203D3C730ED012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258702   (334711) от 31.10.2018
-
-SpamSieve 2.9.34 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для macOS. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнно вам поможет.
-
-Хотя SpamSieve имеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам фильтра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: C-Command SoftwareПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04332B3EE0FB7024203E6C0965B5DBD8A4D4EB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955381   (334710) от 10.11.2015
-
-Red Giant Magic Bullet Suite 12.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Bullet Suite представляет собой набор из восьми инструментов финальной редакторской обработки, используемые для профессиональной цветокоррекции, улучшения и производства фильмов в Adobe After Effects, Adobe Premiere Pro, Apple Final Cut Pro X, Apple Motion и Avid Media Composer. В пакет включены - Cosmo, Colorista, Denoiser, MisFire, Mojo, Magic Bullet Film (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 ноября 2015Разработчик: Red Giant LLCПоддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F69B130CCFC0733141F12CF117510DDCE934CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579456   (334709) от 28.09.2022
-
-Psycada - Hiking Lung (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstract [00:01:21]
-02. Halal [00:04:01]
-03. Forest [00:08:43]
-04. Opaque [00:06:12](   Читать дальше...   )Жанр: Psychedelic, Space Rock, Stoner RockПродолжительность: 00:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F34E3F0EF3B9D7F4ABD59B34049275EE1A296D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258681   (334708) от 31.10.2018
-
-Поликсена Соловьева | Дедушкино кольцо (1912) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьесы в стихах.
-Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95CED6A7734DD36B9A9057135CF1568428DD0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954339   (334707) от 10.11.2015
-
-Агенты А.Н.К.Л. / The Man from U.N.C.L.E. (2015) BDRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наполеон Соло — агент ЦРУ, на счету которого огромное количество успешно проведенных операций. Он считается одним из лучших секретных агентов во всем мире, и с ним может сравниться только один человек — самый молодой и перспективный агент КГБ, Илья Курякин. Их противостояние переросло в настоящую войну, в которой никто не собирается уступать. Однако обстоятельства (   Читать дальше...   )Производство: США, Великобритания / Davis Entertainment, RatPac-Dune Entertainment, Warner Bros. Pictures, Wigram ProductionsЖанр: Боевик, Комедия, ПриключенияРежиссер: Гай РичиАктеры: Генри Кавилл, Арми Хаммер, Алисия Викандер, Элизабет Дебики, Хью Грант, Лука Кальвани, Сильвестр Грот, Джаред Харрис, Кристиан Беркель, Миша КузнецовПеревод: Дублированный iTunesПродолжительность: 01:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B9EF7C3C44C9172D6481EF6FBD073652F0BDA59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579672   (334706) от 28.09.2022
-
-Wolf On Fire - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sårede Blør i Hjerter [00:03:57]
-02. Movers & Shakers of the shit machine [00:04:11]
-03. Possibilities [00:03:48]
-04. Norwegian Psycho [00:04:59](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF59D82A9520620E6FAE14CACA3AB2A846C7F8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579659   (334705) от 28.09.2022
-
-Autopsy - Morbidity Triumphant (2022) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stab the Brain [00:03:15]
-02. Final Frost [00:04:09]
-03. The Voracious One [00:04:26]
-04. Born in Blood [00:03:47](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D27859F952CCB4682EBDB2153681CC8AFDF525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579700   (334704) от 28.09.2022
-
-Battlesword - Towards the Unknown (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Departure (00:51)
-02 - The Awakening (05:35)
-03 - To Become the Wolf (04:26)
-04 - Terra Combusta (05:36)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E92D22F9043186A5F7B3348D8B82A1690F98B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419537   (334703) от 30.10.2020
-
-VA - Ремиксы 2К20 6 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
+VA - The Secret Nightly Ride (2020) [MP3|320 Kbps] <Chillout, Relax, Ambient>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334703.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. #2Маши - Босая 2020 (Alex Shik Radio Edit) (2:52)
-02. 5sta Family - Один на один (ASPARAGUSproject Remix) (3:59)
-03. Agunda - Ну почему (Mixtrell & DJ Alex Ezhov Remix radio) (1:58)
-04. Artik &Asti&Dirt Cheap - Один на Миллион (DJ STROBB Mash up) (4:27)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 05:45:17
+001. Free South Project - In The Front Row
+002. J. R. Haim - Yasmin
+003. Hidden Rivers - Rosunn
+004. Vip Pass - Love Is (Soft Chill Mix)(   Читать дальше...   )Жанр: Chillout, Relax, AmbientПродолжительность: 08:43:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:563E11A856DF5729229D7ECC896C129537675553
+magnet:?xt=urn:btih:9A54418A3B31D6CC380DFAEAFA82CF6D00C60268
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,28 +27,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258684   (334702) от 31.10.2018
+###  Публикация: 727280   (335698) от 26.11.2013
 
-Phineas Newborn, Jr. - The Classic Albums 1956-1962 (2015) 5CD, Enlightenment [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+АБВГДейка. Части речи. Маленькие слова (2005) DVDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335698.jpg" />
+</div>
+
+
+###  Подробнее
+
+"АБВГДейка, АБВГДейка - это учеба и игра, АБВГДейка, АБВГДейка азбуку детям знать пора"… Под таким девизом эта развлекательно-обучающая программа для дошкольников с небольшими перерывами выходит в эфир вот уже тридцать лет.
+Все уроки в "АБВГДейке" проходят в форме веселого игрового спектакля. Постоянные персонажи передачи клоуны Клепа, Саня, Макаронка (   Читать дальше...   )Жанр: Детская обучающая передачаРежиссер: В.Д. БелобородовАктеры: Т.К. Черняева, С.Балобанов, К.Кузнецова, А. Вдовин, А.Коврижных, В.МакароваПродолжительность: 00:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91204380275E6556A523374849BC2AB74A1AB397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420124   (335697) от 30.10.2020
+
+Calibre 5.4.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BC66D0D5BE41A5FF6E47373249C0047BBC343D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181154   (335690) от 06.11.2017
+
+Paolo Fresu - Thinking (2006) EMI [WavPack|Lossless|image + .cue] <Post-Bop, Modern Creative>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334702.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Barbados [4:00]
-02. All The Thigs You Are [7:20]
-03. The More I See You [3:59](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 06:28:27
+01. Montevideo [06:32]
+02. DB thinking [04:48]
+03. Laborioso [06:34]
+04. Gallantry [04:08](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 01:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:289429FBB4C2B223ED63C2A45C9F7ED6143EF293
+magnet:?xt=urn:btih:AAACF823B788E760055D003F7774B3A0E80A4966
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579028   (334701) от 28.09.2022
+###  Публикация: 1181163   (335689) от 06.11.2017
 
-Infected Rain - Ecdysis (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Female Vocal>
+Joe Williams - Live (1973) 1997, Original Jazz Classics [APE|Lossless|image + .cue] <Vocal Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334701.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Postmortem Pt. 1 [00:04:59]
-02. Fighter [00:05:05]
-03. Longing [00:05:14]
-04. Goodbye [00:05:28](   Читать дальше...   )Жанр: Metalcore, Female VocalПродолжительность: 01:49:02
+01. Who She Do [04:29]
+02. On Green Dolphin Street [05:05]
+03. Heritage [03:22]
+04. Sad Song [04:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:265F69DF1ED136F720E55A8169B49C04B5FB7209
+magnet:?xt=urn:btih:DBE25B0B023693DD489E2DEA98B6E75567DA3ED1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,28 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420054   (334700) от 30.10.2020
+###  Публикация: 1181159   (335688) от 06.11.2017
 
-Zewski - Classic on the rocks (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+Peter O'Mara - Stairway (1993) Enja [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334700.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	Intro (Eichler)		01:30
-02.	Te Deum (Charpentier)		01:53
-03.	Sonata Facile (Mozart)		03:38
-04.	Siciliano  (Bach)		04:15(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:20
+01. Abertura [05:38]
+02. Stairway [08:02]
+03. Round & Round [06:16]
+04. Crescent [07:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:01:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2658541BFD4673DF095EE17F96F09286F52D4D1E
+magnet:?xt=urn:btih:65EA4E232248E9D8181CA389DCA2B96507FA1B39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +167,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258828   (334699) от 31.10.2018
+###  Публикация: 1180836   (335687) от 06.11.2017
 
-Yo La Tengo - Upside-Down (1992) EP [FLAC|Lossless|tracks + .cue] <Indie Rock>
+Фигурное катание. Гран-при 2017-2018. 3-й Этап. Кубок  Китая 2017. Пекин (Китай). 1 День (03.11.2017) HDTV [H.264/1080i-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334699.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Upside-Down (2:39)
- 02. (The) Farmer's Daughter (2:22)
- 03. Out Of Control (2:09)
- 04. Upside-Down (One More Time) (2:47)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:27
+3 ноября 2017 года, пятница.
+Серия Гран-при по фигурному катанию сезона 2017-2018.
+«Cup of China 2017» — 3-й Этап Гран-при. Пекин (Китай).
+1. Танцы на льду. Короткий танец(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:54:48—01:30:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F36E3B4FB43911AE749FBB187BADA5850A6D2CD
+magnet:?xt=urn:btih:3E7327BFFD383C565194D24C58AB74D114AA302D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,28 +196,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579513   (334698) от 28.09.2022
+###  Публикация: 1181201   (335686) от 06.11.2017
 
-Chaos Control - Call Of The Abyss (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Speed Metal>
+VA - Empire Records - Dancenudisco 16 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334698.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Prelude to Chaos (02:15)
-02 - Karma (04:56)
-03 - Call of the Abyss (03:31)
-04 - Rebellious (03:49)(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:47:45
+01. Block & Crown - You Started The Fire (Original Mix)
+02. M83 vs Kygo & Selena Gomez - It Ain't Midnight (DJ Nasa Mashup)
+03. Zayn & Taylor Swift - I Don't Wanna Live Forever (Eldar Stuff, Tim Cosmos Remix)
+04. Dj Ti-S - Take On Me (Radio Version)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:44:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4619D5680EFFC3934AD0CAACA409DA47C6B3F0E
+magnet:?xt=urn:btih:E0AA56C0F21015E743FCACF3E11A9B29701F5B75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,21 +225,104 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419627   (334697) от 30.10.2020
+###  Публикация: 1181182   (335685) от 06.11.2017
 
-AMD представила видеокарты Radeon RX 6000-й серии: Ampere повержен
+VA - Best of Chillout 2017 Vol 06 [MP3|320 Kbps] <Balearic, Downtempo>
 
->>3
->>4
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334697.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В рамках специального мероприятия AMD официально представила новое поколение графических решений, построенных на архитектуре RDNA 2 — видеокарты Radeon RX 6800, RX 6800 XT и RX 6900 XT. Новинки обещают двукратное превосходство над видеокартами прошлого поколения по производительности, а новая флагманская карта Radeon RX 6900 XT, как утверждает компания, станет исчерпывающим (   Читать дальше...   )
+01. Koda - Mikis [4:56]
+02. Shingo Nakamura - Hakodate (Sinerider Remix) [4:04]
+03. Puremusic - Creation [6:10]
+04. Data Rebel - Plink [4:58](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12F6264A5255DA7E844D975F4276366E65EDE7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180982   (335684) от 06.11.2017
+
+Анатолий Левандовский | Кавалер Сен-Жюст (1983) [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть "Кавалер Сен-Жюст" посвящена французскому революционеру конца XVIII века, другу и соратнику Робеспьера - Антуану Сен-Жюсту. Его неизменными идеалами являлись свобода, политическое равенство граждан, улучшение доли бедняка. Отличаясь редкой принципиальностью, упорством, выдержкой, настойчивостью, Сен-Жюст бок о бок с Робеспьером боролся за претворение (   Читать дальше...   )Жанр: История, политология, прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3EF20E3507D70901757B279D485994448EC9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181117   (335683) от 06.11.2017
+
+Наталья Михайлова | Пасха: стихи для благочестивых детей (2013) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит весёлые, интересные, забавные детские стихи православной поэтессы Натальи Михайловой, которые открывают красоту человеческой души и чудесный мир детства.
+Религиозное духовно-просветительское издание для детей младшего и среднего школьного возраста.Жанр: Православие. ПоэзияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68950738D90E81EF276F3E4EA1AD54446F28BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074397   (335682) от 20.11.2016
+
+Офицер Доун / Officer Downe (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_335682.jpg" />
+</div>
+
+
+###  Подробнее
+
+История, разворачивающаяся в гиперреалестичном Лос-Анджелесе, рассказывает об офицере полиции по фамилии Доун, которого при помощи тёмных технологий постоянно возвращают к жизни, чтобы он мог противостоять разгулявшейся преступности.
+«Офицер Доун» – экранизация одноимённого графического романа писателя Джо Кейси и художника Криса Бернхэма, снятая Шоном Крэханом, (   Читать дальше...   )Производство: США, Blackmrkt, Living Out Loud Films, Man of Action, Traverse MediaЖанр: БоевикРежиссер: Шон КрэханАктеры: Сэм Уитвер, Лорен Луна Велес, Ким Коутс, Элисон Ломан, Линдсей Палсифер, Джозеф Джулиан Сория, Рено Уилсон, Марк Невелдайн, Тайлер Росс, Ади Шанкар ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:30:56
 
 ## Скачать торент
 ```bash
@@ -479,25 +334,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419963   (334696) от 30.10.2020
+###  Публикация: 1074811   (335681) от 20.11.2016
 
-365 дней / 365 dni (365 Days) (2020) WEB-DL [H.265/1080p-LQ] [10-bit] [MVO]
+Шаблоны - CreativeMarket - Small Business Consulting Flyer [PSD]
 
->>След.
->>Зарубежные Фильмы (HD, FHD)
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334696.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Массимо Торичелли - молодой красивый босс сицилийской мафиозной семьи. После убийства отца конкурентами он вынужден взять на себя его обязанности. Лаура Бель - директор по продажам в роскошном отеле. Она успешна в профессии, но в личной жизни ей не хватает страсти. Лаура делает последнюю попытку сохранить отношения. Вместе с женихом и друзьями она летит на Сицилию, (   Читать дальше...   )Производство: Польша / Ekipa, Future Space, Next FilmЖанр: Драма, мелодрамаРежиссер: Барбара Бяловас, Томаш МандесАктеры: Анна Мария Сиклуцка, Мишель Морроне, Бронислав Вроцлавский, Отар Саралидзе, Магдалена Лямпарская, Наташа Урбаньска, Гражина Шаполовска, Томаш Стокингер, Джанни Паризи, Матеуш ЛасовскиПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: Русские, английскиеПродолжительность: 01:53:57
+Small Business Consulting Flyer - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2551x3582 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6186ABC6B8AC45B9724F4FC40E38DCF34FCCCE2
+magnet:?xt=urn:btih:006EBC78F351D1D94784A2D3BE8A19AF58AC0F72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,28 +360,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579698   (334695) от 28.09.2022
+###  Публикация: 1074753   (335680) от 20.11.2016
 
-Def Leppard - Adrenalize (1992), (2CD) Remastered, Reissue, 2009, Mercury [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+Операция "Соблазнение" / Une bonne lecon (2013) SATRip
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334695.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Let's Get Rocked
-02. Heaven Is
-03. Make Love Like A Man
-04. Tonight(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:51:23
+Когда Сидони возвращается из своего марокканского отпуска с тяжелым, разбитым сердцем, вызвавшим амнезию, ее сестра Марион, блестящий адвокат, решает «преследовать виновного». Им оказывается Диего — сотрудник курортного отеля и соблазнитель дам. Его начальство также в курсе происходящего и делает ему последнее предупреждение. Если он будет пойман на совращении еще (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Бруно ГарсиаАктеры: Ингрид Шовен, Фредерик Дифенталь, Сёрен Прево, Стефани Пастеркамп, Бланш Равалек, Жан-Мишель Дюпуа, Моника Экирт ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:29:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9F2F7995927E51750593C1E03BD42ED590891C3
+magnet:?xt=urn:btih:FCE07894A19A3F949CDB65973EEFE9EBA729E36B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,26 +386,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258678   (334694) от 31.10.2018
+###  Публикация: 1074948   (335679) от 20.11.2016
 
-В. Смирнов | Звездочки (1912) [PDF]
+Шрек мороз, зеленый нос / Шрек - Pождество / Shrek the halls (2007) BDRip [H.264/720p]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334694.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_335679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сказки в стихах.
-Для младшего и среднего школьного возраста.Жанр: Детская проза. Стихи.Формат: PDF
+На этот раз Шрек стремится устроить идеальный праздник, удивить Фиону и своих замечательных сорванцов. Только вот незадача: прямо в разгар мероприятия появляются незванные гости — Осел и Кот в Сапогах. Они рушат все планы Шрека и он, сам того не желая, превращается в настоящего скрягу, сказочную разновидность диккенсовского Скруджа.Производство: США | DreamWorksЖанр: Короткометражный анимационный фильмРежиссер: Гари ТруздейлПеревод: ДублированныйСубтитры: Русские, Украинские, Английские (полные, вшитые, отключаемые)Продолжительность: 00:28:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4C094C2CD1F7A9B4AC55C7E99B2CE95143C4D1B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,25 +412,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419898   (334693) от 30.10.2020
+###  Публикация: 1074975   (335678) от 20.11.2016
 
-Белка и Стрелка: Карибская тайна (2020) WEB-DLRip
+Шрек: Рождественская Феерия Ослиной Трели / Shrek: Donkeys caroling Christmas-tacular (2010) BDRip [H.264/720p]
 
 >>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334693.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У берегов Кубы происходит загадочная аномалия – огромный водяной смерч всасывает воду, осушая океан. Решением советского командования Белка и Стрелка отправляются к острову братских народов с разведывательной миссией. Красочная Куба, лазурная гладь океана и окутанный тайнами подводный мир встречают героев. Четвероногим исследователям и их команде предстоят опасные (   Читать дальше...   )Производство: Россия / Киностудия им. М. Горького, КиноАтисЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Инна ЕвланниковаАктеры: Евгений Миронов, Ирина Пегова, Юлия Пересильд, Сергей Шнуров, Сергей Бурунов, Сергей Дьячков, Диомид Виноградов, Елена Шульман, Антон Виноградов, Андрей ЛёвинПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:20:00
+Осел предлагает всем петь колядки. Осел поет "Это самое замечательное время". Шрек, Фиона, дети людоеда, и армия огров поют огр - версию "Джингл Белл рок" - "Cказочный рок".Кот в сапогах поет "Фелиз Навидад" - "Блох навидал".Производство: США | DreamWorksЖанр: Короткометражный анимационный фильмРежиссер: Уолт Дорн, Майк МитчелПеревод: Дублированный (СТС)Субтитры: Английские (полные, вшитые, отключаемые)Продолжительность: 00:07:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80892856F80C366908D3B5A310F38999DAA8ED31
+magnet:?xt=urn:btih:9C6399C7BF8C16F55F1086C04B95D0FDEB78D0CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,28 +438,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579540   (334692) от 28.09.2022
+###  Публикация: 1074958   (335677) от 20.11.2016
 
-Torchlight Parade - 3 Albums (2014-2022) [MP3|320 Kbps] <Classic Hard Rock, Heavy Metal>
+Stand Up (2016.11.20) SATRip (сезон 5, выпуск 7)
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334692.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_335677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vestibule [00:02:15]
-02. Never Laugh When a Hearse Rolls By [00:04:15]
-03. She's Gone [00:04:11]
-04. Crucifer Rising [00:04:18](   Читать дальше...   )Жанр: Classic Hard Rock, Heavy MetalПродолжительность: 3 CD, 01:50:31
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:47:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A77CD2EA9BD48A82AC69AF7CC2A09D2D92A5B753
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,26 +464,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258679   (334691) от 31.10.2018
+###  Публикация: 1074666   (335676) от 20.11.2016
 
-Снегурушка и лиса (1912) [PDF]
+Картинки - Виды неизведанного космоса [JPG]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Графика, Арт, Разное
+>>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334691.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Русские народные сказки.
-Для младшего и среднего школьного возраста.Жанр: Детская проза. Сказка.Формат: PDF
+Космическая подборка из 1125 картинок на Ваш рабочий стол.Формат: JPGРазрешение файлов: 1920x1080-16384x8192
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA2027DF359EFC2F85C828A2287C461DE3139CAC
+magnet:?xt=urn:btih:377A7F30AB8ABF2063B0FAFFDA96D4E2A90331F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,28 +490,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579563   (334690) от 28.09.2022
+###  Публикация: 1074967   (335675) от 20.11.2016
 
-Redman, Mehldau, McBride, Blade - LongGone (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Воскресный вечер с Владимиром Соловьевым (2016.11.20) SATRip (части 1-2 из 2)
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334690.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The second album from Joshua Redman's reunited '90s quartet, 2022's LongGone is another warmly relaxed affair showcasing the group's seasoned sophistication. When they first debuted on 1994's Moodswing, they were a cadre of up-and-coming young lions. Almost 30 years later, the lineup of saxophonist Redman, pianist Brad Mehldau, bassist Christian McBride, and drummer (   Читать дальше...   )01. Long Gone (Redman) - 7:21
-02. Disco Ears (Redman) - 6:21
-03. Statuesque (Redman) - 8:19
-04. Kite Song (Redman) - 6:00(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:16
+"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 01:09:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:646E5B80B9D1DF3C2FA6AA4F61F80E9785E451C7
+magnet:?xt=urn:btih:55322E2F543E8E7FBB377B6056F31F7225E76674
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,28 +516,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258626   (334689) от 31.10.2018
+###  Публикация: 1074696   (335674) от 20.11.2016
 
-VA - NDATL 10 Year Special Edition 2018 (2018) NDATL Muzik [FLAC|Lossless|tracks|Vinyl] <Deep House, Techno>
+Алчность / Greed (2008) WEB-DL [H.264/720p]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334689.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rhythim Is Rhythim - Move It (Unreleased Live Mix) (04:19)
- 02. Chez Damier - Never Knew Love (Kai Alcé Unreleased Mix) (06:09)
- 03. Mike Huckaby - Sunset With The Jazz Republic (06:00)
- 04. Norm Talley - Rollin Thru (04:19)(   Читать дальше...   )Жанр: Deep House, TechnoПродолжительность: 00:46:46
+«...Монстры реальны, и призраки реальны тоже.
+Они живут внутри нас, а иногда они побеждают.» p.s.Стивен Кинг
+
+Мультфильм об одном из самых страшных человеческих пороков — об алчности.(   Читать дальше...   )Производство: ШвецияЖанр: Короткометражный анимационный фильмРежиссер: Алли СаджианиПеревод: не требуется (немая анимация)Продолжительность: 00:02:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38EE88FF2389FD034854678B608DC56AACB20750
+magnet:?xt=urn:btih:E39CCE9226B0D445127FAE0D17A0561EB7F64320
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,26 +545,156 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258780   (334688) от 31.10.2018
+###  Публикация: 1074396   (335673) от 20.11.2016
 
-Scrutiny 8 v8.1.16 [En]
+Брат за брата (2014) WEBRip (сезон 3, серии 1-30 из 30)
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334688.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Scrutiny - программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+Он потерял брата, друга и любимую… А тот, кто дошел до края, пойдет на все и готов ко всему!
+Прошел год с тех пор, как бандиты стреляли в капитана полиции Игоря Светлова. Они же взорвали машину бывшего начальника городского ОВД, а ныне бизнесмена и главного врага Светлова – Сергея Кравчука. В автомобиле кроме самого Кравчука находилась его дочь Ника, она же невеста (   Читать дальше...   )Производство: Россия, Украина / "StarMedia"Жанр: Детектив, КриминалРежиссер: Олег Туранский, Олег ФилипенкоАктеры: Ярослав Бойко, Егор Клеймёнов, Владимир Стеклов, Фархад Махмудов, Владимир Маслаков, Анатолий Зиновенко, Борис Смирнов, Виктор Кошель, Александр Мельник, Юрий Игнатенко и др...Продолжительность: ~ 00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BA8A570A0F1DC1FC9E1B7C749FF0A9FAD6B8BBB
+magnet:?xt=urn:btih:8887443AFB0001218D3338153EFDF6A24BE91F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074815   (335672) от 20.11.2016
+
+Шаблоны - CreativeMarket - Business Training Agency Flyer [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Business Training Agency Flyer - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2551x3582 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7186DC7DE9FDE1612CDDFFF62D56394A03D16278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074633   (335671) от 20.11.2016
+
+Б.Г. Миронов, Е.С. Панфилова | Сборник упражнений для чтения чертежей по инженерной графике (2010) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335671.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии содержатся упражнения по основам начертательной геометрии и проекционного черчения. К упражнениям дано множество эпюров для чтения, приведены ортогональные чертежи учебных моделей. В конце учебного пособия даны ответы к вопросам каждого упражнения.Жанр: Инженерная графикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F598E605807CD16C32380C58839A2C8823C3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074879   (335670) от 20.11.2016
+
+Гранд тур / The Grand Tour (2016) WEBRip [H.264/720p-LQ] (сезон 1, серия 1) Jetvis Studio & RG.Paravozik
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335670.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Amazon StudiosЖанр: Реальное ТВ, комедияПеревод: Многоголосый закадровый, профессиональный - Jetvis Studio & RG.ParavozikОзвучка: Иван Назаров, Сергей Битюцкий, Михаил Вельмискин, Никита ПугачЯзык субтитров: русский, английскийПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F743F0E6B5673FE6E37E61BC0892D906E480E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074913   (335669) от 20.11.2016
+
+Шрек: Поросёнок, который крикнул «Оборотни!» / The Pig Who Cried Werewolf (2011) BDRip [H.264/720p]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_335669.jpg" />
+</div>
+
+
+###  Подробнее
+
+В соседний дом трех поросят заселяется волк. Один из поросят начинает следить за ним и с ужасом узнает, что волк под лунным светом превращается в пухлую женщину средних лет, которая одержима готовить свинину…Производство: США | DreamWorksЖанр: Короткометражный анимационный фильмРежиссер: Гари ТруздейлПеревод: ДублированныйСубтитры: Английские (полные, вшитые, отключаемые)Продолжительность: 00:06:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074828   (335668) от 20.11.2016
+
+Шаблоны - CreativeMarket - Winter Break Flyer Template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winter Break Flyer - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 1275x1875 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188832852CA02FBA6FCE041BF50A9940D306C253
 ```
 
 https://mybot314.ru/tekegram_catalog/

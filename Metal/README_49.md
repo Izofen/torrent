@@ -1,3 +1,32 @@
+###  Публикация: 1525251   (739119) от 22.01.2022
+
+Preludium Fury - Battle of the Defender (2022) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spells Attack (04:20)
+02. Guardian of Everlaste (05:05)
+03. Nightmare Creatures (04:57)
+04. Giant Terror (04:49)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368EA6681AF4AA4759CDEFB2BA28611D07AAC2CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526616   (738151) от 25.01.2022
 
 Feuerschwanz - Memento Mori (2021) Deluxe Version, 3CD [MP3|320 kbps] <Metal>
@@ -716,35 +745,6 @@ Sailing To Nowhere - Lost in Time (2017) [MP3|320 Kbps] <Melodic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC8FC5893E52108660D2E45424FBBFCEDF4185D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128497   (727551) от 25.04.2017
-
-Trance - The Loser Strikes Back (2017) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunderbird Rising
-02. I Want to Live
-03. Star Invaders
-04. Loser(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E66A2D9B037E31A000B488EE3F1866B9DAB1FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1720344   (110289) от 03.05.2024
-
-Raphael Imbert, Johan Farjot & Guests - Les 1001 Nuits du Jazz: Live au Bal Blomet (2020) Music Development [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for Angels [3:13]
-02. Gee, Baby, Ain't I Good to You [3:14]
-03. Yekermo Sew [9:11]
-04. All to Myself Alone [4:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Vocal JazzПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625EED25021BB53EC501B0A707687BAD6230FAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720837   (110101) от 06.05.2024
 
 Yusef Lateef - Atlantis Lullaby: The Concert From Avignon (1972) 2CD, 2024, Elemental Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -745,6 +716,35 @@ George Shearing & Brian Torff - Blues Alley Jazz (1979) 1989, Concord Jazz [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8CBE4A862D17CC435E31C5E06305E2664ACA100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722594   (109661) от 12.05.2024
+
+Kenny Barron - Wanton Spirit (1994) Verve [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the Coltrane [6:10]
+02. Sail Away [6:27]
+03. Be Bop [8:35]
+04. Passion Flower [7:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A645D626E0F83520ED51BF984FDEE3E9C435846
 ```
 
 https://mybot314.ru/tekegram_catalog/

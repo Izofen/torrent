@@ -1,3 +1,119 @@
+###  Публикация: 1548820   (596188) от 04.05.2022
+
+Imagination - Like It Is - Revised And Remixed Classics (1989) [FLAC|Lossless|tracks + .cue] <Funk, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Changes
+02. Burning Up
+03. Just An Illusion
+04. Body Talk(   Читать дальше...   )Жанр: Funk, Disco, PopПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5D9015D3FDD625DC1DA26501060C49DE04319D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299753   (596175) от 03.05.2019
+
+Stéphanie Bédard (Stephanie Bedard) - Ricochet (2019) EP [FLAC|Lossless|tracks + .cue] <Pop, Francophone>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596175.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tu m'emmènes (3:38)
+2. Tous ces gens (4:11)
+3. La dérive (4:35)
+4. Ensemble (3:09)Жанр: Pop, FrancophoneПродолжительность: 00:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C58CE7FC44413840B91ABC6549F5B93C5B42F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299724   (596162) от 03.05.2019
+
+VA - Die Deutschen Disco Charts - Schlager Superhits (2019) [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eloy de Jong - An deiner Seite
+02. Daniela Alfinito - Du warst jede Träne wert
+03. De Lancaster Meets Bella Vista feat. Onkel J. - So wie im Film
+04. Norman Langen - Dieses Gefühl(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A782FF54CA4BC5A583A2277C63459A3FAAB08C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914273   (596112) от 03.07.2015
+
+A-ha - Greatest Hits (1999) [FLAC|tracks + .cue]<Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me [03:47]
+02. Cry Wolf [04:08]
+03. Touchy [04:37]
+04. You Are The One (Remix) [03:47](   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E22C53AA99AA107EF7B7A31E655A49711512F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299662   (596070) от 03.05.2019
 
 VA - The Acoustic Album (2006) 2CD [FLAC|Lossless|image + .cue] <Acoustic Pop-Rock, Folk, Singer-Songwriter>
@@ -658,122 +774,6 @@ VA - Mastermix Jet Boot Jack Remixes 2: Extended (2022) [MP3|320 Kbps] <Dance, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B90F2E288F5A078803F492B45C63A5DC5B9DBC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549310   (593954) от 06.05.2022
-
-O.C.A - Ночной дожор (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593954.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Бездна
-2. Зайки
-3. 7 нот
-4. Море(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AE871AF500CED2047B0D0DF93BB15ED437D44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233031   (593943) от 28.06.2018
-
-Johnny Wakelin - Reggae, Soul And Rock'N'Roll (1976) LP [MP3|320 Kbps] <Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reggae, Soul And Rock'n'roll (3:17)
-02. Cream Puff (2:22)
-03. In Zaire (3:18)
-04. Me I'm A Capricorn (3:34)(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A905BDBB78180FB53579273F3F13F5FDC63B6075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549343   (593904) от 06.05.2022
-
-VA - ZYX Club 2020/1 (2020) 2CD, Compilation [MP3|320 Kbps] <Dance, House, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Avila - Beautiful Girls (2:42)
-02. Vize feat. Laniia - Stars (VIP Remix) (2:36)
-03. Niels Van Gogh - Like a bullet (Radio Edit) (2:51)
-04. Teddy Cream - Summer Jam (2:42)(   Читать дальше...   )Жанр: Dance, House, TechnopopПродолжительность: 01:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B179FC38C0319D83DF567C719E8624A73951598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300235   (593880) от 05.05.2019
-
-Vicky Brown - The Collection (1993) [FLAC|Lossless|image + .cue] <Pop, Classical Crossover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't let go (4:16)
-02. The nearness of you (4:17)
-03. Stay with me til the morning (3:50)
-04. Jesu, joy of man's desiring (3:11)(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED50949303E9470EFC5D442096A1B89396FB8F3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1129590   (720797) от 29.04.2017
+
+Shorty Rogers - Creative West Coast Swing (1951-1954) 4CD, 2005, Membran [APE|Lossless|tracks + .cue] <West Coast Jazz, Cool, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720797.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Popo [03:02]
+02. Over the Rainbow [03:01]
+03. Didi [02:27](   Читать дальше...   )Жанр: West Coast Jazz, Cool, Big BandПродолжительность: 02:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1ED351E4DA7F9F9CB306919B8A268637903C4DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024066   (720693) от 07.06.2016
 
 Stanley Turrentine - Hustlin' (1964) [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -716,35 +745,6 @@ Seiko Matsuda - Seiko Jazz 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C20B43A71DBAE1C5BE2F9518DB71D4865294D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130244   (716799) от 01.05.2017
-
-Duke Ellington - Welcome To The Clubs (1956 - 1959) 2014, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Newport Up [05:44]
-02. I Got It Bad And That Ain't Good [02:24]
-03. Tulip Or Turnip [03:00]
-04. Mood Indigo [01:00](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20866EF20543C7B68BD776839EFD71A105DA620A
 ```
 
 https://mybot314.ru/tekegram_catalog/

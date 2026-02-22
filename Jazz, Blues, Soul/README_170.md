@@ -1,3 +1,90 @@
+###  Публикация: 1209191   (779519) от 25.02.2018
+
+Janiva Magness - Love Is An Army (2018) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To Blue
+02. Hammer (ft. Charlie Musselwhite)
+03. On And On (ft. Rusty Young)
+04. Tell Me(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB67500BE59FBC4E880E8680FC82D1033BAD9A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209433   (779396) от 26.02.2018
+
+Vince Vallicelli Band (feat. James Thompson) - New Blues (2004) LM Records [MP3|320 Kbps] <Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винс Валличелли родился в Форли в 1951 году. Его увлечение музыкой началось в пятнадцать лет, именно тогда, музыкальные ритмы блюза начинают его отвлекать от всех остальных интересов. В этот же период он решил поступить в Консерваторию Пезаро "Джоаккино Россини", где начинает посещать курс перкуссии, и вскоре Винс формируя свою первую группу "CENTURY (   Читать дальше...   )01. New Blues 4:39
+02. Watermelon Man 8:27
+03. Night Train 7:47
+04. Whisky and Women 9:42(   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339523BE45079962CD95B539E16E00F0E611C051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209670   (779146) от 28.02.2018
+
+Amanda Ginsburg - Jag har funderat pa en sak (2018) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I de manga valens land (4:09)
+02. Vem ar du? (4:20)
+03. En romantisk komedi (2:07)
+04. Flykten fran vardagen (feat. Nils Landgren) (4:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552814170AD452FC25A6BBEE37B7A773EA9D65A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210205   (779016) от 01.03.2018
 
 Ellen Doty - Come Fall (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -658,93 +745,6 @@ Cees Slinger, Clifford Jordan, Philly Joe Jones, Isla Eckinger - Sling Shot! (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B4E415300CCE1E475D5B07DF2DDA1A902B01838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013571   (777676) от 04.05.2016
-
-Buster Williams Trio - Tokudo (Japan Edition) (1989) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokudo (Williams) - 9:38
-02. This Time the Dream's on Me (Arlen-Mercer) - 6:34
-03. Fuego (Williams) - 7:42
-04. This Is the End of a Beautiful Friendship (Styne-Kahn) - 6:49(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2503973AB327C69FC2D91EF88512B03FDC946679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013318   (777658) от 04.05.2016
-
-Electrophazz - Growing Strong (2013) [MP3|320 кб/с] <Jazz, Acid Jazz, Electronica>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prephazz (03:29)
-02. Deluxe Edition (feat. Keven Smith) (02:07)
-03. Obamo (feat. Telep) (03:27)
-04. Strange Cloud (feat. Telep) (05:39)(   Читать дальше...   )Производство: Phazz productionЖанр: Jazz, Acid Jazz, ElectronicaПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B72C0649A305BD14D124989226CDDB4456234A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013517   (777657) от 04.05.2016
-
-Lou Mecca, Bill de Arango, Chuck Wayne - 3 Swinging Guitar Sessions (1953-1955) 2015, Fresh Sound Recor[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.All the Things You Are [04:15]
- 02.You Go to My Head [04:55]
- 03.Bernie's Tune [04:21]
- 04.Stan's Invention [03:36](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Guitar JazzПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D25B6C1C867699F80C9CDB878798A9271DDE104
 ```
 
 https://mybot314.ru/tekegram_catalog/

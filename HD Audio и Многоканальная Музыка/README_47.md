@@ -1,3 +1,177 @@
+###  Публикация: 1627798   (242809) от 20.04.2023
+
+Васил Найденов & ФСБ - Адаптация (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Pop, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242809.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 А Дали Е Така • Так ли это
+A2 Малка Балада За Пловдив • Маленькаая баллада о Пловдиве
+A3 Пясъчен Часовник • Песочные часы
+A4 И Утре Е Ден • И завтра будет день(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A0EF948F1A68E406BCA6542E1D05245B67CB82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953402   (242781) от 10.04.2022
+
+Lesek Semelka (Lešek Semelka) - Coloured Dreams (1985) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Blues Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242781.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Sea Fish Ways (Rybí Dráhy)
+A2	Will You Help Me (Tak Mi Pomoz)
+A3	Shoe Shine (Čistič Tváŕí)
+A4	Hi Hi Hi (Vtip)(   Читать дальше...   )Жанр: Blues Rock, Prog RockПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B383381F211F2600167B9E196651428328B42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634001   (242767) от 19.05.2023
+
+Гюлли Чохели - Поет Гюлли Чохели (1971) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242767.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Тополиный Пух
+A2 На Свидании
+A3 Уже
+A4 Манана(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B81F9591649B7234310FAA2F989D966510BBA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634351   (242599) от 20.05.2023
+
+Rebellion - Studio Albums (9 releases) (2002-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rebellion — немецкая heavy metal группа. Была создана в 2001, бывшими участниками Grave Digger - гитаристом Уве Лулисом и басистом Томи Гёттлихом.2002 - Shakespeare's Macbeth - A Tragedy in Steel
+2003 - Born A Rebel
+2005 - Sagas Of Iceland - The History Of The Vikings-Volume I
+2007 - Miklagard - The History Of The Vikings-Volume IIЖанр: Heavy/Power MetalПродолжительность: 09:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2086E899A69D23FA4FDEF886257285F302E36339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624080   (242461) от 04.04.2023
+
+The Twins - A Wild Romance (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242461.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Love System 4:20
+A2 Ballet Dancer 3:25
+A3 A Wild Romance 4:42
+A4 Private Eye 4:44(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DAC657497338BD5E9EF221B428E7D88B720060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634629   (242453) от 21.05.2023
+
+Давид Ойстрах и симфонический оркестр ВР, дир. А. Хачатурян - А. Хачатурян - Концерт для скрипки с оркестром ре-минор (1966) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Classical, Modern>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242453.jpg" />
+</div>
+
+
+###  Подробнее
+
+А. Хачатурян
+A  I. Allegro Con Fermezza
+B1 II. Andante Sostenuto
+B2 III. Allegro Vivance(   Читать дальше...   )Жанр: Classical, ModernПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859C363F4EC2DFB100ACF6E5157A4D94890FAA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624613   (242217) от 07.04.2023
 
 Dire Straits - Love Over Gold (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
@@ -571,180 +745,6 @@ A4	Е. Семенова -	На Минутку(   Читать дальше...   
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CE0E7A934960643F398F9CD49EE3A6DCDD36852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637245   (240023) от 03.06.2023
-
-DIO - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Holy Diver
-02. Rainbow In The Dark
-03. Don't Talk To Strangers(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B682B62B24B39B2BA0E92A97DCF50B1A537F3223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627339   (239963) от 18.04.2023
-
-Thomas Anders - Whispers (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239963.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Sweet Hello, The Sad Goodbye 4:32
-A2 Whispers Of Love 5:05
-A3 The Echo Of My Heart 4:27
-A4 Maybe I'm Dreaming 4:23(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8A61895B0FC82BA45E281A48A90FCF017F2724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626980   (239947) от 16.04.2023
-
-Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239947.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Desire 3:47
-A2 Vicious Games 4:18
-A3 Oh Yeah 3:05
-A4 Desert Inn 3:30(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145DCD8D2CBA70C79D0C6A55D926360B6B106E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635275   (239937) от 25.05.2023
-
-VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Folk, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239937.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 П. Нечепоренко - Час Да По Часу
-A2 П. Нечепоренко - Олынка
-A3 П. Нечепоренко - Цвели, Цвели Цветики
-A4 П. Нечепоренко - Наигрыш Владимирских Рожечников(   Читать дальше...   )Жанр: Folk, InstrumentalПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E5CF22E869351C78A846E76F1C8C0586F1413C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635254   (239913) от 25.05.2023
-
-Heretic - Studio Albums (4 releases) (1986-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heretic - американская пауэр-метал группа из Лос-Анджелеса, образованная в 1986 году.1986(2013) - Torture Knows No Boundary (EP)
-1988 - Breaking Point
-2012 - A Time Of Crisis
-2017 - A Game You Cannot WinЖанр: Heavy/Power/Thrash MetalПродолжительность: 02:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800744C29636105CC849E27C2B23158D2EF05028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635324   (239834) от 25.05.2023
-
-И. Кальман - Принцесса цирка. Фрагменты из оперетты, запись 1952 г. (1982) [FLAC 1.0|192/24|tracks|Vinyl-Rip] <Classical, Operetta>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-Увертюра. I действие
-Сцена и дуэт Лизы и Тони. Ария Мистера Икс. Ария Сюзанны
-Сцена и дуэт Сюзанны и Мистера Икс(   Читать дальше...   )Жанр: Classical, OperettaПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD16EB57D724FF98A3C033448138801106671ACD
 ```
 
 https://mybot314.ru/tekegram_catalog/

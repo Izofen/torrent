@@ -1,25 +1,23 @@
-###  Публикация: 1397634   (737562) от 22.07.2020
+###  Публикация: 1526185   (738834) от 23.01.2022
 
-Protomartyr - Ultimate Success Today (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Dropzone 4 Pro v4.2.4 [En]
 
->>
->>
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_737562.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738834.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Day Without End (03:16)
-02. Processed By The Boys (05:05)
-03. I Am You Now (03:12)
-04. The Aphorist (03:43)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:07
+Dropzone - удобная утилита для автоматизация рутинных действий.
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2022 Aptonic LimitedПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B6085782CF5FA9725ED73075E8B029DFCBA95B69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397690   (737561) от 22.07.2020
+###  Публикация: 1526059   (738833) от 23.01.2022
 
-VA - Beatport Trance: Electro Sound Pack: #128 (2020) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
+VA - Balearic Sunset (The Buddha Ambient Edition), Vol. 1 (2022) [AAC|~279 Kbps] <Ambient, Lounge>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737561.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738833.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Don Ka Millo - Message In A Bottle
-002. Sunlounger - White Sand
-003. Stolas - Beck Neck
-004. Akerman - Gate Of Time(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 10:12:16
+01. Richard Le Monde - Keep Your Mind in Balance (1:48)
+02. Santorini Sunset Groove - A Process of Constant Change (1:48)
+03. Yves St. Pierre - On the Point of Blooming (1:42)
+04. The Maldive Lovers - Principal Tenets (1:54)(   Читать дальше...   )Жанр: Ambient, LoungeПродолжительность: 01:13:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0B65AE4FD77D1E37F0C5085EA05A54023DA95F6
+magnet:?xt=urn:btih:FB85391B315E76B85FECFF64B9C6DE3707A64558
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397640   (737560) от 22.07.2020
+###  Публикация: 1526150   (738832) от 23.01.2022
 
-VA - Relaxing 80s Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Sam Martin - Alpha Omega (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737560.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738832.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Meg Birch - Big Love (3:28)
-02. Karizma Duo - Come On Eileen (2:31)
-03. Shannon & Keast - Time After Time (3:45)
-04. The Shaken Bakers - Dancing in the Dark (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:40
+01. Alpha Omega (40:43)
+ 02. The Birth (1:10)
+ 03. Come On! (0:35)
+ 04. Summer Days (3:09)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:21:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:098964AF7D4D14D68DEDB6A7C4C52F833A79953D
+magnet:?xt=urn:btih:9C6A2964FBFAD084C0B20BEBDE826A2D64AA5E5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397786   (737559) от 22.07.2020
+###  Публикация: 1526060   (738831) от 23.01.2022
 
-IObit Smart Defrag Pro 6.6.0.66 RePack (& Portable) by elchupacabra [Multi/Ru]
+VA - Lounge & Beauty, vol. 1 (2022) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_737559.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Living Room - The Birds & the Bees (Original Mix) (2:15)
+02. Roberto Bronco - Reminisce (Original Mix) (5:07)
+03. Weber & Weber - The Diamond Life (Original Mix) (5:24)
+04. Alexandra Hampton, Ahbee - Love (Original Mix) (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:16:08
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:94C63771370BE3AD50BFC2A78823656C58CD5D07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,26 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397772   (737558) от 22.07.2020
+###  Публикация: 1526082   (738830) от 23.01.2022
 
-Ольга Бочкова | Не дам себя в обиду! Правдивые истории из жизни Никиты (2019) [EPUB]
+VA - Summer in Electro & Swing Jazz (Light Music Selection Night Session) (2018) [AAC|~333 Kbps] <Jazz>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737558.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738830.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Никита – обычный мальчик, он учится в начальной школе. С Никитой столько всего случается! Он скачивал новую песню на телефон, и мошенники списали с него деньги. Потом, когда Никита был дома один, прорвало трубу, и сантехник – незнакомый человек! – требовал открыть ему дверь. А однажды незнакомая женщина обманом пыталась куда-то увести Никиту…
-Что же делать в таких (   Читать дальше...   )Жанр: Безопасность жизнедеятельности, Воспитание детей, Развитие детейФормат: EPUB
+01. Christian Lisi - Ukulele Swing (2:50)
+02. JazzInCase - Non dimenticare (3:19)
+03. Minor Swing Quintet - Prince of Persia (7:27)
+04. Parma Brass Quintet - Toccata (2:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E790E5A2A10584E0B10595761BF81DBCB3364E9E
+magnet:?xt=urn:btih:BE139D20612F6E9EF37794B555DBAA4D85D067B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,28 +141,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397820   (737557) от 22.07.2020
+###  Публикация: 1526171   (738829) от 23.01.2022
 
-Наринэ Абгарян | Манюня, юбилей Ба и прочие треволнения (2017) [MP3]
+AnyMP4 iOS Toolkit for Mac 9.0.66 [Multi]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737557.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Любая история имеет свое начало и свой конец».
-Перед вами – третья, заключительная книга о девочке Манюне и прочих ее друзьях-родственниках.
-Это большое счастье, когда история одной семьи находит отклик в сердцах стольких людей.
-Мы хотим поблагодарить вас за то, что вы были с нами.(   Читать дальше...   )Жанр: Детская литература/Проза/ПриключенияПродолжительность: 10:26:10
+При помощи приложения AnyMP4 iOS Toolkit, ранее AnyMP4 iPhone Data Recovery, вы можете восстановить данные с iPhone / iPad / iPod на Mac.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2022 AnyMP4 StudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DEA1D924F5DF7A0CD3D2B183706EA6BF8B96B8F
+magnet:?xt=urn:btih:27BD5F0771CC8E387D8DBED1CD57C49F68348606
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,25 +167,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397712   (737556) от 22.07.2020
+###  Публикация: 1526226   (738828) от 23.01.2022
 
-Балаган Лимитед - Ремиксы (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+iCompta 6 v6.0.53 [Multi]
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737556.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Балаган Лимитед feat. DJ NeoMaster - Вася-ВасилёкЖанр: Pop, DanceПродолжительность: 00:52:28
+iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2021 LyricAppsПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA31FAA5801A61DE605A7C6079026377BF5A8E53
+magnet:?xt=urn:btih:1B8B71E3B759021EE9F9CF18A0AF17D0B7E6DA11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,26 +193,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397807   (737555) от 22.07.2020
+###  Публикация: 1526180   (738827) от 23.01.2022
 
-Юлия Ляпина | Фея страшных снов (2020) [EPUB]
+Cisdem Video Converter 7.0.2 [En]
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737555.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Светлая магиня из благородной семьи внезапно перерождается в темную. Кто виноват? Ах старинное проклятье рода? Но ведь темная же!
-Чтобы не запятнать семью, родственники отказываются от Александрины, оставляют ее в Королевской Школе для юных леди и забывают об ее существовании. Тяжело пережить такое предательство в шестнадцать лет! Да и темный дар не дает покоя, наполняя (   Читать дальше...   )Жанр: Фэнтези, Книги про волшебниковФормат: EPUB
+Скачать онлайн-видео, Rip DVD или конвертировать видео между всеми форматами & устройств на Mac.
+Cisdem Video Converter является решением все в одном для видео развлечений. Cisdem VideoConverter будет полезен если вы конвертируете видео & аудио файлы в любом формате, записываете DVD фильмы или скачиваете видео с YouTube, Google, Yahoo, и т.д Он самый стабильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.12.2021Разработчик: © 2021 Cisdem Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:060F198516404ED0E22BB6954351F639F07FB26C
+magnet:?xt=urn:btih:05A6941751140892603C3FCD445B3920B2134311
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,25 +220,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397756   (737554) от 22.07.2020
+###  Публикация: 1526295   (738826) от 23.01.2022
 
-Как важно быть серьезным / The Importance of Being Earnest (1986) DVDRip [H.264] [VO]
+EdgeView 3 v3.2.2 [En]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737554.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что произойдет, если два блистательных британских джентльмена от скуки затеют рискованную и непредсказуемую игру в псевдонимы? Как, например, неотразимый Джек, заботливый опекун юной Сесили, приезжающий в Лондон, чтобы под именем Эрнест сделать предложение аристократке Гвендолин, и неутомимый ловкач Олги, предлагающий руку и сердце провинциалке Сесили также под именем (   Читать дальше...   )Производство: Великобритания / BBC Television CentreЖанр: КомедияРежиссер: Стюарт БёрджАктеры: Джон Вуднатт, Руперт Фрейзер, Пол МакГанн, Джоан Плаурайт, Аманда Редман, Джемма Джонс, Натали Огл, Алек МакКоуэн, Джон Кармби, Питер КоплиПеревод: Одноголосый любительский, lehachuevСубтитры: ОтсутствуютПродолжительность: 01:50:03
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EAE40BB11D23BEAAD8BDD8254966EFA032E21F3
+magnet:?xt=urn:btih:7808EB39F91A61A1CB77AD47995BB26BA60AB471
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,25 +246,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397535   (737553) от 22.07.2020
+###  Публикация: 1526236   (738825) от 23.01.2022
 
-Ирина Фуфаева | Как называются женщины. Феминитивы: история, устройство, конкуренция (2020) [FB2]
+VA - Hamburg Orange (Urban Music for Urban People) (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Научная и техническая литература
->>Научно-популярная литература
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737553.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге «Как называются женщины. Феминитивы: история, устройство, конкуренция» лингвист из РГГУ Ирина Фуфаева отвечает на множество вопросов о феминитивах. В том числе – вопросов ещё не заданных. Здесь нет «за» или «против». Здесь – о русском словообразовании, о его парадоксах и логике, о безостановочной работе языка. Удивительным образом долгая история обозначения (   Читать дальше...   )Жанр: ЛингвистикаФормат: FB2
+01. Philip Aniskin, Alexsandra Mell - Too Close to You (4:54)
+02. Velvet Dreamer, Tim Gelo - Eternal Beauty (5:08)
+03. LastEDEN - Hot City Walk (3:18)
+04. Miss Luna, Neshia - Smile (Florito Mix) (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A728A9EAFD3E14131BC5275B30AECA0CD4587789
+magnet:?xt=urn:btih:20297BFD690959D26B73889599071B6009FE893C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,28 +275,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 856582   (737552) от 22.07.2020
+###  Публикация: 1526005   (738824) от 23.01.2022
 
-Emitt Rhodes - Emitt Rhodes (1970) Reissue /1993, One Way Records/ [FLAC|Lossless]<Rock>
+Cats in Boots - Kicked & Klawed (1990) [APE|Lossless|image + .cue] <Sleaze Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737552.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. With My Face On The Floor (3:10)
-02. Somebody Made For Me (2:25)
-03. She's Such A Beauty (2:24)
-04. Long Time No See (3:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:02
+01. Shot Gun Sally
+02. Nine Lives (Save Me)
+03. Her Monkey
+04. Whip It Out(   Читать дальше...   )Жанр: Sleaze RockПродолжительность: 00:48:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9524287C191128C002E7F630BC70D2224522A9F4
+magnet:?xt=urn:btih:105DABAA60620E953AA4B48FD260E32D692E0D14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -301,26 +304,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397823   (737551) от 22.07.2020
+###  Публикация: 1526068   (738823) от 23.01.2022
 
-Светлана Замлелова | Эдуард Стрельцов. Воля к жизни (2020) [EPUB]
+VA - Beautiful Vocal Trance, ch. 3 (2019) [AAC|~332 Kbps] <Trance>
 
->>Разное (категория книг)
->>Публицистика
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737551.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эдуард Стрельцов – легенда советского спорта. Именно с его именем связывают главную политическую несправедливость в истории отечественного футбола, и до сих пор многие задаются вопросом: «Что если..?»
-Он был гениальным игроком, настоящим феноменом, который в 18 лет стал лучшим бомбардиром первенства СССР и основным нападающим сборной. Чемпионат мира 1958 года мог (   Читать дальше...   )Жанр: Биографии и мемуары, Спорт, ПублицистикаФормат: EPUB
+01. Aurosonic, Neev Kennedy, Bote - What Else Is There To Love (3:31)
+02. Costa, Cathy Burton - Always (3:38)
+03. Beat Service, Ana Criado - So Much Of Me Is You (Radio Edit) (3:33)
+04. 4 Strings, Susanne Teutenberg - A Brand New Day (2:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:207C208941CF46CA7C57D1DBF415CC294B1CB146
+magnet:?xt=urn:btih:50DE6CD05DE0DCE0293E3059872D1B723D929755
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,83 +333,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397705   (737550) от 22.07.2020
+###  Публикация: 1526189   (738822) от 23.01.2022
 
-Юлия Пирумова | Хрупкие люди. Тайная дверь в мир нарциссов (2020) [MP3]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737550.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хрупкие люди» – это книга-путеводитель по миру нарциссизма. Миру, где каждый из нас вынужден создавать себе сверхценность и поддерживать хрупкую самооценку, рискующую в любой момент расколоться на фоне вездесущего «успешного успеха».
-Автор книги, практикующий психотерапевт и популярный psy-блогер Юлия Пирумова, исследует феномен нарциссизма, попутно реабилитируя (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 09:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E131008187F8E5C69CA806CAB8C150DF313EC9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397682   (737549) от 22.07.2020
-
-VA - Beatport Chill House: Electro Sound Pack #129 (2020) [MP3|320 Kbps] <Chill House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737549.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sharapov - My Way (Original Mix)
-002. Aex - I Wanna Know
-003. Dp Project - The Magic Dream Of Music
-004. Max The Sax - Make Me Feel Good(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 11:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1652F5848130303B7BDC0933B990A1EC8C205FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397764   (737548) от 22.07.2020
-
-Blender 2.83.3 LTS + Portable [Multi/Ru]
+Mirror for Hisense TV 3.8.3 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737548.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
-
-В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Отображение экрана для телевизоров Hisense
+Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Hisense. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Смарт-ТВ Hisense с 2012 и позже. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EFC74E143ED4F16F8F1CDB2FABEAC91AD9FB408
+magnet:?xt=urn:btih:71C365880A00B630EA737E363DF50736120E4308
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,28 +360,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397627   (737547) от 22.07.2020
+###  Публикация: 1526069   (738821) от 23.01.2022
 
-Футбол. Серия А. Чемпионат Италии 2019-2020. 29-й тур. Торино — Лацио (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+VA - Beautiful Vocal Trance, ch. 4 (2019) [AAC|~338 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737547.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия А. Чемпионат Италии по футболу 2019-2020. 29-й тур.
-Торино (Турин) — Лацио (Рим)
-Стадион: Олимпико ди Торино (Турин, Италия), вместимость: 27500
-Главный судья: Давиде Масса (Италия);(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:45
+01. Aurosonic, Cathy Burton, AxelPolo - Loving Overflow (Radio Edit) (3:37)
+02. Costa, Sarah Lynn - The Water's Edge (3:51)
+03. 4 Strings, Maria Nayler - Remember You As Mine (3:21)
+04. Tenishia, Ana Criado - Ever True (Radio Edit) (4:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57BE4D2FBF956831F1F9676D7E7785CC41C7CA8F
+magnet:?xt=urn:btih:8E4B361C950FC70A6C4D59DB859CEA6C824F0783
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,28 +389,202 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397685   (737546) от 22.07.2020
+###  Публикация: 1526083   (738820) от 23.01.2022
 
-VA - The Hits Album The 60s Album (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, R'n'B>
+VA - Summer in Electro & Swing Jazz (Light Music Selection) (2018) [AAC|~317 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JazzInCase - Bon bon (4:51)
+02. Ely Bruna - Dolce Vita (2:55)
+03. Bomba Titinka - Treno a bebop (2:52)
+04. Just Bubbles - Rising for the Moon (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E54DD9158EF5AECC57128ABBDC44797B42D81D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526114   (738819) от 23.01.2022
+
+Charlie Ventura Quartet & Quintet - Complete Verve Studio Sessions (1951 - 1952) 2001, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon [2:53]
+02. I'm Confessin' [3:07]
+03. Bugle Call Rag [2:50]
+04. Rose Room [2:49](   Читать дальше...   )Жанр: SwingПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5270650604EDD65C4C34A060B741B6F412014D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526076   (738818) от 23.01.2022
+
+VA - Beautiful Vocal Trance, Progressive (2020) [AAC|~336 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic, Kate Louise Smith - From Dust To Ground (3:28)
+02. Costa, Ana Criado - The Secret Garden (3:30)
+03. Frainbreeze, Claudiu Adam, Yentl - Trust The Water To Settle (3:33)
+04. Aurosonic, Ellie Lawson - Becoming (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C8DCB84376F83233FA5A2AC65202F42E2AAF2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526065   (738817) от 23.01.2022
+
+VA - Beautiful Vocal Trance, ch. 2 (2018) [AAC|~340 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Service, Ana Criado - An Autumn Tale (Radio Edit) (4:10)
+02. Nicholas Gunn, Alina Renae - Older (Costa Remix) (3:32)
+03. Witness45, Cynthia Hall, Fashion Police - I'm Still Here (Radio Edit) (2:48)
+04. Tenishia, Sue Mclaren - Strong (Radio Edit) (3:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB12342767B81CAFA1A3665836FD206F366F1228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526074   (738816) от 23.01.2022
+
+VA - Beautiful Vocal Trance, ch. 5 (2020) [AAC|~337 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa, Ana Criado - The Secret Garden (3:30)
+02. Aurosonic, Stine Grove - In Euphoria We Rise (3:29)
+03. Dark Matters, Jess Morgan - I Don't Believe In Miracles (Shogun Remix) (4:16)
+04. Beat Service, Cathy Burton - Love Is Your Home (Radio Edit) (3:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB6141C542FADC2703237CF7CFE5E59D29C924B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526216   (738815) от 23.01.2022
+
+VA - London Orange (Urban Music for Urban People) (2016) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tribeca - First to Say Goodbye (Original Mix) (5:34)
+02. Roberto Bronco - Breath (Original Mix) (4:05)
+03. Houie D. - Silence (Be.Me.Ti.Lou) (5:11)
+04. Ingo Herrmann - Soulmate (Original Mix) (4:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B648B5ED05FA0782AAA8410F1B1E158186830F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526135   (738814) от 23.01.2022
+
+Baynk - ADOLESCENCE (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737546.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Beach Boys - Good Vibrations (03:36)
-02. Simon & Garfunkel - Mrs. Robinson (04:02)
-03. The Byrds - Mr. Tambourine Man (02:20)
-04. The Mamas & The Papas - California Dreamin' (02:40)(   Читать дальше...   )Жанр: Pop, Rock, R'n'BПродолжительность: 03:52:44
+01. Touch Me (Hold My Hand) (4:01)
+ 02. BAYNK, Tinashe - Esther (3:12)
+ 03. BAYNK, Cosmo's Midnight - How Does It Feel? (3:39)
+ 04. BAYNK, Drama - 1 Chance (3:22)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:34:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61F5770E6A5159F4ED032370476B5198C138A351
+magnet:?xt=urn:btih:3D87CE67873927F60C18D41282117058BFC32AE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,28 +592,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397692   (737545) от 22.07.2020
+###  Публикация: 1526212   (738813) от 23.01.2022
 
-VA - DUB Tropical House: World Electro Sound (2020) [MP3|320 Kbps] <Dub House>
+Screenshot Editor 2.3.3 fix [Multi/Ru]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737545.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Clang83 - Bootstrap
-02. Clubzound - Get On Up (Remastered Mix)
-03. Justin Point - Predilection
-04. Moshic - Element 115(   Читать дальше...   )Жанр: Dub HouseПродолжительность: 08:38:34
+Screenshot Editor (Редактор скриншотов) поможет вам легко сделать скриншот и прокомментировать его с использованием набора полезных инструментов разметки.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA741F46B7EC7745939A85A9193DA199EA786F67
+magnet:?xt=urn:btih:5471F0C6A796B31456C31D33195B93955AFDB3BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,25 +618,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 786623   (737544) от 15.05.2014
+###  Публикация: 1526240   (738812) от 23.01.2022
 
-Boom Library - NATURE ESSENTIALS [WAV]
+VA - Barcelona Orange (Urban Music for Urban People) (2017) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737544.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Nature Essentials это первая библиотека звуковых эффектов в серии потрясающих звукозаписей природы от звукорежиссера Гордона Хемптона. Эта библиотека предлагает все необходимые ингредиенты для незамедлительного создания великолепных природных звуковых пейзажей. Звуковая палитра включает ветер, дождь, гром, ручьи, широкий выбор окружений и вокализаций дикой природы.Формат: WAV
+01. Marga Sol - Amoralea (5:58)
+02. Paulsen & Stryczek - Havana Postcard (3:03)
+03. Leo de la Rosa - Desnudos Tú Y Yo (3:23)
+04. Marco Bianchi, Franky Harper - Oye Como VA (3:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C178CD551F27E65F3B27AB3732B031168CEA0A93
+magnet:?xt=urn:btih:E62CAA0F9102FA36E0CA94CC427481088443209F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -525,25 +647,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 786841   (737543) от 15.05.2014
+###  Публикация: 1526077   (738811) от 23.01.2022
 
-Прощай, мир / Goodbye World (2013) BDRip  [1080p] [EN]
+VA - Beautiful Vocal Trance, ch. 7 (2022) [AAC|~326 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737543.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Общее прошлое заставляет собраться давних друзей в удаленном от цивилизации доме.Жанр: Драма, КомедияРежиссер: Дэнис ХеннелиАктеры: Эдриан Гренье, Габи Хоффманн, Бен МакКензи, Марк Веббер, Керри Бише, Каролин Давернас, Скотт Мескади, Реми Нозик, Линк Хэнд, Лаура КачергусПеревод: ОтсутствуетПродолжительность: 01:40:56
+01. Aurosonic, Katty Heath - Tale of Us (3:36)
+02. Aldous - Wait For Me (3:02)
+03. Bruce Cullen, Paula Alcasid - Upside Down (3:43)
+04. Costa, Jessie Lee Thetford - Distant World (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:24:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:375E936385ECF2887B19519A9CF42CEA2F3AE553
+magnet:?xt=urn:btih:BC15772E977FF84B0D500B3768A5123AAA943B93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,25 +676,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 786751   (737541) от 15.05.2014
+###  Публикация: 1526063   (738810) от 23.01.2022
 
-Google Nik Software Complete Collection 1.2.0.3 [Multi/Ru]
+VA - Beautiful Vocal Trance, ch. 1 (2017) [AAC|~338 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Программ
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737541.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Google Nik Collection — это наиболее полная коллекция плагинов от одного из лучших производителей плагинов для Adobe Photoshop. Complete Collection включает в себя полный набор плагинов для Adobe Photoshop®, Lightroom® and Aperture® including: Dfine® , Viveza® , HDR Efex Pro™, Color Efex Pro™, Silver Efex Pro™and Sharpener Pro™ . С помощью этих плагинов вы сможете (   Читать дальше...   )Язык интерфейса: Русский, English и пр.
+01. Ana Criado - Vulnerable (Denis Kenzo Edit) (4:17)
+02. Beat Service, Sarah Lynn - Dream Weaver (Radio Edit) (4:03)
+03. Radion6, Katty Heath - Beautiful Nothing (Radio Edit) (2:59)
+04. 4 Strings, Denise Rivera - In The Middle of a Dream (Radio Edit) (3:11)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCE9BDB0401C2DFA562F1B673BC0F6FD3B818170
+magnet:?xt=urn:btih:52D131820A0E393189C6EF8DEA7E7CBF999BDE32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,130 +705,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 783309   (737539) от 15.05.2014
+###  Публикация: 1526134   (738809) от 23.01.2022
 
-Гап Дон - Воспоминания об убийстве / Gapdongi / Gab Dong / Memories Of Murder (2014) HDTVRip [H.264/720p-LQ] [серии 1-8 из 20] [KOR, Rus Sub] (Обновляемая)
+Stygian Dark - Gorelords Of War (2021) [FLAC|Lossless|image + .cue] <Old School Death Metal>
 
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737539.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Основано на реальных событиях. В конце 1986 года корейский город Хвасон потрясли страшные находки, положившие начало расследованию самого громкого преступления, вошедшего в историю современной Кореи как "Дело хвасонского убийцы". В период с 15 сентября 1986 года по 3 апреля 1991 года были найдены тела 10 женщин в возрасте от 14 до 71 года. Жертв связывали, (   Читать дальше...   )Жанр: Детектив, Триллер, МелодрамаРежиссер: Чжо Су ВонАктеры: Юн Сан Хён, Сон Дон Иль, Ким Мин Чжон, Ли Чжун, Ким Чжи Вон, Чон Ин Ги, Кан Нам Гиль, Чан Кван, Чо Чжи Хван, Мин Сон Ук, Чон Вон Чжун, Чан Хи СуПеревод: субтитрыПродолжительность: ~01:00:00 серия
+01. Gorelords of War (03:53)
+02. Driven by Ravenous Hunger (02:36)
+03. Casket Malediction (03:02)
+04. Lick the Oculus (03:28)(   Читать дальше...   )Жанр: Old School Death MetalПродолжительность: 00:33:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08170CBDA9FF8DAD49894408C88510E03C9A4E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786650   (737537) от 15.05.2014
-
-Портал юрского периода / Первобытное / Primeval (2007-2011) DVDRip / BDRip (сезоны 1-5, серии 1-36 из 36) ТВ3
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737537.jpg" />
-</div>
-
-
-###  Подробнее
-
-XXI век. В Великобритании начинают происходить необъяснимые вещи: в разных уголках страны люди замечают животных, которые по утверждению палеонтологов вымерли миллионы лет назад. Британское правительство создает тайное научное агентство во главе с Джеймсом Лестером. Члены этой организации выясняют, что в природе существуют некие загадочные дыры между современным (   Читать дальше...   )Жанр: Фантастика, Боевик, ПриключенияРежиссер: Цилла Уэр (Cilla Ware), Джэми Пэйн (Jamie Payne), Марк Эверест (Mark Everest), Роберт Куинн (Robert Quinn), Эндрю Ганн (Andrew Gunn), Ник Мерфи (Nick Murphy), Ричард Кёрсон Смит (Richard Curson Smith),Тони Митчелл (Tony Mitchell), Мэттью Томпсон (Matthew Thompson)Актеры: Эндрю Ли Поттс, Ханна Спирритт, Бен Миллер, Бен Менсфилд, Киаран МакМенамин, Рут Кирни, Александр Сиддиг, Дуглас Хеншэлл, Люси Браун, Джеймс Мюррэй, Джульетт Обри, Лайла Руасс, Джейсон ФлемингПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: ТВ3Продолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A91E97344CD86C4E99CD144D81D7A767F3B1706F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786704   (737536) от 15.05.2014
-
-Час расплаты / Paycheck (2003) BDRip [H.264/720p-LQ]  [Hi10P]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласно предварительной договоренности, после завершения двухлетнего контракта разработчик компьютерных программ Дженнингс должен получить 5 миллионов долларов за свою работу, однако вместо чека банковский служащий протягивает ему 20 непонятных предметов.
- Дженнингс поражен. Он хочет узнать, кто разрешил это сделать, и получает странный ответ: он сам! С этого момента (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, ДетективРежиссер: Джон ВуАктеры: Бен Аффлек, Аарон Экхарт, Ума Турман, Пол Джаматти, Колм Фиор, Джо Мортон, Майкл С. Холл, Питер Фридман, Кэтрин Моррис, Ивана МиличевичПеревод: Профессиональный (полное дублирование), Профессиональный (двухголосый, закадровый), Авторский (одноголосый закадровый)Продолжительность: 01:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CE52B1D019244E1BFB0B4116EAE4FA8A4A61A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786599   (737533) от 15.05.2014
-
-Boom Library - THUNDER & RAIN [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunder and Rain - это третья библиотека из серии высококачественных и удивительных аудио записей природы от звукорежиссера Гордона Хемптона. Эта коллекция предоставляет Вам все необходимое для создания идеального шторма. В библиотеку вошло: 22 изолированные записи грома, включая близкие удары, резонирующие раскаты, 35 разных интенсивностей дождя и 9 записей шторма.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70B39C51FAA63108B151B0E0ED72DEB5C849CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786730   (737532) от 15.05.2014
-
-Окулус / Oculus (2013) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть родителей сильно повлияла на судьбу двух осиротевших детей. По прошествии времени, в двадцатилетнем возрасте, сестра все еще продолжает так считать и хочет доказать брату, что привидение, вышедшее из зеркала, стало причиной гибели близких людей и всех случившихся последующих бед…Производство: СШАЖанр: Ужасы, ТриллерРежиссер: Майк ФлэнеганАктеры: Карен Гиллан, Брентон Туэйтес, Кэти Сакхофф, Рори Кокрейн, Анналиса Бассо, Гаррет Райан, Джеймс Лэфферти, Мигель Сандовал, Кейт Сигел, Скотт ГрэхэмПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C088F8FEACB50E53D063235110BE4EB52FF2DE
+magnet:?xt=urn:btih:B76F80DD4FC67BB6AE2E38A109D4A9EC6B41C797
 ```
 
 https://mybot314.ru/tekegram_catalog/

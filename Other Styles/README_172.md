@@ -1,3 +1,32 @@
+###  Публикация: 1588100   (191048) от 06.11.2022
+
+James Last - Ocean Drive (Easy Living) (2001) [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crocketts Theme
+02. Ocean Drive
+03. Wo die Sonne scheint
+04. Orange Blossom Special(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3172019C98896181DCB48F576BED5D1A4CC76596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658550   (190893) от 09.09.2023
 
 Крематорий - Грезы скотного двора (Barnyard Dreams, ballet) (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
@@ -716,35 +745,6 @@ VA - The Orient Collective: Vimana (2023) [FLAC|Lossless|WEB-DL|tracks] <World, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF685A32DF8AA8E5105DCABEFB069D79EE72DC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666235   (180112) от 03.10.2023
-
-VA - The Orient Collective: Ethereal Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FIN Project - Vision (JosSync Remix) (6:15)
-02. Ali Termos - Qartaba (5:38)
-03. Tamer ElDerini - Fagr (5:42)
-04. Kakura - Savannah (7:25)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCD4FB9AC4E8D48B4ACA98A7AD6C4A6766E99FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

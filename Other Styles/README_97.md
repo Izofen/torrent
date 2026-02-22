@@ -1,3 +1,32 @@
+###  Публикация: 1145054   (619710) от 26.06.2017
+
+David Thomas - Edheldred (2015-2016) 2 альбома [MP3|320 Kbps] <Epic, New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fidei Defensor (4:56)
+02. Siempre Fidelis (4:08)
+03. In Hoc Signo Vinces (4:06)
+04. Domine Dirige Nos (3:44)(   Читать дальше...   )Жанр: Epic, New Age, EnigmaticПродолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCCDDBD69A164C7E86B5C649CE1C96B7BA416A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 683411   (619656) от 28.07.2013
 
 Vangelis - Light And Shadow: The Best Of Vangelis (2013) [MP3|320 Kbps] <Electronic, New Age, Ambient>
@@ -740,35 +769,6 @@ Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36D9FAC37A1D85E23831F02E6FB571A17AB163DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230622   (614052) от 13.06.2018
-
-Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Dreamtime Initiation
-02 – Crystal Journey
-03 – Ocean Calling
-04 – Equinox Ambience(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AFDEBEBDA4C5F127F6B80B73536BACBE33EF6AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

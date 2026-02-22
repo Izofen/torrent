@@ -1,3 +1,38 @@
+###  Публикация: 491035   (102582) от 02.05.2012
+
+Oli Brown - Here I Am (2012) [WavPack|Lossless]<Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Am (4:08)
+02. Thinking About Her  (3:48)
+03. Manic Bloom (4:02)
+04. All We Had To Give (3:41)
+05. You Can Only Blame Yourself  (4:33)
+06. Start It Again  (3:44)
+07. Devil In Me  (4:30)
+08. I Love You More You'll Ever Know  (7:06)
+09. Remedy (4:21)
+10. Mr. Wilson (4:04)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490625   (102571) от 02.05.2012
 
 Mills Blue Rhythm Band - Mills Blue Rhythm Band The Chronological (1936-1937) (1993) [FLAC|Lossless]<Big Band, Swing>
@@ -727,35 +762,6 @@ Kenny Acosta Band - It's All Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7368AEA3FE892E9ABB79DA7A557B0F3D9ADF94CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766754   (101215) от 20.12.2024
-
-Jelly-Roll Morton - 1928 - 1929 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Hot Pepper [3:12]
-02. Deep Creek [3:32]
-03. Pep [2:57]
-04. Seattle Hunch [3:10](   Читать дальше...   )Жанр: New Orleans JazzПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F9465466474681C686AECDAB5A63B3C2DC153D
 ```
 
 https://mybot314.ru/tekegram_catalog/

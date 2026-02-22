@@ -1,3 +1,32 @@
+###  Публикация: 1161899   (463569) от 30.08.2017
+
+VA - Uplifting Month Of The Year VA (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yanni - Prelude (Cymatics Remix)
+02. Sansom - Top Horizon (Original Mix)
+03. Saphirsky - The Promise (Playme Remix)
+04. Saphirsky - Divine (Dream Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE97146F594A160E97AF4C6873584AA213F4199C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246607   (461570) от 11.09.2018
 
 VA - Va Liquid Trance (2018) [MP3|320 Kbps] <Trance>
@@ -720,35 +749,6 @@ VA - Trance In Tomorrow's Land: The Festival Edition (2018) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EB70B27415450BED2874A99EC70F813C7272318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247419   (452861) от 15.09.2018
-
-VA - Ellie Lawson: The Best Of (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Raz Nitzan & Ellie Lawson - Beyond Time (Original Mix)
-02.Frainbreeze & Ellie Lawson - I Pray (Original Mix)
-03.Davey Asprey & Ellie Lawson - Bridge The Divide (Radio Edit)
-04.Alan Morris & Ellie Lawson - Find Myself in Losing You (Radio Edit)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10C25D29C823A1E4A03E4821264011F98866055
 ```
 
 https://mybot314.ru/tekegram_catalog/

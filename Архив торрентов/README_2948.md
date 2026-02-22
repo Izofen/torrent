@@ -1,3 +1,29 @@
+###  Публикация: 1043608   (568503) от 18.08.2016
+
+Hotspot Shield Elite 6.20.0 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hotspot Shield VPN – самое полное решение проблем безопасности в Интернет. Защищает ваши сессии в веб-браузере, обнаруживает и блокирует вредоносное ПО, сохраняет конфиденциальность, обеспечивает доступ к заблокированным сайтам. Hotspot Shield делает безопасным просмотр веб-страниц, защищая ваше (проводное или беспроводное) соединение дома и в общественных местах. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FCF8DAC57D3468FB481771D1AD6EB7F2786805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044026   (568494) от 18.08.2016
 
 Книга джунглей / The Jungle Book (2016) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -662,35 +688,6 @@ Windows Vista, 7, Windows 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2, 2016,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD49FAF6C4C20A9397351B4AA7B40F646C49D2C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922232   (568350) от 29.07.2015
-
-VA - Enhanced Music: July (2015) [MP3|320 кб/с]<Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juventa - Euphoria (Winterborn) (Original Mix) (06:09)
-02. Larsm - Break Through (Original Mix) (05:19)
-03. Cannavo & Nesse - Push (Original Mix) (06:50)
-04. Cuebrick - Demon (Kago Pengchi Remix) (05:49)(   Читать дальше...   )Производство: Enhanced MusicЖанр: Trance, Progressive HouseПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23F3BB79E134253A34B9AF82CD724839C7489E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

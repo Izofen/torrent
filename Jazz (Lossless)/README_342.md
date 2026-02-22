@@ -1,32 +1,3 @@
-###  Публикация: 1713895   (111780) от 07.04.2024
-
-Richie Kamuca & Bill Holman - West Coast Jazz In Hi Fi (1959) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Down Under [3:34]
-02. Blue Jazz [4:21]
-03. Angel Eyes [3:59]
-04. Stella by Starlight [3:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8775A5EE8070D237F8540F61CAA65FA524A4253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713897   (111778) от 07.04.2024
 
 Tal Farlow - The Guitar Artistry of Tal Farlow (1959) 2021, Universal [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
@@ -744,6 +715,35 @@ VA - Jazz - ruhig und entspannt (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D0E499EF6DFCB02F8FDC60B297825AE60EDF93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715891   (111456) от 13.04.2024
+
+Halie Loren - Dreams Lost and Found (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For All We Know
+02. How High the Moon
+03. Dance Me to the End of Love
+04. Sabor a Mi(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D9F75FCFBBB619C3C902DA3BB1E5D74C3EA23B
 ```
 
 https://mybot314.ru/tekegram_catalog/

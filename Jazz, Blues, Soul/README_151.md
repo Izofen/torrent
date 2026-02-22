@@ -1,3 +1,90 @@
+###  Публикация: 1121344   (800640) от 02.04.2017
+
+Issa Murad - Joussour (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joussour (04:21)
+02. L'égare (06:31)
+03. La Folle Qui Danse (03:34)
+04. La Mer (07:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876E65AF9CF93C7EA96D865609D7C6929EEA3665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273454   (800629) от 01.01.2019
+
+VA - A Day In The Life: Impressions Of Pepper (2018) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Antonio Sanchez - Sgt. Pepper's Lonely Hearts Club Band (00:02:53)
+02 - Mary Halvorson - With a Little Help from My Friends (00:03:08)
+03 - Makaya McCraven - Lucy in the Sky with Diamonds (00:05:56)
+04 - Wildflower - Getting Better (00:04:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DB267EF090C01B82EB94B0DE65AFBA1E17FAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273448   (800623) от 01.01.2019
+
+Aston Grey Project - Outta Time (2018) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (The Warm Up) Play It For Me 04:08
+02. Outta Time 04:25
+03. Coastal Crusin' 03:55
+04. Wanna Be Down 04:20(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB59296DE6D6B81D7300AC1BF66A08EEEAD5675B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121120   (800618) от 02.04.2017
 
 Hodge Podge Blues Band - Hodge Podge Blues Band (2010) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues Female Vocals>
@@ -658,93 +745,6 @@ Sid Rumpo - First Offense (1974) Remastered, 1993, Mushroom [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AAA69BC7FDF03E933BA9777E1C50A321DD5DDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121744   (799664) от 03.04.2017
-
-Blues Engine - The Quick And The Dirty (2015) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runaway Blues (03:10)
-02. Empty Pocket (02:57)
-03. For A Breath I Tarry (04:26)
-04. Danse Macabre (03:21)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6552AAC4746CF10F8E9F6FAAB1815010FEEB83E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121915   (799653) от 03.04.2017
-
-VA - Lovers Night Smoothe and Soft Jazz Music for Romantic Evening (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Evening Jazz Club - Lovers Night
-02. Sensual Lounge Music Universe - Smoothe Jazz for Lovers
-03. Sensual & Romantic Piano Jazz Universe - Sexual Jazz Lounge
-04. Together Forever Club - Me, You and Jazz(   Читать дальше...   )Жанр: JazzПродолжительность: 01:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3735D9D3E6BFEF26156FCF73044E489F34CFF992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385335   (799611) от 24.05.2020
-
-Oscar Peterson & Clark Terry 1975 (1994) Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On A Slow Boat To China [4:25]
-02. But Beautiful [4:44]
-03. Shaw 'Nuff [4:29]
-04. Satin Doll [7:13](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0BC54AA37FE9BE9720F99319CC76776132FD08
 ```
 
 https://mybot314.ru/tekegram_catalog/

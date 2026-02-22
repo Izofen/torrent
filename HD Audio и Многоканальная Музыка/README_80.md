@@ -1,3 +1,174 @@
+###  Публикация: 1683961   (128095) от 13.12.2023
+
+The Rah Band - Touchdown (Live at The Jazz Café, London, 2022) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dance 80's, Futuristic Synthpop, Space Disco, Britfunk, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Messages From The Stars (Live at The Jazz Caf‚, London, 2022)
+02 – Slide (Live at The Jazz Caf‚, London, 2022)
+03 – Perfumed Garden (Live at The Jazz Caf‚, London, 2022)
+04 – Falcon (Live at The Jazz Caf‚, London, 2022)(   Читать дальше...   )Жанр: Dance 80's, Futuristic Synthpop, Space Disco, Britfunk, JazzПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CFE16A7A442C411C8ABE2A6325AAD4D437ECE3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683979   (128083) от 13.12.2023
+
+Egyptian Blue - A Living Commodity (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Matador
+02 – Nylon Wire
+03 – Belgrade Shade
+04 – Skin(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67509D5AB1ED30539F6538A815828609F3897311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684101   (127986) от 14.12.2023
+
+Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, Прекраснейшая ночь года (1990) Из собраний М. Магомаева, Ю. Крууса, О. Шишова, Н. Тюрина [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Classic ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из кинофильма "Потому, что ты моя"Жанр: Pop, Classical, RetroПродолжительность: 02:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02EC2818F0C326084AFCCFEA0EFE39D87FA3D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684204   (127977) от 14.12.2023
+
+Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Helsinki Ice Hall 2019 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under The Grass Clover (4:04)
+02. Platitudes And Barren Words (4:21)
+03. In Your Face (4:07)
+04. Shovel Knockout (4:13)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E733483D89687A7F585F8E216D860B24B87507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684236   (127975) от 14.12.2023
+
+Therion - Leviathan III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Rock, Operatic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ninkigal (3:06)
+02. Ruler Of Tamag (6:44)
+03. An Unsung Lament (6:58)
+04. Maleficium (3:34)(   Читать дальше...   )Жанр: Symphonic Rock, Operatic MetalПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77624E608EFB44CB04078FC19657D4E45F774D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684210   (127974) от 14.12.2023
+
+Evergrey - From Dark Discoveries to Heartless Portraits (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Out The Dark (Live Version) (5:10)
+02. Where August Mourns (Live Version) (5:39)
+03. My Allied Ocean (Live Version) (4:29)
+04. A Touch Of Blessing (Live Version) (5:53)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F983FC66256C09267AC4A0DC6666587E51930C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684158   (127971) от 14.12.2023
 
 Semblant - Studio Albums (5 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Symphonic Metal>
@@ -571,180 +742,6 @@ A4 Night Of The Living Dead(   Читать дальше...   )Жанр: Thrash,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4012276DE02FF8FE2771B1FBCE4542D673D0A223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684929   (127260) от 18.12.2023
-
-Переучёт (Oxxxymiron) - Семейный альбом (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Hip-Hop, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Заходи скорее
-02 Всё сразу
-03 Макдональдс
-04 Семейный альбом(   Читать дальше...   )Жанр: Alternative, Hip-Hop, ExperimentalПродолжительность: 00:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130E144465BE6D2E947250D8165ADC52A727B5D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685387   (127033) от 19.12.2023
-
-Lunacy - Disconnection (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove, Death, Progressive-Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127033.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blood
-2. Childs Play
-3. Mince Machine
-4. Deviant Fetish(   Читать дальше...   )Жанр: Groove, Death, Progressive-MetalПродолжительность: 00:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC333DCE0AA7439A504415F9E7F0583D5F9B8E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685658   (126908) от 20.12.2023
-
-Serj Tankian - Invocations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Mountain (Live) [00:04:45]
-02. Free The Piano (Live) [00:03:49]
-03. Der Voghormia (Live) [00:04:08]
-04. Aurora's Dream (Live) [00:06:54](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC79343EA811D867AD7198F45AD690581B2DFA3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685858   (126881) от 20.12.2023
-
-Electus - Episode IV (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More More More [00:05:54]
-02. All the Way [00:06:00]
-03. Got the Time [00:03:13]
-04. If I Stay [00:04:51](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E11E911D3726B1E5B8EA24E3F4BB5288D35E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685655   (126880) от 20.12.2023
-
-Stilz - Vision (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darksynth>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Initiate [00:03:22]
-02. Vertical Drop [00:03:37]
-03. Sideswipe [00:02:23]
-04. Vision [00:02:22](   Читать дальше...   )Жанр: Synthwave, Retrowave, DarksynthПродолжительность: 00:24:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A154B7B78C4E5479BA71044E2B0765D5932073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685955   (126869) от 20.12.2023
-
-Atomkraft - Atomkraft (1987) Compilation [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126869.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Queen Of Death
-A2 Protector
-A3 Demolition
-A4 Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36728EE6E92CB9444221B4731F58A1793CA2FDB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

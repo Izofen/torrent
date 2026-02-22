@@ -1,3 +1,36 @@
+###  Публикация: 647684   (857127) от 23.04.2013
+
+John O'Callaghan - Collected (2013) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+John O'Callaghan - Collected (2013)
+
+Год: 2013
+Жанр: Trance 
+Продолжительность:  01:42:30Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. John O'Callaghan - Big Sky (feat Audrey Gallagher - radio edit) (2:52)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B22E5918DB78E9B0E687F2E756DB818B3B418FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 647485   (857125) от 23.04.2013
 
 Две жизни председателя Мао (2004) SATRip
@@ -698,32 +731,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A743C4231FD6E7A6CF9328DC582F611394F2A2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109860   (857061) от 28.02.2017
-
-Microsoft Windows and Office ISO Download Tool 4.19 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Windows and Office ISO Download Tool - небольшая, бесплатная, не требующая установки в систему утилита для прямого скачивания образов дисков (ISO) дистрибутивов ОС Windows и Office с серверов компании Microsoft.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1504F472D8457B265F7E73AA673CC82731522B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 574996   (370556) от 14.11.2012
+
+Dubstep Planet 3 - Official Promo Mix (by Profit & Tim Ismag) (2012) [MP3|320 kbps]<Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nero - Promises (Skrillex Remix)
+02. Skrillex - Ruffneck (Full Flex Remix)
+03. Ali Love - Diminishing Returns (Alvin Risk Remix)
+04. Avicii - Levels (Skrillex Remix)
+05. Flux Pavilion & SKisM ft. Foreign Beggars - Jump Back
+06. Skrillex - First Of The Year (Equinox Mix)
+07. Oiki - Get It Now (VIP Mix)
+08. Swedish House Mafia vs. Knife Party - Antidote (Schoolboy Remix)
+09. Skrillex ft. Kill The Noise & 12th Planet - Burst
+10. Vaski - Take Me ThereЖанр: DubstepПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EDAA312D7C26EF3451B960E0E6C17521404452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575234   (370549) от 14.11.2012
 
 Screenium 2.1.1 [Multi/Rus]
@@ -677,32 +712,6 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:431FB334E825E4C35F16404C40C6916D39DBD9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950333   (370380) от 26.10.2015
-
-Платон Обухов | Несостоявшийся шантаж (1995) [FB2, EPUB]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ядерные боеголовки Израиля похищены террористами. Ставшая во главе банды красавица Лукреция шантажирует оружием мировое сообщество. ЦРУ поручает поиск боеголовок русскому детективу Олегу Смирнову, блестяще справляющемуся с этой задачей. Роман насыщен острыми, драматическими ситуациями, неожиданными коллизиями, которые держат читателя в напряжении до конца.Жанр: Детективы, ТриллерыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B6C3A191BD302393D2512D359FCE9DB530FFA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

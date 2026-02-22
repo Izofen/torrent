@@ -1,3 +1,90 @@
+###  Публикация: 1770495   (32292) от 01.01.2025
+
+VA - Joggen 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disclosure - You & Me (Rivo Remix) (3:28)
+02. Meduza - Fire (Official UEFA EURO 2024 Song) (2:48)
+03. Martin Garrix - Told You So (3:07)
+04. MC Menor JP - Menina de Vermelho (HUGEL Version) (2:23)(   Читать дальше...   )Жанр: PopПродолжительность: 03:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35653C1AFFF3E216E1A8E19D16FB4689065B04A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770409   (32288) от 01.01.2025
+
+Gigi D'Agostino, Luca Noise - Total Eclipse (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, Dance, EuroDance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Total Eclipse (Totalmente GIGI DAG & LUC ON Mix) [2:51]
+02 - Joyful (Strong And Happy GIGI DAG & LUC ON Mix) [4:44]
+03 - Sound of Love (Strong And Happy GIGI DAG & LUC ON Mix) [4:36]
+04 - Total Eclipse (Different GIGI DAG & LUC ON Instrumental Mix) [4:13](   Читать дальше...   )Жанр: Italo Dance, Dance, EuroDanceПродолжительность: 00:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01150A83FDFFC2B5C81856F8947283D5AAB90EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770641   (32197) от 02.01.2025
+
+Wings - Wings Over America (1976) 2xCD, Japanese Edition, SHM-CD, Reissue, 2024, Universal Music LLC [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32197.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Part One - UICY-80472:
+01. Venus and Mars / Rock Show / Jet
+02. Let Me Roll It
+03. Spirits of Ancient Egypt(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C35969D6409C973A13BE781B487393D321BA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766744   (32138) от 03.01.2025
 
 VA - Союз 19 Альбомов-Полные версии (1995-2003) 38CD [MP3|320 Kbps] <Pop>
@@ -658,93 +745,6 @@ VA - The Best Of Made Up Records Vol. 2 (1999) [OGG Vorbis|480 Kbps] <Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DEFCA2ACBDD1795208D539834067F9B0E2B9C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774537   (30219) от 21.01.2025
-
-VA - Top Songs - Hits 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rose - APT. (2:49)
-02. Teddy Swims - Bad Dreams (3:04)
-03. Charli XCX - Apple (2:31)
-04. Benson Boone - Beautiful Things (3:00)(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECC4E5D32B76ACEEA1EF1D001805F055147252B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774088   (30093) от 22.01.2025
-
-Kylie Minogue - Body Language (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Slow [3:18]
-02 - Still Standing [3:43]
-03 - Secret (Take You Home) [3:19]
-04 - Promises [3:20](   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD6701C19A1C013A817ABBE1BA91418E6DA422C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775043   (29905) от 24.01.2025
-
-VA - Dance Classics Gold (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Hartman - Relight My Fire
-02. Chic - Le Freak
-03. Gloria Gaynor - I Will Survive
-04. Earth Wind & Fire - Boogie Wonderland(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F36F6D076FDA73911ABF9AD1417C0ED5DF402D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

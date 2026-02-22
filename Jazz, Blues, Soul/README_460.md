@@ -1,3 +1,32 @@
+###  Публикация: 1656313   (203325) от 30.08.2023
+
+Gurf Morlix - I Challenge the Beast (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart (4:27)
+02. Miss Nellie's Place (5:34)
+03. The Beast (6:25)
+04. Beautiful Crazy World (4:26)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75F9B694A77B86F36172747CAFD20362298A153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656323   (203323) от 30.08.2023
 
 Sandy Carroll - Love On It (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ B.B. King - Reflections (2003) Reissue, 2015, Universal Music [FLAC 2.0|192/24|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CBB4C63741F1B2BBE86875D2A39C158A4A16197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622101   (200690) от 27.03.2023
-
-Van Morrison - Moving On Skiffle (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freight Train (3:27)
-02. Careless Love (5:38)
-03. Sail Away Ladies (3:18)
-04. Streamline Train (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FB57A148324A3B2C10658F7F74236B68330688
 ```
 
 https://mybot314.ru/tekegram_catalog/

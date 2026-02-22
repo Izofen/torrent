@@ -1,3 +1,32 @@
+###  Публикация: 1581759   (326407) от 06.10.2022
+
+Borealis - Illusions (2022) [MP3|320 Kbps] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Illusions [00:01:22]
+02 - Ashes Turn to Rain [00:04:54]
+03 - My Fortress [00:07:12]
+04 - Pray for Water [00:05:26](   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9607A115F2122610D42B48993F6E4CA5605DA218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581676   (326404) от 06.10.2022
 
 Lost Society - If The Sky Came (2022) [MP3|320 Kbps] <Metalcore, Nu-Metal>
@@ -716,32 +745,6 @@ Lucid Dreaming - The Chronicles, Pt. III (2020) [MP3|320 Kbps] <Heavy Metal, Pow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97104C56F1847E13F8409D7CFD422ED47B4E10A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582987   (315245) от 01.12.2012
-
-Royal Hunt - 20th Anniversary: Special Edition (2012) [MP3|320 кб/с]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive MetalПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9B6E68F467B7C89B73DFF3FA48B94D13F8967A
 ```
 
 https://mybot314.ru/tekegram_catalog/

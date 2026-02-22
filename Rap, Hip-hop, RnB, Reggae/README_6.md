@@ -1,3 +1,61 @@
+###  Публикация: 1367586   (913891) от 17.03.2020
+
+Die Antwoord - House Of Zef (2020) [MP3|320 Kbps] <Alternative Hip-Hop, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open the Door (feat. Panther Modern)
+02. Zonke Bonke (feat. Bukhulubakhe & Gqwa!)
+03. Da Godz Mus B Krazy
+04. Naai Is 'N Lekker Ding (feat. Moonchild Sanelly, Gqwa! & JouMaSePoes)(   Читать дальше...   )Жанр: Alternative Hip-Hop, ElectronicПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEADEACAA59C4BAB7B72D36ABD09F50E73E2E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368624   (909245) от 20.03.2020
+
+Sagath - Вынос тела (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кладбище [03:47]
+02. Неведомая сила [02:33]
+03. Воин [02:39]
+04. Ван Хельсинг [02:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7011F2544193EFCD0071A92ED560EA0FA13E4782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368592   (909206) от 20.03.2020
 
 Pop Smoke - Meet The Woo (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
@@ -687,64 +745,6 @@ Jelly Roll - A Beautiful Disaster (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53F98A72074D54BFD017029D909BDC311198D198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370540   (896704) от 27.03.2020
-
-Childish Gambino - 3.15.20 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, R&B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 0.00 (02:59)
-02. Algorhythm (03:32)
-03. Time (06:07)
-04. 12.38 (06:32)(   Читать дальше...   )Жанр: Hip-Hop, R&BПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC643368690BB71BA491F46258560A133FF6C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370521   (896689) от 27.03.2020
-
-Jessie Reyez - BEFORE LOVE CAME TO KILL US (2020) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Funk>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DO YOU LOVE HER (03:16)
-02. DEAF (who are you) (02:53)
-03. INTRUDERS (03:05)
-04. COFFIN (Feat. Eminem) (04:22)(   Читать дальше...   )Жанр: R&B, Soul, FunkПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4E7B3676F45ED6115F72211192207E65D0A471
 ```
 
 https://mybot314.ru/tekegram_catalog/

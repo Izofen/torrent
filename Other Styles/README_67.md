@@ -1,3 +1,32 @@
+###  Публикация: 659765   (774419) от 23.05.2013
+
+VA - Лучшие песни из кинофильмов (2003 - 2004) 4 CD [APE|Lossless|image+.cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть фильмы, которые можно смотреть десятки раз и все равно не будет скучно. Это, конечно, лучшие советские фильмы. Многим из них уже пятьдесят, шестьдесят лет, но они не потеряли своей актуальности. Великие режиссеры создавали настоящие шедевры, великие актеры показывали на экране гениальных персонажей. Сегодня тоже снимают кино, но оно не то, что было раньше. У (   Читать дальше...   )01. Увертюра (т/ф 'Шерлок Холмс и Доктор Ватсон') (2:08)
+02. Непогода (т/ф 'Мэри Поппинс, до свидания') (3:12)
+03. Городские цветы (к/ф 'Куда он денется') (4:15)
+04. Цветные сны  (т/ф 'Мэри Поппинс, до свидания') (3:49)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74431FCDB11F843342DD7C28255AA024EE6A2E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212311   (774299) от 14.03.2018
 
 VA - Relaxation Collection 2 - Cool Breeze (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -716,35 +745,6 @@ Caroline Reese and the Drifting Fifth - Tenderfoot (2017) [FLAC|Lossless|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57F5447EAFF0C709E1DA3525325FD2CDABDC509A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125154   (768807) от 14.04.2017
-
-Sambodhi Prem - Circle of Light (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweetness 07:27
-02. Into the empty sky 05:21
-03. Arohanui - Call me with the Light of Love 05:45
-04. Offering to the Waves 07:12(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7938F3F90826419A0DB66B0546AC04965E4E3783
 ```
 
 https://mybot314.ru/tekegram_catalog/

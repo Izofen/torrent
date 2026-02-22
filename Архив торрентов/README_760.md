@@ -1,3 +1,32 @@
+###  Публикация: 981471   (952614) от 31.01.2016
+
+VA - A State Of Trance Year Mix 2015 (Mixed By Armin Van Buuren) (2015) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952614.jpg" />
+</div>
+
+
+###  Подробнее
+
+В двенадцатый раз Armin Van Buuren публикует свой итоговый микс года. У вас есть возможность ещё раз погрузиться в эту сотню треков и вместе с миллионами таких же любителей наслаждаться ощущением покидающего вас разума. Подобранные треки, которые по сути сформировали всё трансовое поле года, вызывают совершенно реальное погружение в транс. Year Mix 2015 ретроспективно (   Читать дальше...   )01. Armin van Buuren - A State Of Trance Year Mix 2015 - The Talk Up Hour On WWKDASOTWKZZ FM (Intro)  (2:42)
+02. Luke Bond & Omnia - Reflex (Radio Edit)  (2:50)
+03. Cosmic Gate with Emma Hewitt - Going Home (Gareth Emery Radio Edit)  (3:09)
+04. Ilan Bluestone - 43 (Radio Edit)  (3:58)(   Читать дальше...   )Тип издания: WEB-DLРелиз состоялся: December 18th, 2015Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 08:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5CA7F0308F6E237FF4DA1179092B18BB4A7491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981072   (952571) от 31.01.2016
 
 Any Video Converter Ultimate 5.9.0 [Multi/Ru]
@@ -655,32 +684,6 @@ Exposure X5 v5.2.1.211 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:766FE46D0E17BEF64D263DC28C5729318E318E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361831   (952417) от 21.02.2020
-
-Soft4Boost Any Audio Record 6.7.1.341 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная утилита, которая позволяет записывать звуковые данные с различных источников, таких как микрофон, виниловые пластинки, аудио CD, видеоигры, интернет-радиопередачи, программы типа Real Player и Skype.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2271015EACB155A3C991995FF13D6F7F4874691
 ```
 
 https://mybot314.ru/tekegram_catalog/

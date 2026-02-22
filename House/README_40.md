@@ -1,3 +1,90 @@
+###  Публикация: 1225687   (658828) от 17.05.2018
+
+VA - Best Of Series: Miroslav Vrlik Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miroslav Vrlik - Another Night (Mark & Lukas Remix)
+02. Miroslav Vrlik - Words Mean Nothing (Original Mix)
+03. Miroslav Vrlik - Pathfinder (Original Mix)
+04. Miroslav Vrlik - Find You (Original Mix)(   Читать дальше...   )Жанр: Progressive House, House,TranceПродолжительность: 01:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112713D3394B7905619DDC02B19B4FC1D6559AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140163   (658277) от 04.06.2017
+
+VA - Strong Stuff (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Following Light - Intention (Michael A Remix) 06:29
+02. Magnetic Brothers - Morning Feelings (K Nass Remix) 07:03
+03. Ewan Rill - Scanners 06:32
+04. Platunoff - Secret 07:09(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D90A49FBCEF789A7FB01FDF54F1060A0A8AF8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139913   (658209) от 04.06.2017
+
+VA - Ibiza Vocal Hits 2017 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BRKLYN – Heart Of The City (Myon Signature Remix) (3:21)
+02. Ryos – Discover Love (Original Mix) (3:45)
+03. Cuebrick – Smoke & Fire (Original Mix) (3:17)
+04. Tritonal – Running Into Me (Original Mix) (4:27)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90E20D96276730839E6C86DC5FE3C893481A20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139978   (658125) от 04.06.2017
 
 VA - Power Dance Workout Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
@@ -677,93 +764,6 @@ VA - Pride Jams 2017 (unmixed tracks) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12A2E0764C71108C8297C5BE4A8D903BB5F5D9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141355   (650552) от 10.06.2017
-
-VA - House Of Ibiza 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650552.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fake.Sake - All I Want Is You (Enzo Siffredi & Timo Garcia remix) (06:13)
-2. Carlos Pulido - Desolate Man (Eskuche remix) (06:16)
-3. Chemical Surf - Cumbuca (06:46)
-4. Claus Casper - Feelin It (07:02)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DFCBADE77EC74EA463F853DD0E7DC583E156C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141465   (650546) от 10.06.2017
-
-VA - Ibiza House (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soneec - Once Again 05:18
-02. Alemany - Fresh (Charles J Remix) 05:01
-03. Dave Aude feat. Vassy - Hustlin' (Club Mix) 05:49
-04. Sante Cruze - Get so High 06:51(   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectroПродолжительность: 02:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0382BBE1BFAD0962DC98780E11029778E471C9FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031907   (649832) от 05.07.2016
-
-VA - Ibiza Goes Deeper: A Unique Selection Of Deep House Tunes (2016) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Sandemann - Do It Yourself
- 02. Ron John - The Last Photo - Frank Fox Mix
- 03. Modell & Mercier - Black Coral - Lovin' Fashion Mix
- 04. Greg Vasarely - Notting Hill(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:910E51EF39EF71CE04BA1756E38EA3A0E6B3548F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1217079   (742263) от 05.04.2018
+
+Sam Green and the Midnight Heist - Onsette Return (2018) EP [MP3|320 Kbps] <Blues Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where You're From
+02. Leave It There
+03. Free
+04. Everybody Moving(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 00:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3793D483C5D16E063DEAD408536D38786F074C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020372   (742182) от 28.05.2016
+
+Tommy Smith Sextet - Evolution (2003) [APE|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Woodstock
+02.	Easter Island
+03.	Lisbon Earthquake
+04.	Siege Of Leningrad(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFAE94AB0414A3CA78B22786FB7F180B24CC148F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524695   (742142) от 17.01.2022
+
+VA - The D-Vine Spirituals Records Story, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Gospel, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gospel Wymics - It's a Shame How This World Has Changed [02:06]
+02. The Spiritual Wonders - Something That You Can Do [03:20]
+03. The M&N Singers - Stand by Me [02:35]
+04. The Shaw Singers - My Time Ain't Long [03:29](   Читать дальше...   )Жанр: Blues, Gospel, SoulПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:665629173282A885C4228747CAD215B919186E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217612   (742136) от 05.04.2018
 
 VA - Piano Blues (2018) [MP3|320 Kbps] <Blues, Piano Blues, Blues Rock>
@@ -658,93 +745,6 @@ New Cool Collective & Mark Reilly - The Things You Love (2016) [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FAD9D6569AA0FAE62382C184BB6C41C4285E95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021050   (741074) от 29.05.2016
-
-Marc Lelangue Trio - Lost in the Blues (2016) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empty House Blues (02:57)
-02. Forgive Me Please (03:41)
-03. Send My Body to Bourbon Street (03:52)
-04. You Missed a Good Man (03:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7F0B4FAAA6853161E2B0037B1599DB31A27853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021103   (741073) от 29.05.2016
-
-Jay Gordon - Blues Infested (1994) [FLAC|Lossless|tracks] <Modern Electric Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo Boogie    03:34
-02. Mississippi Mud    03:31
-03. Can't Shake This Feelin    04:15
-04. Storm In Chi Town    06:53(   Читать дальше...   )Жанр: Modern Electric Blues, Blues-RockПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C66653EBCF01D5A2DA211A3522C63FB6C1AAB09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282867   (741065) от 15.02.2019
-
-Louis Armstrong - What A Wonderful World (1962 - 1965) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Vocal Jazz, New Orleans Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What a Wonderful World [2:23]
-02. Indiana [4:28]
-03. Ole Miss Blues [4:01]
-04. The Faithful Hussar [5:18](   Читать дальше...   )Жанр: Vocal Jazz, New Orleans Jazz, SwingПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CE1A76F679EC066355480BEFA201975E1A19CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

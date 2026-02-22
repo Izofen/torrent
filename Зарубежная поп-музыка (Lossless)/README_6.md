@@ -1,3 +1,32 @@
+###  Публикация: 1470920   (1015474) от 18.05.2021
+
+Bonnie Tyler - The RCA Years (2019) 4CD, Box Set, Compilation, Cherry Red Records [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015474.jpg" />
+</div>
+
+
+###  Подробнее
+
+1977 - The World Starts Tonight
+1978 - Natural Force
+1979 - Diamond Cut
+1981 - Goodbye To The IslandЖанр: Pop, Pop Rock, Soft RockПродолжительность: 03:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8632BC642B888744BF6B32999CD14FEC96E795F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471425   (1015125) от 20.05.2021
 
 St. Vincent - Daddy's Home (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
@@ -716,35 +745,6 @@ Howard Andrew Williams (3.12.1927 - 25.09.2012) - американский пе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F34B1B2749C17246DBBDF340AF5D36D028E911B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480227   (1009128) от 27.06.2021
-
-VA - The Best 2000s Album In The World… Ever! (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - The Nights (2:56)
-02. Plain White T's - Hey There Delilah (3:52)
-03. Zedd, Foxes - Clarity (4:31)
-04. Norah Jones - Don't Know Why (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC4B07E9497DC29ECE008786667CDFD5A059A06
 ```
 
 https://mybot314.ru/tekegram_catalog/

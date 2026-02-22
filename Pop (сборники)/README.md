@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1853707   (1057089) от 16.02.2026
+
+BONEY M. best (1975-1993) [MP3|320 Kbps] <pop, electronic, soul, funk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057089.jpg" />
+</div>
+
+
+###  Подробнее
+
+[6:52] . 01-Baby Do You Wanna Bump (cover Prince Buster)
+[3:44] . 02-New York City (cover Gilla)
+[3:28] . 03-Daddy Cool
+[4:48] . 04-Take The Heat Off Me (cover Marcella Bella)(   Читать дальше...   )Жанр: pop, electronic, soul, funkПродолжительность: 05:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBB6CE740116A6A8D662209D60E1E5442003DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852658   (1056305) от 10.02.2026
 
 ABBA best (1973-1981) [MP3|320 Kbps] <Еlectronic, Pop>
@@ -717,35 +746,6 @@ Sarah Connor - Compilation (2023) [MP3|320 Kbps] <Pop, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13BDD1F00BF04B84BC13FA1972E95DDC55A3E75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607025   (1044223) от 24.01.2023
-
-VA - Hits Nu Disco Views 003 (2023) [MP3|320 Kbps] <Indie Dance, Nu Disco, Deep Groove, Soulful>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MR Werback - I'm So Sorry (Instrumental Mix)
-02. Harry Borg - I'll Be Waiting (Original Mix)
-03. Idos - Dance Like You're Alone (Rina & Tom Antopolsky Remix)
-04. NAASA, Margaryan, Shan Tazh - Alone In The Desert (Original Mix)(   Читать дальше...   )Жанр: Indie Dance, Nu Disco, Deep Groove, SoulfulПродолжительность: 02:11:11 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943396468988B91CD8A22AE6B0A2239345F9CE72
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,179 @@
+###  Публикация: 1534675   (690520) от 04.03.2022
+
+The Beatles - The Beatles (White Album) (1968) 1977 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690520.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Back In The U.S.S.R.
+A2 Dear Prudence
+A3 Glass Onion
+A4 Ob-La-Di, Ob-La-Da(   Читать дальше...   )Жанр: Pop Rock, Psychedelic RockПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2AAA4FD7082BA267DE6AA85CF1AFA0C6F3B14B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534515   (690368) от 04.03.2022
+
+Scorpions - Rock Believer (2022) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690368.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Gas In The Tank
+ A2. Roots In My Boots
+ A3. Knock 'Em Dead
+ A4. Rock Believer(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822F139309BF725B1322410F9AECF02A80566D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795718   (690186) от 12.06.2014
+
+Государственный симфонический оркестр СССР (дирижер Евгений Светланов) - Н. Римский-Корсаков - Шехеразада (симфоническая сюита по 1001 ночи, соч. 35) (1985) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Cl ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Море и корабль Синдбада  10:40
+2. Рассказ царевича Календера  11:38
+Сторона 2
+1. Царевич и царевна  11:02
+2. Багдадский праздник и корабль, разбивающийся о скалу с медным всадником  11:20Жанр: ClassicalПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642DF0C7A6B26DF6C1CC35C162EE7822F6A515E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028357   (688090) от 23.06.2016
+
+Smokie & Chris Norman - The Best Of 20 Years (1995)  [PPCM 5.1|96/24|DVD-Audio] [upmix, upsampling] <Rock,Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Next Door To Alice [03:29]
+02. Lay Back In The Arms Of Someone [04:05]
+03. It's Your Life [03:33]
+04. Mexican Girl [03:58](   Читать дальше...   )Жанр: Rock,Rock-PopПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAC50B854CCB3B89E4A6C0BFC732075576E0C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288422   (686333) от 16.03.2019
+
+Apelsin/Ансамбль "Апельсин" - Apelsin [2LP] (1976, 1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686333.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Apelsin" (1976/1982)
+A1 Western · В Стиле Вестерна
+A2 Jambolaya · Джамбаллайя
+A3 Capri Saarel · на Острове Капри(   Читать дальше...   )Жанр: Soft Rock, Funk
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F5D0F7B7117B04632B4ED205341E3E6F0EB6D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535539   (684113) от 07.03.2022
+
+Pink Floyd - Wish You Were Here (1975) reissue remastered 2011 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Art Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shine On You Crazy Diamond (1-5)
+A1a Part 1
+A1b Part 2
+A1c Part 3(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26097F61DDA28D9D630E168DF71A30EF284270B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796601   (683654) от 15.06.2014
 
 Electric Light Orchestra - Face The Music (1975)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
@@ -592,180 +768,6 @@ VA - Dance Hits Collection (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Disco, Eur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B3C16641CB9BFC79448C46B8450579E0C82AC33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030749   (671966) от 01.07.2016
-
-Isao Tomita - Okhotsk Fantasy (2016)  [DTS 4.0 CD-DA|44.1/16|image+cue|SACD] <Electronic, Ambient, Modern Classical>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671966.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.    Okhotsk Fantasy    11:46
-2.    Pavane Pour Une Infante Dfunte    07:16
-3.    Ma Mere L’Oye Suite: Pavane De La Belle Au Bois Dormant    01:55
-4.    Petite Poucet    03:52(   Читать дальше...   )Жанр: ambientПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4563EAF03CA3A4E9C8CA406F8296137F448C16A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030573   (671828) от 01.07.2016
-
-ППК - Воскрешение Hey DJ' (2001) [PPCM 5.1|96/24|DVD-Audio] [upmix, upsampling] <Classic Trance>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ППК - Воскрешение (Space Club Mix) (8:03)
-02. ППК - Воскрешение (Wellenrausch Remix) (6:49)
-03. ППК - Воскрешение (B-Power Techstyle Mix) (5:29)
-04. ППК - Воскрешение (PartyZans Promo Mix) (9:41)(   Читать дальше...   )Жанр: Classic TranceПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3856276722A3F455A78E00D2DCAD31C812BD6DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030761   (671730) от 01.07.2016
-
-Jean-Michel Jarre - Oxygene (1976) [PPCM 5.1|96/24|VinylRip] [upmix] <Electronic, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene (Part I) (7:40)
-02. Oxygene (Part II) (8:20)
-03. Oxygene (Part III) (2:50)
-04. Oxygene (Part IV) (3:50)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F6C6B1F6B825B5251B494EAD1F747C035A28517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223644   (671210) от 06.05.2018
-
-Mike Oldfield - Five Miles Out (Deluxe Edition) (2013) 1982 [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <new age, pop/rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taurus II - 24:43
-02. Family Man - 04:00
-03. Orabidoo - 10:48
-04. Mount Teidi - 04:06(   Читать дальше...   )Жанр: new age, pop/rockПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C5FD40A718AC872978FCEC0BD72086D26CA529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798239   (671197) от 21.06.2014
-
-Генрик Шеринг - Л. Бетховен (Концерт для скрипки с оркестром) (1987) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Allegro Ma Non Troppo  25:22
-Сторона 2
-1. Larghetto. Rondo, Allegro  20:02Жанр: ClassicalПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B6AC8E01730AFBF2D1C1B0635D232EEF54676C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537164   (669316) от 15.03.2022
-
-Oscar - Oscar (1974) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669316.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Well Known Lady
-A2 Good Loving Woman
-A3 Encore After Encore
-A4 Hugo(   Читать дальше...   )Жанр: Glam Rock, Pop RockПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
 ```
 
 https://mybot314.ru/tekegram_catalog/

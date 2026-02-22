@@ -1,3 +1,29 @@
+###  Публикация: 1354726   (986985) от 23.01.2020
+
+Zoner Photo Studio X 19.1909.2.204 RePack by KpoJIuK [Ru/En] [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596EB59CEFECBC955D92F6612ADB778D6D611FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354817   (986974) от 23.01.2020
 
 QuarkXPress 2019 15.1.3 [Multi/Rus]
@@ -733,41 +759,6 @@ Lahannya - Dystopia (2011) [MP3|320 kbps]<Gothic Metal / Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0446700E900BE81938FD6C0F03B489B2678C2667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434460   (986916) от 10.01.2012
-
-Aly & Fila - Future Sound of Egypt 218 (09.01.2012) [MP3|256 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. ID-ID
-02. ID-ID
-03. Nexus 3 - Last Flight (Activa Rework)
-04. Vast Vision – Black Shores (Bjorn Akesson Remix)
-05. Indecent Noise pres. Mental Asylum – Gambit (Original Mix)
-06. ID-ID
-07. Giuseppe Ottaviani & John O'Callaghan - Ride The Wave (Will Atkinson Remix)
-08. ID-ID
-09. ID-ID
-10. Odonbat - October Sky (Paul Miller Remix)(   Читать дальше...   )09.01.2012Жанр: TranceПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C04E787ECFE50306BC336DB305CDA76CA3F4F84
 ```
 
 https://mybot314.ru/tekegram_catalog/

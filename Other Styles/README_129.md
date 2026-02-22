@@ -1,3 +1,32 @@
+###  Публикация: 1064325   (426080) от 20.10.2016
+
+VA - Gears of War (Collection Original Soundtrack) (2007-2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gears of War (04:31)
+02. 14 Years After E-Day (02:55)
+03. Jacinto Prison (02:50)
+04. Attack of the Drones (02:08)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 05:28:09 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B2B883710722466940001F5D6F9A3C0E780C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570286   (425414) от 25.08.2022
 
 Russ Davies - The Watch Soundtrack (2022) [FLAC|Lossless|tracks] <Score>
@@ -734,35 +763,6 @@ Bernward Koch - Remembering (2015) [MP3|320 кб/с]<New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C508E49CF2331B7668B3D9382775A7132EAE785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947456   (417867) от 17.10.2015
-
-Eric Clapton - Music From The Motion Picture Soundtrack RUSH (1992) [FLAC|image+.cue]<Rock, Blues Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Recruit [01:32]
-02. Tracks And Lines [03:01]
-03. Realization [02:41]
-04. Kristen And Jim [03:40](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A847B5198B971615E705045411051B472D50F3AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

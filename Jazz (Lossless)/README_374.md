@@ -1,61 +1,3 @@
-###  Публикация: 1780534   (70454) от 18.02.2025
-
-VA - Smooth Jazz Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boney James - Stop, Look, Listen (To Your Heart) (4:56)
-02.  Kenny G - Ritmo y Romance (7:11)
-03.  Peter White - Always, Forever (Album Version) (5:08)
-04.  Gerald Albright - Because Of You (5:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61656C5E7A2A0D271A1D9A12B03A93A8B4273659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780526   (70439) от 18.02.2025
-
-VA - Bravo Groove! (New Contemporary Funk) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Smoke Orchestra - Lenticular Galaxy (2:49)
-02.  Lo Greco Bros - Crooked Hip (5:33)
-03.  Avex - Ain't Talking Sugo (2:29)
-04.  Black & Brown - Sfrombolus (6:20)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1EE2EFC25781B6010F8AC8C950FE79C321749C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780518   (70433) от 18.02.2025
 
 Stan Getz - Stan Getz: City Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -744,6 +686,64 @@ Kenny Garrett Quintet - Introducing Kenny Garrett (1985) Criss Cross Jazz [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D38473284040F7F029467CB4C09459ED42EEB051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781254   (70239) от 22.02.2025
+
+Eddie "Lockjaw" Davis & Shirley Scott - Cookin' With Jaws And The Queen (1958) 4CD, 2023, Craft Recordings [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Fry [6:16]
+02. Smoke This [6:08]
+03. Pennies from Heaven [5:17]
+04. Pots and Pans [3:30](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 02:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B8A194426C1D1384BB61323090A5F55081F7EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781257   (70238) от 22.02.2025
+
+Karen Stachel - A Whim And A Prayer (2023) Purple Room [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Snow [4:23]
+02. Angels Have You Heard on High (feat. Carlos Chong) [4:48]
+03. Mary Did You Know (feat. Yaritza Lopez, Irma Treminio) [5:43]
+04. Peace on Earth (feat. Derick Hughes, Carl Wheeler) [7:02](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D7E0B023B4FD8B632322CA682E475A2666DF31
 ```
 
 https://mybot314.ru/tekegram_catalog/

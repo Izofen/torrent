@@ -1,3 +1,125 @@
+###  Публикация: 1295758   (615133) от 15.04.2019
+
+VA - 100 Greatest Summer Songs (2019) [MP3|320 Kbps] <Rock, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615133.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+002. Fleetwood Mac - Everywhere (2017 Remaster)
+003. Dua Lipa - Be The One
+004. All Saints - Pure Shores(   Читать дальше...   )Жанр: Rock, Pop, DanceПродолжительность: 06:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084DEB52D4B72F51D3022611233BD3DD4B88AC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296001   (615132) от 15.04.2019
+
+VA - 100 Greatest Chilled Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Club>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rudimental / Jess Glynne / Macklemore / Dan Caplen : These Days (feat. Jess Glynne, Macklemore & Dan Caplen) [00:03:31]
+02. Fleetwood Mac : Everywhere (2017 Remaster) [00:03:46]
+03. Dua Lipa : Be The One [00:03:22]
+04. All Saints : Pure Shores [00:04:28](   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B758D16310C90C433D7805893F7C8B3458E65D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036887   (615086) от 23.07.2016
+
+Время и Стекло - #Глубокий дом (2015) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Имя 505 [03:26]
+02. Ритм 122 [04:24]
+03. Опасно 220 [02:57]
+04. Песня 404 [03:34](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F60D49466ADA2FB24418A17B4648BE504B0055E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523965   (614947) от 17.07.2012
+
+На-На - Лучшая Коллекция (2012) [MP3|320 кб/с]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я люблю тебя
+ 02. Эксимос и папуас
+ 03. Эй,санам
+ 04. Соловей-разбойник
+ 05. Не знаю
+ 06. Месяц май
+ 07. Рыбка моя
+ 08. Бабушка Яга
+ 09. Чудная
+ 10. Фаина(   Читать дальше...   )Жанр: РорПродолжительность: 01:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB90374355FA419D0702955521C5909B2525C2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545405   (614904) от 19.04.2022
 
 Michael Ball - The Musicals (1996) [FLAC|Lossless|image + .cue] <Vocal, Musical, Soundtrack>
@@ -636,122 +758,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F87A1C191243FC994B82CDD4C8CC6CCC4D24D774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912218   (612576) от 25.06.2015
-
-XENA - Ксенофаризм (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не про нас
- 02. Приоритеты
- 03. Грустно
- 04. Правда(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48B977CA03F281D7C5068F4AE6FA949F0601003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520546   (612467) от 30.06.2017
-
-Иванушки International - Лучшая Коллекция (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Реви
- 02. Фонари
- 03. Этажи
- 04. Зачем вы, девочки, любите белобрысых(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC91393042F5CE881F3FC74A3C2B4B1987DB42CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912270   (612429) от 25.06.2015
-
-Tori Kelly - Unbreakable Smile (2015) Target Edition [MP3|320 кб/с]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where I Belong (1:27)
-02. Unbreakable Smile (3:49)
-03. Nobody Love (3:23)
-04. Expensive (Feat. Daye Jack) (3:27)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41F3A5E5102CDBA9F4071D4DF5A0E2166ED4EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912269   (612400) от 25.06.2015
-
-Pomplamoose - Besides (2015) [MP3|320 кб/с]<Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 I'm the Shit 03:03
-02 I Feel Good 02:43
-03 Come Together 02:47
-04 Like A Prayer 03:14(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBE34A40B556CA908037BD7B644074C1E3B11D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1396601   (745579) от 16.07.2020
+
+Matt Fax - Progressions (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Fax - Vanishing (1:16)
+02. Matt Fax & LEVV - Always You (4:17)
+03. Matt Fax - Light On (4:29)
+04. Matt Fax - Abenaki (3:20)(   Читать дальше...   )Жанр: Progressive House, Tech House, ElectroПродолжительность: 01:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FA38206333A3C74635312A330C576C6FB98EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282422   (745407) от 12.02.2019
+
+Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Techno, Electro, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of The Highway (05:55)
+ 02. Sonar Conversation (08:15)
+ 03. Robotic Arm Wrestle (07:32)
+ 04. Love Hate (08:10)(   Читать дальше...   )Жанр: Techno, Electro, Dub TechnoПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB13ECE40671BEDB858D662E47A8A3BF814A2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282490   (745406) от 12.02.2019
 
 Lito - Hayastan EP (2018) Precept [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -687,63 +745,6 @@ Modern Eleven - Under The Bright Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC9DB6938EF32D836A3D54E5F40A67C290DBE9EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023860   (722467) от 06.06.2016
-
-Plastikman - Disconnect (2003) [FLAC|Lossless|tracks+.cue] <Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disconnect (Edit) (03:13)
- 02. Headcase (10:19)
- 03. Digital / Divide (10:28)Жанр: Techno, MinimalПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D52554B0AE3BCB43EA342E24516A23EC4ECBDF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129029   (722155) от 28.04.2017
-
-Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Nu Jazz>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Burning Spider (feat. Lightnin' Hopkins) (04:14)
-02. Step Two (feat. Lilja Bloom) (02:54)
-03. Soul Fever Blues (feat. Muddy Waters) (03:04)
-04. Everything Of My Heart (03:07)(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6F37452C2CDABC9BBCCE4365E74AABE5D221D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

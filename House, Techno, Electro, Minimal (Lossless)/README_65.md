@@ -1,3 +1,61 @@
+###  Публикация: 1780414   (70448) от 18.02.2025
+
+djdtime - Relaxing Deep House & Tech House Mix Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Breeze (5:37)
+02. Starlit Nights (5:50)
+03. Velvet Horizon (5:52)
+04. Crystal Flow (5:51)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296454BF8BE9787A6B994723E01F26EDB4D39F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780611   (70384) от 19.02.2025
+
+djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake up, the world is calling (4:53)
+02. Close your eyes, leave the fear behind (3:54)
+03. I'm chasing you, through the night (3:44)
+04. Every heartbeat, I'm closer still (4:29)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C737B307015A1289D26D8028EF85F0C909FCCFFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780927   (70364) от 20.02.2025
 
 Dionigi - Hot Oxygen (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
@@ -687,63 +745,6 @@ Various Artists - Coven, Vol. 2 (2023) FLAC(   Читать дальше...   )�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19DDB9948CCC911137823C96E399F37945F82132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798833   (66554) от 24.05.2025
-
-Jennifer Lopez - J to tha L‐O! The (Remixes) (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Lopez feat. Fat Joe / Love Don’t Cost a Thing (RJ Schoolyard mix)    [0:04:18.55]
-02. Jennifer Lopez feat. Ja Rule & Caddillac Tah / Ain’t It Funny (Murder remix)    [0:03:49.60]
-03. I’m Gonna Be Alright (Track Masters remix)    [0:03:20.15]
-04. Jennifer Lopez feat. Ja Rule / I’m Real (Murder remix)    [0:04:18.50](   Читать дальше...   )Жанр: Electronic, Hip Hop, House, DowntempoПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0851EEF9DB9E769C19762ED441995FD4267AC42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798974   (66533) от 25.05.2025
-
-Orbital - Orbital 2 (1993) The Brown Album Expanded, 2025, 5CD, London Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Acid, Breakbeat, Electro, House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Semi Detached [00:09:32]
-02. Lush (Spacewalk Mix) [00:07:06]
-03. Lush (1926 Trancendance Mix) [00:05:38]Жанр: Electronic, Acid, Breakbeat, Electro, House, Techno, TranceПродолжительность: 5 CD, 04:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C40071C077151D23D97BF30E7E882D176EA0755
 ```
 
 https://mybot314.ru/tekegram_catalog/

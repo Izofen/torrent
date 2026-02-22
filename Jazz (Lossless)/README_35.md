@@ -1,3 +1,32 @@
+###  Публикация: 983356   (943807) от 06.02.2016
+
+Chantal Chamberland - Soiree (2014) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Besame mucho
+02. Que reste-t-il de nos amours?
+03. J'ai deux amours
+04. J'ai oublie le jour(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA63B78733307BD9BFCC529446BBA443B5742230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 282661   (943656) от 15.01.2011
 
 Sonny Rollins - This Is What I Do (2000) [FLAC|Lossless]<Jazz>
@@ -811,35 +840,6 @@ Dexter Gordon - Quartet 1955-1967 (1998) [FLAC|Lossless]<Jazz, Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B58C88DB4BF377AC9E1699A31879D872A891045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363482   (942681) от 28.02.2020
-
-Ted Curson & Company - Jubilant Power (2008) Inner City Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reava's Waltz [12:15]
-02. Ted's Tempo [9:05]
-03. Song Of The Lonely [7:45]
-04. Airi's Tune [6:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC40B61F2574A255CA557408787EA5636E9C673
 ```
 
 https://mybot314.ru/tekegram_catalog/

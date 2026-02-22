@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1854812   (1057721) от 19.02.2026
+
+VA - Low Light, Warm Feelings (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Warren - Ordinary (Wedding) (3:06)
+02. Fleetwood Mac - Dreams (4:17)
+03. Teddy Swims - Lose Control (3:30)
+04. Bruno Mars - Love’s Train (5:07)(   Читать дальше...   )Жанр: PopПродолжительность: 03:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED490A4011DBDD5D0E554826F59AA6AD74EBFFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854805   (1057654) от 20.02.2026
+
+VA - High Impact Hits (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa feat. DaBaby - Levitating 03:23
+02. Bruno Mars - Locked Out of Heaven 03:53
+03. Clean Bandit feat. Demi Lovato - Solo 03:42
+04. Lil Wayne, Wiz Khalifa & Imagine Dragons feat. Logic, Ty Dolla $ign & X Ambassadors - Sucker for Pain 04:03(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031433AB3FCF7BBCF65F1557BABA5D4236A8CBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853822   (1057436) от 17.02.2026
+
+Elvira T - Ядовитая. Неразбитая (2026) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокая пантера [00:02:13]
+02. Захочешь [00:03:23]
+03. че за су**? [00:02:28]
+04. Один на один [00:02:24](   Читать дальше...   )Жанр: PopПродолжительность: 00:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E96E70B523FD951BB7589EEB8F2E531278A68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854074   (1057111) от 16.02.2026
+
+Ольга Восконьян - Ритм атомного сердца (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Атомное сердце [00:03:29]
+02. Прицесса Амидала [00:04:57]
+03. Атомное солнце [00:03:40]
+04. Ты волна [00:06:48](   Читать дальше...   )Жанр: synthpop, PopПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A390E473C3A8DFFD836808C3B9C74DAFB718A6F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853782   (1057055) от 14.02.2026
 
 King Sis - Late to the Party (Lover’s Deluxe) (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative R&B, Soul>
@@ -57,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853789   (1056968) от 
+###  Публикация: 1853789   (1056968) от 15.02.2026
 
 Александр Пушной - Засунул в Suno (2026) AI-generated content [MP3|320 Kbps] <Pop, Dance>
 
@@ -86,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853688   (1056915) от 
+###  Публикация: 1853688   (1056915) от 15.02.2026
 
 Sotomayor - Wabi Sabi (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dance, Pop, Electronic>
 
@@ -115,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854015   (1056911) от 
+###  Публикация: 1854015   (1056911) от 15.02.2026
 
 VA - Pure... 80s Soul Grooves (2013) 4 x CD [FLAC|Lossless|tracks + .cue] <Pop, R&B, Soul, Disco>
 
@@ -144,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853810   (1056906) от 
+###  Публикация: 1853810   (1056906) от 15.02.2026
 
 Александр Барыкин - Букет (1987) [FLAC 24/44.1, FLAC 24/48 |Lossless|WEB-DL|tracks] <Pop-Rock>
 
@@ -628,118 +744,6 @@ Paul Parker - Strong - The Album (2025) Deluxe Edition [MP3|320 Kbps] <Pop, Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:965A509A70729CBFD981EE6229FFBD6F9AE9AFDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851211   (1054988) от 01.02.2026
-
-Savage - Eternity (2026) 2CD [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Italo Disco, Synthpop>
-
->>Pop
->>Eurodance, Disco (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Savage - Eternity (2026) FLAC (24-Bit, 48 kHz)
-Savage - Eternity (Remixes) (2026) FLAC (24-Bit, 44.1 kHz)Жанр: Italo Disco, SynthpopПродолжительность: 2 CD, 01:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59B87788E1C8E90CDA93693E058BFE03312F57F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849411   (1054878) от 31.01.2026
-
-VA - The Biggest Songs of 2000s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - Viva La Vida - (04:02)
- 02. David Guetta - Sexy Bitch (feat. Akon) - (03:16)
- 03. B.O.B - Nothin’ on You (feat. Bruno Mars) - (04:28)
- 04. Roxette - Milk and Toast and Honey - (04:05)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 04:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFF68E93208A9939F6223D53CF4CC2BC35FE3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850967   (1054777) от 31.01.2026
-
-Polnalyubvi - Коллекция (2018-2024) [FLAC|Lossless|tracks] <Pop, Indie>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, IndieПродолжительность: 02:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40F992B514B330DA048701962438BEF2427E1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850243   (1054253) от 26.01.2026
-
-Alexander Rybak - Fairytales (2009) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll with the Wind [00:03:34]
-02. Fairytale [00:03:03]
-03. Dolphin [00:04:15]
-04. Kiss and Tell [00:03:21](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208987B9D52D14FABBF021276DED791715D94FA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

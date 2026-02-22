@@ -1,67 +1,3 @@
-###  Публикация: 442201   (72291) от 26.01.2012
-
-VA - Various - Nu Jazz  A Selection Of New Rare Tunes With A Jazz Flavour (2007) [FLAC|Lossless]<World Fusion, Clubjazz, Jazz-House, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Quasimode - 1000 Days For Spirit (7:00)
-02. Slope feat. Jane Hamilton - Find Our Love (Volker Meitz Acoustic Replay) (6:33)
-03. Nostalgia 77 - Wildflower (4:10)
-04. Nomo - Rocket #9 (5:45)
-05. Re Jazz - People Hold On (Metropolitan Jazz remix) (4:57)
-06. Jazzinho - Da tempo Ao Tempo (Nicola Conte Rework) (7:25)
-07. Fdel - that's his name (1:22)
-08. Basement Boys present Mudfoot Jones - boomerang (3:33)
-09. Malko - Follow My Lead (S-Stone Inc Remix) (4:37)
-10. Cleveland Watkiss - So near (4:07)(   Читать дальше...   )2007Жанр: World Fusion, Clubjazz, Jazz-House, Jazz-PopПродолжительность: 02:30:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770620   (71960) от 02.01.2025
-
-Andre Previn & Thomas Stevens - Play A Classic American Songbook (1992) DRG Records [FLAC|Lossless|image + .cue] <Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust/Skylark [6:09]
-02. It Might as Well Be Spring [4:09]
-03. My Funny Valentine [4:37]
-04. Slowly/Laura [5:07](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8185206B8CF924DCC3BB2F74674ED4F1DCBBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771033   (71930) от 05.01.2025
 
 VA - Dancefloor Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -751,6 +687,64 @@ Gerry Mulligan/Art Farmer Quartet - In Stockholm & Hollywood (1959) 2010, Solar 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FEDEA5DF29ECDE32BAC73341AC8CE11FAA15D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776082   (71332) от 30.01.2025
+
+Tran Manh Tuan - Ve que (Coming Home) (2003) Self-Released [FLAC|Lossless|tracks + .cue] <Smooth Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ve que (Coming Home) [6:15]
+02. Nguoc dong Huong Giang (Going Up Stream the Perfumed River) [4:36]
+03. Chi toi (My Lovely Sister) [7:23]
+04. Chi toi (My Lovely Sister) [5:36](   Читать дальше...   )Жанр: Smooth Jazz, World FusionПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA50DBBA8CB07C8FFE3DD40FA8CFE72757D0921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776079   (71331) от 30.01.2025
+
+Laura Caviani - Going There (2005) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going There [6:12]
+02. In the Interim [4:25]
+03. This Is My Song [3:09]
+04. Tobacco Blues [4:32](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EA22C2AF63F2335DA66E0CF46DB25661582206
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,173 @@
+###  Публикация: 1824494   (128871) от 15.10.2025
+
+Ihsahn - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Experimental/Extreme Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ihsahn - Вегард Сверре Твейтан — норвежский композитор, гитарист, бас-гитарист, клавишник и вокалист. Более известен как вокалист, гитарист и клавишник группы Emperor2006 - The Adversary
+2008 - Angl
+2010 - After
+2012 - EremitaЖанр: Experimental/Extreme Progressive MetalПродолжительность: 08:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8972B0F12D968E481C81A6523DDE6C68A08DE19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824485   (128870) от 15.10.2025
+
+Bloodywood - Studio Albums (2 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloodywood - индийская метал-группа из Нью-Дели, образованная в 2016 году. Они начинали как пародийный коллектив, выкладывающий каверы на поп-песни на YouTube, но позже стали писать собственный оригинальный материал. Среди музыкальных источников вдохновения для группы значатся Linkin Park, Rage Against the Machine, System of a Down, Alter Bridge и Limp Bizkit.2022 - Rakshak
+2025 - Nu DelhiЖанр: Folk Metal, Nu MetalПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51661B315415AA1F34CB8BA655550AFAE553FAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824589   (128807) от 15.10.2025
+
+The Hu - Studio Albums (2 releases) (2020-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128807.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Hu - монгольская фолк-метал группа, образованная в 2016 году в Улан-Баторе. Используя традиционные монгольские музыкальные инструменты, такие как морин хуур, товшуур и горловое пение, группа называет свой музыкальный стиль «хунну-рок».2020 - The Gereg
+2022 - Rumble of ThunderЖанр: Folk MetalПродолжительность: 03:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6553A1F79AA5D7DA718EBF8E489A346E4646314B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577393   (128583) от 14.10.2025
+
+Trivium (& Ibaraki) - Studio Albums (12 releases) (2003-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Thrash/Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trivium — американская метал-группа из Орландо, Флорида, образованная в 1999 году.2003 - Ember To Inferno
+2006 - Ascendancy
+2006 - The Crusade
+2008 - ShogunЖанр: Metalcore, Thrash/Heavy MetalПродолжительность: 14:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D819840B377D25E8AE4BEE79E81291FAF4DDEE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683357   (128547) от 10.12.2023
+
+Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ancient Ceremony — немецкая симфо блэк-метал-группа, образованная в 1991 году. После 2005 года от группы не поступало никаких новостей и, предположительно, на данный момент она распущена.1995 - Cemetary Visions
+1997 - Under Moonlight We Kiss
+1999 - Fallen Angel's Symphony
+2000 - Synagoga DiabolicaЖанр: Symphonic Black MetalПродолжительность: 03:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F6C776EE1B96B68C075E188564D25862C5161E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683242   (128544) от 10.12.2023
+
+Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaos
+02. Dawn Of A Million Souls
+03. Journey On The Waves Of Time
+04. To The Quasar: а) The Taurus Pulsar b) Quasar 3C273(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA58600C7A0A869A21F41F7C0F800DCD50D342F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683758   (128247) от 12.12.2023
 
 System Of A Down - System Of A Down (1998)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Alternative Metal, Nu Metal>
@@ -568,177 +738,6 @@ Unanimated — шведская метал-группа, основанная в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89A7B1317627F59747691AA209B220A1D1C53101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823944   (126076) от 13.10.2025
-
-Countless Skies - Studio Albums (3 releases) (2014-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Countless Skies - рок-руппа из Хартфордшира, Великобритания, образовалась в 2009 году под названием Hatespire, но в 2012 году сменила название на Countless Skies.2014 - Countless Skies (EP)
-2016 - New Dawn
-2020 - GlowЖанр: Melodic Death MetalПродолжительность: 01:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8DD6D5172F1520E1A3FA232DA68580627DA62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823936   (126075) от 13.10.2025
-
-Callenish Circle - Studio Albums (5 releases) (1996-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Callenish Circle - метал-группа из Нидерландов, существовавшая с 1992 по 2007 годы1996 - Drift Of Empathy
-2000 - Graceful... Yet Forbidding
-2002 - Flesh_Power_Dominion
-2003 - My Passion, Your PainЖанр: Melodic Death MetalПродолжительность: 04:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E204AD3D49AC80699CD216EAB7D77693C1DF9AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823933   (126074) от 13.10.2025
-
-Tony Bennett - Just One Of Those Things (1969) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126074.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Let's Begin
-A2 Lullaby Of Broadway
-A3 Let There Be Love
-A4 Love For Sale(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 00:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E590A54D79E5FA1EC404220F1D40D53B54912D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823608   (125889) от 12.10.2025
-
-Loredana Groza - Buna Seara, Iubito! (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125889.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Iti Citesc In Ochi
-A2 Toate Femeile
-A3 O Inima De 16 Ani
-A4 Sa-ti Spun Adio(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F753AB424058B8324B87ED6F6C24B08177C85591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686977   (125707) от 25.12.2023
-
-Charred Walls Of The Damned - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Charred Walls of the Damned — американская хэви-метал супергруппа, образованная в 2009 году и состоящая из барабанщика Ричарда Кристи, басиста Стива Ди Джорджио, вокалиста Тима «Риппера» Оуэнса и гитариста Джейсона Суэкофа.2010 - Charred Walls Of The Damned
-2011 - Cold Winds on Timeless Days
-2016 - Creatures Watching Over The DeadЖанр: Power/Thrash MetalПродолжительность: 02:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870A070C4D4C2174F4599C9EEC5D64EA683D07CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687458   (125459) от 27.12.2023
-
-Dissection - Studio Albums (3 releases) (1993-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dissection — шведская мелодик-блэк-дэт-метал-группа, основанная вокалистом и гитаристом Йоном Нёдтвейдтом в Стрёмстаде в 1989 году.1993 - The Somberlain
-1995 - Storm of the Light's Bane
-2006 - ReinkaosЖанр: Melodic Black Metal, Melodic Death MetalПродолжительность: 02:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1893713EB2807D5E00F0CD097C709DE67DACF8E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1373452   (876833) от 08.04.2020
+
+DJ Rap - Propa Classics Volume One (2001) Mixed [FLAC|Lossless|tracks + .cue] <Drum & Bass, Jungle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Engineers Without Fears - Spiritual Aura (5:26)
+02. Da Boss - I'm So (DJ Rap Mix) (4:51)
+03. DJ Rap - Digable Bass (4:34)
+04. DJ Rap - Hardstep (4:45)(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C2E19391AEAB1680ADEEFD237E2EA24F4C6C84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373985   (876830) от 08.04.2020
 
 Tweak and Tuneup 3.2.0 [En]
@@ -681,34 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88322DDE499C9BA4431DCF6FD041F9F119ED6E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103273   (876751) от 17.02.2017
-
-Биатлон. Чемпионат Мира 2017. Хохфильцен (Австрия). Женщины. Спринт 7,5 км (10.02.2017) IPTV [H.264/1080p-LQ][RU,EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876751.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 февраля 2017 года, пятница. 16:45 МСК
-Чемпионат Мира 2017. Хохфильцен (Австрия)
-Женщины. Спринт 7,5 кмТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: 1. Русский,   2. АнглийскийПродолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECB750813149B6AC97DBA6F6519177DE9CC545E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 432241   (988129) от 09.01.2012
+
+Markus Schulz - Global DJ Broadcast: World Tour - Sydney, Australia (2012-01-05) [MP3|256 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.	Global DJ Broadcast - Intro	(00:44)
+02.	ID - ID	(03:29)
+03.	KhoMha - The Sky Is Inside You	(06:05)
+04.	Koen Groeneveld - Slides (Markus Schulz Big Room Reconstruction)	(04:29)
+05.	Armin van Buuren - Blue Fear (Orjan Nilsen Remix)	(03:22)
+06.	Nash & Pepper pres. Ostrega - First Scream (Dennis Sheperd Remix)	(04:35)
+07.	Markus Schulz pres. Dakota - Cape Town (Sunnery James & Ryan Marciano Remix)	(04:29)
+08.	Gareth Emery & Ashley Wallbridge - Mansion	(04:09)
+09.	Markus Schulz pres. Dakota - Saints (Beat Service Remix)	(05:03)
+10.	Birdy Nam Nam - Goin' In (Bad Dancer Remix) (Markus Schulz Big Room Reconstruction)	(03:26)(   Читать дальше...   )2012-01-05Жанр: TranceПродолжительность: 01:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5050BCCBFC12642C0EDB38D980BA414A265E4026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 434075   (988126) от 09.01.2012
 
 [Wallpapers] Best Mix Wallpapers (47)
@@ -690,33 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611259   (988080) от 31.01.2013
-
-"АСТ" | Книжная серия "Пять звезд" (47 книг) [2006-2008] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять звезд - серия книг, которым по пятибальной системе выставляют 5 звезд ведущие женские журналы: Космополитен и др.
-Ну что ж, сравните книгу, которую никто вообще не рекомендует и книгу, которую рекомендует хоть кто-нибудь. Рекомендация, она и в России рекомендация.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD492D6F337688039C27C93CECFB6E4A1C95F480
 ```
 
 https://mybot314.ru/tekegram_catalog/

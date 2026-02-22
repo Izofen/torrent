@@ -1,3 +1,29 @@
+###  Публикация: 1538196   (664287) от 19.03.2022
+
+Pale Moon 30.0.0 + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с многими расширениями Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF44CCC251AB9570FBA81A5268AE7FF354884379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538236   (664286) от 19.03.2022
 
 Internet Download Manager 6.40 Build 9 RePack by elchupacabra [Multi/Ru]
@@ -653,35 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C25733589506ECD887F2856F843B0DFB0E083673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137775   (664106) от 29.05.2017
-
-VA - Nothing But... Ibiza Summer 2017 Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alan Morris - Wherever We Fly (Original Mix) 3:32
-02.  AxelPolo & Dominic Manns - White Island (Original Mix) 4:53
-03.  Miroslav Vrlik - Save Me (Extended Mix) 7:32
-04.  Simon Gregory - 2 Zero 1 Seven (Original Mix) 8:00(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21A10C20AA72EE591C63B095008B11A13D979D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1501059   (838246) от 08.10.2021
+
+Mezz Mezzrow - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathless Blues [2:57]
+02. Really the Blues - Part 1 [3:12]
+03. Really the Blues - Part 2 [2:53]
+04. Evil Gal Blues [2:58](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B11B6CB8C6377C46D9BA6C531A7C9C82C4A2B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501057   (838245) от 08.10.2021
 
 Art Farmer - Here's That Rainy Day (1990) Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
@@ -723,35 +752,6 @@ Omer Avital - Abutbul Music (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F625B185CAD551B710A5355DBF7D9C4A1888438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005000   (834572) от 08.04.2016
-
-Tord Gustavsen - What Was Said (2016) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Your Grief
- 02 – I See You
- 03 – Imagine the Fog Disappearing
- 04 – A Castle in Heaven(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5179FAB895CA858A688F353F7B44210026102001
 ```
 
 https://mybot314.ru/tekegram_catalog/

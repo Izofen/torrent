@@ -1,3 +1,93 @@
+###  Публикация: 304406   (858751) от 06.03.2011
+
+G. Love - Fixin' To Die (2011) [FLAC|Lossless]<Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Fixin' to DieЖанр: Blues, CountryПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647084   (858708) от 22.04.2013
+
+V.A. - Sax Chill Out Vol. 3 (2011) [MP3|320 кб/с]<Jazz, Sax, ChillOut>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Moon River
+02. Memory
+03. Just the Way You Are
+04. Nuages
+05. A Whiter Shade of Pale
+06. Fly Me to the Moon
+07. Magdalena
+08. Still
+09. A Little Thing
+10. I Write the Songs(   Читать дальше...   )Жанр: Jazz, Sax, ChillOutПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004235EF7872C49ABB932FB5D0D20ED1A41894C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498302   (858179) от 26.09.2021
+
+Art Foxall - Blue Fox (1992) Audio Daddio [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That One Thing Was You [5:26]
+02. Blue Fox [7:37]
+03. Tory Train [4:50]
+04. September Song [6:42](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5B3863689AFF9259BFF3D68BDF64E7813F9CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875502   (858038) от 06.03.2015
 
 Nomo - New Tones (2006) [FLAC|Lossless]<Funk, Afro-Beat, Experimental>
@@ -724,105 +814,6 @@ Duke Ellington - Take The A Train 1929 - 1952 (2006) Milan Jazz [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D6D26548F56606641970E2732D8EC50FB958A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376907   (857013) от 19.04.2020
-
-Harry Allen With Monty Alexander Trio - Soul Of My Life (2006) Swing Bros. Records Inc. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Send Me [6:09]
-02. I Just Called to Say I Love You [4:24]
-03. You Make Me Feel Brand New [5:57]
-04. You Are the Sunshine of My Life [5:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4329B7DA98894D5922ADF17746A43F5A1FB3BB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305700   (856990) от 07.03.2011
-
-Sara Wasserman - Solid Ground (2009) [FLAC|Lossless]<Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Little Bird (3:31)
-02. I Am A Song (4:02)
-03. Leap Of Faith (3:48)
-04. Fly Away (4:18)
-05. Sara Smile (3:13)
-06. Fresh Out Of Tears (3:49)
-07. Solid Ground (5:06)
-08. Somehow Forever (4:20)
-09. Need To Know (3:59)
-10. Hindsight (4:08)(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769203   (856986) от 22.03.2014
-
-Kim Pensyl - Under The Influence (1996) [FLAC|Lossless]<Smooth-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Minute By Minute
- 02. Home At Last
- 03. A Short Walk From Home
- 04. Morning Isle
- 05. That's The Way Of The World
- 06. Love Light In Flight
- 07. Mornin'
- 08. Little Willy C.
- 09. Casting Shadows
- 10. BucklesЖанр: Smooth-JazzПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123792882D22CFBF686C9B9764EFAA8743AD7D86
 ```
 
 https://mybot314.ru/tekegram_catalog/

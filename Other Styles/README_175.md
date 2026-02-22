@@ -1,3 +1,32 @@
+###  Публикация: 1432258   (164928) от 16.12.2020
+
+Ulvesang - The Hunt (2018) [FLAC|Lossless|Web-DL|tracks] <Folk, Black Metal, Dark Folk, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invocation (2:02)
+02. The Trial (4:55)
+03. The Dance (5:59)
+04. The End (5:43)(   Читать дальше...   )Производство: Nordvis Produktion - NVP072Жанр: Folk, Black Metal, Dark Folk, Neofolk, Dark AmbientПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77C1A98773FC40462F10A33F7E47FBEA2EDA746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597612   (164875) от 16.12.2022
 
 VA - Country Rock Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
@@ -716,36 +745,6 @@ David Arkenstone - Native Dreams (2015) [MP3|320 кб/с] <Native american, Ethn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74120E850B00DAAECF2958497499CBCA4B5FB72C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433119   (158041) от 20.12.2020
-
-VA - Enigmatica (Сборник Качественной Электронной Музыки) (2013) [FLAC|Lossless|WEB-DL|tracks] <Enigmatic, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Андрей Мольдон (Messiah project) родился 27.06 1973 в г. Тверь, с 1999 года постоянно проживает в г. Москва.
-Все поклонники Энигмы (Enigma) и музыки данного направления уже могли познакомиться с некоторыми работами автора. Так как не было никакой информации, всё его творчество принималось за бутлеги Энигмы, выпускаемые "нашими пиратами". Но вот теперь пришло (   Читать дальше...   )01. Ethna - Rapa Nui (6:33)
-02. Marah Cash - Enigmatica (5:49)
-03. Meduzza - Eastern Barbarians (5:15)
-04. Ethna - Coldfire Dance (3:56)(   Читать дальше...   )Жанр: Enigmatic, DowntempoПродолжительность: 03:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6527E78506EAB4A46CB8130FF9D4C3CE9A86B40F
 ```
 
 https://mybot314.ru/tekegram_catalog/

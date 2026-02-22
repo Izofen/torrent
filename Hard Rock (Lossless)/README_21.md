@@ -1,3 +1,32 @@
+###  Публикация: 1103173   (887903) от 11.02.2017
+
+Jim Crean - Insatiable (2016) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Jamieson Intro (00:19)
+02. Insatiable (04:00)
+03. Caught In The Middle (04:01)
+04. Touch  (03:59)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFE657D1D994492958E1E13687A73D0A3EA1C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103149   (887701) от 11.02.2017
 
 Thunder - Wonder Days (2015) Limited Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
@@ -763,35 +792,6 @@ Deep Purple - Power House (1977) [WavPack|Lossless]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE5BDB7D038B1B6C0ADC35470410D91233E61A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495454   (880818) от 12.09.2021
-
-Blacksmith - Once Upon A Star (2000) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon A Star
-02. Dragons Fire
-03. Hall Of The Mountain King
-04. Come On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2133ABFEDCBF7F950CD14D606CCF17675313BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

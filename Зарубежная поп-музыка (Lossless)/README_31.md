@@ -1,3 +1,32 @@
+###  Публикация: 1014965   (775811) от 09.05.2016
+
+Gino Vannelli - Big Dreamers Never Sleep (1987) [APE|Lossless|image + .cue] <Pop, Synth-Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Name Of Money
+02. Time Out
+03. Wild Horses
+04. Young Lover(   Читать дальше...   )Жанр: Pop, Synth-Pop, ElectronicПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A835180FA01687E1269692EEA6108BA09E64EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212629   (775776) от 12.03.2018
 
 Judit Neddermann - Nua (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ VA - 100 Hits 80s Pop (2017) 5CD, Box Set[FLAC|Lossless|tracks + .cue] <80s, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5B5AFCA43564E2B160C45ED7218C3E146A3854C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126624   (765477) от 18.04.2017
-
-VA - Club Latino (2000) приложение к журналу Stereo & Video 032 [FLAC|Lossless|image + .cue] <Latin, Pop, Mambo, Lambada, Cha-Cha>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jessica Jay - Chilly Cha Cha
-02. Gato Santos - La Gallinita
-03. Lia Crucet - La Movidita (fun dance mix)
-04. 40 - Corazon Perdio(   Читать дальше...   )Жанр: Latin, Pop, Mambo, Lambada, Cha-ChaПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80D33BA0CC1D8D9F9FD33EC6B3F90BDBBB921A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

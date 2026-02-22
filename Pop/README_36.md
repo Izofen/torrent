@@ -1,3 +1,119 @@
+###  Публикация: 1358498   (968751) от 08.02.2020
+
+VA - Композитор Юрий Эрикона-Женщине... (1999) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Малинин - Ты такая красивая
+02. Азиза - Заблудилась вдалеке мечта моя
+03. И. Кобзон - Колыбельная
+04. И. Резник - Вдовушка(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA462482A9D9BC7BA0D632EBFB2E49EC628CC8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358497   (968684) от 08.02.2020
+
+Надежда Чепрага - 3 Альбома (1998 - 2004) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мне приснился шум дождя
+02. Амор ( До встречи )
+03. Записная книжка
+04. Нанэ Цоха ( из к/ф Табор уходит в небо )(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 02:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1989DEEE6CB7A116F70465D91775F50F96B6413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358505   (968681) от 08.02.2020
+
+VA - 100 Greatest Number Ones (The Best No.1s Ever) (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968681.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lukas Graham - 7 Years 3:57
+002. Dua Lipa - New Rules 3:29
+003. Tones and I - Dance Monkey 3:30
+004. Tinie Tempah feat. Jess Glynne - Not Letting Go (XYconstant Remix) 4:49(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1549949892909DD1091F8C9F8EE8B3E117E1D725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358451   (968569) от 08.02.2020
+
+Roxette - The Ballad Hits (2002) Limited Edition, 2xCD [FLAC|Lossless|tracks + .cue] <Synth-pop, Ballad, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968569.jpg" />
+</div>
+
+
+###  Подробнее
+
+СD1:
+01.A Thing About You (3:49)
+02.It Must Have Been Love (4:19)
+03.Listen to Your Heart (5:14)(   Читать дальше...   )Жанр: Synth-pop, Ballad, Pop RockПродолжительность: 01:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76A88CEFC93B302AD84E8DED74123B8562A9B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976993   (967828) от 19.01.2016
 
 Joy Enriquez - The Call (2016) [FLAC|Lossless|tracks] <Pop, Folk, CCM>
@@ -627,122 +743,6 @@ VA - I Grandi Successi Degli Anni 80 Vol.1 (2005) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E4C26F7377FA67CD9FE294E487C31A696CBD926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977992   (964475) от 22.01.2016
-
-Pandora - This Could Be Heaven (1997) [APE|Lossless|image+.cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Single Life	3:36
-02	Everybody's Livin' It Up	4:10
-03	Shout It Out	3:16
-04	Show Me What You Got	3:22(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FC1CC713408ED8CAA6F35A64DD376E93AD6F51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359631   (964304) от 12.02.2020
-
-Hydro Featuring Lorna - Hydro (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop Your Teasing (9:34)
-02. I'll Make Your Day Tonight (6:16)
-03. I'll Be Good To You (7:40)
-04. My Favorite Disco (5:19)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA2D86AE18402BCA7AAB4B2F54726DF3502F06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359376   (964297) от 12.02.2020
-
-VA - Valentine's Day Mix (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Adams - Heaven 4:05
-02. Ronan Keating - When You Say Nothing At All 4:06
-03. Calum Scott & Leona Lewis - You Are The Reason (Duet Version) 3:11
-04. Lady Antebellum - Need You Now 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD783440275C72B0F23E310DDACF54A37F0E693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978003   (963639) от 23.01.2016
-
-VA - I Grandi Successi Degli Anni 90 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piano Daniele - Quando (3:35)
-02. Umberto Tozzi - Gli altri siamo noi (5:31)
-03. R.Casale e G.Di Michele - Gli amori diversi (3:39)
-04. Cristiano De Andre - Dietro la porta (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B74C2E2FCC9B90B4C09F63589572B8AAAE11FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

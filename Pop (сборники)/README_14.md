@@ -1,3 +1,32 @@
+###  Публикация: 989905   (915220) от 23.02.2016
+
+VA - Простые движения. Русский сборник попмузыки (2016) [MP3|192-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915220.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лена Савельева (Лёха)-Слышишь
+002. Александр Антонов - Это все, что я могу
+003. Евгений Коновалов - Прощай ( Andgork+Remix Electro )
+004. Катя Лель - Огни (Alex Radionow Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9132185C24C1E3548F8B9C3515F1801198AFDF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990100   (913489) от 24.02.2016
 
 VA - Italo & Space Disco Vol. 3 (2016) [MP3|320 кб/с] <Italo Disco, Spacesynth>
@@ -725,35 +754,6 @@ VA - Unknown 80's (part III) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:576D496A80A156799DC3D0E01BD8812AE42E982E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098401   (908381) от 30.01.2017
-
-VA - Singles Chart Hot 100 Billboard (04 February) (2017) [MP3|32-320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908381.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Weeknd feat. Daft Punk - Starboy 3:51
-002. Ed Sheeran - Shape Of You 3:54
-003. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-004. The Chainsmokers feat. Halsey - Closer 4:06(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D433757FE940D5D4A9C23E16818613CEF711B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

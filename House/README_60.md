@@ -1,3 +1,89 @@
+###  Публикация: 1069036   (376443) от 03.11.2016
+
+VA - Workout Traxx - Best of 2016 Vol 1 (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Popovic - Rise Up 05:08
+02. David K (Ger) - Open Eyes 06:49
+03. Samantha Mayer - Check That Sound (Extended Mix) 05:10
+04. Delbert Schneider - My Way Out 04:11(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 04:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B451F38481161D2767FCE6971DA017667C650E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573609   (376417) от 12.11.2012
+
+DeepSide DeeJays - 3 Релиза (2009-2012) [MP3|320 кб/с]<House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look Into My Eyes (Radio Edit) (4:07)
+02. Look Into My Eyes (Extended Mix) (5:42)
+03. Look Into My Eyes (Club Edit) (5:29)Жанр: House, DanceПродолжительность: 00:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FBDB1C971132BB1FBD060A9B44CF27628C38B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068995   (376250) от 03.11.2016
+
+Roald Velden - Nowhere (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roald Velden – Everything Fades Away (3:16)
+02. Roald Velden – Thru The Rain (7:45)
+03. Roald Velden & Lessov – Purple Sky (7:40)
+04. Roald Velden – Nowhere (7:50)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3A4A5C5661F982179B2DA61739340A1CAA1440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068800   (376105) от 03.11.2016
 
 VA - Funky Disco House Essentials Vol. 15 (2016) [MP3|320 Kbps] <Jackin House, Funky, Soulful, Nu Disco>
@@ -667,90 +753,6 @@ VA - Ministry of Sound: DJ Mag Top 100 Djs (2012) [MP3|256 кб/с]<House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C0CAB40602DB34DBD5E46835C5A18B82CBCF077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 254239   (362317) от 05.11.2010
-
-VA - Electro Paradise (2010) [MP3|320 kbps]<Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro HouseПродолжительность: 06:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3EB2AFA107BB6AA92CE380AEE6B35A49F317E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071104   (362133) от 09.11.2016
-
-VA - Big Room Essentials, Vol. 01 (2016) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lan-D - Dark Shots (Original Mix) 04:22
-02. Avalanche - Alaska (Original Mix) 04:41
-03. Saint Valentine - Vision (Original Mix) 04:26
-04. Dynasty - Charizard (Club Mix) 03:22(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 01:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C1994FE7304CD5E3C86A089AA425B7363ACA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070774   (362040) от 09.11.2016
-
-VA - Chillout: Ultimate Sunset Collection (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yekuro Losho - You'll Never Dance Alone (06:40)
-02. Don Gorda Project - Recurring Events (06:17)
-03. Zero Feedback - Rien ne va plus (Don Gorda Project Remix) (07:00)
-04. Enrico Donner - Prefabricated Dreams (06:47)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8879C0C6007F68EFB6F9F40E00AC9FEC820384C
 ```
 
 https://mybot314.ru/tekegram_catalog/

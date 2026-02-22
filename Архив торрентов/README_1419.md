@@ -1,3 +1,38 @@
+###  Публикация: 766171   (871830) от 14.03.2014
+
+VA - John O'Callaghan: Subculture Top 10 March 2014 [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Metcalfe - High Altitude (M.I.K.E. Push Remix Edit)
+002. Sebastian Brandt - Overture (Original Mix)
+003. Giuseppe Ottaviani - Heal This Empty Heart (John O’Callaghan Remix)
+004. Solarstone - Lovers (Giuseppe Ottaviani Remix)
+005. James Rigby - Indigo Delta (Thomas Bronzwaer Remix)
+006. Eddie Bitar - Centipede (Original Mix)
+007. Sied Van Riel - 8 Decades (Original Mix)
+008. Adam Ellis - Mandarine (Original Mix)
+009. Winkee - Helsinki (Original Mix)
+010. Brian Flinn - Ultra Violet (Original Mix)Жанр: TranceПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A02AD4257F0B1CB192F93909787820D259CFE5CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 188191   (871829) от 31.03.2010
 
 Microsoft | TechNet Technical Information Library March [2010] [ISO]
@@ -752,41 +787,6 @@ Dornenreich - Flammentriebe (2011) [FLAC|Lossless]<Melodic Black/Avant-garde/Neo
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301296   (871744) от 27.02.2011
-
-VA - Dj Exklusive 05 (26.02.2011) [MP3|320 kbps]<Dance /  House/Disco House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Tube & Berger – Free Tribe (Original Mix)
-02. Kings Of Tomorrow Feat. April – Take Me Back (Virus J Remix)
-03. Studio Apartment Feat. Rae – Your Words (Original Mix)
-04. Olav Basoski – New Day (Original Mix)
-05. David Herrero – Spanish Lick (Original Mix)
-06. Abel Ramos Feat. Erire – Dream Come True (Dj Chus & David Penn Liberican Remix)
-07. Eddie Thoneick & Eric Morillo Feat. Shena – Nothing Better (An21 Max Vangeli Remix)
-08. Richard Grey Feat. Robin S – Bang (Dirty Secrets Grey Boom Mix)
-09. Dj Chus Feat. Mikel Curcio – La Samba (Original Mix)
-10. Tensnake – Coma Cat (Mark Knight\’s Karma Cat Remix)Жанр: Dance /  House/Disco HouseПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29566646917AECFF862F27342FC035BE9DA880B
 ```
 
 https://mybot314.ru/tekegram_catalog/

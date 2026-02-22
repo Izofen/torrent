@@ -1,3 +1,32 @@
+###  Публикация: 1014111   (776964) от 06.05.2016
+
+Shirley Scott - Something (1970) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Games People Play [03:53]
+ 02.Because [03:47]
+ 03.Can I Change My Mind [02:58]
+ 04.Someday We'll Be Together [03:05](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FB7CC29470B1C5B7629B5616754AE645879D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014244   (776961) от 06.05.2016
 
 Teddy Wilson - & His All-Stars Vol. 1 (1935-1939) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ Howard McGhee - Maggie's Back In Town (1961) 1991, Original Jazz Classics [APE|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E70D9A84438CCD3DF5C6C7EAB29707C3DBE1DC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212761   (775222) от 13.03.2018
-
-Sonia Cat-Berro - Lonely Siren (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Return
-02. Very Simple Song
-03. Around My Shoulders
-04. Babooshka(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBFE81803496A942201604D8971DB25C4ABDC65
 ```
 
 https://mybot314.ru/tekegram_catalog/

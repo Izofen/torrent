@@ -1,3 +1,100 @@
+###  Публикация: 1103379   (885563) от 12.02.2017
+
+Omar & the Howlers - Essential Collection (2011) 2×CD, Compilation [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европейские поклонники блюза всегда восхищались техасским музыкантом Омаром Кентом Дайксом, чему в немалой степени способствовал его имидж, соответствовавший их представлением об американце. Высокий, в ковбойских сапогах, с глубоким голосом и южным акцентом, Омар с легкостью мог завести аудиторию. Дайкс родился в 1950 году там же где и Бо Диддли, в маленьком городке (   Читать дальше...   )CD 1 - Best Of
+CD 2 - Omar's PicksЖанр: Blues-RockПродолжительность: 02:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AEAF784E64928F9E321BFE8CB8873CBE37ABE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763654   (885286) от 06.03.2014
+
+Buddy Guy - Live At Legends (2012) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:39)
+02. Best Damn Fool (6:14)
+03. Mannish Boy (4:06)
+04. I Just Want To Make Love To You\Chicken Heads (9:22)
+05. Skin Deep (5:17)
+06. Damn Right I Got The Blues (6:26)
+07. Boom Boom\Strange Brew (3:01)
+08. Voodoo Chile\Sunshine Of Your Love (3:35)
+09. Polka Dot Love (5:35)
+10. Coming For You (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FE2D12C7E6731DB869E5A0CFC4A73CC606300A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763719   (885269) от 06.03.2014
+
+Freddie King - The Blues Live! Expanded Edition (2012) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Have You Ever Loved A Woman (12:47)
+02. Mojo Boogie (7:19)
+03. You`re The One (7:13)
+04. Messin' With The Kid (4:26)
+05. Going Down (4:18)
+06. Stormy Monday (13:39)
+07. Let The Good Times Roll (8:05)
+08. Sweet Home Chicago (6:04)
+09. Hide Away (4:27)
+10. Rock Me Baby (5:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7157AD3CEB8A45AC73978106A303A8F95D7E600F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 763718   (885178) от 06.03.2014
 
 Albert King - The Best of Albert King (1998) [FLAC|Lossless]<Blues>
@@ -699,91 +796,6 @@ Mel Torme - Sunday In New York & Other Songs About New York (1963) Remaster, 201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:754DF7419EC5E80B4A750C589D6449495C7ED785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103992   (883699) от 13.02.2017
-
-Johnnie Bassett & The Blues Insurgents - I Gave My Life To The Blues (1996) [FLAC|Lossless|image + .cue] <Blues, Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Get Over You - 6:38
-02. Mean Feeling - 5:41
-03. Drink Muddy Water - 3:17
-04. Blowing The Horn - 3:16(   Читать дальше...   )Жанр: Blues, Modern Electric BluesПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707C90F5EDCFE90D261A0DB75A60CE245538C1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185374   (883661) от 24.03.2010
-
-Miles Davis (Майлз Дэвис) - Chronicle (The Complete Prestige Recordings 1951-1956) (8 CD Boxset) (1993) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: JazzПродолжительность: 09:10:29
-.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103997   (883637) от 13.02.2017
-
-Johnnie Bassett & The Blues Insurgents - Cadillac Blues (1998) [FLAC|Lossless|image + .cue] <Blues, Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Do, What I'm Gonna Do (4:11)
-02. Cadillac Blues (5:13)
-03. Broke In Pieces (5:54)
-04. I Can't Get It Together (4:46)(   Читать дальше...   )Жанр: Blues, Modern Electric BluesПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B49074996E8F8EC35D4B944F7E824A7A9B8CBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

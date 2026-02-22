@@ -1,3 +1,99 @@
+###  Публикация: 431331   (991711) от 05.01.2012
+
+Lefties Soul Connection - One Punch Pete (2011) [FLAC|Lossless]<Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Shake It Up, Burn It Loose
+02. She's Not Answering
+03. Code 99
+04. The Hump
+05. U Got Me
+06. Have Love Will Travel
+07. Cover My Eyes
+08. You Don't Know
+09. Rimfire
+10. Buckaloose (Full Version)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431739   (991704) от 05.01.2012
+
+Boptails - Tot Rod Wheels (2004) [MP3|320 kbps]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(2:23) 01. Comin' Home
+(2:38) 02. Take My Love
+(3:04) 03. Bad bad rhythm
+(2:13) 04. Desperate Love
+(3:25) 05. Bop Till You Drop
+(3:34) 06. Hot Rod Wheels
+(2:54) 07. Nothin' But The Blues
+(3:18) 08. Whiskey And Moonlight
+(3:02) 09. Going By Train
+(2:31) 10. Rockabilly Law(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE383C975DB7579EBE5367A0874269F5D888AF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431765   (991401) от 05.01.2012
+
+Dean Martin - Greatest Hits (2006) [MP3|320 kbps]<Vocal Jazz, Oldies>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+2006Жанр: Vocal Jazz, OldiesПродолжительность: Disc 1 - 01:06:51; Disc 2 - 01:13:47; Disc 3 - 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B83B1E6A176FA5A2FB6E722B1CC378285FE508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609772   (991222) от 28.01.2013
 
 Various Artists - Let There Be Funk (2001) [FLAC|Lossless]<Funk, Soul>
@@ -761,111 +857,6 @@ J.B. Lenoir - Alabama Blues (1995) [FLAC|Lossless]<Blues, Acoustic Blues>
 08. Talk to Your Daughter 2:42
 09. Mississippi Road 2:55
 10. Good Advice 2:41(   Читать дальше...   )1995Жанр: Blues, Acoustic BluesПродолжительность: 00:33:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432794   (990053) от 07.01.2012
-
-VA - The Ultimate Diva Collection (2010) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Cassandra Wilson - Polka Dots And Moonbeams (5:45)
-02.Jacintha - Round Midnight (6:15)
-03.Joni Mitchell - The Man I Love (5:57)
-04.Shirley Horn - Beautiful Love (3:39)
-05.Abbey Lincoln - Love has gone away (4:39)
-06.Patricia Barber - You Stepped Out Of A Dream (7:35)
-07.Stacey Kent - It Never Entered My Mind (4:40)
-08.Roberta Gambarini - Centerpiece (5:21)
-09.Susannah McCorkle - Manhc De Carnaval (Sunrise) (4:52)
-10.Jane Monheit - Comecar De Novo (6:18)(   Читать дальше...   )2010Жанр: Jazz, Vocal JazzПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432680   (990029) от 07.01.2012
-
-Blues Trackers - Smells Like Trouble (2011) [FLAC|Lossless]<Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Smells Like Trouble (5:30)
-02. Desperate Man (4:14)
-03. Dream (4:20)
-04. Mind Starvation (4:05)
-05. The Dolphin Dance (Part2) (4:09)
-06. Looking For Myself (4:30)
-07. In a Bad Condition (4:21)
-08. Jenny Star (3:39)
-09. Fake Fairy Tale (4:40)
-10. The Dolphin Dance (Part1) (2:00)Жанр: Blues, Blues-RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432635   (990019) от 07.01.2012
-
-Roy Roberts - Every Shade Of Blue (1997) [FLAC|Lossless]<Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Understand
-02. I Got a Gypsy Woman
-03. Hard to Find a Woman
-04. What Should I Do?
-05. Comin' Through the Back Door
-06. Why You Didn't Come Home
-07. Have You Seen My Baby?
-08. My Baby Left Me
-09. Sweet as a Honey Bee
-10. A Woman Needs Love(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:49:04
 
 ## Скачать торент
 ```bash

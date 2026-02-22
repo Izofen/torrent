@@ -1,3 +1,61 @@
+###  Публикация: 1310866   (545289) от 26.06.2019
+
+VA - WAYU Various Artists, Vol. 1 (2019) WAYU Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metatext & Karhua - Turners Tales Of Gravity (7:35)
+02. Bassara - Quasselstrip (7:04)
+03. Mujia & Tajo - Ovid (6:50)
+04. Juanma Salinas - Bacan (7:53)(   Читать дальше...   )Жанр: Deep House, Tech House, DownbeatПродолжительность: 01:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE05E342C52515EB08CA4D63D83A09607FA36344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310768   (545253) от 26.06.2019
+
+VA - We Love Ibiza (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RMV – Red Hood (7:12)
+02. Vitalii Sky – From Which Undermines The Roof (5:44)
+03. Stilo Mancia – Feel It (4:18)
+04. Andrea Ghirotti – Mistake (5:58)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 04:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1EC7C1758EF420342E694C92F19EF12D653F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238763   (544660) от 01.08.2018
 
 Poison Arrow - If You Don't Love Me (2018) Pleasure District [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno, Minimal>
@@ -686,64 +744,6 @@ VA - Iris Eclipse (2019) Dusk Notes [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD47481D5F9BD82AB8AF2E6F41DC492DD9D956C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559726   (523486) от 26.06.2022
-
-VA - Summer Vibes 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech Trance, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523486.jpg" />
-</div>
-
-
-###  Подробнее
-
-[8:20] 01. Serge Canteros - Finding Us
-[7:17] 02. Guido Roman - Maresme
-[6:37] 03. Robus Amp - Parallax
-[7:00] 04. Chris Nooke - Darkest Dreams(   Читать дальше...   )Жанр: Progressive House, Tech Trance, MinimalПродолжительность: 03:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84646A8EA99FC4B356860C840BF67D23C10B176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560188   (521895) от 28.06.2022
-
-TWO LANES - Lights (2020) EP, Extended Edition [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill House, Garage, Lo-Fi>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lights (3:22)
- 02. Wide Awake (2:50)
- 03. Never Enough (4:32)
- 04. Closer (3:28)(   Читать дальше...   )Жанр: Electronic, Chill House, Garage, Lo-FiПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2ADC4C3F82FD51402C86820F35D160C80C5356
 ```
 
 https://mybot314.ru/tekegram_catalog/

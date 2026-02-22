@@ -1,3 +1,32 @@
+###  Публикация: 1327651   (372623) от 26.09.2019
+
+Paul Bley - Indian Summer (1987) 1991, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black and Blue [6:17]
+02. Blue Waltz [8:32]
+03. Lisbon Lights [10:05]
+04. Long Ago and Far Away [8:28](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A01F5F4A88C418DEFB56E3ED6B28CCACFEB490F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176223   (372449) от 21.10.2017
 
 James Hurt - Dark Grooves • Mystical Rhythms (1999) Blue Note [APE|Lossless|image + .cue] <Jazz Fusion, Contemporary Jazz>
@@ -716,35 +745,6 @@ Fred Hersch & The WDR Big Band - Begin Again (2019) Palmetto Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:475B93B2861195B673B216CF90F95910B15F4E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176508   (370150) от 22.10.2017
-
-The Duke Pearson Nonet - Honeybuns (1965) 2012, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeybuns [07:11]
-02. New Girl [05:18]
-03. You Know I Care [04:19]
-04. Is That So? [04:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926222E412DD63F60B8C069DAAA38F3023C57870
 ```
 
 https://mybot314.ru/tekegram_catalog/

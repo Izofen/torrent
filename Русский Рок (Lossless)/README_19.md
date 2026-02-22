@@ -1,3 +1,32 @@
+###  Публикация: 478349   (728002) от 02.06.2016
+
+Чёрный Кофе - Дискография (14 CD) (1984-2009) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728002.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чёрный Кофе» по праву считается одним из апологетов рок-музыки в нашей стране. Впервые появившись на сцене в начале восьмидесятых годов, коллектив с честью преодолел все преграды, воздвигнутые существовавшей идеологической системой на пути только зарождавшейся «тяжелой» культуры и вошел в золотую летопись отечественного рока. История «Чёрного Кофе» началась в далекие (   Читать дальше...   )01. Страна (3:38)
+02. Дама пик (3:52)
+03. Мгновения часы (3:46)
+04. Расскажи (3:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 11:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338FF7DAC4694F139A2798743E612C4AFB525B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128704   (727443) от 25.04.2017
 
 Журавли - Зверинец Верхнего Мира (2017) [FLAC|lossless|image + .cue] <KSP-Punk, Garage Rock, Post-Punk>
@@ -715,32 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16F20463C162591ECBAA69E9BBB1BE3D0A86564D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402938   (698032) от 16.08.2020
-
-Segregate - 2 Album/2 Singles (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Птицы [00:04:18]Жанр: Progressive Metalcore, Groove MetalПродолжительность: 4 CD, 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A4BE59D0E445DC279CFC9DC8F5F8F3CE828B66
 ```
 
 https://mybot314.ru/tekegram_catalog/

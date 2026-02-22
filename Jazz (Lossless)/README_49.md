@@ -1,3 +1,38 @@
+###  Публикация: 759990   (905430) от 23.02.2014
+
+Baptiste Trotignon - Song Song Song (2012) [WavPack|Lossless]<Contemporary Jazz, Piano Jazz, Vocal, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. La Repetition
+ 02. Awake
+ 03. Mon Fantome
+ 04. Ne Me Quitte Pas/La Javanaise
+ 05. Palavas-Les-Flots
+ 06. Gone
+ 07. Choro Da Cigarra
+ 08. Ma Plus Belle Histoire D'Amour
+ 09. End Of The Gig
+ 10. Une Petite Fille(   Читать дальше...   )Жанр: Contemporary Jazz, Piano Jazz, Vocal, CoolПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5550D26EDCE2CE228F01048EECFA3EF2AED3E3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099361   (905418) от 01.02.2017
 
 Weslia Whitfield - Teach Me Tonight (1997) HighNote[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -742,35 +777,6 @@ Oscar Peterson & Dizzy Gillespie - 1974 (1987) Pablo [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC27B49C6DD65C83DA2FE575EAEF337463B0A4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369449   (902020) от 24.03.2020
-
-Jeff Golub - Soul Sessions (2003) [FLAC|Lossless|image + .cue] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boom Boom
-02. Playin' It Cool
-03. Cadillac Jack
-04. Underneath It All(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AB8FCF6351D22D04FCD2F40B0271D078F295F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

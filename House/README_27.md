@@ -1,3 +1,90 @@
+###  Публикация: 1203945   (785435) от 04.02.2018
+
+VA - Age Of Love 10 Years (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age Of Love - The Age Of Love (Jam & Spoon Watch Out For Stella Mix) 06:48
+02. Niels van Gogh - Pulverturm (DJ Tomcraft Remix) 09:12
+03. The Pusher - Sinthy (Pluto Mix) 05:56
+04. BBE - Seven Days And One Week 08:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 08:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC174DAA67E9E1EEC23620D7D5E5CC75A9DF3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203967   (785392) от 04.02.2018
+
+VA - Winter Sessions 2018 (Mixed by Milk & Sugar) (2018) [MP3|320 Kbps] <House, Afro House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mr Raoul K & Sona Diabate  -  Senekela (Raoul K & Laolu Version)  7:24
+02.  Keyano  -  Dan Dale (Original Mix)  7:09
+03.  Crazy White Boy feat. BehrEllips  -  The Forgotten People (Original Mix)  5:30
+04.  Dayne S  -  Sensor (Original Mix)  6:42(   Читать дальше...   )Жанр: House, Afro House, Deep HouseПродолжительность: 05:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4BE8CCCBD42A01D2E9FBC5F5F4FF72E941F902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277734   (785028) от 21.01.2019
+
+VA - Winter Music Top 1 (2019) [MP3|320 Kbps] <House, FutureHouse, Dubstep, Other>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Papaya - I'm Burning (Tech House Mix) 9:49
+02. DJ Papaya - I'm Burning (Tribal Mix) 9:18
+03. WILKKEN & JHON CHRISTIAN - Tche Ngolove (Original Mix) 5:36
+04. Gunball & CHIPS DOWN - Shake Down (Original Mix) 4:06(   Читать дальше...   )Жанр: House, FutureHouse, Dubstep, OtherПродолжительность: 02:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4B9282ED5D28C1185C93F49C98D21C52278CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204363   (784989) от 05.02.2018
 
 VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [MP3|320 Kbps] <Progressive House, House,Progressive Trance, Trance>
@@ -658,93 +745,6 @@ Don Diablo - Future (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CB2FE9EF3B2F88DA2FA1C48892B3561C08B51DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205456   (783508) от 10.02.2018
-
-VA - A New Year Of Vocal House Vol.2 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Space Roosters feat. Dee Dee  -  Let Go (Radio Mix)  2:59
-02.  Laurenzo Tozzi  -  Let Me Be Your Baby (Dave Gate Remix)  4:30
-03.  Soul-Ty  -  Let The Sunshine  3:04
-04.  No Panties Allowed  -  Let's Dance Tonight (Radio Version)  3:28(   Читать дальше...   )Жанр: HouseПродолжительность: 03:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8735BD6445F018E10262A1079B42F78C83ED16F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205470   (783434) от 10.02.2018
-
-VA - EDM (2018) [MP3|320 Kbps] <Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  John Dahlback  -  Everywhere (Elvis Benait Remix)  7:35
-02.  Joachim Garraud  -  X (Original Mix)  7:20
-03.  Tim Berg  -  Alcoholic (Niklas Gustavsson Ludvig Holm & Jonas Sellberg Remix)  7:36
-04.  Per QX & Don Tomaso  -  Introducing The Base (Original Mix)  6:48(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 02:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30E25423771628F59401A8E89806AC11958F6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205910   (783251) от 11.02.2018
-
-VA - Carnaval House (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  RezaKarami  -  My Bass Friend (Original Mix)  4:58
-02.  High One  -  Low Kiss (MKVG Remix)  4:30
-03.  MikeSelf  -  Candy War (Extended Mix)  8:22
-04.  Mack Jack  -  Aruba (Instrumental Mix)  4:56(   Читать дальше...   )Жанр: HouseПродолжительность: 03:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5872F5DB2BFD571E1E864A0352F93D4FDB0D4F4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

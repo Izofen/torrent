@@ -1,3 +1,32 @@
+###  Публикация: 1007543   (819755) от 16.04.2016
+
+Weather Report - Night Passage (1980) Reissue 1990 [APE|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Passage
+02. Dream Clock
+03. Port of Entry
+04. Forlorn(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9BAA13DA9273A3DB93BCF2F37BEAA7EA8C697F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503502   (819596) от 19.10.2021
 
 Dinah Shore - Happy In Love (1940 - 1942) 1995, Hallmark Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ Ken Peplowski Quartet - Memories Of You (2007) Venus Records [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E70B0B995A6B2D16538DB511B5DA194E02658D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504062   (816131) от 21.10.2021
-
-Tundra Art Ensemble - Sessions 2020 [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Modern Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Mode (6:05)
-02. From Beyond the Forest (11:04)
-03. Harmonia (7:46)
-04. Tema 2 (6:32)Жанр: Dark Jazz, Modern JazzПродолжительность: 00:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67243F3CD0AF0647A8FAEF46C793E63BEEFEF5E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1051984   (530993) от 12.09.2016
+
+Art Nation - Revolution (2015) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Need you to Understand (3:51)
+ 02.3000 Beats (3:58)
+ 03.I Want Out (3:12)
+ 04.Number One (4:40)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F026C7EC9D33026A7A03D863C628C287AFB02A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051924   (530892) от 12.09.2016
 
 Palace - Master Of The Universe (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -723,35 +752,6 @@ Maryann Cotton - Free Falling Angels (2012) [FLAC|Lossless]<Hard Rock/Glam Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560670   (518794) от 01.07.2022
-
-The Warning - Error (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 404 [00:56]
-02. DISCIPLE [03:40]
-03. CHOKE [03:51]
-04. ANIMOSITY [04:06](   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092261ED317A3E16D5B3B5807A01552C8A5B9B03
 ```
 
 https://mybot314.ru/tekegram_catalog/

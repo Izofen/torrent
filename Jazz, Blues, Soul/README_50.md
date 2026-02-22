@@ -1,3 +1,102 @@
+###  Публикация: 612999   (985913) от 02.02.2013
+
+VA - Chesky Records - Women of Song (1997) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ana Caram - Samba de Verao [03:27]
+02. Christy Baron - Get to Get You Into My life [03:10]
+03. Sara K. - If I Could Sing Your Blues [03:50]
+04. Badi Assad - Num Pagode Em Planaltina [04:44]
+05. Christy Baron - Round Midnight [05:06]
+06. Sara K. - Brick House [06:02]
+07. Ana Caram - Sonhando [04:35]
+08. Rebecca Pidgeon - Spanish Harlem [03:39]
+09. Sara K. - What You Don't Know [04:32]
+10. Badi Assad - Batucada [03:11](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971387   (985865) от 03.01.2016
+
+Jonny Lang - Wander This World (1998) [FLAC|Lossless|image + .cue]<Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский исполнитель, композитор и автор текстов Джонни Ланг благодаря своей необычной манере исполнения завоевал любовь как критиков, так и многочисленных фанатов. Критики говорят, что у Ланга голос, как у сорокалетнего блюзмена. Благодаря этому он и получил престижную награду «Grammy».01. Still Rainin' 04:49
+02. Second Guessing 05:10
+03. I Am 05:04
+04. Breakin' Me 04:32(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B309B92CAB4770E6EA5A5717981A7C92FDC717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 434960   (985692) от 11.01.2012
+
+Baptiste Trotignon - Share (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. First Song (4:38)
+02. Samsara (5:07)
+03. Mon ange (6:27)
+04. Dexter (6:16)
+05. Peace (4:58)
+06. Flow (7:05)
+07. Blue (4:40)
+08. Grey (5:50)
+09. Waiting  (4:48)
+10. Red Light District (4:27)(   Читать дальше...   )2009Жанр: JazzПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 163425   (985430) от 08.01.2010
 
 Tom Waits - Glitter & Doom Live (2009) [FLAC|Lossless]<Blues>
@@ -700,110 +799,6 @@ Quercus - Quercus (2013) [FLAC|Lossless]<Jazz, ECM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11E1C7D842C9E3BBAC775159B431EF56E5A94B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740781   (983803) от 03.01.2014
-
-Denis Solee - Christmas by Candlelight (2003) [FLAC|Lossless]<Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Home for Christmas (3:29)
-02. O Christmas Tree (2:57)
-03. The Christmas Song (4:24)
-04. Winter Wonderland (3:59)
-05. The Christmas Waltz (3:30)
-06. You're a Mean One Mr. Grinch (4:19)
-07. Christmas Time is Here (3:36)
-08. White Christmas (5:23)
-09. Santa Baby (4:20)
-10. Have Yourself a Merry Little Christmas (5:14)(   Читать дальше...   )Жанр: Jazz, ChristmasПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57569E540BBAECEDD5E7B741088065E20FC9154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740551   (983748) от 03.01.2014
-
-Enrico Rava - Rava on the Dance Floor (2012) [FLAC|Lossless]<Jazz, ECM>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Speechless (6:37)
-02. They Don't Care About Us (7:55)
-03. Thriller (6:17)
-04. Privacy (5:44)
-05. Smile (3:30)
-06. I Just Can't Stop Loving You / Smooth Criminal (9:13)
-07. Little Susie (3:53)
-08. Blood on the Dance Floor (5:06)
-09. History (8:08)Жанр: Jazz, ECMПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65ED5B6B837C48989E9B3604F036007BC90D39D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741001   (983747) от 03.01.2014
-
-Andy LaVerne & John Abercrombie - Natural Living (2005) [FLAC|Lossless]<Post Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet and Lovely [05:02]
-02. Actual Sighs [06:03]
-03. John's Waltz [04:49]
-04. All the Things You Are [05:20]
-05. Among Tall Trees [05:25]
-06. Natural Living [08:21]
-07. Archetypal Schemata [04:14]
-08. Magnetic Flux [04:05]
-09. Labour Day [05:20]
-10. When you wish upon a star [07:33](   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AED447D16728EADFA58704206C29E813AB45BCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1674159   (162547) от 04.11.2023
+
+Asmodean - By a Thread (2023) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Undoing
+02. Below The Line
+03. Defying Truth
+04. Scorned(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA149C4BFD5EA053E1D967D4FE3307D2DB63C20B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432987   (162426) от 19.12.2020
 
 Between the Buried and Me - Colors (2007) Remix, Remaster, 2020 [MP3|320 Kbps] <Progressive Metal>
@@ -714,34 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D93B119725E84C38BC79F7F479ADA2B1957B725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853742   (157098) от 27.12.2014
-
-Astral Odyssey - Into The Eternal Realm Of Night (2014) Demo [MP3|320 кб/с]<Atmospheric Black Metal, Space Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Celestial Lights
-02. Into The Eternal Realm Of Night
-03. The Forgotten RealmЖанр: Atmospheric Black Metal, Space InstrumentalПродолжительность: 00:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA65515E5DA63DF5828BBE40D48CA0B0B9397D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

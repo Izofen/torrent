@@ -1,3 +1,176 @@
+###  Публикация: 1837847   (257818) от 20.11.2025
+
+Tommy Kinsman And His Orchestra - Holiday For Dancers (1960) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop, Light Music>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quicksteps
+A La Panse; Tua; Banjo Boy; J'attendrai; Swedish Rhapsody; Ciao, Ciao Bambina; Lazarella; Que reste-t-il de nos amours; Ooh la-la
+Waltzes
+A2 Pigalle; Tulips From Amsterdam; One Two Drink Up; At Last, At Last(   Читать дальше...   )Жанр: Pop, Light MusicПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112EFA19BD9CCDE38AEFD1C81AC6090B61C77F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838016   (257817) от 20.11.2025
+
+Al Caiola - Spanish Guitars (1962) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257817.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Besame Mucho
+A2 Mambo Jambo
+A3 My Shawl
+A4 Piel Canela(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F1A6A6CBBB93638BCE07F09C627F588EA69E7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838027   (257750) от 20.11.2025
+
+Memoriam - Studio Albums (6 releases) (2017-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Memoriam - британская дэт-метал группа из Бирмингема, Англия.2017 - For the Fallen
+2018 - The Silent Vigil
+2019 - Requiem for Mankind
+2021 - To the EndЖанр: Death MetalПродолжительность: 04:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B02044490AFA86614B16BDBD7FC5C60FA03A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837526   (257520) от 17.11.2025
+
+Haddah - Studio Albums (3 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haddah - метал-группа из Италии, образованная в 2001 году.2014 - Through the Gates of Evangelia
+2015 - Path to Nefrath
+2025 - AetereaЖанр: Melodic Death MetalПродолжительность: 01:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64B0287768743605BF6D22EE26E25D8FDAA2CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624356   (255518) от 05.04.2023
+
+Various - Let's Break (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255518.jpg" />
+</div>
+
+
+###  Подробнее
+
+What Fun –	The Right Side Won
+Vanessa –	Obsession
+Pure Energy –	Love Game
+Lafleur –	Dance Till We Drop(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C9E0021C95E737A6D918DC2A50EDEF9B9AAB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624832   (255435) от 07.04.2023
+
+Two Of Us - Inside Out (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255435.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 My Inner Voices 4:24
+A2 I'll Be Around 4:29
+A3 Building An Empire 4:13
+A4 We Got A Break It Out 3:49(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB79DA06D4ED4937142EDE4FEE9B68A0DF7E927B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624897   (255414) от 08.04.2023
 
 Styx - Kilroy Was Here (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
@@ -572,180 +745,6 @@ A4 You Pass Me By(   Читать дальше...   )Жанр: Pop, FolkПрод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA481CE8F7D3831F5151D0205B5304DDB9F2F8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836661   (254150) от 12.11.2025
-
-Orquesta Balkanton - Orquesta Balkanton (1967) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Swing, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254150.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Dixie Charleston
-A2 Te Digo No
-A3 El Camino Verde Del Lugar Donde Naci
-A4 Mis Amigos(   Читать дальше...   )Жанр: Pop, Swing, Rock & RollПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73606FF671830C07BC5A6B57306F7C8B9ABF4D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836658   (254149) от 12.11.2025
-
-Roberto Delgado & His Orchestra - South America In Super Stereo (1970) Series: Polydor Special [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Latin, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254149.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 El Condor Pasa (If I Could)
-A2 Tu Amor Mi Amor
-A3 Tabasco
-A4 Estrellita(   Читать дальше...   )Жанр: Latin, Easy ListeningПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E2F01FEA7592510FCB98C7593434B11E4FBFFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836548   (253082) от 11.11.2025
-
-Herb Alpert - Rise (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul-Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253082.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 1980
-A2 Rise
-A3 Behind The Rain
-A4 Rotation(   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD66781E3BEE23B8B9DA6483DCCB81CA76EF10E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608534   (253061) от 11.11.2025
-
-The Pretty Reckless - Studio Albums (6 releases) (2011-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pretty Reckless — американская рок-группа из Нью-Йорка, образованная в 2009 году.
-В состав группы входят Тейлор Момсен (вокал, ритм-гитара), Бен Филлипс (соло-гитара, бэк-вокал), Марк Дэймон (бас) и Джейми Перкинс. (ударные).2011 - Light Me Up
-2014 - Going To Hell
-2016 - Who You Selling For
-2021 - Death by Rock and RollЖанр: Hard Rock, Post-GrungeПродолжительность: 04:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD27DE2B99D15C9F60FE92D4D39361A38FE8183C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836401   (252509) от 10.11.2025
-
-Godark - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Godark - метал-группа из Португалии, основана в 2010 году.2015 - Reborn from Chaos (EP)
-2020 - Forward We March
-2025 - OmniscienceЖанр: Melodic Death MetalПродолжительность: 02:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BC01D822F5224C78231D80539A1E6A62E6D4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494949   (251202) от 11.05.2012
-
-Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Hung, Drawn And Quartered[04:35]
- 02. - Stalingrad[05:59]
- 03. - Hellfire[06:08]
- 04. - Flash To Bang Time[04:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

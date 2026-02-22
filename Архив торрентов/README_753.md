@@ -1,3 +1,32 @@
+###  Публикация: 980954   (954531) от 30.01.2016
+
+Kiss - Destroyer (1976) 2014, Casablanca Records [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Detroit Rock City
+02 - King Of The Night Time World
+03 - God Of Thunder
+04 - Great Expectations(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FF8FB77B9D9399B4B670A642DFE30EE6B5D81A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 857309   (954522) от 07.01.2015
 
 Одержимость / Whiplash (2013) WEB-DLRip [576p] iPad
@@ -664,32 +693,6 @@ Antivirus Zap - небольшая утилита, которая проскан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B80645522DA5244990FB1E39981E5F4A1A9F9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361596   (954308) от 20.02.2020
-
-4K YouTube to MP3 3.11.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954308.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267FFCC8626208236D2F7A1CCF00D1D92D175089
 ```
 
 https://mybot314.ru/tekegram_catalog/

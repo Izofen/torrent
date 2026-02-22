@@ -1,3 +1,32 @@
+###  Публикация: 1683764   (128218) от 12.12.2023
+
+Phil Woods - The Rev & I (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rev and I [6:21]
+02. We Could Make Such Beautiful Music Together [7:55]
+03. Hand in Glove [8:06]
+04. All Too Soon [8:57](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDD841A7CC1DD391710B0168CE57AFB16E33C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683744   (128217) от 12.12.2023
 
 VA - Luxury Relaxing Lounge Comfort Smooth Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -716,35 +745,6 @@ Ted Rosenthal - The 3 B's: Plays the Music of Bud Powell, Bill Evans, Beethoven 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D26A06A9CE807CA59A793B1817650C46B0446C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684850   (127402) от 17.12.2023
-
-Livin' Blues, Nicko Christiansen - Back on track (2023) [MP3|320 Kbps] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Crow [04:29]
-02. Lockdown [05:19]
-03. Back On The Track [03:52]
-04. Long Lost Son [03:41](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838D32F2777782D19FF616B0EDA88C7AAB88F668
 ```
 
 https://mybot314.ru/tekegram_catalog/

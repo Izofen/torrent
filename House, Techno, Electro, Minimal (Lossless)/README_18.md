@@ -1,3 +1,61 @@
+###  Публикация: 1200147   (795710) от 21.01.2018
+
+VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Brooklyn Bounce - Club Bizarre (Djs From Mars Rmx) (4:57)
+02.Groove Coverage - Innocent (Club Mix) (3:33)
+03.Basslover United - Ghetto Supastar (Extended Mix) (4:16)
+04.Franky 8 - Rhytm & Drums 2010 (3:09)(   Читать дальше...   )Жанр: Euro House, TranceПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6DDE774AD81A5B0C890349B3D60119D2CEE120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200439   (795695) от 21.01.2018
+
+VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soulful House, Disco House, Funky House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kungs & Cookin' On 3 Burners - This Girl (Fabich Remix) 4:20
+02. TIEKS - Sunshine (feat. Dan Harkna) (Zac Samuel Remix) 4:34
+03. Apexape - Joy & Pain 3:01
+04. Ben Delay - The Boy Is Mine (feat. Alexandra Prince) (Mark Lower Vocal Mix) 5:16(   Читать дальше...   )Жанр: Deep House, Vocal House, Soulful House, Disco House, Funky HouseПродолжительность: 05:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1B29AA2BB8FAE0A71F4420F163938ECFD86C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011798   (795636) от 29.04.2016
 
 Forteba - Space Between Us (2007) [APE|Lossless|image + .cue] <Deep House, Tech House>
@@ -681,64 +739,6 @@ Sraunus - Discography 20 Releases (2010-2020) [FLAC|Lossless|tracks+.cue, tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1208E3DC9A01372BAF1B15B4206ADD20510056C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201485   (792262) от 25.01.2018
-
-VA - La Voile Rouge : St Tropez (2009) [FLAC|Lossless|tracks] <House, Electro House, Chill Out>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guru Josh Project - Infinity (Steen Thottrup Chill Mix)
-02. Love, Marchi's Flow, Miss Tia - Feel The Love (Paul Sander Klaas Mix)
-03. Reunited - Sun Is Shining (Gauzz Chill Mix)
-04. Bimbo Jones - Tell Me My Name(   Читать дальше...   )Жанр: House, Electro House, Chill OutПродолжительность: 02:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5518956784308C7BCCF64ED39B957710CCD6E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274716   (792253) от 08.01.2019
-
-Dark Strands - Unknown Truths (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Disco, Experimental, Space Rock, Krautrock>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Drive (06:13)
-02. Cold Turkey (05:37)
-03. Will Last Forever (06:40)
-04. Unknown Truths (05:09)(   Читать дальше...   )Жанр: Deep House, Disco, Experimental, Space Rock, KrautrockПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB05825B0909C87E09240FEDE9FCE1A0347A925
 ```
 
 https://mybot314.ru/tekegram_catalog/

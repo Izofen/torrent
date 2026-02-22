@@ -1,3 +1,32 @@
+###  Публикация: 1198265   (802716) от 14.01.2018
+
+Sweet - The Lost Singles (2017) [FLAC|Lossless|image + .cue] <Rock, Glam-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stairway To The Stars (3:04)
+02. Why Don't You Do It To Me (3:12)
+03. Funk It Up (Disco Mix) (5:28)
+04. A Distinct Lack Of Ancient (4:06)(   Читать дальше...   )Жанр: Rock, Glam-RockПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3A090B22833D2C6ACC6AC26AB7A730DEE38ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506002   (801741) от 29.10.2021
 
 Hardline - Heart, Mind And Soul (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -715,35 +744,6 @@ Danger Danger - The Return of the Great Gildersleeves (2000) [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EF95660EF8D5EEB142A37D67EA2932DC2BF0BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509102   (795555) от 11.11.2021
-
-Dalton - The Race Is On (1987) Reissue, 1994, EMI [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caroline
-02. No Reason
-03. Losing My Mind
-04. Loving You(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CABF8E3D2191633E4FF1D908EEB3A61343B8C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

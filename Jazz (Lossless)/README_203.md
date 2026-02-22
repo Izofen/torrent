@@ -1,3 +1,32 @@
+###  Публикация: 1062667   (440116) от 14.10.2016
+
+Duke Ellington - Unknown Session (1960) 1991, Columbia[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Everything But You [03:33]
+ 02.Black Beauty [03:17]
+ 03.All Too Soon [03:13]
+ 04.Something To Live For [02:46](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4C43045048EF6776C2D16D9717CFD76C27D90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062669   (440115) от 14.10.2016
 
 Peggy Lee - Pretty Eyes & Guitars Ala Lee (1960, 1966) 1999, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -717,35 +746,6 @@ Janet Klein And Her Parlor Boys - Whoopee! Hey! Hey! (2010) Coeur De Jeanette Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F24DE09B86C2FEF5349B96DFB459AA6F89BDEC4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165032   (437398) от 11.09.2017
-
-Joel Weiskopf - Change in My Life (2002) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There's Been a Change in My Life [05:46]
-02. Enigma [07:46]
-03. Righteousness, Peace and Joy [06:47]
-04. First Love [06:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCEBDD7CEC337DC3A70899C49649C18F89445CAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

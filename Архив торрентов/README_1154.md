@@ -1,3 +1,32 @@
+###  Публикация: 1101286   (896207) от 06.02.2017
+
+Roland Romanelli (ex. Space) - Amour: Romantishe Melodien aus Paris (1986) [FLAC|Lossless|image + .cue] <Easy listening, Synth-pop, Accordion>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Einen Herzschlang Lang
+02. Julias Traum
+03. Sonnenaufgang
+04. Sirenengesang(   Читать дальше...   )Жанр: Easy listening, Synth-pop, AccordionПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9901E93B3CD248B088DBDDC94B62CAE85BE14A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101404   (896163) от 06.02.2017
 
 TagScanner 6.0.19 + Portable [Multi/Ru]
@@ -678,32 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E7605AB50890D4870B351D0D793EB7E4C2D71DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993626   (895871) от 05.03.2016
-
-Не спать! Выпуск №76 (2016.03.04) WEB-DLRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895871.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 апреля в 00.30 на телеканале ТНТ состоится премьера нового шоу «Не спать!» Это будут настоящие, жесткие юмористические бои без правил с возрастным рейтингом «18+». В роли ведущего выступит резидент Comedy Club Сергей Гореликов. А судить и определять победителей будут три рефери. Среди судей можно будет увидеть Павла Волю, Вадима Галыгина, Тимура Батрутдинова, (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Вадим Галыгин, Тимур БатрутдиновСубтитры: ОтсутствуютПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3523E6E3D6FF86B4F817320171530DB88DA22EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

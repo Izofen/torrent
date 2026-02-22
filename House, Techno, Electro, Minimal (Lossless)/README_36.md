@@ -1,3 +1,61 @@
+###  Публикация: 1042726   (578400) от 13.08.2016
+
+VA - Toolroom Ibiza 2016 Vol.2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kolsch & Michael Mayer - Dogma 1 [09:56]
+02. Paul Woolford - Mother & Child [07:25]
+03. Matador - The Enemy (feat Felix Da Housecat - Hot Since 82 remix)[06:05]
+04. Joris Voorn - Looks Fake Obviously [06:38](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 11:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BE33988F00A24BE68CDE851185B4D0A3CF34FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042553   (578388) от 13.08.2016
+
+VA - Schneeweiss VI (Presented By Oliver Koletzki) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cubicolor - Falling (feat Tim Digby-Bell)
+02. Frank Wiedemann - Moorthon II
+03. Stimming - Trains Of Hope
+04. Julian Wassermann & Oliver Deuerling - Schwabing(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 03:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF33CDEF31A9E7AEB1BE75AB6ECD769B9C7C8600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233660   (578179) от 01.07.2018
 
 MRUKS - Deja Vu (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
@@ -684,64 +742,6 @@ Slacker - Leviathan (2019) Lobster Theremin [FLAC|Lossless|WEB-DL|tracks] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD4C0D14DCE8299FD5B0E2E73C0B25D1CD796234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304883   (559952) от 28.05.2019
-
-HVL - Rhythmic Sonatas (2019) Bassiani [FLAC|Lossless|Vinyl|tracks] <Acid, Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes In The Sky (06:07)
- 02. F12  (Korg Patch Mix) (06:30)
- 03. Alien Discotheque (05:44)
- 04. Badskit (03:00)(   Читать дальше...   )Жанр: Acid, Techno, ElectroПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A312CBFA21BCB531BF79F6228462D80FD2FA43FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556715   (558390) от 10.06.2022
-
-VA - When We Dip Presents: Ete II (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emotional Tourist – Alchimie De L’Univers (feat. Ondin) (Mixed) (08:00)
-02. Powel – Peacocks & Sheep (Mixed) (06:24)
-03. LEGATO – I’m Waiting for You (Mixed) (08:00)
-04. Koelle & Into The Ether – Fall in Time (DSF Remix)Жанр: Deep House, Organic House, Melodic House & TechnoПродолжительность: 01:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14360FDB4ECD125C779AC177C9F72E2641BF7FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

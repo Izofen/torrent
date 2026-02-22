@@ -1,32 +1,3 @@
-###  Публикация: 1758549   (103339) от 03.11.2024
-
-Frank Sinatra - Where Are You? (2002) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Are You [3:30]
-02. The Night We Called It A Day [3:29]
-03. I Cover The Waterfront [2:59]
-04. Maybe You’ll Be There [3:07](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD688184A250D65D5C93B4D971E4893D13B0255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759043   (103337) от 06.11.2024
 
 Bunkiman - Bunkiman 2023 Best (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
@@ -745,6 +716,35 @@ Duke Jordan - Three Classic Albums Plus (1955 -1962) 2CD, 2014, Avid Jazz [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:914941CDDDCF5080CD6BAD421DE2EDC7490D93FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763076   (102864) от 29.11.2024
+
+Bobby Hutcherson - Skyline (1999) Verve Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who's Got You? [7:30]
+02. I Only Have Eyes for You [6:45]
+03. Delilah [6:30]
+04. Chan's Song [5:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B79574032090666674CC226313792E4232B11F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,38 +1,3 @@
-###  Публикация: 496146   (252620) от 13.05.2012
-
-Various Artists - Burlesque Swing [Selected by Bart & Baker] (2011) [FLAC|Lossless]<Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Rip Van Winkle - Lily Wilde
-02. Peroxide Swing - Michael Buble
-03. Why Don't You Do Right ? - Della Reese
-04. Fee Fee Fi Fo Fum - LaVern Baker
-05. We Have No Bananas - Frank Reefer
-06. Mariguana Cha Cha Cha - Stefi Akos
-07. Strip Polka - The Andrew Sisters
-08. Frenesi - The Four Freshmen
-09. 39 De Fievre - Caterina Valente
-10. Juke Box - Sugar Ray(   Читать дальше...   )2011Жанр: SwingПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836238   (252453) от 09.11.2025
 
 Sarah Menescal - Moonlight Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Smooth Jazz, Lounge>
@@ -858,6 +823,41 @@ Milt Buckner - Masterpieces (1967-1969) (1995) [FLAC|Lossless]<Swing, Mainstream
 08. Taking A Chance On Love (6:05)
 09. Pick Yourself Up (4:23)
 10. Robbins' Nest (4:36)(   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491337   (246354) от 03.05.2012
+
+Серия "Giants of Jazz - Immortal Concerts" / Count Basie & His Orchestra - The Music Of Neal Hefti & Benny Carter (1957-1961 / 1990) [APE|Lossless]<Jazz, Swing, Big band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Kid From Red Bank (N. Hefti) (2:34)
+02. After Supper (N. Hefti) (3:23)
+03. Flight Of The Foo Birds (N. Hefti) (3:22)
+04. Teddy The Toad (N. Hefti) (3:17)
+05. Whirly Bird (N. Hefti) (3:49)
+06. Midnite Blue (N. Hefti) (4:27)
+07. Fantail (N. Hefti) (2:55)
+08. Lil' Darlin' (N. Hefti)(4:48)
+09. Vine Street Rumble (B. Carter)(3:42)
+10. Katy-Do (B. Carter) (4:29)(   Читать дальше...   )Жанр: Jazz, Swing, Big bandПродолжительность: 01:13:01
 
 ## Скачать торент
 ```bash

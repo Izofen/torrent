@@ -1,3 +1,90 @@
+###  Публикация: 1340667   (263613) от 24.11.2019
+
+Francesca Michielin - di20are (2016) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nessun grado di separazione (3:40)
+ 02. L'amore esiste (3:33)
+ 03. Lontano (3:06)
+ 04. Amazing (3:27)(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C03658C1A045A3BAD092B763F2DBAF740C2AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340710   (263591) от 24.11.2019
+
+Thegiornalisti - LOVE (2018) Carosello Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (1:25)
+ 02. Zero stare sereno (3:15)
+ 03. New York (3:40)
+ 04. Una casa al mare (2:55)(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735736A7631C66366F6917842D2A1733A1C62241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340541   (263577) от 24.11.2019
+
+VA - 100 Greatest Acoustic & Chill Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Chill>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263577.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dua Lipa - Be the One (Acoustic)
+002. Maisie Peters - Feels Like This
+003. Birdy - Wings (Acoustic)
+004. Coldplay - The Scientist(   Читать дальше...   )Жанр: Pop, R&B, ChillПродолжительность: 06:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B250BF200D7F5A6A71077D2DB33C090270A80AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340492   (263573) от 24.11.2019
 
 VA - The Best Disco Album In The World... Ever! (2019) 3CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, Dance, Disco>
@@ -658,93 +745,6 @@ Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB8CA82D49E75404ADD82A2D0A0554EA3279648E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193455   (262134) от 21.12.2017
-
-Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Verità (05:02)
-02. Luomo Nero (04:28)
-03. Canzone Contro La Paura (03:44)
-04. Lamezia Milano (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4ACB198147C457E1AFB24F337D5B511C425599C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193594   (262120) от 21.12.2017
-
-VA - Italo Disco: The Lost Legends Vol.6 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Demode Boulevard  -  The Height Of The Fighting  5:15
-02.  Black Tie  -  Double Time  4:58
-03.  Three Of You  -  Grace  6:03
-04.  Bobby J.  -  Number One  5:05(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A284DE6511A9C0C3E22A1284DCA3BC91F02B274B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193646   (261957) от 22.12.2017
-
-Mistral - Best Of Mistral 1977-80 (2012) Compilation [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект от Kid van Ettinger, Rick Van Der Linden, Robbie van Leeuwen с привлечением различных популярных вокалисток. Так в создании "Neon City" приняла участие Mariska Veres из  "Shocking Blue". В компиляцию вошли все синглы проекта.01. Jamie (3:51)
-02. Starship 109 (3:02)
-03. Neon City (2:48)
-04. You're My Hero (3:25)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED2A610FE101A2811DD3D129AF1C73E4D538DB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

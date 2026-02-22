@@ -1,3 +1,32 @@
+###  Публикация: 1386239   (795271) от 28.05.2020
+
+VA - Beatport Hard Dance: Sound Pack #96 (2020) [MP3|320 Kbps] <Hard Dance, Hardcore>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795271.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rob Iyf - Yade
+002. Francesco Zeta - Different Side
+003. Radical Redemption - Born Killers
+004. Vandal!Sm - Drums Of War(   Читать дальше...   )Жанр: Hard Dance, HardcoreПродолжительность: 08:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6C994F706B613F0552AE859E8B9EF48F7667BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386180   (795230) от 28.05.2020
 
 VA - Europop Music Sound: Nonstop FM Radio (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - German Top 50 Official Dance Charts 11.01.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6F40A0F3DBB650E3ED98B2728EB306AB8EB66EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275807   (789334) от 13.01.2019
-
-VA - Ukrainian Hits Vol.5 (Romantic) (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наталія Могилевська - Вільний Птах (Серед Гір) (3:53)
-02. ТіК & Ірина Білик - Не Цілуй (3:44)
-03. The Hardkiss - Прірва (2:55)
-04. Тіна Кароль - Шукай Мене (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B533FF8B292271299E430CB75DAF9C482DF57F63
 ```
 
 https://mybot314.ru/tekegram_catalog/

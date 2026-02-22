@@ -1,3 +1,32 @@
+###  Публикация: 1127391   (731854) от 21.04.2017
+
+DJ BoBo - 25 Years Greatest Hits (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom
+02. Everybody
+03. Somebody Dance with Me
+04. Pray(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83BBA7320194BF0E92307FC3DB3CEA6749D23C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127336   (731721) от 21.04.2017
 
 Bee Gees - Timeless: The All-Time Greatest Hits (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
@@ -716,35 +745,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF4270E0064789496C4403CFAABABDC5899CE508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399947   (721286) от 04.08.2020
-
-VA - Summer Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dua Lipa - Don't Start Now (3:03)
-02. Lizzo - Juice (3:15)
-03. Bruno Mars - 24K Magic (3:45)
-04. Iyaz - Replay (3:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A904D9D836F7E81E1FDE0FADDAB7E07C9A708B99
 ```
 
 https://mybot314.ru/tekegram_catalog/

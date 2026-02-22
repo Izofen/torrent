@@ -1,3 +1,61 @@
+###  Публикация: 1334677   (293373) от 30.10.2019
+
+Silent Way - Standby - (B&P Production) (1996) [FLAC|Lossless|tracks + .cue] <Fusion, Cool Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.S. (08:23)
+02. Standby (11:23)
+03. September (08:49)
+04. Pearls (07:46)(   Читать дальше...   )Жанр: Fusion, Cool JazzПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BDFC676965EF96DB65C0579EC6AC1FAB321F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262662   (292985) от 16.11.2018
+
+ZAZ - Effet Miroir (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Chanson, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demain c'est toi
+02. Qué vendrá
+03. On s'en remet jamais
+04. J'aime j'aime(   Читать дальше...   )Жанр: Nu Jazz, Chanson, SoulПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DE2184EBF637C00DAE561F48B9B38EEAF06114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079964   (292215) от 05.12.2016
 
 Buck Clayton & Buddy Tate - Buck & Buddy (1960) 1992, Original Jazz Classics[FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
@@ -687,64 +745,6 @@ Optimystica Orchestra - Всё, что делает река (2016) Live [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCBF998C4D2A8127B080C475500E4BF5344A635B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263151   (290116) от 18.11.2018
-
-Eubie Blake - Memories Of You (1973) 2003, Shout! Factory [FLAC|Lossless|tracks + .cue] <Ragtime, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charleston Rag [3:07]
-02. Chevy Chase [2:44]
-03. Mirandy [2:43]
-04. Fizz Water [1:48](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7055C5D39E8514CA548D0549EFDFAA571EEF0CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263141   (290115) от 18.11.2018
-
-Chico Freeman - The Emissary (1996) Clarity Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Afro-Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Spirit Catcher [2:49]
-02. Mandela [3:57]
-03. The Emissary [6:30]
-04. Murcia [5:20](   Читать дальше...   )Жанр: Post-Bop, Afro-Cuban JazzПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5476E939FD88A4DC76B96BF1EE14AB7A74B0CEA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

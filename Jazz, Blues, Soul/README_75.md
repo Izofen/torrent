@@ -1,3 +1,108 @@
+###  Публикация: 176830   (933439) от 19.02.2010
+
+VA - 100 Hits Only You Love Serenades (100 Хитов Любовных Серенад) (2009) [MP3|160 kbps]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.the platters - only you (and you alone)
+02.aaron neville - tell it like it is
+03.elvis presley - are you lonesome tonight
+04.the beatles - michelle
+05.billy j.kramer with the dakotas - bad to me
+06.johnny mathis - when i fall in love
+07.brenda lee - emotion
+08.czeslaw niemen - wspomnienie
+09.frank & nancy sinatra - somethin' stupid
+10.the scorpions - i've lost you(   Читать дальше...   )Жанр: BluesПродолжительность: 06:26:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861805   (933366) от 21.01.2015
+
+John Lewis - Evolution II (2014) [FLAC|Lossless]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Festivals [04:15]
+02. One! Of Parker's Moods [03:55]
+03. December, Remember [06:59]
+04. That! Afternoon In Paris [06:08]
+05. Cain And Abel [06:53]
+06. Come Rain Or Come Shine [05:03]
+07. Trieste [04:17]
+08. Django [05:25]
+09. Sammy [04:10]
+10. What Is This Thing Called Love? [05:53]Жанр: Jazz, Mainstream JazzПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D048E4FF24C2D756767FF760857C298B489AC25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861777   (933364) от 21.01.2015
+
+Gordon Staples and The String Thing - Strung Out (2009) [FLAC|Lossless]<Jazz,  Funk, Soul, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Strung Out [04:57]
+02. Toonie [04:48]
+03. Sounds Of The Zodiac [05:59]
+04. The Look Of Love [03:42]
+05. Get Down [03:48]
+06. If Your Love Were Mine [03:18]
+07. It's Got To Be Alright [03:30]
+08. From A Heart That's True To Only You [03:29]
+09. Someday We'll Be Together [03:11]
+10. The April Fools [03:25]Жанр: Jazz,  Funk, Soul, Jazz FusionПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6EA7C259BBB8BC013EEC4260E8B9EB447C6D026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861772   (933358) от 21.01.2015
 
 Ella Fitzgerald - Get Happy! (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
@@ -697,92 +802,6 @@ John Coltrane - Afro Blue Impressions (1977) [FLAC|Lossless]<Jazz, Hard Bop, Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61B845BB0CFC302DD25849426B77147392A5B8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285705   (932281) от 23.01.2011
-
-Cedar Walton Trio - Midnight Waltz (2005) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: JazzПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754466   (932266) от 08.02.2014
-
-Johnny Griffin - Return Of The Griffin (1979) /1996 Remastered, Galaxy/ [FLAC|Lossless]<Jazz, Post Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Autumn Leaves   (5:38)
-02.  When We Were One   (7:44)
-03.  A Monk's Dream   (6:20)
-04.  The Way It Is   (5:08)
-05.  Fifty Six   (9:28)
-06.  I Should Care   (5:27)Жанр: Jazz, Post BopПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E579C6AEFEBE3B3EEE559642CA4D32F019C61555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093814   (932256) от 16.01.2017
-
-Wily Bo Walker - The Wily Bo Walker Story (2016) 2CD WEB [FLAC|Lossless|tracks + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Storm Warning (feat. E D Brayshaw) 06:46
-02 Walking with the Devil (Voodoo Mix) - (feat. Graham Hine) 04:00
-03 I Want To Know (NY Funk Mix) 04:15
-04 Walk in Chinese Footsteps (Free Tibet Mix) 04:19(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5B0F3E455137A54CBA2A209FEB9CAE1C6DAFD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

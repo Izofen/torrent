@@ -1,3 +1,90 @@
+###  Публикация: 1531952   (716633) от 18.02.2022
+
+Bill Charlap Trio - Street Of Dreams (2021) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Duke [6:49]
+02. Day Dream [6:16]
+03. You're All the World to Me [4:49]
+04. I'll Know [5:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF674E7C8CA35FC4D5F1FD82AC2E4364DF8AE23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130397   (716543) от 01.05.2017
+
+Big George And The Business - The Alleged Album (1989) Reissue, 2005, SPM Records [WavPack|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Long Black Train  (02:56) 
+02.  Thunderbolt  (03:25) 
+03.  Wrong Side Of Town  (07:27) 
+04.  Late Last Night  (02:46) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457E8F10C958DA720149306B668B16EA3AF4814D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130229   (716328) от 01.05.2017
+
+Nicki Parrott - Unforgettable ~The Nat King Cole Songbook (2017) [FLAC|Lossless|image + .cue] <Easy Listening, Smooth Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nicki Parrott (Ники Парротт), ныне всемирно известная контрабасистка, родилась в городе Ньюкасл, Австралия. Начала свое музыкальное обучение на фортепиано в возрасте четырех лет. Она также изучала игру на флейте и продолжала играть на ней всей ее школьные годы. В возрасте 15-и лет, Ники переключила свое внимание на бас, создала группу со своей старшей сестрой Лизой (   Читать дальше...   )01. Walkin' My Baby Back Home (2:57)
+02. Let's Fall In Love (4:50)
+03. The Very Thought Of You (5:17)
+04. Hit That Jive Jack (3:20)(   Читать дальше...   )Жанр: Easy Listening, Smooth Jazz, Vocal JazzПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E62162748B792BB6400AEF13779B67C7091B922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024433   (716215) от 09.06.2016
 
 Masabumi Kikuchi - Black Orpheus (2012) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
@@ -661,93 +748,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8EAF308B1C8EC92C75B7F794034216DEE224049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286178   (713280) от 02.03.2019
-
-Putney Dandridge - 1936 (1996) Classics [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's A Sin To Tell A Lie [2:56]
-02. All My Life [3:13]
-03. Ol' Man River [2:50]
-04. Why Was I Born? [2:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC642D59D2D0AFEEFC6C871E69B61C8513C22444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286198   (713279) от 02.03.2019
-
-Andrew Hill - Verona Rag (1987) Soul Note [WavPack|Lossless|image + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retrospect [14:29]
-02. Darn That Dream [6:17]
-03. Verona Rag [16:38]
-04. Tinkering [4:25](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B95B294C2B086268356CA602923771DC2597EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286439   (713211) от 02.03.2019
-
-Jan Johansson - 8 Bitar & Innertrio (1961, 1962) 1994, Heptagon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prisma [3:03]
-02. She's funny that way [5:01]
-03. Skobonka [2:18]
-04. De salde sina hemman (Emigrantvisa) [3:40](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6E67ABFE3A9C3441C1A4BF987ADEB477EADDAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

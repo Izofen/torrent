@@ -1,3 +1,90 @@
+###  Публикация: 1670200   (172261) от 19.10.2023
+
+Игорь Николаев - Лучшие хиты (2023) [MP3|256-320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172261.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пять причин
+2. Выпьем за любовь
+3. Синий Ветер - Белый Лён
+4. Такси, такси(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1DF3E8FE528F51C32125E253DE6ADF3025333F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670179   (172092) от 20.10.2023
+
+VA - Italo 2000 - Italo Rarities Vol. 2 (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koto - Japanese War Game
+02. Linda Jo Rizzo - Heartflash
+03. Ken Laszlo - Glasses Man
+04. Paul Boy - Lucky Guy(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A929D23DFCA0BE0F6A50B0B742FA22C762A4D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670241   (172089) от 20.10.2023
+
+VA - Italo 2000 - Italo Rarities Vol. 3 (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Adams - I Know Your Mind
+02. Deborah Haslam - Let Me Trouble
+03. Max Coveri - Bye Bye Baby
+04. Joe Yellow - Last Call(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C9D733667B94F667E17CF6EF5C8C79AA5DD7EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670403   (172081) от 20.10.2023
 
 VA - Любовь всегда права (2023) Посвящение Александру Шевченко [MP3|320 Kbps] <Pop>
@@ -655,93 +742,6 @@ VA - Hit News Vol. 3 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AD734721E9D4E6ECBA95DE8A9E669AB541731F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596290   (170298) от 09.12.2022
-
-Fancy - Diamonds Forever Part I (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slice Me Nice (2022)
-02. Running Man (2022)
-03. Bolero (2022)
-04. Chinese Eyes (2022)(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27BF87BD3624B19F303CD6CB233148549B79DFAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672229   (170267) от 27.10.2023
-
-VA - Disco Laser (1979) LP [MP3|320 Kbps] <Electronic, Rock, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Hernandez - Born To Be Alive (3:08)
-02. Leif Garrett - I Was Made For Dancing (3:07)
-03. Racey - Lay Your Love On Me (3:14)
-04. Wallenstein - Charline (3:59)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, DiscoПродолжительность: 01:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09CACBFA819E9E1A0D20F0A4B379BA2D6FCD9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672218   (170264) от 27.10.2023
-
-Taylor Swift - 1989 (Taylor's Version) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To New York (Taylor's Version) (3:33)
-02. Blank Space (Taylor's Version) (3:52)
-03. Style (Taylor's Version) (3:51)
-04. Out Of The Woods (Taylor's Version) (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DB53C0A07CB261BF6C58519018E61AA63DF378
 ```
 
 https://mybot314.ru/tekegram_catalog/

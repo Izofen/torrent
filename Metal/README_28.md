@@ -1,3 +1,38 @@
+###  Публикация: 764141   (881925) от 08.03.2014
+
+Kirk - Masquerade (2014) [MP3|320 кб/с]<Melodic Progressive / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.	 Devil's Claw
+02.	 Supersonic Speed
+03.	 Masquerade
+04.	 Eternity
+05.	 Fight or Die Music
+06.	 Nothing Else but Lies
+07.	 Time
+08.	 Tragedy
+09.	 Face in the Crowd
+10.	 The End of the Universe(   Читать дальше...   )Жанр: Melodic Progressive/Power MetalПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4330828A415DFCEE813B263D14EF42571450DA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373094   (881899) от 05.04.2020
 
 Eternal Delyria - Letting Go Of Humanity / Paradox of the Mechanical Angel (2016-2020) [MP3|320 Kbps] <Symphonic Death Metal>
@@ -760,35 +795,6 @@ Black Rain - Requiem For A Killer (2015) [MP3|320 кб/с]<Heavy Metal, Power Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38D3551486847FE7A0FA549E976B7DC0E9858D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996688   (879516) от 14.03.2016
-
-Mobile Deathcamp - Summon the Destroyer (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deferred Pilgrimage
-02. Perennial Extraction
-03. Execute the Mandate
-04. Tabarnak(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC719246C000C7E349A596A61736A61AB586A937
 ```
 
 https://mybot314.ru/tekegram_catalog/

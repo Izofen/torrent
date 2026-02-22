@@ -1,3 +1,32 @@
+###  Публикация: 1191184   (264521) от 13.12.2017
+
+VA - Nothing But... The Future Of Trance Vol.05 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Glynn Alan  -  Escaped (Original Mix)  7:34
+02.  Saladin  -  Until We Meet Again (Original Mix)  4:21
+03.  Victor Special  -  Life Is Just Beginning (Original Mix)  7:43
+04.  Alex Immersion  -  Spike (Original Mix)  6:57(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EF57B393AD81E64F2371F32177023B045B4E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191218   (264514) от 13.12.2017
 
 VA - Grotesque 300 (Mixed by RAM, Marco V & Darren Porter) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
@@ -716,35 +745,6 @@ VA - Ferry Corsten Presents Corsten's Countdown December (2017) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C5661C8EAE4EA807AC0DDDF8B4DD1D2C0092D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193694   (261985) от 22.12.2017
-
-VA - Entrancing Music Top 20 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kate Miles, DJ T.H. & Floe – Like A Miracle (Denis Kenzo Remix)
-02. Denis Sender, DJ T.H. & Cari – I Found You (Maywave Remix)
-03. Floe, Aly Frank & J.Puchler – Home (LTN Remix)
-04. Kiran M Sajeev – Bharat Mata (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F53BCCE4C4037873430C391F1211F1E993C9F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

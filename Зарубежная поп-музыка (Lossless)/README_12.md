@@ -1,3 +1,32 @@
+###  Публикация: 858018   (951638) от 09.01.2015
+
+VA - Best Pop Ballads (1999) 2CD /Polymedia, LC 00136/ [FLAC|Lossless]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник от не очень известной фирмы Polymedia вобрал в себя наиболее известные лирические поп-произведения на момент своего издания (1999 год). Сегодня некоторые из них уже подзабыты, но большинство по прежнему звучат на многих поп и рок радиостанциях. Да и в личных коллекциях занимают не последнее место.CD2:
+01. Black - Wonderful Life  (4:48)
+02. Bonnie Bianco - Miss You  (4:54)
+03. Glenn Medeiros - Nothing's Gonna Change My Love For You  (3:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C675C19F59FA6E9B45DF630E51435F601D797905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981681   (951404) от 01.02.2016
 
 Celine Dion - Celine Une Seule Fois / Live 2013 (2014) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Ballad>
@@ -714,35 +743,6 @@ Asgeir (Ásgeir) - Bury The Moon (Sátt) (2020) [FLAC|Lossless|tracks + .cue] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAB22B9DBACF7374AD474C1E05E227AF30080CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364122   (939525) от 01.03.2020
-
-VA - 00s Workout (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gnarls Barkley - Crazy (02:57)
-02. Steve Arrington - Feel so Real (05:06)
-03. Sean Paul - Temperature (03:38)
-04. Kylie Minogue - Can't Get You out of My Head (03:50)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04DF781626C8596ABF4401315B8B7A6D6F9CD69
 ```
 
 https://mybot314.ru/tekegram_catalog/

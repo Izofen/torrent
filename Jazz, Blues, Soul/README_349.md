@@ -1,3 +1,90 @@
+###  Публикация: 1067494   (387928) от 29.10.2016
+
+Fred Hersch - Plays Rodgers & Hammerstein (1996) Nonesuch[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Cock-Eyed Optimist [05:23]
+ 02.No Other Love [04:47]
+ 03.Loneliness of Evening [05:42]
+ 04.It Might as Well Be Spring [06:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE5BD9B5E2094016C08FF903F15937B0C12AB5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067496   (387924) от 29.10.2016
+
+Slide Hampton - Explosion! The Sound Of Slide Hampton (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Revival [02:27]
+ 02.Maria [02:24]
+ 03.Delilah [04:00]
+ 04.Begin The Beguine [02:34](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEDD18D8BB868A1688717DB0FAD31F3A22E062F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067489   (387923) от 29.10.2016
+
+Nat King Cole - Crazy Rhythm! Live 1947-1948 (1947-1948) 1991, Vintage Jazz Classics[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Opening Theme: Straighten Up And Fly Right [01:12]
+ 02.Sunday [01:35]
+ 03.Wildroot Cream Oil Commercial [00:54]
+ 04.Wildroot Charlie [01:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C50B48BBA1150F6FF5A293D02687F46E53D1CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574096   (387917) от 04.09.2022
 
 Bad Luck Friday - Bad Luck Friday (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
@@ -677,93 +764,6 @@ Eddie Heywood - 1946-1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5EAE868824CD139CA460B84FD669B28FFB2F58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174540   (385570) от 15.10.2017
-
-John Pizzarelli  (featuring Daniel Jobim) - Sinatra & Jobim @ 50 (2017) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baubles, Bangles And Beads
-02. Aqua De Beber
-03. Meditation Quiet Nights Of Quiet Stars
-04. Dindi(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BF7940FB2ED7A5F061E27A03034B01CB0AFBC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174528   (385568) от 15.10.2017
-
-Boney James - Honestly (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kicks
-02. Tick Tock
-03. On The Prowl
-04. Low And Slow(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8232475715C505AF11506D03070E6271E5984B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174504   (385567) от 15.10.2017
-
-Cary Morin - 2 Albums (2015 - 2017) [MP3|320 Kbps] <Acoustic Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cradle to the Grave
-02. Laid Back
-03. Dawn's Early Light
-04. Lay Baby Lay(   Читать дальше...   )Жанр: Acoustic BluesПродолжительность: 01:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3781E418CC7F4814F92038F08A3C5D0025E1DCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

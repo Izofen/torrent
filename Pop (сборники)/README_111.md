@@ -1,3 +1,32 @@
+###  Публикация: 1640782   (193648) от 27.08.2023
+
+VA - Виниловый бублик (1901-2019) [MP3|128-320 Kbps] <Classic, Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия музыкальной коллекции с удалённого YouTube канала Виниловый бублик / UCxS1inqcdR8Zwf2x5CzAjjA
+
+Канал "Виниловый бублик" был открыт в 2017 году и посвящался записям на виниловых пластинках.
+За 6 лет работы канала было опубликовано более 4 тысяч аудиозаписей.(   Читать дальше...   )Жанр: Classic, Pop, RockПродолжительность: 1250:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423AAD3102B5930012DEFE0E74B28EF5F71EDD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587565   (192246) от 01.11.2022
 
 VA - Rock & Pop Ballads Collection от ALEXnROCK Часть 2 (2022) [MP3|320 Kbps] <Rock, Pop>
@@ -715,35 +744,6 @@ Delta Goodrem - Compilation (2022) [MP3|320 Kbps] <Pop, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE04E498FCCD5D7CA3BFEF12F7F737CDCBFF2476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344750   (168965) от 12.12.2019
-
-VA - Planet Dance Music: Euromix Energia Total (2019) [MP3|320 Kbps] <Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168965.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mc Kevinho - O Grave Bater
-002. Jason Born - Give Me Everything
-003. Dj Snake, J Balvin, Tyga - Loco Contigo
-004. Olivia Grace - Higher Ground(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 09:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A350659179DAC6CFA3F8BA9A25BDEE9DCCF5DAFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

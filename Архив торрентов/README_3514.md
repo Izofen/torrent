@@ -1,3 +1,29 @@
+###  Публикация: 943642   (442354) от 06.10.2015
+
+PhotoInstrument v 7.4 Build 768 Portable by SoftProgram [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: PhotoInstrument - удивительно легкий редактор для обработки портретов цифровых фотографий.Здесь есть все чтобы сделать себя неотразимым(ой),от очистителя кожи до придания гламурного вида "глянцевых журналов",программа включает в себя инструменты для: ретуширования, удаления красных глаз, сглаживания морщин, увеличения чёткости, коррекции цвета (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A3CC4BE4EDF2E056565669D58EDED798E1A80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 827803   (442341) от 05.10.2014
 
 Счастливый брак / A Good Marriage (2014) WEB-DL [720p] [EN / EN Sub]
@@ -685,33 +711,6 @@ Dark Empire - 3 Альбома (2006-2012) [MP3|320 кб/с]<Thrash Power Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A711347BE189DC0FEA9644627CA2932A667616A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553159   (442055) от 29.09.2012
-
-Haydn - The Creation: Paul McCreesh & Chetham's Chamber Choir, Gabrieli Consort & Players (2008) 2CD [APE|Lossless]<Classical, Choral>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, ChoralПродолжительность: cd1 - 79:27
-cd2 - 29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B296F4DA0D02D8EA5B96C4B5DC33CD07737F266
 ```
 
 https://mybot314.ru/tekegram_catalog/

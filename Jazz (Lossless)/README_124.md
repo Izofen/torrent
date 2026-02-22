@@ -1,3 +1,32 @@
+###  Публикация: 1026402   (704165) от 15.06.2016
+
+Seby Burgio - Bounce (2015) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow Me [06:08]
+ 02. Coffee Time [06:10]
+ 03. Etnia [05:29]
+ 04. Polkadots and Moonbeams [06:42](   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D43EB4D793EC49BDE2AA5482C7440AB67E9F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026418   (704163) от 15.06.2016
 
 Tete Montoliu Trio - Secret Love (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -713,35 +742,6 @@ Lionel Hampton - Reunion At Newport 1967 (1993) Bluebird [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74F930145D3294A96F65C62815095A583CD3158F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132472   (701276) от 09.05.2017
-
-Wild Bill Davis - Swing & Shout: Americans Swinging In Paris (1977) 2002, Black And Blue [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stick Up The Band [07:14]
-02. Lullaby Of Birdland [09:50]
-03. Indiana [06:57]
-04. Body And Soul [05:52](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3045DF59CF11C8E6D94532F1DBCC04ADFE885275
 ```
 
 https://mybot314.ru/tekegram_catalog/

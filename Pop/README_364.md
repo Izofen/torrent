@@ -1,3 +1,90 @@
+###  Публикация: 1779637   (27616) от 14.02.2025
+
+Дискотека Авария - The Best, Part 2 (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27616.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Новогодняя
+2. Модный танец Арамзамзам
+3. На острие атаки
+4. Потерявший(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C490D2E059E26F84D1717149669263A81E2154B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779204   (27329) от 17.02.2025
+
+Лицей - Открытый Занавес (1996) [FLAC|Lossless|image + .cue] <Reggae, Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Осень
+02. Я Спешу За Любовью
+03. Душа
+04. Смех Сквозь Слезы(   Читать дальше...   )Жанр: Reggae, PopПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00EA0A2BA122B25BC07BB7FD3B032C85D3ACCBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779513   (27301) от 17.02.2025
+
+VA - Billboard Top Hits 1979 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blondie - Heart Of Glass
+02. Knack - My Sharona
+03. Randy Vanwarmer - Just When I Needed You Most
+04. Rupert Holmes - Escape (The Pina Colada Song)(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C2FF1F91F0D428FE80F0F4A47F95C934A330D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780715   (27119) от 19.02.2025
 
 VA - Best 80s Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -658,93 +745,6 @@ VA - One Shot '80 Volume 20 (2009) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F1646BD0B76864C2FB6839D60B38D1805E80EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784381   (24986) от 11.03.2025
-
-Good Ride - Faces (2023) [MP3|320 Kbps] <Italo-Disco, Italo-Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Gonna Dance (Extended) (5:46)
-02. What Can I Say (4:13)
-03. One Moment (Extended) (6:10)
-04. Star Cloud (5:42)(   Читать дальше...   )Жанр: Italo-Disco, Italo-DanceПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35239E03586F138345F5E37206D4E82497109AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784435   (24985) от 11.03.2025
-
-VA - ZYX Italo Disco Collection (The Memory Label) (2002) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyber People - Polaris (Club Mix)
-02. Ken Laszlo - Hey Hey Guy (US Remix)
-03. Brian Ice - Tokyo (DJ Version)
-04. Hypnosis - Droid (Automatic Piano)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, DiscoПродолжительность: 03:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75ECDB8F1DE2B26E7133E7F8DBB01EBA154D44BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784726   (24890) от 12.03.2025
-
-Maxi Talo - Emotions (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run To The Sun (6:05)
-02. Say You Love Me (5:02)
-03. Sea And You (5:43)
-04. Among Millions Of Stars (6:04)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D47ABD0C3ED445AC15F9E1CFD3AAE44850B368
 ```
 
 https://mybot314.ru/tekegram_catalog/

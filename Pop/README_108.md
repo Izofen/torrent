@@ -1,3 +1,119 @@
+###  Публикация: 789135   (732755) от 25.05.2014
+
+VA - Pure... 50s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Vocal, Jazz, Stage & Screen, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот необыкновенный набор с четырьмя дисками собрал почти 70 оригинальных записей хитов 50-х, включая песни Frank Sinatra, Elvis Presley и Johnny Cash. Как сказано в анонсе этого издания, оно для тех, кто хочет поглубже узнать хиты 50-х, но не имеет возможности блуждать по разбросанным островкам мелодий. Что тут можно добавить?01. Elvis Presley - All Shook Up  (2:00)
+02. Johnny Cash - I Walk The Line  (2:44)
+03. Tony Bennett - Rags To Riches  (2:50)
+04. Doris Day - Que Sera, Sera  (Whatever Will Be)  (2:05)(   Читать дальше...   )Жанр: Pop, Vocal, Jazz, Stage & Screen, CountryПродолжительность: 03:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD50C8ED22977F82B54B1CDD72D67932B644319C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529288   (732645) от 06.02.2022
+
+VA - 100 Greatest 80s Pop Songs (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. George Michael - Careless Whisper (6:32)
+002. Richard Marx - Right Here Waiting (4:24)
+003. Irene Cara - Flashdance...What A Feeling (From Flashdance ) (3:44)
+004. Billy Joel - Tell Her About It (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 07:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997AAD150406F459C578B5D4E484C2759D4E8D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021548   (732545) от 29.05.2016
+
+Thomas Anders - History (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Europop, Dancepop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart You're My Soul (New Hit Version) - 3:28
+02. You Can Win If You Want (New Hit Version) - 3:41
+03. Cheri, Cheri Lady (New Hit Version) - 3:32
+04. Brother Louie (New Hit Version) - 3:43(   Читать дальше...   )Жанр: Pop, Electronic, Europop, DancepopПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A511D109D952548ABA50EDC1297C23EA1425D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021422   (732514) от 29.05.2016
+
+VA - High Energy Today (2016) [MP3|320 кб/с] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klubkidz - When We Were Young (Dance Mix) (feat. Sam Solace) 05:15
+02. Teresa Marie - Loved Me Back to Life (Sammy Love Remix) 04:33
+03. Rachel Wood - Hung Up 05:15
+04. Evelyn Thomas - High Energy (Reload Radio Mix) 03:49(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22BE3E7F9231B4815DC573C384919057A977484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021348   (732396) от 29.05.2016
 
 Дискотека Авария - Лучшие песни (2002) [FLAC|Lossless|image + .cue] <Electronic, Pop, Euro House>
@@ -626,122 +742,6 @@ VA - The Ibiza Opening: Vocal House Anthems (2017) [MP3|320 Kbps] <Euro Dance, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C4D9CE91213F1E28D9DB751B475CC152008692B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127805   (730617) от 22.04.2017
-
-VA - Первый танцевальный, Vol.12 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LP - Other People (Swanky Tunes & Going Deeper Remix Radio Edit)
-02. Nyusha - Always Need You
-03. The Parakit - When I Hold You (feat. Alden Jacob; Radio Edit)
-04. Burito - По волнам (S.p.l.a.s.h Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A25D2C315E2A21041545958E8E23F42F2E2D156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127775   (730474) от 22.04.2017
-
-VA - Первый дачный, Vol.3 (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Денис Клявер - Необыкновенная
-02. Нюша - Тебя любить
-03. Денис Майданов - Что оставит ветер
-04. Алексей Воробьёв - Самая красивая(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22072955AA2F32308F6D2917081075304568DB17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666869   (730137) от 10.06.2013
-
-Black - Wonderful Life (2013) Expanded Edition, 2CD [FLAC|image + .cue]<Pop, Synth-pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Life [04:50]
-02. Everything's Coming Up Roses [04:08]
-03. Sometimes For The Asking [04:11]
-04. Finder [04:15](   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:53:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283919   (729957) от 20.02.2019
-
-VA - 100 Hits: The Girls (2018) 5CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729957.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Anastacia - Left Outside Alone
-02. Pink - Just Like A Pill
-03. Rita Ora - I Will Never Let You Down(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F6BDED2D9F6AA740FF8181DEC2CD468588BED5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,174 @@
+###  Публикация: 1740229   (105908) от 01.08.2024
+
+Adrian Iaies - Cada mañana te trae (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Twelve Mood (5:17)
+02. Dignidad (6:15)
+03. Cada mañana te trae (7:01)
+04. Al paso que vamos (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC1C8F16B1365A3EAC419ADB6FC6A138B7C40FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740371   (105905) от 01.08.2024
+
+Armin Van Buuren - Live at Tomorrowland Winter 2024 (Mainstage) [Highlights] (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Live at Tomorrowland Winter 2024 (Intro)Жанр: Trance, Progressive Trance, ElectronicПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6F6EDB9B2317042A007C62EEC63EAADECB0DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740233   (105900) от 01.08.2024
+
+Connor Sablan - Hot Pot (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams Of Clouds (0:45)
+02. Wakin' Up, Pt. 1 (2:09)
+03. Wakin' Up Pt. 2 (6:48)
+04. Hummingbird (6:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F59DA9C04BD9D07C494443FAC231456E111BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740241   (105899) от 01.08.2024
+
+HPM & Vega - Game On (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragon Fighter (3:41)
+02. Beach Racer (3:51)
+03. Fantasy Flight (4:54)
+04. Way of the Samurai (6:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD53F07E5EA2BF10CAE033BB51B8BE71B109E272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740236   (105897) от 01.08.2024
+
+Emaginario - Interlude of the Duende (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginning With A Groove (3:29)
+02. Continuance (4:33)
+03. Roaming (3:52)
+04. Solace and Descent (4:12)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA83D5DAB6C888992CB3885A726E5497B541F504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740245   (105896) от 01.08.2024
+
+Immanuel Trio - Divinity (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divinity (5:48)
+02. The Walk (5:42)
+03. Don't Get Eaten By a Whale (5:12)
+04. Words To Calm a Storm (3:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53E680354468407211F84288B4B941C438B4C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740231   (105895) от 01.08.2024
 
 Bria Skonberg - What It Means (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary Jazz>
@@ -568,180 +739,6 @@ Karla Leal - Can't Deny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C686961A798BF00746BEA4E1A4E250C836074E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741263   (105699) от 05.08.2024
-
-The Chickens - Drink My Wine: The Smooth Soul Sessions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight in Paris (3:36)
-02. Denise (3:16)
-03. Smooth Serenade (2:45)
-04. Take Me To The River (4:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9DC2504514B4BCBDCD4F127250BD67D0BAD3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741156   (105691) от 05.08.2024
-
-Helloween - Walls of Jericho (1985) Remaster 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Walls of Jericho/Ride the Sky (2024 Remaster) [6:46]
-02 - Reptile (2024 Remaster) [3:46]
-03 - Guardians (2024 Remaster) [4:21]
-04 - Phantoms of Death (2024 Remaster) [6:36](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, MetalПродолжительность: 00:57:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD80BCB50D1B748BE3124AA5E6160174DA1E255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741265   (105686) от 05.08.2024
-
-The Suspenders - Funkypedia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't stop (let's go!) (2:47)
-02. Funky Revolution (2:18)
-03. Get Down and Boogie (3:59)
-04. Get Down With The Soul We Jam (3:06)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB34076EE5BCFB50A2757A56EFD594D435D2B79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741157   (105683) от 05.08.2024
-
-Helloween - Keeper of the Seven Keys, Pt. 1 (1987) Remaster 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Initiation (2024 Remaster) [1:22]
-02 - I'm Alive (2024 Remaster) [3:23]
-03 - A Little Time (2024 Remaster) [4:01]
-04 - Twilight of the Gods (2024 Remaster) [4:31](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, MetalПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCC057A3CF13F025550DFCDDB6063DDFF163BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741160   (105681) от 05.08.2024
-
-Helloween - Keeper of the Seven Keys, Pt. 2 (1988) Remaster 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Invitation (2024 Remaster) [1:07]
-02 - Eagle Fly Free (2024 Remaster) [5:11]
-03 - You Always Walk Alone (2024 Remaster) [5:11]
-04 - Rise and Fall (2024 Remaster) [4:23](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, MetalПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8363DFEDFC08B59C6776302A3EF7F4F5C682A201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741266   (105678) от 05.08.2024
-
-Tibor Burai - War horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under the sea (2:49)
-02. Moving time (3:40)
-03. On the way (3:56)
-04. Yes or no (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D02EF90E30B8E97541271D779E8F6F61BBF5F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

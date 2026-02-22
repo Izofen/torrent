@@ -1,29 +1,3 @@
-###  Публикация: 1647127   (179767) от 03.10.2023
-
-Linux Mint 21.2 Victoria (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Edition, Xfce Edition) [64-bit] 4xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив Linux Mint 21.2, продолжающий развитие ветки на основе пакетной базы Ubuntu 22.04 LTS. Дистрибутив полностью совместим с Ubuntu, но существенно отличается подходом к организации интерфейса пользователя и подбором используемых по умолчанию приложений. Разработчики Linux Mint предоставляют десктоп-окружение, соответствующее классическим канонам организации (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539231B662CA73EE4D39472CA8A657E5E3A4C874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428657   (178856) от 03.12.2020
 
 BlackArch Linux 2020.12.01 [Хакинг, аудит, безопасность] [x86_x64] 1xDVD + 1xNetinstallCD
@@ -679,6 +653,35 @@ Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E89314A189B2732BE160791E215D7289EB68A7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 352134   (143363) от 27.12.2018
+
+KNOPPIX 6.5 Linux Magazine Live DVD RU /USB 6.5 [x86] (1xDVD)
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ядро Linux Kernel 2.6.37, оконный менеджер LXDE + compiz-fusion as 3D-window manager,
+LibreOffice 3.3.0, VirtualBox OSE, special feature accessibility: ADRIANE Audio-Desktop, Orca as graphical screenreader
+Adobe acrobat reader + Flash plugin
+Firefox + Chromium web browser(   Читать дальше...   )Разработчик: Klaus KnopperЯзык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BF37580056279AAE5C9FA7C2987FDF1A90C025
 ```
 
 https://mybot314.ru/tekegram_catalog/

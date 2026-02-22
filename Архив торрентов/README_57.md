@@ -1,3 +1,29 @@
+###  Публикация: 1615542   (1037540) от 26.02.2023
+
+WonderFox HD Video Converter Factory Pro 26.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037540.jpg" />
+</div>
+
+
+###  Подробнее
+
+HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95E0F3D28F81AD3DCE27E359855841BDA477A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615539   (1037533) от 26.02.2023
 
 HitPaw Video Converter 2.7.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -654,34 +680,6 @@ Hetman Uneraser Home / Office / Unlimited Edition 5.6 RePack (& Portable) by Try
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:564A7DE8D5C0A41ED830D91CBD1CCB81BC323C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441753   (1037441) от 22.01.2021
-
-Balabolka 2.15.0.768 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа "Балаболка" предназначена для чтения вслух текстовых файлов.
-Для воспроизведения звуков человеческого голоса могут использоваться
-любые речевые синтезаторы, установленные на компьютере.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46472D31078951C75241566EC06ACE240F1E41A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1003852   (841898) от 04.04.2016
+
+Key OG - The Choice (2014) [FLAC|Lossless|tracks] <Nu Jazz, R'n'B, Hip-Hop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friends Of Mine
+02. The Choice
+03. Carry On
+04. Blue Bird(   Читать дальше...   )Жанр: Nu Jazz, R'n'B, Hip-HopПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51288DAC7DCD62906BCA2AD67E8306250EFFCA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003753   (841790) от 04.04.2016
+
+Beady Belle - Songs From A Decade: The Best Of Beady Belle (2015) [FLAC|Lossless|Web-DL|tracks] <Nu Jazz, Vocal Jazz, Neo Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saved (5:21)
+02. So Far So Good (3:48)
+03. Diamond in the Rough (4:53)
+04. My Name on the World (4:58)(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, Neo Soul, Vocal Jazz, Future JazzПродолжительность: 02:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB7375BE336642F30137A127B80E3948F693737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112695   (841733) от 09.03.2017
+
+The Candoli Brothers Sextet - Jazz Horizons (1957, 1958) 2005, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Disc-Location [04:18]
+ 02.Beautiful Love [02:26]
+ 03.Crazy Rhythm [03:34]
+ 04.My Funny Valentine [03:29](   Читать дальше...   )Жанр: Bop, Cool, West Coast JazzПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28E65EB982F561EBBD9B0BB09D3739A6753DE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112710   (841730) от 09.03.2017
 
 Jeremy Pelt - Make Noise! (2017) HighNote [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
@@ -663,93 +750,6 @@ Tony Bennett - Jazz (1954 - 1967) 1987, Columbia [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:921AB09EFE50DFFE3941F8E38E469AEBAB696CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500940   (839826) от 07.10.2021
-
-Chris Rea - Blues Guitars VIII - Gospel Soul Blues & Motown (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Love (4:12)
-02. Break Another Piece of My Heart (4:19)
-03. Ball and Chain (4:55)
-04. Gospel Trail (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24C4505611E17EAC450EFACA257B9E96FE50C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379553   (839637) от 29.04.2020
-
-Spike Robinson & Al Cohn - Once In A Wild (1987) AAD [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sippin' At Bells [6:17]
-02. Easy Living / These Foolish Things [10:27]
-03. Sweet's Blues [7:22]
-04. Rustic Hop [5:35](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401594EDA7CF6F680B21E5A152AE78DFB4F07E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379504   (839635) от 29.04.2020
-
-Red Callender - Four Classic Albums 1942 - 1958 (2016) 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839635.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Speak Low [7:30]
-02. Nice Day [4:17]
-03. In A Sentimental Mood [3:31](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8560EDF332D9F439336C37D72EC32F9F9521E1C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

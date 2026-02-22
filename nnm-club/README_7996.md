@@ -1,18 +1,47 @@
-###  Публикация: 638339   (727892) от 12.06.2013
+###  Публикация: 1530573   (728980) от 11.02.2022
 
-Игра престолов / Game of Thrones (Сезон 3 полный (10)) (2013) WEB-DL 720p [H.264/6 ch] (МЕКС ИНФО)
+VA - Distant Places Lounge Vol.1: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
->>След.
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727892.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-К концу подходит время благоденствия, и лето, длившееся несколько десятилетий, угасает. Люди, отказавшиеся жить по законам Семи Королевств, получили название одичалых и были изгнаны за Стену, на страже которой стоит Ночной Дозор. Но орден был учрежден, чтобы защищать мир людей от совсем другой силы — Белых Ходоков, ныне пробудившихся и угрожающих всему живому. Король (   Читать дальше...   )Производство: США, HBO, Television 360, Grok! StudioЖанр: Драма, фэнтазиРежиссер: Тимоти Ван Паттен, Брайан Кирк, Даниэль Минахан, Алан ТейлорПеревод: Мекс, Эрадан, Selena под редакцией Мекс'аПродолжительность: ~ 00:55:00 серия
+01. Free Spirit Muse - Breath-Ful Moments (20:21)
+02. Matt Sour - Like a Fairy Tale (Original Mix) (4:44)
+03. Gary B - Afraid to Fall (Original Mix) (4:53)
+04. Michael E - Wind Chime (Original Mix) (5:53)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC95F4D0ECC4D135AE7FC26DC2BC9680CE393493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530493   (728979) от 11.02.2022
+
+Wise Care 365 Pro 6.1.8.605 RePack (& Portable) by 9649 [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -24,21 +53,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 667316   (727889) от 12.06.2013
+###  Публикация: 1530442   (728978) от 11.02.2022
 
-Игра престолов / Game of Thrones (Сезон 3, серия 10 из 10) (2013) HDTVRip [720p] (LostFilm)
+XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Финляндия - Словакия. Мужчины (10.02.2022) HDTVRip [H.264/720p] [hand made 50fps]
 
->>3
->>След.
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727889.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-К концу подходит время благоденствия; и лето, длившееся несколько десятилетий, угасает. Люди, отказавшиеся жить по законам Семи Королевств; получили название одичалых, и были изгнаны за Стену, на страже которой стоит Ночной Дозор. Но орден был учреждён, чтобы защищать мир людей от совсем другой силы — Белых Ходоков, ныне пробудившихся, и угрожающих всему живому. (   Читать дальше...   )Жанр: Драма, ФэнтезиРежиссер: Дэвид НаттерАктеры: Питер Динклэйдж (Tyrion Lannister), Эмилия Кларк (Daenerys Targaryen), Кит Харингтон (Jon Snow), Мэйси Уильямс (Arya Stark), Чарльз Дэнс (Tywin Lannister), Лина Хиди (Cersei Lannister), Николай Костер-Вальдау (Jaime Lannister), Джек Глисон (Joffrey Baratheon) и др.Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: LostFilmПродолжительность: 01:04:36
+XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Финляндия - Словакия. Мужчины (10.02.2022)Телекомпания: Матч! АренаЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:34
 
 ## Скачать торент
 ```bash
@@ -50,21 +79,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 639167   (727887) от 12.06.2013
+###  Публикация: 1530550   (728977) от 11.02.2022
 
-Игра престолов / Game of Thrones (Сезон 3 полный (10)) (2013) WEB-DLRip (LostFilm)
+По дороге с Норманом Ридусом / Ride with Norman Reedus (2021) WEBRip [H.264/1080p] (сезон 4, серия 1-6 из 6)
 
->>3
->>След.
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727887.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-К концу подходит время благоденствия, и лето, длившееся несколько десятилетий, угасает. Люди, отказавшиеся жить по законам Семи Королевств, получили название одичалых и были изгнаны за Стену, на страже которой стоит Ночной Дозор. Но орден был учрежден, чтобы защищать мир людей от совсем другой силы — Белых Ходоков, ныне пробудившихся и угрожающих всему живому. Король (   Читать дальше...   )Производство: США, HBO, Television 360, Grok! StudioЖанр: Драма, фэнтазиРежиссер: Тимоти Ван Паттен, Брайан Кирк, Даниэль Минахан, Алан ТейлорПеревод: Профессиональный многоголосый закадровый - LostFilmПродолжительность: ~ 00:55:00 серия
+Сериал о путешествиях на мотоцикле, в котором Норман Ридус и приглашенная звезда недели путешествуют в определенную точку Америки на мотоцикле, изучая местную байк-культуру и места для мотоциклистов.Производство: США, AMC Studios, Clyde Phillips Productions, Lions Gate TelevisionЖанр: документальный, путешествияРежиссер: Джеф О'БрайанПеревод: многоголосый профессиональный (HDRezka Studio)Субтитры: русские (Forced), английскиеПродолжительность: 6x ~00:43:00
 
 ## Скачать торент
 ```bash
@@ -76,28 +105,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284700   (727886) от 22.02.2019
+###  Публикация: 1530439   (728976) от 11.02.2022
 
-Mankunku Quartet - Yakhal' Inkomo (1968) 2017, Jazzman [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Иеромонах Серафим Роуз | Бытие: сотворение мира и первые ветхозаветные люди (2004) [PDF, DJVU]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга, составленная и опубликованная посмертно, является важнейшим достижением в жизни великого мыслителя в духе святоотеческого учения иеромонаха Серафима (Роуза). Она представляет собой исчерпывающее собрание всего относящего к этой теме материала как рукописного, так и записанных на магнитофонную ленту курса лекций о Бытии и сотворении мира, которые отец Серафим (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530365   (728975) от 11.02.2022
+
+Damageplan - New Found Power (2004) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue]  <Groove/Trash Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Up (4:29)
+02. Breathing New Life (3:49)
+03. New Found Power (3:25)
+04. Pride (4:17)(   Читать дальше...   )Жанр: Groove/Trash MetalПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530443   (728974) от 11.02.2022
+
+XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Швеция - Латвия. Мужчины (10.02.2022) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728974.jpg" />
+</div>
+
+
+###  Подробнее
+
+XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Швеция - Латвия. Мужчины (10.02.2022)Телекомпания: Матч!Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284472   (728973) от 21.02.2019
+
+Jessica Williams - The Art Of The Piano (2009) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727886.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yakhal' Inkomo [8:56]
-02. Dedication (To Daddy Trane and Brother Shorter) [10:16]
-03. Doodlin' [6:08]
-04. Bessie's Blues [7:39]Жанр: Hard Bop, Post-BopПродолжительность: 00:32:58
+01. Triple Door Blues [9:14]
+02. Esperanza [6:57]
+03. Love and Hate [12:57]
+04. Elaine [5:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CC259C5ADF8A419D904071C9FE594304FFE4FD4
+magnet:?xt=urn:btih:45DBE558D31BA58CB4A5F66C9B7C4B14D80F3421
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,27 +215,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284684   (727885) от 22.02.2019
+###  Публикация: 1284199   (728972) от 21.02.2019
 
-Underground Lovers - Infinite Finite (1999) Single [FLAC|Lossless|tracks + .cue] <Acoustic, Indie Rock>
+Golden Daze - Simpatico (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Psychedelic, Alternative>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727885.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01/03. Infinite Finite (4:35)
- 02/03. Numbers (4:52)
- 03/03. Yes I Do (2:03)Жанр: Acoustic, Indie RockПродолжительность: 00:11:30
+01. Blue Bell (03:45)
+02. Amber (03:17)
+03. Flowers (03:04)
+04. Took a Fall (03:17)(   Читать дальше...   )Жанр: Indie Pop, Psychedelic, AlternativeПродолжительность: 00:36:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46EE9FA5D6D88689BA8375041702CE3531B3D492
+magnet:?xt=urn:btih:262D15AA95F809E948529E906D1EB4779C41C0A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,28 +244,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284685   (727884) от 22.02.2019
+###  Публикация: 1284207   (728971) от 21.02.2019
 
-Underground Lovers - Losin' It (1994) Single [FLAC|Lossless|tracks + .cue] <Leftfield, Indie Rock>
+Young Hunting - True Believers (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727884.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Losin' It (Single Mix) (4:58)
- 02. Losin' It (Casino Mix) (4:17)
- 03. Losin' It (Mr Futuristic's Mix) (6:50)
- 04. Losin' It (Brunehilda's Mix) (3:44)(   Читать дальше...   )Жанр: Leftfield, Indie RockПродолжительность: 00:23:16
+01. Every Living Thing (03:06)
+02. Lawd (03:20)
+03. Blue Dream (03:38)
+04. Sargasso (04:14)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:37:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6A93CA542A8D83D8B278B76D6017CF6D781A046
+magnet:?xt=urn:btih:7C40445E431F3FBB527CE2C972FE6B7EE289DECA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,485 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284626   (727883) от 22.02.2019
+###  Публикация: 1284348   (728970) от 21.02.2019
 
-Гелена Шмагелова | Карлинская 5 (1963) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть для среднего и старшего школьного возраста.Жанр: Детская прозаПеревод: Л. ГолембаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CE25CBB4D4144FAB22979AB7C99FF49D1780FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284550   (727882) от 22.02.2019
-
-John Pizzarelli Trio - For Centennial Reasons: 100 Year Salute to Nat King Cole (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straighten Up and Fly Right
-02. A Hundred Years from Now
-03. The Very Thought of You
-04. (I Would Do) Anything for You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC6869FE57F6F30175BDCA86B2546AE67DB755C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284627   (727881) от 22.02.2019
-
-Михаил Дудин | Где наша не пропадала (1972) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о деревенском мальчике Касьяне Кукушкине, которому пришлось много пережить в жизни. Безрадостным было его детство, в юность его вторглась война, но от этого не стало черствым, не загрубело сердце Касьяна. Кукушкин любит жизнь, людей и все живое. Эту любовь дала ему наша Родина, свободная и счастливая страна, где столько хороших людей, что нельзя пропасть (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7E9C7377A68E00587867DC5E93D9B25597FB90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530631   (727880) от 12.02.2022
-
-VA - Deep Forest 2021 (2022) [AAC|~330 Kbps] <Afro House, Tech House, Minimal / Deep Tech>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alberto Dimeo - Nubira (Original Mix) (6:27)
-02. Sebastian Rivero - Could Be (Original Mix) (6:24)
-03. Monserratt - Código (Original Mix) (5:48)
-04. DrumsMaster - Rhythm (Original Mix) (6:36)(   Читать дальше...   )Жанр: Afro House, Tech House, Minimal / Deep TechПродолжительность: 02:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085A3BC5A25B2D6D878F0B1BCC8FF07FCCD0C9AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530673   (727879) от 12.02.2022
-
-Журнал | Heimwerker Praxis №1 (январь-февраль 2022) [PDF] [De]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heimwerker Praxis - журнал из Германии для домашних мастеров, на его страницах обзор инструментов, материалов, технологий ремонта и строительство, а так же идеи для творчества и советы специалистовЖанр: Домашний мастер, строительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C235C7A424AEE7E98FCF40E63ED5DCB7749F308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530832   (727878) от 12.02.2022
-
-Symphony Of Sweden - Saints Of Yesterday (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will She Fight (3:22)
-02. Angels (3:05)
-03. Saints Of Yesterday (3:05)
-04. Madness (2:50)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530711   (727877) от 12.02.2022
-
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Канада - США. Мужчины (12.02.2022) HDTVRip [H.264/720p] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727877.jpg" />
-</div>
-
-
-###  Подробнее
-
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Канада - США. Мужчины (12.02.2022)Телекомпания: Матч! ИграЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE1FD12F28953130CC949FEF9D1C4C839E19136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530697   (727876) от 12.02.2022
-
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Латвия - Финляндия. Мужчины (11.02.2022) WEBRip [H.264/720p]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727876.jpg" />
-</div>
-
-
-###  Подробнее
-
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Латвия - Финляндия. Мужчины (11.02.2022)Телекомпания: Матч!Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:07:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530807   (727875) от 12.02.2022
-
-Любовь Вайткене | О динозаврах и животных нашей планеты (2018) [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая книга-викторина о динозаврах и других животных обогатит любознательных ребят множеством интересных, познавательных, порой невероятных фактов о животном мире нашей планеты. В этом издании сведения о фауне Земли разбиты на разделы, включающие информацию о млекопитающих и птицах, рыбах и ракообразных, земноводных и пресмыкающихся, насекомых и паукообразных и (   Читать дальше...   )Жанр: Энциклопедия, Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530841   (727874) от 12.02.2022
-
-Альберто Васкес-Фигероа | Икар (2021) [MP3, Кирилл Радциг]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драматичная и увлекательная, основанная на реальных событиях история освоения одного из самых загадочных мест на планете – венесуэельской Гвианы, где находятся древние столовые горы тепуй, вершины которых до сих пор таят секреты…
-Легендарный американский летчик Джимми Энджел прибывает в Гвиану в поисках золота и алмазов, найденных когда-то на одной из горных вершин. (   Читать дальше...   )Жанр: Приключения, ПрозаПродолжительность: 08:57:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530690   (727873) от 12.02.2022
-
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Чехия - Швейцария. Мужчины (11.02.2022) WEBRip [H.264/1080p]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727873.jpg" />
-</div>
-
-
-###  Подробнее
-
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Чехия - Швейцария. Мужчины (11.02.2022)Телекомпания: Матч!Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:24:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530672   (727872) от 12.02.2022
-
-Под стук трамвайных колёс / Додескаден / Dodeskaden (1970) BDRip [H.264] [VO]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727872.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу сценария фильма легли рассказы Сюгоро Ямамото. Это рассказ о больном мальчике, мечтающем стать водителем трамвая, который каждый день заходит в невидимый трамвай, поворачивает сотни невидимых рычажков, поправляет несуществующую фуражку и бежит с криком, имитирующим стук трамвайных колёс; о двух пьяницах, которые в подпитии обменялись собственными жёнами; (   Читать дальше...   )Производство: Япония, Toho Company, Yonki-no-Kai ProductionsЖанр: драмаРежиссер: Акира КуросаваАктеры: Ёситака Дзуси, Кин Сугаи, Тосиюки Тономура, Синсуке Минами, Юко Кусуноки, Дзюнзабуро Бан, Киёко Тангэ, Мичио Хино, Кэйдзи Фуруяма, Таппэй СимокаваПеревод: профессиональный одноголосый (Деваль Видео)Субтитры: английскиеПродолжительность: 02:19:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530687   (727871) от 12.02.2022
-
-Журнал | Heimwerker Praxis №2 (март-апрель 2022) [PDF] [De]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heimwerker Praxis - журнал из Германии для домашних мастеров, на его страницах обзор инструментов, материалов, технологий ремонта и строительство, а так же идеи для творчества и советы специалистовЖанр: Домашний мастер, строительствоФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530884   (727870) от 12.02.2022
-
-Подшивка журналов | Журнал Московской Патриархии (1943 - 2022) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727870.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Журнал Московской Патриархии» — старейший журнал Русской Православной Церкви, eе официальный печатный орган. Издается с 1931 г. После перерыва возобновился в 1943 г., с тех пор выходит ежемесячно.
-
-За время существования не раз менялся дизайн и формат. Весной 2009 г. Святейший Патриарх Кирилл поставил вопрос о приведении содержания и внешнего вида журнала в соответствие (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32141C333EBB75917DB72E7CBC196CF7924D5829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530665   (727869) от 12.02.2022
-
-Журнал | The Woodworker & Good Woodworking №3 (март 2022) [PDF] [En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите изготовить вручную красивую мебель для собственного дома или сделать небольшие вещи, такие как шкатулку для пустяков, миски и игрушки, чтобы продать или подарить их в качестве подарка, журнал Woodworker наверняка заставит вас встряхнуться и приступить к работе над вашим следующим проектом. Каждый месяц есть чем заняться, пока не выйдет следующий номерЖанр: Столярное делоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347BBD6285D62E289843AEA7DEC56B6B55BFC14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530753   (727868) от 12.02.2022
-
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Биатлон. Спринт 10 км. Мужчины (12.02.2022) IPTVRip [H.264/720p]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727868.jpg" />
-</div>
-
-
-###  Подробнее
-
-XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Биатлон. Спринт 10 км. Мужчины (12.02.2022)Телекомпания: Первый HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93247B991EA229B7519009BF25ECAC0A7F9A8FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530713   (727867) от 12.02.2022
-
-Марко Поло - История рыцаря (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727867.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пролог
-2. История рыцаря
-3. Эпиграф. Песня черни
-4. Песня черни(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530811   (727866) от 12.02.2022
-
-VA - All White Party: Deep House Mix (2022) [MP3|320 Kbps] <Deep House, Electro>
+VA - Panopticon: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Trance, Electronic>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727866.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В определенной степени бодрящий и в то же время достаточно размеренный электронный микстейп музыки в формате Deep House в представляемом Вашему вниманию сборнике "All White Party". Треки сборника создают непринуждённую атмосферу комфорта и позитива.001. French Boss - Every End Has
-002. Soul Button - Temeraire
-003. Dysfonik - Falling In Love (
-004. Vincent Floyd - Trail Of Tears(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:04:14
+001. Hi Profile - All We Need
+002. Ajja - Bebopper
+003. Archaic - Allotriomorfodiai Tone
+004. Nostromosis - Challenging Evil(   Читать дальше...   )Жанр: Psychedelic Trance, ElectronicПродолжительность: 12:12:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:476206F28A64B58CB5192CCD43A3203B4A13AEE7
+magnet:?xt=urn:btih:DA15399BF64542D95A641FD8A59EE0ABEA9A571E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,28 +302,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022881   (727863) от 03.06.2016
+###  Публикация: 1284278   (728969) от 21.02.2019
 
-Футбол. Товарищеский матч. Англия - Португалия (02.06.2016) HDTVRip [H.264/720p-LQ]
+Antarcticats - I Know You Are, But What Am I? (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock >
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727863.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728969.jpg" />
 </div>
 
 
 ###  Подробнее
 
-02 июня 2016, четверг. 21:45 МСК
-Товарищеские матчи 1
-
-Стадион: Уэмбли (Лондон, Англия) , 82 503 зрителя (92 % при вместимости 90 000)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Михаил Поленов, Юрий Розанов) / ИнтершумПродолжительность: 01:44:00
+01. East Coast Surf Punk (01:24)
+02. Teeth (03:49)
+03. You've Got Something (03:51)
+04. Back by Midnight (04:40)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76462B4376CDA662562E3467A91E9B4498FB61C0
+magnet:?xt=urn:btih:BEB5FB2C7B5E27980FCF982C9F186EC05557B3FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,28 +331,398 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022793   (727862) от 03.06.2016
+###  Публикация: 1284213   (728968) от 21.02.2019
 
-The Modern Jazz Disciples (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+HOMESHAKE - Helium (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727862.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.After You've Gone [06:05]
- 02.Disciples Blues [07:16]
- 03.Slippin' & Slidin' [05:10]
- 04.Little Taste [06:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:51
+01. Early (01:31)
+02. Anything At All (03:02)
+03. Like Mariah (03:26)
+04. Heartburn (00:35)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:33:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC9FCCD708C9973C323D1F19EBD088BAAA4EA952
+magnet:?xt=urn:btih:17A4B3C60AA298567E4FE14BE6B4A21A70608963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284410   (728967) от 21.02.2019
+
+VA - Urban Grunge (2019) [MP3|320 Kbps] <D&B, Dubstep, Bass Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728967.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. High Class Filter - Backbone (Original Mix)
+002. Decrypt - Lucky Hat
+003. Lj High - Epic
+004. Willcox - Tequila (Radio Edit)(   Читать дальше...   )Жанр: D&B, Dubstep, Bass ElectronicПродолжительность: 09:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47A2EC2B152C7F8771FC672A1D718C3E172C8E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284428   (728966) от 21.02.2019
+
+Chronicle Pro 9.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вам приходится оплачиваете счета, то - Chronicle будет незаменимым помощником. Программа дает Вам душевное спокойствие, с ее помощью Вы никогда не пропустите нужный платеж.
+
+Даже если вы используете другие приложение для учета Ваших финансов, Вы оцените помощь Chronicle . Просроченные платежи могут нанести ущерб вашей кредитной истории, что приведет к повышению (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.02.2019Разработчик: LittleFin LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC655F34F0FC17CEC341276F6E588769668F8559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284469   (728965) от 21.02.2019
+
+VA - Ko Tao Dreams Vol.2 (2019) [MP3|320 Kbps] <House, DeepHouse, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dany Cohiba - El Doble Figurado (Original Mix) 6:24
+02. Climatic - Eya (Original Mix) 5:08
+03. Staubtanzer - Things That I Wrote (Radio Edit) 3:40
+04. Maui & Crizz - We Are The Sun (Radio Edit) 3:11(   Читать дальше...   )Жанр: House, DeepHouse, DowntempoПродолжительность: 02:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E8316375390E934321F95D64EFE99E1AAA9CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284530   (728964) от 21.02.2019
+
+VA - Believe In Deep Vol.2 (2019) The Groove Edition [MP3|320 Kbps] <House, DeepHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jay Cee Morgan - En Deux Heures (Sunrise Mix) 3:32
+02. Beach & Marine Star - Love Investigation (Original Mix) 2:53
+03. Jonas Layne - I Wait For You (Original Mix) 3:15
+04. Isaac Bradley - Shooting Star (Original Mix) 2:59(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDC03A6082B33268E7FC0059273C599E8D11C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284368   (728963) от 21.02.2019
+
+Inkubus Sukkubus - Belladonna & Aconite (1993) Reissue, Remastered, 2011, Resurrection Records [FLAC|Lossless|tracks + .cue] <Pagan Rock, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Belladonna & Aconite (4:21)
+02.Soul Inside (2:58)
+03.Song of the Siren (3:44)
+04.Vampyres (3:42)(   Читать дальше...   )Жанр: Pagan Rock, Gothic RockПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CDB8A547B346255BB748CD8E99F890B38A0365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284534   (728962) от 21.02.2019
+
+VA - Workout House Bangers (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uniting Nations - Out of Touch (Extended Mix) 6:19
+02. David Morales & The Face feat. Juliet Roberts - Needin' U (Original Mistake Mix) 7:55
+03. Jeremy Sylvester - Whine Ya Bumper (Club Mix) 6:52
+04. Indo - R U Sleeping (Bump 'N' Flex Remix) 5:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6435E0B92FBDAD853E135EC2EDB9DED39F9A72F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284323   (728961) от 21.02.2019
+
+The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love The Sun
+02. Love Is In Your Eyes
+03. Everything I Want To Know
+04. Child Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1A69E801C0E5F1ADE72BDECF20AE03736EA3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284397   (728960) от 21.02.2019
+
+VA - Anthology of contemporary music from Africa continent (2019) Unexplained Sounds Group [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tribal, Experimental, Abstract>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FRKTL – Hverfa af himni heiðar stjörnur (04:54)
+02. Abdellah M. Hassak – 7 Heavens (04:42)
+03. Ahmed Saleh – Right Side (04:23)
+04. Victor Gama – A Luta Inicia (03:08)(   Читать дальше...   )Жанр: Ambient, Tribal, Experimental, AbstractПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE18B584D16EE1268D204F08EC94576DC28BDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284357   (728959) от 21.02.2019
+
+A Pale Horse Named Death - When The World Becomes Undone (2019) [FLAC|Lossless|tracks + .cue] <Stoner, Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As It Begins (01:44)
+02. When the World Becomes Undone (06:37)
+03. Love the Ones You Hate (03:56)
+04. Fell in My Hole (05:54)(   Читать дальше...   )Жанр: Stoner, Gothic, Doom MetalПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1375E193636E6C3FB64E6DD921EE5F9E517602A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284359   (728958) от 21.02.2019
+
+Р. О. Бойер, Г. М. Морейс | Нерассказанная история рабочего движения в США (1957) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателя книга Р. Бойера и Г. Морейса представляет собой документальную повесть о борьбе американских трудящихся за свои права и о роли американского рабочего движения в жизни страны с периода Гражданской войны в США до середины XX века. Все это показано на фоне истории американского капитализма. Центральное место в книге занимают массовые выступления (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31416FE0C754206E772EF513E10147067E31376B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284445   (728957) от 21.02.2019
+
+Zebra Crossing - Zebra Crossing (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're Going Places (4:47)
+02. Just Another Day (4:58)
+03. Gipsy Boy (3:28)
+04. Flim Flam (4:49)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2653199781768A39C7766B4BBC14651ECDD3A1B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284517   (728956) от 21.02.2019
+
+VA - The Best Of The Last 50 Releases - Special 150 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeron Komila - Phoenix (Enfortro Remix)
+02. Airdream - Sequence Of Events (Matt Robertson Remix)
+03. Aleksey Gunichev - Kristian Melody (Artifi Remix)
+04. Baintermix - Wind Of Change (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E2709EBD0ADC74FF00E7C96F86DB2BD93ACAB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284484   (728955) от 21.02.2019
+
+Журнал | Quattroruote №3 (март 2019) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Quattroruote (Кватроруте) — журнал обо всех автомобилях мира, представленных на российском рынке. Quattroruote имеет собственный автомобильный полигон, располагает отлично оборудованной скоростной трассой и великолепными условиями для самых разнообразных высокотехнологичных исследований. Всевозможные тесты автомобилей проводятся здесь постоянно, по самым высоким (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226930D5A73DCF3B9181B785C0E9D3BA2D9BF25C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1329765   (350269) от 06.10.2019
+
+Lita Ford - Dangerous Curves (1991) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larger Than Life (3:54)
+02. What Do Ya Know About Love (3:53)
+03. Shot Of Poison (3:31)
+04. Bad Love (4:20)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D2FAFF325CBA741119FE761788B545883F0808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579255   (350102) от 22.11.2012
 
 Krokus - Original Album Classics (1980-1982) Remastered 3CD Box Set /2012, Sony Music/ [FLAC|Lossless]<Hard Rock>
@@ -732,35 +761,6 @@ Purpendicular & Ian Paice - Human Mechanic (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B165A16DFB7022713AC4F629CDCB3E170231E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578955   (340944) от 25.09.2022
-
-Liar - Set The World On Fire (1978) Reissue, 2020, Escape Music [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340944.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Set The World On fire (3:54)
-2. Town Of Evil People (5:51)
-3. I'm Calling (4:32)
-4. Midnight Promises (4:56)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49AE236CB887DB14F507AD4C66E5010CE1D147E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

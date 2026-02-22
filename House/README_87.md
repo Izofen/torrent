@@ -1,3 +1,90 @@
+###  Публикация: 1753724   (103765) от 06.10.2024
+
+VA - Always Progressive, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marko Ib - The Last of Us [06:31]
+02. Aquaella - Seeking Summer (VendettaX Remix) [06:10]
+03. SLIDER (SL) - Ghandinagar [07:52]
+04. jUjU (SE) - Zero Tolerance [06:47](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2356D0440B336C19E40B0D2D89D80CE1758598E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754864   (103679) от 12.10.2024
+
+VA - Summer Fresh 002 (2024) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hakan Akkus & Ertan Koculu - Voice of Slav (Extended Mix) [06:07]
+02. Hakan Akkus & Bugra Yilmaz - Loraterr (Extended Mix) [05:37]
+03. Bugra Yilmaz & Ertan Koculu - Waka (Onur Ensert Remix) [04:44]
+04. Neo-P9 - Gate (Extended Mix) [05:11](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52948CC3B69F86DBCF5D7DD7D20D32196FF48E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754861   (103675) от 12.10.2024
+
+VA - Black Hole House Music 10-24 (2024) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Alessia Labate - Afterlight (Extended Mix) [5:06]
+02. Sunlounger & Noah Shah - Wandelpad (Extended Club Mix) [6:40]
+03. Young Parisians & JES & Solarstone - Love Comes Quickly (Disco Mix) [7:57]
+04. Maratone & Still8 with Anita Tatlow - Far Away From Home (Extended Mix) [4:50](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5542424EB95A4F21EC6FB1603AFF0FFB461E1240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756169   (103555) от 19.10.2024
 
 VA - Free To Dance, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -670,93 +757,6 @@ VA - Black Hole House Music 12-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:186185F9EA0B65046958BF0020B1B1399667B074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765800   (101323) от 15.12.2024
-
-VA - Ibiza Winter 2025 (Dance Snowflakes From The Heart) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaques Le Noir - Intentions (Radio Edit) (03:37)
-02. Francesco Diaz & All Purple - Hometown (02:49)
-03. Zulu Natives - In My Dreams (02:55)
-04. Mayson & Noise - Day Go By (02:41)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5371DCE845B2FD9004975F508507C0073B27583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765797   (101291) от 15.12.2024
-
-VA - The Remixes Chapter 1 (2024) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K Loveski & Gorkiz - Echos of Eons (Greenage Remix) [06:57]
-02. Andre Moret - Waltz of the Dew (Subandrio Remix) [07:56]
-03. Mind Echoes - Cold Forest (Dowden Remix) [07:23]
-04. Fel C - Suspension (Evegrem Remix) [07:04](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9414A5C40B617F50CC8C6FDFFDBCD157C05F81EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767003   (101202) от 21.12.2024
-
-VA - Weekend Dance Tunes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack York - New Day (02:59)
-02. Mirko Lovato - Cosmic Galaxy (02:59)
-03. MANESK - We Are Wild (03:33)
-04. Free Mads - Look Inside (Deep House Mix) (05:10)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8F85A16317B54449355ED6ED24580123D59CB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

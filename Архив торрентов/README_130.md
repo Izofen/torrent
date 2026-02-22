@@ -1,3 +1,29 @@
+###  Публикация: 1455876   (1025351) от 20.03.2021
+
+Adobe Premiere Pro 2021 v15.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2021Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C42A5B423D5FA37F21E8A56792B421724E94C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455837   (1025346) от 20.03.2021
 
 Adobe Acrobat Pro DC v21.001.20145 [Multi/Ru]
@@ -672,35 +698,6 @@ Ashnikko - Hi, It's Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D77754C838D96B43CDC48D0FBA280E738CF44D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456126   (1025107) от 22.03.2021
-
-Iamjakehill - Autumn Gloom (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Trap, Alternative R&B>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Gloom (3:31)
-02. All Along (3:10)
-03. This War (3:10)
-04. Use Me, Haunt Me (feat. sim bex) (3:56)(   Читать дальше...   )Жанр: Hip-Hop, Trap, Alternative R&BПродолжительность: 00:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8EBA4B029D26307D6E9943C76D0FAEC7C3DA28
 ```
 
 https://mybot314.ru/tekegram_catalog/

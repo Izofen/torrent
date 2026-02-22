@@ -1,3 +1,175 @@
+###  Публикация: 1461760   (1021538) от 11.04.2021
+
+Эдвард Григ - Пер Гюнт (1967) БСО Всесоюзного Радио, дир. Г. Рождественский [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пер Гюнт. Сюита N1, соч.46.
+A1 Утро / Dawn
+A2 Смерть Озе / Death Of Ase
+A3 Танец Анитры / Anitras's Dance(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A67462BC9BE8EFDE94623495A684805E25CF81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463635   (1020248) от 19.04.2021
+
+Гарри Гродберг, орган - И. С. Бах. Токкаты (1989) 1971 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020248.jpg" />
+</div>
+
+
+###  Подробнее
+
+И. С. Бах (1685 - 1750)
+A1 Токката Ре Минор, B.565 / Toccata And Fugue In D Minor, S. 565
+Токката До Мажор, В.564 / Toccata, Adagio And Fugue In C, S. 564
+A2.1 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F44E0BE346DD97196F02438510A01DA24385EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463610   (1020216) от 19.04.2021
+
+И. С. Бах - Искусство Фуги. Московский Камерный Оркестр, дир. Р. Баршай (1984) 1972 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020216.jpg" />
+</div>
+
+
+###  Подробнее
+
+И. С. Бах (1685 - 1750)
+A1 Contrapunctus 1 (No. 1)
+A2 Contrapunctus 2 (No. 2)
+A3 Contrapunctus 3 (No. 3)(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E03C8D4C8E31BD6103BB2013F47BB16FDB38C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463658   (1019903) от 21.04.2021
+
+Кино - 45 (2021) Reissue 1982, AnTrop [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Post-Punk, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальная Версия
+01. Время есть, а денег нет (4:12)
+02. Алюминиевые огурцы (3:10)
+03. Бездельник №1 (3:15)(   Читать дальше...   )Жанр: New Wave, Post-Punk, AcousticПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C75194C4C43E1B67A1ECEC93AA87BFF5D0407E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464927   (1019454) от 24.04.2021
+
+Andy White - Himself (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019454.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In A Groovy Kind Of Way
+A2 1000000 Miles
+A3 Six String Street
+A4 Freeze-out(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A368D7970F9441F2D9960A3C6F1EE279A0BB38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477469   (1010961) от 15.06.2021
+
+Late - Saw, Sine, Square / Voices From The Night (2009) Disfigured Dubz [FLAC 2.0|96/24|tracks|Vinyl] <Dubstep, UK Garage>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saw, Sine, Square (07:00)
+ 02. Voices From The Night (05:11)Жанр: Dubstep, UK GarageПродолжительность: 00:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4EA71509EE4AD523827D514A747D8E284248C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478367   (1010281) от 19.06.2021
 
 Хелен Меррилл/Helen Merrill - Песни Р. Роджерса и О. Хаммерштейна (1985) Запись 1982 г. [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
@@ -587,213 +759,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04EDE047D20A25C8D40C182E5528C885AD093370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602537   (997489) от 13.01.2013
-
-Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemporary Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Changes Everything (5:04)
-02. Girls Just Want to Have Fun (3:57)
-03. When You Were Mine (5:05)
-04. Time After Time (4:01)
-05. She Bop (3:51)
-06. All Through the Night (4:31)
-07. Witness (3:39)
-08. I'll Kiss You (4:11)
-09. He's Son Unusual (0:46)
-10. Yeah Yeah (3:13)Жанр: Contemporary Pop/RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603794   (996913) от 15.01.2013
-
-Гражданская Оборона - Звездопад (2011) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Post-punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996913.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Песня Красноармейца 2:37
-A2. Песня О Циркаче 2:40
-A3. На Дальней Станции Сойду 4:28
-A4. Шла Война 3:09
-A5. Звездопад 2:58
-B1. Ветер Северный 2:08
-B2. Город Детства 5:07
-B3. На Всю Оставшуюся Жизнь 3:06
-B4. Слово - Товарищ 2:51
-B5. Каравелла 2:54(   Читать дальше...   )Жанр: Post-punkПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600F9F1D454EA5A2F649A031DFD80B2D7DB585E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603416   (996893) от 15.01.2013
-
-Наутилус Помпилиус (Nautilus Pompilius) - Чужая земля (1992) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996893.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Монгольская Степь 5:10
-A2. Эти Реки 3:04
-A3. Иван Человеков 4:33
-A4. Чистый Бес 4:46
-A5. Чужая Земля 4:08
-B1. Прогулки По Воде 3:48
-B2. Бесы 5:00
-B3. Морской Змей 4:21
-B4. На Берегу Безымянной Реки 4:16
-B5. Летучая Мышь 5:05Жанр: RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E903C8D6A94FB68D5462FB08FA40F9A13A0AE782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603819   (996860) от 15.01.2013
-
-Наутилус Помпилиус (Nautilus Pompilius) - 2 альбома (1986-1988) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996860.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Скованные 4:28
-A2. Князь Тишины 3:42
-A3. Взгляд С Экрана 4:34
-A4. Стриптиз 4:58
-B1. Доктор Твоего Тела 4:45
-B2. Я Хочу Быть С Тобой 4:30
-B3. Казанова 4:11
-B4. Шар Цвета Хаки 2:46
-B5. Прощальное Письмо 3:48Жанр: RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FC04D141D1463E32E63C82F8395E070280BE24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599817   (996846) от 15.01.2013
-
-Ария - 3 альбома (1987-1991) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996846.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Прощай, Норфолк! 5:20
-A2. Зомби 4:32
-A3. Антихрист 5:08
-A4. Не Хочешь, Не Верь Мне 4:00
-B1. Кровь За Кровь 7:43
-B2. Бесы 3:22
-B3. Всё, Что Было 5:15
-B4. Следуй За Мной! 4:40Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605460   (995507) от 20.01.2013
-
-Борис Гребенщиков - Русский альбом (1992) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995507.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Архистратиг 1:14
-A2. Никита Рязанский 2:41
-A3. Государыня 3:07
-A4. Ласточка 3:53
-A5. Волки И Вороны 8:12
-B1. Заповедная Песня 3:07
-B2. Сирин Алконост Гамаюн 4:02
-B3. Кони Беспредела 6:04
-B4. Елизавета 3:00
-B5. Бурлак 4:09(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB9234807F15B44A4C3BBE0736860F9F71F35496
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1754367   (40858) от 09.10.2024
+
+Paul McCartney & Wings – Red Rose Speedway (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Barn Bed
+02. My Love
+03. Get on the Right Thing
+04. One More Kiss(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CCF1E7D64FB7E5E7F68FE8740BD0671BD55A515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754363   (40857) от 09.10.2024
 
 Paul And Linda McCartney - Ram (1971) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop, Rock>
@@ -716,35 +745,6 @@ Lara Fabian - Je suis La (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73EDDDF8DB7B111175DA1E4AEE3322218D9F4689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763548   (35434) от 02.12.2024
-
-Taylor Dayne - Greatest Hits (1995) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <House, Electro, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say a Prayer (Morales mix) (4:00)
-02. Tell It to My Heart (3:40)
-03. I'll Always Love You (4:20)
-04. Can't Get Enough of Your Love (4:27)(   Читать дальше...   )Жанр: House, Electro, Synth-popПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715EC4072F786E820B473D12CAC9F2F4464EEFFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

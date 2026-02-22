@@ -1,3 +1,32 @@
+###  Публикация: 1615584   (1037547) от 26.02.2023
+
+Ken Hensley - Past & Present (Songs In Time): A Ken Hensley Anthology 1972-2021 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037547.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. When
+02. Inside the Mystery
+03. New York(   Читать дальше...   )Жанр: Rock, Hard Rock |Продолжительность: 05:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6921CB811330DB1B8297E216ED32A4D42AE6B4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441908   (1037200) от 23.01.2021
 
 W.E.T. - Retransmission (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -716,35 +745,6 @@ CD - 1 -  The Many Faces Of Def Leppard:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E15C6B3A7665AED6EDE25297A98C2C3A5437A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619317   (1033212) от 15.03.2023
-
-Vilivant - Running On Empty (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In My Life [00:03:32]
-02. Moving Forward [00:02:47]
-03. Running on Empty [00:03:11]
-04. Comatose [00:03:32](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1A806F48FCE024414382E8FC636CC3C5FE3B93
 ```
 
 https://mybot314.ru/tekegram_catalog/

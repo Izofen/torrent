@@ -1,3 +1,108 @@
+###  Публикация: 178073   (927954) от 23.02.2010
+
+Robert Lucas - Layaway (1994) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. If You Don't Want Me [04:02]
+02. 300 Pounds Of Joy [05:05]
+03. Baby Please Don't Go [02:27]
+04. Chiropractor Blues [05:14]
+05. Never Trust Your Love Again [02:17]
+06. Long Train Coming [09:21]
+07. Cinderella Blue [03:40]
+08. Trust Me [04:11]
+09. High Priced Baby [03:32]
+10. If You Don't Want Me [04:55]Жанр: BluesПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177448   (927951) от 23.02.2010
+
+Anubian Lights - 2 Albums (2001, 2005) [FLAC|Lossless]<Jazzdance, ElectroJazz, Big Beat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Winter (3:39)
+02. Bhajan (4:56)
+03. Way Gone Man (3:47)
+04. Andromeda Skin (3:22)
+05. Sargasso Sea (3:51)
+06. New Wildlife (4:13)
+07. Thru the Wire (3:27)
+08. Shine (4:08)
+09. Black Line Station (3:46)
+10. Ultraviolet (3:04)(   Читать дальше...)Жанр: Jazzdance, ElectroJazz, Big Beat
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177315   (927949) от 23.02.2010
+
+Double Trouble - Been A Long Time (2001) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Cry Sky (5:16)
+2. Turn Towards the Mirror (4:25)
+3. Say One Thing (4:05)
+4. Rock and Roll (3:07)
+5. Skyscraper (4:27)
+6. In the Middle of the Night (3:05)
+7. She's All Right (5:22)
+8. Groundhog Day (3:57)
+9. In the Garden (3:43)
+10. Baby, There's No One Like You (5:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 176919   (927946) от 23.02.2010
 
 Bob James - In Hi-Fi (2003) (Audio.Fidelity.AFZ.009.SACD) [WavPack|Lossless]<Smooth Jazz>
@@ -697,94 +802,6 @@ VA - Simply Late Night Jazz (2008) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0D0B2B01CC6A4ECC23E1D5EA2348A23D8AF711D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488961   (927039) от 15.08.2021
-
-Mojo Radio - 2 albums (2011-2013) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mojo Radio - блюз-рок группа из Висконсина, США. Четверка парней стремится открыть новый подход к музыке,
-исполняя тяжелый, олдскульный блюз-рок, сделав акцент на своих героев ретро-70-х, с явно заметным оттенком южного американского рока, используя техасский звук, больше Point Blank, чем ZZ Top, Humble Pie и много Free, the Rival Sons и Blindside Blues Band.--------------------------
-
-01. Torn Asunder (4:31)
-02. Death Of Me (4:55)(   Читать дальше...   )Жанр: Blues Rock |Продолжительность: 01:48:13 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E14B2BBDB600AB0C9987F4FF0A16B89145B5FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095165   (926299) от 20.01.2017
-
-Ray Bryant - Alone With the Blues (1958) 1996, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues #3 [7:15]
-02. Joy (Blues #2) [3:59]
-03. Lover Man (Oh, Where Can You Be?) [3:52]
-04. Me and The Blues (Blues #1) [5:00](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB79FCBCC589BF16C0C42EF98859B9F67615BB48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987434   (926291) от 17.02.2016
-
-The Dave Bailey Sextet - Gettin' Into Somethin' (1960) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Slop Jah [07:44]
- 02.Little Old Mongoose [06:27]
- 03.Evad Smurd [03:49]
- 04.Blues For J. P. [17:13]Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963081A4943DEDF5BA763E90A62D55ACB32A6458
 ```
 
 https://mybot314.ru/tekegram_catalog/

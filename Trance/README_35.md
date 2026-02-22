@@ -1,3 +1,32 @@
+###  Публикация: 1259011   (333028) от 01.11.2018
+
+VA - Richard Durand – The Air We Breathe (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geert Huinink & Richard Durand – Insolidus (Intro Mix)
+02. Richard Durand – The Air I Breathe (Original Mix)
+03. Richard Durand – Land of Angels (Original Mix)
+04. Richard Durand & Mike Schmid – Kill the Fear (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90788A6D7C4FDC224D33E447F83F3D986538C0EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331346   (332972) от 14.10.2019
 
 VA - Sublime Trance Vol. 05 (2019) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Total Trance Selections Vol. 07 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:177BAFBDEAAA2245890DA53141FC20B9F5A6F17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182362   (317163) от 10.11.2017
-
-VA - Grotesque Reworked & Remixed - (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JES – People Will Go (M.I.K.E. Push Remix)
-02. DJ Ton T.B. – Dream Machine (Factor B's Back To The Future Remix)
-03. Salt Tank – Eugina (Ciaran McAuley Remix)
-04. Mr. Sam – Lyteo (Stoneface & Terminal Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D570BF4253731BC811A05CA7F5152A479A5E4B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

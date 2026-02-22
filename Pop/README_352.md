@@ -1,3 +1,90 @@
+###  Публикация: 1730308   (53222) от 15.06.2024
+
+VA - Sabadell Sound 2 - The Ultimate Collection (2024) 2xCD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53222.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Closed - Crazy Love 6:32
+02. Azul Y Negro - The Night 6:10
+03. David Lyme - Let's Go To Sitges 4:47(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 02:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26716355D07E25FFF794440A0D512BA1CFC2F602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139276   (53163) от 16.06.2024
+
+Francoise Hardy - The Real... Francoise Hardy (2016) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Tous Les Garcons Et Les Filles
+2. Oh, Oh Cheri
+3. Je Suis D'Accord(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9A30A0A5079CAD2BC9F8F01DBF272468301A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730806   (53000) от 17.06.2024
+
+VA - DJ Hits Vol. 58 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Decade - Is This A Dream (Radio Edit)
+02. Love Station - Love Come Rescue Me (Love Station 7inch Edit)
+03. Bombayblue - Wonderwall (Bombay Mix)
+04. DC Tools - Take My Heart (Radio Version)(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69747A698E9A38B7E569C7468F8D14412FFC0EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730816   (52990) от 17.06.2024
 
 Venise - The Body Trip (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -656,93 +743,6 @@ Victoria Nordmann - Best Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:317B3F2F27EFF6A6ED36F63CEF25DB827E9F3B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737322   (49703) от 17.07.2024
-
-VA - 80s Mixtape (The Ultimate Collection) (2017) Box Set: 5CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Jazz, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human League - Don't You Want Me
-02. Abc - The Look Of Love (Part 1)
-03. Blondie - Heart Of Glass
-04. Kurtis Blow - The Breaks(   Читать дальше...   )Жанр: Electronic, Pop, Jazz, RockПродолжительность: 06:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3122CF91D32D5EA974ACF16CDF6CF5C927219EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737568   (49613) от 18.07.2024
-
-Marc Almond - I'm Not Anyone (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m the Light
-02. Reflections of My Life
-03. Gone with the Wind (Is My Love)
-04. I Talk to the Wind (feat. Ian Anderson)(   Читать дальше...   )Жанр: Indie Pop, SynthpopПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9D5E1E351D8ACC73CB7FD03C81591ADEB67C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737679   (49521) от 19.07.2024
-
-SEREBRO - 11 (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49521.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love Song
-2. Сладко
-3. Не время
-4. Давай держаться за руки(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE582789CD377E0AD5A28D682C03FB38A94A4002
 ```
 
 https://mybot314.ru/tekegram_catalog/

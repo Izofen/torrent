@@ -1,3 +1,90 @@
+###  Публикация: 1335340   (287544) от 02.11.2019
+
+Lana Del Rey - Norman Fucking Rockwell! - 2019 (Japan) (2019) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norman Fucking Rockwell [04:08]
+02. Mariners Apartment Complex [04:07]
+03. Venice bitch [09:37]
+04. Fuck It I Love You [03:38](   Читать дальше...   )Жанр: PopПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B78A5CD76071BE4D016EC125FB99CF596298744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963387   (287443) от 08.12.2015
+
+Five - Invincible (2000) Special Edition [FLAC|tracks+.cue]<Pop Rap, Ballad, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Ya Gettin Down (Live) (3:12)
+02. Keep On Movin' (Live) (4:01)
+03. Don't Wanna Let You Go (Live) (2:55)
+04. Everybody Get Up (Live) (3:41)(   Читать дальше...   )Жанр: Pop Rap, Ballad, EuropopПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5597C9708B5CBF544F90F9BA3927013C6896570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335379   (287358) от 02.11.2019
+
+Ace Of Base - Gold (2019) 3CD [FLAC|Lossless|image + .cue] <Synth-Pop, Euro Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287358.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. The Sign (3:11)
+2. All That She Wants (3:32)
+3. Wheel Of Fortune (3:42)(   Читать дальше...   )Жанр: Synth-Pop, Euro PopПродолжительность: 02:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF69B5CC2CFDAEB65ADE6CCD6BDD7650E0F33AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080881   (286548) от 08.12.2016
 
 Nicole Millar - [communication] (2016) EP [MP3|320 Kbps] <Alternative Pop, Indie Dream Pop, Electronic>
@@ -653,93 +740,6 @@ VA - Танцевальный рай: Only Hits (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4688AC9BECF58A151F032E961D357072029F8F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335895   (284402) от 04.11.2019
-
-VA - Space Sound Records Presents: Italo Euro Disco Vol. 1 (2010) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirko Hirsch - Fire (Long Version) (7:08)
-02. Galaxy Hunter - Running High (4:24)
-03. Retronic Voice - Menace To Society (5:08)
-04. Tiziana Rivale - Take Me In Your Arms (3:56)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45968B7D217E21709D37719678877EDEBCB1F95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335844   (284391) от 04.11.2019
-
-Celine Dion - Courage (Deluxe Edition) (2019) Scene [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying On My Own
-02. Lovers Never Die
-03. Falling In Love Again
-04. Lying Down(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B326C72A89ED730A8754DD2D7E746C6D228E306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264002   (284359) от 21.11.2018
-
-VA - Romantic Easy Listening (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal Jazz, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Valli - Can't Take My Eyes Off You
-02. Shirley Bassey - (Where Do I Begin) Love Story
-03. Fred Astaire - My Eyes Adored You
-04. Vera Lynn - Besame Mucho (Kiss Me)(   Читать дальше...   )Жанр: Pop, Vocal Jazz, Easy ListeningПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC4DFEB769746577FCCE5D255EE20141468B106
 ```
 
 https://mybot314.ru/tekegram_catalog/

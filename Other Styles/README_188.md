@@ -1,3 +1,32 @@
+###  Публикация: 1822104   (94498) от 05.10.2025
+
+VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania, Alexander Barabash - Bedouin (Original Mix) (6:49)
+02. Ertunç Şenbay, Tibetania - Ancient Phokaia (Original Mix) (5:20)
+03. Antonello D'Arrigo, Alessio Serra, Tibetania - Organica (Original Mix) (6:48)
+04. Inkwall, Kintero Guzman, Tibetania - Eterno (Original Mix) (5:50)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1ACD7FE87F3D8E707FC61B06F36763905F5F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 456541   (94198) от 23.02.2012
 
 Ayman, Hisham, Mars Lasar - A Whisper Across The Sand (1999) [MP3|320 кб/с]<New Age, Contemporary Instrumental>
@@ -840,41 +869,6 @@ https://mybot314.ru/tekegram_catalog/
 08. Yingele Nit Vain
 09. Rumeine
 10. Wie Nemt Men A Byssele(   Читать дальше...   )2002Жанр: JewishПродолжительность: 01:59:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480813   (87539) от 10.04.2012
-
-Тамара Церетели - Романсы и таборные песни (2001) [FLAC|Lossless]<Романсы>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Полно, сокол, не грусти
- 02. Отрада
- 03. Звездочка
- 04. Когда Вас нет
- 05. Гитарный перебор
- 06. Нет, не любил он
- 07. Любовь
- 08. Измены нет
- 09. Никому не рассказывай
- 10. Вернись(   Читать дальше...   )2001Жанр: РомансыПродолжительность: 00:51:18
 
 ## Скачать торент
 ```bash

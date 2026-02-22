@@ -1,3 +1,32 @@
+###  Публикация: 1264870   (277712) от 25.11.2018
+
+Virgin Steele - The Book of Burning (2018) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Conjurtion of the Watcher 4:24
+02.Don't Say Goodbye (Tonight) 4:43
+03.Rain of Fire 6:27
+04.Annihilation 1:05(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792E3925DEF17598CB193E6EA7435192DAD993C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187242   (277141) от 30.11.2017
 
 Morbid Angel - Kingdoms Disdained (2017) [MP3|320 Kbps] <Death Metal>
@@ -716,35 +745,6 @@ Opera IX - The Gospel (2018) [MP3|320 Kbps] <Symphonic Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBA4A5FEFC1438BE9404B2576B3A6EDFF3ED6A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339657   (265358) от 20.11.2019
-
-Mustasch - Killing It For Life (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Where Angels Fear To Tread (Album Version) [4:08]
- 2 - Ransacker [5:13]
- 3 - Before A Grave [5:06]
- 4 - Freddie Mercury [4:53](   Читать дальше...   )Жанр: Heavy Metal, Stoner MetalПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD3E002AD2CB4D7C9F714F9CE96F1EB3946E7A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

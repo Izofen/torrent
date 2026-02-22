@@ -1,3 +1,119 @@
+###  Публикация: 1477182   (1010807) от 16.06.2021
+
+Sophie Ellis‐Bextor - Trip the Light Fantastic (2007) [FLAC|Lossless|tracks + .cue] <Europop, Electro, Synth-pop >
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catch You (radio version)
+ 02. Me and My Imagination
+ 03. Today the Sun’s on Us
+ 04. New York City Lights(   Читать дальше...   )Жанр: Europop, Electro, Synth-popПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58457BDDB126A785DA8B748B38B313DF1F8F30E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477959   (1010663) от 17.06.2021
+
+VA - Vaccine of Sadness (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Rodrigo - drivers license (04:02)
+02. Lewis Capaldi - Someone You Loved (03:02)
+03. Maroon 5 - Sad (03:14)
+04. Lady Gaga - Dope (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2675A0334D5A744A1653DE73D56D29E81B9AF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478439   (1010347) от 19.06.2021
+
+VA - Главные Белоруские хиты-Весна 02 (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Елена Гришанова - Быстро-быстро
+02. Topless - Падали звёзды
+03. Алексей Хлестов - Потому что люблю
+04. Черника - Лабирин(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A576C5FBCB869B4E71B731D3B968A78434D3559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478588   (1010195) от 20.06.2021
+
+VA - Goodbye My Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marshmello - Leave Before You Love Me (02:35)
+02. Katy Perry - The One That Got Away (03:47)
+03. Maroon 5 - Beautiful Goodbye (04:15)
+04. Lewis Capaldi - Before You Go (03:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D968EDED87421EF4C0015B1462CD4BADE890D66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478646   (1010192) от 20.06.2021
 
 VA - Acoustic Summer 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ Estrak Lancios - Cosmopolitan Wave (1979) LP [MP3|320 Kbps] <Electronic, Leftfie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B53557F84FBF239610B83B40DF21371E6D97C394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482019   (1007906) от 06.07.2021
-
-Tata Vega - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тата Вега (урожденная Кармен Роза Вега 7 октября 1951 года на Ямайке, Куинс, Лонг-Айленд,Нью-Йорк) - вокалистка, чья карьера охватывает театр, кино и различные музыкальные жанры.01. Come On And Try My Love (3:26)
-02. I Need You Now (3:35)
-03. Get It Up For Love (6:09)
-04. If Love Must Go (4:12)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20223ADFC432666EA4BB37BF3DB608A89DFEA2C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482267   (1007768) от 07.07.2021
-
-Brass Construction - Attitudes (1982) Remaster, 2010,  Think! Records [FLAC|Lossless|tracks + .cue] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007768.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Can You See The Light 5:18
-2 Funtimes 4:51
-3 Attitude 6:43
-4 Do That Thang 5:31(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5DB8C25A14088BA5EE0CBA440CC6B34FF84127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482401   (1007587) от 08.07.2021
-
-ABBA - International (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ring Ring (German Version) (03:10)
-2. Intermezzo No. 1 (03:46)
-3. Waterloo (French Version) (02:44)
-4. Take A Chance On Me (04:24)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7CEE710F1A8BE86EF9138F481A904B137E9372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483360   (1006882) от 13.07.2021
-
-VA - Beautiful and Chilled Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Devon Seyward, Thom Cooper - Flume (Acoustic Version) (3:01)
-2. Joanie Loves Chachi - (Nice Dream) (3:23)
-3. Thom Cooper - Your Power (3:59)
-4. Charlie Blue Skies - Songbird (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8FAEFE9A616ABDBF3A4216C047C6E485F8374A
 ```
 
 https://mybot314.ru/tekegram_catalog/

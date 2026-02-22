@@ -1,3 +1,61 @@
+###  Публикация: 1222943   (968696) от 08.02.2020
+
+Tell - Discography 6 Releases (2014-2018) [FLAC|Lossless|tracks] <Deep House, House, Downtempo, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Lost 200€ In A Club (04:23)
+ 02. Cool Bananas (Stringmix) (04:45)
+ 03. Starry Night (05:56)
+ 04. Camel Ride (07:21)Тип издания: Web, VinylЖанр: House/Deep HouseПродолжительность: 03:00:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4196E94AF6C57214E1C7A3432234BD6D4E6F6BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358836   (967417) от 09.02.2020
+
+P. Laoss | P.Laoss - Discography 7 Releases (2009-2014) Hizou, Somnia, Pronounce, Instabil [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rephrasing Dub (06:07)
+ 02. I Don't Care (Federsen Remix) (07:53)
+ 03. I Don't Care (06:40)
+ 04. Never Thought (07:11)Тип издания: CD, Web, VinylЖанр: Techno/Dub Techno/Deep House/Tech HouseПродолжительность: 03:42:03 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF8AB3544C49BD1936DC943B2D517D8CF14F6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149234   (967174) от 09.02.2020
 
 Textural Being - Discography 14 Releases (2010-2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
@@ -683,64 +741,6 @@ VA - Anthems II 1991-2009 (2008) 3CD Mixed [FLAC|Lossless|tracks + .cue] <House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82F2129D470664D663554C3456C4A70DC00CD030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092305   (940246) от 11.01.2017
-
-VA - Nu-Discoteque (Finest Nudisco and House) (2017) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Alex Hook - Right Now (feat. Rene) (Original Mix) [05:14]
-02 Dmitrii G - Antidote (Original Mix) [06:05]
-03 Rony Breaker - Something More (feat. Che Cherry) (Deeplomatik Vocal Mix) [06:32]
-04 Jazzyfunk - I Wanna Know (feat. Rene) (Alex Hook Remix) [05:41](   Читать дальше...   )Жанр: HouseПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701CFC253F8CD82D9B64D8FB7C2F2B3AC79FA93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364159   (939609) от 01.03.2020
-
-Cubicolor - Hardly A Day, Hardly A Night (2020) [FLAC|Lossless|tracks + .cue] <Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (3:56)
-02. Rituals (5:05)
-03. All You Needed (4:16)
-04. Melodies (5:02)(   Читать дальше...   )Производство: Anjunadeep – ANJCD077Жанр: Electronic, Deep House, DowntempoПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CEAB02457AAD56F774F855C7F88AB9352BF9F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

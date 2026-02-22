@@ -1,3 +1,32 @@
+###  Публикация: 1029953   (678609) от 28.06.2016
+
+Widow - Carved In Stone (2016) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678609.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Burning Star
+2. Carved In Stone
+3. Another Time And Place
+4. Wisdom(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C322BE181ED2853BD334CA8E7F22537598B67225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536133   (678536) от 10.03.2022
 
 Ghost - Impera (2022) [MP3|320 Kbps] <Heavy Metal>
@@ -728,35 +757,6 @@ Within Temptation - The Heart Of Everything (2007) 4CD, 2022, Special Edition [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:559BD303AB144CDE5B7372EE5EE54469EBAD7994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137193   (668961) от 25.05.2017
-
-Rhapsody of Fire - Legendary Years (2017) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn of Victory
-02. Knightrider of Doom
-03. Flames of Revenge
-04. Beyond the Gates of Infinity(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78F93891CF1B6FFF8BBC06C6507418158DD21DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

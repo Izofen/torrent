@@ -1,3 +1,32 @@
+###  Публикация: 902762   (659611) от 29.05.2015
+
+Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quixotic (Scattle Remix) [03:52]
+02. Dust (Carpenter Brut Remix) [04:59]
+03. Bloodline (M|O|O|N's Extra Cheese Mix) [06:53]
+04. Roller Mobster (Scattle Remix) [03:59](   Читать дальше...   )Жанр: OSTПродолжительность: 03:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4398509BD462B3276C4A74461882B4064D6278E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514207   (659283) от 23.06.2012
 
 VA - Treme: Music From the Original HBO Series Season 2 (2012) [MP3|320 кб/с]<Jazz, Blues, Folk, Soundtrack>
@@ -772,35 +801,6 @@ Catherine Duc - Voyager (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A91698AC1D8518029B58D861F98B82B25C04AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031468   (651807) от 04.07.2016
-
-Paul Sills - Night Spa (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Space [00:18:02]
-02. Angelic Whispers [00:11:14]
-03. Lit by Stars [00:12:35]
-04. Floating Spa [00:12:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F834A88065C4083719463A607C451BF6CCE69EE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

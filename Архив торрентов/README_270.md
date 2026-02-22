@@ -1,3 +1,38 @@
+###  Публикация: 598617   (999464) от 06.01.2013
+
+M.PRAVDA - Live in Motion 101 (16.07.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. ARS - Wonderwork (LTN Remix)
+2. Basil O'Glue - Dropout
+3. Alex Pich, Shinobi, Julius Beat - Satisfaction Love (Willem De Roo Remix)
+4. Johnny Yono - Break These Chains
+5. Neev Kennedy - A Bridge (DNS Project remix)
+6. Maarten De Jong - Raw
+7. Redstar - The Problem (Mike Shiver Remix)
+8. Alan Morris and Sequentia - Blind
+9. Mr.Pit - River of Hearts (Ben Gold remix)
+10. Andrew Rayel - Aeon of RevengeЖанр: Progressive Trance, TranceПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97563897FCE19DEB6D1289594D5F46DDB34E00EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598879   (999463) от 06.01.2013
 
 M.PRAVDA - Live in Motion 095 (05.05.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
@@ -760,32 +795,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:707989E3C14D64CFD51743484D3FA589045A52CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599428   (999431) от 06.01.2013
-
-Фотография - Фотограф Anna Bodnar
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Anna BodnarРазрешение файлов: ~ 800x800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D74910BDFB314D0396031F0F1EBAFC15AD8ADE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

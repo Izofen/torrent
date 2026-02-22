@@ -1,3 +1,185 @@
+###  Публикация: 1791680   (21322) от 15.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Christmas Bokeh and Glitter Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с рождественским боке и блестящей текстуройФормат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EE933A922FB13F46CDFA982D8C7C052BC10E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791694   (21320) от 15.04.2025
+
+Текстуры - Creative Store - Creative Fabrica - Modern Mid Century Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с разрешением 300 DPI.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830CBA60A44EBD421ED46A1641E6D63DA607E04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791695   (21318) от 15.04.2025
+
+Фоны - STCrafts - Creative Fabrica - Eastern Enchantment Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очарование востока на цифровом бумажном фоне.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95676AAD28BEEC53DE5E78DA1CCD42909C4055FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791692   (21313) от 15.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Overgrown Brick Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с заросшей кирпичной текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF6BD768491EC7E71BEB0FE08B5D130B4F26606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791700   (21312) от 15.04.2025
+
+Паттерны - Creative Fabrica - Abstract Boho Festive Mandala Seamless 6 [JPG, PNG, EPS, SVG, PDF, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абстрактная праздничная мандала в стиле бохо - бесшовная.Формат: JPG, PNG, EPS, SVG, PDF, AIРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DABC5E721B7B3D1B3DD84022E085FFBEF2439A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791671   (21309) от 15.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Winter Night Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с текстурой зимней ночи.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFACA9EC1285B97C40C8A547DD393179CACCCACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791697   (21306) от 15.04.2025
+
+Растровый клипарт - Designworld - Creative Fabrica - Cute Tropical Animal Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображением тропических животных.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B791680DF35FD53F84A0540A9A7131AA59729AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791889   (21261) от 16.04.2025
 
 Текстуры - STCrafts - Creative Fabrica - Luxury Emerald Green Texture Digital Paper [PNG]
@@ -486,190 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96CBC09A04ED24B17DDBFF0464FDCC884B075C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793094   (20595) от 22.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Pastel Mixed Media Flowers Digital Paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с цветами в пастельных тонах.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D97B0AB032A238097772F06FC350CE4A334AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793159   (20593) от 22.04.2025
-
-Растровый клипарт - Moonlight Creations - Creative Fabrica - Gold Treasure Sea - Digital Paper [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровые листы дамасской бумаги в оттенках, они напоминают винтажные обои с полосками и разводами.Формат: JPGРазрешение файлов: 2550 x 3300
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A191D44A71253A6FF0C21F8DF7FA4F589ACA7080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793162   (20592) от 22.04.2025
-
-Паттерны - Creative Fabrica - Geometric Colorful Festive Vector Tiles [JPG, PNG, SVG, PDF, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Геометрическая, красочная, праздничная векторная графика из плиток в векторе и растре. Идеально подходит для создания проектов в области скрапбукинга, изготовления всех видов поделок.Формат: JPG, PNG, SVG, PDF, EPSРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57B957B2A76D4F226DE3024D56FCA0D10D12FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793098   (20587) от 22.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Galaxy Shimmer Celestial Texture Digital [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с изображениями мерцающей галактики в небе.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F525BC28DAD0CA8E4DFEFB8D4BD4EBE979B6ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793167   (20581) от 22.04.2025
-
-Фоны - Behance - Luxury Polygon Backgrounds - 193679017 [AI, EPS10, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные абстрактные геометрические фоны в векторе и растре.
-Материал раздаётся с официальной документацией.Формат: AI, EPS10, JPGРазрешение файлов: 5000 × 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEAD9A56979BEDBCEACAACA32F75EB371C47A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793179   (20483) от 23.04.2025
-
-Текстуры - themefire pro - Behance - Winter Snowflakes Frame Textures - 188769903 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные текстуры со снежинками. Сгенерировано ИИ.
-Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 5000 × 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312730C4C4A274CC8C42C1D50A1DD0AEB982F469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793178   (20470) от 23.04.2025
-
-Фоны - M graphiics - Behance - GOLD & BLACK ABSTRACT HD BACKGROUNDS - 175505851 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные чёрно-золотые абстрактные фоны. Сгенерировано ИИ.Формат: PSDРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC7A0677687B49F5CA3C7B7D88A6D1B4800F58E
 ```
 
 https://mybot314.ru/tekegram_catalog/

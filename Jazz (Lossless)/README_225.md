@@ -1,3 +1,32 @@
+###  Публикация: 951492   (363664) от 29.10.2015
+
+Nat King Cole Trio - Live at the Circle Room & More (1946/1949) /1999, Definitive Records/[FLAC|tracks+.cue]<Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Opening Theme [00:40]
+ 02.Oh, But I Do [02:58]
+ 03.I'm Thru With Love [03:11]
+ 04.'C' Jam Blues [03:50](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F109A2A49EA46F9EDCACDD9F81365E650B03564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328487   (363604) от 30.09.2019
 
 John Coltrane - Blue World (1960-е) 2019, Impulse! [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
@@ -714,35 +743,6 @@ Paul Hardcastle - The Chill Lounge  volume 2 (2013) [FLAC|Lossless]<Chillout / L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82921A4D37919D42405B9E12B0F5643FB3C55D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256032   (359278) от 20.10.2018
-
-Don Byas - Complete American Small Group Recordings (1944 - 1946) 4CD, 2001, Definitive Records [APE|Lossless|image + .cue] <Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359278.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Riffin' and Jivin' [2:57]
-02. Free and Easy [2:52]
-03. Worried 'N Blue [3:15](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 04:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F42E94EC9137C85FEB203F287FA0520A60BF57
 ```
 
 https://mybot314.ru/tekegram_catalog/

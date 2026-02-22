@@ -1,3 +1,38 @@
+###  Публикация: 432453   (990966) от 06.01.2012
+
+Dean Martin - Cool Then, Cool Now (2011) [FLAC|Lossless]<Vocal Jazz, Swing, Easy Listening, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't That a Kick in the Head (2:38)
+02. Sway (2:43)
+03. Mambo Italiano (2:20)
+04. Volare (3:00)
+05. Little Ole Wine Drinker Me (2:48)
+06. Please Don't Talk About Me When I'm Gone (2:32)
+07. I'm Sitting on the Top of the World (2:12)
+08. Bumming Around (2:43)
+09. (Open Up the Door) Let the Good Times In (3:20)
+10. L.A. Is My Home (3:04)(   Читать дальше...   )2011Жанр: Vocal Jazz, Swing, Easy Listening, LoungeПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 162242   (990938) от 02.01.2010
 
 Romantic Saxophone Quintet - Dinner Music (2005) [FLAC|Lossless]<Jazz, Instrumental, Easy Listening, Romantic, Cover>
@@ -783,35 +818,6 @@ McCoy Tyner - Nights Of Ballads & Blues (1963) 2000, ADA Sound Ltd.[FLAC|tracks+
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FDB6209211FF0291B7D68B259D972EA5AFDEDDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971283   (987547) от 02.01.2016
-
-Joe Farrell-Louis Hayes Quartet - Vim 'n' Vigor (1983) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Arab Arab [09:59]
- 02.Besame Mucho [07:25]
- 03.Three Little Words [07:04]
- 04.Miles Mode [07:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363D8988250CD26C3CBBF14BA3097D8FAC10023A
 ```
 
 https://mybot314.ru/tekegram_catalog/

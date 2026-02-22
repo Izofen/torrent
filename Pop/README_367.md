@@ -1,3 +1,90 @@
+###  Публикация: 1797684   (17970) от 17.05.2025
+
+VA - 50s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Little Anthony & The Imperials - Tears on My Pillow [00:02:19]
+02 - Cliff Richard - Livin' Lovin' Doll (1997 Remaster) [00:02:07]
+03 - Frankie Lymon & The Teenagers - Who Put the Bomp (In the Bomp Bomp Bomp) [00:02:59]
+04 - Ray Charles - What'd I Say, Pt. 1 & 2 [00:05:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3376696C6E4FB2FE74355BD3CC82B16DE2DA5173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797687   (17867) от 18.05.2025
+
+VA - 50s Best Hits (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Little Anthony & The Imperials - Tears on My Pillow [00:02:19]
+02 - Cliff Richard - Livin' Lovin' Doll (1997 Remaster) [00:02:07]
+03 - Frankie Lymon & The Teenagers - Who Put the Bomp (In the Bomp Bomp Bomp) [00:02:59]
+04 - Ray Charles - What'd I Say, Pt. 1 & 2 [00:05:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31979AEA2D822D14450325649FB25CB27588185A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797923   (17796) от 19.05.2025
+
+Денис Майданов - Патриотические песни. часть 2 (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Это мой бой [00:03:59]
+02 - Верность [00:03:51]
+03 - ВДВ [00:03:41]
+04 - Тишина [00:04:33](   Читать дальше...   )Жанр: PopПродолжительность: 02:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1729C56551578C1F3EE1A35469797DC0CAFE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810123   (17675) от 02.08.2025
 
 V.A. - Pop Summer Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD9CFB1774FAC3A16C944B0EB7A04EDB43CB1251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801391   (14925) от 11.06.2025
-
-VA - Classic Soul Music (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Solomon Burke - Everybody Needs Somebody to Love [00:02:44]
-02 - CHAKA KHAN - I’m Every Woman [00:04:07]
-03 - Sam & Dave - Soul Man [00:02:36]
-04 - Ben E. King - This Magic Moment [00:02:25](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 02:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F89F883075137BEDA6574A3A32E3B7236D1822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801504   (14924) от 11.06.2025
-
-VA - Some Great 20s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14924.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Benson Boone - Beautiful Things (3:00)
-002. Rose - APT. (2:49)
-003. Teddy Swims - Lose Control (3:30)
-004. Ed Sheeran - Azizam (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 05:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4701B24D3BC0DF5932159596EE89D34A5123E9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801855   (14768) от 13.06.2025
-
-VA - Потанцуй со мной (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Дуэт «Не уходи» - Я буду ждать [00:03:37]
-02 - Виктор Королёв - Ты очень красива [00:04:00]
-03 - Владимир Ждамиров - А ты прости меня [00:04:13]
-04 - Илья Яббаров - Я смотрю в твои глаза [00:03:31](   Читать дальше...   )Жанр: PopПродолжительность: 01:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1332CF7616CBFD8D066413076AD38A06B617ACAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

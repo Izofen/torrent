@@ -1,3 +1,32 @@
+###  Публикация: 834262   (380528) от 24.10.2014
+
+VA - 1980 The Collection (Time Life) (1994) 2CD[FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стоят на полочке несколько дисков из серии Time Life Music. Решил поделиться. Может кто молодость вспомнит.01. Queen - Another One Bites the Dust  (3:38)
+02. Blondie - Call Me  (3:28)
+03. Dr. Hook - Sexy Eyes  (2:58)
+04. KC and The Sunshine Band - Please Don't Go  (3:51)(   Читать дальше...   )Жанр: Pop, Rock, Jazz, ElectronicПродолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62386A6E0EDA77AE362F3C43CEF063D76EC1CBEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949202   (379467) от 22.10.2015
 
 Al Bano & Romina Power - Felicita (1985) Gold Serie [FLAC|image + .cue]<Pop>
@@ -721,35 +750,6 @@ Karel Gott - 42 Nejvetsich Hitu (1991) 2CD, Compilation [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FCB252B68A0B3CCC20BAAACF637B52ABAED8CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417484   (358256) от 20.10.2020
-
-Luv' - Dance medley (1993) [FLAC|Lossless|image + .cue] <Pop, Europop, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358256.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Luv Dance-Medley (Club Edit) - 6:50
-1a -	Luvely
-1b -	You're The Greatest Lover
-1c -	Trojan Horse(   Читать дальше...   )Жанр: Pop, Europop, MedleyПродолжительность: 00:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67040BF1831377C6C4DDBA89E57BF6FA2B375245
 ```
 
 https://mybot314.ru/tekegram_catalog/

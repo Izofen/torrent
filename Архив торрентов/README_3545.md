@@ -1,3 +1,32 @@
+###  Публикация: 1249224   (435980) от 23.09.2018
+
+Bill Wyman's Rhythm Kings - Studio Time (2018) [FLAC|Lossless|image + .cue] <Blues Rock, Roots Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beds Are Burning 4:23
+02. Open The Door 3:20
+03. You're The One 3:01
+04. Going Up The Country 3:08(   Читать дальше...   )Жанр: Blues Rock, Roots RockПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E20FF634E9D83A84B24DCFE879976E3F6AE428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410519   (435978) от 21.09.2020
 
 Wondershare UniConverter 12.0.5.4 (64-bit) Repack by elchupacabra [Multi/Ru]
@@ -654,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B498D2A85D855F9902F5C5718D5409550E46195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 393316   (435760) от 27.09.2011
-
-Журнал | Техника - молодёжи №9 [2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техника молодежи" - сенсации науки и техники, открытия, изобретения, патенты. История техники, футурология, фантастика, оружие, боевая техника. Компьютеры, самоделки и моделизм. Смелые проекты и гипотезы. Антология таинственных случаев. Загадки забытых цивилизаций.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9706D510316EDAB071B4C49040BAD6F7FD73128A
 ```
 
 https://mybot314.ru/tekegram_catalog/

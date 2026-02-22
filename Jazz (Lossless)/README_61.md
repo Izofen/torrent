@@ -1,3 +1,38 @@
+###  Публикация: 643301   (875895) от 13.04.2013
+
+V.A. - Bosa Nova Singers (2007) [FLAC|Lossless]<Jazz, Bossanova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Elis Regina - So Tinha De Ser Com Voce
+02. Luiz Henrique - Mas Que Nada
+03. Sylvia Telles - Manha De Carnaval
+04. Jorge Ben - Oba, La, La
+05. Nara Leao - Berimbau
+06. Lucio Alves - O Barquinho
+07. Quarteto Em Cy & Tamba Trio - Agua De Beber
+08. Chico Feitosa - Fim De Noite
+09. Marcia - Samba Da Pergunta
+10. Edu Lobo & Tamba Trio - Reza(   Читать дальше...   )Жанр: Jazz, BossanovaПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997251   (875830) от 16.03.2016
 
 Scott Henderson, Jeff Berlin, Dennis Chambers - HBC (2012) Mascot Label Group[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
@@ -763,35 +798,6 @@ Barbra Lica - I'm Still Learning (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10FA73AB189092F5C254A665B678E7B635B09327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106303   (873822) от 19.02.2017
-
-Max Greger und sein Orchester - Juke Box Hits (2007) [FLAC|Lossless|tracks + .cue] <Big Band, Smooth, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_873822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  B.-R. Boogie  (02:51) 
-02|  Maxi Rock  (02:16) 
-03|  Rumba Kautschuk  (02:33) 
-04|  Bongo Rock  (02:34) (   Читать дальше...   )Жанр: Big Band, Smooth, InstrumentalПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AC8065C3A553A9F1BEE811C0C5FBABA4ED60BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

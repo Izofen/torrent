@@ -1,3 +1,90 @@
+###  Публикация: 1089271   (950760) от 04.01.2017
+
+VA - 6 Years Of CibiCaldi Records (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandro S - Just My Beat 07:53
+02. Sandro S, Mr Few - Walking On Hands 07:37
+03. Klaudio Greco - Italians Do It Better 05:50
+04. Sandro S - Reset Hall (Ozen Nouse) 07:33(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 04:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF1242F61C1BFB26E6398D7DA4DE9E41B744EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089327   (950712) от 04.01.2017
+
+VA - If House Like To Party (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Maestro - Under A Palm Tree [00:06:24]
+02. Mama Maestro - Baby (Original mix) [00:06:20]
+03. Rousing House - Story House Piano [00:05:50]
+04. Big Bunny - Super Boom (Original mix) [00:05:09](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519E81750EF90AC136D84617AED045024A4A1C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089468   (950700) от 04.01.2017
+
+VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arent & Raxell - Damborola  [6:28]
+02. TimeMoment - Cosmo  [5:51]
+03. SHaRk - Summer Feelings  [5:46]
+04. Grim Mass - In Blizzard  [4:30](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01F819F9C15F5D497EF8989F5AC20320F6213C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 171720   (950358) от 07.02.2010
 
 VA - Hed Kandi: Nu Disco (2010) [MP3|128-192 kbps]<House / Vocal House / Disco House>
@@ -669,105 +756,6 @@ Funky Sister - Music Response: Funk Grooves (2014) [MP3|320 кб/с]<Funky / Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98AC0D09227DE7D2A3574D7E3FCA23BD6A2641F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 627143   (941616) от 07.03.2013
-
-VA - Destination Ocean Drive (Miami Beach Chill-Out Session) (2012) [MP3|320 кб/с]<Downtempo,ChillOut>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. David Tort, Norman Doray - Chase The Sun (Musica Feliz Ibiza Beat remix) (05:02)
-02. Thomas Lemmer - The Beach (Original Version) (03:46)
-03. Ensoul - Clouds (Original Mix) (04:16)
-04. Ingo Herrmann - Beauty of Life (Original Mix) (04:06)
-05. Thomas Lemmer - I Like It (Original Version) (05:35)
-06. Minor Dreamer - D.o.n.t. (Original Mix) (04:29)
-07. Minus Blue - Close Your Eyes (feat. Emma Saville) (05:01)
-08. The Soulful Sun - Loose It (Original Mix) (04:44)
-09. Kevin Place - Sax Trip (Original Mix) (05:42)
-10. Michael E - Be Yourself (Original Version) (04:56)(   Читать дальше...   )Жанр: Downtempo,ChillOutПродолжительность: 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC2B0406857E64288CFF013A5CA9AF7122BDE16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 627086   (941613) от 07.03.2013
-
-VA- Anjunadeep - In Miami 2013 [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Above & Beyond - Prelude (Andrew Bayer & James Grant Remix) (4:43)
-2. Matt Lange - Rift (Original Mix) (2:51)
-3. Michael Cassette - Crockett's Theme (Tom Middleton Cosmos Mix) (9:48)
-4. Solarity - Primordial (Original Mix) (3:08)
-5. Dusky feat. Janai - It's Not Enough (jozif's Voxatron Remix) (5:12)
-6. Martin Roth - Beautiful Life (Original Mix) (4:11)
-7. Alfred Taylor - Don't You Leave Me (Original Mix) (4:39)
-8. Kahwe - Anything (Original Mix) (6:34)
-9. Beckwith - All I Need (Original Mix) (6:06)
-10. Jody Wisternoff feat. Jonathan Mendelsohn - Out Of Reach (Alfred Taylor Remix) (6:06)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E04692323D49FB1BD1C803701B6E845039FF019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092076   (940302) от 11.01.2017
-
-VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero Feedback - Rien ne va plus - Don Gorda Project Remix
-02. Don Gorda Project - Do That Again
-03. Enrico Donner - I Need A Love
-04. Lazypojke - Ta en fika(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C6F2B2837931A8C02A68EA2A8ECCE211BD183A
 ```
 
 https://mybot314.ru/tekegram_catalog/

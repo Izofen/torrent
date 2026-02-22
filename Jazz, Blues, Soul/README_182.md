@@ -1,3 +1,90 @@
+###  Публикация: 1522613   (758396) от 07.01.2022
+
+Frenchie Moe - Way Down In Hustleville (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Down In Hustleville (3:54)
+02. Gotta Have A Witness (4:12)
+03. Troubles' Trouble (4:42)
+04. Something You Got (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215FAA85657A4B28726A7FDC45782D21794FFBCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522614   (758390) от 07.01.2022
+
+Paulie Bignell and the Thornbury Two - Express Elevator (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eight Tracks and Cadillacs (2:47)
+02. Crawlin' Home (3:59)
+03. Gonna Get You (3:48)
+04. Only You (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404F35F37B443D83BE0B337F6A58BB77CDFC6DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522612   (758388) от 07.01.2022
+
+First Underground Roots - First Undergroung Roots (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Very Normal Man (5:20)
+02. Roots (3:23)
+03. No Making Allright (3:49)
+04. I Feeling You (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4D6DB63E1ADECA94CCB68F044E1C9D34B865AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 662207   (758269) от 29.05.2013
 
 VA - The Perfect Guitar Collection. 25 Original Albums (2012) [FLAC|Lossless]<Jazz, Blues, Rock>
@@ -659,93 +746,6 @@ Shigeharu Mukai & Astrud Gilberto - So & So: Mukai Meets Gilberto (1982) 1985, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41515E434E429FEBB762DED0362AAAC7DD595ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280935   (755299) от 06.02.2019
-
-Laura Ellis - Femme Fatale (2011) Vintage Voice Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Been Kissed Before [3:03]
-02. Somewhere in the Night [2:42]
-03. Again [2:34]
-04. I Want to Be Talked About [1:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A565F19973BE385636C3EBF902DA9FD40C3F9F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522941   (755288) от 09.01.2022
-
-Eve St. Jones - French Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break My Heart
-02. Simple Song
-03. Peaches
-04. New Light(   Читать дальше...   )Жанр: Pop Jazz, Easy ListeningПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9849B7378DD0F16C59CF6CE46F9931A6678A0AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522881   (755065) от 09.01.2022
-
-VA - Classic Savoy Be-Bop Sessions (1945 - 1949) 10CD, 2016, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755065.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Dexter Gordon - Blow Mr. Dexter (alternate take) [2:40]
-02. Dexter Gordon - Blow Mr. Dexter [2:58]
-03. Dexter Gordon - Dexter's Deck [2:56](   Читать дальше...   )Жанр: BopПродолжительность: 10:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD85A8DADBEA2B464FDB54D2E67730D96548A087
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1157116   (525883) от 10.08.2017
+
+Paul Whiteman - Greatest Hits (1920 - 1928) 1999, Collector's Choice [FLAC|Lossless|tracks + .cue] <Early Jazz, Dance Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Japanese Sandman [02:58]
+02. Whispering [03:14]
+03. Say It With Music [03:15]
+04. Hot Lips (He's Got Hot Lips When He Plays Jazz) [03:21](   Читать дальше...   )Жанр: Early Jazz, Dance BandПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FE28E56BA3B45B2DA087D14C020848BA1944B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157117   (525882) от 10.08.2017
+
+Duke Pearson - Profile (1959) 1999, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone in Love [05:31]
+02. Black Coffee [04:32]
+03. Taboo [04:58]
+04. I'm Glad There Is You [04:53](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8727FE68AA568E88BEC7D45A74B3971277FDF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157115   (525878) от 10.08.2017
+
+Dmitry Baevsky - The Day After (2017) Jazz Family [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Would You? [06:40]
+02. Minor Blues 012 [06:38]
+03. Chant [05:31]
+04. Minor Delay [06:39](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48549599A4B5215430C6A42B39B92DD88535F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157140   (525859) от 10.08.2017
 
 VA - Orchestral Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
@@ -658,93 +745,6 @@ Dave Stryker - Eight Track III (2019) Strikezone Records [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6D0B0784F2D6BBFE740BE1DE7090B25B646587D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313448   (523755) от 09.07.2019
-
-Matthieu Bore - Fats Domino's True Spirit (2001) [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be My Guest [02:28]
-02. Blue Monday [03:01]
-03. I'm Gonna Be A Wheel Someday [02:34]
-04. I'm In Love Again [02:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB825E238CEBFD96116311C0E065F13C53689AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240614   (523705) от 13.08.2018
-
-Illinois Jacquet - The Illinois Jacquet Story: Groovin' (1944 - 1951) 2002, Proper Records [FLAC|Lossless|image + .cue] <Swing, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B-Yot [2:20]
-02. Adams' Alley [2:12]
-03. Blue Satin [2:37]
-04. Stay Away [3:05](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E99251AD381A8369631C4D097DD09E35BA44168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240823   (523702) от 13.08.2018
-
-Romain Pilon - Copper (2018) [FLAC|Lossless|tracks + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bibou (5:57)
-02. Trippin' (5:09)
-03. Four Moons (7:25)
-04. Laniakea (5:09)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFA38FE5685D02079376F7C197AC5CF774E0482
 ```
 
 https://mybot314.ru/tekegram_catalog/

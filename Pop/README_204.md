@@ -1,3 +1,119 @@
+###  Публикация: 1249396   (435725) от 23.09.2018
+
+John Davis & The Monster Orchestra - 4 Albums (1976-1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1976 - Night & Day
+1977 - Up Jumped The Devil
+1978 - Ain't That Enough For You(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 02:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885ADB887978BD8B6777B75988001FE51C04B8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249295   (435325) от 23.09.2018
+
+Technotronic - The Best Remixes (1991) Compilation [MP3|320 Kbps] <House, Euro-House, New Beat>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Techno Medley (Pettibone Mix) (8:33)
+02. This Beat Is Technotronic (Dust Mix) (4:16)
+03. This Beat Is Technotronic (Get On It Club Mix) (7:43)
+04. Get Up! (J Wave Mix) (5:23)(   Читать дальше...   )Жанр: House, Euro-House, New BeatПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66591E7404BA8B8337A5807C102FD5EF79DCEBFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249294   (435324) от 23.09.2018
+
+D.J. BoBo - The Hits (1999) Reissue [MP3|320 Kbps] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:45)
+02. Somebody Dance With Me (3:34)
+03. Take Control (4:31)
+04. Everybody (3:54)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27384FD88561811D476F190F395A1601075811E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945150   (435260) от 09.10.2015
+
+Selena Gomez - Revival (Deluxe Edition) (2015) /Scene/ [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival
+02. Kill Em With Kindness
+03. Hands to Myself
+04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39BED64C2B451501E2113E5FD4A054BC6353E00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165254   (435030) от 12.09.2017
 
 Actarus - Atlas Ufo Robot (1978) Reissue CD, Warner Strategic Marketing Italy, 2005 [MP3|320 Kbps] <Electronic, Disco, Europop>
@@ -628,122 +744,6 @@ Reflex - Взрослые девочки (2015) [FLAC|Lossless|WEB-DL]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96C0677E0181D76C9D35341C16A3B4106C2A27DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945875   (431448) от 11.10.2015
-
-Reflex - Взрослые девочки (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction - Погружение
-02. Свобода и любовь
-03. Взрослые девочки
-04. Бросай оружие(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B516E08617DA1A00C2A4D5DB7C51A660D5DA85F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945825   (431439) от 11.10.2015
-
-Genghis Khan (Dschinghis Khan) - Genghis Khan (1979) Japanese Edition /1995, Victor/ [FLAC|image +.cue]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moskau 5:58
-02. Komm Doch Heim 4:17
-03. Samyrai 4:41
-04. Rocking Son Of Dschinghis Khan 4:15(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A95617CC372459855DB1082C4C27D9161C3B621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945882   (431271) от 11.10.2015
-
-Reflex (Ирина Нельсон) - The Very Best Of (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я буду небом твоим
-02. Взрослые девочки
-03. Маленький принц
-04. Ты не узнаешь...(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9620F1CF5C04F44292BE2367BE6324B21F71BB96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945600   (431247) от 11.10.2015
-
-Savage - Only You (30th Anniversary Remix) (2014) [FLAC|image+.cue]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only You (Remix) 8:57
-02. Only You (Slow Version) 5:04
-03. Only You (Instrumental) 6:41
-04. Save Me (Another Remix) 6:09(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40FC93CC6883E1DDB3955D247760809352FC90F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

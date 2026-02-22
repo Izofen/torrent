@@ -1,3 +1,32 @@
+###  Публикация: 1651372   (220165) от 08.08.2023
+
+Rezodrone - Gods Of Metal Ragnarock (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, Epic Metal>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_220165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gods Of Metal: Ragnarock Overture (feat. Jamison Boaz) [00:03:58]
+02. In The Beginning [00:02:56]
+03. The Proving Fields (feat. George Lynch) [00:03:05]
+04. Titans Walk Amongst Us (feat. Ernie C) [00:04:02](   Читать дальше...   )Жанр: OST, Epic MetalПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC87D80FCAB00DBED11F519006CA6C790BA6D075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587559   (220100) от 11.12.2012
 
 ДухLess (2012) [MP3|320 кб/с]<OST>
@@ -738,35 +767,6 @@ Enya - Enya / The Celts (1992) Unofficial Release, 2015, Chinese Dragon Music [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:337BFED10803B3E3FB11A469F1569A74D50B9C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343156   (217956) от 06.12.2019
-
-Бамблби / Bumblebee (2018) [MP3|320 Kbps] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hailee Steinfeld - Back To Life
-02. The Smiths - Bigmouth Strikes Again
-03. Howard Jones - Things Can Only Get Better
-04. Bon Jovi - Runaway(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526D54CD891E5896CD3F360AF169EE0EF56CD1FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

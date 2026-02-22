@@ -1,3 +1,32 @@
+###  Публикация: 1441364   (1037821) от 21.01.2021
+
+Junior Mance - Straight Ahead! (1964) 2011, EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Mellow Tone [2:33]
+02. Hannah Strikes Again [1:46]
+03. Li'l Darlin' [4:55]
+04. Diane [2:47](   Читать дальше...   )Жанр: Hard Bop, Big Band, Piano JazzПродолжительность: 00:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D21422DF6859BC77E0782DBDAEA1A6B2AE95E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615491   (1037598) от 26.02.2023
 
 Freddie Hubbard & The New Jazz Composers Octet - On The Real Side (2008) Four Quarters [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -713,35 +742,6 @@ Erotica - Nymphomania (2022) [FLAC|Lossless|tracks] <Jazz, Instrumental, Easy Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94391D127D79186AE469A5357A601CFEC893999B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442703   (1036362) от 26.01.2021
-
-Buddy De Franco (DeFranco) - Four Classic Albums Plus (1952 - 1954) 2014, 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036362.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Gone with the Wind [2:53]
-02. Sweet Georgia Brown [2:50]
-03. Street of Dreams [2:42](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE1E740AE716B4B3D5DF1B813983A5AE04F8179
 ```
 
 https://mybot314.ru/tekegram_catalog/

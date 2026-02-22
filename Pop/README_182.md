@@ -1,3 +1,116 @@
+###  Публикация: 1314214   (521331) от 12.07.2019
+
+VA - NRJ Hits Caliente (2019) [Explicit] [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521331.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Benny Blanco - I Can't Get Enough
+02. Maitre Gims - Hola Senorita
+03. Meduza - Piece Of Your Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1A085582ACEA8DD5B7DD104EF6FC3341594CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314150   (521211) от 12.07.2019
+
+Инфинити - Inti (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521211.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Inti (Album Intro)
+2. Океан
+3. Трек
+4. Последний раз(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0122D1F4C97768858DB28B8251EF2A5578AA1069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313993   (521201) от 12.07.2019
+
+VA - 100 Hits Old Skool Anthems (2019) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521201.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jennifer Lopez - Jenny from the Block (2:49)
+02. Britney Spears - I'm a Slave 4 U (3:24)
+03. *NSYNC - Girlfriend (4:14)(   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 06:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422B5E395214FB4284BF4C527D25A234D05FFB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372360   (521156) от 07.08.2011
+
+Sabrina - All of Me (1988) [APE|Lossless]<Italo dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Italo danceПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241174   (521150) от 16.08.2018
 
 VA - Definitive 70s (2018) [MP3|320 Kbps] <Pop>
@@ -645,122 +758,6 @@ VA - Top Of The Pops - Groove, Hip Hop & Rnb (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB70125E5C66ACEF9EF188D365D7C51AC3AB6952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314507   (518186) от 15.07.2019
-
-VA - NRJ Beach Party (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518186.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ed Sheeran – I Don’t Care
-02. Daddy Yankee – Con Calma
-03. Ava Max – So Am I(   Читать дальше...   )Жанр: PopПродолжительность: 03:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:408AC34C28406500E4B739FF1EAAFEA075BAB64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314501   (518081) от 15.07.2019
-
-Paul McCartney - Paul Is Live (2019) Original Release Date: 8 Nov. 1993 (Digitally remastered) [MP3|320 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive My Car (2:16)
-02. Let Me Roll It (4:04)
-03. Looking For Changes (2:37)
-04. Peace In The Neighbourhood (4:42)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341844B213C3FB7BB2BFFA35C8E69270EFBF56BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314577   (517968) от 15.07.2019
-
-VA - NOW 100 Hits Car Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen, John Deacon, Brian May, Freddie Mercury, Roger Taylor - Another One Bites The Dust (03:35)
-02. Fleetwood Mac - Little Lies (03:38)
-03. Duffy, Steve Booker - Mercy (03:40)
-04. Coldplay - Adventure of a Lifetime (04:24)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA0BB131FA696CEA3FF8A6BF2F7DD8AF300029C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929484   (517350) от 21.08.2015
-
-Lauren Christy - Lauren Christy (1994) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain (03:33)
-02. You Read Me Wrong (04:27)
-03. Steep (04:29)
-04. The Rumour (03:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2E7014076DBA8052C1DC74914210733B695033
 ```
 
 https://mybot314.ru/tekegram_catalog/

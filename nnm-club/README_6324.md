@@ -1,22 +1,22 @@
-###  Публикация: 1387678   (791180) от 02.06.2020
+###  Публикация: 1338897   (791867) от 15.11.2021
 
-WinRAR 5.91 Beta 1 [Ru]
+Sparklite (2019) [Multi] (1.6.8) License GOG (обновляемая)
 
->>Архив торрентов
->>Архив Программ
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791180.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WinRAR - один из самых известных архиваторов. То, что он поддерживает архивацию в формате RAR, объяснять не надо. Кроме того, программа умеет работать с архивами ZIP, CAB, ARJ, LZH, TAR, GZ, BZIP, JAR, UUE, GZIP, BZIP2 и 7-Zip, при этом она обладает многочисленными очень полезными возможностями - шифрование, поддержка непрерывных (solid) архивов, в которых степень (   Читать дальше...   )Язык интерфейса: Русский
+Sparklite — это динамичная приключенческая игра, действие которой разворачивается в необычной стране Геодии. Сражайтесь в битвах с видом сверху, используя целый арсенал устройств, оружия и снаряжения. Исследуйте все опасные уголки процедурно сгенерированного мира, низвергните титанов шахтерской индустрии и овладейте силой Sparklite. Sparklite — связующая нить мира (   Читать дальше...   )Тип издания: LicenseРазработчик: Red Blue GameЖанр: Приключение, Ролевая игра, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7541F0E1E5DA6FEF2AB7C294138C93EEB02B1BC1
+magnet:?xt=urn:btih:86EA7035BF4AE16E0524CF5802014CA69CADBFB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387409   (791179) от 02.06.2020
+###  Публикация: 1509315   (791865) от 15.11.2021
 
-Сборник клипов - Rap & Hip Hop Video Collection от ALEXnROCK часть 2 (2020) WEBRip
+Windows 11 Pro x64 21Н2 (build 22000.318) by ivandubskoj 11.11.2021 [Ru]
 
->>Остальное
->>hand made * video
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791179.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение лучшего, что есть в мировом рэпе и хип хопе. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rap & Hip Hop 2 — Intro
-01. Nelly feat. P. Diddy & Murphy Lee — Shake Ya Tailfeather
-02. 2Pac — California Love
-03. Ice Cube feat. Lil’ Jon & Snoop Dogg — Go to Church(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 02:44:33
+Авторская сборка Windows 11 Pro (x64), без METRO-приложений, с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EC10709C58E26800CFE465F9E5B160A44AD08B2
+magnet:?xt=urn:btih:F7CA6A9B42C45EE6E7516D4B24C083BE048108AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,207 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387567   (791178) от 02.06.2020
+###  Публикация: 1509198   (791863) от 15.11.2021
 
-Проекты - MotionElements - Morning Talk Show Opener - 14819280 / VideoHive - Morning Talk Show Opener - 27005382 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Morning Talk Show Opener - это свежий утренний, полностью заряженный энергией шаблон After Effects, с динамично анимированными цветами, кофейными зернами и кофейной чашкой с яркими облаками, которые стильно раскрывают и улучшают внешний вид ваших медиа файлов. Этот шаблон содержит 8 текстовых и 8 медиа-заполнителей. Вы можете использовать интеллектуальный цветовой (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADB7560A79F0E32CB0468DED6344E64E9203E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387545   (791177) от 02.06.2020
-
-IconTo Pro 6.5 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа, которая позволяет пользователю с легкостью сменить значок папки, раздела диска и типов файлов или сразу группы папок или разделов на любую, которую Вы укажете (ICO, PNG, JPG, DLL и др.), эти значки можно выбрать из своей коллекции, либо из поставляемых вместе с программой. Для удобства пользования программой, встроена пошаговая инструкция, которая показывает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE88BCDDAED034F89C219992E623CFBBCF03F323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387121   (791176) от 02.06.2020
-
-Advego Plagiatus 3.0.13 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advego Plagiatus - программа поиска в интернете частичных или полных копий текстового документа с интуитивным интерфейсом. Плагиатус показывает степень уникальности текста, источники текста, процент совпадения текста. Также программа проверяет уникальность указанного URL.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7715C5545789D39D1339E48E5D528C4938B202C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387479   (791175) от 02.06.2020
-
-Проекты - VideoHive - Beautiful Slides - 23505814 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просто слайдшоу... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C374FEF5EE11AAE812AA636A8FB8FD99E9AB850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382045   (791174) от 02.06.2020
-
-Все только начинается / Just Getting Started (2017) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дюк, некогда блистательный адвокат крупных преступных группировок, находясь под программой по защите свидетелей, зажигает на роскошной вилле Капри, устраивая безбашенные праздники жизни для своих гостей и превращая будни в яркий Jazz. Однажды под Рождество на виллу приезжает брутальный экс-агент ФБР Лео и переворачивает все вверх дном. Но, как оказалось, все только (   Читать дальше...   )Производство: США / Broad Green Pictures, Endurance Media, Entertainment OneЖанр: Боевик, КомедияРежиссер: Рон ШелтонАктеры: Морган Фриман, Томми Ли Джонс, Рене Руссо, Джо Пантольяно, Гленн Хедли, Шерил Ли Ральф, Элизабет Эшли, Джордж Уоллес, Грэм Беккел, Мел РайдоПеревод: Дублированный, многоголосый профессиональныйСубтитры: Английские, немецкиеПродолжительность: 01:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4AD74C933D466A898EB57E8CA8A6C2DD525FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387482   (791173) от 02.06.2020
-
-Вечер с Владимиром Соловьевым (01.06.2020) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791173.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 02:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CAB072C9F526263B39365A82582A9A99A02612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387528   (791172) от 02.06.2020
-
-Mozilla Firefox Quantum ESR 68.9.0 [Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5600B3E5022F7CEA82B135009C50A2E3E8389D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387515   (791171) от 02.06.2020
-
-День, когда Земля остановилась / The Day the Earth Stood Still (2008) WEB-DLRip [H.264] [Open Matte] [PR]
+Не время умирать / No Time to Die (2021) WEB-DLRip [H.264] [MVO]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791171.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История инопланетянина, который прибыл на нашу планету с предупреждением: если не будут прекращены войны и разрушения, Земля будет уничтожена извне, поскольку представляет угрозу для остальной Вселенной!Производство: США / 20th Century Fox, 3 Arts Entertainment, Dune Entertainment IIIЖанр: Фантастика, Триллер, ДрамаРежиссер: Скотт ДерриксонАктеры: Киану Ривз, Дженнифер Коннелли, Кэти Бейтс, Джейден Смит, Джон Клиз, Джон Хэмм, Кайл Чандлер, Роберт Нэппер, Джеймс Хон, Джон РотменПеревод: Дублированный (Blu-ray EUR)Субтитры: Русские (forced, full)Продолжительность: 01:43:47
+Джеймс Бонд оставил оперативную службу и наслаждается спокойной жизнью на Ямайке. Все меняется, когда на острове появляется его старый друг Феликс Лейтер из ЦРУ с просьбой о помощи. Миссия по спасению похищенного ученого оказывается опаснее, чем предполагалось изначально. Бонд попадает в ловушку таинственного злодея, вооруженного опасным биологическим оружием.Производство: Великобритания, США, B25, Cinesite, Danjaq, Eon Productions Ltd., Metro-Goldwyn-Mayer (MGM), Universal PicturesЖанр: боевик, триллер, приключенияРежиссер: Кэри Дзёдзи ФукунагаАктеры: Дэниэл Крэйг, Рами Малек, Леа Сейду, Лашана Линч, Бен Уишоу, Наоми Харрис, Билли Магнуссен, Ана де Армас, Кристоф Вальц, Рэйф ФайнсПеревод: Многоголосый закадровый (Jaskier)Язык озвучки: РусскийСубтитры: русские (полные)Продолжительность: 02:43:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EE3F55CFD5FB273B77B4C63829F3AE61A59C897
+magnet:?xt=urn:btih:73326B39A6BB63C452A060D513A1BCFE233D169F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -261,26 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177801   (791170) от 02.06.2020
+###  Публикация: 1510025   (791862) от 15.11.2021
 
-Л.И. Воробьева (ред.) | Книга о вкусной и здоровой пище (1988) [DJVU]
+Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) UHD BDRip [H.265/2160p] [SDR, 10-bit]
 
->>Разное (категория книг)
->>Кулинария
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791170.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга — справочное пособие по приготовлению домашней пиши — содержит современные данные науки о питании, полезные сведения о пищевых продуктах, рецепты приготовления закусочных, первых, вторых, сладких блюд и изделий из теста. Специальные разделы отведены домашнему консервированию, а также лечебному и детскому питанию.
-Книга рассчитана на широкий круг читателей. (   Читать дальше...   )Жанр: КулинарияФормат: DJVU
+Мастеру боевых искусств Шан-Чи предстоит противостоять призракам из собственного прошлого, по мере того как его втягивают в паутину интриг таинственной организации «Десять колец».Производство: США, Австралия/ Walt Disney Pictures, Marvel Studios, Fox Studios AustraliaЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВаПеревод: Дублированный (Невафильм / КиноПоиск HD), многоголосый закадровый (HDRezka Studio)Язык озвучки: Русский, Английский, УкраинскийСубтитры: Русские (Forced, full), украинские (Forced), английские (Forced, full, SDH)Продолжительность: 02:12:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD7CE3A11DCCD3967A7CC53B940023F1931F7CE6
+magnet:?xt=urn:btih:8789BED4916AC1616C0A1A0B548DF8DB3260A9A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,27 +102,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387190   (791169) от 02.06.2020
+###  Публикация: 418895   (791861) от 15.11.2021
 
-Macrium Reflect v 7.2.4952 x64 Home [Ru/En]
+ДДТ (DDT, Ю. Шевчук) - 60 альбомов / 72 CD (1982-2011) [FLAC|Lossless] <Rock>
 
+>>3
 >>След.
->>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791169.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Macrium Reflect - популярный инструмент резервного копирования, который упрощает эту трудоемкую задачу, предоставляя пользователям возможность создать резервную копию в несколько кликов мыши.
-Macrium Reflect обладает интуитивно понятным пользовательским интерфейсом, состоит из набора полезных утилит для резервного копирования и восстановления данных.
-Утилита получила (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Года выпуска: 1982-2011Альбомлист:
+1982 - Свинья на радуге
+1983 - Компромисс
+1984 - Периферия(   Читать дальше...   )Жанр: RockПродолжительность: 66:10:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAA2DCE3624C6399CC10D9CE66817007D2619292
+magnet:?xt=urn:btih:4F0CDE2795B883C1559905B78ACA519E1A456B6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,26 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387478   (791168) от 02.06.2020
+###  Публикация: 1509992   (791860) от 15.11.2021
 
-DV: Изящество логики / The Joy of Logic (2013) IPTVRip [H.264]
+The Elder Scrolls V: Skyrim (2021) [Ru/Multi] (1.6.318.0.8) License CODEX [Anniversary Edition]
 
->>Зарубежные TV-бренды
->>Da Vinci Learning
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791168.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Резкое, остроумное, расширяющее сознание вторжение в мир логики с учёным-программистом профессором Дэйвом Клиффом. Этот фильм приглашает зрителей в новую поездку на американских горках через философию, математику, науку и технику.
-Дэйв Клифф, профессор информатики и инженерии в Бристольском университете, не является абстрактным теоретиком. 15 лет назад он объединил (   Читать дальше...   )Производство: Великобритания / Wingspan ProductionsЖанр: ДокументальныйРежиссер: Catherine GaleПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:59:36
+The Elder Scrolls V: Skyrim, получившая более 200 наград «Игра года», отмечает 10-летний юбилей захватывающих приключений. Издание Anniversary Edition включает в себя множество материалов, выпущенных за десятилетие. В него входит сама игра, удостоенная множества хвалебных отзывов, дополнения Skyrim Special Edition, а также известные и новые материалы Клуба творчества, (   Читать дальше...   )Тип издания: LicenseРазработчик: Bethesda Game StudiosЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:954D764AD8EFC4E592697DE541D291759F5FF095
+magnet:?xt=urn:btih:1842C18DC0759F0341D645FE064B2E003CD69AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,27 +157,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387538   (791167) от 02.06.2020
+###  Публикация: 1387385   (791859) от 01.06.2020
 
-Алиса Чечина | Английский язык. Все времена и глаголы в схемах и таблицах (2020) [PDF]
+PatterNodes 2 v2.3.1 [En]
 
->>Научная и техническая литература
->>Иностранные языки (литература)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791167.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящее пособие полностью охватывает школьную программу и предназначено для всех, кто стремится в совершенстве овладеть временами английского глагола: прежде всего, для учащихся средней школы, старшеклассников, студентов неязыковых ВУЗов.
+PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
+Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей панели под названием узла, который может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.06.2020Разработчик: Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77452CDDF96C4B810ED4A157EF4180BF64F59AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387379   (791858) от 01.06.2020
+
+Allavsoft Video Downloader Converter 3.22.6.7457 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 01.06.2020Разработчик: AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067B9F89FD3841017D09E117D591006F5C163010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387381   (791857) от 01.06.2020
+
+PhotoMill X 1.6.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791857.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoMill X – групповая обработка фотографий
+PhotoMill X (aka Reformator) помогает Вам преобразовать большую часть изображений в самые популярные форматы изображения, дать Вашим файлам значащие имена, сделать ватермарку с текстом и изображением, изменить цвет фотографии (яркость/насыщенность/и т.д.)., изменить параметры геометрии (масштаб/кадрирование/и т.д.).
 
-Теоретический материал четко структурирован и изложен на русском языке максимально просто, благодаря чему школьники могут работать (   Читать дальше...   )Жанр: Инострвнный языкФормат: PDF
+Удалите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.06.2020Разработчик: Gwinno Software IncПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C75FC742C83F5705543D3114CEE641732562FBFC
+magnet:?xt=urn:btih:D451FBB646CB94081A17E2CEA6BA59B3C2C5F40E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,55 +239,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387535   (791166) от 02.06.2020
+###  Публикация: 1387054   (791856) от 01.06.2020
 
-Ummy Video Downloader 1.10.10.4 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ummy Video Downloader - это полезная программа, которая поможет вам загружать видео HD с YouTube или mp3 Ummy-это самый быстрый и самый простой способ загрузить YouTube видео на ваш компьютер и смотреть их всегда, даже если нет подключения к Интернету. Создайте свой собственный супер сборник музыки и наслаждаться ею в любое время, где вы находитесь.
-Ummy Video Downloader (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61742418686E4FFDCBF32C762DBF0609C79E6749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275298   (791164) от 10.01.2019
-
-The Agony Scene - The Darkest Red (2005) [FLAC|Lossless|tracks + .cue] <Hardcore, Death Metal>
+МартЪ - Март (EP) (2009) авторская раздача [MP3|128-320 Kbps] <Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791164.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prelude (1:15)
- 02. The Darkest Red (3:50)
- 03. Scars of Your Disease (3:30)
- 04. Screams Turn to Silence (2:56)(   Читать дальше...   )Жанр: Hardcore, Death MetalПродолжительность: 00:37:30
+1. Океан 4:16
+2. Ведьма 5:15
+3. Март 5:24
+4. Море (Instrumental live - bonus) 3:03Жанр: Indie RockПродолжительность: 00:18:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13192AF99D6A373CB6C8E0308EAEF1951ADB48BC
+magnet:?xt=urn:btih:8A54A8C929A7D627802D887192C7FCCD1680BDA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,28 +268,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275274   (791163) от 10.01.2019
+###  Публикация: 1387284   (791855) от 01.06.2020
 
-Bruut! - V (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
+Tony Bennett - Here's To The Ladies (1995) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791163.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lopez
-02. Maestro
-03. Phteven
-04. Bud(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:44:20
+01. People [4:45]
+02. I'm in Love Again [3:52]
+03. Somewhere over the Rainbow [3:59]
+04. My Love Went to London [5:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95DD30691D204455D76E0AE6C4C6CCCDEEED1FFD
+magnet:?xt=urn:btih:72ED9ACC00AFDF56F13593C96281009C66925E8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,28 +297,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275193   (791162) от 10.01.2019
+###  Публикация: 1387246   (791854) от 01.06.2020
 
-VA - Best Of LW Soulful House III (2019) [MP3|320 Kbps] <House>
+SizeMyPics 1.6.0 [En]
 
->>Electronic
->>House
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791162.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791854.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Louie Vega Ft. Jocelyn Brown-You Are Everything (Morales Tribute To Frankie Knuckles Mix)
-02. Marc Dennis-Storm (Original Mix)
-03. Secret Sinz-The Fool (Original Mix)
-04. Soulbridge Ft. Ms Onyie-Perceptions (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:20:47
+SizeMyPics может помочь вам в преобразовании большого количества изображений. Узнайте все о возможностях, которые предлагает SizeMyPics, и о том, как он может облегчить вашу работу.Тип издания: macOS SoftwareРелиз состоялся: 06.05.2019Разработчик: Xelaton SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3CF7DB8DF1FA257C3F73D3241D1475C8DA21483
+magnet:?xt=urn:btih:4668F7E55472EB5D1E4EA62DE249F631A5803BC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,28 +323,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275050   (791161) от 10.01.2019
+###  Публикация: 1387363   (791853) от 01.06.2020
 
-Mirah - Understanding (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop, Indie Rock>
+Роман Гуцалюк - Веночек (2008) [MP3|320 Kbps]<Детские песни и минусовки>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791161.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Counting (02:51)
-02. Information (03:50)
-03. Lake/Ocean (02:45)
-04. Lighthouse (05:10)(   Читать дальше...   )Жанр: Alternative Rock, Indie Pop, Indie RockПродолжительность: 00:38:42
+01+/-09. Веночек;
+02+/-10. Белка;
+03+/-11. Маленький принц;
+04+/-12. Я не хочу;(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:45:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DC3AFC3EAE81FA250AC869DF44F63918883659F
+magnet:?xt=urn:btih:189ADA7258B2A17420C2557CAA0D857BC3BFD1CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,144 +352,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275293   (791160) от 10.01.2019
+###  Публикация: 1387270   (791852) от 01.06.2020
 
-AFI - All Hallow's E.P. (1999) EP [FLAC|Lossless|tracks + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall Children (3:13)
- 02. Halloween (3:58)
- 03. The Boy Who Destroyed the World (3:05)
- 04. Totalimmortal (2:45)Жанр: PunkПродолжительность: 00:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9EEC9F1371DA324CE4294563BC265F9899A4662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275264   (791159) от 10.01.2019
-
-Barabas Lorinc Quartet - Other Than Unusual (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circus
-02. Wurli
-03. Five
-04. Easygo(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1A5C9BB8C8B3B07F4D700D1A9E1C46BA222580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275055   (791158) от 10.01.2019
-
-Augie March - Bootikins (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fake Jive (04:39)
-02. Mephistopheles Perverted (03:51)
-03. The Third Drink (04:04)
-04. The Long Wait And See (02:51)(   Читать дальше...   )Жанр: Indie Rock, Folk Rock, Indie PopПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE783A480B85C8F9D415D0D9777E9D43A5CE58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275200   (791157) от 10.01.2019
-
-VA - Winter Super Beats '19 (2019) [MP3|320 Kbps] <Electronic, Future House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Walker - Ocean (Original Mix) 5:09
-02. WDX - Late Night Kiss (Original Mix) 4:17
-03. Ian Deluxe - Feels Like This (Original Mix) 4:40
-04. Steven Turner & Murrell - So Close (Original Mix) 4:53(   Читать дальше...   )Жанр: Electronic, Future House, DanceПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F5498947EEC3BD14C2E3DA6DC0D08F62B36E00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275275   (791156) от 10.01.2019
-
-Danniel Selfmade - Parallel Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+St. Concrete - Listen Past Me (2019) Modern Cathedrals [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Leftfield>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791156.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (Original Mix) (3:30)
- 02. Permanent Hadway (Original Mix) (6:38)
- 03. Carnivalmind (Original Mix) (6:18)
- 04. Timescope (Original Mix) (6:50)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:53:52
+01. Köpenickerstr (05:28)
+ 02. Oberbaumbrücke (06:56)
+ 03. Cass Ave (05:23)
+ 04. Skalitzerstr (06:37)(   Читать дальше...   )Жанр: Dub Techno, Techno, LeftfieldПродолжительность: 00:30:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:652D9C6F7C9D64AA3AC9A9CE1E38F3F7FA25E667
+magnet:?xt=urn:btih:6F475CA595DFE1F0772BA876AB31428ACE333FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,57 +381,329 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275182   (791155) от 10.01.2019
+###  Публикация: 1387359   (791851) от 01.06.2020
 
-Count Basie - Chairman Of The Board (1958) 2003, Roulette [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues In Hoss' Flat [3:13]
-02. H.R.H. (Her Royal Highness) [2:40]
-03. Segue In C [6:15]
-04. Kansas City Shout [3:35](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE09571DD78BFE286EAF8DF2FCDDCECE6E8ADC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275207   (791154) от 10.01.2019
-
-VA - Deep House Grooves, Vol. 14 (2018) [MP3|320 Kbps] <Deep House>
+Exos - Indigo (2020) Figure [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Ambient>
 
 >>Electronic
->>House
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791154.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791851.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Loic Hoffman & Brrak - The Wind (Brrak Remix)
-02. Mert Avci - Forget Me Not (Original Mix)
-03. Superkluster - Timelapse (Original Mix)
-04. Lawrence Dix & Matt Prehn - Anima (Matt Prehn Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:49:16
+01. Reincarnation (03:22)
+02. Í skjóli nætur (04:16)
+03. Sælu-reitur (06:13)
+04. Quod Arcanum Leticia (05:49)(   Читать дальше...   )Жанр: Dub Techno, Techno, AmbientПродолжительность: 01:13:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD26567AFDD90E9EC31F834C3CA7FD08D30996AB
+magnet:?xt=urn:btih:B8F6451062C28B5F78B741AE2BF2657323E859A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387273   (791850) от 01.06.2020
+
+Ferrein - Valentine (2016) Echotourist [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterglow (08:05)
+02. Field (05:22)
+03. Grow (05:28)
+04. Noone (05:39)(   Читать дальше...   )Жанр: Dub Techno, Ambient, ExperimentalПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAC08827470B1E5163E7462C24A2613A67B75DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387285   (791849) от 01.06.2020
+
+Ида Мартин | Дети Шини (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестнадцатилетняя Тоня живет, отгородившись от чувств и волнений, но видеозапись девятиклассницы Кристины, обвинившей Тоню и еще шестерых таких же одиночек в своей смерти, безжалостно переворачивает ее привычный, упорядоченный и закрытый мир.
+Ролик стремительно приобретает популярность в сети. А интернет-сообщество решительно настроено наказать «убийц» Кристины. (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8F3CC0A409BF68D38FE330273D95DA9BAE770A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387468   (791848) от 01.06.2020
+
+Aura Minimum - Mysterious Segments (2020) Modern Nature [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Segment I (11:56)
+ 02. Segment II (13:52)
+ 03. Segment III (12:00)
+ 04. Segment IV (13:40)Жанр: Dub Techno, AmbientПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DA3C7B9A94E0B654D806C96B7398835D22F937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387374   (791847) от 01.06.2020
+
+Татьяна Воронцова | Тени утренней росы (2020) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791847.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Как только мужчина и женщина перестают сражаться друг с другом, они становятся счастливыми». Прекрасная мысль, которая редко приходит нам в голову. Грубые, заносчивые мужчины не встречают понимания у обидчивых, строптивых женщин – вот и вся любовь. Но если повезет встретить человека, с которым можно отпустить себя на волю, жизнь уже никогда не станет прежней! Елена (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB323241CF566D84DE4575CE78C3E6EDF0D4DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387259   (791846) от 01.06.2020
+
+Resoe - Discography 15 Releases (2007-2020) Baum Records, Echocord [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Minimal, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larm (07:06)
+ 02. Larm (Joey Anderson Remix) (05:40)
+ 03. Low Identity (08:48)Тип издания: CD, WebЖанр: Dub Techno/TechnoПродолжительность: 06:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E518EEAA61E906ACAB2EA696349EF089478385EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387429   (791845) от 01.06.2020
+
+VideoDuke 1.9 (build 271) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
+
+Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши! Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.06.2020Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:359A955F4E2DB26DB723B477AA1379A50C145561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387416   (791844) от 01.06.2020
+
+Folder-Factory 5.7.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folders Factory — сделай уникальными свои папочки в OS X
+«Вам надоели угрюмые одинаково синие папки? С помощь Folders Factory вы сможете легко изменить их цвет, добавить картинки, написать текст или даже сделать оттиск наподобие системных папок».
+
+Речь идет о замечательной программе — Folders Factory.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.05.2020Разработчик: TryBest StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D35117965B77B5A126D29A1FA8AE68D1BF0829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387376   (791843) от 01.06.2020
+
+Юлия Краковская | Всё сложно (2019) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Юлии Краковской поднимает самые актуальные темы сегодняшней общественной дискуссии – темы абьюза и манипуляции. Оказавшись в чужой стране, с новой семьей и на новой работе, героиня книги, кажется, может рассчитывать на поддержку самых близких людей – любимого мужа и лучшей подруги. Но именно эти люди начинают искать у нее слабые места…Жанр: Современная отечественная прозаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE5BDCE9CA9197E40E4D86CB3F647BE5A1B633E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387437   (791842) от 01.06.2020
+
+Risu no Matoi | Белка и пожарное знамя [1991, OVA, 1 эп.] WebRip 470p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Короткометражная история об истории пожарного дела в Японии периода Эдо (начало 17-го века).
+Главный герой - белка-маскот японского министерства сельского и лесного хозяйства и рыболовста помогает пожарной бригаде найти виновного в лесном пожаре.Жанр: сказка, историяПеревод: Аццкий Критег & World_HoupЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 16 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52521A63BC58021981780305325D5EA69CEE8046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387421   (791841) от 01.06.2020
+
+Юрий Сотник | Как я был самостоятельным [сборник] (2018) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791841.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли веселые рассказы замечательного писателя Юрия Сотника (1914-1997): «Маска», «Внучка артиллериста», «Дудкин острит» и другие. Герои Сотника – предприимчивые ребята, попадающие в самые невероятные переделки, но они никогда не унывают и всегда готовы прийти на помощь другу.Жанр: Проза для детей, Повести и рассказыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B353173D73918833C71130D806DD69BA7117C3BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387403   (791840) от 01.06.2020
+
+Мила Блинова | Большой Кыш (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы ещё не слышали о кышах? Наверное, это потому, что они строят свои домики в лесной глуши, подальше от людских глаз… А хотите узнать, как укротить Королеву Молний, воспитать домашнюю ворону и почему смех нельзя загонять на ёлку? А про подвиг близнецов, битву с медведками, Великое предназначение философа Сяпы? Или про то, как шалопай Бяка стал Большим Кышем? Если (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E9E410FD7FE65B0596C2DBD7C6C9B17CF136C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

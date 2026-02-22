@@ -1,3 +1,88 @@
+###  Публикация: 982279   (946512) от 04.02.2016
+
+Pink Floyd – The Wall (1982) 1999 Sony Music Video, DVDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wall	(1:35:00)Жанр: Prog Rock, Psychedelic Rock, Symphonic RockПеревод: ОтсутствуетПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2841E52737D4935D6A995CE1020E2F49CADC3320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090692   (945881) от 07.01.2017
+
+Al Di Meola - 37. Leverkusener Jazztage (2016) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление американского jazz fusion, latin jazz гитариста, композитора и музыкального продюсера Эла Ди Меола на 37 джазовом фестивале Leverkusener Jazztage nov 07, 2016Misterio
+Mawazine
+Esmeralda
+Cinema Paradiso(   Читать дальше...   )Производство: Запись со спутниковго канала 3SAT dec 05, 2016Жанр: Jazz fusion/Latin jazz/World fusionПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A82D62556DA718426D79DC85C68D5592DF754F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090511   (945765) от 07.01.2017
+
+The Steve Miller Band - Avo session Basel (2012) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стив Миллер (Steve Miller, род. 5 октября 1942 г.) - американский гитарист, создавший в возрасте 12-ти лет блюз-рок-команду, которая после многочисленных смен состава получила в 1968 году название Steve Miller Band.
+• Стив Миллер родился в Милуоки 5 октября 1942 года. Мать его была певицей, а отец в свободное время занимался звукорежиссерскими делами, так что неудивительно, (   Читать дальше...   )● Take the Money and Run
+● The Stake
+● Abracadabra
+● Further On Up The Road(   Читать дальше...   )Производство: Запись с канала Musik NightЖанр: МузыкаПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C6AF086FF44134C6551EC067AF71ADBD017FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853556   (945685) от 13.01.2015
 
 The Beatles - A Day In The Life (1967) HDTV [1080i] [hand made clip]
@@ -643,106 +728,6 @@ VA-Коллекция клипов в авто (ZAP) (2DIN) (1980-2016) HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCADBF0F686666BA89BA7FEA5A0C00F291D3BABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 282572   (943206) от 15.01.2011
-
-Gamma Ray – Hell Yeah!!! The Awesome Foursome: Live In Montreal (2008) 2*DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в Монреале перед дико восторженной аудиторией. Группа раскрыла весь свой внушительный потенциал, свою живую силу, продержав фанатов во приятном напряжении в течение двух часов, покидая сцену в конце выступления как героические гладиаторы: победоносные и счастливые.
-Записанный на двух DVD "Hell Yeah!" включает 120-минутный Монреальский концерт с 18-ю песнями (среди них классика, например "No World Order", "Man On a Mission", "Valley of the Kings", "Somewhere Out in Space", "Land of the Free" и "Rebellion in Dreamland"), историю Gamma Ray и доржный кинофильм. Кроме того - семь видеоклипов, снятых в разное время их музыкальной карьеры.
-После сходит успешного запуска США с другими Power Metal мастеров Helloween, Gamma Ray выпускает свой первый концертный DVD с их текущий состав. DVD особенности нескольких камер записи группы 6 мая 2006 шоу в Ле Medley в Монреале, провинция Квебек, а также множество бонусов в том числе: роуд-муви, (   Читать дальше...)Жанр: Power MetalПродолжительность: 01:55:55 + 02:33:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281630   (943065) от 15.01.2011
-
-Nightwish: From Wishes To Eternity – Live. (2001) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Концерт был записан в Тампере, Финляндия 29 декабря 2000 года. DVD-версия, кроме собственно концерта, содержит: клипы, интервью с музыкантами, фотографии и др.The Kinslayer
-She is My Sin
-Deep Silent Complete
-The Pharaon Sails to Orion
-Come Cover Me
-Wanderlust
-Instrumental
-Swanheart
-Elvenpath
-FantasMic part3(   Читать дальше...)Жанр: RockРежиссер: Timo HaloПродолжительность: 01:19:55 (основной концерт)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078958E9076DBDA571083CAFDD7F9DACCD020B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626489   (943050) от 06.03.2013
-
-Marc Bolan - The Celebration Concert (1967-1977-2007) (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Born To Boogie Productions и Demon Records объединили свои усилия для повторного выпуска этого релиза, который был заснят B2B Productions в 2007 году.
-Трибъют концерт памяти Марка Болана проходил в Shepherds Bush Empire 15 сентября 2007 года. (Спасибо за помощь01. Grover (T.Rextasy)
-02. Celebrate Summer (T.Rextasy)
-03. New York City (T.Rextasy)
-04. Mustang Ford (Andy Ellison)
-05. Sara Crazy Child (Andy Ellison)
-06. Desdemona (T.Rextasy & Andy Ellison & Clem Burke)
-07. I Love To Boogie (T.Rextasy and Ray Dorset)
-08. Debora (T.Rextasy and Ray Dorset)
-09. Brokenhearted Blues (Marc Almond & Neal X)
-10. The Visit (Marc Almond & Neal X)(   Читать дальше...   )Жанр: Музыка, RockРежиссер: Born To Boogie ProductionsАктеры: T.Rextasy, Andy Ellison, Clem Burke, Ray Dorset, Marc Almond, Neal X, Tony Visconti,
-Dirty Pretty Strings, Howie Casey, Dr. Robert, Linda Lewis, Gloria Jones.Продолжительность: 02:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4F1B278464FFD7399F6D6FC162FE04F25C845B
 ```
 
 https://mybot314.ru/tekegram_catalog/

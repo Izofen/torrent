@@ -1,32 +1,3 @@
-###  Публикация: 1269227   (221504) от 14.12.2018
-
-Ana Carla Maza - Alma (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quiero (03:53)
-02. Alma (03:05)
-03. Interlude (03:12)
-04. Au revoir (03:10)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BD1AA8F6F45F583F6D6EC6FCAD7CAB84B36EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513922   (221427) от 01.12.2021
 
 Eddie Higgins - Romantic Higgins (2009) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -754,6 +725,35 @@ CD2 (01:08:30)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0622299448343D3C30ABA3BB0D4DDAD69046A976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269525   (219990) от 15.12.2018
+
+Astrud Gilberto - The Silver Collection (1965 - 1970) 1991, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once I Loved [2:16]
+02. Agua de beber [2:20]
+03. Meditation [2:43]
+04. And Roses and Roses [2:37](   Читать дальше...   )Жанр: Vocal Jazz, Latin Jazz, Bossa NovaПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E22625E0118964D677A63789B9D098F464CD07D
 ```
 
 https://mybot314.ru/tekegram_catalog/

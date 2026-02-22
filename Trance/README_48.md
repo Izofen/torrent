@@ -1,3 +1,32 @@
+###  Публикация: 1641656   (210741) от 23.06.2023
+
+VA - Suanda Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Gid Sedgwick - This Is Real (Christopher Corrigan Extended Remix) [7:05]
+02. SMR LVE & Jennifer Rene - Stay (Extended Mix) [5:45]
+03. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
+04. DJ T.H. & Sharon Valerona - Only Now I See (Extended Mix) [5:54](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789263E5DF94EEADEC1DD9728B04E20B3319D347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641405   (210699) от 23.06.2023
 
 VA - Cathy Burton - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -716,35 +745,6 @@ VA - 10 Years Of Suanda Music - Mixed by Adip Kiyoi (2023) [MP3|320 Kbps] <Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E2F7333FE1449BF206FB88A9BDADB19B20E7400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662023   (188076) от 17.09.2023
-
-VA - Top 9 August 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naki (JPN) - Firmament (Cedric Paul & A L O N 3 L Y Remix) (08:40)
-02. Louie Xtra - Breeze (DreamLife Remix) (07:34)
-03. Young Hu - Forget Me (Pink Pig Vocal Remix) (07:57)
-04. D.J.G.; M.I.K!; Jasmine Dean - Who You Really Are (Original Mix) (04:10)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1850CC987DAC17491C140D561BA90D952312E408
 ```
 
 https://mybot314.ru/tekegram_catalog/

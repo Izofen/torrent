@@ -1,3 +1,32 @@
+###  Публикация: 1075316   (320991) от 22.11.2016
+
+VA - Музыкальные новинки mp3. Сборник 3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320991.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Анжелика Варум & Игорь Крутой - Опоздавшая Любовь 4:17
+002.Danny Avila Feat. Haliene - High 3:10
+003.Владимир Винс - Хватит 3:51
+004.Franky - После Тебя 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3933990FFC7069347D7D2305D619EC5E8A64FF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421186   (319694) от 04.11.2020
 
 VA - Happy Holidays (2020) [MP3|320 Kbps] <Christmas, Pop, Rock>
@@ -734,35 +763,6 @@ VA - Самые Горячие Осенние Хиты 50x50 (2016) [MP3|128-320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:963A8C02B58297E69E463C7DBD7BBD21CA50A1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960139   (309449) от 27.11.2015
-
-C.C.Catch - Сборник песен (2015) [MP3|320 кб/с]<Pop, Eurodance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smokey Joe's Cafe
-02. Soul Survivor
-03. Soul Survivor '98 (New Vocal Version)
-04. Soul Survivor '98 (Rap Version)(   Читать дальше...   )Жанр: Pop, Eurodance, DiscoПродолжительность: 03:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092C6A9C980BBF0EBE892DC487FA0D670781FEE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

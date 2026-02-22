@@ -1,3 +1,125 @@
+###  Публикация: 1042955   (576541) от 14.08.2016
+
+Kebekelektrik - Kebekelektrik (1977) Reissue, 2003, Unidisc [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kebekelektrik - студийный проект канадского продюсера Pat Deserio и начинающего клавишника-профессионала, а в дальнейшем известного исполнителя - Gino Soccio.01. Bolero (Tom Moulton Mix) (14:03)
+02. Magic Fly (Tom Moulton Mix) (6:27)
+03. Mirage (Tom Moulton Mix) (6:25)
+04. Wardance (Tom Moulton Mix) (9:05)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8EAC1A1E534B1669E18E206A253837F6A87E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527643   (576529) от 26.07.2012
+
+Melanie C - Northern Star (2000) [FLAC|Lossless]<Pop, Pop Rock, Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go! [3:39]
+02. Northern Star [4:41]
+03. Goin' Down [3:36]
+04. I Turn To You [5:52]
+05. If That Were Me [4:33]
+06. Never Be The Same Again [4:54]
+07. Why [5:30]
+08. Suddenly Monday [2:38]
+09. Ga Ga [3:52]
+10. Be The One [3:37](   Читать дальше...   )Жанр: Pop, Pop Rock, Dance PopПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303138   (576316) от 19.05.2019
+
+VA - Die Hit Giganten Best Of 2000er (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576316.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Britney Spears - Toxic
+02. OutKast - Hey Ya!
+03. Sean Paul - Get Busy(   Читать дальше...   )Жанр: PopПродолжительность: 03:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E898775432ED722FF464B14B295ABD919294FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303055   (576313) от 19.05.2019
+
+VA - New Hit 2019 (Vol.2) (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alegria Amaya feat. El Versatil - Calma (Remix) 4:07
+02. DJ ROY - Giant (Remix) 3:45
+03. Sephora - Sweet but Psycho 3:05
+04. Nadine - Speechless 3:31(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E9D8B5D92FBCCE6CC144FE71AAF4AC4F6CD3DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527323   (576212) от 26.07.2012
 
 Bee Gees - 21 cтудийный альбом (1967 - 2001) [MP3|320 кб/с]<pop, poprock, disco, blue-eyedsoul, softrock>
@@ -697,128 +819,6 @@ The New York Community Choir - The New York Community Choir (1977) Funkytowngroo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D4843DF2963F620C005E33CD0405D4D85ECA9F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043197   (574421) от 15.08.2016
-
-VA - Take On Me: 80's the Collection (2012) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Ha - Take On Me [00:03:39]
-02. New Order - Blue Monday '88 [00:03:49]
-03. Bananarama - Venus [00:03:48]
-04. Communards - Don't Leave Me This Way (with Sarah Jane Morris) [00:04:50](   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 03:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DEC0F882D7F739AFAE6DDE4261F5A64CE08CE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043294   (574418) от 15.08.2016
-
-Radiorama - The Second (1987) Reissue, Deluxe Edition, 2016, Deluxe CD Music [FLAC|Lossless|image + .cue] <Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yeti (5:44)
- 02. Aliens (5:50)
- 03. Woman (4:54)
- 04. Warrior (4:16)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31ACAF7FACB0F8B04E6C6E13D5E2AC04FF299D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812261   (574388) от 12.08.2014
-
-VA - I Love Italo Disco Legends Vol.1-5 (2011) 5CD [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink Project - Amama 5:32
-02. Fun Fun - Happy Station (Scratch Remix) 6:49
-03. Doctor's Cat - Feel The Drive (Remix) 5:51
-04. Time - Shaker Shake (Dub) 5:00
-05. Ken Laszlo - Hey Hey Guy (Swedish Mega-Mix) 7:48
-06. Max Him - No Escape (Remix) 6:10
-07. Kano - Another Life (Instrumental) 5:40
-08. Amnesie - Turas 6:55
-09. B.W.H. - Livin' Up 4:48
-10. Mr.Flagio - Take A Chance (Instrumental) 7:44(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 06:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A54DC6978DE2AD115DC7F95F2EF1C870D8C39018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151357   (574353) от 18.07.2017
-
-Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Eurobeat, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover To Lover (For Sale) (AV Version) (08:10)
-02. Take My Heart (Vocal Version) (05:13)
-03. Recollection (Vocal Version) (07:03)
-04. I'm Your Lover (Vocal) (05:30)(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A78AA099E889FADE054B84C50A5FE9F01FA367
 ```
 
 https://mybot314.ru/tekegram_catalog/

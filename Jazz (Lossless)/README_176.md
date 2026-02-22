@@ -1,3 +1,32 @@
+###  Публикация: 1051014   (535131) от 10.09.2016
+
+Ella Fitzgerald - Ella A Nice (1971) 1983, Pablo[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Night And Day [06:58]
+ 02.The Many Faces Of Cole Porter [05:32]
+ 03.The Ballad Medley [04:51]
+ 04.The Bossa Scene [05:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B375037F77A424199360496D6634C244429B3596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312261   (534499) от 03.07.2019
 
 Dickie Wells - 1927 - 1943 (1997) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Swing>
@@ -716,35 +745,6 @@ Dann Zinn - Day Of Reckoning (2019) Origin Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7A97EC9E452BE11044D551D4971A0E503B63EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312650   (530965) от 05.07.2019
-
-The Count Basie Orchestra - Long Live The Chief (1986) Denon [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Got It [5:41]
-02. April in Paris [3:43]
-03. Misunderstood Blues [7:16]
-04. Autumn Leaves [5:32](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11ADD78F5FA716FA87E38761B6EEB04DA63D9E63
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1014884   (775848) от 09.05.2016
+
+Niila - Gratitude (2016) [MP3|320 кб/с] <Pop Rock, Folk Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Love Nobody (03:34)
+02. Restless Heart (03:31)
+03. Better Off (feat. Laila Samuels) (04:05)
+04. Play You (03:41)(   Читать дальше...   )Жанр: Pop Rock, Folk RockПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381555B64AB9FC2E9C9C0AA5DEDB31F99C8F32FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014912   (775839) от 09.05.2016
+
+Nicole - Mit Dir Vielleicht (1994) [FLAC|Lossless|image + .cue] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mit Dir vielleicht.
+02. Ich brauch nur Dich.
+03. Moderne Piraten.
+04. Du bist der Mann (You Are the One).(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4CCC133BB72678F81F64541670428087FEB05F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014965   (775811) от 09.05.2016
+
+Gino Vannelli - Big Dreamers Never Sleep (1987) [APE|Lossless|image + .cue] <Pop, Synth-Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Name Of Money
+02. Time Out
+03. Wild Horses
+04. Young Lover(   Читать дальше...   )Жанр: Pop, Synth-Pop, ElectronicПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A835180FA01687E1269692EEA6108BA09E64EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212629   (775776) от 12.03.2018
+
+Judit Neddermann - Nua (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Em diras adeu
+02. Vai Vai Vai
+03. Els ocells
+04. 21(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C982859EA24B606F93BA3C67448769A48FC8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212633   (775747) от 12.03.2018
 
 New Paradise - 6 Albums (1977-1983) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -632,122 +748,6 @@ Julio Iglesias - Best Collection vol.3 (1995) Unofficial Release [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E38D3F4988DE5F5AF4CA0A01EFB6F12F4165A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278024   (774095) от 23.01.2019
-
-Марк Бернес - Песня Посвящается Моя... (1995) Мелодия, записи 1957, 1964-1976 [FLAC|Lossless|image + .cue] <Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня Посвящается Моя
-02. Песенка Фронтового Шофера
-03. Шаланды, из к/ф ''Два Бойца''
-04. Тучи Над Городомб из к/ф ''Человек с ружьём''(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D4D715A11BB04CDCAC8FE142CC41D8AEB79738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015725   (774054) от 11.05.2016
-
-Вячеслав Добрынин - И это всё Доктор Шлягер! (2004) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774054.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Спасатель (3:31)
-2. Синий туман (3:54)
-3. Не сыпь мне соль на рану (4:49)
-4. Казино (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C2BB181D9ECDB10B02D5216110C4A63AA81426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124831   (773538) от 13.04.2017
-
-VA - Singers & Songwriters: Classics (2010) [MP3|320 Kbps] <Pop/Rock ,Country ,R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buffalo Springfield - For What It's Worth (2:39)
-02. Gordon Lightfoot - Sundown (3:34)
-03. Nilsson - Everybody's Talkin' (2:44)
-04. Loggins And Messina - Your Mama Don't Dance (2:49)(   Читать дальше...   )Жанр: Pop/Rock ,Country ,R&BПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245B203F65E50557B77EE1E7D77FC59C233D6D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213044   (773354) от 15.03.2018
-
-VA - Robot Is Systematic (2009) EP (Franco Rago & Gigi Farina feat. 'Lectric Workers) [MP3|320 Kbps] <Electronic, Italo-Disco, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Lectric Workers - Robot Is Systematic (8:59)
-02. 'Lectric Workers - The Garden (6:56)
-03. Pleasure Discipline - For Hours Now (Remix) (7:01)
-04. Expansives - Life With You .... (6:56)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, ElectroПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA4A390BABB8C9DB002C7521595377F6F925928
 ```
 
 https://mybot314.ru/tekegram_catalog/

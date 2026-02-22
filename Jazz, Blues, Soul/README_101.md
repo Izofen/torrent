@@ -1,3 +1,90 @@
+###  Публикация: 1103087   (887942) от 11.02.2017
+
+John Hiatt & The Goners - Live in Switzerland 2003 (2014) [FLAC|Lossless|image + .cue] <Blues, Folk-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887942.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lincoln Town
+2. The Tiki Bar Is Open
+3. Paper Thin
+4. Circle Back(   Читать дальше...   )Жанр: Blues, Folk-RockПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBED1D47A301BA9C6E7C01211699F3D861CCF15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102822   (887935) от 11.02.2017
+
+R.J. Hiorns - Truth or Consequence (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Modern Electric>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gasping For Air 04:25
+02. Flaming Cannonball 03:38
+03. Blue Is The Night 04:56
+04. Are You Paranoid? 05:10(   Читать дальше...   )Жанр: Blues, Modern ElectricПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6A5AA48309343CE65859DD39F120DE3C38B842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102824   (887921) от 11.02.2017
+
+Daymé Arocena - Nueva Era (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Afro-Cuban, Vocal jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madres (5:46)
+02. Drama (3:30)
+03. Sin Empezar (2:52)
+04. Don't Unplug My Body (4:59)(   Читать дальше...   )Жанр: Afro-Cuban, Vocal jazz, SoulПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A636FD6B0C672712105DEF177A188CB4092BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103253   (887911) от 11.02.2017
 
 J.P. & the Voodoo Blues - Live at the Strand (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
@@ -734,103 +821,6 @@ Elina Duni Quartet - Matane Malit (2012) [FLAC|Lossless]<Contemporary Jazz, Voca
  08. Ra kambana
  09. Cobankat
  10. Kristal(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494564   (887351) от 08.09.2021
-
-Chris Rea - Blue Guitars II - Country Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin' Country Blues (3:41)
-02. Man Gone Missing (4:40)
-03. Can't Stay Blues (4:58)
-04. KKK Blues (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01EA0CA9C44DC1DED0104C5CF5E2359A7DEEDDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640381   (887347) от 07.04.2013
-
-Eddie Harris - Dancing By A Rainbow (1995) [FLAC|Lossless]<Hard Bop, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Mean Greens
- 02. The Grand Strut
- 03. Set Us Free
- 04. Boogie Woogie Bossa Nova
- 05. You Are Not the Right One for Me
- 06. Dancing by a Rainbow
- 07. An April to Be Remembered
- 08. It's Just Fun and GamesЖанр: Hard Bop, Soul, FunkПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640670   (887300) от 07.04.2013
-
-Solveig Slettahjell - 3 альбома (2005-2007) [FLAC|Lossless]<Jazz Vocal, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. 4:30 AM [03:15]
-02. I Do [03:00]
-03. One of these days [03:19]
-04. This is my people [03:09]
-05. Because [02:44]
-06. Time [04:18]
-07. Snowfall [03:17]
-08. Match Perfect [02:33]
-09. Inscription for the ceiling of a bedroom [01:52]
-10. Bed is too small [03:00](   Читать дальше...   )Жанр: Jazz Vocal, Contemporary JazzФормат: image+cueПродолжительность: 00:45:35
 
 ## Скачать торент
 ```bash

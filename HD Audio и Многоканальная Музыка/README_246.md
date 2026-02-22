@@ -1,3 +1,175 @@
+###  Публикация: 1800749   (15555) от 05.06.2025
+
+Gary Hoey - Avalanche (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Avalanche (3:39)
+02.  Unstoppable (3:34)
+03.  Maine to Mississippi (4:07)
+04.  Cold (5:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56CD0F6690292DD5B233F0C9B95A0B7DEDD2141C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800738   (15552) от 05.06.2025
+
+3rd Rock Studios - None of Your Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Ballad of the Chupachup (3:03)
+02.  Trivia Night (Remastered) (2:30)
+03.  Karaoke Night (Remastered) (3:32)
+04.  Singles (Remastered) (3:12)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0361416D9F5A9109A497753EE03A7CA3EB99C833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800757   (15551) от 05.06.2025
+
+When Rivers Meet - Addicted To You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Addicted To You (3:53)
+02.  Break Free (3:32)
+03.  Still Standing (3:35)
+04.  Coming Up For Air (4:12)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB10FE0CADCA29D1E4CEEA58F9B3A031D0AAAA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800751   (15541) от 05.06.2025
+
+Honeyboy Slim & The Bad Habits - Honeyboy Slim & The Bad Habits (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Let It All Hang Out (2:49)
+02.  For You Blue (1:41)
+03.  Built For Speed (2:34)
+04.  Bark But No Bite (2:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95310105F8C81B1C49D664B4B3BF3DE91D41A029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800686   (15539) от 05.06.2025
+
+Umpfel - Studio Albums (2 releases) (2015-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Umpfel — прогрессивный рок/метал-проект из Норвегии. В его состав входят Анунд Викингстад ​​(гитара и бас) и Андреас Скорпе Шён (ударные, клавиши и вокал).2015 - Cactus
+2019 - As the Waters Cover the SeaЖанр: Prog Rock, Progressive MetalПродолжительность: 2:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805FE40EBBF06B349778B2C36566026E039EA26D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800741   (15535) от 05.06.2025
+
+Cardinal Black - Midnight at The Valencia (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ride Home (3:41)
+02.  Falling (3:22)
+03.  Racing Cars (3:48)
+04.  Breathe (3:21)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDDC928CE3FC00D5785BB71E0C4F84476A51C4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800756   (15534) от 05.06.2025
 
 WellBad - Oyster & Pearl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -571,177 +743,6 @@ King 810 - Rustbelt Numetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3E4E25E7CB8F362153742FCE27DDFE8F9D40428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801410   (15041) от 10.06.2025
-
-Samael - Exodus (1998) (EP) Reissue, 2014, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15041.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Exodus
-A2 Tribes Of Caïn
-A3 Son Of Earth
-B1 Winter Solstice(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA43A92C43CA1A82120FB316C36DD3497DAD6A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801439   (15037) от 10.06.2025
-
-Lil Wayne - Tha Carter VI (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Carter [00:01:48]
-02. Welcome to Tha Carter [00:03:35]
-03. Bells [00:03:24]
-04. Hip-Hop [00:04:01](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE49CCBCE44980D9565B003E24BA5F4AB119C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801445   (15026) от 10.06.2025
-
-Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why (Interlude) [00:00:41]
-02. Best For Me [00:03:27]
-03. More Than Twice [00:04:33]
-04. You First [00:04:29](   Читать дальше...   )Жанр: PopПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D848FFC35C106D020F147B9AA46B076DBA17F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801771   (14825) от 12.06.2025
-
-Till Lindemann - Und die Engel singen (2025) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Und die Engel singen [00:03:27]Жанр: Industrial MetalПродолжительность: 00:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D1C82F769C2E3D610986D73083086DEF8F8DF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801795   (14743) от 13.06.2025
-
-Metallica - Load (1996) Remastered, 2025, UMC (Universal Music Catalogue) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ain't My Bitch (Remastered 2025) [5:05]
-02 - 2 x 4 (Remastered 2025) [5:29]
-03 - The House Jack Built (Remastered 2025) [6:39]
-04 - Until It Sleeps (Remastered 2025) [4:30](   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, MetalПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F2F5551C1A03370C9934B009A61AB09AEB8037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801785   (14731) от 13.06.2025
-
-Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bequest Of The Wicked [1:05]
-02 - The Eyes Of Suffering [4:04]
-03 - Deformity [4:42]
-04 - Never Forgotten Place [4:38](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8F257C9877839346E3B6F206CC401943FC2773
 ```
 
 https://mybot314.ru/tekegram_catalog/

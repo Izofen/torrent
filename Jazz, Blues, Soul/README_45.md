@@ -1,3 +1,107 @@
+###  Публикация: 604014   (996711) от 16.01.2013
+
+VA - The Very Best Of Love Legends (2 CD) (2006) [FLAC|Lossless]<Pop, Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 Diana Ross – When You Tell Me That You Love Me 4:13
+ 02 The Righteous Brothers – Unchained Melody 3:36
+ 03 LeAnn Rimes – How Do I Live 4:09
+ 04 Phil Collins – One More Night 4:52
+ 05 Daniel Bedingfield – If Youre Not The One 3:40
+ 06 Katie Melua – Nine Million Bicycles 3:15
+ 07 Brian Kennedy – You Raise Me Up 4:08
+ 08 Eva Cassidy – Songbird 3:43
+ 09 Dan Hill – Sometimes When We Touch 4:09
+ 10 Odyssey – If Youre Lookin For A Way Out 4:28(   Читать дальше...   )Жанр: Pop, RockФормат: 2хCD, CompilationПродолжительность: 01:09:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603698   (996215) от 18.01.2013
+
+Paul Ramirez Band - Sex With A Dragon (2012) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996215.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Right Where I Belong (3:50)
+2.  For Loving You (3:45)
+3.  Down Slow (4:27)
+4.  Gypsy Woman (3:37)
+5.  Sex With A Dragon (4:11)
+6.  Your Time (3:44)
+7.  You Are The Light (5:18)
+8.  Be Free (5:03)
+9.  See That My Grave Is Kept Clean (2:36)Жанр: Blues RockПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D2B94A49F4E3B5805226C970CCA1C8B95D19E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605124   (995940) от 19.01.2013
+
+Kalorin Nemayothin - Feel by Kal (2009) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Till  [03:28]
+02. Night And Day  [03:29]
+03. As Time Goes By  [02:57]
+04. Tea For Two  [03:12]
+05. For Sentimental Reason  [04:02]
+06. Stranger In Paradise  [04:25]
+07. Where Or When  [03:45]
+08. I Get A Kick Out Of You  [03:46]
+09. Dream  [02:32]
+10. It's Magic  [03:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605200   (995925) от 19.01.2013
 
 Panadda Reungwut - Feel By Panadda (2009) [FLAC|Lossless]<Vocal Jazz>
@@ -783,111 +887,6 @@ Stacey Kent - 8 альбомов (1996-2010) [FLAC|Lossless]<Vocal Jazz>
 08. Sait-on jamais ? [04:13]
 09. Les vacances au bord de la mer [03:30]
 10. Mi amor [03:59](   Читать дальше...   )Жанр: Vocal JazzФормат: track+cueПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431251   (993200) от 03.01.2012
-
-VA - Lady's Jazz : Starke Neue Stimmen (2008) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Madeleine Peyroux - You're Gonna Make Me Lonesome When You Go (3:28)
-02.Anna Maria Jopek - Don't Speak (4:43)
-03.The Peter Malick Group Feat. Norah Jones - New York City (5:07)
-04.Roberta Gambarini - When Lights Are Low (5:01)
-05.Laura Fygi - Girl Talk (3:12)
-06.Torun Eriksen - From Day To Day (4:20)
-07.Vienna Teng - Nothing Without You (3:39)
-08.Molly Johnson - Streets Of Philadelphia (3:17)
-09.Rebekka Bakken - Cover Me With Snow (3:46)
-10.Dave Grusin Feat. Diana Krall - Dreamsville (4:39)(   Читать дальше...   )2008Жанр: Vocal JazzПродолжительность: 01:05:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608406   (992932) от 26.01.2013
-
-Alex Skolnick Trio - Transformation (2004) [WavPack|Lossless]<Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transformation [05:53]
-02. Electric Eye [05:19]
-03. Fear Of Flying [05:10]
-04. Money [05:12]
-05. Both Feet In [05:27]
-06. Scorch [07:13]
-07. Blackout [05:03]
-08. Imv/The Trooper [05:17]
-09. No Fly Zone [04:27]
-10. Don't Talk To Strangers [05:58](   Читать дальше...   )Жанр: FusionПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608962   (992855) от 26.01.2013
-
-Rachelle Ann - Love Me (2009) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me  [04:03]
-02. If  [03:01]
-03. Feelings  [03:56]
-04. If You Dont Know Me By Now  [03:25]
-05. Didnt Me  [03:17]
-06. Traces  [03:04]
-07. Somebody Waiting  [03:59]
-08. If I Were A Boy  [04:27]
-09. You And Me Against The World  [03:37]
-10. Of All The Things  [03:17](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:59:09
 
 ## Скачать торент
 ```bash

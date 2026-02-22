@@ -1,3 +1,32 @@
+###  Публикация: 1642499   (196533) от 27.06.2023
+
+Laura Wilde - Charmed + Dangerous (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Roll (2:11)
+02. Scarlet Woman (3:35)
+03. Wind Me Up (3:32)
+04. I Love This City (2:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439CC8A0114F68FB4B250FB75517E09E9554D7CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654075   (194107) от 20.08.2023
 
 Aerosmith - Greatest Hits (2023) [FLAC|24/96|tracks|WEB-DL] <Classic Rock, Blues Rock, Hard Rock>
@@ -713,35 +742,6 @@ Suzi Quatro - 33 albums, 2 Box-set, 66 CD (1973-2023) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FBA4B8F1620D478B77BADBDC300FFB3E75B23F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658103   (191951) от 06.09.2023
-
-Airstrike - Red Born Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:31]
-02. One In A Million [00:05:03]
-03. Rollin [00:04:09]
-04. Tutankhamun [00:05:41](   Читать дальше...   )Жанр: Hard Rock, Heavy, Thrash MetalПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0260938A389AEC797B66C4D8782983564EB2B23B
 ```
 
 https://mybot314.ru/tekegram_catalog/

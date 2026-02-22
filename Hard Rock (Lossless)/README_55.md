@@ -1,3 +1,32 @@
+###  Публикация: 1572259   (423679) от 26.08.2022
+
+Angeline - We Were Raised On Radio (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helpless
+02. Closer
+03. My Heart Won't Let You Go
+04. We Were Raised On Radio(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E4A8CE0ABD5E3C76AA863354AA05D3AB9B34D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572339   (423675) от 26.08.2022
 
 Santa Cruz - The Return Of The Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -716,35 +745,6 @@ Deep Purple - In Rock (1970) Anniversary Edition, Remastered, 1995, EMI [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E89C99940C67AB45B463B37061F89CF1A1A7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066591   (410084) от 27.10.2016
-
-Anatomic - In For The Thrill (2000) [APE|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Until You're Gone 04:20
-02. Drift Away 03:33
-03. Deep End 03:41
-04. Out of My Heart 06:07(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0088C19CE6DBFC79195F8783876520187ECA99
 ```
 
 https://mybot314.ru/tekegram_catalog/

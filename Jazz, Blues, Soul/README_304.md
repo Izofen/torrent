@@ -1,3 +1,90 @@
+###  Публикация: 935634   (498509) от 09.09.2015
+
+Rusty Bryant - Fire Eater (1971) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Eater [09:37]
+02. Free At Last [08:37]
+03. The Hooker [09:31]
+04. Mister S. [07:38]Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C98D6A4BE7CE11FEAAB3FD9B185357D262A2FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935754   (498454) от 09.09.2015
+
+Memphis Train - No Buts, No Maybes (2015) [MP3|320 кб/с]<Modern Electric Blues, Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Got No Money (05:00)
+02. I'm A Mess (03:05)
+03. Change Your Mind (02:32)
+04. Electric Souls (05:18)(   Читать дальше...   )Жанр: Modern Electric Blues, Rockin' BluesПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48618BF53FA3957F39202DD8F961F3B0472A27C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935751   (498448) от 09.09.2015
+
+Mick Rothman - Place, Loss, Love & Life (2015) [MP3|320 кб/с]<Blues, Country Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albuquerque, Albuquerque (feat. Lump, Shuffle & The Str8 8s) (03:02)
+02. Wanted It That Way (feat. Lump, Shuffle & The Str8 8s) (04:12)
+03. I Want to Be Alone (feat. Lump, Shuffle & The Str8 8s) (03:23)
+04. A Certain Age (feat. Lump, Shuffle & The Str8 8s) (02:55)(   Читать дальше...   )Жанр: Blues, Country BluesПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE38E6D5D12487F81CE88DD6A0F8729D66A3ED3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935507   (498442) от 09.09.2015
 
 Tramp - Tramp (1969) Remastered 2007 [MP3|320 кб/с]<Blues Rock>
@@ -656,99 +743,6 @@ John Mayall - Find A Way To Care (2015) [MP3|320 кб/с]<Chicago Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B85E897BD14CEAFBC9315A3ED5B13EDAB7803A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242992   (496207) от 25.08.2018
-
-D.D.Lowka & Band - Mini Jazz (2013) GLM GMBH [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manteca [3:18]
-02. Stomping At The Savoy [3:52]
-03. Latin Lovers [4:04]
-04. Overload [3:51](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257F7D2BB6E0435476D10B93DD2F4F75A7EE35B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243113   (496201) от 25.08.2018
-
-Zoot Sims - Quartets (1950 - 1951) 2008, Prestige [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zoot Swings the Blues (take 1) [8:39]
-02. Zoot Swings the Blues (take 2) [2:28]
-03. Trotting [3:48]
-04. I Wonder Who [2:38](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93E0197713A115189B5786F69B2909C00FBE02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543142   (496200) от 05.09.2012
-
-VA - Kings Of The Blues (1993) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muddy Waters - Rollin' Stone    [03:08]
-02. Elmore James - Dust My Broom    [02:55]
-03. John Lee Hooker - One Bourbon, One Scotch, One Beer    [02:58]
-04. Albert King - I Got The Blues    [09:08]
-05. Sonny Boy Williamson - Bring It On Home    [02:35]
-06. Buddy Guy - Ten Years Ago    [02:38]
-07. Jimmy Reed - Baby What You Want Me To Do    [02:23]
-08. T-Bone Walker - Stormy Monday Blues    [02:50]
-09. Howlin' Wolf - Smokestack Lightning    [03:06]
-10. Little Walter - My Babe    [02:34](   Читать дальше...   )Жанр: Blues
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

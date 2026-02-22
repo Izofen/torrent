@@ -1,3 +1,174 @@
+###  Публикация: 1765317   (34399) от 12.12.2024
+
+The James Oliver Band - Frantic (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Your Life Away (3:51)
+02. Do You Really Do (3:18)
+03. Me - A Criminal (3:26)
+04. JOB Done (3:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:295E2F36BD8C9941D2FFE1AB0958423763AFCB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765319   (34396) от 12.12.2024
+
+Tony D - Electric Delta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There’s A Chance (3:27)
+02. New Attention (3:44)
+03. Can't Be Satisfied (4:08)
+04. I Wanna Shout (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FBB121BB6FB58C599B156ECF8085E23CDD5368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765316   (34394) от 12.12.2024
+
+The Black Sorrows - The Way We Do Business (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's What I'd Give (3:58)
+02. Shelley (3:34)
+03. The Way We Do Business (3:02)
+04. Maybe the Sun Won't Shine (3:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00304CB3C9660948CD4D7A8F2653E64138C36C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765320   (34393) от 12.12.2024
+
+Toral Shah - Uncovered (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flowers (3:29)
+02. Daddy Lessons (4:22)
+03. Cry Me a River (2:41)
+04. Give Me One Reason (4:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC018050704DEEB9AA1FCADE495462F2A6B46A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659020   (34121) от 15.12.2024
+
+Laibach - 1 Albums, 5 Singles (2023-2024) [FLAC 16, 24/44.1, 48, 96|Lossless|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Laibach - 2023 - Amerika (Single)
+Laibach - 2023 - O, Triglav, moj dom (Single)
+Laibach - 2024 - Opus Dei Revisited(   Читать дальше...   )Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 7CD, 02:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EFF4FF63C1D089819A9ABB5AC85A93C52585FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765912   (34061) от 15.12.2024
+
+Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Mysteries (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, House, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Downtempo, House, AmbientФормат: FLAC 24/44.1Продолжительность: 02:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382CDD720B4401734B1A94F3E4582BC764AB39DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766071   (33979) от 16.12.2024
 
 Wehmut - Flüstern der Freiheit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -569,177 +740,6 @@ Marcus Trummer - From The Start (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8D7076721D0ACFA92AA589AFD9D024E2EAC4957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769389   (32428) от 31.12.2024
-
-Robbie Williams - Better Man (Original Motion Picture Soundtrack) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Feel (From Better Man: Original Motion Picture Soundtrack) [3:01]
-02 - I Found Heaven (From Better Man: Original Motion Picture Soundtrack) [3:03]
-03 - Rock DJ (From Better Man: Original Motion Picture Soundtrack) [4:02]
-04 - Relight My Fire (From Better Man: Original Motion Picture Soundtrack) [2:37](   Читать дальше...   )Жанр: Pop, Pop Rock, SoundtrackПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F934744AC8BF3737D36CD820F3739FB9DD09DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770441   (32319) от 01.01.2025
-
-Just Magnetic - Life Electric (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maw N' PawЖанр: Blues RockПродолжительность: 01:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1467D96E64384C2928D0BA56EEECBD71CDED93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770443   (32306) от 01.01.2025
-
-Matteo Lombardi, Vittorio Iannucci, Marty Zylstra - Warrior Anthems (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Will Roar (2:53)
-02. The Sparks (3:07)
-03. The Highway (3:18)
-04. Shock Of Electricity (2:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B09903CEDA49B344C100BB163339A281F2A9E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770540   (32305) от 01.01.2025
-
-Stranger Vision - FAUST Act I: Prelude To Darkness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue In Heaven [00:01:39]
-02. Strive [00:05:21]
-03. Nothing Really Matters [00:05:14]
-04. Look Into Your Eyes [00:04:45](   Читать дальше...   )Жанр: Melodic Heavy, Progressive MetalПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A965900182B617AE8DEFECAE0075040F9A615299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770397   (32304) от 01.01.2025
-
-Marvin J. Galaxy - Mean Ways (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel the Groove (3:40)
-02. Mean Ways (4:31)
-03. Nightwatch (Part One) (3:01)
-04. Wanderers of Love (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B7BFE83758C6D9D0B9AB155DFFCBE69D51C568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770395   (32301) от 01.01.2025
-
-Dave Hobbs - Opus One (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Belong To Him (3:36)
-02. In Your Eyes (3:40)
-03. Bring My Cadillac Back (4:35)
-04. Home (3:46)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB5D6CCDB0536A1C8F465BE52063CD2DF1796B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

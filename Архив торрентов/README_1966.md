@@ -1,3 +1,32 @@
+###  Публикация: 1277651   (785060) от 21.01.2019
+
+myTracks 3.4.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785060.jpg" />
+</div>
+
+
+###  Подробнее
+
+myTracks — удобный геотаггинг фото
+myTracks — замечательная программа, которая будет полезна многим фотографам и путешественникам. С ее помощью можно легко загрузить ваши маршруты с большинства известных GPS-девайсов или просто из GPX-файла, и добавить геотаги к отснятым во время путешествия фотографиям.
+
+Кроме этого myTracks показывает проделанные маршруты на картах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Dirk StichlingПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский, Датский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0854B35FB97F72FAB2087EC3654BFEA5CBA29A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373184   (785055) от 08.06.2020
 
 Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Eternity and the Auto Memories Doll | Виолетта Эвергарден: Вечность и призрак пера [2019, Movie] BDRemux 1080p raw+rus
@@ -685,35 +714,6 @@ Duplicate File Detective 6.1.51 Enterprise [En/Ua]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E4FE50BF8DC3AE29F99FB69B3CAADE813C970EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204329   (784896) от 05.02.2018
-
-VA - Nothing But... Techno Essentials Vol.01 (2018) [MP3|320 Kbps] <Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  LukeSpencer UK  -  Waiting Around (Original Mix)  7:37
-02.  Ronny Vergara  -  Red Line (Joshua Calleja, Ruiz Sierra Remix)  6:10
-03.  BFVR  -  Feel The Groove (Original Mix)  7:21
-04.  John Glassey  -  Imbalanced (Original Mix)  6:04(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C44A2BD2B80286A94C165516D1922F94CAF1CA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

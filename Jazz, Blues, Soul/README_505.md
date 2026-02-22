@@ -1,3 +1,32 @@
+###  Публикация: 1520843   (138992) от 30.12.2021
+
+Bluejaf - Blues Coffee (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allright! (3:25)
+02. I Don't Smoke After Love (5:10)
+03. I'm a Shy Guy (5:28)
+04. When I Take the Road (5:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A869C19BD1EDDC31D41A1D80A2B1883B01F4D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520842   (138949) от 30.12.2021
 
 Aryan King - Juliet (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -720,35 +749,6 @@ Connor Selby - The Truth Comes Out Eventually (2025) [FLAC 24/48|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16928BBA8B36CBE039081BEFCE254D708D935FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825008   (136854) от 16.10.2025
-
-Family Company - Pieces Of Us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  By Our Self (Just Us) (3:05)
-02.  Pieces Of Us (4:20)
-03.  Need Ya Loven (3:58)
-04.  I Believe In Humanity (3:25)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215B3E4E9C10E7E5CBD54764E13B41A533F4DDF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

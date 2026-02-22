@@ -1,32 +1,3 @@
-###  Публикация: 1620817   (240418) от 22.03.2023
-
-The Buddy Collette Big Band - Live At El Camino College (1990) 2006, UFO-BASS [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz By The Bay [10:18]
-02. Blues In Torrance [6:44]
-03. Magali [6:46]
-04. Crystal [5:28](   Читать дальше...   )Жанр: West Coast Jazz, Big BandПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4890FC5D302746AF52EF047674F8681EA1E10179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634222   (240368) от 19.05.2023
 
 Andrea Pozza European Quintet - Gull's Flight (2011) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -745,6 +716,35 @@ Bruce Torff - Look Again (2013) Summit Records [FLAC|Lossless|tracks + .cue] <Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:455952A4E983CC67FEF56F649415E2D5411BBA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621763   (239768) от 26.03.2023
+
+Benny Golson - Turning Point & Free (1962) 2013, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Am I to Know? [3:50]
+02. The Masquerade Is Over [4:40]
+03. Dear Kathy [4:49]
+04. Three Little Words [4:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33727B5C576C48665D67C44FD909BB8F22F8EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 553159   (442055) от 29.09.2012
+
+Haydn - The Creation: Paul McCreesh & Chetham's Chamber Choir, Gabrieli Consort & Players (2008) 2CD [APE|Lossless]<Classical, Choral>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, ChoralПродолжительность: cd1 - 79:27
+cd2 - 29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B296F4DA0D02D8EA5B96C4B5DC33CD07737F266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553585   (442052) от 29.09.2012
 
 Журнал | Маленькая Diana №11 [ноябрь 2012] [PDF]
@@ -674,35 +701,6 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B5B6DA55CCDF306B79B36532F9B1041C58E8B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164106   (441869) от 09.09.2017
-
-VA - Radio Hits Vol.6 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  LTN - Wind And Cloud (Original Mix)  3:21
-02.  Roman Messer - For You (feat. Clare Stagg) (Original Mix)  4:30
-03.  Jemis & Alric - Ghosts Of The Past (feat. Angel Falls) (Vadim Bonkrashkov Remix)  2:54
-04.  Ruslan Radriges present Mantra & Lucid Blue - Take Me Higher (Club Mix)  3:51(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F02F915567A462895942A1E5BB0FFD8EDC9A86
 ```
 
 https://mybot314.ru/tekegram_catalog/

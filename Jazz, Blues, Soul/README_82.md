@@ -1,3 +1,93 @@
+###  Публикация: 288126   (922466) от 29.01.2011
+
+VA - Jazz Break (The Best Of Contemporary Smooth Jazz) (2007) [FLAC|Lossless]<Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Jazz, Smooth JazzПродолжительность: 01:07:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288517   (922419) от 29.01.2011
+
+Dave Brubeck - Legacy Of A Legend 2CD (2010) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922419.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Jeepers Creepers (4:58)
+02. Taking A Chance On Love (4:15)
+03. The Duke (2:55)
+04. Someday My Prince Will Come (8:19)
+05. Ode To A Cowboy (5:03)
+06. Thank You (Dziekuje) (3:34)
+07. Camptown Races (2:09)
+08. Gone With The Wind (6:24)
+09. Blue Rondo A La Turk (6:46)(   Читать дальше...)Жанр: JazzПродолжительность: 01:50:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366660   (922367) от 12.03.2020
+
+Benny Carter & Dizzy Gillespie - Sweet And Lovely 1976 (2000) ADA Sound Ltd. [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet and Lovely [10:44]
+02. Broadway [7:52]
+03. The Courtship [6:35]
+04. Constantinople [9:01](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08941104E85C1EC9EAFDB2EF0C288912E4CA814F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366635   (921881) от 12.03.2020
 
 Al Di Meola - Across The Universe (2020) [FLAC|24/96|Lossless|WEB-DL|tracks] <Jazz, Fusion>
@@ -655,93 +745,6 @@ VA - Louis Armstrong & Friends: What A Wonderful Christmas (1997) Hip-O Records[
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:538C42350EB81067996B170D8044B9242FE39E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095876   (920983) от 23.01.2017
-
-The Modern Jazz Quartet - Together Again: Echoes (1984) 2005, Pablo Records[FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.That Slavic Smile [08:05]
- 02.Echoes [07:10]
- 03.The Watergate Blues [06:09]
- 04.The Hornpipe [08:20](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9D30F308C006BD37B5209B723327992D2D5C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096141   (920951) от 23.01.2017
-
-Aaron Keylock - Cut Against The Grain (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  All The Right Moves  (03:32) 
-02|  Down  (04:33) 
-03|  Medicine Man  (03:09) 
-04|  Falling Again  (03:25) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE31BB229101093788AFAC29BBAA3BFF79AA71E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095874   (920949) от 23.01.2017
-
-The George Lewis Band Of New Orleans - Jazz At Preservation Hall IV (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Salutation March [03:01]
- 02.Salty Dog [02:52]
- 03.Winin' Boy Blues [02:50]
- 04.Pork Chops [03:24](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B041CCCC287D347CA73B862FA2C17EAEFB6BFACF
 ```
 
 https://mybot314.ru/tekegram_catalog/

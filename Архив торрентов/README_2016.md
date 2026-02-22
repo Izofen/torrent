@@ -1,3 +1,29 @@
+###  Публикация: 1212252   (776340) от 10.03.2018
+
+7-Data Recovery Suite 4.2 Enterprise RePack (& Portable) by elchupacabra[Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776340.jpg" />
+</div>
+
+
+###  Подробнее
+
+7-Data Recovery Suite — утилита для восстановления информации с: DE HDD, SATA HDD, SCSI HDD, FireWire HDD, SSD, USB HDD, External HDD, Hardware RAID, Floppy drive, USB flash drive, Compact flash card, Secure Digital card, Memory card/Memory stick, Micro card, Zip drive, IPod и других носителей, в результате порчи или сбоя оборудования, деятельности вирусов или форматирования. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B60E3B460C90F0EEE1F316C4CDD83F3C667FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014109   (776333) от 07.05.2016
 
 Any Video Converter Professional 5.9.4 Portable by PortableAppZ [Multi/Ru]
@@ -677,35 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:893A8977514BB0C7C99598A2E1949C33A765A830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014521   (776215) от 08.05.2016
-
-Хоккей. Чемпионат мира 2016. Группа В. 1 тур. Словакия - Венгрия (07.05.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776215.jpg" />
-</div>
-
-
-###  Подробнее
-
-07 мая 2016, суббота. 12:15 МСК
-Группа B. 1-й тур
-
-Стадион: Юбилейный (Санкт-Петербург, Россия) , вместимость: 6000(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Фёдоров)Продолжительность: 02:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE672779B0A7D9001EAF8AFF860941163597037
 ```
 
 https://mybot314.ru/tekegram_catalog/

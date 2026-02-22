@@ -1,3 +1,32 @@
+###  Публикация: 21674   (510606) от 27.08.2015
+
+Miles Davis (1953 - 2006) 32 альбома [FLAC, APE, WV|tracks+.cue, image+.cue]<Jazz>
+
+>>След.
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_510606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miles Davis девять раз становился победителем премии Грэмми. Он целых три поколения  был главной силой в мире джаза, и как трубач и как руководитель джаз-оркестра. Miles Davis считается одним из лучших музыкантов своего времени. На протяжении всей своей жизни, он был у руля меняющейся концепции джаза. Более того, он собственно и менял стили джаза, а многие потом следовали (   Читать дальше...   )Перечень альбомов:
+1953 - At Last!
+1954 - Walkin'
+1955 - Quintet and Sextet(   Читать дальше...   )Жанр: JazzПродолжительность: 37:24:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932070   (510331) от 28.08.2015
 
 Roland Kirk - Introducing (1960) /1990, Chess Records/ [FLAC|tracks+.cue]<Post-Bop>
@@ -716,35 +745,6 @@ June Bisantz - It's Always You June Bisantz Sings Chet Baker Vol. 2 (2015) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6C2705B8502688EC20CE0ABB9359ED05F761693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562918   (507130) от 11.07.2022
-
-Jim Adkins - Soul Expression (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Groove
-02. See the Light
-03. A Reason to Smile
-04. Soul Expression(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EAE5E3D4296AE8EDDAE7A1E1C98AF3C9CDBB42
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 921191   (575270) от 25.07.2015
+
+Проекты - VideoHive - Hand Drawn Story [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CD80C8CA82F9E13B58338BA49BA2887FA8B48D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921674   (575199) от 25.07.2015
 
 Проекты - Проект ProShow Producer - Paris [PSH]
@@ -657,32 +683,6 @@ VideoHive - Earth Zoom Pack [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:008D688E0A912DD1AE66C97030432573C7857BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922561   (566313) от 30.07.2015
-
-Проекты - VideoHive - Dont Stop [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания портфолио, слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A7C586BAF06E7AF2356267662E5CC55C9D04C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

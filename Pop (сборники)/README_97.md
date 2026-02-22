@@ -1,3 +1,32 @@
+###  Публикация: 1331301   (333253) от 14.10.2019
+
+VA - Осень на Love Radio (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333253.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Artik & Asti - Под Гипнозом (3:28)
+2.Billie Eilish - bad guy (3:14)
+3.Cream Soda - Никаких Больше Вечеринок (3:46)
+4.GAMPER & DADONI feat. Emily Roberts - Bittersweet Symphony (feat. Emily Roberts) (3:14)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4295F8A7753AD1468EC7A87DC3529C5FA2115A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420508   (332283) от 01.11.2020
 
 VA - Radio DFM Top D-Chart Октябрь (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AECBB04757484C499780C76E9169FCB1A308A0F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075316   (320991) от 22.11.2016
-
-VA - Музыкальные новинки mp3. Сборник 3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320991.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Анжелика Варум & Игорь Крутой - Опоздавшая Любовь 4:17
-002.Danny Avila Feat. Haliene - High 3:10
-003.Владимир Винс - Хватит 3:51
-004.Franky - После Тебя 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3933990FFC7069347D7D2305D619EC5E8A64FF19
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1512756   (229366) от 26.11.2021
+
+Elek Bacsik - The Electric Guitar Of The Eclectic Elek Bacsik (1962) 1989, Fontana [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Rondo a la Turk [6:17]
+02. Angel Eyes [3:30]
+03. Godchild [3:54]
+04. Take Five [3:15](   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF3809F10E09E128AB679D754F9B3BC909C8800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512924   (229349) от 26.11.2021
 
 Alex Malheiros - Tempos Futuros (2021) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Funk, Latin Jazz>
@@ -731,41 +760,6 @@ Louis Armstrong - Basin Street Blues (1989) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8393DD3CE9AB06ADAC01EE2061650C011727D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735225   (227739) от 19.12.2013
-
-Rhetta Butler - Still Rockin' (2013) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Prehistoric Woman 03:29
-02. Monday, Please Don't Come 02:25
-03. Hopin' For Better Days 03:23
-04. Under The Same Moon 04:47
-05. Thank God, I'm So Glad I Didn't Marry That Man 03:03
-06. Midweek City Sidewalk Blues 02:47
-07. It Sure Ain't Georgia 02:53
-08. Honeyman 02:21
-09. Don't Have To Fool With The Blues No More 02:41
-10. Can't Change The Way I Feel About You 03:09(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1E555A6354AB375E93BB990D154DBAA135FA50
 ```
 
 https://mybot314.ru/tekegram_catalog/

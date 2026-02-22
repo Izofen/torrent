@@ -1,3 +1,32 @@
+###  Публикация: 928984   (520636) от 18.08.2015
+
+Idlefon - Submarine (2015) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Industrial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make It Rain (7:13)
+02. Absorbed (6:08)
+03. Sinking (6:48)
+04. Conflict (6:06)(   Читать дальше...   )Жанр: Ambient, IDM, IndustrialПродолжительность: 00:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4348C3530C3F1E83053E5DC88EFBD157F9681F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928918   (520632) от 18.08.2015
 
 Polygon - Sein Lernen (2015) [FLAC|Lossless|WEB-DL]<Experimental, Ambient, IDM, Industrial>
@@ -661,32 +690,6 @@ Gilrs Wallpaper Collection (11.08.12) [Wallpapers 16+]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2079C8E502193EE5872B512F905DA8BAFB0FAD0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533578   (520508) от 13.08.2012
-
-Gilrs Wallpaper (11.08.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680x1050 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661033A41B3AE66370B44D88269BF891B5200847
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1522728   (756642) от 08.01.2022
+
+Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mademoiselle chante le blues
+02. Patou Blues
+03. Space In My Heart
+04. Alone(   Читать дальше...   )Жанр: Pop, Chanson FrancaiseПродолжительность: 04:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018342   (755685) от 20.05.2016
 
 VA - Русский Популярный Хит Формат (2016) [MP3|256-320 кб/с] <Pop>
@@ -716,35 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 10 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B5D1E4CA183C4CC1D06CC9F25C601858B72010F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019564   (747865) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 1 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - The Loco-Motion ( 1988 )
-02. Modern Talking - You're My Heart, You're My Soul ( 1984 )
-03. Bad Boys Blue - Pretty Young Girl ( 1985 )
-04. Silent Circle - Sib Dub Dua ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF11C526BBEE87A06A512455B6198E26CB2C260
 ```
 
 https://mybot314.ru/tekegram_catalog/

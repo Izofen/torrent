@@ -1,83 +1,25 @@
-###  Публикация: 1760821   (103141) от 16.11.2024
+###  Публикация: 1762048   (102950) от 24.11.2024
 
-Дмитрий Райс - Я счастливчик (2013) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цунами (acoustic)
-02. Капли дождя
-03. Life-Кайф
-04. Не замерзай(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C0C9AA222C14650EC37125FF568E3E5E3EF0C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760788   (103140) от 16.11.2024
-
-VA - LoFi Chillhop & JazzHop Christmas (Calm Music Session One) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flow Bop - She Is Lovely (6:23)
-02. Pomante - Here We Flow (4:13)
-03. Yurierre - Swung Slap (3:31)
-04. P. A. Jeron - Stranger In Moscow (Instrumental) (4:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98D5A636FA01394E62AA34716B06055B77D9B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760837   (103139) от 16.11.2024
-
-Lonerider - Down In The Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Hidden - Dead Land Energy (2011) [FLAC|Lossless|image + .cue] <Progressive Black Doom Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103139.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shiver
-02. Three Steps Back
-03. Getting Closer
-04. Help Me Brother(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:14
+01. Out of Control 02:38
+02. Dead Land Energy 03:26
+03. Humanjunk 03:04
+04. Archaic Wasteland 02:51(   Читать дальше...   )Жанр: Progressive Black Doom Death MetalПродолжительность: 00:43:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26A8E938A00B3EB3D0629D0A9A7776EF307DAD2C
+magnet:?xt=urn:btih:2BD41E183159EBB9EA9F24B56E7E5157B5134446
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760759   (103138) от 16.11.2024
+###  Публикация: 1762045   (102949) от 24.11.2024
 
-Настя Задорожная - 12 Историй (2009) [WavPack|Lossless|image + .cue] <Pop>
+Famishgod - Rotting Ceremony (2021) [FLAC|Lossless|image + .cue] <Doom Death Metal>
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103138.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Я С Тобой
- 02. Ничего Нет Сильнее Любви
- 03. Гоу-Гоу
- 04. Зима(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:23
+01. The Sun, The Death (6:40)
+02. Ascension (5:46)
+03. Fear Your Own Shadow (6:03)
+04. Deep Fall (6:28)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:47:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB8B684680139EAC6E28EABFE4C5E2AF918BC9F6
+magnet:?xt=urn:btih:E6A468F52D9076611943ACD9974A1308CA1C1081
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760871   (103137) от 16.11.2024
+###  Публикация: 1762319   (102948) от 24.11.2024
 
-Тест-драйв Renault KAPTUR 2017 — Минтранс (16.11.2024) WEBRip [H.264/720p]
+Carrioned - Echoes of Abomination (2013) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 
->>Документалистика и Телепередачи
->>За рулем
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103137.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-🔸 Юридические тонкости. Можно ли погасить долги, продав кредитный автомобиль?
-🔸 Тест-драйв Renault KAPTUR 2017: французский долгожитель. Что с ним сделало время?
-🔸 Будь готов! Что делать, если автомобиль неожиданно заглох?
-🔸 Не по уставу. Почему за защитную пленку на машине можно получить штраф?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:56
+01. Dirge for the Forsaken (Descend into Oblivion) 05:01
+02. Liturgy for Dying Remains 05:31
+03. Shrouded in Agony 05:56
+04. Carrioned (Rotting Remnants) 04:22(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 01:00:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BC00CEF0A20228BB658B87C411C4248703D4DC4
+magnet:?xt=urn:btih:BD45BC3882B0FB8F7C030A88BE941BE2928F1753
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760857   (103136) от 16.11.2024
+###  Публикация: 1761937   (102947) от 24.11.2024
 
-Военная тайна с Игорем Прокопенко (16.11.2024) WEBRip [H.264]
+Paradigm - Mainstream Epidemic (2005) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103136.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:09
+01. The Truth Surround (2:42)
+02. Kamikaze (4:19)
+03. Kamikaze (5:32)
+04. Let It Breathe (5:30)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:29:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57253DA799D9D743408CC3B688FD4CE75AE37514
+magnet:?xt=urn:btih:C18A3E5FCCAC360DD8E022DBAFA00E6068C5A357
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +114,318 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760825   (103135) от 16.11.2024
+###  Публикация: 1762023   (102946) от 24.11.2024
 
-Don Henley (Eagles) - Building The Perfect Beast (1984) Remastered 2024 [FLAC 24/192|Lossless|WEB-DL|tracks] <Soft Rock>
+Zombie Death Stench - The Redeadening (2010) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Requiem 01:15
+02. The Redeadening 05:11
+03. Ally of Apocalypse 03:30
+04. Dead in the Water 04:53(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A7C63F8E2FF8A46CCD39976DDEDB94934561D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762063   (102945) от 24.11.2024
+
+Pero Defformero - (Jer to lici na taj nacin?) Jer to liči na taj način? (2014) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal sviraću (3:21)
+02. Gotičarka 2 (6:50)
+03. Gastarbajter (3:44)
+04. Fejsbuk Stana (4:54)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A62F8751918BCACC788DAF83D1D5DC7D1272F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762116   (102944) от 24.11.2024
+
+The Pursuit Of Happiness - Love Junk (1988) CD, Album, Club Edition, CRC [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard to Laugh (2:40)
+02. Ten Fingers (2:53)
+03. I'm an Adult Now (4:30)
+04. She's So Young (3:37)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673F91A5232E3051B6366187748EDB573AE1F050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761898   (102943) от 24.11.2024
+
+The Soup Dragons - Lovegod (1990) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soup Dragons feat. Junior Reid / I’m Free    [0:03:58.40]
+02. Mother Universe    [0:03:46.30]
+03. Backwards Dog    [0:02:20.15]
+04. Softly    [0:02:57.63](   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC29F54D66D3335A8CB49C1225263A5E04D4D2B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762072   (102942) от 24.11.2024
+
+Seven Tears - In Every Frozen Tear (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twist Of Fate
+02. Faded Memory
+03. Hollow Ground
+04. Reflections(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53C2EB5F98A035AEC5BD9C04134D955FCFD7492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762108   (102941) от 24.11.2024
+
+Fleshbomb - Reincarnated In Abomination (2014) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude to Demolition (Intro) instrumental 00:50
+02. Compulsive Clitoridectomy 03:34
+03. Reincarnated in Abomination 03:03
+04. Abdominal Self-Mutilation 03:07(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111984B0B436428D45DD014E6BB5522FBAFDD05C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762051   (102940) от 24.11.2024
+
+Master's Hammer - (Slagry) Šlágry (1995) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Šavlový tanec 03:28 instrumental
+02. Ach, synku, synku 07:54
+03. Půjdem spolu do Betléma 03:41
+04. Indiánská píseň hrůzy 05:17(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6595FEAB70050B34B6F0A9E9BA5CACE54F0A438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762074   (102939) от 24.11.2024
+
+Shardless - Fairytales... Out Of The Dark (2008) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thrust
+02. Through the Stars
+03. Fairytales... Out of the Dark
+04. Black Empire(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13387DBF837EDF868D3C45A61C227710734190CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762329   (102938) от 24.11.2024
+
+Venduzor - Covered By The Blood (2010) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning in Hell 05:42
+02. Covered by the Blood 05:59
+03. Hidup Penuh Penindasan 04:59
+04. Rotten Dead Bodies 05:44(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA69C85A7C10B1A4419405E71D71B6585E985A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762109   (102937) от 24.11.2024
+
+Zombie Death Stench - Here I Die... Zombified (2007) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quietus 01:26
+02. The Fog 03:43
+03. Death 1 04:56
+04. Dessicate 05:04(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F91F2190585CD62B44224C7A15FF0E9974E8B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762269   (102936) от 24.11.2024
+
+The End - Within Dividia (2004) Deluxe Edition, 2024, Relapse Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Math Rock, Hardcore>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103135.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Boys Of Summer (Remastered 2024)
-02. You Can’t Make Love (Remastered 2024)
-03. Man With A Mission (Remastered 2024)
-04. You’re Not Drinking Enough (Remastered 2024)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:47:04
+01. These Walls (2024 Remaster) [00:04:41]
+02. Fetesque (2024 Remaster) [00:03:55]
+03. The Sense of Reverence (2024 Remaster) [00:03:04]
+04. The Scent 0f Elegance (2024 Remaster) [00:03:13](   Читать дальше...   )Жанр: Math Rock, HardcoreПродолжительность: 01:00:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D8B0807EE653AC114CFE1B567CE40AE015F328A
+magnet:?xt=urn:btih:C76C9C16317C63D2D24897B29A395672887E23E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,55 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760815   (103134) от 16.11.2024
+###  Публикация: 1762059   (102935) от 24.11.2024
 
-Живая еда с Сергеем Малозёмовым (16.11.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фисташки — чем они полезны и почему стоят так дорого? Команда программы отправилась за этими орехами на границу Турции и Сирии и узнала много удивительного: что объединяет фисташки с манго и абрикосом, зачем их кладут в мясные блюда и почему закрытые фисташки лучше не открывать.
- Яблочный сок — это просто сладкая водичка или концентрат витаминов домашнего производства? (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0D877614C51D10D63D64449784B136E30D95E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760789   (103133) от 16.11.2024
-
-Blues Rock Generations - Blues Rock Generations No.5 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103133.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Key to the Highway (3:34)
-02. Going Down (3:40)
-03. I'm Your Hoochie Coochie Man (4:54)
-04. Drive (6:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:07
+01. The Sheik Of Araby [2:39]
+02. Limehouse Blues [2:54]
+03. After You've Gone [2:41]
+04. Georgia On My Mind [3:09](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:00:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A737285C504CE4334EFFF2D5FB5DCCA913A3974F
+magnet:?xt=urn:btih:61F1A160DD29FB9D0E21ECBF7ABCF2F8A47F3D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,26 +462,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760780   (103132) от 16.11.2024
+###  Публикация: 1762169   (102934) от 24.11.2024
 
-НХЛ 2024-2025. Вашингтон Кэпиталз - Колорадо Эвеланш (15.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady Is a Tramp [4:16]
+02. Stu's Due Blues [5:42]
+03. The Things We Did Last Summer [2:52]
+04. Yardbird Suite [3:52](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, CoolПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105F1E39D0D4A3FFFF0438419D8DE780577A973D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761942   (102933) от 24.11.2024
+
+Supergrass - Life on Other Planets 2003 (2003) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Za (3:05)
+02. Rush Hour Soul (2:55)
+03. Seen the Light (2:26)
+04. Brecon Beacons (2:56)(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9718C2F5986ED8A330F3E11208C29B0FD29EF8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762322   (102932) от 24.11.2024
+
+Castle - Castle (1994) [FLAC|Lossless|image + .cue] <Doom Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 7th Empire (4:50)
+02. The Emperor's Children (4:01)
+03. Alter Reality (7:07)
+04. Exposed (9:41)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338E7D3EC93FAA5D9DF0FD2FC14437BF7F21DB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762021   (102931) от 24.11.2024
+
+Famishgod - Roots Of Darkness (2016) [FLAC|Lossless|image + .cue] <Doom Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss of the Underworld (7:40)
+02. Bad Omen (9:18)
+03. Molested, Defiled, Disrupted (9:47)
+04. Chamber of Chaos (8:12)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1294B14A5A48AEE134D37EC49F2B5A8D84EAD1AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762193   (102930) от 24.11.2024
+
+НХЛ 2024-2025. Нью-Джерси Дэвилз - Вашингтон Кэпиталз (23.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103132.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 ноября 2024, суббота. 05:00 МСК. Стадион: Болл-Арена (Денвер, США), 18 083 зрителя (100% при вместимости 18 147)
-Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада); Главный судья: Брэндон Бландина (Сентенниал, США); Линейный: Килиан МакНамара (Лейк Уорт, США); Линейный: Трент Кнорр (Пауэлл Ривер, Канада)Телекомпания: ALTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:05
+24 ноября 2024, воскресенье. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Фурман Саут (Сьюикли, США); Линейный: Дэн Келли (США); Линейный: Дерек Нансен (Оттава, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C70AB3021D7ED8C30EBA2026B1D428D6BFFF710D
+magnet:?xt=urn:btih:67731E1EC733D4136427609EE92646B8FCBEEB22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,448 +605,140 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760786   (103131) от 16.11.2024
+###  Публикация: 1761992   (102929) от 24.11.2024
 
-070 Shake - Petrichor (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative R&B, Alternative Pop, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sin [3:31]
-02 - Elephant [2:48]
-03 - Pieces Of You [2:49]
-04 - Vagabond [3:13](   Читать дальше...   )Жанр: Alternative R&B, Alternative Pop, Indie PopПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39FE98A0B2834126208775A19E977294BD6EF07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760823   (103130) от 16.11.2024
-
-Times Of Grace - Studio Albums (2 releases) (2011; 2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Times Of Grace - сайд-проект Адама Дуткевича из Killswitch Engage2011 - The Hymn Of A Broken Man
-2021 - Songs Of Loss And SeparationЖанр: MetalcoreПродолжительность: 01:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C939975E79CECAEAEA0F2576B171B65512C58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760827   (103129) от 16.11.2024
-
-Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.1 (1952, 1953) Blue Moon [WavPack|Lossless|image + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella by Starlight [2:44]
-02. Time on My Hands [2:57]
-03. 'Tis Autumn [3:14]
-04. The Way You Look Tonight [3:04](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24ACE995E84C3D507FE1A08FC41F55857B444CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760866   (103128) от 16.11.2024
-
-Литература и любовь / Literature and Love (1913) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем коротенькая, но милая романтическая история о знакомстве начинающей, пока еще не преуспевающей, писательницы и молодого книжного издателя. Правда она не знает, что он издатель. И, вообще, она думает, что он слепой. И...короче, там все запутано... :) Смотрите.Производство: США / Lubin Manufacturing CompanyЖанр: короткометражный, мелодрама, немое киноРежиссер: Ллойд Б. КарлтонАктеры: Гай Д’Эннери, Ormi Hawley, Мэри Смит, Ирвинг УайтПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7508051552F51687C5E3E327D93C8C333026ADB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760808   (103127) от 16.11.2024
-
-The Damned - Darkadelic (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk Rock, Post-Punk, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Invisible Man [3:11]
-02 - Bad Weather Girl [4:50]
-03 - You're Gonna Realise [2:37]
-04 - Beware of the Clown [3:15](   Читать дальше...   )Жанр: Rock, Punk, Punk Rock, Gothic Rock, Post-Punk, New WaveПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704DA9259AF2DB1252DF5F4C38F13500E19A1866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760948   (103126) от 17.11.2024
-
-Solon Fishbone - Better Late (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luciano Leães - Going Back Home (3:44)
-02. Crazy Times (3:32)
-03. Fly Away (4:54)
-04. Mama & Papa (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBF6212EC180FB73B635FEFE203977253152999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761051   (103125) от 17.11.2024
-
-MotoGP. Этап 20 из 20. Гран-при Барселоны. Гонка (17.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103125.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 ноября 2024, воскресенье. 16:00 МСК. Этап 20, Испания. Гран-при Барселоны. Гонка (24 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66938DBF46DCC26DC58EF488735E9FB418F9F3BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760951   (103124) от 17.11.2024
-
-The Feelgooders - Soul & Imagination (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cries (3:00)
-02. Funky Lady (4:01)
-03. I Found Love (3:11)
-04. The Absence of Cool (4:39)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A74969ABF8BA51B5FF6B3BDF0C89B54D2C14D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760959   (103123) от 17.11.2024
-
-Айархаан - Добун Дуораан (2007) [MP3|320 Kbps] <Yakutia Folk, NeoFolk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уhуктуу [03:53]
-02. Орто дойду оноhуллуута [05:17]
-03. Алгыс ырыата [02:00]
-04. Ураанхайым дойдулара [02:59](   Читать дальше...   )Жанр: Yakutia Folk, NeoFolkПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34D247E32A357E2F57335B85F0C52F57252CAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760954   (103122) от 17.11.2024
-
-Tubesnakes - Navasota TX (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best of Me (3:21)
-02. Darkness on My Shoulder (3:05)
-03. When All Is Said and Done (4:59)
-04. Seventeen Fathoms (4:12)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403FCDC2F9490957B1E3E2696A6388DA04A05FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760984   (103121) от 17.11.2024
-
-Чудо техники с Сергеем Малозёмовым (17.11.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103121.jpg" />
-</div>
-
-
-###  Подробнее
-
-За вами следят: правда ли, что машины уже видят людей насквозь? Какую пользу приносят эти системы и чем они грозят в обозримом будущем?
-Технологичные способы для переноски тяжестей: какие устройства облегчат непростую задачу и безопасна ли для здоровья такая экономия на грузчиках.
-Наушники с переводчиком: неужели учить языки и правда больше не нужно, ведь этот гаджет (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CA7A1F7ECF7D7D3D967EEEC95F88FFD67F430B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760957   (103120) от 17.11.2024
-
-VA - Steel Bars - A Rock Tribute To Michael Bolton (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girish Pradhan - Everybody's Crazy (4:41)
-02. Steve Overland - Fool's Game (3:56)
-03. Dave Mikulskis - How Can We Be Lovers (3:53)
-04. Sochan Kikon - Steel Bars (3:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E132ED6A0B625CC959BD79C10E881EF07895C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760979   (103119) от 17.11.2024
-
-Дмитрий Худяков | Путешествие по берегам морей, которых никто никогда не видел (2022) [MP3, Владимир Захаров]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динозавры в наш технический век? Моря в нашем степном краю? Да, и останки доисторических животных, и следы исчезнувших морей смогут найти ребята увлеченные и пытливые. Но свою научно-популярную книгу ведущий широко известной и любимой ребятами телевизионной передачи «Не за тридевять земель» адресует не только юным исследователям. Ведь любознательность, целеустремленность, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 08:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0376AD03021EEC45B7C32DDC9D11022A5D6B5F95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760766   (103118) от 17.11.2024
-
-Underworld - Strawberry Hotel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive, Techno, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Black Poppies
-02 denver luna
-03 Techno Shinkansen
-04 and the colour red(   Читать дальше...   )Жанр: Tech House, Deep House, Progressive, Techno, ElectronicПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF5A5B646148EBE584730029470E08C056F0B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760982   (103117) от 17.11.2024
-
-VivaVideo Video Editor v9.22.5 Mod by MustHave [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103117.jpg" />
-</div>
-
-
-###  Подробнее
-
-VivaVideo - это простой в использовании видеоредактор и профессиональный редактор видео , который помогает вам легко записывать и показывать свою жизнь.Скачайте Viva Видеоредактор для монтаж и обработка видео с фото, музыкой и эффектами, делитесь ими на ютуба, Инстаграм, Тик Ток Профессиональный видеоредактор с эффектами и бесплатное программа для монтажа видео. (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 16.11.2024Разработчик: QuVideo Inc. Video Editor & Video Maker AppПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65D734F6F91D8894384F7D940A6D10327E826D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761038   (103116) от 17.11.2024
-
-Пикник - Родом Ниоткуда (1988) Release 2004, Grand Records [WavPack|Lossless|image + .cue] <Soft Rock, Goth Rock>
+Veins - Innocence (2017) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal, Groove Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103116.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Я Невидим
-02. Интересно
-03. Нет Берегов
-04. Романс(   Читать дальше...   )Жанр: Soft Rock, Goth RockПродолжительность: 00:40:42
+01. Animula Vagula Blandula 00:33
+02. Pt. 1 03:19
+03. Until Dawn 04:42
+04. Reflections 03:57(   Читать дальше...   )Жанр: Death Metal, Thrash Metal, Groove MetalПродолжительность: 00:37:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:068BF7970C815B39908084A10790DBBCCF47BF20
+magnet:?xt=urn:btih:6243E1618688D04213A3A949B6CCCB998893ACA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761995   (102928) от 24.11.2024
+
+Malediction - Reductio ad Absurdum (2008) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reductio ad AbsurdumЖанр: Death MetalПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6050514A8EC1E5E6AAC5D6FA2B96384F07FF9C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761975   (102927) от 24.11.2024
+
+Trinakrius - Massacro (2010) [FLAC|Lossless|image + .cue] <Power Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massacro 03:18
+02. La morte del mondo 05:40
+03. ...e vivere sarà 04:45
+04. Come stai 05:03(   Читать дальше...   )Жанр: Power Doom MetalПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58537228EADAE0AE8740514825D7CCF483FB8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762060   (102926) от 24.11.2024
+
+Pero Defformero - Undergrand (2009) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Došli smo do kraja puta (3:21)
+02. Silvana (4:35)
+03. Gotičarka (4:44)
+04. Ferrari (3:47)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37219FA72C6712C09C53E2C2731E7DBB5CCB66FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762057   (102925) от 24.11.2024
+
+Ocean Chief & Runemagick - The Northern Lights (2007) Split [FLAC|Lossless|image + .cue] <Doom Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Chief - Gathering Souls (28:10)
+02. Runemagick - Bound in Magick Haze (9:39)
+03. Runemagick - Chthonic Temple Smoke (10:13)Жанр: Doom Death MetalПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A5B794DE227696D4DFF88F6AC7DAFC53E3E822
 ```
 
 https://mybot314.ru/tekegram_catalog/

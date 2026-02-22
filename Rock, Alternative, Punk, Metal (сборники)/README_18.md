@@ -1,3 +1,35 @@
+###  Публикация: 1127586   (730595) от 22.04.2017
+
+VA - Hits of My Soul Vol. 26 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. A Perfect Circle - The Outside (Resident Renholder Mix) (05:27)
+02. Disturbed - The Light (04:17)
+03. KoRn - Coming Undone (03:20)
+04. Sugababes - Come With Me (06:08)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6860190FE00D3CEBA11E52EC9B7A1589693783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530112   (730527) от 09.02.2022
 
 VA - Approaches & Tribute To JJ Cale Compilation (2022) [MP3|320 Kbps] <Rock, Blues,>
@@ -716,35 +748,6 @@ Vale Of Pnath - Vale Of Pnath II (2016) [MP3|320 кб/с] <Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B3B7F5078B9DD24E4A13114C2F30337CDD3E14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792166   (709913) от 02.06.2014
-
-VA - Driving Rock Ballads (2014) [MP3|320 кб/с]<Rock, Hard Rock, Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nirvana - The man who sold the world
-02. Chris Rea - I just wanna be with you
-03. Doors - The severed garden
-04. Nocturnal rites - The legends lives on(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 07:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD6BE00E83289DB10AB995C2140C7579A471809
 ```
 
 https://mybot314.ru/tekegram_catalog/

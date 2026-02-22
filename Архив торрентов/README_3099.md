@@ -1,3 +1,29 @@
+###  Публикация: 926987   (531189) от 11.08.2015
+
+Adblock Plus 2.6.10 for Mozilla Firefox [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расширение для браузеров на основе Gecko (Mozilla Firefox, Mozilla Thunderbird, Mozilla Suite, SeaMonkey, Songbird, Mozilla Prism и K-Meleon), Blink (Google Chrome, Chromium, Opera и др.) и Trident (Internet Explorer), позволяющее блокировать загрузку и показ различных элементов страницы: чрезмерно назойливых или неприятных рекламных баннеров, всплывающих окон и (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71F30E6BFE2F6B2D59CB250868BA7E7E59F0CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926726   (531187) от 11.08.2015
 
 Безумный Макс: Дорога ярости / Mad Max: Fury Road (2015) WEB-DL [H.264/720p-LQ]
@@ -674,35 +700,6 @@ Fatum @ A State Of Trance Festival 900:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD0C8C4397EE57C0C361F54C9F20068FAFD9DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312231   (530937) от 05.07.2019
-
-Spacey Koala - Germination (2019) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Psyglitch, Psyjazzy>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530937.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Germination (ft. JS Leblanc) 06:56
-2. Two Dolphins Having A Drink 05:25
-3. Plastic Lava 05:37
-4. Pestalotiopsis microspora 04:40(   Читать дальше...   )Жанр: Psydub, Psyglitch, PsyjazzyПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495FD7300A24279A58398A16A7D57146B3B08B48
 ```
 
 https://mybot314.ru/tekegram_catalog/

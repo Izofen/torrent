@@ -1,3 +1,32 @@
+###  Публикация: 1164106   (441869) от 09.09.2017
+
+VA - Radio Hits Vol.6 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  LTN - Wind And Cloud (Original Mix)  3:21
+02.  Roman Messer - For You (feat. Clare Stagg) (Original Mix)  4:30
+03.  Jemis & Alric - Ghosts Of The Past (feat. Angel Falls) (Vadim Bonkrashkov Remix)  2:54
+04.  Ruslan Radriges present Mantra & Lucid Blue - Take Me Higher (Club Mix)  3:51(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F02F915567A462895942A1E5BB0FFD8EDC9A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248540   (441861) от 20.09.2018
 
 Однажды в России (2018.09.19) SATRip (сезон 8, выпуск 5)
@@ -674,32 +703,6 @@ FastStone Image Viewer - вьювер, редактор и конвертор г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D4BE96B56EB1731F15CB0FD36D50AF39A877853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248521   (441670) от 20.09.2018
-
-O&O Defrag Professional / Server 22.0 Build 2284 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441670.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O Defrag - одна из самых известных и лучших программ для дефрагментации жёстких дисков на рабочих станциях. Позволит вам вернуть утраченную производительность рабочих станций Windows. Данное решение устранит фрагментацию файлов и расположит их в нужном порядке. Программа предлагает широкий выбор новых и уникальных функциональных возможностей, которые позволяют (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B40C69F84EB1F3FF3DE7C75D3C50A6401017C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

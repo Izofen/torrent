@@ -1,3 +1,32 @@
+###  Публикация: 1593766   (179585) от 28.11.2022
+
+Deep Purple - Greatest Hits (2022) 3 x CD, Compilation, Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179585.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Highway Star (Live at Schleyer-Halle)
+02. The Cut Runs Deep
+03. Vavoom: Ted The Mechanic(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F86787D064BB3F2590310A848B65F7C8E8BDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251403   (179551) от 28.11.2022
 
 Joe Lynn Turner Projects - 34 Albums, 38 CD (1980-2022) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock, Melodic Rock>
@@ -716,35 +745,6 @@ Classless Act - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2390AACF29F0B59A3155CBC5347CDFFB76F62C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596144   (174065) от 08.12.2022
-
-Newman - Ignition (2020) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of The Road
-02. Chasing Midnight
-03. Ignition
-04. Worth Dying For(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FC1B738BB02F1C75AED91A3B16AC8F06324324
 ```
 
 https://mybot314.ru/tekegram_catalog/

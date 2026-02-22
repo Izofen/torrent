@@ -1,3 +1,32 @@
+###  Публикация: 1472828   (1014011) от 27.05.2021
+
+VA - The Evening Of Retro Mania (2021) [MP3|320 Kbps] <Pop, Rock, Disco, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014011.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Silicon - True Faith
+002. Continent Number - Afromerica
+003. DJ Scana - Dream On Me
+004. The B-52's - Channel Z(   Читать дальше...   )Жанр: Pop, Rock, Disco, RetroПродолжительность: 13:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7E37A4C323322003E36352219FB1DA396B68D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472876   (1014004) от 27.05.2021
 
 VA - The Sound of the 80's (2021) [MP3|320 Kbps] <Pop Rap, Folk Rock, Indie, Synth-pop>
@@ -716,35 +745,6 @@ VA - Everybody Clap: Disco Party (Vol.04) (2021) [MP3|320 Kbps] <Disco, Remix>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17D0524834C7708557541D7BC225E1CE4AD69485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481895   (1007963) от 05.07.2021
-
-VA - Лето на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Nas X - MONTERO (Call Me By Your Name) (2:17)
-02. Nessa Barrett feat Jxdn - La di die (3:15)
-03. Minelli - Rampampam (3:20)
-04. Imagine Dragons - Follow You (2:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD91E5C3993BB4140D6AC663A0E6D5058A79088
 ```
 
 https://mybot314.ru/tekegram_catalog/

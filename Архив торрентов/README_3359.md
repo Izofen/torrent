@@ -1,3 +1,29 @@
+###  Публикация: 1406243   (477353) от 02.09.2020
+
+Firefox Browser 80.0.1 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347A79F76507B4AFEEFFFAB22A0900EE49B43DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406261   (477352) от 02.09.2020
 
 CrystalDiskInfo 8.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -656,35 +682,6 @@ Run-Command - небольшая программа, которая создан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3E598388DBBEF3A1C4B7237E8B74E4378511613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701321   (477153) от 18.09.2013
-
-Zomboy – Reanimated 2 EP (2013) Pt. I & Pt. II [MP3|320 Kbps] <Dubstep, Electro House, Glitch Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terror Squad (Original Mix)
-02. Bad Intentions (Original Mix)
-03. Raptor (Original Mix)
-04. Braindead (Original Mix)Жанр: Dubstep, Electro House, Glitch HopПродолжительность: 00:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839DBEE58CB109E6E649D48EA78A933340759F7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

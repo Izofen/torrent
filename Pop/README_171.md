@@ -1,3 +1,119 @@
+###  Публикация: 1307109   (555226) от 08.06.2019
+
+Plastic Surprise - Bang Bang (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bang Bang (You Got The Money) (5:09)
+02. Disco Express (7:43)
+03. Got To Have Your Love (9:29)
+04. Hot Nights (6:02)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37F40B72D9D336118E0C42490C2930AFEBF0BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307305   (555087) от 09.06.2019
+
+The University of Newcastle Choir - Battle Cry (2008) [FLAC|Lossless|image + .cue] <Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Playin to Win (2:58)
+02. Bicycle (2:31)
+03. Great Southern Land (4:56)
+04. And So It Goes (3:16)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A652A8391C6FF586E052128FF9C48C14C794C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307429   (555086) от 09.06.2019
+
+Bo Katzman Chor - Spirit of Joy (2001) [FLAC|Lossless|image + .cue] <Pop, Cover, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Of Joy (4:27)
+02. Joshua (2:54)
+03. Soul Searchin' (5:54)
+04. Our Father (4:49)(   Читать дальше...   )Жанр: Pop, Cover, GospelПродолжительность: 00:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48196ABE56FD374FE589711671E3FAAE67CCF87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307397   (555084) от 09.06.2019
+
+Горячий шоколад - Береги (2009) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Выбрала любовь
+02. Береги
+03. Чувства
+04. Неба мало ( feat. Дмитрий Климашенко )(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDC93DB9ED43A91AC0AE7F518DB3E16CB0C413A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307666   (554915) от 10.06.2019
 
 Jesika von Rabbit (of Gram Rabbit) - Dessert Rock (2018) [MP3|320 Kbps] <Alternative Pop, Electronic Space Rock, Electropop>
@@ -626,122 +742,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D0D998AF44C492ACBE27D0649738A5D5E3C6913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308516   (553776) от 15.06.2019
-
-NEЯ - 2 альбома (2001-2002) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вечерок (4:21)
-02. Нет, яне верю (3:43)
-03. Холодно мне (4:26)
-04. Ой-ёй-ёй (4:32)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD7CC5DEF333CC8F60C539DF896EFD3BA4527D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308628   (553775) от 15.06.2019
-
-VA - No Schlager No Party (Von Discofox bis Mallorca - Die besten Hits 2019 im Mallorcastyle bis zum Karneval, Fasching und Oktoberfest 2020) (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kay Dörfel - Malinconia
-02. Michael Fischer - Unser Moment
-03. Justin Winter - Die Spannung steigt
-04. Neon - 100.000 Volt(   Читать дальше...   )Жанр: PopПродолжительность: 04:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C7607719DEA357F8ABF8FBCB84C3ABB807801F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236866   (553769) от 20.07.2018
-
-Монеточка - Раскраски для взрослых (2018) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Teen Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Русский ковчег (3:34)
-02. Каждый раз (3:28)
-03. Нимфоманка (2:41)
-04. Нет монет (4:38)(   Читать дальше...   )Жанр: Pop, Indie Pop, Teen PopПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C761406FA493723998964B5F8F1C70E80B3004AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308399   (553746) от 15.06.2019
-
-VA - Discofox Stars (Die besten Schlager Hits 2019 für deine Fox Party) (2019) [MP3|320 Kbps] <Disco, Schlager & Volksmusik, Neue Deutsche Welle>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Fischer - Unser Moment
-02. Neon - 100.000 Volt
-03. Andreas Lawo - Verlorenes Glück
-04. Axel Fischer - Bella Ciao (Radio Edit)(   Читать дальше...   )Жанр: Disco, Schlager & Volksmusik, Neue Deutsche WelleПродолжительность: 04:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268796B36713B43C50583192E743B423EDE1E6E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

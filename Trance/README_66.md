@@ -1,3 +1,32 @@
+###  Публикация: 1808393   (64981) от 24.07.2025
+
+VA - Redux Selection, Vol. 8 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comacode - Straight Ahead (Extended Mix) [7:01]
+02. Raul Alex I. - Red Castle (Extended Mix) [8:03]
+03. Sander Bastiaans & SkyDrifter - Tenderness (Extended Mix) [7:12]
+04. Betibwe - Reality Universe (Extended Mix) [6:30](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D122CCF2E3F062D05CC9B64F54A8EA5E6C9E9F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808821   (64892) от 26.07.2025
 
 VA - Progressive Trance Awakening, Vol. 06 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -713,35 +742,6 @@ VA - Trance 2024, Vol. 6 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAC262C7407748EB9325704FB1637465C0902D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748705   (43903) от 11.09.2024
-
-VA - Trance 2024, Vol. 7 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila & Richard Durand - Nebula (Original Mix) [4:12]
-02. BiXX & Stargazers & Sarah Russell - A River Runs Through Me (Original Mix) [3:32]
-03. Stoneface & Terminal - Sun & Soul (Original Mix) [3:52]
-04. Kaimo K & Ellie Lawson - Till I Found You (Original Mix) [3:35](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C2E4B0DF930E249EDF1257C88F602BFD411B52
 ```
 
 https://mybot314.ru/tekegram_catalog/

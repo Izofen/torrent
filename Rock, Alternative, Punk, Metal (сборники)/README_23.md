@@ -1,3 +1,32 @@
+###  Публикация: 1230756   (612178) от 14.06.2018
+
+VA - Sound Of 70's Rock (2018) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZZ Top - Tush 2:14
+02. Warren Zevon - Werewolves Of London 3:28
+03. Alice Cooper - Schools Out 3:30
+04. Faces - Miss Judys Farm 3:40(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747D9AEE875CE50751259C53640B5CA05250B60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912001   (610562) от 26.06.2015
 
 VA - Neue Deutsche Harte (1999-2015) [MP3|128-320 кб/с]<Industrial-Metal, Folk-Metal>
@@ -722,35 +751,6 @@ Judas Priest - Metal Gods (2019) (2CD Compilation) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE3372A8C36E97233879ABEF9E7F6CBD0D699263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552049   (587700) от 20.05.2022
-
-Владимир Ткаченко и Виктор Молчанов - Double Fantasy (2008) [MP3|320 Kbps] <Rock, Acoustic>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Buy Me Love (4:57)
-02. All You Need Is Love (3:34)
-03. In My Life (2:39)
-04. The Night Before (2:39)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56086224A07418ECDEA39741123E37F022B4632E
 ```
 
 https://mybot314.ru/tekegram_catalog/

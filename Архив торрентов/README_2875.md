@@ -1,3 +1,32 @@
+###  Публикация: 664990   (582228) от 09.08.2016
+
+Давид Тухманов - По волне моей памяти (1976) [FLAC 2.0|192/24|tracks|Vinyl-Rip]<Art Rock, Schlager, Symphonic Rock, Classic Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Я мысленно вхожу в ваш кабинет (Максимилиан Волошин) 5:04
+Vocals – Мехрдад Бади
+02. Из Сафо (VII век до н.э.) 5:18(   Читать дальше...   )Жанр: Art Rock, Schlager, Symphonic Rock, Classic RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C84A9A0833CD01B83196C8C205CA8B65BE79293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302234   (582200) от 14.05.2019
 
 Vivaldi 2.5.1525.41 Stable [Multi/Ru]
@@ -697,41 +726,6 @@ Syndicate - Syndicate (2011) [MP3|192-320 kbps]<Hard Rock, Modern Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2EA97EC8A08517194AAEEE75EB6086E09A5A22D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359677   (582034) от 06.07.2011
-
-Patty Ascher - Bossa, Jazz'n'Samba (2011) [MP3|320 kbps]<Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582034.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Springtime
-2.The Summer Knows
-3.Girls Just Want to Kiss
-4.Booking Time
-5.How Much I Care
-6.The Winter
-7.Saudade
-8.Sunrise
-9.The Sun
-10.Talvez(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE809464925175930C4E3BB5ED53A6D3787684BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

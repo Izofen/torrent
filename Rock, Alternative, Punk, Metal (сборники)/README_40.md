@@ -1,3 +1,32 @@
+###  Публикация: 1428119   (180750) от 01.12.2020
+
+Brian Connolly - Do It Again (Compilation) (2020) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_180750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballroom Blitz
+02. Fox On The Run
+03. Rock&Roll Disgrace
+04. Action(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A24E03640D9408FBA06A298AEB1522CD80806A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428141   (180743) от 01.12.2020
 
 Andy Scott - Do It All Over Again (2CD Compilation) (2020) [MP3|320 Kbps] <Rock, Glam Rock>
@@ -716,35 +745,6 @@ Part I:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C318A0B5F5B9D02B96D133B590D7CC8124C26D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346109   (164482) от 18.12.2019
-
-VA - Not Dead Yet: Modern Rock Compilation (2019) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164482.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ouzo Bazooka - Sleep Walk
-002. Hippo Campus - Bubbles
-003. Hodera - If You Want Me To
-004. Per Frost - Furious Machines(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5D8E811768C0FEA117FB2A786204AB20FCF810
 ```
 
 https://mybot314.ru/tekegram_catalog/

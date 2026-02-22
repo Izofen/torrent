@@ -1,3 +1,32 @@
+###  Публикация: 1015992   (772813) от 12.05.2016
+
+VA - 80s Heart Soul Hits (2016) [MP3|320 кб/с] <Euro Disco, New Wave, Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotch - Disco Band (Remix) 08:49
+02. Lian Ross - Say You'll Never 06:36
+03. Bad Boys Blue - I Wanna Hear Your Heartbeat (Sunday Girl) 06:29
+04. Mike Mareen - Don't Talk To The Snake 08:01(   Читать дальше...   )Жанр: Euro Disco, New Wave, SynthpopПродолжительность: 03:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279CC95CC3AA33A46ABF21D265FC1663306DE7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015908   (772671) от 12.05.2016
 
 VA - Хиты для хорошего настроения (2016) [MP3|256-320 кб/с] <Pop>
@@ -716,35 +745,6 @@ VA - Популярные весенние новинки выпуск № 3 (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D3028DD3199D73822DC9D85A4B1ED0CF040BC01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126610   (765478) от 18.04.2017
-
-VA - Любимые хиты весны. Сборник 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765478.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lalo Project - Честная Весна 2:58
-002. Tiana - Мне Так Жаль 3:44
-003. Pasha Leem - Чую 3:47
-004. Dante - Не Вздумай 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6032762CE94F3423FDEEA735FAD291395C06F9AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1138683   (663249) от 30.05.2017
+
+Terri Wells - Just Like Dreamin' (1984) 2012,  Big Break Records [FLAC|Lossless|tracks + .cue] <Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Givin' All My Love (6:33)
+02. Just Like Dreamin' (5:16)
+03. Falling Leaves (4:42)
+04. Can't Stop (4:11)(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57EE7E5427A04D99A92C3B826A7AD55CB7997A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138643   (663248) от 30.05.2017
+
+Al Cohn & Zoot Sims - Al And Zoot / You 'N' Me (1957, 1960) 2002, Азбука Звука [APE|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Wonderful World [06:30]
+02. Brandy and Beer [03:50]
+03. Two Funky People [04:30]
+04. Chasing the Blues [06:10](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA29AD42BEC864E99CF4D6ED4E206C0943462F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138718   (663247) от 30.05.2017
+
+Jeff Kashiwa - Let It Ride (2012) Native Language Music [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Ride [04:16]
+02. Stomp [04:41]
+03. The Name Game [05:08]
+04. Up [03:36](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1E6D8C4730A7DA11F0841E87AF3A93E0793832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138700   (663162) от 30.05.2017
 
 VA - Jazz Dictionary R (2017) [MP3|320 Kbps] <Jazz>
@@ -658,93 +745,6 @@ Scott Ellison - There's Something About The Night (2022) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FAD685017F119F481DA75AD47274921153E8169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138646   (662324) от 31.05.2017
-
-Howlin' Wolf - The Back Door Wolf (1973) 1995 [WavPack|Lossless|image + .cue] <Blues, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving 2:47
-02. Coon On The Moon 3:47
-03. Speak Now Woman 4:53
-04. Trying To Forget You 3:36(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697BA4D806BB8BB260DA84E8BD180FFCF0655E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138745   (662323) от 31.05.2017
-
-VA - Afternoon Jazz Time for You (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Morning Jazz Academy - Afternoon Jazz
-02. Background Music Masters - In a Mellow Tone
-03. Instrumental Jazz Music Ambient - Relaxing Music
-04. Jazz Guitar Club - Chilled Jazz(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B3DC35A59277995029C5A650418FDFA6AE9920F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538513   (662304) от 21.03.2022
-
-Robben Ford & The Blue Line - Live at Yoshi's '96 (2022) 2CD, Live [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philly Blues (Live) (8:03)
-02. Chevrolet (Live) (5:06)
-03. Start It Up (Live) (6:05)
-04. Good Thing (Live) (8:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FB1E641FDFA9B044B09811D04682510ACE41A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

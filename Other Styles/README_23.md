@@ -1,3 +1,32 @@
+###  Публикация: 1091091   (942992) от 09.01.2017
+
+Erik Scott - In the Company of Clouds (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nine Lives [00:04:35]
+02. Seven Veils [00:04:50]
+03. Women of Avalon [00:05:44]
+04. Breathing Room [00:05:34](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DD06E49A4D6D7856F9A375A717E620BDA3634B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 751575   (942943) от 01.02.2014
 
 New Age Style - Enigmatic 13 (2014) [MP3|320 кб/с]<New age, Enigmatic, Chillout>
@@ -788,41 +817,6 @@ Cliff Martinez - Far Cry 4 (Original Game Soundtrack) (2014) 2CD Edition [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:598894B205E5EA8421853E99C5BC0048E52F43A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858531   (940887) от 16.01.2015
-
-Hans Zimmer - Интерстеллар / Interstellar (Original Motion Picture Soundtrack) (2015) Deluxe Edition - Illuminated Star Projection [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. First Step (01:48)
-02. Flying Drone (01:53)
-03. Atmospheric Entry (01:39)
-04. No Need To Come Back (04:32)
-05. Imperfect Lock (06:55)
-06. What Happens Now? (02:04)
-07. Who's They? (07:17)
-08. Murph (11:20)
-09. Organ Variation (04:51)
-10. Tick-Tock (08:18)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 02:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D48F6EB69A32B5CB8E19A22BC3D48C628AE2438
 ```
 
 https://mybot314.ru/tekegram_catalog/

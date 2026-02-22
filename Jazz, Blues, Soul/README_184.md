@@ -1,3 +1,90 @@
+###  Публикация: 1019463   (750268) от 23.05.2016
+
+Stanley Clarke - At The Movies (1995) Unofficial Release [APE|Lossless|image + .cue] <Jazz, Stage & Screen>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passenger 57 Main Title
+02. Lisa
+03. Justice's Groove
+04. Lucky Again(   Читать дальше...   )Жанр: Jazz, Stage & ScreenПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F6D277B20A59F5496A27695648C1778ECAAB59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281719   (750138) от 09.02.2019
+
+Joe Lovano - Trio Tapestry (2019) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Time In [3:42]
+02. Seeds of Change [5:14]
+03. Razzle Dazzle [3:40]
+04. Sparkle Lights [4:08](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D065B006940F07D35CBA7A09ECE0D1DB5939D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281651   (750016) от 09.02.2019
+
+Free Nelson Mandoomjazz - The Organ Grinder (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open the Gate (4:32)
+02. You Are Old, Father William (6:44)
+03. The Woods (10:10)
+04. Funambule (5:55)(   Читать дальше...   )Производство: RareNoise Records – RNR068Жанр: Dark Jazz, Doom Jazz, Experimental, Avantgarde JazzПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973E049A9E39AF677812EBC73D18DEEEC321269B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523634   (749991) от 12.01.2022
 
 Charlie Ventura - East Of Suez (1945, 1947) 2000, Savoy [FLAC|Lossless|tracks + .cue] <Swing, Bop>
@@ -656,93 +743,6 @@ The Buddy Rich Big Band - The New One! 1967 (1998) Pacific Jazz [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:604C3FCAAF710E752DD952E81D791CFF5044DB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396458   (746969) от 15.07.2020
-
-Charlie Shavers Featuring Maxine Sullivan - Four Classic Albums Plus 1954 - 1959 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746969.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Keepin' Out Of Mischief Now [2:50]
-02. How Can You Face Me? [3:19]
-03. S'posin' [3:38](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 02:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AD583FD77207EE86EE97097155CE320E3AB199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020133   (746905) от 25.05.2016
-
-Sonny Rollins - After the Bridge (1964) 2CD, Remaster, 2014, Sony Music[FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746905.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Fifty-Second Street Theme [14:54]
- 02.Django [05:28]
- 03.Now's the Time [16:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226D0B6F886FD30F8DA596F86125555607DF08AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323949   (746766) от 15.04.2011
-
-Louis Armstrong & Ella Fitzgerald - Ella and Louis (1956) [FLAC 2.0 96/24 |tracks (WEB DL)]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Can't We Be Friends? (3:03)
-02 Isn't This A Lovely Day? (5:11)
-03 Moonlight In Vermont (2:55)
-04 They Can't Take That Away From Me (3:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 0:44:10
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

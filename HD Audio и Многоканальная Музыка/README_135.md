@@ -1,3 +1,177 @@
+###  Публикация: 1730436   (107899) от 15.06.2024
+
+Jill Barber - Encore! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plus je t’embrasse [00:02:51]
+02. Ménilmontant [00:04:04]
+03. Nuages [00:03:07]
+04. De temps en temps [00:02:52](   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A375E9173174F132CF2E76C7E4CCD219BF28824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730359   (107898) от 15.06.2024
+
+Радиус - Ангелы и бесы (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Industrial, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ангелы и бесы [00:04:05]
+02. Власть [00:04:52]
+03. Липкая кровь [00:04:41]
+04. Слово пацана [00:04:50](   Читать дальше...   )Жанр: Alternative, Industrial, Gothic MetalПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D1E537596AAD63D0FA108ECC8C1A8364C67C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730345   (107890) от 15.06.2024
+
+Finn Rees - Dawn Is A Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking Up (4:30)
+02. Lagoon (8:28)
+03. Horizons (1:09)
+04. It's Behind Me Now (5:45)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E91FD2569BCDCD23459AF6ADFFA9D624233E3B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730348   (107889) от 15.06.2024
+
+Gustave Reichert - Mars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mars (7:00)
+02. Flight over the Dunes (7:03)
+03. Olympus Mons (9:13)
+04. Wind's Dance (6:30)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A13FC84C5C88D2578F610E3D5817B1AB28DA01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730335   (107887) от 15.06.2024
+
+Xeneris - Eternal Rising (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barbarossa (4:57)
+02. Before The River Of Fire (3:46)
+03. Eternal Rising (4:03)
+04. Pandoras's Box (4:19)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561E6EB207D6ACCF9D64E4F4352597778CC6C114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730107   (107886) от 15.06.2024
+
+Annabel - Worldviews (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Another World (00:02:48)
+02 - All Time (00:02:28)
+03 - Worldviews (00:03:02)
+04 - We Are Where We Are (00:02:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2DF5E164263FFC9C8E27E08136A5F5EB93DA0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730450   (107858) от 16.06.2024
 
 Torture Squad - Studio Albums (10 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
@@ -571,180 +745,6 @@ Bootleg Contraband - Mars Colony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61C04CDEA6B069F0D721390E570A7B34421DA608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731732   (107614) от 22.06.2024
-
-VA - Двое - Песни на стихи Михаила Танича. Записи 1982 - 1984 гг. (1984) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Валерий Леонтьев - Пароходы
-(И. Николаев)
-02. Манана Тодадзе - Скажи мне все(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CC987FD993FC1CBB184203C8239919D33A9F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731818   (107605) от 22.06.2024
-
-Grateful Dead - From the Mars Hotel (1974) 50th Anniversary Deluxe Edition, 2024, Rhino [FLAC 24/192|Lossless|WEB-DL|tracks] <Folk Rock, Country Rock, Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Around and Around (Live at University of Nevada, Reno, NV, 5/12/74) [00:06:38]
-02. Mississippi Half-Step Uptown Toodeloo (Live at University of Nevada, Reno, NV, 5/12/74) [00:07:58]
-03. Truckin' (Live at University of Nevada, Reno, NV, 5/12/74) [00:10:10]
-04. The Other One (Live at University of Nevada, Reno, NV, 5/12/74) [00:21:39](   Читать дальше...   )Жанр: Folk Rock, Country Rock, Psychedelic RockПродолжительность: 3 CD, 03:21:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB563ED95409C6744AA85A661552746B2231F888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731804   (107589) от 22.06.2024
-
-Within Temptation - Worlds Collide Tour (Live in Amsterdam) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Solemn Hour
-02. Faster
-03. Paradise (What About Us?)
-04. Stand My Ground(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE453ECED57EB0AD3DA688220556818DAB701708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731956   (107573) от 23.06.2024
-
-Celine Dion (Céline Dion) - JE SUIS : CELINE DION (Bande originale du film) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Modern Classical, Jazz-Funk, Score, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Theme - Artist Always [00:04:03]
-02. The Power of Love [00:05:44]
-03. Pour que tu m'aimes encore [00:04:17]
-04. A New Day Has Come [00:03:58](   Читать дальше...   )Жанр: Modern Classical, Jazz-Funk, Score, Easy ListeningПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DC9416BE2F12B8713B1F9F34B25860BD0C152B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731931   (107553) от 23.06.2024
-
-Kygo - Kygo (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Deep House, Midtempo>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:15]
-02. The Feeling [00:03:10]
-03. Whatever [00:02:58]
-04. Surrender [00:03:16](   Читать дальше...   )Жанр: Deep House, MidtempoПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF81CC09B15F012D5DE635DB0A0ABD0B4AF6BE75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732174   (107545) от 23.06.2024
-
-Babbba - Cabaret Conversation (Vol 1) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cabaret Conversation (3:50)
-02. Do Robots Can Love? (3:44)
-03. Cool Cat Romance (3:06)
-04. Accelerated Heart Beats (4:00)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87AB634026F1C6E90BACA2ADE0978D893627CF3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

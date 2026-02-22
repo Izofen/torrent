@@ -1,3 +1,90 @@
+###  Публикация: 1581997   (325321) от 07.10.2022
+
+VA - Top Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325321.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Glass Animals - Heat Waves (3:58)
+002. Justin Bieber - Ghost (2:33)
+003. Olivia Rodrigo - good 4 u (2:58)
+004. Elton John, Dua Lipa - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE4543506DF0116922017D842CCCC7A1CD6BAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958261   (324766) от 20.11.2015
+
+Ёлка - #2 (2015) [FLAC|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город обмана#2
+02. Цепи - ленты#2
+03. Сука-любовь#2
+04. Одна#2(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B4308F69A1FF6D3BBEA17AF8AE7AEC092CAC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958157   (324714) от 20.11.2015
+
+Adele - 25 (2015) [FLAC|Tracks+cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+02. Send My Love (To Your New Lover)
+03. I Miss You
+04. When We Were Young(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7C36D8FF9D268A72AF189F309F24D774689121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958256   (324638) от 20.11.2015
 
 Ёлка - #2 (2015) [MP3|320 кб/с]<Pop>
@@ -659,99 +746,6 @@ Boney M. - Diamonds (2015) 40th Anniversary Edition [FLAC|Lossless]<Disco, Euro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE0BB013A2567954A2AB7F142ADE2E226DA8E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331634   (322938) от 16.10.2019
-
-Frankie Valli - 6 Albums (1975-1980) LP [MP3|320 Kbps] <Funk Soul, Pop Rock, Vocal, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнки Валли - наст. имя Francesco Stephen Castelluccio. Американский певец, наиболее известный как фронтмен вокальной поп-группы The Four Seasons и обладатель мощного фальцета. Диапазон голоса Валли - три с половиной октавы. На фальцет со своего «природного» баритона он может переходить без обычного для певцов фальцетом разрыва. В середине 1960-х, оставаясь участником (   Читать дальше...   )Список альбомов:
-1975 - Closeup
-1975 - Our Day Will Come
-1976 - Valli(   Читать дальше...   )Жанр: Funk Soul, Pop Rock, Vocal, DiscoПродолжительность: 03:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02CB54DCE09E04A9F04E68906746AE2814B9EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581249   (322762) от 28.11.2012
-
-Tiziano Ferro - Lamore E Una Cosa Semplice (Special Edition 2CD) (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hai delle isole negli occhi (03:58)
- 02. L'amore e una cosa semplice (04:02)
- 03. La differenza tra me e te (03:53)
- 04. La fine (03:45)
- 05. Smeraldo (03:11)
- 06. Interludio: 10.000 scuse (02:29)
- 07. L'ultima notte al mondo (03:53)
- 08. Paura non ho (03:03)
- 09. TVM (04:12)
- 10. Troppo buono (04:30)(   Читать дальше...   )Жанр: PopПродолжительность: (00:55:30)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93A76D8DBC2FD92F9532947049907B98193CAAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331666   (322364) от 16.10.2019
-
-Angeleyes - ABBAdance (1999) [APE|Lossless|image + .cue] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.O.S. (3:13)
-02. Dancing Queen (3:11)
-03. Gimme! Gimme! Gimme! (A Man After Midnight) (4:05)
-04. One Of Us (3:58)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C7DE307D29E1752195EFF9F5C3F1082DC4B2AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

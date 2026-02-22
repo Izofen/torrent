@@ -1,3 +1,260 @@
+###  Публикация: 1466632   (1018295) от 01.05.2021
+
+Autumn Bride - Undying (2021) [FLAC|Lossless|WEB-DL|tracks] <Sympho Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Path
+02. Fear and Devotion
+03. Moonlit Waters
+04. Shadows(   Читать дальше...   )Жанр: Sympho Metal, Female VocalПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9542E235C8329BD18D9EAC3A25BBD80C33927C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466758   (1018243) от 01.05.2021
+
+Evile - Hell Unleashed (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paralysed (05:03)
+02. Gore (04:49)
+03. Incarcerated (06:16)
+04. War of Attrition (04:26)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A314BC98F17A662D16CB39FE52DD7B693A3CC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466570   (1018228) от 01.05.2021
+
+Cheat Engine - Pandemica (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cradle to Grave 4:03
+02. Pandemica 4:10
+03. Nemesis 3:53
+04. Disorder 4:03(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09E59376C5413E6870B177B406BB17F1FF80EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467294   (1017959) от 03.05.2021
+
+Warrior Angel - Griffin 1.29, Chapter 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airborne
+02. All Time Low
+03. Come Back
+04. Don't You Cry(   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A3086D782D04473C14AFF7C209EE892B62075A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467291   (1017952) от 03.05.2021
+
+Warrior Angel - Griffin 1.29, Chapter 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise
+02. Falling Angel
+03. Can't Live Without You
+04. Old City Boy(   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6794B23508B7E7C64CE714A8625F1234B657D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467131   (1017934) от 03.05.2021
+
+Static-X - 12 Albums (1999-2020) [FLAC|Lossless|image + .cue] <Industrial Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Static-X - Американская метал-группа из Лос-Анджелеса, Калифорния, играющая преимущественно в стиле индастриал-метал с элементами ню-метала.Жанр: Industrial Metal, Nu MetalПродолжительность: 08:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F693448BA9FFFD48CE95A02D5BAD328AA0F6C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467658   (1017602) от 05.05.2021
+
+Grond - Steel Coffins (2010) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steel Coffins (5:34)
+02. R'lieh (3:15)
+03. Dethroned Emperor (Celtic Frost Cover) (4:09)
+04. Azagthoth (Demo) (2:59)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074341E85312346845D17B151BA999FFE6F580BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467665   (1017601) от 05.05.2021
+
+Jeriko - Hasta El Final (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hasta el Final (03:50)
+02. Desde la Oscuridad (03:28)
+03. Perder el Miedo (04:24)
+04. Espejismo (04:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD433DA1D18F7DE970E8E6DA0DCDCD8C889E6C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467855   (1017593) от 05.05.2021
+
+Bloodbound - March into War (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017593.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. March into War [4:47]
+ 2. Creatures of the Dark Realm [4:08]
+ 3. When Fate Is Calling [4:17]Жанр: Heavy Metal, Power MetalПродолжительность: 00:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E621DE1117577F1AE751E5AF923623DB1EA10DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467845   (1017591) от 05.05.2021
 
 Temtris - Ritual Warfare (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
@@ -486,267 +743,6 @@ Batushka - Raskol (2020) EP [FLAC|Lossless|image + .cue] <Black Metal, Doom Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F55BB711AA432532CCB4939048FB0671D3701344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469626   (1016168) от 14.05.2021
-
-Batushka - Черная Литургия (2020) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Знаменный Распиев / Znamiennyj Raspiew (0:35)
-02. Ирмос / Irmos I (4:42)
-03. Ирмос / Irmos II (6:08)
-04. Ирмос / Irmos III (6:45)(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7FB4067B841976F47802167E79342A1E1D098C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470018   (1016000) от 15.05.2021
-
-Artas - Riotology (2011) [FLAC|Lossless|image + .cue] <Melodic Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Journey Begins...
-02. Fortress Of No Hope
-03. The Day The Books Will Burn Again
-04. The Suffering Of John Doe(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6237F56FEF8CDA98BDD62231B57210BBA2EC34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469925   (1015998) от 15.05.2021
-
-Antioch - Antioch V (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hang The Eagle
-02. On A Ledge
-03. A Facade At The Third Castle
-04. Demon Wick(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA6859A3F5B978B332F02D38053A7843E5BD187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469920   (1015995) от 15.05.2021
-
-Fortunato - Insurgency (2021) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carry On To The Depths Of The Sea
-02. Blood Of The Unknowns
-03. For Eternity
-04. Fly Away(   Читать дальше...   )Жанр: Neoclassical Heavy MetalПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6586C038E4CD1DF4D4C308AE9F09282D535C08E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469910   (1015994) от 15.05.2021
-
-Dan Baune's Lost Sanctuary - Lost Sanctuary (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arise
-02. Open Your Eyes (feat. Bob Katsionis)
-03. Temple Of Fear (feat. Rasmus Bom Andersen & Jennifer Diehl)
-04. God Of War (feat. Aliki Katriou)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F117823EF1BB4FD36E50E550D8CEBA217AF05C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470036   (1015993) от 15.05.2021
-
-Witchbound - End Of Paradise (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (1:03)
-02. Battle of Kadesh (3:34)
-03. Interstellar Odyssey (4:08)
-04. End of Paradise (5:16)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD7F44A0F5B3DB923CD92BF0897AAFF3AC38E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469888   (1015981) от 15.05.2021
-
-Gojira - Fortitude (2021) [FLAC|Lossless|image + .cue] <Technical Death Metal, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born for One Thing (4:21)
-02. Amazonia (5:01)
-03. Another World (4:20)
-04. Hold On (5:30)(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Death MetalПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7465DB7F713AAFAF1D060D203E8F1ADA900FF653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469917   (1015952) от 15.05.2021
-
-Against Evil - End Of The Line (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sound Of Violence
-02. Speed Demon
-03. Out For Blood
-04. Call To War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E59475A9B81CD420A3F04A2091A9A9C339BC868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470201   (1015822) от 16.05.2021
-
-Traveler - Traveler (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starbreaker
-02. Street Machine
-03. Behind The Iron
-04. Konamized(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BDB73CAF0D83E96B695D06648F3E2C28454701
 ```
 
 https://mybot314.ru/tekegram_catalog/

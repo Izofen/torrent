@@ -1,3 +1,61 @@
+###  Публикация: 1456293   (243306) от 21.03.2021
+
+Valentino Mora - Underwater (2021) Spazio Disponibile [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Tribal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hadal Zone (07:04)
+ 02. Mass Frequenz (08:11)
+ 03. Spiral Falls (07:31)
+ 04. Absorption (06:18)(   Читать дальше...   )Жанр: Ambient, Techno, TribalПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1195B8920777A0A5DFEEC3BAA80A379BF3428613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352734   (243242) от 15.01.2020
+
+Tiga - You Gonna Want Me (2005) [FLAC|Lossless|image + .cue] <House, Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243242.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 You Gonna Want Me (Radio Edit) 3:09
+2 You Gonna Want Me (12 Inch Dance Mix) 5:44
+3 You Gonna Want Me (Isolee In-My-Bee Remix) 6:13
+4 Do It Don't Stop 4:15Жанр: House, Techno, ElectroПродолжительность: 00:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF00F3F5BDCCE6654A28803360736DEA641429B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627279   (243138) от 18.04.2023
 
 Florian Kruse - Nordic Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Tech House>
@@ -681,64 +739,6 @@ Justice - Woman Worldwide (2018) 2CD, Japan [FLAC|Lossless|tracks + .cue] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457E65A2A43AB25DAE5DF66D1C617423BA15178F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341654   (229385) от 29.11.2019
-
-Droneghost - Curse (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curse One (06:44)
- 02. Curse Two (08:21)
- 03. Curse Three (05:49)
- 04. Curse Four (08:00)Жанр: Techno, AmbientПродолжительность: 00:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30E55CE2C47AD4FA756C69213AC4AEFE6B925C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341586   (229251) от 29.11.2019
-
-VA - Anjunabeats The Yearbook (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond – Homecoming (1:26)
-02. Rolo Green – Miracle (6:11)
-03. Tinlicker – The Walk (5:09)
-04. Grum – Stay (feat Natalie Shay) (7:52)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BFB706BEB09CAB43D4F321200A0B0A90B44FB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

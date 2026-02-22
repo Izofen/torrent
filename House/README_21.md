@@ -1,3 +1,90 @@
+###  Публикация: 1007754   (819900) от 16.04.2016
+
+VA - Venera Music Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Skvortsov - Into the Unknown 06:45
+02. Alex Greenhouse - Everyday U Need a 5un5hine 09:02
+03. Anton Seim - Pleasure Time (Manchus Remix) 07:00
+04. Argonautica - Counterpoison 05:13(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D43E96ED01C9977155597B16CC34BE9E0459E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007819   (819899) от 16.04.2016
+
+VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mykel Mars - White Beach (DJ Absinth EDM Edit) 03:20
+02. Tony Wong - Born for EDM (Muscle Mix) 03:37
+03. The Betatesters - Drop That (EDM Cardio Mix) 03:24
+04. Robby Schulz - Breathtaking (EDM Workout Anthem) 04:32(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256FBBBD829D6636AC224537A1BD9401F41E6A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007883   (819898) от 16.04.2016
+
+VA - The Best Progressive Hits Vol.5 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luck Out - Asylum of Love 06:20
+02. Jimmy Roqsta - Eavesdropping of Aliens 05:37
+03. Ivanshee - Clarity 07:21
+04. Haxxy - You Not See, but They Do Exist 10:28(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905F3598057C5474077BFE4DE6BA0B6183896E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007942   (819895) от 16.04.2016
 
 VA - Black Hole House Music 04 - 16 (2016) [MP3|320 кб/с] <House, Progressive House>
@@ -670,93 +757,6 @@ Yuriy From Russia - Distant Love (2016) [MP3|320 кб/с] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C7CBF3DB2AD775E5B3C870DB041A0448C2C2675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383508   (811723) от 15.05.2020
-
-VA - Extreme Sports Music Vol 4 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hr. Troels - 6Am (Radio Edit)
-02. Phun And Key ft Patrick Metzker - Hang Out (Radio Edit)
-03. Dacos And Lucas Crapanzano - Ronker (Lucas Likes This Radio Cut)
-04. Steve Cypress - Move Ya Body (Edit)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AEB60482250FDB9A7F6B2A6A69A9E4F73441A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197996   (810368) от 10.01.2018
-
-VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blufeld - Rakete Zum Mond (You Are My Salvation Remix) (10:46)
-02. Jetride - Sad Piano (Gordey Tsukanov Remix) (6:36)
-03. Mavrek - Burst on Fire (Inspireds Remix) (5:46)
-04. Blufeld - Rakete Zum Mond (Alan Cuevas Remix) (7:15)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F382ECBD729A127B4ECED7A427338C07628BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009351   (810295) от 21.04.2016
-
-VA - Venera Music Vol.5 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filek - All Be O.K. 06:11
-02. FreshwaveZ - Time of Happiness 04:33
-03. Highland Bird - Far 04:09
-04. J.A. Project - Can't Go Back in Time 04:08(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6762316DCCAA3C16A9FED3E610B03ABE1875A6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

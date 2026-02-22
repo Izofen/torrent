@@ -1,3 +1,125 @@
+###  Публикация: 919632   (581862) от 20.07.2015
+
+VA - Top 40 (Movies) (2014) 2CD[FLAC|tracks + .cue]<Pop, Soul, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bay City Rollers - Bye Bye Baby [2:51]
+02.Dolly Parton - 9 To 5 [2:47]
+03.Edison Lighthouse - Love Grows (Where My Rosemary Goes) [2:51]
+04.Leo Sayer - You Make Me Feel Like Dancing [3:39](   Читать дальше...   )Жанр: Pop, Soul, RockПродолжительность: 02:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914E506DC87F1A2FB8FBE2D378C03FA9BDF06FBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919667   (581859) от 20.07.2015
+
+Duran Duran - Thank You (1995) [FLAC|image + .cue]<New Wave, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Lines [05:31]
+02. I Wanna Take You Higher (Version 1) [05:05]
+03. Perfect Day [03:50]
+04. Watching The Detectives [04:47](   Читать дальше...   )Жанр: New Wave, Pop-RockПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CADFDB977B89E1DA44B98FA0F34184A79CFD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919918   (581765) от 20.07.2015
+
+Bad Boys Blue - You're A Woman 2015 (2015) [FLAC|tracks + .cue]<Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Woman (High Tide Remix Radio Edit) [3:16]
+02. You're A Woman (Reloaded Album Version) [3:07]
+03. You're A Woman (High TIde Remix Extended Edit) [7:19]
+04. You're A Woman (Reloaded Extended Mix) [4:51](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1E2FB1B90D8F9276769185D6917B6425D29C78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810974   (581548) от 07.08.2014
+
+Saphir - Perfect Combination (2006) Limited Edition [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Good (I Feel Fine) 4:51
+02. The Witch-Queen Of New-Orleans 3:31
+03. Little Rock 4:06
+04. Frough Your Eyes 4:07
+05. Shot In The Night 4:21
+06. Perfect Combination 3:12
+07. Never Give Up 4:00
+08. Storms Of Love 3:56
+09. Stand Up 3:47
+10. I Am Alive 4:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10645E60EB64E108BF19DAE0E9E6B4E735A5615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 811132   (581544) от 07.08.2014
 
 Grant Miller - The Maxi-Singles Collection (2007) [APE|Lossless]<Italo-Disco>
@@ -705,134 +827,6 @@ Sindy - Selfie (2015) [FLAC|tracks+.cue]<Pop, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D5B9551B9485AB438D88165624828DFC8EDC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920498   (579919) от 22.07.2015
-
-Bad Boys Blue - 30 (2015) 2CD [FLAC|tracks+.cue]<Disco, Euro-Disco, Synth-pop, Dance-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of Hearts (Reloaded)
-02. Jungle In My Heart (Reloaded)
-03. Baby Blue (New Hit Version)
-04. The Woman I Love (New Hit Version)(   Читать дальше...   )Жанр: Disco, Euro-Disco, Synth-pop, Dance-popПродолжительность: 02:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4145C8D812DE9DBDC60826F0E58E69873CEAA0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811579   (579518) от 09.08.2014
-
-King Kong & D'Jungle Girls - King Kong Greatest Hits (2000) [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boom Boom Dollar (Red Monster Mix) 5:54
-02. Walkie Talkie 3:59
-03. Love & American Dollars 5:27
-04. Lies 4:15
-05. Bingo 6:34
-06. Love Of The Angel 5:41
-07. Gimme Gimme Gimme 6:04
-08. Panic In New York 6:29
-09. It's So Funny 2:53
-10. Don't Let Me Be Misunderstood 3:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293DF28A83DBC842085D8D54D92567C5A4B3BBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811577   (579459) от 09.08.2014
-
-King Kong & The D. Jungle Girls - King Kong Greatest Hits (2000) [FLAC|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boom Boom Dollar (Red Monster Mix) 5:54
-02. Walkie Talkie 3:59
-03. Love & American Dollars 5:27
-04. Lies 4:15
-05. Bingo 6:34
-06. Love Of The Angel 5:41
-07. Gimme Gimme Gimme 6:04
-08. Panic In New York 6:29
-09. It's So Funny 2:53
-10. Don't Let Me Be Misunderstood 3:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35D278F72A487C321BBD1D2833FB3A6BD3F08B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042435   (579416) от 12.08.2016
-
-Emly Starr - Emly Starr (1980) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock & Roll Woman (3:32)
-02. Music In The Air (3:15)
-03. Santiago Lover (6:21)
-04. I Need Help (3:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4D07DD413FB1AA176B970148F5796D2001BEF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

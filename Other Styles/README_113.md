@@ -1,3 +1,32 @@
+###  Публикация: 1312205   (530816) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я твой хороший друг (02:05)
+02. Ты не вздумай (02:09)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FFE5C462ACE91464C32947ADB8EF5112F4AEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312200   (530814) от 05.07.2019
 
 Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -720,35 +749,6 @@ Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE09780271A085A1BB1A0596B65E1A92058642FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156770   (526403) от 09.08.2017
-
-VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Romantic Strings and Orchestra with Don Lusher, Trombone - (I Love You) For Sentimental Reasons (5:09)
-02. Richard Alden, His Piano and Orchestra - Skylark (3:16)
-03. Peter Knight and His Orchestra - Let's Fall In Love (2:48)
-04. Acker Bilk, His Clarinet and Orchestra - Stranger On The Shore (2:52)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEF36D17E61E90A596B0322167A80882761716F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1363482   (942681) от 28.02.2020
+
+Ted Curson & Company - Jubilant Power (2008) Inner City Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reava's Waltz [12:15]
+02. Ted's Tempo [9:05]
+03. Song Of The Lonely [7:45]
+04. Airi's Tune [6:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC40B61F2574A255CA557408787EA5636E9C673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984016   (942367) от 07.02.2016
 
 Nat Adderley - The Scavenger (1968) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -775,41 +804,6 @@ Fourplay - The Best Of (1997) [FLAC|Lossless|image + .cue] <Smooth Jazz, Easy Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C5B5B25FF1990F25947A744948FA066A6DD2A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752984   (940044) от 03.02.2014
-
-Allan Harris & Takana Miyamoto - Convergence (2012) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. My Foolish Heart
- 02. Days of Wine and Roses
- 03. But Beautiful
- 04. Waltz for Debby
- 05. You Don't Know What Love Is
- 06. Young and Foolish
- 07. Touch of Your Lips
- 08. You Must Believe in Spring
- 09. Some Other Time
- 10. We'll Be Together AgainЖанр: Vocal JazzПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28ADF0FE3BF509E2D95CE6F1B18123C7A62E6E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

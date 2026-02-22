@@ -1,3 +1,29 @@
+###  Публикация: 1409119   (449322) от 15.09.2020
+
+Opera 70.0.3728.189 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293D3BC5F52E0923A262CFAF9978567807CC7E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060709   (449305) от 10.10.2016
 
 Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа I. 2-й тур. Косово - Хорватия (06.10.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
@@ -663,41 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B73D7BAAB0F228D775201D12E7B3AC1E5FA12745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551456   (449198) от 26.09.2012
-
-Stakka & Skynet - Clockwork (2002) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stakka & Skynet - Decoy
-02. Stakka & Skynet - Bios-Fear (ft.Kemal & Rob Data)
-03. Stakka & Skynet - Clockwork
-04. Stakka & Skynet - Isolation (ft.Keaton)
-05. Stakka & Skynet - Straight Jacket (ft.Dj Skinny)
-06. Stakka & Skynet - Timelines
-07. Stakka & Skynet - Altitude (ft.Friction)
-08. Stakka & Skynet - Spider Monkey (ft.Shimon)
-09. Afrika Bambaataa & Soulsonic Force - Planet Rock (Stakka & Skynet Remix)
-10. Stakka & Skynet - So Confused (ft.K.Tee)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

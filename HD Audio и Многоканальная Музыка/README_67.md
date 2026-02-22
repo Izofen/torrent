@@ -1,3 +1,174 @@
+###  Публикация: 1669236   (173003) от 15.10.2023
+
+The Who - Who’s Next (1971) Steven Wilson remix, 2023, UMC [FLAC 24/96|Lossless|tracks] <Hard-Rock, Classic-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baba O’Riley (5:04)
+02. Bargain (5:35)
+03. Love Ain’t for Keeping (2:12)
+04. My Wife (3:36)(   Читать дальше...   )Жанр: Hard-Rock, Classic-RockПродолжительность: 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46A71DF904B1B41813B31AF1CEF6D758105F421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669051   (173002) от 15.10.2023
+
+Meduza - Meduza (2023) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance, EDM, House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD-01 - MEDUZA
+CD-02 - MEDUZAЖанр: Electronic, Dance, EDM, HouseПродолжительность: 2 CD, 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D979D041939552D4B7BF05ADA9582EAA061ED578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669173   (172981) от 15.10.2023
+
+VA - Машина Времени / Самоцветы - Песни Из Кинофильма «Душа» / Зеркало И Шут (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172981.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Машина Времени - За Тех, Кто В Море
+(А. Кутиков, А. Макаревич)
+A2 Машина Времени - Путь
+(А. Макаревич)(   Читать дальше...   )Жанр: Rock, PopФормат: FLAC, TracksПродолжительность: 00:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA2192E2F02FFA62F1DCFADE4DF814872045F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669484   (172878) от 16.10.2023
+
+Isengard - Høstmørke (1995) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172878.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Neslepaks
+A2 Landet Og Havet
+A3 I Kamp Med Kvitekrist
+A4 I Ei Gran Borti Nordre Asen(   Читать дальше...   )Жанр: Black Folk MetalПродолжительность: 00:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A7C03D6F8C5E8D7848014A49042F67B3AA0911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669651   (172684) от 17.10.2023
+
+Sieges Even - Steps (1990)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Progressive Thrash Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172684.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1a Alba (Instrumental)
+A1b Epitome
+A1c Apotheosis
+A1d Seasons Of Seclusion (The Prison)(   Читать дальше...   )Жанр: Progressive Thrash Metal, Progressive MetalПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8923432A52D32990EDE7E67455F82C62975E5B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669512   (172683) от 17.10.2023
+
+Isengard - Traditional Doom Cult (2016) EP [FLAC|24/192|tracks|Vinyl-Rip] <Black Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172683.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Light
+B1 The FrightЖанр: Black Folk MetalПродолжительность: 00:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A886DDBFF03D3C7ECFAC8C49F90F5501A1DFB3C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669523   (172682) от 17.10.2023
 
 Isengard - Vårjevndøgn (2012) Compilation, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk Metal>
@@ -571,180 +742,6 @@ Evian Christ - Revanchist (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experime
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F58CC07CC9888B9D618C94088A791BDCE949816B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670947   (171754) от 22.10.2023
-
-Lost Girls - Selvutsletter (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art Pop, experimental, electronic, krautrock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timed Intervals [00:04:28]
-02. With the Other Hand [00:03:11]
-03. Ruins [00:04:55]
-04. Re-entering the City [00:04:12](   Читать дальше...   )Жанр: Art Pop, experimental, electronic, krautrockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5E7D7C60BB8880CC604C94CA7B2FC80AC6F2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670934   (171752) от 22.10.2023
-
-Sparkle Division - Foxy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, Dance, Lounge, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have Some Punch [00:03:00]
-02. Here Comes Trouble [00:03:44]
-03. Foxy [00:03:24]
-04. The Punch! [00:08:37](   Читать дальше...   )Жанр: Electronic, Dance, Lounge, FusionПродолжительность: 00:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF443829FBD8C7C102A124F128ED885A4C61065D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670917   (171743) от 22.10.2023
-
-Rival Sons - Studio Albums (9 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Blues Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rival Sons — американская блюз-рок-группа из Лонг-Бич, Южная Калифорния.2009 - Before The Fire
-2010 - Prime Cuts (EP)
-2011 - Pressue and Time
-2012 - Head DownЖанр: Blues Rock, Hard RockПродолжительность: 06:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B2C03D66B08AC7471D628BDD3EB9CE8853A29D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670844   (171738) от 22.10.2023
-
-Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171738.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Tony Allen - Love Letters In The Sand
-A2 Tony Allen - He'll Have To Go
-A3 Tony Allen - Forgiving You Was Easy
-A4 Tony Allen - My Own Peculiar Way(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C7AD077D030FDB0A110D824B28F733C4F2FACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670974   (171596) от 23.10.2023
-
-Afterbirth - In But Not Of (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technical Death, Brutal Death, Blackened>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tightening The Screws [00:01:47]
-02. Devils With Dead Eyes [00:04:06]
-03. Vomit On Humanity [00:04:19]
-04. Autoerotic Amputation [00:02:13](   Читать дальше...   )Жанр: Technical Death, Brutal Death, BlackenedПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC750A9A336E5C0FE61E263099AB198A651B715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671189   (171583) от 23.10.2023
-
-Brand New - Studio Albums (5 releases) (2001-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk, Post-Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brand New — американская рок-группа из Лонг-Айленда, Нью-Йорк. Коллектив был основан в 2000 году.2001 - Your Favorite Weapon
-2003 - Deja Entendu
-2006 - The Devil And God Are Raging Inside Me
-2009 - DaisyЖанр: Punk, Post-HardcoreПродолжительность: 04:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B955D54330CB36816555C860878394127CE80F
 ```
 
 https://mybot314.ru/tekegram_catalog/

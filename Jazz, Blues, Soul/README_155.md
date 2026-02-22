@@ -1,3 +1,90 @@
+###  Публикация: 1509120   (795677) от 11.11.2021
+
+Wes Montgomery - Three Classic Albums Plus (1959, 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795677.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. 'Round Midnight [4:58]
+02. Yesterdays [3:20]
+03. The End of a Love Affair [3:18](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 02:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9907EBCE1A1CD2B7596DB91998670401AA0956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509124   (795671) от 11.11.2021
+
+Benny Goodman - Three Classic Albums Plus (1949 - 1958) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795671.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Let's Dance [1:02]
+02. Don't Be That Way [3:14]
+03. Hallelujah [4:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A783161F3B5A048F9D3C2180DF0A7CC5FD366791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509126   (795670) от 11.11.2021
+
+Benny Goodman - Three Classic Albums Plus (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795670.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Introduction into Let's Dance [1:23]
+02. Mission to Moscow [3:01]
+03. Meet the Band [5:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150875B31298242FBAA4EEDD80F5D2D01227DC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011833   (795632) от 29.04.2016
 
 Troy Brooks - All I Need (2013) [MP3|320 кб/с] <Blues Rock>
@@ -658,93 +745,6 @@ Dusty Springfield - A Girl Called Dusty (1964) Reissue 1997 [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5BDB5F0DB9CDA8A4354C1EC8F1F8A506F3ED385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274257   (794170) от 06.01.2019
-
-Paquito D'Rivera special guest artist Arturo Sandoval - Reunion (1990) 2006, Landy Star Music [FLAC|Lossless|image + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologo: Mambo Influenciado [0:26]
-02. Reunion [5:01]
-03. Tanga [9:22]
-04. Claudia [7:16](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1587219CF77AB35E916D1C5ED20D6DBE0C12665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274256   (794168) от 06.01.2019
-
-Jimmy Smith - Organ Grinder Swing (1965) 2018, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Organ Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Organ Grinder's Swing [2:16]
-02. Oh, No, Babe [9:04]
-03. Blues For J [5:18]
-04. Greensleeves [8:55](   Читать дальше...   )Жанр: Hard Bop, Organ JazzПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB352EE56CBCB20C51FEB962FD27D1F8082322B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012536   (793831) от 01.05.2016
-
-McCoy Tyner - Atlantis (1974) 2CD, 1989, Victor[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793831.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Atlantis [18:04]
-02.In A Sentimental Mood [05:39]
-03.Makin' Out [13:05]Жанр: Post-BopПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6076D60F5A18C1DEBEB33A456E1610494387FB6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1337557   (273767) от 11.11.2019
-
-Robin Eubanks & Steve Turre - Dedication (1989) JMT [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The New Breed [6:22]
-02. V.O. [6:11]
-03. Red, Black & Green Blues [6:33]
-04. Trance Dance [6:43](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A2D789198820152B098C294BC7FEC433DF9366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337508   (273766) от 11.11.2019
 
 Jivko Petrov Trio (JP3) - Between The Worlds (2015) [FLAC|Lossless|image + .cue] <Jazz, Pop>
@@ -745,6 +716,35 @@ Ben Webster - Live At The Haarlemse Jazzclub (1972) Remaster, 2015, Solid Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E24E7A6A0AB70FEFC2F5E09FAED6445CEE3B34D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084426   (271528) от 18.12.2016
+
+Cannonball Adderley with Milt Jackson - Things Are Getting Better (1958) 1993, Riverside[WavPack|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues Oriental [05:04]
+ 02.Things Are Getting Better [07:15]
+ 03.Serves Me Right (Take 5) [04:50]
+ 04.Serves Me Right (Take 4) [04:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D9D99C77E758F04A38DC16E12A930C208DBECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

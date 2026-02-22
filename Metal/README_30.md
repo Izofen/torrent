@@ -1,3 +1,31 @@
+###  Публикация: 1374242   (875098) от 09.04.2020
+
+Litterbox Massacre - 2 Album/2 Singles (2019-2020) [MP3|320 Kbps] <Slamming Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875098.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2019) Welcome to the Scratching Post (EP)
+(2020) The Rise of Lucifur (UK)
+(2019) SinglesЖанр: Slamming DeathcoreПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77C388BCA8B6C7E5E2A507385F08B1999CC62CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374235   (874711) от 09.04.2020
 
 I Miss My Death - Mysto (2020) [MP3|320 Kbps] <Gothic Sympho Doom Metal>
@@ -747,35 +775,6 @@ Vredehammer - Violator (2016) [MP3|320 кб/с] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA3E489AE54E02C6144A584027BC094E92A8F910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997781   (872091) от 18.03.2016
-
-Deos - .​.​.​To Depart (2015) [MP3|320 кб/с] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872091.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I The Vigil
-2. II The Last Journey
-3. III The Silence
-4. IV The EmptinessЖанр: Funeral Doom MetalПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0669B81938F824320CF1A16696356A8A1F93D34
 ```
 
 https://mybot314.ru/tekegram_catalog/

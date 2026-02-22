@@ -1,3 +1,32 @@
+###  Публикация: 1126610   (765478) от 18.04.2017
+
+VA - Любимые хиты весны. Сборник 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765478.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lalo Project - Честная Весна 2:58
+002. Tiana - Мне Так Жаль 3:44
+003. Pasha Leem - Чую 3:47
+004. Dante - Не Вздумай 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6032762CE94F3423FDEEA735FAD291395C06F9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126642   (765420) от 18.04.2017
 
 VA - Лучшая дискотека на Europa Plus выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
@@ -713,35 +742,6 @@ Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:532C79A071488C037D183B36FCA43F249CD60716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522728   (756642) от 08.01.2022
-
-Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mademoiselle chante le blues
-02. Patou Blues
-03. Space In My Heart
-04. Alone(   Читать дальше...   )Жанр: Pop, Chanson FrancaiseПродолжительность: 04:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

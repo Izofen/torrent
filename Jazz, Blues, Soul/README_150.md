@@ -1,3 +1,90 @@
+###  Публикация: 1199285   (801849) от 15.01.2018
+
+Charles Fambrough - The Proper Angle (1991) CTI [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Quixote [06:33]
+02. The Dreamer [07:19]
+03. Uncle Pete [04:16]
+04. Sand Jewels [07:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5800D00545A6A4A782F5F24AC4442869D8A95F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199290   (801844) от 15.01.2018
+
+Bennie Moten's Kansas City Orchestra - 1929 - 1930 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Certain Motion [03:06]
+02. It Won't Be Long [02:50]
+03. When Life Seems So Blue [02:53]
+04. Loose Like A Goose [02:56](   Читать дальше...   )Жанр: Early Jazz, SwingПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AF2FD1B35ACA6173EBA6DBDE2BCCF54FA1403C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384641   (801830) от 21.05.2020
+
+The Horace Parlan Trio - No Blues 1975 (1992) SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Blues [6:14]
+02. My Foolish Heart [4:58]
+03. Have You Met Miss Jones? [5:08]
+04. A Theme for Ahmad [5:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FC187EDE1E9D8995EE3CAF33C858DE57A5512B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505921   (801820) от 29.10.2021
 
 Konrad Paszkudzki Trio - Isn't Romantic: Richard Rodgers Song Book (2017) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -658,93 +745,6 @@ Fred Astaire - My Greatest Songs (1930-e - 1940-e) 1999, MCD [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:589F95F394311EA786B68CD660BC6E75BAF77389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121344   (800640) от 02.04.2017
-
-Issa Murad - Joussour (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joussour (04:21)
-02. L'égare (06:31)
-03. La Folle Qui Danse (03:34)
-04. La Mer (07:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876E65AF9CF93C7EA96D865609D7C6929EEA3665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273454   (800629) от 01.01.2019
-
-VA - A Day In The Life: Impressions Of Pepper (2018) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Antonio Sanchez - Sgt. Pepper's Lonely Hearts Club Band (00:02:53)
-02 - Mary Halvorson - With a Little Help from My Friends (00:03:08)
-03 - Makaya McCraven - Lucy in the Sky with Diamonds (00:05:56)
-04 - Wildflower - Getting Better (00:04:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68DB267EF090C01B82EB94B0DE65AFBA1E17FAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273448   (800623) от 01.01.2019
-
-Aston Grey Project - Outta Time (2018) [MP3|320 Kbps] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (The Warm Up) Play It For Me 04:08
-02. Outta Time 04:25
-03. Coastal Crusin' 03:55
-04. Wanna Be Down 04:20(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB59296DE6D6B81D7300AC1BF66A08EEEAD5675B
 ```
 
 https://mybot314.ru/tekegram_catalog/

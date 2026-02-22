@@ -1,3 +1,90 @@
+###  Публикация: 1097809   (910514) от 29.01.2017
+
+Snowy White - Released (2016) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Peace (4:03)
+02. The Blues Talking (5:14)
+03. It's All Down To Me (3:48)
+04. It's Always Love (That Breaks Your Heart) (4:12)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871A58C5D232D93B62C21D14A638A7D3866F47DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097828   (910511) от 29.01.2017
+
+John Mayall - Talk About That (2017) [MP3|320 Kbps] <British Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk About That (4:25)
+02. It's Hard Going Up (4:14)
+03. The Devil Must Be Laughing (6:57)
+04. Gimme Some Of That Gumbo (3:56)(   Читать дальше...   )Жанр: British Blues, Blues RockПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC04F21D219A40637CBB68064B488876F92E459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990694   (910047) от 26.02.2016
+
+Thierry Lang - Guide Me Home (2000) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Prelude To Sadness [05:41]
+ 02.In Your Own Sweet Way [02:40]
+ 03.Guide Me Home 'Jazz' [04:24]
+ 04.The Days Of Wine and Roses [05:04](   Читать дальше...   )Жанр: Post-Bop, CoolПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BA7F9FCF9E12C67CDA681DBFBA0E31DB1B2C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990380   (909999) от 26.02.2016
 
 Duke Ellington - The Blanton-Webster Band (1940-1942) 3CD, 1986, Bluebird Records[FLAC|Lossless|tracks + .cue] <Big Band, Swing>
@@ -655,93 +742,6 @@ Thea Mann - Sentimentally Yours (1996) HDCD[FLAC|Lossless|image + .cue] <Vocal J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0572D660E9A42D7D8A0C66FE5D9E11A00FC59783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099197   (907340) от 31.01.2017
-
-Tristan Klein - Universal Mojo (2010) [FLAC|Lossless|image + .cue] <Blues Rock, Rock, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Alligator  (05:35) 
-02|  Dark Side  (05:17) 
-03|  M O J O  (07:28) 
-04|  Not Dead Yet  (02:49) (   Читать дальше...   )Жанр: Blues Rock, Rock, InstrumentalПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86B4BA6F4A8A22DD4168055B0FC7828E552E379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099186   (907336) от 31.01.2017
-
-Jimmy Bez - Lies of a Sinner (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Lies of a Sinner  (04:25) 
-02|  Don't Let Me Die in Vain  (06:39) 
-03|  Keep Me Back  (03:21) 
-04|  I Don't Belong  (04:43) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677D5BEDF51EF0F67BB990A3F196523C012A2EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098822   (907335) от 31.01.2017
-
-Chet Baker Sextet - Chet Is Back! (1962) 2003, Bluebird[FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Well, You Needn't [06:23]
- 02.These Foolish Things [04:56]
- 03.Barbados [08:27]
- 04.Star Eyes [06:58](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E33F2C4C3975F41B1A9C9DF0EA559ABACDF5D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1457717   (1024200) от 27.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024200.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:20] 01. Pensacola, Florida (Godzilla Theme)
+[07:26] 02. Skull Island (Kong Theme)
+[02:02] 03. Apex Cybernetics
+[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8052C128C1F32F823F5556BB23834A2F334B0053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457772   (1024060) от 28.03.2021
 
 Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
@@ -716,35 +745,6 @@ VA - Tribal Dreaming (2005) [MP3|320 Kbps] <NewAgе, Tribal-trance, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D647B54A8D414895F099EC6663B537804473968B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464189   (1019973) от 21.04.2021
-
-Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Native American, Didgeridoo, Trance>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragrance
-02. Himba
-03. Mother Earth
-04. Heartlight(   Читать дальше...   )Жанр: Native American, Didgeridoo, TranceПродолжительность: 02:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20123B4A8EF806953E85CC84CE81728825BCF7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

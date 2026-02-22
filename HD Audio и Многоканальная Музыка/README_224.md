@@ -1,3 +1,175 @@
+###  Публикация: 1751230   (42515) от 24.09.2024
+
+Little Quirks - Little Quirks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storm Like Me [00:02:40]
+02. Colours [00:03:59]
+03. Reverie [00:03:44]
+04. Caught In June [00:04:24](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F8DFE7D699C3F8874B58359E0732C404CC6C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751288   (42513) от 24.09.2024
+
+Hiraes - Studio Albums (2 releases) (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hiraes — немецкая мелодик-дэт-метал группа из Оснабрюка, в состав которой входят бывшие участники Dawn of Disease и Бритта Гёрц, бывшая вокалистка Critical Mess.2021 - Solitary
+2024 - DormantЖанр: Melodic Death MetalПродолжительность: 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A6A18F916AF29076C0E9C7C6F3AB39084FAFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751307   (42512) от 24.09.2024
+
+Cold Contrast - Last Honest Words (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Coldwave, Darkwave, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misdeed (3:32)
+02. Outland (3:37)
+03. Dependency (3:45)
+04. My Emptiness (4:24)(   Читать дальше...   )Жанр: Coldwave, Darkwave, ElectronicПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70594A9978CFE18AFC0C3C74385390FD39F93C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751305   (42511) от 24.09.2024
+
+Legacy of Light - Fragments of Major Arcana (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Metal, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fool's Beginning (4:05)
+02. The Wheel (3:34)
+03. Solitude of the Hermit (3:54)
+04. Strength of the Lion (3:03)(   Читать дальше...   )Жанр: Melodic Metal, Symphonic MetalПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38630DF5BBCDA37D2DD6373198FFCCC07B498812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751292   (42500) от 24.09.2024
+
+Toni Braxton - Singles Collection (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <RnB, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Another Sad Love Song (1993)
+02. You`re Makin Me High (1996)
+03. Breathe Again (1993)(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 01:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0F36879A531718713E27E67859907AE1A8D5E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751457   (42417) от 25.09.2024
+
+Ruth Moody - The Wanderer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Already Free (3:41)
+02. Twilight (4:05)
+03. The Spell Of The Lilac Bloom (feat. Joey Landreth) (3:45)
+04. Seventeen (3:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6938ECD81CE1A5D22E55136B67405B022B0F1A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751553   (42393) от 25.09.2024
 
 Mylene Farmer - RemiXXL (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
@@ -570,180 +742,6 @@ Munarheim - Heimkehr (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Fol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB9849A843AD3108FAD57530BF0BE3BB52550F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752467   (41884) от 30.09.2024
-
-Urban Rivers - Rockin' The Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackwater (6:46)
-02. Can't do the Time (4:30)
-03. City Lights (4:46)
-04. Devil's Daughter (7:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358FADF162F4C627747B89904A83DD6EE16DB4F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752469   (41881) от 30.09.2024
-
-Will Gunnell - I Dooz the Blooz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyway (3:56)
-02. Sihpmem Ot Thgindim (0:33)
-03. Can't Give You Up (3:09)
-04. I Dooz the Blooz (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6543358E4A3077545A188642C7D342D9C1303EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752452   (41877) от 30.09.2024
-
-Kiko & the Blues Refugees - Ghosts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lockdown (5:49)
-02. Not my enemy (4:29)
-03. Ghosts (4:09)
-04. Cheap shot (4:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186DF128E58E7B1CF262C61033114DD6E1AB43FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752418   (41873) от 30.09.2024
-
-Serj Tankian - Foundations (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal, Electronic, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.F. Day (3:47)
-02. Justice Will Shine On (3:50)
-03. Appropriations (3:02)
-04. Cartoon Buyer (3:58)(   Читать дальше...   )Жанр: Alt.Metal, Electronic, ExperimentalПродолжительность: 00:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A444409481D9DB14F7B7F1AD30CA835C0F3B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317601   (41834) от 01.10.2024
-
-Вячеслав Добрынин - Золотая Коллекция (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не ревнуй
-02. Не сыпь мне соль на раны
-03. Наивная ошибка
-04. Синий туман(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B110EDC9629BF34E9642C25CD968FEEBDE481C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752518   (41788) от 01.10.2024
-
-Alphaville - Forever! Best Of 40 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big in Japan (Single Version; 2019 Remaster) [00:03:54]
-02. Forever Young (2019 Remaster) [00:03:46]
-03. A Victory of Love (2019 Remaster) [00:04:17]
-04. Jerusalem (Single Version) (2021 Remaster) [00:03:44](   Читать дальше...   )Жанр: Synth-popПродолжительность: 03:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56E14407B8CFCD40F42233CA422227C9E70F36C
 ```
 
 https://mybot314.ru/tekegram_catalog/

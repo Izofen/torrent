@@ -1,3 +1,34 @@
+###  Публикация: 515944   (654825) от 27.06.2012
+
+VA - Absolute Dance Hit vol.02 (2008) [MP3|320 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Watch Out - Alex Gaudino & Shena
+02 Better Off Alone - Rushroom & Fara
+03 Hang On - Freedom & Musikk
+04 Let Me Think About It - Ida Corr & Fedde Le Grand
+05 You Spin Me Round (Like A Record) - Danzel
+06 JustifyЖанр: PopПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F825DE8021B3BE1C98503E234E2D7DD2050F7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514815   (654823) от 27.06.2012
 
 Центральное телевидение. Выпуск №69 (2012.06.24) SATRip
@@ -698,32 +729,6 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C357FDB37C5AE4AE364932AB7C489AB4BA2206C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140649   (654691) от 07.06.2017
-
-4K Video Downloader 4.3.0.2195 RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654691.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader позволяет скачивать видео, аудио и субтитры с YouTube в высоком качестве на ваш компьютер. Если вы хотите закачать видео на iPad, iPhone и другие девайсы, тогда это приложение — ваш выбор! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Paste Url".Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C81D5484540216C504B5855FAF9A75D9041DE2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

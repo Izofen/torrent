@@ -1,3 +1,32 @@
+###  Публикация: 1172827   (392100) от 09.10.2017
+
+Eddie Heywood - 1944 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T'Ain't Me [03:16]
+02. Indiana [02:38]
+03. Blue Lou [02:55]
+04. Carry Me Back To Old Virginny [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E709EB1D72A16C3F6844AB8D88A670F45F0CC977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173084   (391380) от 10.10.2017
 
 Howard Roberts - Jaunty-Jolly! & Guilty!! (1967) 2001, EMI-Capitol [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -721,35 +750,6 @@ Randy Waldman - Superheroes (2018) BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF0708330AD64719401D0F8A9A5E6794671CF889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574500   (385705) от 05.09.2022
-
-Linda Lavin - Love Notes (2020) Club 44 [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got My Eyes on You [2:35]
-02. Not a Care in the World/Shall We Dance [2:46]
-03. I Wish I Were in Love Again [3:03]
-04. I Can't Tell You Why/I Walk a Little Faster [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDA8C11FDCC56A6889F64EF1E4C824D5A4DCC12
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1853973   (1056977) от 
+###  Публикация: 1854418   (1057451) от 17.02.2026
+
+Johnyboy - Холод 2 (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зеркала [00:03:07]
+02. Посудомойщик [00:03:04]
+03. Жертва [00:02:56]
+04. Топливо [00:03:14](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5755F049BB000A4068B6556239E59B12B67CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854067   (1057152) от 15.02.2026
+
+Icegergert - Глаз Бога (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маршал [00:02:08]
+02. Irkutsk power [00:02:01]
+03. Мегера [00:01:55]
+04. Актриса [00:02:19](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B767FCC96685E7BC0964EDFEE5FD69EEADA8DEBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853973   (1056977) от 15.02.2026
 
 Саграда - Гарнизон (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 
@@ -688,64 +746,6 @@ VA - Rap Workout (2021) Explicit [MP3|320 Kbps] <Rap, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEE7CD143708DFE0C1F0E2EF7C025E4E78A64AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612458   (1039834) от 17.02.2023
-
-Аким Апачев - 3 Relises (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Джамбо [00:02:37]
-02. Русский хулиган [00:02:17]
-03. Окопный дэнс [00:03:08]
-04. Гуляйполе [00:02:58](   Читать дальше...   )Жанр: Hip HopПродолжительность: 3 CD, 00:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F715CB67510325CD7343B917396BD25D64B938A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615378   (1037837) от 25.02.2023
-
-Саша Скул (Sasha Skul) - Пасха мёртвых (Easter of the Dead) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Обращение к мужеложцам (Skit) [00:03:24]
-02. Пасха мёртвых [00:02:45]
-03. Мечтают ли русские об электроовцах? [00:02:41]
-04. Я не каждый день свободен (Skit) [00:01:08](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144CE48B4EBAFEAD2F1248AA43D1F838B0F981FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

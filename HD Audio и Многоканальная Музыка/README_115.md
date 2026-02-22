@@ -1,3 +1,177 @@
+###  Публикация: 1716326   (111357) от 15.04.2024
+
+«Float» - Skies and Highway Signs (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (4:37)
+02. Walking Feet (6:51)
+03. Mathematics (3:04)
+04. Flute Intermezzo (3:51)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB457906F29E6D51F8055E61987A5ECDD1FB7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716333   (111355) от 15.04.2024
+
+Susan Santos - Sonora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Rod Lady (3:59)
+02. Snakebite (4:57)
+03. So Long (4:28)
+04. Have Mercy (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D183FE86C10502B035F15A3D32FD8AB79C2CB30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716345   (111349) от 16.04.2024
+
+Nick Cave & Warren Ellis - Back to Black (2024) Original Motion Picture Score [FLAC 24/48|Lossless|WEB-DL|tracks] <Soundtracks>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening (00:01:01)
+02. At The Taxi (00:01:57)
+03. Park Bench (00:00:52)
+04. Tattoo Parlour (00:01:29)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6E9706DCB61CBB413743177668258C19A9A9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716342   (111329) от 16.04.2024
+
+Estopa - Estopía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Latin Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - El Dia Que Tu Te Marches (00:03:28)
+02 - Ke Mas Nos Da (00:03:20)
+03 - La Rumba del Pescailla (00:02:41)
+04 - No Digo Na (00:03:17)(   Читать дальше...   )Жанр: Pop Rock, Latin PopПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21358733A2B0DCD34AB673EDCAD55DA3D822E085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716625   (111322) от 16.04.2024
+
+Jeff Russo - Fargo Year 4 (Soundtrack from the MGM/FXP Series) (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open (Meet the Families) [00:11:33]
+02. Ethelrida [00:06:18]
+03. Mayhem (Cannon) [00:05:34]
+04. Mayhem Part Deux (Fada) [00:03:52](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD6D9DD906C6B107805BCE11DDD27F670E5F4E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716622   (111320) от 16.04.2024
+
+Jeff Russo - Fargo Year 5 (Soundtrack from the MGM/ FXP Series) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Who Is Dot
+02 – The Rancher
+03 – Run
+04 – Lorraine(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F34D6EA4257E32974A0E3F852613111FF64D032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716677   (111317) от 16.04.2024
 
 Voided - One (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative Metal>
@@ -571,179 +745,6 @@ Balance Of Power - Fresh From The Abyss (2024) [FLAC 24/48|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D379039F9F0491453497BA5D5D014519172530D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717401   (111153) от 20.04.2024
-
-Виталий Дубинин - Бал-Маскарад (3 издания) (2022-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бал-Маскарад - сольный проект Виталия Дубинина с участием Сергея Маврина и Михаила Бугаева (Гран-Куражъ)2022 - Бал-Маскарад
-2023 - Live-маскарад
-2023 - Бал-Маскарад. ПостскриптумЖанр: Heavy Metal, Hard RockПродолжительность: 02:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1003AE418AA6C52FD362413FC35BAE7970E9DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717470   (111146) от 20.04.2024
-
-City Woods - Highs and Lows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Hold Myself (4:15)
-02. Not Good Enough for You (3:22)
-03. Beautiful Soul (2:44)
-04. We Change (4:41)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193A13665B64CC56F98DAF7D80DB2958EB2F708B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717483   (111145) от 20.04.2024
-
-Nick Gravenites - Rogue Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poor Boy (feat. Charlie Musselwhite) (2:27)
-02. Blues Singer (feat. Jimmy Vivino) (3:08)
-03. Left Hand Soul (feat. Lester Chambers of the Chamber Brothers) (5:04)
-04. Blackberry Jam (feat. Lester Chambers of the Chamber Brothers) (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5774CAC58B6C1C4D8CBFDEEE4D3ABE0721DA060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717479   (111144) от 20.04.2024
-
-Freddy And The Phantoms - Heathen Gospels (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Is A Highway (3:10)
-02. Skeleton Man (4:52)
-03. Blues Trap (3:02)
-04. Blood (5:56)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFD6DF560365D6A5057FFA0391B11EA4A43F9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717533   (111143) от 20.04.2024
-
-High On Fire - Cometh The Storm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lambsbread [00:05:44]
-02. Burning Down [00:06:12]
-03. Trismegistus [00:05:36]
-04. Cometh The Storm [00:06:11](   Читать дальше...   )Жанр: Stoner, Sludge, DoomПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD65ABCC9828A898643C72B1FAAF154D2B2DE959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717480   (111141) от 20.04.2024
-
-Jeff McMillan - One Last Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Said (4:33)
-02. You Know What I'm Talking About (4:11)
-03. Devil Woman (4:33)
-04. I Say Its Cold (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C6F3CAFC0867EB7E9119E65970FFC6649D568E
 ```
 
 https://mybot314.ru/tekegram_catalog/

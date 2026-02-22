@@ -1,3 +1,32 @@
+###  Публикация: 991161   (908121) от 27.02.2016
+
+Aziza Mustafa Zadeh - Contrasts II (2007) Jazziza Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction [01:45]
+ 02.Mozarts Jazz Ballade [03:29]
+ 03.Guarding Dreams [02:27]
+ 04.The Queen Of The Night [02:57](   Читать дальше...   )Жанр: Jazz Fusion, Piano JazzПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B91C75568879CAE3448B66C4ED6A6ED8E1BB672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991157   (908091) от 27.02.2016
 
 Konstantin Klashtorni - Groove Jazz N Chill #2 (2012) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
@@ -756,41 +785,6 @@ The Ned Irving Quintet - Round & Round (1996) Rafsky Records[FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B6024F981B0F068A1A648F3CDC436C99B287BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759990   (905430) от 23.02.2014
-
-Baptiste Trotignon - Song Song Song (2012) [WavPack|Lossless]<Contemporary Jazz, Piano Jazz, Vocal, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. La Repetition
- 02. Awake
- 03. Mon Fantome
- 04. Ne Me Quitte Pas/La Javanaise
- 05. Palavas-Les-Flots
- 06. Gone
- 07. Choro Da Cigarra
- 08. Ma Plus Belle Histoire D'Amour
- 09. End Of The Gig
- 10. Une Petite Fille(   Читать дальше...   )Жанр: Contemporary Jazz, Piano Jazz, Vocal, CoolПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5550D26EDCE2CE228F01048EECFA3EF2AED3E3FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

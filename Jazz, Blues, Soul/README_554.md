@@ -1,3 +1,32 @@
+###  Публикация: 1732668   (107416) от 26.06.2024
+
+Rex Stewart - 1948 - 1949 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vernon's Story [2:33]
+02. Jug Blues [2:45]
+03. Blue Jay [2:17]
+04. Fine and Dandy [2:11](   Читать дальше...   )Жанр: SwingПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A311031BE93FC9BC8EE653881301271363112742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732885   (107411) от 27.06.2024
 
 Betty Booom - Booombastic (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
@@ -716,35 +745,6 @@ Nathan Mitchell - Gentle and Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D3560B4409A7537C1237E8E97057E693F42B57E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733228   (107305) от 28.06.2024
-
-Rodney Greene - Real Close (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Madness (4:17)
-02. Real Close (feat. Jackiem Joyner) (4:11)
-03. No Stoppin (3:24)
-04. Let Your Love Light Shine (3:22)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075321650744DD65745B39FED36374EA6A9802DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

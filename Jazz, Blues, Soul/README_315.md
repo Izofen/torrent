@@ -1,3 +1,90 @@
+###  Публикация: 939307   (473560) от 22.09.2015
+
+Donna Hightower - Take One! & Gee, Baby, Ain't I Good To You? (2009) [FLAC|tracks+.cue]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Donna Hightower "Take One!" with Sid Feller's All-Star Group (Capitol T 1133)
+01. Perfidia (Albert Dominguez-Milton Leeds) (02:30)
+02. Maybe You'll Be There (Rube Bloom-Sammy Gallup) (02:49)
+03. Lover Come Back To Me (Sigmund Romberg-Oscar Hammerstein II) (01:59)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E0CC0CC9D4CABFD33A6D384027802982EBCE30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939540   (473552) от 22.09.2015
+
+Deborah Coleman - The Essential Deborah Coleman (2015) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm A Woman (04:50)
+02. Roll With Me (04:11)
+03. My Heart Bleeds Blue (04:26)
+04. Don't Lie To Me (03:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A969FEB4E60D334F8AD8625D46E8046C50619A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939539   (473464) от 22.09.2015
+
+Fourplay - Silver (2015) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quicksilver
+02. Horace
+03. Sterling
+04. A Silver Lining(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FED083390A57A0DD4BD9E590CB766AF174E8E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057849   (473432) от 29.09.2016
 
 Eric Reed - Groovewise (2014) Smoke Sessions Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -655,93 +742,6 @@ The Dave Brubeck Quartet - 25th Anniversary Reunion (1976) 1989, Jazz Heritage [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3BB164E1FDFB64B5D4533737306B48E1AAE843F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160919   (471992) от 26.08.2017
-
-Charles Mingus & Jazz Artists Guild - Newport Rebels (1960) 2001, King Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mysterious Blues [08:45]
-02. Cliff Walk [09:49]
-03. Wrap Your Troubles in Dreams [03:56]
-04. T'ain't Nobody's Bizness if I Do [07:22](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB9A849FE03F376679706F1EA9DE963213E70D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160797   (471988) от 26.08.2017
-
-Dave Brubeck featuring Paul Desmond - St. Louis Blues (1959, 1962) 2003, Jazz Selection [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Louis Blues [05:42]
-02. Nomad [06:13]
-03. Thank You [05:52]
-04. Brandenburg Gate [04:30](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439B811456EF5A63EEC6CCD195728FDD3747F8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940089   (471636) от 23.09.2015
-
-Jimmy Woods - Awakening !! (1961/1962) /1995, OJC/[APE|image+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Awakening [04:11]
-02.Circus [04:26]
-03.Not Yet [08:00]
-04.A New Twist [03:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1A18E1D9A62F328133FBFDDE37A6C39010F16B
 ```
 
 https://mybot314.ru/tekegram_catalog/

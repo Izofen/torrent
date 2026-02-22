@@ -1,3 +1,32 @@
+###  Публикация: 1044497   (565652) от 20.08.2016
+
+Charles Lloyd - Manhattan Stories (1965) 2CD, 2014, Resonance Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565652.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Sweet Georgia Bright [17:50]
+02.How Can I Tell You [11:56]
+03.Lady Gabor [12:52]Жанр: Hard Bop, Post-BopПродолжительность: 01:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A68C577CEC18FBAAC7F7F985246776AD4DB11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304304   (565562) от 25.05.2019
 
 Christian McBride - Christian McBride's New Jawn (2018) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -722,35 +751,6 @@ Charles Earland - Coming To You Live (1980) Remaster, 2016, Sony Music[FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F06BECED46527F540B0894C8011E9A0C908DFE5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045197   (561825) от 22.08.2016
-
-Diane Schuur - Love Songs (1993) [FLAC|Lossless|image + .cue] <Smooth Jazz, Cool Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Fall In Love
-02. Speak Low (From The Musical Production "One Touch Of Venus")
-03. I Thought About You
-04. Prelude To A Kiss(   Читать дальше...   )Жанр: Smooth Jazz, Cool JazzПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1370A2B4E1BDB61AEC2974F7F3BED66E159F54
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1439075   (1040374) от 11.01.2021
+
+Autumn's Child - Angel's Gate (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Angels Cry
+02. Aquarius Sky
+03. Don't Say That It's Love
+04. Tear From The Sky(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100C9D152F962D78058A9B08A5063A3B3D1FE21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439069   (1040371) от 11.01.2021
 
 Eclipse - Viva La VicTOURia (2020) 2xCD, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -716,35 +745,6 @@ La Scaltra - Mater (Мама) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99BB142082A94D59BC6DCAA567A8071A62C7C78A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615584   (1037547) от 26.02.2023
-
-Ken Hensley - Past & Present (Songs In Time): A Ken Hensley Anthology 1972-2021 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037547.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. When
-02. Inside the Mystery
-03. New York(   Читать дальше...   )Жанр: Rock, Hard Rock |Продолжительность: 05:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6921CB811330DB1B8297E216ED32A4D42AE6B4AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

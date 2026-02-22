@@ -1,3 +1,32 @@
+###  Публикация: 1137193   (668961) от 25.05.2017
+
+Rhapsody of Fire - Legendary Years (2017) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn of Victory
+02. Knightrider of Doom
+03. Flames of Revenge
+04. Beyond the Gates of Infinity(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78F93891CF1B6FFF8BBC06C6507418158DD21DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 511109   (668891) от 15.06.2012
 
 Gentoo - Время есть (2011) [MP3|320 кб/с]<nu-metal/metalcore/female vox>
@@ -737,32 +766,6 @@ Armored Saint - Win Hands Down (2015) [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC1DB35B55B0876DD36336F40C25894BF17AB9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393791   (659036) от 24.03.2022
-
-Вury Тomorrow - 6 альбомов + 2 EP + 1 сингл (2007-2022) [MP3|320 Kbps] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DEATH (Ever Colder)Жанр: Melodic MetalcoreПродолжительность: 05:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10FAC7A6D1D5D8C81CEE0CD7AED52333A650630
 ```
 
 https://mybot314.ru/tekegram_catalog/

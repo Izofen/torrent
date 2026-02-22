@@ -1,3 +1,143 @@
+###  Публикация: 613407   (979832) от 06.02.2013
+
+Николай Ким и группа «Арамис» - Огонь и лёд (2012) [MP3|256 кб/с]<pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чёрный магнитофон (3:42)
+02. Девочка ждёт (3:59)
+03. Жёлтое окно (4:16)
+04. Журавушка (4:02)
+05. Идущий за Солнцем (4:01)
+06. Ирина (3:40)
+07. Королева двора (4:10)
+08. Костёр на холме (3:24)
+09. Кот кошку любил (3:51)
+10. Ластик (3:07)(   Читать дальше...   )Жанр: popПродолжительность: 01:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C875AB20287A5922CA4A8800CC17E91035FA5F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613927   (979708) от 06.02.2013
+
+ВИА Дубы-Колдуны - Collection (2008) [MP3|320 кб/с]<поп, ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Толстый Карлсон (2:59)
+02. Звёзды континентов (2:54)
+03. О чём плачут гитары (2:00)
+04. Кто тебе сказал (2:41)
+05. Алёшкина любовь (3:10)
+06. На чём стоит любовь (2:20)
+07. Чёрный поезд (2:29)
+08. Осенние дубы (1:55)
+09. Легко влюбиться (2:33)
+10. Нет тебя прекрасней (3:19)(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AF806B6AABCE364013DE8AC2A0575A2C4FA0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606007   (979608) от 06.02.2013
+
+ВИА Советский Союз - Советский Союз (2006) [MP3|128 кб/с]<поп, ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Раз, и два, и три...
+02.Десять дней
+03.Между мною и тобою
+04.Горько
+05.Вишня
+06.Возьми свои слова обратно
+07.Воскресенье
+08.Вот опять сентябрь
+09.Ох! Эти танцы!
+10.Бременские музыканты(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 00:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC130F5D55E1BD6527C63ED45DBC1FAD4982643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612349   (979465) от 06.02.2013
+
+Chilly & Cherry Laine - Stars Of A World Disco (3CD) (2011) [MP3|320 кб/с]<поп, диско>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979465.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD101. Play Me A Classic Symphony
+02. Runaround
+03. Showbiz
+04. Ten Million Dollar Baby
+05. Rock 'n' Roll Sally
+06. The Sun Ain't Gonna Shine Anymore
+07. Come On And Sing
+08. Dance With Me
+09. Energy
+10. Get Up And Move(   Читать дальше...   )Жанр: поп, дискоПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB93048F20603B77925CB1B686880CF010218FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612631   (979391) от 06.02.2013
 
 VA - My Favorite’s Romantic Melodies (14CD) (2008-2011) [MP3|192-320 кб/с]<поп, ретро>
@@ -667,134 +807,6 @@ Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52FF320B2A8FB4E6810428D4CF1C057F1366DB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974453   (975683) от 12.01.2016
-
-Richard Marx - Beautiful Goodbye (2014) Target Exclusive Edition [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatever We Started
-02. Suddenly
-03. Inside
-04. Beautiful Goodbye(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BD60955CDB454FAFC2682FBF97FAC0F9A878B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357187   (975281) от 02.02.2020
-
-Adriano Celentano - Hunting Down Good Tunes (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975281.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ritona Lo Shimmy
-2. Il Mondo Gira
-3. Personality
-4. Nikita Rock(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCE10F592B922A123A9CFB192428260A1B9D69E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616085   (975078) от 10.02.2013
-
-VA - Smash Hits of the 40's (2004) [MP3|320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helen Forrest With Harry James & His Orchestra - How High The Moon
- 02. Artie Shaw & His Orchestra - Frenesi
- 03. Peggy Lee With Benny Goodman & His Orchestra - Elmer's Tune
- 04. Freddy Martin & His Orchestra - Piano Concerto No 1 in B Flat
- 05. Dinah Shore - Blues In The Night
- 06. Glenn Miller & His Orchestra - A String Of Pearls
- 07. Dick Haymes - You'll Never Know
- 08. Louis Jordan & His Tympany Five - Is You Or Is You Ain't My Baby
- 09. Tommy Dorsey & His Orchestra - On The Sunny Side Of The Street
- 10. Perry Como - Temptation(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF352F373F57878B6761E68C65034F9340D7463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616734   (974916) от 10.02.2013
-
-Crazy Loop (Dan Balan) - The Power of Shower (2007) [FLAC|Lossless]<Pop, Dance, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Loop (Mm-Ma-Ma) (3:35)
-02. Johanna (Shut Up!) (3:40)
-03. Love Is A Simple Thing (3:09)
-04. Uh-Ahh-Yeah (3:26)
-05. Famikon (2:34)
-06. Tango (3:28)
-07. Take Me Higher (3:38)
-08. Despre Tine Cant (Partea 2) (4:05)
-09. The 24th Letter (4:43)
-10. Crazy Loop (Mm-Ma-Ma) (DJ Ross Radio Club Edit) (3:54)(   Читать дальше...   )Жанр: Pop, Dance, BalladПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

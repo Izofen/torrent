@@ -1,3 +1,33 @@
+###  Публикация: 866864   (906356) от 06.02.2015
+
+David Lee Roth - Greatest Hits (2013) The Deluxe Edition [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. California Girls
+02. Just A Gigolo
+03. Easy Street
+04. Coconut Grove
+05. Just Like Paradise(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13053F813CA8B2D0E9D4164CC0D394811CCC6DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 759982   (905491) от 23.02.2014
 
 BulletBoys - BulletBoys (1988) [APE|Lossless]<Hard Rock>
@@ -756,35 +786,6 @@ Degreed - Dead But Not Forgotten (2015) [FLAC|Lossless|image + .cue] <Melodic Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E84B5097C6E773E92C6A168D3002EC9BA8E0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101371   (894771) от 07.02.2017
-
-Apollo - Waterdevils (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolution For The Brave [3:51]
- 02. Liberate Yourself [3:36]
- 03. Buried In A Flame [3:51]
- 04. Safe And Sound [3:47](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171CD83542A428762D80EEBDDDB9D422BAD544ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

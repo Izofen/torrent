@@ -1,3 +1,88 @@
+###  Публикация: 1428853   (178232) от 04.12.2020
+
+Игорь Саруханов - С кем ты? (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178232.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. С кем ты?
+2. Не знал
+3. Я такую не встречу
+4. Не зови(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF9D870C0CB333E882F98A35A078EF7357F8550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593899   (178076) от 01.12.2022
+
+Bad Boys Blue - Game Of Love (1990) [OGG Vorbis|650 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of Hearts
+02. Jungle In My Heart
+03. I Don't Know Her Name
+04. Jenny, Come Home(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C32B1DFF8D17174B6C58BF1D3A717C9997CE548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594521   (178016) от 01.12.2022
+
+Funny Twins - You And Me (1987) [OGG Vorbis|700 Kbps] <Electronic, Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You And Me (Vocal)
+02. You And Me (Instrumental)Жанр: Electronic, Disco, Italo-DiscoПродолжительность: 00:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BE832A9C0E0B3E424C1C8C9E7D202F93B47FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594376   (177965) от 01.12.2022
 
 Fancy - Contact (1986) [OGG Vorbis|550 Kbps] <Electronic, Pop, Disco>
@@ -658,93 +743,6 @@ VA - If You Love Her - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D31DE28F3F28EF1BBB14EFC8BFFA32A402CB1A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595742   (175101) от 06.12.2022
-
-Julie Parsons - Piano Lady (1977) LP [MP3|320 Kbps] <Pop, Funk-Soul, Easy Listening, Soul-Jazz, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love Only You (2:47)
-02. I'll Wait For You (3:05)
-03. Separate Ways (3:21)
-04. Water (2:21)(   Читать дальше...   )Жанр: Pop, Funk-Soul, Easy Listening, Soul-Jazz, BalladПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F6067DF87B4AE81CF5853FC52571E529EA9036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595665   (174943) от 06.12.2022
-
-Технология - Нажми На Кнопку (1994) Unofficial Release [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нажми на кнопку
-02. Все, что ты хочешь
-03. Странные танцы
-04. Холодный след(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A878A5858E852EA8E003282A5CC690ECA2CCA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595703   (174941) от 06.12.2022
-
-VA - Трибьют «Иванушки International» (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174941.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Таврида.АРТ/Иванушки International - Пролог
-2. MATANYA - Два океана
-3. Фабрика - Малина
-4. ATMO5 - Билетик в кино(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02473530E78FA709DE9FE552FC37ABF1EBA63BF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

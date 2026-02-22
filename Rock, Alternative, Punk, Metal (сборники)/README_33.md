@@ -1,3 +1,32 @@
+###  Публикация: 1578228   (347753) от 22.09.2022
+
+VA - Hammond Organ for the Soul (2022) 2CD [MP3|320 Kbps] <Rock, Hammond>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Georges Arvanitas - Moanin' [04:43]
+02. Deep Purple - Lazy (Live; 1998 Remaster) [10:27]
+03. Uriah Heep - Circle of Hands (2017 Remastered) [06:27]
+04. Emerson, Lake & Palmer - Fanfare For The Common Man (Original 1977 Recording) [09:47](   Читать дальше...   )Жанр: Rock, HammondПродолжительность: 08:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D58DCDAEA819B627B2447E2C0FF366E723578D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257186   (347487) от 25.10.2018
 
 VA - Rock Kaleidoscope 3 (2018) [MP3|320 Kbps] <Rock>
@@ -718,35 +747,6 @@ VA - The Gambling: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Punk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73BD57EED8F5F3DDFFEC9DC71F679B93EABB8060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182736   (313973) от 11.11.2017
-
-Юлия Чичерина - Избранное 1997-2017 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off-On
-02. Радиоволна
-03. Жара
-04. 40000 км(   Читать дальше...   )Жанр: RockПродолжительность: 02:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C317B1DABA970325F09C8F35653CB20DD8E4A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

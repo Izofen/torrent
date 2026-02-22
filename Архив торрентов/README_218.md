@@ -1,3 +1,29 @@
+###  Публикация: 1483945   (1006505) от 16.07.2021
+
+AAF DCH Optimus Sound v6.0.9191.1 Realtek Mod by AlanFinotty [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006505.jpg" />
+</div>
+
+
+###  Подробнее
+
+AAF DCH Optimus Sound Realtek Mod, аудио драйвер "всё в одном". При установке AAF DCH Optimus Sound Realtek Mod есть варианты установки; Realtek Audio Console + Sound Blaster Connect, Dolby Atmos, Nahimic, Sonic Studio. Цель проекта AAF DCH Optimus Sound Realtek Mod - извлекать превосходное качество звука из музыки, фильмов, игр или другого контента под (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64DE30C5306D160756D90982A6C9F09516D55DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483849   (1006499) от 16.07.2021
 
 Internet Download Manager 6.39 Build 1 RePack by KpoJIuK [Multi/Ru]
@@ -650,32 +676,6 @@ OCCT 9.0.2 Final Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F88660F830F657D28ECE8295A1828041B7225EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484434   (1006114) от 19.07.2021
-
-Phase One Capture One Pro 21 14.3.0.185 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phase One Capture One PRO - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021B3771220C7298AD411C560D21CC907D2CAB58
 ```
 
 https://mybot314.ru/tekegram_catalog/

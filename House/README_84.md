@@ -1,3 +1,90 @@
+###  Публикация: 1713549   (111836) от 07.04.2024
+
+VA - Spring Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nickobella & N@OM1 - Let Me Know (02:40)
+02. Luwian - In The Morning (02:53)
+03. ODENN & Onur Enfal - Lost (03:12)
+04. Sinan Gümüş & Zahdiel - Motive (02:54)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7102B790CB360E5CADE112D95270AFFC8EBD70FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713564   (111830) от 07.04.2024
+
+VA - Relaxing House & Dance Music (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sharapov - Bring Me Back (Mant Deep Remix) (05:00)
+02. CHARZZ - Better (03:39)
+03. Raffa Maru - On My Mind (05:38)
+04. Gianmarco Staccone DJ - Feel The Love (04:05)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA90C75D912C7692EC81EA8C0D744C8C1520C1AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715301   (111600) от 11.04.2024
+
+VA - Timeless Ibiza 2024 [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dabeat & Kamilo Sanclemente - Canis (Morttagua Remix) (8:07)
+02. Morttagua & Gaby Endo - Urania (Original Mix) (7:12)
+03. Stylo & Space Motion - The Last Siren (Original Mix) (7:06)
+04. Cherry (UA) & Groove Shack - Silhouettes Of Time (Extended Mix) (6:35)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 07:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5708F8C5B1AD4DF79E1682B1BEE1B799EFDA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715573   (111557) от 12.04.2024
 
 VA - Footsteps On The Dancefloor, Vol. 2 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -655,93 +742,6 @@ VA - Ibiza Spring Anthems 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14BF2CF2268E44CBA69354D78F45348D87B605E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726552   (108695) от 29.05.2024
-
-VA - Footsteps On The Dancefloor, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4brownbottles - My Memories (02:57)
-02. VarZet - Flashback (Extended Mix) (02:52)
-03. Narra - Bodyrock (04:52)
-04. MVRTK, Zeead & Leon3s - Your Love (02:12)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51EF801ACC93317DE3E84096156A463F250C3768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727039   (108576) от 01.06.2024
-
-VA - Summer Body Fit 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disciple Beats - Get Down The Business (Original Mix) [02:46]
-02. Jayson Brown - Wast Your Life (Original Mix) [02:42]
-03. Black Shivers - Stay Alive (Original Mix) [02:50]
-04. Stasy Brown - Round & Round (Original Mix) [02:45](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE56534F188A4CB92078B867C9603E6FD7B7B372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727022   (108574) от 01.06.2024
-
-VA - Armada Chill - Summer 2024 (2024) [MP3|320 Kbps] <Deep House, Melodic House & Techno, Organic House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GoldFish & Malou - If Summer Was A Sound (Extended Mix) [5:41]
-02. Heard Right - Far Away (Extended Mix) [5:14]
-03. Polar Inc. - Cassell (Extended Mix) [6:43]
-04. DJ San feat. Belle Doron - Where Are You Now (Extended Mix) [6:12](   Читать дальше...   )Жанр: Deep House, Melodic House & Techno, Organic House, DanceПродолжительность: 03:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A3A9069B292E1217C847D2484863C5EC6208D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

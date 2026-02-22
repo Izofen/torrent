@@ -1,3 +1,32 @@
+###  Публикация: 929635   (512938) от 25.08.2015
+
+Nosaj Thing - Fated (2015) [FLAC|tracks +.cue] <Experimental, Leftfield, Ambient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sci (02:22)
+  02. Don't Mind Me (03:23)
+  03. Realize (01:34)
+  04. Varius (01:33)(   Читать дальше...   )Жанр: Experimental, Leftfield, Ambient, DowntempoПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04092E5203C522F603820BD66981DD3DBF574D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931020   (512937) от 25.08.2015
 
 VA - Best Of Vocal Trance 2015 Vol 2 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
@@ -674,32 +703,6 @@ Mini Metro v.gamma 37 (2015) [Multi/Ru] [OS X Native game]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F57E0D49DD31EE9B53F00D054E3A4852C5951B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242832   (512747) от 24.08.2018
-
-K-Lite Codec Pack 14.4.0 Mega/Full/Standard/Basic + Update [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512747.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D0581D39FF444834310D803F937592445586FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

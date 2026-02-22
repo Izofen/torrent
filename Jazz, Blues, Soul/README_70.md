@@ -1,3 +1,90 @@
+###  Публикация: 1092141   (940353) от 11.01.2017
+
+Joe Bushkin - In Concert Town Hall (1963) Remaster, 2013, Warner[FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Medley: The Man That Got Away - Hallelujah [04:30]
+ 02.The Porgy And Bess Medley: Bess You Is My Woman - It Ain't Necessarily So - S... [10:04]
+ 03.I Can't Get Started [04:33]
+ 04.They Can't Take That Away From Me [03:01](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87F6117E513DA611E025B13E7A4678C77F150DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092248   (940350) от 11.01.2017
+
+Shane Henry - Deliverance (2004) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Deliverance  (03:43) 
+02|  In too deep  (03:19) 
+03|  40 Days and Forty Nights  (03:25) 
+04|  Lost Angelo  (04:05) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CCE374411202B4D9B44D3827C0B9897EF705F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984106   (940322) от 08.02.2016
+
+Dr. Lonnie Smith - Evolution (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Jazz Funk, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play It Back (14:06)
+02. Afrodesia (08:21)
+03. For Heaven's Sake (05:53)
+04. Straight No Chaser (06:44)(   Читать дальше...   )Жанр: Jazz, Jazz Funk, Soul JazzПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394709988BD91E786DDF29F28F2BC37338781481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092178   (940267) от 11.01.2017
 
 The Robert Cray Band - Too Many Cooks (1980) 1989, TOMATO, авторская раздача [FLAC|Lossless|tracks + .cue] <Blues>
@@ -726,99 +813,6 @@ Mark 'Mississippi Slide' Jeghers - The Bluez Projekt (2016) WEB [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FA0A99A7C300674198AF9CDB9F82FE2D73CF05B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859945   (938898) от 17.01.2015
-
-The Andrews Sisters - The Golden Age Of The Andrews Sisters (2002) 4CD [MP3|320 кб/с]<Jazz, Swing, Pop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (01:12:28)
-Disc 2 (01:12:27)
-Disc 3 (01:10:02)
-Disc 4 (01:12:05)Треклист Disc 1:
-01. Bei Mir Bist Du Schon
-02. Tu-Li-Tulip Time
-03. Lullaby To A Litle Jitterbug
-04. Hold Tight, Hold Tight
-05. The Beer Barrel Polka
-(   Читать дальше...   )Жанр: Jazz, Swing, Pop |Продолжительность: 04:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8001C797E18A49669FDDCFAF796F8599D2F8C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984601   (938845) от 09.02.2016
-
-VA - Love's Greatest Hits (2006) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Contemporary Jazz >
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harold Melvin & The Blue Notes - If You Don't Know Me By Now (3:27)
-02. Diana Ross & Lionel Richie - Endless Love (4:25)
-03. Marvin Gay & Tammi Terrell - You're All I Need To Get By (2:51)
-04. Peabo Bryson & Robert Flack - Tonight, I Celebrate My For For You (3:30)(   Читать дальше...   )Жанр: Funk, Soul, Contemporary Jazz, Soft JazzПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5DF6A38E3A922F74FDB51BC46CBD1979B1B3D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860664   (938817) от 17.01.2015
-
-VA - Simply Late Night Jazz (2010) 2CD [FLAC|Lossless]<Jazz, Vocal Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многим понравилась предыдущая раздача из серии Simply. Вот очередной сборник, судьба которого достаточно интересна. Первоначально он вышел в 2008 году в формате 4CD (собственно как большинство релизов из этой серии). Сборник достаточно хорошо и быстро был раскуплен, поэтому в 2010 году Studio Recording его повторила под тем же названием, похожий и состав исполнителей, (   Читать дальше...   )CD1:
-01. Billie Holiday - That Ole Devil Called Love  (2:56)
-02. Lester Young - These Foolish Things  (3:01)
-03. Cannonball Adderley - Willow Weep For Me  (6:23)(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Lounge, ChilloutПродолжительность: 02:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECE3F3857FBCDDB09A412CF053E568578E5E403
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,178 @@
+###  Публикация: 1757601   (38972) от 28.10.2024
+
+Orrin Evans - Walk a Mile in My Shoe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dislocation Blues (7:25)
+02. Sunday in New York (4:18)
+03. All That I Am (4:50)
+04. Blues in the Night (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3001BBEEE7F0A4488BF2DDF93DADF7F2A64E45BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757552   (38970) от 28.10.2024
+
+Witchgrinder - Studio Albums (3 releases) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Witchgrinder - метал-группа из Мельбурна, Австралия, основана в 2009 году.2013 - The Demon Calling
+2015 - Haunted
+2024 - Nothing Stays BuriedЖанр: Industrial Thrash/Groove MetalПродолжительность: 02:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C7D58782549F7E12560B20F8A0771D54FDAC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757604   (38969) от 28.10.2024
+
+Otto Kintet - Wildernis (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Train of Dots (5:37)
+02. Wan.de.len (7:15)
+03. Fontanel (6:09)
+04. Glinstergloed (4:08)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562919B31099845022825360B950BE94617C293C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588810   (38960) от 29.10.2024
+
+VA - Metallica Tributes Collection (20 releases) (1994-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove/Death/Doom Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный сборник представляет из себя коллекцию изданий под общим смысловым названием "Tribute to Metallica".
+Песни группы "Metallica" исполнены коллективами различной степени известности из разных стран мира.
+Объединяющий фактор - жанр: Metal разной степени тяжести.1994 - Metal Militia - Tribute To Metallica
+1996 - Metal Militia - Tribute To Metallica II
+1999 - Phantom Lords
+2002 - A Tribute To The Four HorsemenЖанр: Thrash/Groove/Death/Doom Metal, MetalcoreПродолжительность: 22:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806683B9DE4FBA3C7A4B8A2AC9119D2370903A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757912   (38806) от 30.10.2024
+
+Ricardo Andre Souza - Amoroso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caminha Cruzados (2:52)
+02. Amoroso (4:35)
+03. Desafinado (3:56)
+04. Minha Saudade (3:26)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD1B86985063897A22140E3865F4CD6EDD7C03F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757911   (38800) от 30.10.2024
+
+Ragatudi Ensemble - Fanny Vibes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheek To Cheek (3:07)
+02. Over The Rainbow (4:05)
+03. The Man I Love (3:26)
+04. La Dolce Vita (3:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1909456FDAE493C80452A8B1798DDF193BF13ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757914   (38799) от 30.10.2024
 
 The Clarksdale Rats - Shadow Of The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -569,181 +744,6 @@ The Brooks - Soon As I Can (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03E2B6C02F7C134C47641A16EEBC321941F914CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758838   (38270) от 04.11.2024
-
-Svaneborg Kardyb - Superkilen (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superkilen (5:58)
-02. Cycles (4:20)
-03. St. Pancras (3:46)
-04. Vakler (4:58)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2021EBB1F3AA595FDB1292DA432A14F4C1B012AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519857   (38256) от 05.11.2024
-
-Motley Crue - Studio Albums (10 releases) (1981-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] < Heavy/Glam Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mötley Crüe — американская глэм-метал группа, основанная в Лос-Анджелесе в 1981 году.
-Группа была создана бас-гитаристом Никки Сиксом и барабанщиком Томми Ли, к которым впоследствии присоединились гитарист Мик Марс и вокалист Винс Нил.1981 - Too Fast for Love
-1983 - Shout At The Devil
-1985 - Theatre Of Pain
-1987 - Girls, Girls, GirlsЖанр: Heavy/Glam Metal, Hard RockПродолжительность: 11:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E827EA74E336AE7B60CB4C0A69FF9E7B129D728C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668555   (38210) от 05.11.2024
-
-Withering Surface - Studio Albums (7 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Withering Surface - Melodic Death Metal группа из Нестведа, Дания. Основана в 1993 году.1997 - Scarlett Silhouettes
-1998 - The Nude Ballet
-2001 - Walking on Phantom Ice
-2004 - Force The PaceЖанр: Melodic Death MetalПродолжительность: 04:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF91E5458263DBA29058FFE0C03959E98A79C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758902   (38198) от 05.11.2024
-
-Nordic Twilight - Nordic Twilight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nordic Twilight (3:48)
-02. Edge of Frozen Hearts (4:37)
-03. Sleeping Beauty (5:04)
-04. Free Me (4:08)(   Читать дальше...   )Жанр: Symphonic Power Metal, Female VocalПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E238B99420377964628BD14FEFE0527EECB4251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758971   (38196) от 05.11.2024
-
-Circle Of Mud - Inside The Circle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Circle (3:40)
-02. Six Feet Under Ground (3:58)
-03. Snake (3:14)
-04. Since You're Gone (5:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607CCB3E8F8937BB4332B161F82ED17759A4C08E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758966   (38195) от 05.11.2024
-
-63 Deluxe - 63 Deluxe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Say (4:11)
-02. My Favourite Hurricane (5:18)
-03. Too Late (4:02)
-04. Did You Really Think (4:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27F1B4828040FE5E93BECD42873C87810812D0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

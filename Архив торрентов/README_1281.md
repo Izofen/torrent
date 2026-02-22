@@ -1,3 +1,38 @@
+###  Публикация: 298586   (883726) от 20.02.2011
+
+VA - Car Audio Vol.9 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_883726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.2 Brothers On The 4th Floor - Let Me Be Free 2011 (Dj Cargo Vs.Kei Morton Bootleg)
+02.Airbase Feat. Ilana - Affirmation(Radio Edit)
+03.Amna - Tell Me Why (Tom Boxer LLP Extended Mix)
+04.Astero Feat. Annet vs. Dennis Ferrer - Ays Hey Hey (Astero Booty Remix)
+05.Barbara Streisand & Dino Roc vs. Chuckie – Work It Out (Abramo Mash-Up)
+06.Black Eyed Peas - Lets Get It Started (DJ Denis Rublev & DJ Borisoff Remix)
+07.Britney Spears Vs. Coldplay - Clocks It Against Me (DJ's From Mars Boolteg Remix)
+08.Cher - Believe (Kirillich Yan Loran Remix Extended)
+09.Dj Humo - Superstar (LX-Tronix & Dirty Alcorz Remix)
+10.Dada Life - Let's Get Bleeped Tonight (Phat Rick Remix)(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 04:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D0B2EB6EDBF5AEB208F80944F092A7D39DCE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 186070   (883725) от 24.03.2010
 
 Остаться в Живых / Lost / Сезон 6 Эпизод 9 (2010) HDTVRip [FinaRGoT]
@@ -694,32 +729,6 @@ Ace Translator - интернет переводчик работающий на
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 298399   (883678) от 20.02.2011
-
-NG: Охота за речным чудовищем / Catching Giants (2010) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-По словам многих очевидцев, в реке видели огромное чудовище. Оно вполне может напасть на человека и стать людоедом. Кто это и насколько этот монстр опасен для человека - это предстоит выяснить команде профессиональных охотников на чудовищ.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D95339BC45075B82028EB9BA2899A63A388A3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

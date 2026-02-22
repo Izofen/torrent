@@ -1,3 +1,38 @@
+###  Публикация: 618300   (969541) от 14.02.2013
+
+Pucaramanta - Sound of the spirits (2010) [MP3|~190 кб/с (V2)]<Native American,New Age,Ethnic,Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Qapaq Nan
+02. Chirapaq
+03. The Last Mohican
+04. Ananau
+05. Sunquyman
+06. Tananka
+07. White buffalo
+08. Kabra Nawy
+09. Paway Anka
+10. Abiu Tusuy(   Читать дальше...   )Жанр: Native American,New Age,Ethnic,FolkПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D439EBB0390D647F8B82AC433BC82CEDFA65AD28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 744906   (969327) от 13.01.2014
 
 Dum Dum Girls - Too True (2014) [MP3|192 кб/с]<Indie Pop>
@@ -744,35 +779,6 @@ VA - Instrumental Moods (2002) [FLAC|Lossless|tracks + .cue] <Instrumental, Lati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB96286756BBF00DFBEAD158D64D93EFD3EB50CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978531   (963578) от 23.01.2016
-
-Gary Girouard - The Naked Piano: Transitions (2016) [MP3|320 кб/с] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solitude
-02. Redemption
-03. Invictus
-04. Cross the Chasm(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23270490FB963037BF46B430AA99AE411E953354
 ```
 
 https://mybot314.ru/tekegram_catalog/

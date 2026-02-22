@@ -1,3 +1,32 @@
+###  Публикация: 1703247   (115156) от 28.02.2024
+
+Sahib Shihab - And The Danish Radio Jazz Group (1965) 2008, Oktav [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Di-Da [5:10]
+02. Dance of the Fakowees [4:13]
+03. Not Yet [3:25]
+04. Tenth Lament [6:20](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682320C7D41ECAC5D5228966A5F497BC1591AF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703425   (115010) от 29.02.2024
 
 Luca Giordano, Victor Puertas, Netto Rockfeller Trio - Night Time Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ Houston Person - Truth! (1968, 1970) 1999, Prestige [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF5395B4984CCC2BFE11ADCFAC519F28A905AB77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703861   (114622) от 02.03.2024
-
-Lars Gullin - Portrait of the Legendary Baritone Saxophonist: Complete 1951-1955 Studio Recordings Master Takes (2015) 4CD, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lotus Corniculatus (Cat-in-Clover) [5:27]
-02. Galium Verum (Cheese-Renett) [7:07]
-03. Late Date [3:23]
-04. Beautiful Heart [3:02](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 04:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0C31C4F493C314C79B028398CFA76CD5D71D52
 ```
 
 https://mybot314.ru/tekegram_catalog/

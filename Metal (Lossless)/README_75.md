@@ -1,3 +1,263 @@
+###  Публикация: 1501960   (831895) от 12.10.2021
+
+Carcass - Torn Arteries (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carcass – одна из наиболее влиятельных метал-групп в истории. На протяжении карьеры музыканты этого выдающегося британского коллектива успели оказать влияние сразу на несколько музыкальных жанров, казалось бы, полностью друг другу противоположных.01. Torn Arteries (4:00)
+02. Dance Of Ixtab (Psychopomp & Circumstance March No. 1 In B) (4:29)
+03. Eleanor Rigor Mortis (4:14)
+04. Under The Scalpel Blade (3:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4087D0247138977AC00E373484B56DBB7C9C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501922   (831824) от 12.10.2021
+
+Doro - Warlock - Triumph and Agony Live (2021) Japanese Edition, Live [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831824.jpg" />
+</div>
+
+
+###  Подробнее
+
+По случаю 35-летия альбома WARLOCK "Triumph And Agony" Doro Pesch выпустила концертный релиз "Triumph And Agony Live" 24 сентября 2021 года. В настоящее время Доро работает над материалом для нового студийного альбома, который ожидается ориентировочно в 2022 году.01. Legacy (Intro)
+02. Touch Of Evil
+03. I Rule The Ruins
+04. East Meets West(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A92B91FCC75F3F9775BCAFC3521083867CE22AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380682   (831667) от 04.05.2020
+
+Beast of Revelation - The Ancient Ritual of Death (2020) [FLAC|Lossless|Web-DL|tracks] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legions (6:39)
+02. The Great Tribulation (4:25)
+03. The Cryptic Void (5:32)
+04. The Fallen Ones (6:14)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAF201E4A8402C60D470C4B657A79716C36E943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380691   (831665) от 04.05.2020
+
+VA - Women of Doom (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nighthawk and Heavy Temple - Astral Hand (5:12)
+02. Amy Tung Barrysmith - Broken (6:04)
+03. Besvarjelsen - A Curse to be Broken (6:47)
+04. Mlny Parsonz - A Skeleton is Born (4:58)(   Читать дальше...   )Производство: Desert RecordsЖанр: Doom Metal, Stoner RockПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474C77BA5404D5DBA5AB3F866A49F18570CFAD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380686   (831583) от 04.05.2020
+
+Lord Vigo - Danse De Noir (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Epic Metal, NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voight Kampff Situation (0:38)
+02. Danse De Noir (6:20)
+03. Are You Human (0:58)
+04. The Verge Of Time (6:10)(   Читать дальше...   )Жанр: Doom Metal, Epic Metal, NWOBHMПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC470897FE0C8E0AC4973E8A5C40B807356E9AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380844   (831577) от 04.05.2020
+
+Atrox - Orgasm (2003) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Avant-garde Gothic, Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Methods of Survival
+02. Flesh City
+03. Heartquake
+04. Burning Bridges(   Читать дальше...   )Жанр: Melodic Doom Metal, Avant-garde Gothic, ProgressiveПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF8C1A531DC2B4ABB035326F726E630E33C36A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502182   (830832) от 13.10.2021
+
+Bad Whispers - Burn Out (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing to Hope
+02. Burn Out
+03. Go Home Tonight
+04. Burning Wings(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF48E0AEC5138680B7AEDE1639DC3DF48D0CE7B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502178   (830110) от 13.10.2021
+
+Sodom - Bombenhagel (2021) EP [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bombenhagel
+02. Coup De Grace
+03. Pestiferous PosseЖанр: Thrash MetalПродолжительность: 00:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF6F304E906C501A1012784017DCE041D173A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502031   (830099) от 13.10.2021
+
+Chadwick Death - Black Magic (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to Chadwick Death (05:48)
+02. Devil Woman (04:38)
+03. Killer on the Loose (04:49)
+04. Ganglands (06:19)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2001F2DD357D5F5EBAACD8A6DB0BE13AC65E9D95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 880709   (830033) от 22.03.2015
 
 Cruenta Lacrymis - Sweetness And Blasphemy (2015) [FLAC|Lossless]<Symphonic Black Metal, Death Metal>
@@ -481,269 +741,6 @@ Hate - Rugia (2021) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D8590E375D09666C94F3CE0500D4FBC5A43374B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502683   (825265) от 16.10.2021
-
-SkeleToon - The 1.21 Gigawatts Club (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: Unveiling Secrets
-02. Holding On
-03. Outatime
-04. The Pinheads(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6BBF10EE1D4235371D144742C86C4EE39A3DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502686   (825263) от 16.10.2021
-
-The Grandmaster - Skywards (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunar Water
-02. The Tempest
-03. Someday Somehow
-04. Dead Bond(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE132ED883B6324102B010B179343E54F39FEA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502668   (825153) от 16.10.2021
-
-Necromantia - To The Depths We Descend (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daemonocentric
-02. And The Shadows Wept...
-03. Give The Devil His Due
-04. Inferno(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324B01A406BC71A73336A83425144B5E9A4AB024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502680   (825150) от 16.10.2021
-
-Manora - Brave The Storm (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. System Shutdown
-02. The Traveler
-03. Break Your Fall
-04. Wired To Obey(   Читать дальше...   )Жанр: Symphonic, Power MetalПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250816FFDDA42EA89AC15185B0E6BDC7CC2E0CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502582   (825139) от 16.10.2021
-
-The Agonist - Days Before The World Wept (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remnants In Time
-02. Immaculate Deception
-03. Resurrection
-04. Feast On The Living(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3031366DC49758A27D1EC4297B49B57593173344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502709   (825034) от 16.10.2021
-
-Lords Of Black - Alchemy Of Souls - Part II (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испанские мелодик-прогрессив-металлисты LORDS OF BLACK выпустили новый альбом “Alchemy Of Souls, Part II” 15 октября 2021 года на лейбле Frontiers.
-Альбом последовал за чрезвычайно хорошо принятым “Alchemy Of Souls, Part I” (2020). На нем нашли продолжение многие темы, начатые на предыдущем диске. Во время паузы, вызванной глобальной пандемией, LORDS OF BLACK работали (   Читать дальше...   )01. Prelude (Alchimia Confessio 1458 A.D.)
-02. Maker Of Nothingness
-03. What's Become Of Us
-04. Bound To You(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DE9DD0384921A29FFC738ABD91E99EF09803C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502845   (824957) от 16.10.2021
-
-Gus G. - Quantum Leap (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертый сольный инструментальный альбом греческого гитариста-виртуоза Gus G. (FIREWIND, ex-OZZY OSBOURNE) "Quantum Leap" вышел 8 октября 2021 года на лейбле AFM.
-"Quantum Leap" родился во время всемирной пандемии, которая не дала последнему альбому FIREWIND одного с группой названия в полной мере реализовать свой коммерческий потенциал. Когда (   Читать дальше...   )CD - 1:
-01. Into The Unknown
-02. Exosphere
-03. Quantum Leap(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D704C7A603F6B5C4B618D83CB87B134EA388D899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502665   (824949) от 16.10.2021
-
-Judas Priest - Reflections (2021) 50 Heavy Metal Years of Music [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Us Prey / Call for the Priest [00:06:14]
-02. You Don't Have to Be Old to Be Wise [00:05:03]
-03. Fever [00:05:21]
-04. Eat Me Alive [00:03:35](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F47CA01B4622206724DD8DD65FC599DD204E27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502744   (824938) от 16.10.2021
-
-Autumn's Grief - The Dead Don't Smile (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Oblivion (04:16)
-02. The Dead Don't Smile (03:36)
-03. The Offerings (03:18)
-04. Not Much More To Say (03:49)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A38DF33B97D262D203154C04B501F4DEA22C28
 ```
 
 https://mybot314.ru/tekegram_catalog/

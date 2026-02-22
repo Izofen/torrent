@@ -1,3 +1,87 @@
+###  Публикация: 1787984   (68623) от 28.03.2025
+
+VA - Ibiza Beach Vibes (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abee Sash - Feeling (03:18)
+02. N.E.O.N & Di Mora - Run To Me (03:30)
+03. Sandro Marini - Dingindaya (03:46)
+04. N.E.O.N & Di Mora - Where I Wanna Go (Radio Edit) (02:46)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A0709AE8F20FD0ACA4EE302CDFDE3B930DB741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788235   (68563) от 29.03.2025
+
+VA - The Sound of 2025, Chapter 3: London (Day Mix) (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jake Crooker - Heye (Intro Mix - Mixed) (06:55)
+02. UNWA - Nightfall (Original Mix - Mixed) (05:59)
+03. Martiln & Emedi - Saturate (Tom Sommerson Remix - Mixed) (03:44)
+04. Sputyan - Search for Happiness (Original Mix - Mixed) (04:38)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B89D8B19E33DCD02D601393AFFCE2B174B4FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788562   (68479) от 31.03.2025
+
+VA - Interplay Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaWTone – Tropical DreamЖанр: Progressive House, Melodic House & TechnoПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD34D57AAB75464D8599ECB9803BBCFB7F85E311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789465   (68317) от 04.04.2025
 
 VA - DJ MIX (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -658,93 +742,6 @@ VA - Kings of Ibiza 2025 (Real Deep Touch Downs) (2025) [MP3|320 Kbps] <House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCAF04FC58E94420EEE45530E1C787184BBB9970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799196   (66516) от 26.05.2025
-
-VA - Takeover IBIZA 2025 (The Deep-House Files) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup & Kaia Mainz - Dreamers (daZZla Deep Remix) (06:14)
-02. Living Room - Fisheye (Pearldiver Deep Edit) (03:29)
-03. Calmabohain - Never Forget (03:25)
-04. Mia Lemar - Squire Of Desire (HerbLF Close To Dub Mix) (06:34)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5587E455E80CD7194B7A4B0F031C264054A105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799348   (66485) от 27.05.2025
-
-VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. V-Sta - Highend Fashion (Original Mix) [5:20]
-02. Filizola - Get Me (Original Mix) [5:47]
-03. Goodman & T-Mark - Fading Lights (Original Mix) [4:31]
-04. Mike D' Jais - We Touch The Sky (Original Mix) [3:09](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731986B96C9D924B930AA865E7DFBD07BF505EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799693   (66402) от 29.05.2025
-
-VA - Best Dance Music Summer 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jose Correa - Happy Cosmonaut (03:13)
-02. Dżeju - Breaking Grounds (04:21)
-03. SAMMY & LESEN - Moonlight (Radio Edit) (01:58)
-04. Lost House Rhythms & Falcos Deejay - A Sad Story (03:21)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B111367A30EA5A5A8FFB5C898E6B9E9BEC82E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

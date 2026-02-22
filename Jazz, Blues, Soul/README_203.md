@@ -1,3 +1,90 @@
+###  Публикация: 1131604   (707292) от 06.05.2017
+
+Monica Chapman - Small World (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Shine On Your Shoes (Feat. Kevin Turcotte, Reg Schwager & Mike Murely) (3:07)
+02. Goldfinger (Feat. Mike Murley, Kevin Turcotte & Reg Schwager) (3:14)
+03. Piel Canela (Feat. Mike Murley, Kevin Turcotte & Reg Schwager) (3:23)
+04. Small World (5:31)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8872E258DE13326C4D6ED136C893AE13ECE0DD08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533254   (707174) от 23.02.2022
+
+Fernando Rusconi Hammond Organ Trio - Lost in Time (2010) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bajo Una Supersticion (05:03)
+ 02. Joven Y Verde (05:18)
+ 03. Lost in Time (05:48)
+ 04. Ba-Lue Bolivar Ba-Lues Are (03:27)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F928FCBACC6D7160D565FB41DED5001ADC236CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131716   (707156) от 06.05.2017
+
+Chris Camozzi - Windows Of My Soul (1996) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Wes Young Man 4:04
+02. With Every Beat Of My Heart 4:53
+03. Sunday In Marin 4:37
+04. The Dreamers 4:27(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A312ABA2E2D5CAE995873B84FF8156FAABBE80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131567   (707141) от 06.05.2017
 
 Miles Davis - Live In Stockholm (1960) 2001, Jazz & Traz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -658,93 +745,6 @@ Fredrik Kronkvist - Altitude (2003) Sittel Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33E89B45A52192973D34829494D9809B4EBFB257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287248   (705527) от 06.03.2019
-
-Bernt Rosengren & Claes-Goran Fagerstedt - Jazz Club 57 (1957 - 1962) 2000, Dragon Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Remember April [3:56]
-02. Willow Weep for Me [2:39]
-03. Sputnik [6:07]
-04. Well, You Needn't [5:37](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469456C2F01ED6D19DCA6F841FD415FFC47D0722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287246   (705526) от 06.03.2019
-
-Jimmy Smith - Cherokee (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is This Thing Called Love [7:03]
-02. I'm in the Mood for Love [6:25]
-03. Things Ain't What They Used to Be [5:50]
-04. On the Sunny Side of the Street [5:13](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871683EC9459CAC1A990921228308F548310E048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287251   (705525) от 06.03.2019
-
-Rolf Billberg - Rare Danish Recordings by a Swedish Jazz Legend (1957 - 1966) 2005, Storyville [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Believe That You're in Love with Me [5:59]
-02. Moonlight in Vermont [3:12]
-03. I'm Building Up for a Nervous Breakdown [4:22]
-04. El Domingo [4:35](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233E62498878A92C6111724BBCCC559A8737A055
 ```
 
 https://mybot314.ru/tekegram_catalog/

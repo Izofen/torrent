@@ -1,3 +1,119 @@
+###  Публикация: 1012666   (778355) от 02.05.2016
+
+VA - Now That's What I Call Fitness (2016) [MP3|256 кб/с] <Pop, Club, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778355.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Zara Larsson -  Lush Life  3:19
+02. Mike Posner -  In Ibiza (SeeB Remix)  3:14
+03. Tinie Tempah -  Not Letting Go (feat. Jess Glynne)  3:48(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 03:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCB20DB6FC62F722A8C4FC4B9CCD5E802120356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012821   (778343) от 02.05.2016
+
+Engelbert & Tom Jones - Back To Back: The Best Of Engelbert & Tom Jones (1989) Recordings 1965 - 1969 [APE|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Engelbert Humperdinck - Release Me
+02. Engelbert Humperdinck - There Goes My Everything
+03. Engelbert Humperdinck - The Last Waltz
+04. Engelbert Humperdinck - Am I That Easy To Forget(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA23A158587D4A349E26DE59FBA3DE609AFBAC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012922   (778314) от 02.05.2016
+
+VA - Ultimate - Dance (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778314.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Пpодолжительность: 01:07:29
+
+1. Calvin Harris - Blame (feat John Newman) (3:31)(   Читать дальше...   )Жанр: PopПродолжительность: 04:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9819E7518A6D597C4D7A88D889BDAC585364AA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012678   (778305) от 02.05.2016
+
+Barry White - A Collection Of Great Songs (uy) Unofficial Release [APE|Lossless|image + .cue] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let The Music Play
+02. I'm Gonna Love You Just A Little More, Baby
+03. You're The First, The Last, My Everything
+04. Can't Get Enough Of Your Love, Baby(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 01:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06ECB26A4B257DD4E8373BE10E43B1907428C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210956   (778271) от 05.03.2018
 
 Armenian Navy Band - New Apricot (1999) İmaj [MP3|192 Kbps] <Folk, World, Country>
@@ -629,122 +745,6 @@ VA - Disco 80's: Special Edition (2018) [FLAC|Lossless|image + .cue] <Italo-Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73BCFDEB34E22C31939B8F9640E7AED3F0E7E197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013313   (777631) от 04.05.2016
-
-Модель поведения - Кому что (2016) [MP3|320 кб/с] <Synthpop, Indie Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В этом сезоне
-02. Кости (Album Version)
-03. Шторм
-04. Рыбы(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31C832EDD2BABF340576023089027A3326BB19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211324   (777565) от 07.03.2018
-
-Kállay Saunders - Grind (2018) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockstar (04:00)
-02. Hunger (03:28)
-03. I Don't Really Care (03:16)
-04. Why Can't (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD28C25C0A64B50A37DB1F00EA646403D883F3BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211543   (777270) от 08.03.2018
-
-Girls Aloud - Sound Of The Underground (2003) Polydor [MP3|320 Kbps] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777270.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин (   Читать дальше...   )01 Sound Of The Underground 3:41
-02 No Good Advice 3:48
-03 Some Kind Of Miracle 3:09
-04 All I Need (All I Don't) 3:40(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4239AFB788C344C715F59068ED1FDD2B19CA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211376   (777268) от 08.03.2018
-
-VA - Hot Parade Dance Winter (2018) [MP3|320 Kbps] <Dance, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777268.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ofenbach & Nick Waterhouse - Katchi (Ofenbach Vs. Nick Waterhouse)
-02. Betta Lemme - bambola
-03. Lost Frequencies & Zonderling - Crazy(   Читать дальше...   )Жанр: Dance, Pop, Euro HouseПродолжительность: 2:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276D39E91EF550AA1FD450FD4BE075764CF48138
 ```
 
 https://mybot314.ru/tekegram_catalog/

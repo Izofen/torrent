@@ -1,3 +1,177 @@
+###  Публикация: 1162379   (597751) от 03.05.2022
+
+Pat Boone · Пэт Бун - April Love · Любовь В Апреле (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовные Письма На Песке
+02. Звездная Пыль
+03. Они Не Могут Взять Это У Меня
+04. Бернадина(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422090CFC33B88B77F7BAE68016AA78C0083C5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039176   (597630) от 31.07.2016
+
+Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image|Vinyl-Rip]<Album Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Little Thing (3:45)
+ 02. Don't Let Go (3:02)
+ 03. Lift Me Up (3:38)
+ 04. Nobody Home (3:54)(   Читать дальше...   )Жанр: Album RockПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B40376CB55FF08130DE88DC89A60AF3D1DFBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171052   (597590) от 03.05.2022
+
+VA - XXXL Европейский 3 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modjo - Lady (Hear Me Tonight)
+02. Spiller - Groovejet (If This Ain't Love) (Radio Edit)
+03. Billie Piper - Day & Night
+04. Camilla Brinck - Bye Bye forever(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B0C49B3A92AD36814265E7525C38ED20D46478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162073   (597588) от 03.05.2022
+
+Argo/ Арго - Discophonia/Дискофония (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597588.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A1
+A2 A2
+A3 A3
+A4 A4(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5137EDBBB84445E7956DAAAABB28F35A3E8041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172599   (597582) от 03.05.2022
+
+VA - Heavenly Bodies: Original Motion Picture Soundtrack (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock, Soft Rock, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597582.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bonnie Pointer - The Best In Me
+A2 Sparks - Breaking Out Of Prison
+A3 The Tubes - Out Of Control
+A4 Cheryl Lynn - At Last You`re Mine(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, SoundtrackПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314976   (597581) от 03.05.2022
+
+Middle Of The Road - It's the Middle Of The Road (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Yellow Boomerang
+02. Universal Man
+03. See The Sky(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CAF7AAD55B9C0712280BAD210322E49762FAB7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039325   (597369) от 31.07.2016
 
 Uriah Heep - Innocent Victim (1977) Reissue, 1978, Bronze [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
@@ -569,180 +743,6 @@ Brian Flanagan - Where Dreams Are Made (2017) [DTS 5.1 CD-DA| 44.1/16|image+.cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3502D664B7CA4D9D7BD5CB35551DEEBCE7D65E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 808245   (590099) от 27.07.2014
-
-Bad Company - Rough Diamonds (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electricland (5:28)
-02. Untie The Knot (4:10)
-03. Nuthin' On The TV (3:51)
-04. Painted Face (3:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2A661789B5C4A58D10283D083063A97D31409A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551487   (589714) от 16.05.2022
-
-VA - Белый Теплоход - Золотые шлягеры 70-х (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Здравствуй Песня - Синяя песня
-02. Синяя Птица - Белый теплоход
-03. Пламя - На два дня(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F522A15013992F2B2A0DA733DB978CFAFA2D4E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551641   (589389) от 17.05.2022
-
-Billy Talent - Studio Albums (7 releases) (1999 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Billy Talent — канадская рок-группа. Была сформирована под названием Pezz в Онтарио в 1993 году. Состав группы: Бенджамин Ковалевич, Иэн Ди’Сэй, Джонатан Гэллант и Аарон Соловонюк.1999 - Watoosh! (as Pezz)
-2003 - Billy Talent
-2009 - Billy Talent II
-2009 - Billy Talent IIIЖанр: Punk RockПродолжительность: 05:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEB64DDC9870C87808846C58D77D278B15B4AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809224   (588313) от 31.07.2014
-
-Electric Light Orchestra - Out Of The Blue (1977) 2LP  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588313.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1. Standin' In The Rain (4:21)
-C2. Big Wheels (5:08)
-C3. Summer And Lightning (4:15)
-C4. Mr. Blue Sky (5:05)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C2844022BD79A6C25A115CF23B4C1369958FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039395   (587126) от 04.08.2016
-
-Queen - A Night At The Opera (1975) [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Death On Two Legs (Dedicated To ...)
-02 Lazing On A Sunday Afternoon
-03 I'm In Love With My Car
-04 You're My Best Friend(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6E1BDAD904966592D6FADF6FD4377FCDEF0653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040565   (586250) от 05.08.2016
-
-The Velvet Underground - The Velvet Underground & Nico (1967) 45th Anniversary Remaster, 2013 [DTS-HD MA, LPCM, Dolby TrueHD 2.0|192/24|Blu-ray] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586250.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Velvet Underground & Nico — дебютный альбом американской группы The Velvet Underground при участии певицы Нико; один из самых значимых альбомов в истории рок-музыки, оказавший колоссальное влияние на её последующее развитие (особенно на альтернативный рок). Записывался в США в трёх различных студиях на протяжении 1966 года в течение мультимедиашоу Энди Уорхола (   Читать дальше...   )01. Sunday Morning
-02. I'm Waiting For The Man
-03. Femme Fatale
-04. Venus In Furs(   Читать дальше...   )Жанр: Psychedelic Rock, Garage Rock, Folk Rock, Experimental, Art RockПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA43AA5537EABA5038069FCDCC3E9587B687B03
 ```
 
 https://mybot314.ru/tekegram_catalog/

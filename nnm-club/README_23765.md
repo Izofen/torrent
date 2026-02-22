@@ -1,25 +1,25 @@
-###  Публикация: 1741146   (105690) от 05.08.2024
+###  Публикация: 1742698   (105517) от 13.08.2024
 
-John Haydock - Paradise Drive (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Nicole Marxen - Thorns (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, Industrial>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105690.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paradise Drive (4:36)
-02. Somewhere East of Eden (5:40)
-03. Land Beyond Black and White (4:30)
-04. Everybody's Valentine (Alternate Versionn) (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:32
+01. Path of Fire [00:03:36]
+02. Blood of Mine [00:04:32]
+03. Thorns [00:04:09]
+04. Dark Water [00:01:12](   Читать дальше...   )Жанр: Darkwave, IndustrialПродолжительность: 00:35:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85CFB0A8F0776429D7E52DF6B6AF3E4B2319C123
+magnet:?xt=urn:btih:529816E77F71B7E582126415A9EA53C9FAD694D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,26 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741236   (105689) от 05.08.2024
+###  Публикация: 1742879   (105516) от 13.08.2024
 
-Лаймен Фрэнк Баум | Волшебник из страны Оз (2024) [MP3, Александр Аравушкин]
+Waynestock - Family Friendly (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105689.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Страна Оз, Золотое наследие (Эксмо).
-Лаймен Фрэнк Баум (1856–1919) – американский журналист, драматург, автор детских рассказов. Хотя Баум написал более семи десятков детских книг, его известность базируется в основном на книге о «Волшебнике...» и других историях о стране Оз, во всех из которых особое значение придается таким американским добродетелям, (   Читать дальше...   )Жанр: Зарубежная литература, классика, сказкаИздательство: ЭксмоПродолжительность: 05:07:09
+01. Family Disco Yeah! (feat. Carucha Podestá) (3:20)
+02. Retardado (3:08)
+03. Drama Queen (3:52)
+04. Una Mentira Que Actuamos Todos (3:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B70A890CF5019E4B67C03D84B00D071E7BDBBF24
+magnet:?xt=urn:btih:2244CC12131473D6244AA8101B4E5889D1A17D81
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741225   (105688) от 05.08.2024
+###  Публикация: 1742759   (105515) от 13.08.2024
 
-Эд Макбейн | Калипсо (2024) [PDF]
+Black Valentine - Heavy Hearts (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105688.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На территории, относящейся к юрисдикции 87-го участка, кто-то убил певца калипсо, ранил его менеджера, а через несколько часов застрелил проститутку одним и тем же оружием. Детективы Карелла и Мейер пытаются выяснить, кто убийца, а тем временем убийства продолжаются.Жанр: ДетективПеревод: Е.Р. СоваИздательство: СамиздатФормат: PDFКачество: Обработанный скан
+01. Blessing In Disguise (4:49)
+02. Unrequited (Me This Whole Time) (3:11)
+03. Don't Need Nobody (4:54)
+04. Crickets (How Can I Get You To Care) (3:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8ED43991F50E782F30E7BD98181F91FC8EBAE45D
+magnet:?xt=urn:btih:3802B902D69E6346E7B90EA956F5F3C5AF2E5048
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,26 +85,165 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741229   (105687) от 05.08.2024
+###  Публикация: 1742859   (105514) от 13.08.2024
 
-Журнал | Профиль №25-26 (232) (июль 2024) [PDF]
+Вадим Бурлак | Золотые тельцы Иеровоама (2005) [MP3, Виктор Зозулин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Романтика приключений и путешествий.
+Более 130 экспедиций совершил по всему миру писатель и путешественник Вадим Бурлак. Поэтому кому, как не ему, подарить нам, оседлым жителям мегаполисов, свои впечатления от необыкновенных путешествий. Писатель слой за слоем снимает для нас пласты веков, не утверждая и не навязывая свое мнение, но, предлагая нам самим (   Читать дальше...   )Жанр: Русская литература, приключения, повестьИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 03:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D4E05B0AD27B6E1B81692352785EC9AD49D48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742707   (105513) от 13.08.2024
+
+Andre Obin (André Obin) - Armored King (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, Darkwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armored King [00:02:48]
+02. Testament [00:03:32]
+03. Refuse to Surrender [00:04:53]
+04. The Tower [00:03:36](   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB47C0AD817754566A3008B80F2797E85B4F1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742908   (105512) от 13.08.2024
+
+Зверь внутри / The Beast Within (2024) WEB-DLRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105512.jpg" />
+</div>
+
+
+###  Подробнее
+
+10-летняя Уиллоу и ее родители живут отшельниками в диких лесах Англии. Серия странных событий заставляет девочку задуматься о том, почему же все это время мама с папой избегали внешнего мира. Однажды она решает проследить за родителями, отправившись вслед за ними в глубину леса. Так героиня узнает страшную тайну своего отца, превращающегося в ужасного монстра. А (   Читать дальше...   )Производство: Великобритания / Future Artists Entertainment, Paradox House, Filmology FinanceЖанр: ужасыРежиссер: Ксандер ФарреллАктеры: Кит Харингтон, Эшли Каммингс, Джеймс Космо, Кэолинн Спринголл, Ian Giles , Адам Бейзил, Мартина МакКлементсПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:08Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742886   (105511) от 13.08.2024
+
+Lacey Sturm(ex Flyleaf) - Kenotic Metanoia (2024) Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (My Heartbeat) (02:18)
+ 02 - State of Me (03:14)
+ 03 - Are You Listening (04:08)
+ 04 - The Decree (04:15)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F495E0A6EF5E436BD3ED32F7EB65D77F83FDAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742801   (105510) от 13.08.2024
+
+Eric De Vries - My Battle (2024) [MP3|~245 Kbps (V0)] <Industrial, Rhythmic Noise, Techno-Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Maximum Chemical Dose [00:07:14]
+02 - Du Du Du [00:07:10]
+03 - Seven Tools [00:05:50]
+04 - I Kill My Endboss [00:09:19](   Читать дальше...   )Жанр: Industrial, Rhythmic Noise, Techno-IndustrialПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940010C30F31FB36C453DE7FD166DAAE51522D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742746   (105509) от 13.08.2024
+
+Журнал | Наша история №8 (62) (август 2024) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105687.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
+Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20EAF7E0E7A3BA356F3783532F58A889D1DCA5D9
+magnet:?xt=urn:btih:BAB42191A0DD6134CA98B505851B177E110A2F13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,57 +251,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741265   (105686) от 05.08.2024
+###  Публикация: 1742763   (105508) от 13.08.2024
 
-The Suspenders - Funkypedia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't stop (let's go!) (2:47)
-02. Funky Revolution (2:18)
-03. Get Down and Boogie (3:59)
-04. Get Down With The Soul We Jam (3:06)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB34076EE5BCFB50A2757A56EFD594D435D2B79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741257   (105685) от 05.08.2024
-
-VA - Ibiza Tranquil Beats: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+VA - Nahawand: Best of Emotional Trance (2024) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105685.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ian Otta - Green River (4:05)
-02. Beamy - Escape (4:48)
-03. Ljay - A Common Point (3:43)
-04. Gian Delly - Easy Ride (3:46)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:33
+01. Ash K & Junior - The Sound Of Hope (Extended Mix) [8:05]
+02. W!SS with Ash K & Junior - Lonely Path (SounEmot Remix) [8:28]
+03. Iberian - And The Beginning Is Over (DreamLife Remix) [8:04]
+04. DreamLife & Grande Piano - Nemezis (Original Mix) [7:18](   Читать дальше...   )Жанр: TranceПродолжительность: 01:45:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EDBDC12AD5954443316CEED2885347D9D65976F
+magnet:?xt=urn:btih:6FA9FC0264EA81100013B3682BB4EB932379BF9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -165,28 +280,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741110   (105684) от 05.08.2024
+###  Публикация: 1742761   (105507) от 13.08.2024
 
-A-Mase - Summer Holidays (2024) [MP3|320 Kbps] <Deep House, Progressive House>
+My Design Immortal - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105684.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A-Mase & Natune - Stay! (Original Mix) (6:10)
-02. A-Mase & Ladynsax - Lily Was Here (Reload Mix) (5:40)
-03. A-Mase & Syntheticsax - Son Tra (Original Mix) (4:28)
-04. A-Mase & Natune - In Love (Original Mix) (6:18)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:57:32
+01. A Tale of Resurgence (4:14)
+02. Truth Unveiled (3:44)
+03. Silent Ruins (3:06)
+04. Taste of Bliss (3:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58200CD7E8F04728D7DAF0D1C101466CAA109F48
+magnet:?xt=urn:btih:6E36949D2C7EC0D6ACE6932755DD991CCAB67F61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,57 +309,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741157   (105683) от 05.08.2024
+###  Публикация: 1742771   (105506) от 13.08.2024
 
-Helloween - Keeper of the Seven Keys, Pt. 1 (1987) Remaster 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Initiation (2024 Remaster) [1:22]
-02 - I'm Alive (2024 Remaster) [3:23]
-03 - A Little Time (2024 Remaster) [4:01]
-04 - Twilight of the Gods (2024 Remaster) [4:31](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, MetalПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCC057A3CF13F025550DFCDDB6063DDFF163BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741080   (105682) от 05.08.2024
-
-VA - EDM Deejay Compilation 2024 (Summer Edition) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+VA - Essential Selection Ibiza 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105682.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. JLUIS & Teknova - Last Dance (Extended Mix) [3:15]
-02. Turbotronic - Urachacha (Extended Mix) [4:08]
-03. Tektronic - Take Me (Extended Mix) [3:53]
-04. Dani Corbalan - Promise Me (Extended Mix) [3:31](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:05:04
+01. Steve Levi, TuraniQa & Airsand - Love Emotion (Extended Mix) [6:40]
+02. RoelBeat & Anza - Aciliando (Extended Mix) [5:51]
+03. Sedat & Ertan Koculu - Summer Goes (Extended Mix) [6:13]
+04. Andrey Exx & TuraniQa - Touch Me (Hiwater Remix) [5:17](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:49:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21BB705A5B124A4756F327D2A2053CE83EC077D5
+magnet:?xt=urn:btih:AB6B5B7CA0143D00B2D9F308E4513EA3EC9491A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,28 +338,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741160   (105681) от 05.08.2024
+###  Публикация: 1742878   (105505) от 13.08.2024
 
-Helloween - Keeper of the Seven Keys, Pt. 2 (1988) Remaster 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Metal>
+Вадим Бурлак | Рыцари мадам Авантюры (2005) [MP3, Вадим Бурлак]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105681.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Invitation (2024 Remaster) [1:07]
-02 - Eagle Fly Free (2024 Remaster) [5:11]
-03 - You Always Walk Alone (2024 Remaster) [5:11]
-04 - Rise and Fall (2024 Remaster) [4:23](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, MetalПродолжительность: 00:54:56
+Серия/Цикл: Романтика приключений и путешествий.
+Более 130 экспедиций совершил по всему миру писатель и путешественник Вадим Бурлак. Поэтому кому, как не ему, подарить нам, оседлым жителям мегаполисов, свои впечатления от необыкновенных путешествий. Легенды, мифы, мистические случаи в фантастических интерьерах загадочной Амазонии – писатель слой за слоем снимает (   Читать дальше...   )Жанр: Русская литература, приключенияИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 06:52:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8363DFEDFC08B59C6776302A3EF7F4F5C682A201
+magnet:?xt=urn:btih:3A7A6D40B7B6BB5AFF67480BE3C31137E4A7601C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,25 +365,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741109   (105680) от 05.08.2024
+###  Публикация: 1742835   (105504) от 13.08.2024
 
-Журнал | Живу с диабетом №7 (67) (июль 2024) [PDF]
+Battle Lost - Into The Realms (2024) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Realms (02:34)
+ 02. Ascension's Call (04:40)
+ 03. Last Warrior's Oath (04:01)
+ 04. Fire In The Heart (04:25)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB4469339F5703D1AB4308C7957AAB262FEF4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742766   (105503) от 13.08.2024
+
+VA - Anjunabeats pres. Summer House 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progressive House, Deep House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. gardenstate & Bien & anamē (SE) - The Best Part (Extended Mix) [6:02]
+02. Above & Beyond feat. Alex Vargas - Blue Sky Action (EDX's Indian Summer Extended Mix) [5:10]
+03. Tinlicker feat. Thomas Oliver - Need You (Extended Mix) [6:58]
+04. Dirty South feat. Anima! - I Swear (Dirty South Extended Mix) [7:26](   Читать дальше...   )Жанр: Progressive House, Deep House, Melodic House & TechnoПродолжительность: 03:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9852B4B27627E8C19F71AF7F2C864AC68447391A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742741   (105502) от 13.08.2024
+
+Виктория Шорикова | Огненный разум (2024) [MP3, Николай Прокофьев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающий детективный рассказ, где разворачивается напряженная борьба между служителем Фемиды и изворотливым преступником… Или не преступником? Тогда кто в действительности совершил преступление? И как понять, что является правдой, а что лишь частью хитроумного плана? Дело особенно усложняется, когда речь заходит о помраченном болезнью сознании…Жанр: Интеллектуальный детективИздательство: ЛитРес: чтецПродолжительность: 02:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E26DDC2A4184A4D5FB9458FCA69F2C6B16718AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742770   (105501) от 13.08.2024
+
+Журнал | Дачный сезон №7 (июль 2024) [PDF]
 
 >>Журналы
->>Другие журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105680.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Живу с диабетом» - уникальное издание, посвященное сахарному диабету. Это одно из наиболее распространенных и серьезных заболеваний эндокринной системы человека, требующее повышенного внимания больного к своему здоровью. Консультанты издания готовы ответить на самые сложные вопросы, связанные с этой проблемой, а также рассказать о самых передовых методиках (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаИздательство: ООО Бауэр МедиаФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7C71D0EDCC8D312B00AF9D5EEB0A712F090FE86
+magnet:?xt=urn:btih:449D59E05B65E6D74CBD9FC70523597F4F615106
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,28 +475,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741138   (105679) от 05.08.2024
+###  Публикация: 1742718   (105500) от 13.08.2024
 
-Ben Arnold - Simplify (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+keldin - There is no future (Будущего нет) (2024) [MP3|320 Kbps] <Industrial>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Electronic
+>>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105679.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Depend On Love (2:48)
-02. Simplify (3:47)
-03. Slow Learner (4:09)
-04. Baby, Let The Tears Roll Down (3:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:17
+01 - Машина [00:02:55]
+02 - Сталь [00:03:10]
+03 - Технобитва [00:03:44]
+04 - Техноконструктор [00:03:04](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:17:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A80C16DF4F5137BAD07CA89B0C6DD70C7BF65095
+magnet:?xt=urn:btih:0FC236E884511CC5997C28F657CFA148CA5A90E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,28 +504,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741266   (105678) от 05.08.2024
+###  Публикация: 1742716   (105499) от 13.08.2024
 
-Tibor Burai - War horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+S.I.N.A - Alte Liebe... (2024) [MP3|~245 Kbps (V0)] <EBM, Industrial, Female Vocal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nicht Ich [00:04:29]
+2. Little Girl [00:04:36]
+3. Gefühlschaos [00:04:37]
+4. Bauchgefühl [00:03:39](   Читать дальше...   )Жанр: EBM, Industrial, Female VocalПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB76004B41DFB419DF3910CDD926E8C0FC6E94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742702   (105498) от 13.08.2024
+
+moiii - moiii (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial, Experimental>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105678.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Under the sea (2:49)
-02. Moving time (3:40)
-03. On the way (3:56)
-04. Yes or no (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:24
+01. Tangled Chords [00:04:18]
+02. Turtle Legs [00:04:16]
+03. Shhhhhhhhhhhhh [00:05:01]
+04. You Won't Be Alive To Feel It [00:04:39](   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:30:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70D02EF90E30B8E97541271D779E8F6F61BBF5F4
+magnet:?xt=urn:btih:9E2FB37BECF176FBB43ABF26C08B2EDD0CB6A593
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,313 +562,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741150   (105677) от 05.08.2024
+###  Публикация: 1742898   (105497) от 13.08.2024
 
-Thunder Rising - Thunder Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far away from love (4:06)
-02. Do what I do (4:08)
-03. Thunder rising (5:14)
-04. Keep walking (5:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C33612B669692BAE75011372005DAF396FB089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741256   (105676) от 05.08.2024
-
-Michael Wolff - Memoir (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left Out (6:57)
-02. Afternoon (7:10)
-03. Zawinul (5:44)
-04. Leland (7:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8807D61B06C493CE027355F8871DE17D85BF4CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741252   (105675) от 05.08.2024
-
-The Sofia Goodman Group - Receptive (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trust (5:28)
-02. Allow (4:48)
-03. Channel (5:27)
-04. The Space Within (4:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB0677E2CD4C987C04D48037AA4E4EE58090BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741143   (105674) от 05.08.2024
-
-Jim Jackson - Alsetius Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narcissism and Sanctimony Take a Stroll (2:49)
-02. Find You (4:41)
-03. Existential Migrant Blues (4:02)
-04. Cobalt Blue Las Vegas (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8F51087D2DEC0AB026CA410EA51C72F10A7202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741269   (105673) от 05.08.2024
-
-Tony Grey - Infinity Glitch (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreaming At A Train Station (2:54)
-02. Infinity Glitch (5:27)
-03. Elastic Man (6:27)
-04. Life As A Child (6:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BFB9082A460CF914C00D76C5E0AD3B91023713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741132   (105672) от 05.08.2024
-
-Dirt Road Band - Righteous (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Never Got Over) Losing You (3:51)
-02. What's Going Down (3:54)
-03. Don't Count for Nothing (5:29)
-04. Been So Long (5:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3BC3F4AD80680A24BA926D2F82C4FDB4629112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741231   (105671) от 05.08.2024
-
-Лаймен Фрэнк Баум | Волшебник из Страны Оз (Книга 12). Железный Дровосек из Страны Оз (2011) [MP3, Геннадий Храпунков и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театральный фонограф.
-Лаймен Фрэнк Баум (1856–1919) – американский журналист, драматург, автор детских рассказов. Хотя Баум написал более семи десятков детских книг, его известность базируется в основном на книге о «Волшебнике...» и других историях о стране Оз, во всех из которых особое значение придается таким американским добродетелям, как практичность, (   Читать дальше...   )Жанр: Зарубежная литература, классика, сказкаПеревод: Ирина ВоскресенскаяИздательство: ООО «АрМир»Продолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132D2AC93316281150969B4D88AECA4BFF042E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741139   (105670) от 05.08.2024
-
-Cache Creek - A National Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Easy (4:52)
-02. Molotov Woman (4:58)
-03. National Dream (4:43)
-04. The Hunter (3:27)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99709CBE74F1C1D470DFFFDE72FB1E901A868821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741165   (105669) от 05.08.2024
-
-Эд Макбейн | Любовь или деньги (2024) [PDF]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ про расследование отравления детективами из 87-го полицейского участка. С завязкой, где автор предложил сочинить концовку читателям. Один из которых это и сделал.Жанр: ДетективИздательство: СамиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9742AE242E6C0B7911F4E0893334EF42B1C11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741155   (105668) от 06.08.2024
-
-Футбол. Чемпионат Португалии 23-24. 33-тур. Эшторил-Спортинг. (2024) WEBRip [H.264]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый матч Спортинга в статусе чемпиона, а Эшторил только что обеспечил, себе следующий сезон.
-Тренеры: Васко Сибра, Рубен Аморим
-Главный арбитр: Жао Гонсалвес
-Комментатор: Дмитрий СачковТелекомпания: СтартЖанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B06D0037065A12B5FE41E101D7C4AF9659F6C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741338   (105667) от 06.08.2024
-
-Category 7 - Category 7 (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+Hyperion - Seraphical Euphony (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105667.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In Stitches
-02. Land I Used To Love
-03. Apple Of Discord
-04. Exhausted(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:52:04
+01. Remnants Of The Fallen (02:08)
+02. Novus Ordo Seclorum (06:59)
+03. Flagellum Dei (05:07)
+04. Seraphical Euphony (08:20)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:52:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9131E0CB15D563FA40A44BE721C5A40A07DC4552
+magnet:?xt=urn:btih:C0077065CA50CE43D2D87C388E311A5AD011BF77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +591,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741340   (105666) от 06.08.2024
+###  Публикация: 1742738   (105496) от 13.08.2024
 
-Derdian - Studio Albums (8 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+Rahsaan Roland Kirk - The Case Of The 3 Sided Dream In Audio Color (1975) 2004, Atlantic [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conversation [0:59]
+02. Bye Bye Blackbird [2:39]
+03. Horses (Monogram/Republic) [0:19]
+04. High Heel Sneakers [4:49](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8D4385D05F56EEC0E25A1AE5EA22C48D789F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743002   (105495) от 14.08.2024
+
+Deville - 20 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Stoner Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105666.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Derdian - пауэр-метал группа из Италии, Милан, образованная в 1998 году.2005 - New Era Pt. 1
-2007 - New Era Pt. 2: War Of The Gods
-2010 - New Era Pt. 3: The Apocalypse
-2013 - Limbo(   Читать дальше...   )Жанр: Power MetalПродолжительность: 08:41:23
+01. Dust [00:04:35]
+02. The Hand That Feeds [00:02:54]
+03. Lava [00:03:20]
+04. What Remains [00:04:29](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:44:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1A7345F8E979EFC41132885DE591AC37B3645FE
+magnet:?xt=urn:btih:876CD114421EEC619A851241EFB59885FD16BFC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,25 +649,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741437   (105665) от 06.08.2024
+###  Публикация: 1742989   (105494) от 14.08.2024
 
-Дитя солнца (1933) WEBRip [H.264/720p]
+No Love Lost - Bliss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105665.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Герои фильма – труженики-хлопководы, ратующие за развитие хлопководства в Армении, об изменениях в жизни героев после установления советской власти в Армении.Производство: СССР / АрменкиноЖанр: драма, немое киноРежиссер: Патвакан БархударянАктеры: Р. Степанян, К. Гегамян, К. Симонян, Израиль Буниатян, Григор Аветян, Марика Чмшкян, Грачья НерсисянСубтитры: русские (интертитры)Продолжительность: 00:41:23
+01. Keeping Up With The Jones
+02. Believe In Love
+03. Love Song
+04. Heart Strings(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE2300246A3A8B2150EBEC32F31103930F65D7E9
+magnet:?xt=urn:btih:96BFC1FC7D43AAA6088813EAE3D2D0295C1B9E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742994   (105493) от 14.08.2024
+
+VA - Rated in the Mix with Grant Trowbridge (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Oblivion - Momentum Overdrive (Extended Mix) [6:36]
+02. Drumm & Fletch - Hallucinate (Extended Mix) [5:55]
+03. A-Rival - Meridian (Zach Zlov Remix) [7:47]
+04. Solarshift Project - Echoes Athanasia (Extended Mix) [7:38](   Читать дальше...   )Жанр: TranceПродолжительность: 04:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F9B95136554805B1A5A8DACEE19173DAABA630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743019   (105492) от 14.08.2024
+
+Pentagram - Sub-Basement (2001) Remastered, 2024, Heavy Psych Sounds [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, heavy metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodlust [00:02:28]
+02. Buzzsaw [00:02:29]
+03. Drive Me To The Grave [00:04:28]
+04. Sub-Intro [00:03:54](   Читать дальше...   )Жанр: Doom Metal, heavy metalПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3E521D6DA7B650EAC602426E39FF38A6CE8CFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

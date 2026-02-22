@@ -1,3 +1,32 @@
+###  Публикация: 824760   (31716) от 07.01.2025
+
+VA - The Very Best Of Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31716.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rafael Frost - Never Been Hurt Before - Radio Edit
+002. Dart Rayne - Incomplete - Radio Edit
+003. Beat Service - When You Won't Come Home - Radio Edit
+004. Tenishia - Lifetime When Right - Radio Edit(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC14C730011382CE1C0C583BF8BD550C0F07BC4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419422   (31708) от 07.01.2025
 
 VA - Vocal Anthems Amsterdam (2020) [MP3|320 Kbps] <Trance, Vocal-Trance>
@@ -716,35 +745,6 @@ VA - Rated Revisited Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:983B49B3C8CDB3F74C0097F8F4A9680B6B236F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793472   (20386) от 24.04.2025
-
-VA - 12 Years Of Suanda Music (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Message In A Bottle (Extended Mix) [6:20]
-02. Adip Kiyoi - Admire (Extended Mix) [6:32]
-03. Alex M.O.R.P.H. & Roman Messer - Tranquillity (Extended Mix) [7:03]
-04. EpicFail & ILSE - Worth It (When it's You) (Extended Mix) [6:23](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB853991C8D20CCEE52AA810AB69815F0302084
 ```
 
 https://mybot314.ru/tekegram_catalog/

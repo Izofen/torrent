@@ -1,3 +1,29 @@
+###  Публикация: 761106   (897483) от 27.02.2014
+
+Google Nik Software Complete Collection 2013 1.1.1.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Nik Collection — это наиболее полная коллекция плагинов от одного из лучших производителей плагинов для Adobe Photoshop. Complete Collection включает в себя полный набор плагинов для Adobe Photoshop®, Lightroom® and Aperture® including: Dfine® , Viveza® , HDR Efex Pro™, Color Efex Pro™, Silver Efex Pro™and Sharpener Pro™ . С помощью этих плагинов вы сможете (   Читать дальше...   )Язык интерфейса: Русский, English и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63342FD807B214C2A5A57B81476B4F83D440C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493351   (897460) от 02.09.2021
 
 Spotify 1.1.66.580 Portable by JolyAnderson [En/Ru]
@@ -652,32 +678,6 @@ MotionStudios Vasco da Gama 10 HD Pro with Object Packages 10.05 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1CAB3CDD41E00F2D5E254865B6E76DBDE658F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992906   (897197) от 04.03.2016
-
-Vidiot 0.3.15 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой и бесплатный нелинейный видеоредактор. Позволяет обрезать и вырезать кадры из видео, добавить эффекты перехода между клипами, удалить пустые дорожки, вращать изображения, настроить частоту кадров, уровень громкости, непрозрачность и другие параметры. Поддерживает многие популярные медиаформаты: AVI, MOV, MP4, WAV, MP3, JPG, GIF и т.д.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46873F8A47F53083A0961F6CE46D804FE3C8A3E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

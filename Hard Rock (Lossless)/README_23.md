@@ -1,3 +1,32 @@
+###  Публикация: 1106592   (871565) от 20.02.2017
+
+Tony Carey - The Boystown Tapes (1999) [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solitary Man 04:25
+02. A Long Way From Home (Part II) 04:01
+03. Everyting You've Got 04:40
+04. Boystown 04:27(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579E3D336BBD171A7331E9859611DBCDA4CF40B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496472   (871536) от 18.09.2021
 
 George Lynch - Seamless (2021) [FLAC|Lossless|image + .cue] <Instrumental Hard Rock>
@@ -769,32 +798,6 @@ Cитуация с 35 летним разрывом между альбомам�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01803E3E6E13DE60D7AB1C2E078461837907B28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 303847   (863401) от 03.03.2011
-
-Aerosmith - Gold (2005) 2CD [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 02:38:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 576637   (364346) от 17.11.2012
+
+VA - Monster Tunes Autumn Collection (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364346.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:31] 01. Stannis - Sky Drops - Original Mix
+[07:44] 02. James Hannan - Borderline - Original Mix
+[07:44] 03. Ad Brown - Transmission - Original Mix
+[06:47] 04. Oza - Small Planet - Original Mix
+[07:40] 05. INCA - Three Sunrises - Original Mix
+[07:09] 06. Timur Shafiev - Can't Stop - Original Mix
+[07:43] 07. Mark Eteson - Universal Language - Tritonal Club Mix
+[07:43] 08. Corderoy - Mechanical Tears - Club Dub
+[07:06] 09. Cold Blue - Coconut - Original Mix
+[07:30] 10. Reorder - Sunrise - Original Mix(   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D281699D432CB905420D28FE4B054090E9EB9439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576734   (364345) от 17.11.2012
 
 Trolley Snatcha - Subtext (EP) (2012) [MP3|320 кб/с]<Dubstep, Grime>
@@ -700,41 +735,6 @@ Best HD Wallpapers Pack (16.11.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E9FBAF9B07F894D1B326047A10EEE9933102F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576263   (364211) от 17.11.2012
-
-Bobina - Russia Goes Clubbing 219 (14.11.12) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MaDi & Kristofer - Hot Balloon - Silent Shore
-02. Josh Gabriel pres. Winter Kills - Forward Facing (Walsh & McAuley remix) - Different Pieces
-03. Sean Tyas feat. Julie Thompson - What I Am - Tytanium
-04. Mike Saint-Jules feat. J9 - Waited Too Long - Itwt
-05. Peter Santos - Solarstorm (Vitodito remix) - Kill the lights
-06. Oen Bearen - Nusantara - Black hole
-07. Rene Ablaze & Dima Krasnik - Stars - Redux
-08. The Noble Six - For Her (Type 41 remix) - Blue soho
-09. Right Face - Spring - Digital society
-10. Alex Morph with Hannah - When I Close My Eyes (Aly & Fila remix) - Asot(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD5E498F7896A3C4B7D9D39F12ED7B80E044F47
 ```
 
 https://mybot314.ru/tekegram_catalog/

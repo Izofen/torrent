@@ -1,3 +1,32 @@
+###  Публикация: 937359   (490071) от 14.09.2015
+
+Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ultra (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Hartnoll - Where Do You Want to Begin? (01:40)
+02. Marcelo Zarvos - Hawaii (01:29)
+03. Marcelo Zarvos - Rivalry Call (01:17)
+04. Paul Hartnoll - Killing Time (01:08)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A264F9F7B544FB4CE42F3ECA50C6783AC2877486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937275   (489897) от 14.09.2015
 
 Ernesto Cortazar - Memories Of The Fall (2010) [MP3|320 кб/с]<Instrumental, Neoclassical, New age>
@@ -718,35 +747,6 @@ Shantel - Viva Diaspora (2015) [FLAC|Lossless|WEB-DL]<Ethnopop, Balkan Pop, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38C4B03866225D2BA8897F275CEC05C06C6F7429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821005   (483701) от 16.09.2014
-
-M83 - Oblivion (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless] <Leftfield, Modern Classical, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack's Dream (01:23)
-  02. Waking Up (04:09)
-  03. Tech 49 (05:59)
-  04. Starwaves (03:41)(   Читать дальше...   )Жанр: Leftfield, Modern Classical, SoundtrackПродолжительность: 01:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAE96D459D97A55C98194849C41ACCD37846399
 ```
 
 https://mybot314.ru/tekegram_catalog/

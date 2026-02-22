@@ -1,3 +1,171 @@
+###  Публикация: 1073917   (342543) от 17.11.2016
+
+Manfred Mann's Earth Band - Somewhere In Afrika (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342543.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Tribal Statistics (4:16)
+A2. Eyes Of Nostradamus (3:31)
+A3. Third World Service (5:22)
+A4. Demolition Man (3:46)(   Читать дальше...   )Производство: Bronze Records - 205 077Жанр: Progressive RockПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDFA27E225714123D416437C9B764AC46FC405C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257891   (341116) от 14.11.2010
+
+Richard Friedman - Directions: Center [DTS 5.1 CD-Audio from Audio-DVD] (2000) <New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_341116.jpg" />
+</div>
+
+
+###  Подробнее
+
+1  Journey To The CenterЖанр: New Age, RelaxПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419412   (339855) от 28.10.2020
+
+Маркиза - Маркиза (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339855.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 220 Вольт
+A2 Спи, Дитя
+A3 Зря Ты Пришел
+A4 Все Мы Верим(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8C96644EC00ECE51D19B47E1268D09DAF7D075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074195   (337859) от 19.11.2016
+
+Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [WavPack|192/32|tracks|Vinyl-Rip] <Progressive & Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Shine on You Crazy Diamond  11:46
+02. Learning to Fly 5:22
+03. Yet Another Movie & Round and Around 7:10(   Читать дальше...   )Жанр: Progressive & Art RockПродолжительность: 01:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6718A21081EAFCC78388CE02D30DC97CABBBF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179381   (337196) от 05.11.2017
+
+Поет Аида Ведищева (1969, 1974)  [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:56:40 (общая)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B7FD7C0169F91B5DA4FF5384A9B47ECA989B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181277   (335358) от 06.11.2017
+
+Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335358.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Atomic (4:06)
+A2. Some Other Place, Some Other Time  (4:52)
+A3. Star Vision (5:51)
+A4. Run To The Stars (4:39)(   Читать дальше...   )Производство: Rockland Records - RKL 20323Жанр: Space RockПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B5822D464C356CDA712AF27CD41606469F8578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953999   (335158) от 10.11.2015
 
 VA - Добрые колыбельные для сладких снов (3) в исполнении В. Толкуновой, О. Анофриева и И. Суриной (2000) [FLAC 2.0 16/44,1|tracks+.cue (MC-Rip)]<Lullaby>
@@ -573,186 +741,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D83DFD9D94E49714D3753916CAB247CB1FEE1133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181126   (323187) от 07.11.2017
-
-Кар-Мэн - Вокруг Света (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323187.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:02] 01. Чио-Чио-Сан
-[4:20] 02. Эй, ухнем
-[4:59] 03. Дели
-[3:58] 04. Знойный Истамбул(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FA9FF347B4F1AAA4C072672C61DB7060B54E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181362   (323186) от 07.11.2017
-
-Технология - Нажми на кнопку (1991) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Techno-Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Нажми на кнопку
-03. Интро
-04. Всё, что ты хочешь(   Читать дальше...   )Жанр: Techno-PopПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C03E4276109C1644BA065810D1ACE0900D64992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181279   (323180) от 07.11.2017
-
-VA - Super Rock Ballads (1992) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Uriah Heep - Lady In Black
-02. Kingdom Come - What Love Can Be
-03. Deep Purple - Soldier of Fortune(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:11:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63342A13601F279899EF74185BFEEB361ED1B49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181373   (323177) от 07.11.2017
-
-Владимир Кузьмин и гр.Динамик - 1-й Концерт (1982) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323177.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:14] 01. Делай физзарядку (39-й круг)
-[4:14] 02. По-прежнему вдвоём (Капюшон)
-[7:10] 03. Музыканты (В воскресный день)
-[8:32] 04. Тоска(   Читать дальше...   )Жанр: ROCKПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52753032840E59A0DF8D7F55356562BB7F392C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582344   (323006) от 09.10.2022
-
-Rainbow - Ансамбль Rainbow (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323006.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Человек На Серебряной Горе • Man On The Silver Mountain
-A2 Я Все Еще Грустен • Still I'm Sad
-A3 Да Здравствует Рок-Н-Ролл • Long Live Rock'n'Roll
-A4 Всю Ночь • All Night Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA387D8B0DCBC532BCA999543DC9270E9A70FED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580932   (322080) от 28.11.2012
-
-Chris Rea - Road to hell (1989) [FLAC 2.0 96/24 |tracks(VinylRip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Hell (Part I) 04:53
-02. The Road To Hell (Part II) 04:33
-03. You Must Be Evil 04:22
-04. Texas 05:11
-05. Looking For A Rainbow 08:04
-06. Your Warm And Tender Love 04:33
-07. Daytona 05:07
-08. That's What They Always Say 04:28
-09. I Just Wanna Be With You 03:41
-10. Tell Me There's A Heaven 06:01Продолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347B0C39054828C5477118EB37132CD600B5FCD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1565843   (490423) от 25.07.2022
+
+VA - Katermukke Playground XVI (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dirty Doering, Vars -  Find Youth (Original Mix)  (5:38)
+02.  Vincent Marlice -  The Scenery (Original Mix)  (6:53)
+03.  Voices of valley -  Grow (Thodoris Triantafillou In The Club Remix)  (6:41)
+04.  Marius Drescher -  Not Even Close (Original Mix)  (8:06)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34A1452AE7E16D4BD616D77BBB1F822A3BDC2A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158848   (490158) от 17.08.2017
+
+VA - Global Underground: Adapt (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superpitcher - Snow Blind (14:44)
+02. Lusine feat. Sarah McIlwain - Ticking Hands (4:47)
+03. Lake People - Pull Off (4:19)
+04. Fjaak - Spnd Ballett (3:23)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 05:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A2DDA155876A60772B53D0AB0A54A62D426A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055429   (488429) от 22.09.2016
 
 VA - Chilled House (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
@@ -685,64 +743,6 @@ Yotto - Hyperfall (2018) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD2F95A7BB5B1CE4E4A299289A9730930AAE45CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058529   (468828) от 01.10.2016
-
-VA - Ibiza 2016 Closing Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Knight - Yebisah (original mix) [08:23]
-02. Ian Pooley - Cold Wait (Bicep dub) [06:22]
-03. Eats Everything - Monegros (original mix) [07:17]
-04. Dubspeeka - K377 Unfriended (original mix) [08:22](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 08:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF5DB1C056EE66D39BCE9DF79C70696A09DCCE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407119   (468602) от 06.09.2020
-
-VA - Robot Says Y (2020) What Robot Says [FLAC|Lossless|tracks|Vinyl] <Tech House, Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tm Shuffle & Kalle-M - Androidien Maailma (07:22)
- 02. Genning - Life Of Faraway Birds (07:07)
- 03. Dan Goul - Automation (07:30)
- 04. Supply-Demand - What Came Before (07:56)Жанр: Tech House, Techno, ElectroПродолжительность: 00:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF33E280B53D236F283E5BA04380A5FC74887973
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,102 @@
+###  Публикация: 522131   (625044) от 12.07.2012
+
+Blake Aaron - Desire (2007) [FLAC|Lossless]<Smooth, Pop-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bumpin' On The Wes Side
+02. Come On Over
+03. Will I Go 'Round In Circles
+04. Shine
+05. If You Were Mine
+06. In Her Sweet Way
+07. Desire
+08. Forever
+09. There Will Come A Day
+10. Baby Likes The Blues(   Читать дальше...   )Жанр: Smooth, Pop-JazzПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522173   (625031) от 12.07.2012
+
+Blue Knights - Night Talk (2000) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturday Morning
+02. Blue Train
+03. Vegaz Dance
+04. Night Talk
+05. Funky Bill
+06. Miami Groove
+07. Smooth Night
+08. Paris Texas
+09. First Date
+10. Dubai Dance(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035767   (624773) от 18.07.2016
+
+Mount Everest Trio - Waves from Albert Ayler (1977) Unheard Music[APE|Lossless|image + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Spirits [04:27]
+ 02.Ramblin' [05:54]
+ 03.Orinoco [07:06]
+ 04.Bananas Oas [04:14](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD8674E3870E9043F5A9AFF18DF248F73B5F809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035877   (624664) от 18.07.2016
 
 Noora Noor - Soul Deep (2009) [FLAC|Lossless|image + .cue] <Funk, Soul>
@@ -669,93 +768,6 @@ Lucy Woodward - Til They Bang On The Door (2016) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58195005B897FBF7AE4173CF2084147CDBC711E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036173   (622759) от 19.07.2016
-
-Ina Forsman - Ina Forsman (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz, Retro Pop Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanging Loose (3:19)
-02. Pretty Messed Up (3:46)
-03. Bubbly Kisses (5:23)
-04. Farewell (4:01)(   Читать дальше...   )Жанр: Blues, Jazz, Retro Pop RockПродолжительность: 0:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A470F7DFF449AC54BBBB7493DFD30646D4AAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295296   (622508) от 11.04.2019
-
-Nubiyan Twist - Jungle Run (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Afrobeat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell It to Me Slowly (feat. Nick Richards) (5:15)
-02. Jungle Run (feat. Nubiya Brandon) (5:14)
-03. Basa Basa (feat. K.O.G.) (5:59)
-04. Brother (feat. Nubiya Brandon) (5:09)(   Читать дальше...   )Жанр: Jazz, Funk, AfrobeatПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA381AE82F86E4ECE755B7D77DA0CD5EC2960B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910457   (622389) от 20.06.2015
-
-The Pentagon - The Pentagon (1976) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manteca [05:59]
-02. Darn That Dream [05:20]
-03. Una Mas [05:18]
-04. D.B. Blues [04:41](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4211ACC89BB098B930A19C473EFAD42F2CC27CDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

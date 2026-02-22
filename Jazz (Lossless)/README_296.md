@@ -1,32 +1,3 @@
-###  Публикация: 1427441   (183577) от 28.11.2020
-
-Kenny Dorham - Jerome Kern Showboat (1960) 1990, Bainbridge Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Do I Love You? [6:02]
-02. Nobody Else But Me [5:41]
-03. Can't Help Lovin' Dat Man [6:37]
-04. Make Believe [5:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3CD5F322EF879840232504679B109772C0808F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665097   (183336) от 29.09.2023
 
 Asako Toki - Standards (2004) LD&K [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -746,6 +717,35 @@ CD1 - Erroll Garner & Ahmad Jamal:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35BC0652B2989E92140037E08205E79C7101BFC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665891   (180950) от 02.10.2023
+
+Michael Wolff - Bounce (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bounce [4:07]
+02. Chill [3:56]
+03. Caribbean Rain Dance [6:10]
+04. Long Lost [5:08](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC47E32BC1CB569B4595820C3A21F442709D948A
 ```
 
 https://mybot314.ru/tekegram_catalog/

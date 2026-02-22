@@ -1,3 +1,32 @@
+###  Публикация: 1030943   (670324) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 45 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barcode Brothers - Dooh Dooh ( Radio Edit 1999 )
+02. Angie Gold - Eat You Up ( Classic Mix 1995 )
+03. Barbarella - Please, Please Me ( Don't Make Me Blue ) ( 1991 )
+04. Vocal Control - Cheri, Cheri Lady ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E48CF800FB1943E489605A1EFE1A60C98085115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030968   (670322) от 02.07.2016
 
 VA - Русская Дискотека ХХ Века - 16 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
@@ -707,35 +736,6 @@ VA - Танцевальный Музон от Europa Plus (2011)  [MP3|256 kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECDB25E3752D37A20E4BCBAB5C7C04AF8FE2A59D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223922   (667070) от 09.05.2018
-
-VA - Жаркие музыкальные хиты (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667070.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Indira - Делай Меня Любовь
-002. Vitalio - Засыпай
-003. Artemiev - Держи Меня
-004. Оля Краснова - Та Самая Лов(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717206AACE5E3C843E0C24174C0B2AF2901717B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

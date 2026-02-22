@@ -1,3 +1,119 @@
+###  Публикация: 1391960   (769877) от 24.06.2020
+
+Phoebe Bridgers - Punisher (2020) [MP3|320 Kbps] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DVD Menu (01:10)
+ 02. Garden Song (03:40)
+ 03. Kyoto (03:05)
+ 04. Punisher (03:10)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7ABCBAFD87C1210FFD456BA10187579BDAC372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392035   (769847) от 24.06.2020
+
+Linda Jo Rizzo - Magic Moments-My 35th Anniversary (2020) Singles Collection [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Volcano Project feat. Linda Jo Rizzo - More To Love (03:32)
+ 02. Linda Jo Rizzo - Paradise Island Amor (03:08)
+ 03. Linda Jo Rizzo & Ken Laszlo - Different Kind Of Magic (04:30)
+ 04. Linda Jo Rizzo - Policeman (04:06)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D234226F311C8EDDEED58279C5C621F5FE5175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392131   (769845) от 24.06.2020
+
+Carly Rae Jepsen - Dedicated Side B (2020) Japan Exclusive [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Love Isn't Crazy (03:53)
+02. Window (03:18)
+03. Felt This Way (03:37)
+04. Stay Away (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694991712B38887581B2DC18E3B7A0070C7FAF21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016637   (769514) от 15.05.2016
+
+Kygo - Cloud Nine (2016) [MP3|320 кб/с] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (02:09)
+02. Stole The Show (feat. Parson James) (03:43)
+03. Fiction (feat. Tom Odell) (04:05)
+04. Ringing (feat. Kodaline) (03:45)(   Читать дальше...   )Производство: Kygo MusicЖанр: Pop, DanceПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153406205055BF0A5C61379D6D00697C68566B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017050   (769510) от 15.05.2016
 
 Бумбокс - Люди (2016) EP [FLAC|Lossless|image + .cue] <Pop>
@@ -629,122 +745,6 @@ Dalida - Dalida (2018) [MP3|320 Kbps] <Pop, Chanson française>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:150207D40E69B57AFF0C67BC5BF40D97386AAEB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213456   (768121) от 17.03.2018
-
-Laura Pausini - Fatti sentire (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Italian>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Non e detto
-02. Nuevo
-03. La soluzione
-04. E.STA.A.TE(   Читать дальше...   )Жанр: Pop, ItalianПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2765966AB6F163F402F481AB34F9FA1B2F0C4717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213697   (768082) от 17.03.2018
-
-Plazma - Indian Summer (2017) [FLAC|Lossless|tracks + .cue] <Pop, Europop, Synth-pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tame Your Ghosts (04:26)
-02. Angel Of Snow (04:26)
-03. Brilliant Water (03:13)
-04. Mystery (The Power Within) (03:56)(   Читать дальше...   )Жанр: Pop, Europop, Synth-popПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B14B789418AEBCA73934EE7A0E34344A3EF585B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125611   (768052) от 15.04.2017
-
-VA - Germanys Next Topmodel: Best Catwalk Hits 2017  [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars – 24k Magic
-02. Jax Jones – You Don’t Know Me
-03. Alice Merton – No Roots
-04. Alma – Chasing Highs(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D459610DD9AA573A588728833C87D4CE7089F2CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278875   (767790) от 27.01.2019
-
-VA - Hot Parade Dance Winter 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767790.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Bob Sinclar - Electrico Romantico
-02. Matt Simons - We Can Do Better
-03. CELESTAL - Old School Romance (Merk & Kremont Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF69654797D71996D6EBDE8F92CB8432B08C16F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

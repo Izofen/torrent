@@ -1,3 +1,178 @@
+###  Публикация: 1666697   (179068) от 05.10.2023
+
+Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179068.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Chain Gang
+A2 Money Doesn't Count
+A3 Danger Comeback
+A4 Icecold(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FA6A4EB2F2B5EED9F5AE6DAC3534E56D07C001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666711   (179060) от 05.10.2023
+
+Steeler - Undercover Animal (1988) [WavPack|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179060.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 (I'll Be) Hunter Or Hunted
+A2 Undercover Animal
+A3 Shadow In The Redlight
+A4 Hardbreaks(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D5BDD0DA815AC715F26E84E79DD415E55EFE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666668   (179036) от 05.10.2023
+
+Steeler - Rulin' The Earth (1985) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179036.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. The Resolution 1:06
+A2. Rulin' The Earth 4:38
+A3. Shellshock 5:12
+A4. Let The Blood Run Red 5:06(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2ED574EB85A1560D48D08734A701FEA3560729B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666746   (178953) от 05.10.2023
+
+Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scar Symmetry — шведская мелодик дэт-метал группа из Авесты, сформирована в 2004 году.
+Своеобразной «визитной карточкой» группы является очень широкое использование клавишных и синтезаторов вкупе с тяжёлыми гитарами и мощной ритм-секцией.2005 - Symmetric in Design
+2006 - Pitch Black Progress
+2008 - Holographic Universe
+2009 - Dark Matter DimensionsЖанр: Melodic Death/Groove MetalПродолжительность: 06:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB566CF7549519A280FE23102EB2B5BF8698DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666844   (178416) от 06.10.2023
+
+The Riverboat Minstrels - Stereo Minstrel Show (1971) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178416.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Want To Be Happy
+A2 Ole Man River
+A3 The Best Things In Life Are Free
+A4 Roll Away, Clouds(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3514335938754EA527CE7B81CE607123CA7589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666645   (178333) от 06.10.2023
+
+Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178333.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Cold Day In Hell 04:17
+2 Backseat Driver 03:24
+3 No Way Out 05:18
+4 Hot On Your Heels 06:35(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1697AEC700640E6967033856FCEB69F1998CA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428854   (178227) от 04.12.2020
 
 Roxy Music - Manifesto (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Art Rock, New Wave, Pop Rock>
@@ -568,178 +743,6 @@ Seal - (Henry Olusegun Adeola Samuel) - британский певец и ав�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77414652581AC4BA03506BA37F740B9E191C9BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668817   (173246) от 14.10.2023
-
-Eucharist - Studio Albums (3 releases) (1993-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eucharist — шведская метал-группа, основанная в 1989 году. Коллектив значительно повлиял на формирование мелодичного дэт-метала.
-В 1998 году Eucharist распались, но в 2016 году воссоединились и вернулись к концертной деятельности.1993 - A Velvet Creation
-1997 - Mirrorworlds
-2022 - I Am the VoidЖанр: Melodic Death/Black MetalПродолжительность: 02:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58C92B655A0974235EF4E4CA06AA1FAD14BC230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669001   (173223) от 14.10.2023
-
-Noumena - Studio Albums (6 releases) (2002-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Noumena — мелодик-дэт-метал группа из Эхтяри, Финляндия. Образована в 1998 году.2002 - Pride_Fall
-2005 - Absence
-2006 - Anatomy of Life
-2013 - Death Walks with MeЖанр: Melodic Death MetalПродолжительность: 05:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B8130AB524ACE1B3C6914CD77226239A1A1653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668702   (173165) от 14.10.2023
-
-Александр Барыкин - Больше Не Встречу (1986) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Потерянный Рай
-Д. Тухманов – М. ТаничЖанр: Rock, New WaveФормат: FLAC, TracksПродолжительность: 00:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EE7A2312B8522ADCE2EFF8C00475B892F02A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669216   (173020) от 15.10.2023
-
-Bullet - Studio Albums (6 releases) (2006-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bullet - шведская хэви-метал группа, основанная в Векшё в 2001 году2006 - Heading for the Top
-2008 - Bite The Bullet
-2011 - Highway Pirates
-2012 - Full PullЖанр: Heavy Metal/Hard RockПродолжительность: 04:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669173   (172981) от 15.10.2023
-
-VA - Машина Времени / Самоцветы - Песни Из Кинофильма «Душа» / Зеркало И Шут (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172981.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Машина Времени - За Тех, Кто В Море
-(А. Кутиков, А. Макаревич)
-A2 Машина Времени - Путь
-(А. Макаревич)(   Читать дальше...   )Жанр: Rock, PopФормат: FLAC, TracksПродолжительность: 00:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA2192E2F02FFA62F1DCFADE4DF814872045F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669484   (172878) от 16.10.2023
-
-Isengard - Høstmørke (1995) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172878.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Neslepaks
-A2 Landet Og Havet
-A3 I Kamp Med Kvitekrist
-A4 I Ei Gran Borti Nordre Asen(   Читать дальше...   )Жанр: Black Folk MetalПродолжительность: 00:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A7C03D6F8C5E8D7848014A49042F67B3AA0911
 ```
 
 https://mybot314.ru/tekegram_catalog/

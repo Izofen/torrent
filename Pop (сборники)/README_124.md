@@ -1,3 +1,32 @@
+###  Публикация: 1718951   (58273) от 28.04.2024
+
+C.C. Catch - Collection (2024) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58273.jpg" />
+</div>
+
+
+###  Подробнее
+
+В моём детстве, в 80х, творчество C.C. Catch, почему то прошло мимо. А в 90х я уже был ярым металюгой и кроме тяжеляка не замечал ничего. Впервые, осознанно увидел и услышал, уже с появлением инета. Это был клип Strangers By Night. Понравилась сразу и внешне и голос. Певица обладает сильной притягательностью и фишкой в манере исполнения. С тех пор и люблю её клипы (   Читать дальше...   )01. Cause You Are Young
+02. Can Lose My Heart Tonight
+03. You Shot A Hole In My Soul
+04. One Night's Not Enough(   Читать дальше...   )Жанр: DiscoПродолжительность: 03:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF200B305907236A04000DD16ABD6DAE167DD56C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719350   (57853) от 02.05.2024
 
 Ицык Цыпер / Игорь Цыба - Трекография (2022-2024) [MP3|320 Kbps] <Pop>
@@ -713,35 +742,6 @@ VA - Свежий Русский Хит от ALEXnROCK часть 16 (2024) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C116ABA147F56D769EC5D3D007F0C84E7F93308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747732   (44102) от 09.09.2024
-
-VA - compilation part 119 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Pierce - Fog
-02. Black Sabbath - Dying for Love
-03. Michael Oakley - Left Behind
-04. Joy Peters - Winter in My Heart(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 03:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B23CA1F1220F85CCF61779A3978C02A1524DB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

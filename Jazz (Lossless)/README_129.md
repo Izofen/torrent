@@ -1,3 +1,32 @@
+###  Публикация: 1135037   (685226) от 17.05.2017
+
+Duke Ellington - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beautiful Indians - Hiawatha [02:48]
+02. The Beautiful Indians - Minnehaha [03:01]
+03. It Shouldn't Happen to a Dream [03:07]
+04. Diminuendo in Blue [02:52](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F247B0AD15F6D57818B02ECFEAE6C8BFB09FC73E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135039   (685223) от 17.05.2017
 
 Duke Ellington - The Jazz Collector Edition: Historic Recording (1989) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -719,35 +748,6 @@ Vol.1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0071EB0CEC3F26AA20DDB294B0E76F44ECA7AA31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029440   (682601) от 26.06.2016
-
-Art Pepper - Chili Pepper (2001) [FLAC|Lossless|tracks] <Instrumental Jazz, Saxophone Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Count On Rush Street    03:11
-02.  Pooch Mcgooch    02:43
-03.  Brown Gold    02:26
-04.  Holiday Flight    03:11(   Читать дальше...   )Жанр: Instrumental Jazz, Saxophone JazzПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7F96D5C1DBA94415DD68C95F6CC68598269416
 ```
 
 https://mybot314.ru/tekegram_catalog/

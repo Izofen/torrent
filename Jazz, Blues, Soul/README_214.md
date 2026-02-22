@@ -1,3 +1,90 @@
+###  Публикация: 1289677   (682088) от 18.03.2019
+
+Bona Fide - The Soul Movers (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snippet 1
+02. If I Could Ever
+03. What Good Is Your Love
+04. Snippet 2(   Читать дальше...   )Жанр: SoulПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0778CE02BA1611F0F5F55E563CCF1410505F9BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289760   (682084) от 18.03.2019
+
+Curtis Salgado & Alan Hager - Rough Cut (2018) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Not Surrender  4:58
+02. So Near To Nowhere  3:57
+03. One Night Only  2:50
+04. I Want My Dog To Live Longer  2:47(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEFD0364DC11914C821D6CBD0D3EFF37ED0B2FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289764   (681985) от 18.03.2019
+
+Curtis Mayfield - Keep On Keeping On: Curtis Mayfield Studio Albums 1970-1974 (2019) 4 CD, Remastered Box Set [FLAC|Lossless|tracks + .cue] <Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681985.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+1. (Don't Worry) If There's Hell Below We're All Going to Go (07:51)
+2. The Other Side of Town (04:02)
+3. The Makings of You (03:43)Жанр: Soul, Funk |Продолжительность: 02:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FCC498A6C3E9D54696A2FF8C266CDCA71A9318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289754   (681880) от 18.03.2019
 
 Joe Louis Walker, Bruce Katz, Giles Robson - Journeys To The Heart Of The Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues>
@@ -659,93 +746,6 @@ Duke Ellington - The Duke in Washington (1943 - 1969) 1999, Storyville [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:210B95CECCAA97CB1C2BD50FC0D0B07451442FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135462   (679376) от 20.05.2017
-
-Chris Potter, David Virelles, Joe Martin, Marcus Gilmore - The Dreamer Is The Dream (2017) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart in Hand [08:20]
-02. Ilimba [09:53]
-03. The Dreamer Is The Dream [08:19]
-04. Memory And Desire [07:53](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6ABCC508A37E31C7558CCA89ED682B9C006D7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223056   (679369) от 02.05.2018
-
-The Lanny Morgan Quartet - Pacific Standard (1997) Contemporary [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Still of the Night [06:14]
-02. People Will Say We're in Love [07:43]
-03. Stella by Starlight [07:19]
-04. The Song Is You [07:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3D0A8E832B94AFFC04BF35099713A85C82C6C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222956   (679368) от 02.05.2018
-
-Mel Lewis & Friends - Gettin' Together (1957) 1987, Vee Jay [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motif [03:59]
-02. My Buddy [02:35]
-03. Neat Foot [03:03]
-04. The Song Is Ended [02:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DCFC4A31E709017D9AF2E2386ECDD48E090DFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

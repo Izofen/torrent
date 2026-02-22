@@ -1,119 +1,3 @@
-###  Публикация: 1737965   (106424) от 20.07.2024
-
-OneRepublic - Artificial Paradise (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artificial Paradise
-02. Hurt
-03. Sink Or Swim
-04. Last Holiday(   Читать дальше...   )Жанр: Alternative Pop, Pop RockПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1328047DF4BACDCEFD4A798871C2B0452FDC9B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739304   (106080) от 27.07.2024
-
-Crawlers - The Mess We Seem To Make (2024) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meaningless Sex (3:44)
-02. Kiss Me (3:35)
-03. Hit It Again (3:56)
-04. Better If I Just Pretend (2:58)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F879A5F33FBA0765AEED342320BA59D8B9F524A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739726   (105980) от 30.07.2024
-
-Whispering Sons - The Great Calm (2024) [FLAC|Lossless|tracks + .cue] <Post-Punk, Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standstill (3:18)
- 02. Walking, Flying (4:42)
- 03. Cold City (3:19)
- 04. Dragging (3:49)(   Читать дальше...   )Жанр: Post-Punk, Indie-RockПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F01D888A1F494CAC250DBFF55455BC79B2DF5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739900   (105917) от 31.07.2024
-
-James - 2001 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Getting Away With It (All Messed Up) [00:04:10]
-02. Make It Alright [00:04:08]
-03. So Swell (Ambient Version) [00:03:26]
-04. Stand [00:03:33](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5B2EE7C633EA6EE4438937CCAF9E2A112A11F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743591   (105405) от 16.08.2024
 
 Creed - Human Clay (1999) Deluxe Edition, 2024, [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -745,6 +629,136 @@ Adrian von Ziegler - Of the Old World (2024) [FLAC|Lossless|WEB-DL|tracks] <Celt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE56AAFFBA20E239610FB8447A7CFEA1701E40A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458285   (90334) от 23.04.2012
+
+Halestorm - 3 альбома, 2 EP (2009-2012) [FLAC|Lossless]<Alternative Rock/Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Love Bites (So Do I) (3:12)
+02. Rock Show (3:19)
+03. Daughters Of Darkness (3:55)
+04. Here's To Us (2:58)Жанр: Alternative Rock/Hard RockПродолжительность: 00:13:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483618   (89194) от 18.04.2012
+
+Leningrad Cowboys - Zombies Paradise (2006) [FLAC|Lossless]<Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (3:31)
+02. What Is Love (3:19)
+03. Goldfinger (4:07)
+04. Perfect Day (3:53)
+05. Puttin' On The Ritz (2:55)
+06. Manic Monday (2:33)
+07. Starman (4:25)
+08. Ring Of Fire (3:12)
+09. My Sharona 	(3:46)
+10. Play That Funky Music (5:37)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479376   (87014) от 07.04.2012
+
+The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conduct (5:10)
+02. Tomorrow (3:55)
+03. Fire & Soul (4:32)
+04. Raining In My Heart (3:27)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477534   (86202) от 03.04.2012
+
+Poets Of The Fall - Temple Of Thought (2012) [FLAC|Lossless]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Poets of the Fall  — финская рок-группа, записывающаяся на собственном лейбле «Insomniac». Она образовалась в Хельсинки в 2003 году. Группа завоевала множество значимых наград в родной стране (включая 2 премии Emma-gaala — финского аналога Grammy), победила в номинации «Лучший финский исполнитель» на MTV Europe Music Awards в 2006 году, а клип на песню «Carnival of Rust» был признан телезрителями «Лучшим клипом Финляндии всех времён».
+
+Оф. сайт группы01. Running Out Of Time (3:13)
+02. Temple Of Thought (4:38)
+03. Cradled In Love (4:44)
+04. Kamikaze Love (3:41)
+05. The Lie Eternal (4:34)
+06. Skin (4:29)
+07. The Distance (5:05)
+08. Show Me This Life (4:29)
+09. Morning Tide (4:41)
+10. The Ballad Of Jeremiah Peacekeeper (5:07)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

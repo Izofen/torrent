@@ -1,3 +1,31 @@
+###  Публикация: 1442078   (1036931) от 24.01.2021
+
+Ātesh (Atesh) - مهرت از دل کی برون کنم (2021) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - آسمان ستاره های سیاه [00:09:12]
+02 - اشک های یخ زده عشق [00:09:30]
+03 - او هرگز نخواهد مرد (   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D73E3C97F4B6E7B6AB2CF3A62090167D50A8D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442226   (1036895) от 24.01.2021
 
 Therion - Leviathan (2021) Japan Edition [MP3|320 Kbps] <Symphonic Operatic Metal>
@@ -716,35 +744,6 @@ Balate - El Quemadero (2021) [MP3|320 Kbps] <Stoner, Doom Metal, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A6F70B85E29CE3C75E5C9C4EF072708CBC99246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449659   (1029590) от 23.02.2021
-
-Caskets Open - Concrete Realms of Pain (2021) [MP3|320 Kbps] <Gothic Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Intro - Four Shrines [00:06:07]
-02 Riding on a Rotting Horse [00:03:11]
-03 Homecoming [00:05:17]
-04 Tunnel Guard [00:03:22](   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A265479A1AAFE658CC69C8A8F721593EED502E4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

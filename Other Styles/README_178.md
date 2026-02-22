@@ -1,3 +1,38 @@
+###  Публикация: 588849   (150433) от 14.12.2012
+
+Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150433.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Far Cry 3 (5:35)
+2. Heat (3:33)
+3. The Rakyat (3:55)
+4. Monsoon (2:53)
+5. Falling Into a Dream (2:20)
+6. Journey Into Madness (2:56)
+7. Rook Island (5:21)
+8. We Are Watching You (3:34)
+9. Treasure of Zhang He (3:35)
+10. Fever Dream (4:10)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E2C6D9AC5808B42990C1B782BCDA01CF9DD094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 738608   (150132) от 26.12.2013
 
 David Arkenstone - Christmas Lounge (2008) [FLAC|Lossless]<New Age, Lounge, Christmas>
@@ -752,35 +787,6 @@ VA - Romantic Christmas Love Songs and Romantic Music Vol.1 (2018) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66B221FC1ACC55CF611814FE691EAA484EB5C18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519716   (147092) от 25.12.2021
-
-Blackmore's Night - Winter Carols (2006) Deluxe Edition, Remastered, 2021, Ear Music [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coventry Carol
-02. Deck The Halls
-03. God Rest Ye Merry Gentlemen
-04. Oh Christmas Tree(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36381591E3BE4018B21762B2DD28279CBBBF3759
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1320831   (464956) от 21.08.2019
+
+Проекты - VideoHive - Award Show Package 2018 - 22370126 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Award Show Package 2018 - пакет, который включает все, что будет необходимо для создания ролика с церемонии награждения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD98F57D6C9D6B89D310AE0CE3DA09C8EB668B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161557   (464932) от 29.08.2017
 
 Проекты - VideoHive - Business\School\College Presentation - 12480839 [AEP]
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B01F1F7369342F9B62C678440DFEA99D73B15038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941955   (457282) от 29.09.2015
-
-Проекты - VideoHive - Golden Screen Awards - 12842693 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457282.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Золотые Премии Экрана" - широковещательный пакет. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7326B82AEF07F95EBB1BDAB1390E2D056C7069C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

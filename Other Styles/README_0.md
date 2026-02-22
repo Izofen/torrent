@@ -1,3 +1,32 @@
+###  Публикация: 1438462   (1040616) от 10.01.2021
+
+Jim Brickman - The Ultimate Valentine's Day (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valentine
+02. True Love (From "FROZEN: THE BROADWAY MUSICAL")
+03. Memories Of You
+04. Have I Told You Lately That I Love You?(   Читать дальше...   )Жанр: New Age, Instrumental, Easy ListeningПродолжительность: 03:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D96D6F0A9E1862418FEBDC0EB11038E501F177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611909   (1040435) от 14.02.2023
 
 Offerings to the Ganges - Spiritual Tantric Energy: Enjoy Valentines Day (2023) [FLAC|Lossless|tracks] <New Age>
@@ -716,35 +745,6 @@ VA - Enigma-Forest-Transit 3 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:996CDC8270F2E41DB4B988B74ECA92C64E451783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618145   (1034352) от 10.03.2023
-
-Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Minstral Hall Music [MP3|320 Kbps] <Folk, Medieval>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034352.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shadow of the Moon (25th Anniversary New Mix)
-2. The Clock Ticks On (25th Anniversary New Mix)
-3. Be Mine Tonight (25th Anniversary New Mix) 
-4. Play Minstrel Play (25th Anniversary New Mix)(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862D72FEDAC63EF45FB986D0EF5DB8B8023CE2D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

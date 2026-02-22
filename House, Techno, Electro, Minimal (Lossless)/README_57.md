@@ -1,3 +1,61 @@
+###  Публикация: 1669904   (172440) от 18.10.2023
+
+VA - 100 Greatest Running Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172440.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fred again.. - Jungle (3:18)
+002. Eliza Rose - B.O.T.A. (Baddest of Them All) (Edit) (3:46)
+003. Tiësto - 1035 (2:52)
+004. Bruno Mars - Runaway Baby (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 05:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35ACC5128DBBC9F814940C97C95DC6473514738C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344284   (170660) от 10.12.2019
+
+Exos - Green Beat (2019) X/OZ Music [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Shake (06:17)
+ 02. Hood (12:16)
+ 03. Green Beat (05:08)
+ 04. Galaga (10:48)(   Читать дальше...   )Жанр: Techno, Minimal, Dub TechnoПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B0E777699A9ED7276FA3F6F306E33FD10AF90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596518   (169854) от 10.12.2022
 
 VA - Purified Chronicles 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
@@ -679,61 +737,6 @@ Kombinat 100 - Wege Ubers Land (2023) (Remastered 2007)[FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60994AA41891AE36D1396EA49164FE81B84EA632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517738   (161580) от 17.12.2021
-
-Above & Beyond - 10 Years of Group Therapy (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filmic (CRi Remix) (5:06)
- 02. Sun & Moon (ilan Bluestone Remix) (feat. Richard Bedford) (4:41)
- 03. Prelude (Above & Beyond Future Summer Mix) (3:05)
- 04. Love Is Not Enough (Hybrid Minds Remix) (feat. Zoë Johnston) (5:03)(   Читать дальше...   )Жанр: Progressive House, Trance, DowntempoПродолжительность: 01:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF66F359D995575B869B25915D58D62FDA9EB083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674387   (161352) от 05.11.2023
-
-Oliver Koletzki - Trip to Sanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666DF7D87DC45BCB7A1933E4246523FB113A2753
 ```
 
 https://mybot314.ru/tekegram_catalog/

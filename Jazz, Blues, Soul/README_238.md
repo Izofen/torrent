@@ -1,3 +1,90 @@
+###  Публикация: 1143094   (637576) от 17.06.2017
+
+Shorty Rogers - The Wizard of Oz & Other Harold Arlen Songs (1959) 2005, DRG Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're Off to See the Wizard [01:21]
+02. Over the Rainbow [03:02]
+03. The Jitterbug [03:18]
+04. The Merry Old Land of Oz [05:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:005A5AC9AB0922604813DF992B41EB2138FAA3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293305   (637574) от 03.04.2019
+
+Lee Fields & The Expressions - It Rains Love (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Rains Love (03:55)
+02. Blessed with the Best (03:49)
+03. Two Faces (03:43)
+04. You’re What’s Needed in My Life (03:38)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12C0E61979FD104B0D6E5E50DF512EE95FBFB16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228323   (637529) от 31.05.2018
+
+McCoy Tyner Trio - Live at Sweet Basil, Vol. 1 (1989) King [WavPack|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crescent [10:32]
+02. Monk's Dream [9:35]
+03. Darn That Dream [8:18]
+04. Sweet Basil Swing [6:31](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC71609F65CA850DB25C49BCC6E1CCF3FC4AA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143266   (637483) от 17.06.2017
 
 Zoot Sims - Down Home (1960) 2005, Charly [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -664,93 +751,6 @@ Ice Cream Men - When Time Was Yours (2017) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C23803F8A11DB33EB45500E7FB9C6F6DA8A6C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143623   (635240) от 18.06.2017
-
-VA - Slow Smooth Jazz: Relaxation Soft Music (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Jazz Lounge School — Slow Smooth Jazz
-02. Moody Jazz Collection — Piano Bar Chill Out
-03. Relaxing Piano Music Ensemble — Pleasure and Easy Listening
-04. Good Morning Jazz Academy — Take it Easy(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234901C27D8A04AD62515BEE4B73425A7699557D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143363   (635239) от 18.06.2017
-
-Members Of The Glenn Miller Orchestra - A Tribute To Glenn Miller (1998) [MP3|320 Kbps] <Jazz, Swing, Oldies>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635239.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tuxedo Junction (3:50)
-2. American Patrol (3:33)
-3. Lover's Serenade (2:34)
-4. Londonderry Air (2:25)(   Читать дальше...   )Жанр: Jazz, Swing, OldiesПродолжительность: 00:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6BDDE6F0FA9D3480C770E26107C9FC6E084D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293634   (635229) от 04.04.2019
-
-Ten Stories High - Story Goes (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude
-02. Fade Away
-03. Ignorance
-04. Everything Must Change(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5619C415A67D32E5B4A51FEED775448AF92DB5BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

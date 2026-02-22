@@ -1,3 +1,90 @@
+###  Публикация: 1126810   (764656) от 19.04.2017
+
+Marilyn - Romance Dance (2004) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romance Dance  (04:46) 
+02. Close Your Eyes  (03:23) 
+03. You Go To My Head  (04:00) 
+04. I Wish I Knew  (02:48) (   Читать дальше...   )Жанр: Jazz VocalsПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4CA213257442463211B8DF917C43F90E3CDA7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126513   (764650) от 19.04.2017
+
+Duke Ellington - The Girls And Premieres 1958-1963 (2014) La Maison du Duke [FLAC|Lossless|tracks + .cue] <Big Band, Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Medley [11:16]
+ 02.Girls [03:46]
+ 03.Sarah [02:00]
+ 04.Lena [03:15](   Читать дальше...   )Жанр: Big Band, Swing, Vocal JazzПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7949EBE5D7349951705E2BDF1ABB24E6492E9955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126917   (764648) от 19.04.2017
+
+Ronnie Baker Brooks - Take Me Witcha (2001) [APE|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Had My Chance  (05:22) 
+02. Hit Me On The Hip  (04:14) 
+03. See You Hurt No More  (05:55) 
+04. Take me Witcha  (04:17) (   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E997D981B9D993FC780B1DF8311FF8D52CA4E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126946   (764622) от 19.04.2017
 
 Lonnie Mack - Lonnie On The Move (1992) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Blues, Instrumental>
@@ -658,93 +745,6 @@ The Austrian Blues Combo - Fading Away (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:666856DF6BE28541BD788D12C5CD3CF80CA257E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521854   (763540) от 04.01.2022
-
-Honey Suckle Vine - Painted Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like We Did Back Then (3:27)
-02. She Gets Me (4:06)
-03. Aint The Same (6:08)
-04. Wasting Time (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1783D38078F95C9FE8D80145C554D19BA09B9DD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521852   (763539) от 04.01.2022
-
-The Eclectic Beast Band - Off the Grid (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pitstop (4:03)
-02. Little Hipster (4:24)
-03. U No Good (3:19)
-04. B-Jamming (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB3ABF0640E9391E40B1AB14629DA62FA1A9056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214886   (763305) от 23.03.2018
-
-Rein De Graaff - Chasin' The Bird (1981) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasin' The Bird [05:15]
-02. Little Willie Leaps [04:18]
-03. Improvisation On Confirmation [03:03]
-04. Just Friends [09:16](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:951076F2F8F73545EB69DE2E53F59AEC2A2975A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

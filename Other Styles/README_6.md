@@ -1,3 +1,32 @@
+###  Публикация: 1476023   (1011928) от 09.06.2021
+
+ДиДюЛя - 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Еду-доеду
+02. Две сестры
+03. Танго добрых ветров
+04. Схватка(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2EFE8EA09BFFC631EB13E0FFC05FC51686BDEAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476442   (1011493) от 12.06.2021
 
 Neal Schon - Universe (2020) Reissue, 2021, Neal Schon Music [FLAC|Lossless|tracks + .cue] <Instrumental Guitar Rock>
@@ -712,35 +741,6 @@ Dragoslav Pavle Aksentijevic - Древнее Сербское Псалмопе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CAD397C45BEAB5A3148894B584B13515F02A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486968   (1003860) от 04.08.2021
-
-Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock, Soft Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break Of Dawn (3:48)
-02. Headed For A Fall (4:09)
-03. Getaway (3:46)
-04. Leave It Alone (2:49)(   Читать дальше...   )Жанр: Country Rock, Pop Rock, Soft RockПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5620FD7C08872F56873DB9D0D5E010995C2A5CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 978432   (963719) от 23.01.2016
+
+Anandi - Anandi (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchained Melody
+02. Night & Day
+03. Perennial
+04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E1789C43AA0675E026511355EB831AC03DFF59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978314   (963717) от 23.01.2016
 
 Wes Montgomery & The Billy Taylor Trio (1963/1965) 2005, Lonehill[FLAC|tracks+.cue] <Hard Bop>
@@ -715,35 +744,6 @@ Marilyn Scott - Every Time We Say Goodbye (2008) Venus Records[FLAC|tracks+.cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:014FCB6EDEC5B1749B34AA6F8360781907F9BAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980049   (957471) от 28.01.2016
-
-Teddy Charles And His Sextet - Salute To Hamp (1958) Remaster, 2014, Solid Records[FLAC|tracks+.cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Air Mail Special [05:13]
- 02.Midnight Sun [02:44]
- 03.On The Sunny Side Of The Street [02:27]
- 04.He's Gone Again [02:22](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B050D004D0663948FD64AEA8A500A31648416A74
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1622526   (1030022) от 29.03.2023
+
+Harry Edison - Three Classic Albums Plus (1956 - 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Trumpet Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues For Piney Brown [7:42]
+02. Blues For The Blues [4:53]
+03. Blues For Bill Basie [9:34]
+04. Gee, Baby Ain't I Good To You [3:35](   Читать дальше...   )Жанр: Swing, Trumpet JazzПродолжительность: 02:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1977384F88DCFF67FE57F38C528CB3760D6E082B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413824   (1030002) от 21.02.2021
 
 Takuro - Journey Without a Map II (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -717,35 +746,6 @@ Willie ''The Lion'' Smith - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD71F219C2891B7887F4295D26CF7ED6E77227F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453251   (1027114) от 10.03.2021
-
-Bud Powell - How High The Moon (1992) Pigeon [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How High the Moon [3:58]
-02. Body and Soul [6:07]
-03. Satin Doll [4:46]
-04. Parisian Thoroughfare [1:58](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A972E8C39EC3A6ACCDDBD3786F4996CD2E589277
 ```
 
 https://mybot314.ru/tekegram_catalog/

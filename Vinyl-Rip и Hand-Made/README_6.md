@@ -1,3 +1,178 @@
+###  Публикация: 617097   (973019) от 11.02.2013
+
+Queen - 13 Студийных альбомов + Mr. Bad Guy, Barcelona (1973-1992) [FLAC 2.0 24/192|image + .cue|tracks (Vinyl-Rip)]<Classic Rock>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973019.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Barcelona 5:40
+A2. La Japonaise 4:50
+A3. The Fallen Priest 5:47
+A4. Ensueno 4:21
+B1. The Golden Boy 6:06
+B2. Guide Me Home 2:40
+B3. How Can I Go On 4:02
+B4. Overture Piccante 6:43Жанр: Classic RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336438EA30105DCE5C9EB29D9EE3EDC5049C727D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975609   (971775) от 15.01.2016
+
+Iron Maiden - The Number Of The Beast (1982) Reissue, 1987, Fame [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971775.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Invaders (3:23)
+A2. Children Of The Damned (4:35)
+A3. The Prisoner (6:02)
+A4. 22.Acacia Avenue (6:36)(   Читать дальше...   )Производство: EMI / Fame - FA 3178Жанр: Heavy MetalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672DDC282EB12BDF71CEBA73C1D3783DF4BC4E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976326   (968655) от 18.01.2016
+
+Аквариум - 3 альбома (Белый альбом; Радио Африка; Равноденствие) (1987-1988) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA31EAB72F224F22F2D1DFAE2BD72B3EB085A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976588   (968525) от 18.01.2016
+
+David Bowie - Blackstar (2016) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Experimental Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackstar (9:59)
+02. 'Tis a Pity She Was a Whore (4:52)
+03. Lazarus (6:21)
+04. Sue (Or In a Season of Crime) (4:40)(   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A0D1536CB877DF34E9B78CC33F9CF7E88B3C7B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977789   (965548) от 21.01.2016
+
+The Alan Parsons Project - The Turn Of A Friendly Card (1980) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965548.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. May Be A Price To Pay (5:01)
+A2. Games People Play (4:22)
+A3. Time (5:15)
+A4. I Don't Wanna Go Home (4:51)(   Читать дальше...   )Производство: Arista Records - 203 000-320Жанр: Progressive RockПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1883993E489AEE3F250B83A177995D57B6A4DB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978515   (962043) от 24.01.2016
+
+Агата Кристи - Декаданс (1991) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Щекотно
+02 - Мотоциклетка
+03 - Его там не было
+04 - Эпидемия(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24917008C646FD9D006309704719CF3F8041296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747132   (958184) от 27.01.2016
 
 Deep Purple - The House Of Blue Light (Дом голубого света) (1987) [FLAC 2.0|192/24|traсks|Vinil-Rip]<Hard Rock>
@@ -571,180 +746,6 @@ Black Sabbath - Группа Блэк Саббат (1989) [FLAC 2.0|192/24|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4F7CA1DFB055F827D8A4D5B3632AE2936C4CE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983450   (943612) от 06.02.2016
-
-Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Down To The Waterline
-02 - Water Of Love
-03 - Setting Me Up
-04 - Six Blade Knife(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB81131B695136D0A311CD203087858A122DDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091572   (942728) от 09.01.2017
-
-Supertramp - The Very Best Of (1992) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodbye Stranger (5:48)
-02. The Logical Song (4:10)
-03. Bloody Well Right (4:33)
-04. Breakfast In America (2:42)(   Читать дальше...   )Производство: Ладъ - LD 238016Жанр: Progressive RockПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765744893737E078A9B71E1425439F59545B8026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091487   (942626) от 09.01.2017
-
-VA - RETROспектива, часть VII: Эстрадные оркестры VII (1935-1958) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Концерт. анс. п.у. Е. М. Пинке - Шуточная полька (танец)
-02. Концерт. анс. п.у. Е. М. Пинке - Воспоминание (вальс)
-03. Концерт. анс. п.у. Ф. Криша - Вальс-чечетка (танец)
-04. Концерт. анс. п.у. Ф. Криша - Ручеек (полька)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC92B358757DC74DAA57697AF19AE67F1EC7578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 149832   (941990) от 28.02.2020
-
-Bee Gees - Size Isn't Everything (1993) [FLAC|24Bit/96kHz] <pop-rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paying The Price Of Love (4:13)
-02. Kiss Of Life (4:15)
-03. How To Fall In Love, Pt.1 (5:58)
-04. Omega Man (3:57)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA23A69194F656517C72AC23134A407C7EEB865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983980   (941862) от 07.02.2016
-
-Владимир Кузьмин - ...пока не пришел понедельник... (1986) 1989, Мелодия, ТЗГ [FLAC 2.0|96/24|image|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...пока не пришел понедельник... (3:49)
-02. Странные дни (4:57)
-03. Симона (4:05)
-04. Шлифовщик (4:24)(   Читать дальше...   )Производство: Мелодия ТЗГ - С60 27993 009Жанр: RockПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E23248726A484D194DA36E1C0BDE604537663C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 144897   (940464) от 29.02.2020
-
-Demis Roussos - Souvenirs (1975) [FLAC|24Bit/96kHz]<pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940464.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1   Sing An Ode To Love   (4:12)
-A2   Midnight Is The Time I Need You   (3:03)
-A3   I'll Be Your Friend (Schön Wie Mona Lisa)  (4:12)
-A4   Action Lady  (3:01)(   Читать дальше...   )Жанр: Electronic, Funk / SoulПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFDABC9F4D57F1675E28B397A9093B3754752951
 ```
 
 https://mybot314.ru/tekegram_catalog/

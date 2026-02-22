@@ -1,3 +1,32 @@
+###  Публикация: 1627307   (237358) от 19.04.2023
+
+Robbert Duijf - Change Myself (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change Myself (4:01)
+02. Hard Times Killing Floor (4:46)
+03. Trouble Will Soon Be Over (2:29)
+04. Verse 8 (5:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09C361E36B44CD0239BF48AB68B081E338B54CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450929   (237356) от 28.02.2021
 
 Benny Goodman - The Essential Benny Goodman (1937 - 1958) 2CD, 2015, Not Now Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -716,35 +745,6 @@ The Phil Woods Quintet + One - Flash (1990) Concord Jazz [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A4284AC02210DDE678F30FC86EE4D46C25A1223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641240   (236706) от 21.06.2023
-
-Konstantin Klashtorni - Chillaxonic: 3rd Facet (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Within Attraction (3:46)
- 02. Serenity (4:17)
- 03. Living Water (4:04)
- 04. Creation Sings (3:56)(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCD8978E2DEC17CB722C0C888809072946EDA2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

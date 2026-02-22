@@ -1,3 +1,32 @@
+###  Публикация: 1658103   (191951) от 06.09.2023
+
+Airstrike - Red Born Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:31]
+02. One In A Million [00:05:03]
+03. Rollin [00:04:09]
+04. Tutankhamun [00:05:41](   Читать дальше...   )Жанр: Hard Rock, Heavy, Thrash MetalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0260938A389AEC797B66C4D8782983564EB2B23B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657793   (191832) от 06.09.2023
 
 Sabotage - See the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
@@ -715,35 +744,6 @@ The Quireboys - Amazing Disgrace (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F454F4CF954167604DEF0F3F17024C6D3AFE358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589564   (190059) от 10.11.2022
-
-96 Bitter Beings - Synergy Restored (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vaudeville's Revenge [00:04:56]
-02. Wish Me Dead [00:04:42]
-03. Fire Skyline [00:03:22]
-04. Throw Yourself Inside [00:03:36](   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F1C1A06E82A998F5F3E7A30BDD02B596920551
 ```
 
 https://mybot314.ru/tekegram_catalog/

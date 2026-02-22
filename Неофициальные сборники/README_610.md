@@ -1,3 +1,293 @@
+###  Публикация: 1435513   (144314) от 28.12.2020
+
+VA - Rose Bialo: Italiano Classico Vocale (2020) [MP3|320 Kbps] <Vocal, Pop, Classic Soul>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это старая манера итальянского оперного пения, которая считается эталоном вокального искусства находит свое место и в современной итальянской песне. Она была оперной нормой целых 300 лет назад. И современники ещё тогда уже писали о том, что это было ангельское, божественное пение!001. Claudio Villa - ' O Sole Mio
+002. Irene Grandi -  A Natural Woman
+003. Alice - A Cosa Pensano
+004. Fred Buccini - A Mano A Mano(   Читать дальше...   )Жанр: Vocal, Pop, Classic SoulПродолжительность: 07:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AA926E0673865101226E1EEBFB6A85A0CBB66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435514   (144305) от 28.12.2020
+
+VA - Deep Glow Electro House (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новинки и немного эксклюзива вы услышите в новых треках сборника "Deep Glow Electro House". Deep House и вправду можно слушать часами напролет, за чашкой ароматного кофе наблюдая из окна жизнь ночного мегаполиса в свете неоновой рекламы и ощущая переплетение звуков города в которые вливаются эмоций людей.001. Renoa - Two Beers
+002. Deep Couture - In The Music
+003. Scot & Millfield - Get The Beat
+004. Bruce Leroys - Cassette Tape(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9F48BF0157C3E1D884F662EE3B335C5897D95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195011   (144293) от 28.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 23) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Вахтанг Кикабидзе  -  Я пьян от любви  3:14
+02.  Людмила Зыкина  -  Калинка  3:31
+03.  Александра Стрельченко  -  Речные омуты  2:09
+04.  Людмила Сенчина  -  Всегда и снова  3:59(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1241D1AB214C60750640F5E555C21D3A1D4ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272410   (144278) от 27.12.2018
+
+VA - Project Logical: Progressive House (2018) [MP3|320 Kbps] <Progressive, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144278.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ian O'shea - Star Vision
+002. Dj Nevel - It's Never Over (Original Mix)
+003. Alex Greenhouse - Moonlight
+004. Bombastics - Mumbaya (Merlin Milles Remix)(   Читать дальше...   )Жанр: Progressive, Dance, HouseПродолжительность: 10:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B30279ED2D8D764A78C0B09A6C3BC0A69D155D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194988   (144232) от 28.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 22) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Александра Стрельченко  -  Подари мне платок  3:48
+02.  Георг Отс  -  На Волге широкой  3:20
+03.  Валентин Будилин  -  Прости, Земля  3:21
+04.  Нина Бродская  -  Кто тебе сказал  3:33(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9847791A3552F36EC0D2D7EBCBE5B8A17EAC60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195037   (144221) от 28.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 24) (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Александра Стрельченко  -  Ромашки спрятались  4:03
+02.  Людмила Зыкина  -  Милая мама  3:31
+03.  Валентина Дворянинова  -  Как тебе служится  3:11
+04.  Иосиф Кобзон  -  В лесу прифронтовом  4:30(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356B24100A106AD0CB3A5CC98E29778EB7C5A20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348206   (144214) от 27.12.2019
+
+VA - Shazam Хит-парад Russia Top 200 Новогодний (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144214.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. NILETTO - Любимка 3:40
+002. Tones And I - Dance Monkey 3:30
+003. Carla Morrison - Disfruto (Audioiko Remix) 3:18
+004. Trevor Daniel - Falling 2:39(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2B8F1D82BAD510E19413DEA9D4117EB63D872E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195104   (144186) от 28.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 26) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Александра Стрельченко  -  Эхо любви  3:39
+02.  Евгений Мартынов  -  Алёнушка  3:29
+03.  Мария Лукач  -  Я шаги твои слышу  2:46
+04.  Нина Бродская  -  С любовью встретиться  3:06(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E4A2D6AF0F7E0057B42BB926CA36DB2C73AA58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195054   (144073) от 28.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 25) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Иосиф Кобзон  -  Где-то далеко  3:41
+02.  Марк Бернес  -  С чего начинается Родина  2:35
+03.  Тамара Миансарова  -  Ты лучше всех  2:23
+04.  Гелена Великанова  -  Не знала я  2:45(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A392F9FDDAC64C3B885A37FE090D4CBBD44FDEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325541   (144027) от 27.12.2019
+
+VA - Наше Радио. Лучшее '2019 MP3  (2019) от DON Music [MP3|256 Kbps] <Русский Рок, Авторская Песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144027.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алиса - Посолонь
+002. Пикник - Счастливчик
+003. ХБС - Полдень
+004. 7Б - Воин-призрак(   Читать дальше...   )Жанр: Русский Рок, Авторская ПесняПродолжительность: 10:26:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055A8F0CFAC68EEF9DE7F65E1A29D33DD985D293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087472   (143973) от 28.12.2016
 
 VA - Deep House Collection Vol.102 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -455,299 +745,6 @@ VA - National Pop Dance Music Vol.29 (2021) [MP3|320 Kbps] <Pop, Dance, Schlager
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0C07AFCF391AE4D04AEEAF1440F5F56A8242B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520360   (143637) от 27.12.2021
-
-VA - New Age Ambient Music (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation, New Age, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы верите в потусторонние миры, гадаете по картам таро и изучаете гороскопы, то эта подборка специально для вас. Здесь вы найдете самую загадочную, мистическую и таинственную музыку. Эти треки определенно вызовут у вас мурашки по коже.001. Amure - Africa
-002. Mind Over Midi - Sinnsro
-003. Amethystium - Strangely Beautiful
-004. Shinnobu - By Peace(   Читать дальше...   )Жанр: Ambient, Downtempo, Meditation, New Age, RelaxПродолжительность: 08:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6E9808C652775A0C201DB52E7D74FCA810DF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970118   (143636) от 29.12.2015
-
-VA - So Sexy Chillout Selection (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset 4 - O
-02. The Sir Project - Megaian
-03. G Tunes - Subway Station
-04. Beach Lovers - Live to Tell(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C9157A052A1C8257BC9CE329313B2082CBD7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520339   (143627) от 27.12.2021
-
-VA - Hypnotica: Psy Trance Megamix (2021) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта музыка, может быть, не духовна в контексте религиозности, но духовна по своему содержанию, причем в зависимости от конкретного слушателя. Один и тот же трек может восприниматься людьми по-разному и вызывать разные состояния и разные ассоциации. Еще в древности люди научились использовать ритм в культовых и религиозных целях. Удары шамана палкой по барабану из (   Читать дальше...   )001. Static Movement - Taking Off
-002. Sun - Utopia
-003. Neelix - Winter Sun
-004. Mentalist - Deja Vu(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA01D9ECE1FBD502BD176DB08DE729971986521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969970   (143581) от 29.12.2015
-
-VA - The Choice (2015) [MP3|196 - 320 кб/с] <Spacesynth, Spacedisco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143581.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике представлены альбомы русско-говорящих композиторов, выпустивших работы в 2015 году.
-The Choice`(выбор) - выбор лучшего Spacesynth альбома года...01. Laserlight - Change Of Time 04:54
-02. Playing Space - Storm Of Love 05:02
-03. TDHDriver - My Fantasy World 06:16
-04. Oblivion - Dancing With The Morning Sun 05:44(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 01:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0CBE255E6F0D142588B15571D48F6B2FF549BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348601   (143572) от 28.12.2019
-
-VA - The Official UK Top 40 Singles Chart 27.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellie Goulding - River
-02. Mariah Carey - All I Want for Christmas Is You
-03. Wham! - Last Christmas
-04. The Pogues - Fairytale of New York (feat. Kirsty MacColl)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B844CD6AA089E42733D58530511DEA138152EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348666   (143557) от 28.12.2019
-
-VA - German Top 100 Single Charts 27.12.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143557.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Mariah Carey - All I Want for Christmas Is You (4:01)
-2.Wham! - Last Christmas (4:25)
-3.Tones and I - Dance Monkey (3:29)
-4.Apache 207 - Roller (2:38)(   Читать дальше...   )Жанр: PopПродолжительность: 05:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301A7EBF2740C44313EDBCA19756AC7E5F3BA92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520354   (143513) от 27.12.2021
-
-VA - Top Songs of 2021: Global [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BTS - Dynamite
-02. Olivia Rodrigo - drivers license
-03. Ariana Grande - positions
-04. Pop Smoke, Lil Baby, DaBaby - For The Night(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68CA5231EB851E2055E53117224548AF9CE3F32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520333   (143499) от 27.12.2021
-
-VA - Get Physical: Electro Bass Compilation (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хватит валяться на диване, займись спортом! К чему нас и призывает симпатичная девушка на обложке сборника с наименованием "Get Physical: Electro Bass Compilation", попутно натягивая для убедительности боксёрскую перчатку.001. Napas - Back To Eclipse
-002. Fetus - Latent
-003. Vйsper, Shiya - I Can
-004. Jedi - Scoping(   Читать дальше...   )Жанр: Drum And Bass, Bassline, Electro BassПродолжительность: 12:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CE579C782EA35423BE8F5D6E587A52BA056EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969935   (143429) от 29.12.2015
-
-Shakra - The Best (2015) 2CD Compilation  [MP3|320 кб/с] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil In Me
-02. I Do It My Way
-03. Welcome Home Again
-04. And Life Begins(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BB01FF49DBCF367891761537DAAB56F18CE5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854539   (143247) от 29.12.2014
-
-VA - The Official UK Top 40 Singles Chart (28-12-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот и последний в этом году традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Mark Ronson - Uptown Funk! (Feat.Bruno Mars)  (4:31)
-02. Ben Haenow - Something I Need  (3:46)
-03. Ed Sheeran - Thinking Out Loud  (4:42)
-04. Taylor Swift - Blank Space  (3:52)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2802D6F62BAE7332FF232D27F2F6F04A6FA3769E
 ```
 
 https://mybot314.ru/tekegram_catalog/

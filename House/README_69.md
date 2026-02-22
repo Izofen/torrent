@@ -1,3 +1,90 @@
+###  Публикация: 1193937   (261816) от 23.12.2017
+
+VA - House Party (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Basement Jaxx  -  Do Your Thing (Robbie Rivera Acid Remix)  3:33
+02.  Kristine Blond & James Hype  -  Love Shy  2:52
+03.  Inner City  -  Good Life 2017  3:16
+04.  Harry Romero  -  Revolt  3:26(   Читать дальше...   )Жанр: HouseПродолжительность: 03:26:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532C2D8A96EE3356BC33A158665EA947EE17608B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839042   (261708) от 26.11.2025
+
+VA - Balearic Deep-House Winter 2026 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi.5, Dry & Bolinger - Your Soul 03:23
+02. Steen Thottrup, Eva Scolaro & Calmabohain - Deeper Love (Calmabohain Remix) 03:22
+03. Music Of The Earth - Iou Boarders 05:17
+04. Simone Intrieri - Lie Machine (Extended Mix) 07:46(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33BB6CE28B13A0212D63247682EBD8652962BE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735256   (261682) от 08.07.2024
+
+VA - Polyptych Limited: Year Four (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inessa & IN-sane - Loved And Lost (Original Mix) [6:48]
+02. Rukhman - Forgotten Days (Original Mix) [5:53]
+03. OHM (LB) - Leap Of Faith (Original Mix) [5:43]
+04. Maz (EG) - Conquer Your Fears (Original Mix) [6:35](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C42A34E13DB64AD94B09D54C59DE9CA211EC8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838777   (261552) от 24.11.2025
 
 VA - Ministry of Sound - The Annual 2026 (2025) 2 CD [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -729,96 +816,6 @@ Martin Mamzer он же DJ Aphreme в 2011 году выпустил свой п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:907C6CB1E99ED2DD012125698CB4D36EF380C3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837304   (256785) от 15.11.2025
-
-VA - Enormous Tunes - The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora En Pure - Memories (Original Mix) [3:36]
-02. Passenger 10 - Dare To Dream (Original Mix) [3:26]
-03. ENU (AU) feat. Jordan Whitlock - Lost Without You (Original Mix) [3:34]
-04. Sons Of Maria - The Long Way Home (Original Mix) [3:55](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 02:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBAC528AC87EF4732F916823DC7CFBE6CFCF99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837453   (256685) от 16.11.2025
-
-VA - Ibiza Winter 2026 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yantra Mantra & Mazelo Nostra - Hum Tum Ganja 05:17
-02. Calmabohain - Never Forget 03:25
-03. Steen Thottrup - While We Are Dreaming (Nice Therapy Dreamcatcher Remix) 07:37
-04. Jaques Le Noir - My Love For You (Radio Edit) 02:44(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179272DD13CFDBE8AED98F4A84724570960F7570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499758   (256334) от 21.05.2012
-
-Oxia - Tides Of Mind (2012) [MP3|320 кб/с]<Deep House, Tech House, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Oxia - Tides Of Mind (2012)Год: 2012  |  Лейбл: InFine  |  Страна:   |  Жанр: Deep House, Tech House, Downtempo |  Формат: WEB, Album
-Продолжительность: 01:00:05  |  Кодек: MP3  |  Битрейт: 320 кб/с  |  Тип битрейта: CBR
-Описание:
-Приятный и мелодичный альбом от Olivier Raymond.  Помесь ритмичных треков в стиле дип- и тех- хаус, а также парочка мелодичных баллад, звучат свежо и по летнему тепло.Треклист:
-01. Premiss /1:08/
-02. Rue Brusherie /7:58/
-03. Housewife /6:10/(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33A2DDB00B85A9FAC6507E7F323FA124AB0A627
 ```
 
 https://mybot314.ru/tekegram_catalog/

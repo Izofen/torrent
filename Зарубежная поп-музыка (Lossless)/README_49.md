@@ -1,3 +1,33 @@
+###  Публикация: 813499   (567255) от 16.08.2014
+
+VA - Girls! Girls! Girls! The Best of Burlesque & Striptease Music vol. 1-2 (2008, 2013) [FLAC|Lossless]<Pop, Jazz, Swing>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые большие проблемы были с тем, в какой раздел поместить этот рип. Рекомендованный для определения жанра AllMusic выдал Pop/Rock. ITunes не долго думая предложил R&B/Soul, Music. Своим же умом я понимаю, что эти два диска очень близки к Jazz&Swing.
+Думаю, что это не главное. А главное, что эта коллекция винтажной стрип-музыки, которая звучала на ставших (   Читать дальше...   )01. Introduction  (0:17)
+02. Three  For The Show  (3:26)
+03. A Pretty Girl Is Like A Melody  (3:17)
+04. Night Train  (3:21)(   Читать дальше...   )Жанр: Pop, Jazz, SwingПродолжительность: 01:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155C6487F47C14F17F257A996E5FDD2A10CFCDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555694   (567160) от 05.06.2022
 
 Christina Aguilera - AGUILERA (2022) [FLAC 2.0|44,1/24|tracks|WEB-DL] <Pop, Latin Pop>
@@ -717,35 +747,6 @@ VA - Simplified More Than Acoustic (2019) [FLAC|Lossless|WEB-DL|tracks] <Acousti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3406FDE883D6DE14433243A6B6994CC0E7320756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556942   (556398) от 12.06.2022
-
-Vanessa Mai - No Hard Feelings (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Hard Feelings [00:02:38]
-02. Schwarze Herzen [00:02:24]
-03. Melatonin [00:02:19]
-04. Happy End [00:02:18](   Читать дальше...   )Жанр: PopПродолжительность: 00:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05E5D4E8B68A56E9CD3BA46F901A3963A2CB0B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

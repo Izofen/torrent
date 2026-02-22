@@ -1,3 +1,32 @@
+###  Публикация: 1127263   (732236) от 21.04.2017
+
+Хоккей. НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Восток. 1/4 финала. 4-й матч. Нью-Йорк Рейнджерс – Монреаль Канадиенс (18.04.2017) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732236.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 апреля 2017, среда. 02:00 МСК
+НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Восточная конференция. Первый раунд.
+1/4 финала. 4-й матч
+Нью-Йорк Рейнджерс – Монреаль Канадиенс(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A0D42EB5F52E4FA02FC8B002979230C1C7A25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127272   (732235) от 21.04.2017
 
 Хоккей. НХЛ 2016-2017. Кубок Стэнли. Плей-офф. Восток. 1/4 финала. 4-й матч. Коламбус Блю Джекетс – Питтсбург Пингвинз (18.04.2017) WEB-DL [H.264/720p-LQ] [EN]
@@ -708,35 +737,6 @@ Madcap - Mind Adventures (2016) EP [MP3|320 кб/с] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C286AE6BA83638A6EDE88FBF01A513C0073EFE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021497   (732091) от 30.05.2016
-
-Ernesto vs. Bastian - Dark Side Of The Moon (2005) [FLAC|Lossless|tracks + .cue] <Trance,Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkside of the Moon (Original Radio Version)
-02. Darkside of the Moon (Sunloverz Rmx Edit)
-03. Darkside of the Moon (DJ Shog Rmx Edit)
-04. Darkside of the Moon (Dogzilla Radio Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5C60CFCB151BF4AB537212935F2FBCDEE718AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

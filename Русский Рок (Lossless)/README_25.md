@@ -1,3 +1,32 @@
+###  Публикация: 1553586   (581871) от 26.05.2022
+
+Сектор Газовой Атаки - Ненависти вопреки (2022) [FLAC|Lossless|tracks] <Russian Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я не служил [00:03:09]
+02. Lips [00:03:10]
+03. Своей дорогой feat. ДМЦ, Наконечный [00:04:23]
+04. Все за тебя решено [00:04:01](   Читать дальше...   )Жанр: Russian Punk RockПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AEF314BDF23AC6957607B8500761AFA19C5A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042450   (578203) от 13.08.2016
 
 Вячеслав Бутусов и Георгий Каспарян - НезаконНоРожденный АльХимик доктор Фауст - Пернатый Змей (1997)  [FLAC|Lossless|image + .cue]<Rock>
@@ -721,35 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A11CA574347D1AD9B28798A0ABCD28FF81C27373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312158   (536592) от 02.07.2019
-
-Зноев - Ты на меня любишь (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эрафлот (3:02)
- 02. Тайный дневник (3:11)
- 03. Ты на меня любишь (2:42)
- 04. Падали (3:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066BB3F0ACE92DE0BBC3084CA19F421B720E80E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

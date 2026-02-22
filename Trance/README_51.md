@@ -1,3 +1,32 @@
+###  Публикация: 1596855   (168060) от 12.12.2022
+
+VA - A State Of Trance Year Mix 2022 - Selected by Armin van Buuren (2022) [MP3|320 Kbps] <Trance, Progressive, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168060.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hardwell - INTO THE UNKNOWN (Extended Mix) (6:05)
+002. Gareth Emery & Omnia - Unity (Extended Mix) (5:05)
+003. Armin van Buuren & Florentin feat. Jordan Grace - Echoes (Extended Mix) (5:41)
+004. Armin van Buuren & Sam Gray - Human Touch (Extended Club Mix) (4:13)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 10:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A8519DC07908B01F1E06EA6D04414DB3A9CD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345017   (168002) от 13.12.2019
 
 VA - Vocal Trance 2020 (2019) [MP3|320 Kbps] <Trance>
@@ -714,35 +743,6 @@ VA - Black Hole Trance Music (12-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D11CA6A81B0772FBF7671E7A184932A5CD2A786E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968115   (156353) от 23.12.2015
-
-VA - Anjunabeats Volume 12 (Mixed by Above and Beyond) (2015) [MP3|320 кб/с] <Trance,Progressive Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Howling - X Machina (Cubicolor Remix)
-02. Thomas Schwartz & Fausto Fanizza - Circles
-03. Oliver Smith - Your Love
-04. Jaytech - Great Divide(   Читать дальше...   )Жанр: Trance,Progressive Trance,Progressive HouseПродолжительность: 05:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E806BEC3E5510D79D6229F3F8E76C4B0DE7F89F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

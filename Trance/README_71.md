@@ -1,3 +1,32 @@
+###  Публикация: 1808154   (10582) от 23.07.2025
+
+VA - Uplifting Only Top 15: July 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - Nature's Garden (Intro Mix) [5:52]
+02. Phil Dinner - The Battle (Extended Mix) [7:14]
+03. Tycoos & Sandro Mireno & Saphron - Lost At Sea (Extended Dub) [5:47]
+04. blurrrSAMA & REX.W - 18TH (REX.W Extended Remix) [6:35](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:48 :10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F983E56B10DF5BB4BBAD2CF671DF1F0AB808D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812152   (8061) от 13.08.2025
 
 VA - Trance Essentials 2025, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 3 (2025) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:691C7A19DC6FF4D0A9FAEFE5D487F0E3EB6B6B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820816   (17) от 29.09.2025
-
-VA - Talla 2XLC pres. Trance Forever (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC & Roger Shah - Perfection (Extended Mix) [5:57]
-02. Para X & Andy Jay Powell - Laser Sword (Extended Mix) [7:20]
-03. DJ Eternity - Believe In Miracles (Extended Mix) [7:44]
-04. Hemstock & Mercurial Virus feat. Tiff Lacey - Find Your Way (Extended Mix) [6:40](   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98DC336E92344124D60DEB702465F8F4826F3521
 ```
 
 https://mybot314.ru/tekegram_catalog/

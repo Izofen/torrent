@@ -1,3 +1,177 @@
+###  Публикация: 1705090   (63701) от 07.03.2024
+
+Joe Dassin - Поет Джо Дассен (1979) [FLAC 24/192|Lossless|tracks] <Chanson, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63701.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 сторона.
+01 - Если бы тебя не было. Et Si Tu N'existais Pas
+02 - Альбатрос. L'Albatros.
+03 - Моя музыка. Ma Musique.(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BBFEC264B1B1115A0EFE1B689924D0D57B2F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705171   (63690) от 07.03.2024
+
+Judas Priest - Invincible Shield (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panic Attack (5:26)
+02. The Serpent and the King (4:20)
+03. Invincible Shield (6:21)
+04. Devil in Disguise (4:47)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4971BAC26BAF4839995A3A1C30E8D35F3302F38C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705451   (63580) от 08.03.2024
+
+AC/DC - Who Made Who (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Made Who
+02. You Shook Me All Night Long
+03. D.T.
+04. Sink The Pink(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A43B5A18B2B72D0E640E1718A2FF66D3C1407EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705526   (63579) от 08.03.2024
+
+AC/DC - Blow Up Your Video (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Heatseeker"
+02. "That's the Way I Wanna Rock 'n' Roll"
+03. "Meanstreak"
+04. "Go Zone"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075C705BCA2F3F6C13764D529768BD184C40549E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705635   (63528) от 09.03.2024
+
+AC/DC - Rock or Bust (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Or Bust
+02. Play Ball
+03. Rock The Blues Away
+04. Miss Adventure(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32AF562F344693E295A567B0F9FBC6CCF73E2ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705601   (63496) от 09.03.2024
+
+Supertramp - The Very Best Of Supertramp (1990) 1992 [FLAC 24/192|Lossless|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye stranger (R.Davies, R.Hodson)
+02. The logical song (R.Davies, R.Hodson)
+03. Bloody well right (R.Davies, R.Hodson)
+04. Breakfast in America (R.Davies, R.Hodson)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472DAAD91B14667DFB7D10F2546CFED2FD43B79B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705609   (63484) от 09.03.2024
 
 ВИА «Веселые ребята» - Музыкальный глобус (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
@@ -571,180 +745,6 @@ Korn (стилизуется как KoЯn) — американская мета
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:975522801195F2D11115D9F03DE89BC096B0B21D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708540   (62237) от 21.03.2024
-
-Доктор Шлягер - То, что доктор прописал... (Песни Вячеслава Добрынина) (1990) [FLAC 24/96|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - То, что доктор прописал. (М.Рябинин)
-02 - Когда-нибудь. (С.Осиашвили)
-03 - Что скажешь - так и будет. (М.Рябинин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578F606D274EBC3C8A68FE28723E6589E60F8D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708562   (62226) от 21.03.2024
-
-Здравствуй, песня - Мы любим диско (1980) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Венера (Ван Леевен - М. Вереш)
-02-03. Огонь. Мы любим диско (А.Бедду, Л. Вандербильд)
-04. Ленивый ковбой (автор неизвестен)
-05. Я жду тебя (А. Челентано)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478A9071F84424DE6D33C5EBC3CF97A89F959DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708539   (62215) от 21.03.2024
-
-Yello - Baby (1991) 1992 [FLAC 24/192|Lossless|tracks] <Synth-Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A.
-01 - Homage To The Mountain.
-02 - Rubberbandman.
-03 - Jungle Bill.(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6FE613E3F711AC15D1E03EE2F017462ABF5828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708794   (62131) от 22.03.2024
-
-Scooter - Open Your Mind And Your Trousers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, Hard Trance, House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Thirty, Rough And Dirty
-02 – Rave & Shout (feat. Harris & Ford)
-03 – Posse Reloaded (feat. FiNCH)
-04 – Techno Is Back (feat. Harris & Ford)(   Читать дальше...   )Жанр: Techno, Hard Trance, HouseПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F4A82F6C89B84930085D79BC29EB15EAB43251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708901   (62109) от 22.03.2024
-
-Genesis - Selling England By The Pound (1973) SACD, Remastered, 2024, Analogue Productions [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dancing With The Moonlit Knight
-02 - I Know What I Like (In Your Wardrobe)
-03 - Firth Of Fifth
-04 - More Fool Me(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB092EAE230BA54224E8824490FFEF096C707D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709113   (62012) от 23.03.2024
-
-Электроклуб - Электроклуб-2 (Песни Давида Тухманова) (1989) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Темная лошадка (Л. Рубальская) — 3.15
-02. Схожу с ума — 4.40
-03. Дай мне слово — 3.35(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A889E1EFE95B4890D5CB31FF2B550A7EE1133F59
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1266560   (266727) от 06.12.2018
+
+Simonetti, Morante, Pignatelli - Tenebre (1982) The Complete Original Motion Picture Sound Track, 1997, CD [MP3|320 Kbps] <Electronic, Disco, Stage & Screen>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenebre (4:34)
+02. Gemini (3:12)
+03. Slow Circus (2:31)
+04. Lesbo (5:18)(   Читать дальше...   )Жанр: Electronic, Disco, Stage & ScreenПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B62ECBEE7005E5E7F716AC9DEFA5D879294F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339011   (266153) от 19.11.2019
 
 VA - All American Country Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Country, X-Mas>
@@ -714,35 +743,6 @@ Seymour Light Orchestra - That Ole Devil Called Love (1987) [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA80903DFB42EBE2CD64FB46B930B584ACA79DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340474   (262906) от 26.11.2019
-
-Imaginary Sound Project - Synthesizer Dreams - World Hits On Synthesizer (1991) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Day In Paradise - Phil Collins (3:52)
-02. Lady In Black - Ken Hensley (3:29)
-03. Bright Eyes - Mike Batt (4:04)
-04. To Love Somebody - B, M & R Gibb (4:38)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499F3B6FE375FAE1E4F5A84D5E6A4AA67925CF3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

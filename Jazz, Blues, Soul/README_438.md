@@ -1,3 +1,32 @@
+###  Публикация: 1642900   (234427) от 29.06.2023
+
+Lynn Cannon - Just Chillin'! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light‘emup! (4:34)
+02. Keeponmovin'! (4:23)
+03. Changeswillcome! (4:49)
+04. Stompn’&bumpn'! (4:41)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B254437441DEFB9985E36C8CFF59B2BC481D76FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642824   (234419) от 29.06.2023
 
 Out To Dinner - Episodes Of Grace (2022) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -716,35 +745,6 @@ Bill Heid - Dealin' Wid It (2022) Savant [FLAC|Lossless|tracks + .cue] <Soul-Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28DF5B535B22929810C008DD22A64A7E20D4ED82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644391   (234021) от 05.07.2023
-
-Louis Armstrong - Louis on Broadway (2023) [FLAC|Lossless|WEB-DL|tracks] <Early Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello, Dolly!
-02. Cabaret (Single Version)
-03. A Lot Of Livin' To Do
-04. You're The Top(   Читать дальше...   )Жанр: Early Jazz, SwingПродолжительность: 01:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B10D4087832F0C6520818B0FCC02F8ADBD4FFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

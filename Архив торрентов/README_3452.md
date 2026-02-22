@@ -1,3 +1,31 @@
+###  Публикация: 143075   (456705) от 28.09.2009
+
+Аарон Коннерс | Устройство "Пандора" [2009] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Остросюжетный роман американского писателя А. Коннерса - произведение очень красочное и динамичное, детективный сюжет которого развивается на фоне фантастической реальности.
+Роман написан автором на основе разработанной им же компьютерной игры, пользующейся большой популярностью в США и Европе.
+Погибший уфолог перед смертью успел надёжно спрятать чрезвычайно опасные (   Читать дальше...   )Жанр: Фантастика
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321606   (456702) от 25.08.2019
 
 Aiseesoft Data Recovery 1.1.18 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -679,41 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F0A8E7B13DA5D97DDEB7E116C9FD457520E6261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551250   (456283) от 23.09.2012
-
-VA - Vocal Trance Top 25 Vol.9 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456283.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Within Temptation - Sinead (Alex M.O.R.P.H. Extended Vocal Mix)
-002. Serge Devant feat. Emma Hewitt - Take Me With You
-003. Ruben de Ronde & Aelyn - She's Already Gone Vocal Mix
-004. Sebastian Ingrosso, Alesso & Ryan Tedder - Calling (Lose My Mind) (Extended Club Mix)
-005. Simone Anes feat. Abigail Bailey - Love Is A Battlefield (Original Mix)
-006. Snatt & Vix - At The End Of The Day (Original Mix)
-007. Stoneface & Terminal feat. Ellie Lawson - Breaking Through (Club Mix)
-008. Sunlounger feat. Zara Taylor - Try To Be Love (Original Balearic Summer Mix)
-009. Susana Rex Mundi - All Time Low (Original Mix)
-010. Tritonal feat. Jeza - Can't Keep It In (Tritonal Club Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9003C11F5D65D7CEE96E473F7CB45B2FA12671
 ```
 
 https://mybot314.ru/tekegram_catalog/

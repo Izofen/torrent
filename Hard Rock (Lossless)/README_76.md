@@ -1,3 +1,30 @@
+###  Публикация: 1645509   (232815) от 09.07.2023
+
+King Weird - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Sludge, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232815.jpg" />
+</div>
+
+
+###  Подробнее
+
+2021 - King Weird
+2023 - Lucid DreamЖанр: Heavy, Sludge, Prog RockПродолжительность: 2 CD, 01:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3334B82250392D08C5213D62BF343A0F7F694A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639515   (232783) от 13.06.2023
 
 Voodoo Trees - Ego Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Garage, Bluesy>
@@ -716,35 +743,6 @@ Supremacy - Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3A47A21110E3C42B704C955F6395101C00B6B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647455   (231688) от 18.07.2023
-
-Avi Rosenfeld - Lions II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Param Dushpara (3:41)
-02. Thunder in the Sky (4:15)
-03. Don't Need No Sad News Story (4:12)
-04. Once He Cried to the Moon (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD258D5B0F5B0D96B419C49EB71A94DB34016600
 ```
 
 https://mybot314.ru/tekegram_catalog/

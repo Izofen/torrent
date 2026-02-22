@@ -1,3 +1,32 @@
+###  Публикация: 1210957   (778273) от 05.03.2018
+
+Terry Gibbs - A Jazz Band Ball, Second Set (1957) 1998, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dipsy Doodle [03:34]
+02. Where Or When [03:45]
+03. I'm Getting Sentimental Over You [04:02]
+04. Hollywood Blues [04:59](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F39B8D78837C089C3A8AF37084AC27D4796F2D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211007   (778270) от 05.03.2018
 
 Curtis Fuller - Smokin' (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
@@ -716,35 +745,6 @@ Moacir Santos - Maestro (1972) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15325739E5AC39C6AF9AFC9AA84BF31EE6AD971F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014111   (776964) от 06.05.2016
-
-Shirley Scott - Something (1970) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Games People Play [03:53]
- 02.Because [03:47]
- 03.Can I Change My Mind [02:58]
- 04.Someday We'll Be Together [03:05](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75FB7CC29470B1C5B7629B5616754AE645879D0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

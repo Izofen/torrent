@@ -1,3 +1,88 @@
+###  Публикация: 1742333   (47148) от 11.08.2024
+
+VA - Top 100 Songs of 2024 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47148.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Benson Boone - Beautiful Things (3:00)
+002. Dua Lipa - Training Season (3:29)
+003. Zach Bryan - 28 (3:53)
+004. Charli XCX - 360 (2:13)(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBBE1EA6C47A8E562E7DBF98B18DA24E5B0AC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742699   (47023) от 12.08.2024
+
+Niel De One - Retrospectiva (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niel De One - Retrospectiva (Original Mix)
+02. Niel De One - Retrospectiva (Funk Mix)Жанр: Nu Disco, DiscoПродолжительность: 00:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9962CA6627B4A17676B39DB3E96C0B8C191F625A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742703   (46919) от 13.08.2024
+
+Слава - The Best (2007) [WavPack|Lossless|image + .cue] <Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бабье Лето
+ 02. Классный
+ 03. Восьмерка На Нули
+ 04. Люблю Или Ненавижу(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB7D1A7791356D9C70059E725A02093B8D0C2925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742274   (46827) от 14.08.2024
 
 Луна - Мечты (2024) [MP3|320 Kbps] <Pop, Electronic>
@@ -658,93 +743,6 @@ Nancy Sinatra - Nancy In London (1995) Definitive Reissue, 2024, Boots Enterpris
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC6848BAE21F3FB63AB4B327E278628A6D3F7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748691   (43876) от 11.09.2024
-
-VA - DJ Hits Vol. 888 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilli feat. Carrapicho - Tic Tic Tac
-02. Sash! Feat. Rodriguez - Equador
-03. Gala - Everyone Has Inside
-04. Daniel Aminati - I Want You Back(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D700DFEED079F5A2DB25B3D26AAC097C52E723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748835   (43863) от 11.09.2024
-
-Amadeus Liszt - The Collection (Original Mike Mareen Master Tape Series) (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Donna (Oh Wie So Trügerisch) (6:26)
-02. Only Time (4:08)
-03. Win The Race (Maxi Version) (8:02)
-04. Get The Groove (7:31)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCDC139C7A19E1A556C084F6EFE60DB03A6B6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748775   (43774) от 12.09.2024
-
-VA - DJ Hits Vol. 999 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sash - Ecuador
-02. Dj Quicksilver - Free
-03. Naln & Kane - Beachball
-04. Red 5 - Lift Me Up(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF1B39F6B98CF2B4509050D82A3794687060EF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

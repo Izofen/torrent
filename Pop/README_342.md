@@ -1,3 +1,90 @@
+###  Публикация: 1779636   (70627) от 14.02.2025
+
+Юлия Коган - Соло на нервах (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70627.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Соло на нервах
+2. Таблетка
+3. Быть для тебя
+4. Влюбились и выжили(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:138C0C8891AC00A196443BA15C7C8AE6B0B3C469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779216   (70567) от 15.02.2025
+
+VA - Billboard Top Hits 1977 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heatwave - Boogie Nights
+02. Alan O'Day - Undercover Angel
+03. Daryl Hall And John Oates - Rich Girl
+04. Peter Frampton - I'm In You(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4491ED213700004BC81C11888F63EEE0686BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780051   (70555) от 16.02.2025
+
+V.A. - Viva Italia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gino Santi - Tornero
+02. Claudia Donato - Se Ne Va
+03. Angela Amico - Andiamo Via
+04. Umberto Mariotta - Grande Grande Grande(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2EB3A568F7AE2B570EA31A1AE999F6D465C7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779288   (70540) от 16.02.2025
 
 VA - Billboard Top Hits 1978 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
@@ -658,93 +745,6 @@ VA - One Shot '80 Volume 18 (2006) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:597821DE14CEBFD73A10D774E98686204FC8BC3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784193   (69633) от 09.03.2025
-
-VA - One Shot '80 Volume 19 (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bandolero - Paris Latino
-02. Mike Oldfield - Foreign Affair
-03. Doctor & The Medics - Spirit In The Sky
-04. The Belle Stars - Iko Iko(   Читать дальше...   )Жанр: Rock, Pop, Pop Rock, Synth-popПродолжительность: 01:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37939F605989B1F2A3770A0CB531E424F2F49820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784729   (69540) от 12.03.2025
-
-Heidi Montag - Superficial (2010) Anniversary Edition, 2025, Pratt Productions [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look How I'm Doin [00:03:28]
-02. Turn Ya Head [00:03:37]
-03. Fanatic [00:03:25]
-04. Superficial [00:03:08](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7989613652ABF4F1DD01024486792258AA8AC3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784934   (69517) от 13.03.2025
-
-ТУ-134 - Ненаглядная (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ненаглядная [00:03:28]
-02 - Без любви твоей [00:03:10]
-03 - Замело [00:03:35]
-04 - Даже если на небе [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81F45D292A6C5A0EE0A7A110696FB166FCC1A80
 ```
 
 https://mybot314.ru/tekegram_catalog/

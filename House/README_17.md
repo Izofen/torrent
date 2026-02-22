@@ -1,3 +1,90 @@
+###  Публикация: 1109552   (857486) от 28.02.2017
+
+VA - All Good In The Hood Vol.2: 20 Groove Monsters (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857486.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Frank Richmond - Mirror Of Truth 3:09
+002. Gee Lovers - Cops And Robbers 3:24
+003. Jonathan Goldman - Outside The Lines 3:13
+004. 6th Floor Groove Ensemble - Party Girls 2:55(   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C9C8CC27E49B8CEB8E4F36FFC33F067DA0C7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109597   (857460) от 28.02.2017
+
+VA - Re Confirmed: Deep House Selection Vol.2 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bunched - Ame?lie's Symphony - Fabian Schumann Remix 6:32
+002. Joe Pycasso - Feel Love - Original Mix 8:21
+003. James Rod - Lipstick 78 - Schwarz 100 Remix 5:40
+004. Q Narongwate - Local Talk - Original Mix 5:42(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB91B2645C9C1677390A2A9F4F27077F6ABF0C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109702   (857456) от 28.02.2017
+
+VA - Only Tech House Tracks Vol.6 (Weekend Weapons) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max Sabatini - Keep The Beat (Tony Puccio Remix)  5:38
+02.  Jens Mueller - Freshness (Original Mix)  7:18
+03.  Joseph Matera - Boca (Giulio Lnt Remix)  6:39
+04.  Alex Raimondi - White Lake (Max Sabatini & Alex B Remix)  6:07(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794E668A980684AE45FAA72B522B957065E88B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109554   (857449) от 28.02.2017
 
 VA - Deep House Warm Up (2017) [MP3|320 Kbps] <Deep House>
@@ -686,94 +773,6 @@ VA - House Music All Night Long - Volume 3 (2011) [MP3|320 kbps]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8B66FAA9F71BD1FBCC5569648FE0A9F8F1E7007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875309   (852862) от 09.03.2015
-
-VA - Anjunadeep pres. Deep House 02 (2014) [MP3|256 кб/с]<Progressive House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Dusky - Mr Man
-02. Lane 8 - Be Mine
-03. Davi - The Bay 6, Pt. 2
-04. Lancelot - Givin' It Up (feat. Antony & Cleopatra)
-05. Beckwith - Back To Love (feat. Catherine Porter)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2684C8D964044DF2D9FF5655B3235162DD4BA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498720   (852424) от 29.09.2021
-
-VA - House vs. Deep House Show Love (2021) [MP3|320 Kbps] <House, Deep House, TechHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RaviGauly - House Of Shiva (Full Moon Mix)
-02. Trip2 Universe - Fake Reality (Original Mix)
-03. WiNeSk feat. Carmen Miller - Business (Original Mix)
-04. Thomas Dur - One Way (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, TechHouseПродолжительность: 02:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCBA4555498A6933225629D11C188D4DFA25A49E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110789   (852272) от 03.03.2017
-
-VA - Enhanced Miami (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tritonal & Sj ft. Emma Gatsby - Hung Up (Original Mix)  3:40
-02.  LEVV - Collateral Damage (Original Mix)  4:25
-03.  Vanrip - Find Your Love (Original Mix)  2:57
-04.  No Way Back - Minute (Original Mix) (feat. Sophia Black)  3:40(   Читать дальше...   )Жанр: HouseПродолжительность: 03:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93733253A480F4B86E760CFADE183C3DBC1DF37
 ```
 
 https://mybot314.ru/tekegram_catalog/

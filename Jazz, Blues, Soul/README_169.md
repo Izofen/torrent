@@ -1,3 +1,90 @@
+###  Публикация: 1207958   (780228) от 20.02.2018
+
+VA - Slide Guitar Blues (2018) [MP3|320 Kbps] <Blues, Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chuck E. Weiss - Devil With Blue Suede Shoes (5:00)
+02. Kelly Joe Phelps - House Carpenter (6:43)
+03. John Hammond - Shake Your Money Maker (1:58)
+04. Delaney & Bonnie & Friends - Come On In My Kitchen - Mama, He Treats Your Daughter Mean Going Down The Road Feeling Bad (4:15)(   Читать дальше...   )Жанр: Blues, Electric Blues, Blues RockПродолжительность: 01:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159D9FE89D868F1A5F6B58DF3EFE46B8AFD4C4A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208184   (780132) от 21.02.2018
+
+Mose Allison - Ramblin' With Mose (1958) 2005, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got A Right To Cry [02:52]
+02. Old Devil Moon [05:11]
+03. The Minstrels [03:31]
+04. You Belong To Me [04:24](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D82A760D2C53022D7A0FFB1770C372FF30CCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208192   (780131) от 21.02.2018
+
+Billy Childs - Rebirth (2017) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backwards Bop [06:38]
+02. Rebirth [07:39]
+03. Stay [05:59]
+04. Dance of Shiva [06:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF92CC8983AF6F0EE753A2F2FDDA423342F9438D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208181   (780130) от 21.02.2018
 
 The Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) 2011, EMI Music [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
@@ -657,93 +744,6 @@ The Big Blue House - Binne my (2018) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7507A50ED230AAD7173E1542861E6D24639C63B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209191   (779519) от 25.02.2018
-
-Janiva Magness - Love Is An Army (2018) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To Blue
-02. Hammer (ft. Charlie Musselwhite)
-03. On And On (ft. Rusty Young)
-04. Tell Me(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB67500BE59FBC4E880E8680FC82D1033BAD9A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209433   (779396) от 26.02.2018
-
-Vince Vallicelli Band (feat. James Thompson) - New Blues (2004) LM Records [MP3|320 Kbps] <Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винс Валличелли родился в Форли в 1951 году. Его увлечение музыкой началось в пятнадцать лет, именно тогда, музыкальные ритмы блюза начинают его отвлекать от всех остальных интересов. В этот же период он решил поступить в Консерваторию Пезаро "Джоаккино Россини", где начинает посещать курс перкуссии, и вскоре Винс формируя свою первую группу "CENTURY (   Читать дальше...   )01. New Blues 4:39
-02. Watermelon Man 8:27
-03. Night Train 7:47
-04. Whisky and Women 9:42(   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339523BE45079962CD95B539E16E00F0E611C051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209670   (779146) от 28.02.2018
-
-Amanda Ginsburg - Jag har funderat pa en sak (2018) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I de manga valens land (4:09)
-02. Vem ar du? (4:20)
-03. En romantisk komedi (2:07)
-04. Flykten fran vardagen (feat. Nils Landgren) (4:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552814170AD452FC25A6BBEE37B7A773EA9D65A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

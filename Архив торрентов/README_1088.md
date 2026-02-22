@@ -1,3 +1,30 @@
+###  Публикация: 292956   (905620) от 08.02.2011
+
+Журнал | Автомир [Украина] №6 (февраль 2011) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Автомир — специализированное автомобильное издание, целиком посвященное миру автомобилей.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, что с ними связаноФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 292316   (905618) от 08.02.2011
 
 Дети Моаи / Children of the Moai (2003) HD [1080i]
@@ -692,41 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C0AF3E1CBC3D70BD3D3C7A529853C0DA78820C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293086   (905539) от 08.02.2011
-
-VA - Bedtime Stories Vol.2: A One Night Lounge Affair (2011) [MP3|320 kbps]<Lounge, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Above The Sky - India (Original Mix) (4:08)
-02. Jonas Lores - Bali (Original Mix) (5:21)
-03. Sofie Lane - Heal the Pain (Original Mix) (5:15)
-04. Philip Ropero - Deep Blue Sea (Original Mix) (7:18)
-05. Leila Evans - Chamka (Original Mix) (4:44)
-06. Donia - Eivissa (Original Mix) (5:11)
-07. Georgina Smith - Love (Original Mix) (4:43)
-08. Benirras - Ghost In a Bottle (Original Mix) (4:37)
-09. Mellie O Neil - Rainy Days (Original Mix) (4:11)
-10. Adelaine Simmons - The Groove (Original Mix) (4:12)(   Читать дальше...)Жанр: Lounge, DowntempoПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C1950B157E0DBAED4ADF989FD322A2E2995EAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

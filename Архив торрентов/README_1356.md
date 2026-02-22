@@ -1,3 +1,29 @@
+###  Публикация: 187216   (877213) от 28.03.2010
+
+VA - Музыкальный Звездопад (2010) [MP3|256 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 187481   (877212) от 28.03.2010
 
 VA - Зарубежный вояж (2010) [MP3|128 kbps]<Pop,Eurodance>
@@ -660,34 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ###  Подробнее
 
 Маркос видит во сне смерть своего брата Лукаса. Через несколько дней Лукас, действительно, погибает. Маркос, мучаясь оттого, что не смог предотвратить трагедию, решает переехать в Сан-Паулу. Едва приехав в большой город, он сталкивается с девушкой Соней, которая, по мнению Маркоса, предназначена ему судьбой.Жанр: МелодрамаРежиссер: Роберто ТалмаАктеры: Malvino Salvador - Camilo de Oliveira,    Fernanda Souza - Carola Ribeiro de Sousa de Almeida Santos,   Dalton Vigh - Clóvis Moura,   Rodrigo Faro - Tainha,   Luigi Baricelli - Flávio Leite,   Paula Burlamaqui - Teresa Ribeiro Guimarães Leite,   Samara Felippo - Wanda Carvalho,   Neusa Maria Faro - Teodora,   Mário Gomes Ernesto da Silva,   Rosi Campos Madame Rúbia da Silva,   Vera Zimmermann Estér Oliveira,   Maurício Mattar Henrique,   Rodrigo Phavanello Arnaldo de Almeida Santos,   Juliana Didone Baby (Bárbara de Oliveira),   Fernanda Rodrigues Giséle da Silva ("Gigéle"),   Simone Spoladore Luci Carvalho,   Giselle Itié Sabine Levy,   Carolina Kasting Laura Moura,   Castro Gonzaga Dr. Klaus Becker,   Andréa Avancini Edite,   Daniel Ávila Tony (Antônio Ribeiro de Souza),   Simone Soares Zélia de Castro Andrade,   Juliana Baroni Miriam Carvalho,   Henrique Ramiro Lucas de Oliveira,   Arlete Montenegro Filomena Moura,   Jandir Ferrari Delegado Régis Moreira,   José D'Artagnan (   Читать дальше...)Перевод: Многоголосый закадровый
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187080   (877132) от 28.03.2010
-
-Discovery: Выжить любой ценой: Гватемала [4 сезон|2 серия] / Ultimate Survival: Guatemala (2010) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любите природу и путешествия? Не спешите с ответом. Сначала попробуйте остаться с ней один на один в самых неподходящих для лирики условиях, как это сделал ведущий передачи Discovery Channel «Выжить любой ценой». Беар Гриллc, в прошлом спецназовец SAS (Special Air Service) и покоритель Эвереста, путешествует по диким и опасным уголкам планеты, демонстрируя навыки выживания в экстремальных условияях.
-
-Беар Гриллс — специалист по выживанию, бывший солдат британского спецназа SAS, показывает как надо себя вести в ситуациях, когда вы оказались в диких местах при авиа- или морском крушении или как потерявшийся турист. При себе он обычно имеет нож, флягу с водой и огниво (иногда веревку или парашют). В передаче показываются навыки ориентирования на местности, добывания пищи, постройка простого жилья и поиск воды. В последних сезонах присутствуют эпизоды, где Беар Гриллс проводит время с местными племенами тех мест, где проходят съемки и учится у них навыкам выживания. На пути Беара будут вставать: скорпионы, каракурты, (   Читать дальше...)Жанр: Документальный, ВыживаниеРежиссер: Майк ВарнерВ ролях: Беар ГриллcПеревод: Профессиональный (одноголосый)
 
 ## Скачать торент
 ```bash

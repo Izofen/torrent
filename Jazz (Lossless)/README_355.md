@@ -1,32 +1,3 @@
-###  Публикация: 1736359   (106692) от 12.07.2024
-
-Miles Davis - Miles In Tokyo (1964) 2005, Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction by Teruo Isono (Live) [1:10]
-02. If I Were A Bell [10:17]
-03. My Funny Valentine [12:50]
-04. So What [8:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B326D86AF1FF8D10DA99F3BC48511568851793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736437   (106685) от 12.07.2024
 
 VA - Lounge Playlist for a Picturesque Retreat to Rejuvenate Your Body and Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -745,6 +716,35 @@ Saxtribution - Refreshing Soothing Saxophone Classics (2024) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25DF1526EA4B818E53013DF29D6B19C36B1205BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738401   (106294) от 23.07.2024
+
+Saxtribution - Relaxing Smooth Saxophone Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between the Sheets (4:01)
+02. Have You Seen Her (4:38)
+03. Just The Two Of Us (3:52)
+04. Free (2:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B4A941F04E21680E3D5D1018049F39BF997ABC
 ```
 
 https://mybot314.ru/tekegram_catalog/

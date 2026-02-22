@@ -1,3 +1,32 @@
+###  Публикация: 1552603   (233801) от 21.05.2022
+
+VA - Свежий Русский Хит от ALEXnROCK часть 10 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение сборника свежей попсы. В него вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2022 год. Это 10я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Шамиль Кашешов - Люби (Dj Ikonnikov E.x.c Version)
+02. Doni, Intellegent, Zvika Brand - Банда
+03. Глюкоза - Пати Экзотика
+04. Filatov & Karas, Лигалайз - Будущие Мамы 2.0(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D89848E45C89F4ABCC2AF5491089C7BFEA8C4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581574   (231029) от 06.10.2022
 
 VA - Осень на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -740,35 +769,6 @@ VA - Русские свежаки радиостанций. Топ новино
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15F91CFC85BD565214CED135D6BC578964D1D713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343130   (219594) от 05.12.2019
-
-VA - Golden Hits Of Soulful Dynamics / Disco (2019) [MP3|320 Kbps] <Dance Disco, Pop, Disco House, Funky>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219594.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Double B - Disco Modulations
-002. 2lovers - El Sol (Radio Mix)
-003. Antoine Clamaran - Tonight (Original Mix)
-004. Luca Debonaire & Crazibiza - Dance (Crazibiza Mia Mix)(   Читать дальше...   )Жанр: Dance Disco, Pop, Disco House, FunkyПродолжительность: 12:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0755DF0AE03F42E6A5287343EDA165F202A9C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

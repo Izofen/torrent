@@ -1,3 +1,31 @@
+###  Публикация: 1366456   (922481) от 12.03.2020
+
+State Cows - 2 альбома (2010-2013) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2010 - State Cows
+2013 - The Second OneЖанр: Westcoast, AORПродолжительность: 02:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2324BC3F1B715D830D0EB23010C02E29DF57B640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096273   (920860) от 23.01.2017
 
 Gotthard - Silver (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -725,36 +753,6 @@ Motley Crue - Dr. Feelgood (1989) 20th Anniversary Expanded Edition, Japan SHM-C
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866864   (906356) от 06.02.2015
-
-David Lee Roth - Greatest Hits (2013) The Deluxe Edition [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. California Girls
-02. Just A Gigolo
-03. Easy Street
-04. Coconut Grove
-05. Just Like Paradise(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13053F813CA8B2D0E9D4164CC0D394811CCC6DE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

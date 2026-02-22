@@ -1,3 +1,32 @@
+###  Публикация: 1589941   (189456) от 12.11.2022
+
+The Chapter - 3 Albums (2006-2022) [MP3|320 Kbps] <Doom, Death, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2006 - Into the Abyss
+2017 - Angels & Demons
+2022 - Delusion of ConsciousnessЖанр: Doom, Death, Gothic MetalПродолжительность: 3 CD, 01:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AF3FE26E6C1A1588087E180EB93F33D65ED777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660399   (189398) от 13.09.2023
 
 I Am Your God - The Resurrection (2020) [MP3|320 Kbps] <Melodic Death Metal, Power Metal, Metalcore>
@@ -712,35 +741,6 @@ Foreign - The Symphony Of The Wandering Jew Part II (2020) [MP3|320 Kbps] <Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:576D843291ACBEBD87F1EB5A821E9F267EA796EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428706   (179206) от 03.12.2020
-
-Majestica - A Christmas Carol (2020) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Christmas Carol (01:44)
- 02. A Christmas Story (05:02)
- 03. Ghost of Marley (04:39)
- 04. Ghost of Christmas Past (05:09)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25E39BC7C8FC153DB0722AE3FEA8BEBD90A69B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1726552   (108695) от 29.05.2024
+
+VA - Footsteps On The Dancefloor, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4brownbottles - My Memories (02:57)
+02. VarZet - Flashback (Extended Mix) (02:52)
+03. Narra - Bodyrock (04:52)
+04. MVRTK, Zeead & Leon3s - Your Love (02:12)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51EF801ACC93317DE3E84096156A463F250C3768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727039   (108576) от 01.06.2024
+
+VA - Summer Body Fit 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disciple Beats - Get Down The Business (Original Mix) [02:46]
+02. Jayson Brown - Wast Your Life (Original Mix) [02:42]
+03. Black Shivers - Stay Alive (Original Mix) [02:50]
+04. Stasy Brown - Round & Round (Original Mix) [02:45](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE56534F188A4CB92078B867C9603E6FD7B7B372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727022   (108574) от 01.06.2024
+
+VA - Armada Chill - Summer 2024 (2024) [MP3|320 Kbps] <Deep House, Melodic House & Techno, Organic House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GoldFish & Malou - If Summer Was A Sound (Extended Mix) [5:41]
+02. Heard Right - Far Away (Extended Mix) [5:14]
+03. Polar Inc. - Cassell (Extended Mix) [6:43]
+04. DJ San feat. Belle Doron - Where Are You Now (Extended Mix) [6:12](   Читать дальше...   )Жанр: Deep House, Melodic House & Techno, Organic House, DanceПродолжительность: 03:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A3A9069B292E1217C847D2484863C5EC6208D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727179   (108554) от 01.06.2024
 
 VA - Ibiza Chilled Nights (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -655,93 +742,6 @@ VA - EDM Dance Summer 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDFE00907D110D249655B6D58EE7E368C30381BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740483   (105819) от 02.08.2024
-
-VA - Burning Mountain - Secret Garden Session (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron Khaleian & Ambient Pino - Gobi (Original Mix) [6:24]
-02. Ambient Pino & Alok (IBZ) - Meu Grande Amor (Original Mix) [6:01]
-03. Aaron Suiss & Marcus Meinhardt - 2gether (Original Mix) [7:17]
-04. Umloud - Skyline (Original Mix) [8:01](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D73FD01801E4AFF78BBB1AF2F0C7E4AD87B9161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740695   (105810) от 03.08.2024
-
-VA - IBIZA SUMMER 2024 - Best Electronic Music [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105810.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nerutto  - Aquarius (Antua Hale Remix)(6:19)
-002. Mike Suntower - Absolute Zero (Arouse Dreams Remix) (4:56)
-003. Sub Chunk - Give Me A Minute (Original Mix) (6:34)
-004. 5udo - Subaru (Original Mix) (7:44)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C584C9277B9BE88C250614399ACA1F6B24DEB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740805   (105786) от 03.08.2024
-
-VA - 40 Dance Summer Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JLUIS - Parachute [02:48]
-02. Dani Corbalan - Addicted To You [02:24]
-03. Rene Rodrigezz - Call It Love [02:30]
-04. Stephan F - No Broken Heart [03:09](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DEAC20485F8241DB6B37089C074040130FD3247
 ```
 
 https://mybot314.ru/tekegram_catalog/

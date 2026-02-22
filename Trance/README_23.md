@@ -1,3 +1,32 @@
+###  Публикация: 1237550   (551587) от 24.07.2018
+
+VA - Suanda Ibiza (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Roman Messer ft. Christina Novelli - Fireflies (Extended Mix)
+02.LTN - Coconut Island (Extended Mix)
+03.Attila Syah vs J.Puchler & Xpectra ft. Joanna Angelina - Forever (Original Mix)
+04.HamzeH - A Thousand Times Over (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE282F73DD1E788D045A0A892B422C40E8717F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309475   (551139) от 19.06.2019
 
 VA - Summer Hits (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive Trance>
@@ -716,35 +745,6 @@ VA - FSOE pres. Ibiza (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1993AA073B4172B72AE0643023AA9E645308902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240111   (531398) от 09.08.2018
-
-VA - Infrasonic Summer Selection (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milad E – Intension (Extended Mix)
-02. Nikhil Prakash – Chasing Stars (Extended Mix)
-03. Athom & Nuestro – Space Odyssey (Extended Mix)
-04. Arggic – Dreamyness (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673570992842E06E7D112D7EF112F4FA76FE3F00
 ```
 
 https://mybot314.ru/tekegram_catalog/

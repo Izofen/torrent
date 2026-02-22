@@ -1,32 +1,3 @@
-###  Публикация: 1342273   (225948) от 01.12.2019
-
-Aging - Suitable For Night (2017) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Jazz Noir, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doused In The Moon (10:32)
-02. Suitable For Night (6:09)
-03. The Kiss of Wet Asphalt (7:50)
-04. Ballade pour ma Bête Noire (9:10)Производство: Tombed Visions - TV44Жанр: Doom Jazz, Jazz Noir, Experimental, AmbientПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCFCF1D0C9D91244F5AB198BFEE0466C671EC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649789   (225877) от 02.08.2023
 
 Frank Wess, Kenny Burrell, Joe Newman - Jazz For Playboys (1956, 1957) 2000, Savoy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -785,6 +756,41 @@ VA - Jazz Legends - Divas (2002) 2CD [FLAC|Lossless]<Jazz, Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EA86BEC4DDF8A4FED41F817404A071C87B2CD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852047   (223562) от 21.12.2014
+
+VA - Venus Jazz Lounge - Relaxin' Afternoon Tea Time (2012) 2CD [APE|Lossless]<Jazz, Bop, Cool Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Kenny Barron Trio -  Cleopatra's Dream  (3:56)
+02.  Scott Hamilton & Ken Peplowski -  Autumn Leaves  (5:13)
+03.  Sally Night -  Day In Day Out  (4:54)
+04.  Dick Hyman Trio -  My Favorite Things  (6:24)
+05.  Alexis Cole -  Let Me Be Good To You  (4:45)
+06.  Cedar Walton Trio -  Around The World  (4:51)
+07.  Tessa Souter -  Dance With Me  (5:02)
+08.  Brian Lynch Afro Cuban Jazz Orchestra -  Your've Changed  (7:17)
+09.  Harold Mabern Trio -  Blue Bossa  (5:50)
+10.  Francesco Cafiso New York Quartet -  Lullaby Of Birdland  (7:55)(   Читать дальше...   )Жанр: Jazz, Bop, Cool Jazz, Mainstream JazzПродолжительность: 02:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9464969A72DB00D5B9F0BEBA2ED5AC2EC5EC3195
 ```
 
 https://mybot314.ru/tekegram_catalog/

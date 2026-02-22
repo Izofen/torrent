@@ -1,3 +1,32 @@
+###  Публикация: 1066591   (410084) от 27.10.2016
+
+Anatomic - In For The Thrill (2000) [APE|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until You're Gone 04:20
+02. Drift Away 03:33
+03. Deep End 03:41
+04. Out of My Heart 06:07(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0088C19CE6DBFC79195F8783876520187ECA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066593   (410083) от 27.10.2016
 
 Asphalt Valentine - Strip Rock Roll (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -720,35 +749,6 @@ Place Vendome - проект в который входят бывший вок�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A15142409C3B2AB3E3E9A4F0CEAEA31926797B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175404   (378466) от 18.10.2017
-
-Atomic Rooster - 11 альбомов, 25CD (1970-2016) [FLAC|Lossless|image + .cue, tracks + .cue] <Prog-Rock, Psychedelic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Atomic Rooster — британская рок-группа, образовавшаяся в 1969 году в Лондоне, Англия, и исполнявшая прогрессивный рок. Клавишник Винсент Крейн, единственный постоянный участник группы, был и автором большей части её песенного материала. Три первых альбома Atomic Rooster входили в UK Albums Chart, два сингла группы («Tomorrow Night», #11и «Devil’s Answer», #4) становились (   Читать дальше...   )Список альбомов:
-1970 | Atomic Ro-o-oster
-1970 | Death Walks Behind You
-1971 | In Hearing Of(   Читать дальше...   )Жанр: Prog-Rock, Psychedelic Rock, Hard Rock |Продолжительность: 23:10:08 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B140319C0344511F5C0929E5FF121EB42512ED74
 ```
 
 https://mybot314.ru/tekegram_catalog/

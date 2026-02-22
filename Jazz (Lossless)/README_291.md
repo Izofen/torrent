@@ -1,32 +1,3 @@
-###  Публикация: 1642490   (210350) от 27.06.2023
-
-VA - Sax & Romance (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella Fitzgerald - Dream A Little Dream Of Me (Single Version) (3:08)
-02. Jo Stafford - You Belong To Me (3:14)
-03. Dinah Washington - What A Difference A Day Made (2:28)
-04. Buddy Holly - True Love Ways (2:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28A11B3DBBC746B25EEC88842822CF46A312805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642590   (210243) от 28.06.2023
 
 Dexter Gordon Quartet - Swiss Nights, Vol.3 (1975) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -745,6 +716,35 @@ Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.2 (1953)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:552FBA4295C50AD6B73B37BCE2E043CA141A1333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656292   (203296) от 30.08.2023
+
+Wardell Gray - 1946 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dell's Bells [2:55]
+02. One For Prez [3:11]
+03. The Man I Love [3:05]
+04. Easy Swing [3:01](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57036E7F73F24BABA927A611768F07592C91DD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

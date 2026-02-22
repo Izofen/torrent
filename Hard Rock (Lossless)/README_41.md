@@ -1,3 +1,32 @@
+###  Публикация: 1295413   (613190) от 16.04.2019
+
+Scorpions - The Best Of (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien Nation
+02. No Pain No Gain
+03. Rhythm of Love
+04. Big City Nights(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B088B80AE7777EA5E83588B48E72D7B3F650770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545485   (613158) от 20.04.2022
 
 Ronnie Romero - Raised On Radio (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -716,35 +745,6 @@ Mott the Hoople - британская рок-группа, образованн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E3C1943816B7F1987B620391B7DEEEBAA32210E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298588   (601671) от 28.04.2019
-
-Grand Funk Railroad - 24 albums, 3 Box sets, 64 CD (1969-2017) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Boogie Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grand Funk Railroad (или Grand Funk) — американская хард-рок-группа, образованная в 1969 году. В течение 1969—1972 годов пять альбомов GFR стали платиновыми (остальные три — золотыми); общий альбомный тираж группы в 70-х годах составил более 25 миллионов[1]. Grand Funk Railroad исполняли предельно упрощённый, но оглушительно-громкий вариант блюз-рока; впоследствии (   Читать дальше...   )--------------------------
-
-01. Footstompin' Music (4:08)
-02. Rock 'N' Roll Soul  (4:04)(   Читать дальше...   )Жанр: Hard Rock, Boogie Rock, Blues Rock |Продолжительность: 56:54:51 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4887D5CABC2770C0A1F45D59660E26DF3E19CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

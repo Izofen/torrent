@@ -1,3 +1,96 @@
+###  Публикация: 768341   (860423) от 20.03.2014
+
+Jim Byrnes - St. Louis Time (2014) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I Get Evil
+02. Somebody Lied
+03. Nadine
+04. Old Dogs, New Tricks
+05. You'll Miss Me (When I'm Gone)
+06. The Duck's Yas Yas Yas
+07. The Journey Home
+08. St. Louis Blues
+09. Cake Alley
+10. I Need A Change(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC48F465683FF7742B1AF7633583BE155443A653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376182   (860376) от 17.04.2020
+
+The Penitent Man - The Penitent Man (2020) [MP3|320 Kbps] <Heavy Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Devil Was Christ [00:10:46]
+02 - Purple Kiss [00:05:42]
+03 - Stone [00:08:44]
+04 - Buffalo [00:09:36]Жанр: Heavy Blues RockПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848C309F445484207D82B6BE403963A16646B1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376162   (860238) от 17.04.2020
+
+Fiona Apple - Fetch the Bolt Cutters (2020) [FLAC|Lossless|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You to Love Me (03:57)
+02. Shameika (04:08)
+03. Fetch the Bolt Cutters (04:58)
+04. Under the Table (03:21)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A656C2148496A8F92A20AC23A52762CF18FEEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 304492   (860148) от 05.03.2011
 
 Patrice Rushen - Straight From The Heart (1982) [WavPack|Lossless]<R&B, Funk, Soul>
@@ -695,96 +788,6 @@ Weather Report - Live and Unreleased 2CD (2002) [FLAC|Lossless]<Jazz, Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B32809A3A23E91C48FA8B53184C83192C59035B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304406   (858751) от 06.03.2011
-
-G. Love - Fixin' To Die (2011) [FLAC|Lossless]<Blues, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Fixin' to DieЖанр: Blues, CountryПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647084   (858708) от 22.04.2013
-
-V.A. - Sax Chill Out Vol. 3 (2011) [MP3|320 кб/с]<Jazz, Sax, ChillOut>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Moon River
-02. Memory
-03. Just the Way You Are
-04. Nuages
-05. A Whiter Shade of Pale
-06. Fly Me to the Moon
-07. Magdalena
-08. Still
-09. A Little Thing
-10. I Write the Songs(   Читать дальше...   )Жанр: Jazz, Sax, ChillOutПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004235EF7872C49ABB932FB5D0D20ED1A41894C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498302   (858179) от 26.09.2021
-
-Art Foxall - Blue Fox (1992) Audio Daddio [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That One Thing Was You [5:26]
-02. Blue Fox [7:37]
-03. Tory Train [4:50]
-04. September Song [6:42](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5B3863689AFF9259BFF3D68BDF64E7813F9CAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

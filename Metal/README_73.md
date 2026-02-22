@@ -1,3 +1,32 @@
+###  Публикация: 928807   (521791) от 17.08.2015
+
+Plenty Of Nails - Aus Schatten Gerissen (2014) [MP3|320 кб/с]<Doom Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521791.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Der Gleisschlitzer
+2. Tiefer
+3. Memorandum
+4. Der Irrsinn(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD64FA218C861E0CEF3CBFFEE51E065C5DDB61CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928800   (521779) от 17.08.2015
 
 Orpheus Omega - Partum Vita Mortem (2015) [MP3|320 кб/с]<Melodic Death Metal>
@@ -737,35 +766,6 @@ Secret Signs - For A Lifetime (2012) [MP3|320 кб/с]<Gothic Metal, Female Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06D6F66CAE43305793EAC4D6229D4CB642CB659E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931894   (510775) от 27.08.2015
-
-Die Krupps - V - Metal Machine Music (2015) 2CD [MP3|320 кб/с]<Industrial Metal, EBM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaltes Herz (Reworked By Darkhaus)
-02. Alive in a Glass Cage (Remixed by Faderhead)
-03. Road Rage Warrior '82
-04. Battle Extreme (Demo)(   Читать дальше...   )Жанр: Industrial Metal, EBM |Продолжительность: 01:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BBC0B11BC2767AEA2D8B8BADE80E88B125290B
 ```
 
 https://mybot314.ru/tekegram_catalog/

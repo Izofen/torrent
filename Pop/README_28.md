@@ -1,3 +1,119 @@
+###  Публикация: 1351247   (1002425) от 09.01.2020
+
+a-ha - Lifelines (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifelines (Demo) (5:16)
+02. You Wanted More (Demo) (4:01)
+03. Forever Not Yours (Demo) (4:12)
+04. There's A Reason For It (Demo) (4:14)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD51D4A73CCBDFA44B27A40800C62D9F626F9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351290   (1002410) от 09.01.2020
+
+Fox The Fox - In The Dark Of The Nite (1984) [FLAC|Lossless|image + .cue] <Italo-Disco, Electro, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Flirting And Showing 4:42
+2 Stealin' 4:47
+3 In The Dark Of The Nite 4:32
+4 Check It Out 4:59(   Читать дальше...   )Жанр: Italo-Disco, Electro, EuropopПродолжительность: 0:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D99969B35FB30FF701267407569F62C4D240E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351360   (1002188) от 10.01.2020
+
+Georgia - Seeking Thrills (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Started Out (03:41)
+02. About Work the Dancefloor (03:28)
+03. Never Let You Go (03:47)
+04. 24 Hours (03:05)(   Читать дальше...   )Жанр: Pop-Rock, PopПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A57316BE7ADB7FDC5C92AD9C7361E135AE8E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488481   (1002043) от 11.08.2021
+
+Евгения Смольянинова - Былые радости (2005) [FLAC|Lossless|tracks + .cue]<Романсы>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вечерний звон
+02. Соловей
+03. Шипы и розы
+04. Дитя и роза(   Читать дальше...   )Жанр: РомансыПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8387B5F07015642A7BACA41ABE97D38AD4F869B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351743   (1001957) от 11.01.2020
 
 Heaven42 - The Rhythm Of Love (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
@@ -664,146 +780,6 @@ VA - Italo 2000 Rarities (1998-2000) 3*2CD[MP3|320 кб/с]<Electronic , Italo-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42A8A73554A5096C721815C4A4940B58CB6F95EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596654   (999620) от 05.01.2013
-
-Dan Balan - All Hits In One Album (2012) [MP3|198-256 kbps] <Dance / Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chica Bomb (Original Mix) (04:33)
-02. Crazy loop (Original) (03:31)
-03. Freedom (Original Mix) (03:51)
-04. Freedom (Edit Radio) (03:35)
-05. Justify Sex (Original) (03:32)
-06. Лишь До Утра (Dubstep RMX) (03:44)
-07. Лишь До Утра (Edit Radio) (03:35)
-08. Люби (Original) (03:50)
-09. Мне Не Жалко (Radio Edit) (03:10)
-10. Не Любя (Radio Edit) (03:20)(   Читать дальше...   )Жанр: Dance / PopПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB49D56B1AA50EA592AA0BB554611A7D55E28B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597441   (999603) от 05.01.2013
-
-Celine Dion - The Best Of Celine Dion and David Foster (2012) [MP3|~245 кб/с (V0)]<pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Power Of Love
-02. All By Myself
-03. When I Fall In Love (Duet with Clive Griffin)
-04. The Colour Of My Love
-05. What A Wonderful World
-06. Because You Loved Me
-07. The Prayer (Duet with Andrea Bocelli)
-08. To Love You More (feat. Taro Hakase)
-09. Tell Him (Duet with Barbra Streisand)
-10. All The Way (Duet with Frank Sinatra)(   Читать дальше...   )Жанр: popПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE21AF0293E0F244F5B6514B93D1F6F1E1CAA59A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596801   (999591) от 05.01.2013
-
-Вячеслав Малежик - Grand Collection (2011) [MP3|320 кб/с]<поп>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мозаика
-02. Двести лет
-03. Провинциалка
-04. Острова
-05. Зима-зима
-06. Любите сказки
-07. Чудо-птица
-08. Гадалка
-09. Всё-таки ты права
-10. Смолоду(   Читать дальше...   )Жанр: попПродолжительность: 01:18:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB98326D62E4F92C195303028A03CBEB5F7491C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598119   (999577) от 05.01.2013
-
-Владимир Макаров - Последняя электричка (Звезды, которые не гаснут) (2002) [MP3|320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Последняя электричка
-02. Буфер бьется пятаком зеленым
-03. Мне б только знать
-04. Тайга-Париж
-05. 14 человек
-06. За туманом
-07. Почему ты замужем?
-08. Таежная Москва
-09. Нейлоновое сердце
-10. Говорят, геологи-романтики(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF71C6C9E9080E02D848D73B6BEAC43BD17C367
 ```
 
 https://mybot314.ru/tekegram_catalog/

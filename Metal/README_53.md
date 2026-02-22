@@ -1,3 +1,32 @@
+###  Публикация: 1132430   (700617) от 09.05.2017
+
+Nokturnal Mortum - Істина (2017) [MP3|320 Kbps] <Folk Metal, Pagan Metal, Sympho Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700617.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Зустріну Тебе В Імлі Старій
+2. Мольфа
+3. З Чортом За Пазухою
+4. Смерековий Дід(   Читать дальше...   )Жанр: Folk Metal, Pagan Metal, Sympho Black MetalПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B7AFB786C1796FCE68BF65ABA6D9186ECE6576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402474   (699932) от 15.08.2020
 
 Kamelot - I Am the Empire: Live from the 013 (2020) [MP3|320 Kbps] <Melodic Power Metal>
@@ -722,35 +751,6 @@ Napalm Death - Throes Of Joy In The Jaws Of Defeatism (2020) [MP3|320 Kbps] <Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30033F4197C0CB2ABF1F819AB5C100B1DCC47752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028499   (688589) от 23.06.2016
-
-The Browning - Isolation (2016) [MP3|~245 кб/с (V0)] <Deathcore, Electronic, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cynica (3:10)
-02. Pure Evil (4:11)
-03. Isolation (3:37)
-04. Dragon (4:04)(   Читать дальше...   )Жанр: Deathcore, Electronic, MetalcoreПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0D7A8B0B7F986DC468F008C7CA179216C8F5F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

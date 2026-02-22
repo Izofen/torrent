@@ -1,3 +1,90 @@
+###  Публикация: 1276973   (787258) от 18.01.2019
+
+VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Encure feat. Brett Miller Extended Mix - You Lead, I Follow (Extended Mix)
+02. Zinner, Orffee - Someday (Instrumental Radio Edit)
+03. Fijin feat. Nessa Sovi Remix - The One (Sovi Remix)
+04. Ben Weber - My People(   Читать дальше...   )Жанр: HouseПродолжительность: 02:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FEA7A73E7A2A6B0CCAF650E016A47AB1FB45B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417742   (787103) от 25.11.2021
+
+Michel Suhov - From Ghetto With Love (2015) [MP3|320 Kbps|image+.CUE,tracks] <Afro House, Funky House, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michel Suhov - From Ghetto With Love (Continuous DJ Mix) (01:04:26)
+02. Milty Evans - So Very Happy (06:36)
+03. Simba - 5 Minutes With Beaumont (Le Babar Remix) (04:19)
+04. Furniture is Music - Furnitures Preselected Love (2011 Remastered) (05:20)(   Читать дальше...   )Жанр: Afro House, Funky House, Soulful HouseПродолжительность: 02:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FE51F6F3C844A937585CDA930FB1C619A89189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277248   (787030) от 19.01.2019
+
+VA - Dance Mix Vol.7 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caleb Weiss - Crowd Control (Original Mix) 7:33
+02. Nacim Ladj - Mind Control (Original Mix) 5:53
+03. Guido Bruzzese - Time Control (Original Mix) 6:38
+04. Umai Move & Kamikaze Bird Squad feat. Ellena Grace - Control Issues (Original Mix) 6:41(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063F08019A7E51B6A22DA9AB4371B6367ED8F7D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277235   (787029) от 19.01.2019
 
 VA - Dance Mix Vol.5 (2019) [MP3|320 Kbps] <House, Dance, Electro>
@@ -658,93 +745,6 @@ VA - Turn Up The Volume - Radio Versions (2019) [MP3|320 Kbps] <House, Dance, Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF143FF97121C937F607DE52CC9029C8F7F8AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203945   (785435) от 04.02.2018
-
-VA - Age Of Love 10 Years (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age Of Love - The Age Of Love (Jam & Spoon Watch Out For Stella Mix) 06:48
-02. Niels van Gogh - Pulverturm (DJ Tomcraft Remix) 09:12
-03. The Pusher - Sinthy (Pluto Mix) 05:56
-04. BBE - Seven Days And One Week 08:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 08:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC174DAA67E9E1EEC23620D7D5E5CC75A9DF3AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203967   (785392) от 04.02.2018
-
-VA - Winter Sessions 2018 (Mixed by Milk & Sugar) (2018) [MP3|320 Kbps] <House, Afro House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mr Raoul K & Sona Diabate  -  Senekela (Raoul K & Laolu Version)  7:24
-02.  Keyano  -  Dan Dale (Original Mix)  7:09
-03.  Crazy White Boy feat. BehrEllips  -  The Forgotten People (Original Mix)  5:30
-04.  Dayne S  -  Sensor (Original Mix)  6:42(   Читать дальше...   )Жанр: House, Afro House, Deep HouseПродолжительность: 05:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4BE8CCCBD42A01D2E9FBC5F5F4FF72E941F902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277734   (785028) от 21.01.2019
-
-VA - Winter Music Top 1 (2019) [MP3|320 Kbps] <House, FutureHouse, Dubstep, Other>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Papaya - I'm Burning (Tech House Mix) 9:49
-02. DJ Papaya - I'm Burning (Tribal Mix) 9:18
-03. WILKKEN & JHON CHRISTIAN - Tche Ngolove (Original Mix) 5:36
-04. Gunball & CHIPS DOWN - Shake Down (Original Mix) 4:06(   Читать дальше...   )Жанр: House, FutureHouse, Dubstep, OtherПродолжительность: 02:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4B9282ED5D28C1185C93F49C98D21C52278CE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

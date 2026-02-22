@@ -1,3 +1,32 @@
+###  Публикация: 1175404   (378466) от 18.10.2017
+
+Atomic Rooster - 11 альбомов, 25CD (1970-2016) [FLAC|Lossless|image + .cue, tracks + .cue] <Prog-Rock, Psychedelic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Atomic Rooster — британская рок-группа, образовавшаяся в 1969 году в Лондоне, Англия, и исполнявшая прогрессивный рок. Клавишник Винсент Крейн, единственный постоянный участник группы, был и автором большей части её песенного материала. Три первых альбома Atomic Rooster входили в UK Albums Chart, два сингла группы («Tomorrow Night», #11и «Devil’s Answer», #4) становились (   Читать дальше...   )Список альбомов:
+1970 | Atomic Ro-o-oster
+1970 | Death Walks Behind You
+1971 | In Hearing Of(   Читать дальше...   )Жанр: Prog-Rock, Psychedelic Rock, Hard Rock |Продолжительность: 23:10:08 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B140319C0344511F5C0929E5FF121EB42512ED74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253920   (377371) от 12.10.2018
 
 Nazareth - Tattooed on My Brain (2018) Frontiers Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -722,35 +751,6 @@ Audrey Horne - Devil's Bell (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEA268E870C99F83D13B74D4247954818B335F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576662   (364284) от 15.09.2022
-
-Super Vintage - Guardians of Tradition (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Ride
-02. Indian Soul
-03. Hero
-04. Rolling Thunder(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079EA7976B0AE5BE954BD2DA0DC7DF73D62BBB39
 ```
 
 https://mybot314.ru/tekegram_catalog/

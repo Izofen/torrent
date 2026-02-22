@@ -1,3 +1,38 @@
+###  Публикация: 502101   (259308) от 29.05.2012
+
+VA - Earthtone Collection Vol.1-3 (1998-2000) [MP3|320 кб/с]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(4:20) 01. Nicholas Gunn - Flight Of The Condor
+(4:08) 02. Ah-Kin - New Fire
+(6:44) 03. Ayman - Night Traveller
+(4:25) 04. Ginkgo Garden - One And Twain
+(4:23) 05. Mars Lasar - Pioneers
+(4:38) 06. Ginkgo Garden - Rhythm Of The Living Thing
+(4:05) 07. Nicholas Gunn - Havasu Falls
+(6:12) 08. F.R.E.U.D. - The Miracle Of Moona
+(4:50) 09. Primal Instinct - Morning Drum
+(6:24) 10. Stonecoat - Answer Mother Earth(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2055BF33637DBD3DB222EE5B2CCF665181D51004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502024   (259211) от 28.05.2012
 
 Wardruna - Runaljod - gap var Ginnunga (2009) [FLAC|Lossless]<Neofolk / Ambient>
@@ -804,35 +839,6 @@ VA - American Tribal Songs (2011) [MP3|320 Kbps] <Native American, New Age, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D274D638DC396C0554067F0809FADC43443B0CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626330   (255076) от 17.04.2023
-
-David Arkenstone - Ambient Space Music (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breath Of the Universe (12:46)
-02. Parallel World (5:52)
-03. Island Of Stars (8:21)
-04. Red Sun (4:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3467A1789EE25D745276CDC89EA076EE9EFDBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

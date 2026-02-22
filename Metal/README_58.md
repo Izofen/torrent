@@ -1,3 +1,32 @@
+###  Публикация: 905165   (652104) от 05.06.2015
+
+Arsenica - Arsenica (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652104.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Destino
+2. Diario De Un Heroe
+3. Rompiendo Cadenas
+4. Lo Que El Mal Hace(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C69E71BD6BBF91A99BAAF8BA298E0F53B3836E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905250   (652101) от 05.06.2015
 
 Reverb Gun - Rock Is Our Bussines (2015) [MP3|320 кб/с]<Heavy / Power Metal>
@@ -732,32 +761,6 @@ Reanimator - Horns Up (2015) [MP3|320 кб/с]<Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A364A83065F2186413427AE81FE06840EA30C3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517402   (647050) от 01.07.2012
-
-VA - Metal Hammer Collection (2СD) (2000) [MP3|320 кб/с]<Gothic Metal, Doom/Death Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Gothic Metal, Doom/Death Metal, Speed MetalПродолжительность: 01:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED99029BAF6D9253D1DF4F5A11A09DA4984533B
 ```
 
 https://mybot314.ru/tekegram_catalog/

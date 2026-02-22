@@ -1,3 +1,293 @@
+###  Публикация: 1756432   (39667) от 21.10.2024
+
+VA - Non-religious  Gospel music (2024) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crowder - Lift Your Head Weary Sinner (Chains) [03:45]
+02. Cultura do Ceu, Davi Fernandes, Kaleb e Josh - Nada Mais [06:32]
+03. Darrell Mansfield, Larry Howard & Glenn Kaiser - Where Would I Be? [06:33]
+04. David Cardoso, ONE-Sounds,  Alessandro Vilas Boas - Maranata [17:24](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 05:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1F970EBABDABDB9A2B2366A184AF003FF9571B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756526   (39592) от 22.10.2024
+
+VA - Turn To Rock (2024) [MP3|320 Kbps] <Alternative, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39592.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Home Brewed Universe - Minimalist Consumerism - (03:30)
+ 002. Silverstein - Sound Of The Sun - (03:20)
+ 003. Corners - Lifemare - (04:21)
+ 004. Vanden Plas - My Icarian Flight - (05:59)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 13:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68968E843C3C163E1BD5001E04D572A455452FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756925   (39386) от 24.10.2024
+
+VA - Take It Easy Friday (2024) [MP3|320 Kbps] <Disco, Funky, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39386.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ferreck - All That I Need (2:06)
+002. Curtis Mayfield - Move On Up (2:29)
+003. Scissors - Be Honest (2:33)
+004. Dombresky - In My Soul (2:45)(   Читать дальше...   )Жанр: Disco, Funky, House, ElectroПродолжительность: 09:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6ADC4D1ECC479C82FE82937A8E177B1B4ADE444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756797   (39378) от 24.10.2024
+
+VA - musical kaleidoscope part 8  Electronic,  Easy listening (2024) [MP3|320 Kbps] <Electronic,  Easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vladimir Korg - Ты Со Мной
+02. Цифеi - Callisto
+03. Vladimir Korg - You Are My Dream
+04. Цифеi - Bring Down the Sky(   Читать дальше...   )Жанр: Electronic,  Easy listeningПродолжительность: 03:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D8C268E7FED251ADE9A1FF99E3C8F4E3801287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757017   (39306) от 25.10.2024
+
+VA - The Intrigue Of Jazz (2024) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luther Allison - I Owe It All To You
+002. Nubya Garcia - Clarity
+003. Dan Pugach & Nicole Zuraitis - Little Fears
+004. Myele Manzanza - Universal Language(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 12:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20A35DDCFA134330C549D6E8AD218182DC7579F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757104   (39301) от 25.10.2024
+
+VA - Music News For Forum vol.035 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39301.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ANI - Ближе (02:22)
+ 002. Ямыч Восточный Округ feat. Витя Матанга - Усталый район (02:37)
+ 003. Agunda - Боль моя (02:29)
+ 004. Alis Shuka feat. It's Different - My Love (02:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7083A6AB89B38A165F1D6888A92FE4A48AC181B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757020   (39295) от 25.10.2024
+
+VA - A Romantic World (2024) [MP3|320 Kbps] <Pop, Rock, Ballad, Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lily Papas - I Made It L.A.
+002. Chrystabell & David Lynch - She Knew
+003. J Use - Whispers In The Moonlight
+004. Lana Lubany - Prayers(   Читать дальше...   )Жанр: Pop, Rock, Ballad, LyricПродолжительность: 11:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBE8901582206CD5784F9A3E5FD0A0202AE01D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756996   (39268) от 25.10.2024
+
+VA - Invisible Strings (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anitta - Savage Funk
+002. Precious Pepala - Death Of The Party
+003. Bella Poarch - Don't Like Anybody
+004. Casso, Raye, D-Block Europe - Prada(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 10:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81860BD3C3630CD343B8EEABEADCF8B70DC8E153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757207   (39174) от 26.10.2024
+
+VA - Midnight Halloween Jazz (2024) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Halloween Jazz Vibes - Halloween Jazz [01:16]
+02. Maisy Kay - I Put a Spell On You [03:22]
+03. Trick or Treat!, Spooky Halloween, Halloween Sounds!, Spooky Halloween Sounds - Midnight Witch Swing [03:17]
+04. Prairie Ramblers - Ghost in the Graveyard [02:47](   Читать дальше...   )Жанр: JazzПродолжительность: 03:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6380355C0FBEA92CCAEF88DBBCDDDE0720D2E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757461   (39125) от 27.10.2024
+
+VA - Хіти Дня в Україні (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Domiy, SHUMEI - Не пройде (2:39)
+02. Okean Elzy - Як ніколи (4:30)
+03. Artem Pivovarov, ONUKA - Сьогодні (3:00)
+04. KOLA - Титанік (2:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A0C882B587D9CFDCA966CB3AF6A2BACA5FD004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757297   (39106) от 27.10.2024
 
 VA - 100 Greatest Songs for You Vol.1 (2024) [MP3|320 Kbps] <Pop, Dance>
@@ -455,296 +745,6 @@ VA - Compilation part 128 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD80768E944EF20ADDAEEDF4F02E1241293F2854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758415   (38543) от 02.11.2024
-
-VA - Disco Inferno 70s 80s (2024) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38543.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chic - Le Freak (Edit) [03:36]
-002. Earth, Wind & Fire - September [03:35]
-003. Michael Jackson - Don't Stop 'Til You Get Enough (2003 Edit) [03:56]
-004. ABBA - Dancing Queen [03:51](   Читать дальше...   )Жанр: DiscoПродолжительность: 11:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8158E9FB9CDFAC936C33E85EB176800F453E09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758444   (38510) от 02.11.2024
-
-VA - Music News For Forum vol.038 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38510.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ARi Sam Vii - Раскусила (02:30)
- 002. 7Б - Аллея Ангелов (03:56)
- 003. AARPI - Нежно (03:01)
- 004. Alessandra feat. Andrei Banuta - Dezastru (03:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D03B43F25E6E5C2581108B848D3E2452D64A65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758476   (38497) от 02.11.2024
-
-Jumanov - Compilation CD 1 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Found
- 02.  Time is Short
- 03.  Golden Autumn
- 04.  Will Pass(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1E7FD3C0E97A5B6D72EE981AAF0A3137B6A6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758465   (38495) от 02.11.2024
-
-VA - ЕвроХит Топ 40 Europa Plus 01.11.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimin - Who (2:50)
-02. The Weeknd - Dancing In The Flames (3:40)
-03. Felix Jaehn feat. Sophie Ellis-Bextor - Ready For Your Love (2:39)
-04. Hugel & Topic & Arash feat. Daecolm - I Adore You (3:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E217BF8C729C97D1200E14824FAB41B762C670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758610   (38402) от 03.11.2024
-
-Jumanov - Compilation CD 2 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dry Music
- 02.  Lie
- 03.  Knockin on Heavens Door
- 04.  Wrong(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E2A49A27BB2EF5453DE353DEFFDD7EB3B96517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758528   (38395) от 03.11.2024
-
-VA - National Pop Dance Music Vol.89 (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38395.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zlatan Feat. Asake - Bust Down (03:16)
- 002. Boynextdoor - Good Day (02:52)
- 003. Wizkid Feat. Zlatan - Idk (03:01)
- 004. Irama - Galassie (03:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CCACE7C2BDD16F5EBF8F9322F088A13A0CD08B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758685   (38373) от 03.11.2024
-
-VA - The Echo Of The Heart Strings (2024) [MP3|320 Kbps] <Rock, Soft rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38373.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Santa Ana Winds - E.S.P
-002. Tina Turner - Private Dancer
-003. Frankie Valli - Sometimes Love Songs Make Me Cry
-004. America - Ventura Highway(   Читать дальше...   )Жанр: Rock, Soft rockПродолжительность: 09:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C9D681E6C52E4FD024269F96E8B97040820322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758933   (38218) от 05.11.2024
-
-VA - Music News For Forum vol.039 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DAKENA - Аскеза (02:28)
- 002. Alle Farben feat. Sofiloud - Call My Name (VIP Mix) (03:00)
- 003. Ampris feat. Rocco - Say You Love Me (02:18)
- 004. ARAKEL - Карикатура на любовь (02:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6B0613E30916835876C5AF363011FB41017551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758942   (38183) от 05.11.2024
-
-Jeem DJ - Compilation (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Canada
- 02.  Stop Waiting
- 03.  Alone
- 04.  Only You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA191388FC85B2828DBB714BF05F6A61A1D1122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759129   (38104) от 06.11.2024
-
-VA - DOWN LOW 7 (2024) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Libercio - DESTROY (1:29)
-02. FanEOne, Benz Boyz - Pull Up (1:31)
-03. FNVFICK - Luxury (1:54)
-04. QUATTROTEQUE, DVRVIX - Base (2:02)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 04:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DA4311198D765BA37CB8826C57A71BB037759C
 ```
 
 https://mybot314.ru/tekegram_catalog/

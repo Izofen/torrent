@@ -1,3 +1,29 @@
+###  Публикация: 944931   (432953) от 10.10.2015
+
+Norton Security Premium 22.5.4.24 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Norton Security Premium (ранее Norton Security with Backup) - комплексное решение "все-в-одном" для максимальной защиты всех домашних устройств, включая компьютеры Windows и Mac. Новый продукт, который сменяет поколение Norton 360, помимо возможностей Norton Security, позволяет также выполнять резервное копирование личных файлов, фотографий, видео и других (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2873A9A3D48792F69E2F22A82C3817AF6004994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165514   (432943) от 13.09.2017
 
 A Better Finder Rename 10.21 [En]
@@ -682,35 +708,6 @@ CunninLynguists - Oneirology (2011) 2CD, Limited Edition [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6696F804D4D190771BF99CCD8DC39A0B9B1B5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843936   (432607) от 13.09.2017
-
-CunninLynguists - A Piece Of Strange (2006) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Hip-Hop, Conscious>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Will You Be? (1:03)
-02. Since When (4:01)
-03. Nothing To Give (3:30)
-04. Caved In (feat. Cee-Lo Green) (3:17)(   Читать дальше...   )Жанр: Hip-Hop, ConsciousПродолжительность: 01:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC7C0C100FD47CFE2ED0EB9613471F9EAE123F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1709297   (112807) от 24.03.2024
-
-Buddy Rich - Giant Steps (1977) 2000, Point Entertainment [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moment's Notice [5:30]
-02. Giant Steps [5:36]
-03. Buddy's Cherokee [7:31]
-04. Take the A Train [6:17](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC82696E37C0B5131D1879C70799B28F82AD759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709519   (112799) от 25.03.2024
 
 VA - Supreme Pure Pleasure Relaxing Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
@@ -745,6 +716,35 @@ Dave Brubeck - All The Things We Are (1973, 1974) 2007, Atlantic [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F713995C64D28D4394969D48A0B83F63138D97A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713895   (111780) от 07.04.2024
+
+Richie Kamuca & Bill Holman - West Coast Jazz In Hi Fi (1959) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Down Under [3:34]
+02. Blue Jazz [4:21]
+03. Angel Eyes [3:59]
+04. Stella by Starlight [3:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8775A5EE8070D237F8540F61CAA65FA524A4253
 ```
 
 https://mybot314.ru/tekegram_catalog/

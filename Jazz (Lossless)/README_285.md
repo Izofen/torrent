@@ -1,38 +1,3 @@
-###  Публикация: 852047   (223562) от 21.12.2014
-
-VA - Venus Jazz Lounge - Relaxin' Afternoon Tea Time (2012) 2CD [APE|Lossless]<Jazz, Bop, Cool Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Kenny Barron Trio -  Cleopatra's Dream  (3:56)
-02.  Scott Hamilton & Ken Peplowski -  Autumn Leaves  (5:13)
-03.  Sally Night -  Day In Day Out  (4:54)
-04.  Dick Hyman Trio -  My Favorite Things  (6:24)
-05.  Alexis Cole -  Let Me Be Good To You  (4:45)
-06.  Cedar Walton Trio -  Around The World  (4:51)
-07.  Tessa Souter -  Dance With Me  (5:02)
-08.  Brian Lynch Afro Cuban Jazz Orchestra -  Your've Changed  (7:17)
-09.  Harold Mabern Trio -  Blue Bossa  (5:50)
-10.  Francesco Cafiso New York Quartet -  Lullaby Of Birdland  (7:55)(   Читать дальше...   )Жанр: Jazz, Bop, Cool Jazz, Mainstream JazzПродолжительность: 02:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9464969A72DB00D5B9F0BEBA2ED5AC2EC5EC3195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269086   (223516) от 13.12.2018
 
 Tom Bacon - The Flipside: Jazz Horn Solos (1989) Summit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -763,6 +728,35 @@ Bob Belden - Black Dahlia (2001) Blue Note Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59695ACA9BDD40CE5CA62E2BC8ADC8F99782DDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269227   (221504) от 14.12.2018
+
+Ana Carla Maza - Alma (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quiero (03:53)
+02. Alma (03:05)
+03. Interlude (03:12)
+04. Au revoir (03:10)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BD1AA8F6F45F583F6D6EC6FCAD7CAB84B36EAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

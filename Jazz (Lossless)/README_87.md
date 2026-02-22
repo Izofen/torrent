@@ -1,3 +1,32 @@
+###  Публикация: 1199290   (801844) от 15.01.2018
+
+Bennie Moten's Kansas City Orchestra - 1929 - 1930 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Certain Motion [03:06]
+02. It Won't Be Long [02:50]
+03. When Life Seems So Blue [02:53]
+04. Loose Like A Goose [02:56](   Читать дальше...   )Жанр: Early Jazz, SwingПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AF2FD1B35ACA6173EBA6DBDE2BCCF54FA1403C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384641   (801830) от 21.05.2020
 
 The Horace Parlan Trio - No Blues 1975 (1992) SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Konrad Paszkudzki Trio - Night And Day: Cole Porter Song Book (2017) 2020, Venus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC402E9362B89F0B674FD9F308EDAB52769E6699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273560   (799904) от 02.01.2019
-
-Herman Chittison - 1944 - 1945 (1998) Classics [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How High The Moon [1:56]
-02. The Song Is Ended [3:19]
-03. Just One Of Those Things [2:21]
-04. Schubert's Serenade [2:05](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DA57329FC66C8F3356816D4448D6624F666532
 ```
 
 https://mybot314.ru/tekegram_catalog/

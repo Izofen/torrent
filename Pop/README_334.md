@@ -1,3 +1,90 @@
+###  Публикация: 1747592   (104708) от 06.09.2024
+
+VA - Autumn Chill 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benson Boone - Beautiful Things (Acoustic) (3:21)
+02. Zach Bryan - Pink Skies (3:14)
+03. Teddy Swims - Lose Control (Strings Version) (3:28)
+04. Dasha - Austin (Boots Stop Workin') (Stripped) (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF75D28994A3F665F9EBE6647BF452C6B5E8D9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747624   (104703) от 06.09.2024
+
+The Cardigans - The Rest Of The Best (2024) Vol. 2 [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War (3:56)
+02. Deuce (3:33)
+03. Das Model ('00) (2:55)
+04. For What It's Worth (Polar Session '01) (4:15)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CACDC46138E38ACF60384D4ECFFF9FBB2A6C714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747671   (104660) от 07.09.2024
+
+Niall Horan - The Show: Live On Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice To Meet Ya (Live From Łódź, Poland) [00:04:39]
+02. Save My Life (Live From Tampa) [00:03:14]
+03. Heartbreak Weather (Live From Dublin) [00:03:34]
+04. You Could Start A Cult (Live From Tokyo) [00:03:01](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37BB554110EDC1C83AE5DA1AB7B395D44C71EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747663   (104646) от 07.09.2024
 
 Camila Cabello - C,XOXO (2024) Magic City Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -658,93 +745,6 @@ VA - DJ Hits 1997 November (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euroda
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6386478EBF604A6F59FED4667F9F5AA71E6CE9F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751038   (104141) от 22.09.2024
-
-VA - DJ Dance 96 Volume 9 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gina G - I Belong To You
-02. Queen Dance Traxx & Captain Jack - Another One Bites The Dust
-03. The Free - Shout
-04. Spice Girls - Who Do You Think You Are(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62630C88046E8D593AB7587207A3C642A463FA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751044   (104137) от 22.09.2024
-
-VA - Hola Hola Compilation (1995) [OGG Vorbis|480 Kbps] <Electronic, Eurodance, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Band - Sweet Dreams
-02. Fanny Cadeo - Pecame
-03. The Dancers - Never Alone
-04. Martine - Tough Girl(   Читать дальше...   )Жанр: Electronic, Eurodance, ItalodanceПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99C5E8A5323E2161E27E9379411D992C37F17ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752138   (104035) от 28.09.2024
-
-VA - Dance Classics - The Remixes Volume 2 (1989) [FLAC|Lossless|tracks + .cue] <House, Hip Hop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Real Thing – You To Me Are Everything (Decade Remix 76-86) (6:04)
-02. Bill Withers – Lovely Day (Sunshine Mix) (6:33)
-03. Barry White – Never Never Gonna Give You Up (Remix) (7:18)
-04. Freeez – I.O.U. (House Mix) (5:59)(   Читать дальше...   )Жанр: House, Hip Hop, DiscoПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E608385EC132492CCB811DF2ABFBF6EFBB3F3693
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,179 @@
+###  Публикация: 1779996   (70561) от 16.02.2025
+
+VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TT - Потерянный рай (spiller remake)
+02. Stark - You
+03. Party - Подари любовь
+04. Nek - La Vita E(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E75A1EC4D380373866CE73E20381F038050014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779518   (70542) от 16.02.2025
+
+The Chordettes - 2015 - The Greatest Hits (2025) Remaster, 2025, ZOROTY[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ballad, Vocal, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70542.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Runnin' Wild (00:01:44)
+✧ 02 - Alice Blue Gown (00:02:44)
+✧ 03 - Love Me and the World Is Mine (00:02:53)
+✧ 04 - Lonesome That's All (00:03:09)(   Читать дальше...   )Жанр: Ballad, Vocal, Easy ListeningПродолжительность: 01:11:54
+
+qobuz
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F0D764FAF6E40AA0AFC40E1AEA58EC8DC5069A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780102   (70523) от 16.02.2025
+
+The Wombats - Oh! The Ocean (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70523.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Sorry I'm Late, I Didn't Want To Come (00:03:19)
+✧ 02 - Can't Say No (00:03:12)
+✧ 03 - Blood On The Hospital Floor (00:03:06)
+✧ 04 - Kate Moss (00:03:33)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34B981C485B97D44E5E81121A26FCBC5CFBA1F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780131   (70517) от 16.02.2025
+
+Moonchild Sanelly - Full Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Hip-Hop, Funk Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Scrambled Eggs [3:47]
+02 - Big Booty [3:32]
+03 - In My Kitchen [2:44]
+04 - To Kill a Single Girl (Tequila) [3:35](   Читать дальше...   )Жанр: Electronic, Hip-Hop, Funk Soul, PopПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A87CC1CB20ED7B5C32756CCE9D30ADB8BDBCC8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780100   (70516) от 16.02.2025
+
+Role Model - Kansas Anymore (2024) The Longest Goodbye, 2025, Interscope Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70516.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Writing's On The Wall (00:02:49)
+✧ 02 - Look At That Woman (00:02:43)
+✧ 03 - Scumbag (00:03:03)
+✧ 04 - Oh, Gemini (00:02:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F382828AEFEC46067DB9B95D10B12B6B249EE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780223   (70442) от 18.02.2025
+
+Robert Ascroft - Echo Still Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70442.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Faded Photograph (00:04:01)
+✧ 02 - Empty Pages (00:03:23)
+✧ 03 - Where Did You Go (00:04:15)
+✧ 04 - Should've Stayed in Bed (00:03:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039E7B8BDBABEF5FA00C709CA71821EEC59B86E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780426   (70441) от 18.02.2025
 
 Infringement (Norway) - Studio Albums (3 releases) (2017-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
@@ -568,180 +744,6 @@ Bleeding Through - NINE (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7991EC7E24568242BBA9E2A6F16FBFA6DEE1FED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781038   (70329) от 21.02.2025
-
-The Last Sentinel - Testament of the Tiamat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] < Power Metal, Sympho Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dawn of Creation (04:00)
- 02. Breath of the Primordial (03:21)
- 03. The Rise of Mortals (04:00)
- 04. Age of Titans (04:00)(   Читать дальше...   )Жанр: Power Metal, Sympho MetalПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB8F8F1B44BC56958C27034FAC94F2D301F37C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780960   (70317) от 21.02.2025
-
-King Gizzard & The Lizard Wizard - Live In Adelaide '19 (2023) (Live) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psychedelic Rock, Alternative Rock, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Evil Star (Live in Adelaide ’19) [2:35]
-02 - Planet B (Live in Adelaide ’19) [4:18]
-03 - Mars for the Rich (Live in Adelaide ’19) [4:14]
-04 - Venusian 1 (Live in Adelaide ’19) [4:48](   Читать дальше...   )Жанр: Psychedelic Rock, Alternative Rock, ElectronicПродолжительность: 01:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06C07CDBC8C4F8F4EE9D3E9A37F44886071E998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781289   (70307) от 22.02.2025
-
-Cerrone - Disco Symphony (Symphonic Version) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love in C Minor (Symphonic Version)
-02. Look For Love (Symphonic Version)
-03. Cerrone's Paradise (Symphonic Version)
-04. You Are the One (Symphonic Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699FBC1DAE118BFE5EED7608548722DDB0CDC275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780969   (70255) от 22.02.2025
-
-Valempar - Taboo Stories (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwave / Synthpop / Gothic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dance for Two [00:03:57]
-02. Children of The Sun [00:06:03]
-03. Take it Slow [00:03:32]
-04. Queen of My Pillow [00:03:06](   Читать дальше...   )Жанр: Darkwave / Synthpop / GothicПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124DAA82B85DBC3BADB6009A43E27B1138BCD2E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781287   (70250) от 22.02.2025
-
-Greta Van Fleet - Studio Albums (4 releases) (2017-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard rock, Blues rock, Progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Greta Van Fleet - хард-рок -группа из Франкенмута, Мичиган (США)2017 - From The Fires (EP)
-2018 - Anthem Of The Peaceful Army
-2021 - The Battle At Garden's Gate
-2023 - StarcatcherЖанр: Hard rock, Blues rock, Progressive rockПродолжительность: 03:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE654F16C7372F156FBF78A93C82F53AAD4533F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781193   (70235) от 22.02.2025
-
-Von Hertzen Brothers - Studio Albums (9 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Von Hertzen Brothers - финская рок-группа, сформированная в 2000 году тремя братьями.2001 - Experience
-2006 - Approach
-2008 - Love Remains the Same
-2011 - Stars AlignedЖанр: Progressive RockПродолжительность: 08:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796CC5343902C10793666EE3898A6BE37C1AC58C
 ```
 
 https://mybot314.ru/tekegram_catalog/

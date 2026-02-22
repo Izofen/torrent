@@ -1,3 +1,32 @@
+###  Публикация: 548916   (467068) от 18.09.2012
+
+Xrecode II 1.0.0.195 + xrecode2 shell 1.0.0.7 + xrecodeII portable build 1.0.0.195 [Multi\RUS]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467068.jpg" />
+</div>
+
+
+###  Подробнее
+
+xrecode II – уникальный конвертер аудио , снабженный удобным многоязычным «drag and drop» интерфейсом. Позволяет преобразовывать аудиоданные большинства распространенных форматов (всего 54) в m4a, alac, ape, flac, mp3, mp4 (используя NeroAAC), ogg, raw, wav, wav(rf64), wma, WavPack, mpc, mp2, Speex, ofr, ac3, aiff, tak.
+Оптимизирован для параллельной обработки нескольких файлов в системах, оснащенных многоядерным процессором, поддерживает работу из командной строки с заданными параметрами и возможность «нарезки» больших файлов CUE на отдельные фрагменты.
+Конвертирует аудиофайлы и извлекает звуковые дорожки для следующих типов файлов: mp3, wma, ogg, FLAC, APE, WV (WavPack), cue, flv, swf, aiff, 3gp, aac, wmv, dts, amr, mp2, ac3, mpc, mid, cue, tta, tak, wav, m4a, m4b, mp4, ra, rm, avi, mpg, vob, mkv, mov, ofr, divx, m4v, spx, 3g2, m2v, m4v, ts, m2ts, adts, shn, tak, xm, mod, s3m, it, mtm, umx.
+Результирующий тип файла может быть выбран из следующего списка: mp3, WAV, APE, FLAC, WavPack (WV), ALAC, OGG, WMA, LosslessWMA, (   Читать дальше...   )Название программы: Xrecode II 1.0.0.195Язык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548549   (467065) от 18.09.2012
 
 W.A. Mozart - Piano Concertos No.27 & No.20: Claudio Abbado, Maria Joao Pires & Orchestra Mozart (2012) [FLAC|Lossless]<Classical, Symphonic>
@@ -673,41 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:430568C14BF2CB26B645C70D5A2E86DDBE646609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548725   (466909) от 18.09.2012
-
-Joss Stone - The Soul Sessions Vol 2. (2012) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Soul / R&B>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got The... (4:58)
-02. (For God's Sake) Give More Power To The People (3:43)
-03. While You're Out Looking For Sugar (3:26)
-04. Sideways Shuffle (3:36)
-05. I Don't Wanna Be With Nobody But You (4:59)
-06. Teardrops (5:52)
-07. Stoned Out Of My Mind (3:08)
-08. The Love We Had (Stays On My Mind) (4:40)
-09. The High Road (4:38)
-10. Pillow Talk (4:40)(   Читать дальше...   )Жанр: Soul / R&BПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

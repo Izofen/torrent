@@ -1,3 +1,29 @@
+###  Публикация: 530284   (563508) от 02.08.2012
+
+[Wallpapers] Nature HD Wallpapers (01.08.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8DB3133DB5B5A4CB348FC7F57A0EE694BAADA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528790   (563507) от 02.08.2012
 
 [Wallpapers] Best HD Wallpapers Pack (29.07.12)
@@ -675,32 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB19D21CE67DCAC25DB3361C5CE3FA7D9BA03C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530201   (563314) от 02.08.2012
-
-[Графика] Crystalwings — цифровое искусство канадской художницы
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crystalwings — цифровое искусство канадской художницы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E7599B76087C4B9620E5B4103C68071E9C075D
 ```
 
 https://mybot314.ru/tekegram_catalog/

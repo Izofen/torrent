@@ -1,3 +1,61 @@
+###  Публикация: 1341495   (262352) от 28.11.2019
+
+Dj De Key - Anniversary Edit (2019) [FLAC|Lossless|image + .cue] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinlicker feat. Belle Doron - Close Your Eyes (Extended Mix)
+02. Exit 11 - Nights Of The Jaguar (Extended Mix)
+03. Nora En Pure - Dry Sobbing (Original Club Mix)
+04. Saaz, Gu Noronha - Together (Extended Mix)(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28F1F504B2774A3915388B35BDBC4F3C0104F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341333   (262340) от 28.11.2019
+
+Bob Sinclar - III (2006) [FLAC|Lossless|tracks + .cue] <House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Goes On
+02. Kiss My Eyes
+03. If I Was
+04. Musique Is Fantastique(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 01:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0BE08394D04D8C273B36585BCBEA74D6DD4340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193134   (262272) от 20.12.2017
 
 Application - Discography 3 Releases (2014) Dust Science Recordings [FLAC|Lossless|tracks+.cue, tracks] <Techno, Breakbeat, IDM, Ambient>
@@ -703,64 +761,6 @@ Doubtingthomas - The Changes (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D62753DD31F64325CD4BAABCA6F0ED20935848D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456293   (243306) от 21.03.2021
-
-Valentino Mora - Underwater (2021) Spazio Disponibile [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Tribal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hadal Zone (07:04)
- 02. Mass Frequenz (08:11)
- 03. Spiral Falls (07:31)
- 04. Absorption (06:18)(   Читать дальше...   )Жанр: Ambient, Techno, TribalПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1195B8920777A0A5DFEEC3BAA80A379BF3428613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352734   (243242) от 15.01.2020
-
-Tiga - You Gonna Want Me (2005) [FLAC|Lossless|image + .cue] <House, Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243242.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 You Gonna Want Me (Radio Edit) 3:09
-2 You Gonna Want Me (12 Inch Dance Mix) 5:44
-3 You Gonna Want Me (Isolee In-My-Bee Remix) 6:13
-4 Do It Don't Stop 4:15Жанр: House, Techno, ElectroПродолжительность: 00:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF00F3F5BDCCE6654A28803360736DEA641429B
 ```
 
 https://mybot314.ru/tekegram_catalog/

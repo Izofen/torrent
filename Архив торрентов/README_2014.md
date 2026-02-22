@@ -1,3 +1,32 @@
+###  Публикация: 1014475   (776573) от 07.05.2016
+
+VA - Trance Parade (2016) [MP3|320 кб/с] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel & Make One - The Power Of Nature (Ahmed Romel Remix)
+02. Aurosonic feat. Nicol Cache - Tell Me Why (Mhammed El Alami Remix)
+03. Christish pres. MANA - Kimochi (Simon O'Shine Remix)
+04. NoMosk & Nathia Kate - Moments (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748CFF05C6B93C28E0F2B5D2B67D4C3ED643A994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014035   (776570) от 07.05.2016
 
 Александр Ралот | Преступление в доме ЛИТО (2016) [MP3]
@@ -665,33 +694,6 @@ VA - Training Day, Vol. 1 (2018) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64E5C33C17C21281B2801418D288CA951D649B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014559   (776456) от 07.05.2016
-
-Lacuna Coil - The House Of Shame / Delirium (2016) EP [MP3|320 кб/с] <Gothic Metal, Alternative Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The House Of Shame
-02. DeliriumЖанр: Gothic Metal, Alternative MetalПродолжительность: 00:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B1B27173F28CE488B90C6375528696124AF78A
 ```
 
 https://mybot314.ru/tekegram_catalog/

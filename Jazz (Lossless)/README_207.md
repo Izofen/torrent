@@ -1,3 +1,32 @@
+###  Публикация: 1063983   (430369) от 18.10.2016
+
+Janet Klein & Her Parlor Boys - Put A Flavor To Love (2002) Coeur De Jeanette Productions[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Put A Flavor To Love [04:26]
+ 02.Troubled Waters [04:23]
+ 03.If I Could Be With You One Hour Tonight [03:00]
+ 04.My Bundle Of Love [02:44](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9771905342D03747FDF00B33BC58F10A91809440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064142   (430347) от 18.10.2016
 
 Burton, Corea, Metheny, Haynes, Holland - Like Minds (1998) [WavPack|Lossless|image + .cue] <Contemporary Jazz>
@@ -716,35 +745,6 @@ Art Blakey & The Jazz Messengers - The Freedom Rider (1961) /2015, Universal/[FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82D49A3584DA5292AD358BCE7BE2E8B3B5E4A19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946449   (425263) от 14.10.2015
-
-Bill Evans - Jazzhouse (1969) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.How Deep Is The Ocean [06:01]
-02.How My Heart Sings [04:06]
-03.Good Bye [03:53]
-04.Autumn Leaves [05:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABE0A4A10DFBC9954D9E9F23E63E59369EBC843
 ```
 
 https://mybot314.ru/tekegram_catalog/

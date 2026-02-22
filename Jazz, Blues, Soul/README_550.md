@@ -1,3 +1,32 @@
+###  Публикация: 1727382   (108475) от 02.06.2024
+
+Wilbur Ware - Super Bass (1968) 2012, Wilbur Ware Institute [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mod House [5:46]
+02. Symphony for Jr. [10:11]
+03. Wilbur's Red Cross [8:18]
+04. A Real Nice Lady [7:32](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00CF9FA171E585793EC895E9C3BF84881281E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727379   (108469) от 02.06.2024
 
 Lee Ritenour - Rio & On the Line (1979, 1983) 2003, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
@@ -716,35 +745,6 @@ Hammerhead Blues - After The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FFA882EB120E71AA87679BC22D91EC68BEEAAEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728502   (108327) от 07.06.2024
-
-Billy Taylor - 1945 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monk's Mood (Mad Monk) [2:39]
-02. Solace [2:35]
-03. Night and Day [2:43]
-04. Alexander's Ragtime Band [2:46](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95F59CA3EA78F4ED6012023E6F05C549E9F053E
 ```
 
 https://mybot314.ru/tekegram_catalog/

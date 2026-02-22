@@ -1,25 +1,22 @@
-###  Публикация: 1444778   (1034242) от 03.02.2021
+###  Публикация: 1444203   (1034941) от 31.01.2021
 
-Buddy De Franco (DeFranco) - Bravura: Complete 1959 Septette Sessions (2011) 2CD, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+Надоело умирать (2020) WEBRip
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034242.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Sunday [5:44]
-02. Between the Devil and the Deep Blue Sea [9:22]
-03. Tea for Two [4:57](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:06:45
+В ближайшее время человечеству грозит гибель. С повышением комфорта и интеллектуального уровня людей понижается репродуктивная способность человечества. Наши герои пытаются ответить на мучительный вопрос «быть или не быть?». Человечеству «надоело умирать». Мир спасет только любовь. Композитор картины Кирилл Толмацкий транслирует через свои тексты и музыку главную (   Читать дальше...   )Производство: Россия / Close Up ProductionЖанр: Документальный, криминал, драма, музыкаРежиссер: Александр Вишневский, Артур ТадевосянСубтитры: ОтсутствуютПродолжительность: 01:20:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:414C68E60D6B5801DD5C4E00AE8D2DD6A4D132C7
+magnet:?xt=urn:btih:AE59FEEFB0748B2753201EF9C1BB2587782FB47C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,80 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444730   (1034241) от 03.02.2021
+###  Публикация: 1444123   (1034940) от 31.01.2021
 
-Cân Bardd (Can Bardd) - The Last Rain (2019) [FLAC|Lossless|tracks + .cue] <Folk Metal, Atmospheric Black Metal, Post Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between Hope And Reality (14:56)
-02. Celestial Horizon (8:39)
-03. Fog Of War (5:23)
-04. Clouds And Feuds (11:19)(   Читать дальше...   )Производство: Northern Silence Productions – NSP 168Жанр: Folk Metal, Atmospheric Black Metal, Post Black Metal, Epic Black MetalПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C707EDDEF62C42A7958E63B24867CD27B762E905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444777   (1034239) от 03.02.2021
-
-Airtool 2 v2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захват трафика Wi-Fi - важная задача анализа протокола. Если вы пытаетесь решить проблемы с подключением к Wi-Fi, роумингом или конфигурацией, анализируете производительность своей сети или просто изучаете Wi-Fi, вам, безусловно, потребуется выполнить захват трафика. Airtool дает возможность сделать это самым простым способом.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2021Разработчик: Intuitibits LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F0B4632AA2A1E46CFFDA8C4F8BF88D7494414A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444923   (1034238) от 03.02.2021
-
-Юлия Дорошенко | Каждый малыш хочет знать. Большие и маленькие животные (2018) [PDF]
+Кеннет Грэм | Ветер в ивах (2020) [EPUB]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034238.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ваш малыш живёт в особом мире, где есть большие — любящие его взрослые — и маленькие — такие же малыши, как и он сам. Если кроха уже интересуется животным миром, эта книга станет для него прекрасным подарком. Ведь на её страницах привольно разместились звери со всех континентов нашей огромной планеты. Пришло время познакомиться с ними поближе, узнать, как они живут, (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+Повесть «Ветер в ивах» была написана шотландским писателем Кеннетом Грэмом в начале XX века и быстро стала известной. Спустя пятьдесят лет после первой публикации произведение, уже ставшее классикой мировой детской литературы, получило международную премию «Полка Льюиса Кэрролла» – она присуждалась книгам, достойным стоять рядом с «Алисой в Стране чудес». За прошедшее (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90BD33A5FFE3C5192A4C72AA30D9615344520334
+magnet:?xt=urn:btih:234CE8254106BCFCA4C635307F9641B18705E6BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444735   (1034237) от 03.02.2021
+###  Публикация: 1444150   (1034939) от 31.01.2021
 
-Cân Bardd (Can Bardd) - Nature Stays Silent (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Folk Metal, Atmospheric Black Metal, Post Black Metal>
+VA - Beautiful Deep House: Night Club DJ Mix (2021) [MP3|320 Kbps] <Deep House, Club, Dance>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034237.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Introduction (5:19)
-02. My Ancestors (7:09)
-03. An Evolving Painting (8:14)
-04. Méditation Glaciale (11:58)(   Читать дальше...   )Производство: Northern Silence Productions – NSP 160-DGЖанр: Folk Metal, Atmospheric Black Metal, Post Black Metal, Epic Black Metal, AmbientПродолжительность: 01:10:52
+Музыка тем и прекрасна, что способна создавать настроение, да так, что можно весь день ходить окрыленным или же погруженным в себя. Сами собой всплывают воспоминания, рождаются образы и мысли, и вот мы уже целиком и полностью живем в этой музыке, а сердце бьется в такт ритму.001. Cream Bitches - Deep Me
+002. Black Waters - Wanna Be
+003. Tony Franklin - Open Space
+004. Dj Jerry - Keep In Mind(   Читать дальше...   )Жанр: Deep House, Club, DanceПродолжительность: 07:57:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59BE9205D0B56784E5ACB6A86C2AC82E97106558
+magnet:?xt=urn:btih:641D44EC9B39F4A9925E9A7C9364F71D53CDAED9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +79,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444891   (1034236) от 03.02.2021
+###  Публикация: 1444098   (1034938) от 31.01.2021
 
-Diabulus In Musica - 5 Studio Albums (2010-2020) 5xCD [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
+Эд Макбейн | 87-й полицейский участок (Книга 21). На глазах у сорока миллионов (2021) [MP3, Валерий Стельмащук]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034236.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2010 - Secrets
-2012 - The Wanderer
-2014 - Argia
-2016 - Dirge For The Archons(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 04:48:27
+В прямом эфире, во время исполнения пантомимы, умирает известный телекомик Стэн Джиффорд, а немного ранее неизвестный мужчина избивает в офисе полицейского и всё это на территории 87-го участка...
+Теперь предстоит расследование подозрительной смерти телеведущего-комика в прямом эфире, которую смотрят миллионы. С чего бы вдруг здоровый человек внезапно умер?Жанр: ДетективПродолжительность: 06:05:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A36BFA206B0C0868753A0A665931907D09297FA
+magnet:?xt=urn:btih:5AD4BEFAD62FFC6673E97CDDFB3101297A180F04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444820   (1034235) от 03.02.2021
+###  Публикация: 1444267   (1034937) от 31.01.2021
 
-The Besnard Lakes - The Besnard Lakes Are The Last of the Great Thunderstorm (2021) [MP3|320 Kbps] <Art Rock, Psychedelic Rock>
+Природа в авангарде / Natturan i ondvegi (2019) WEBRip [H.264/2160p]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034235.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blackstrap (06:36)
- 02. Raindrops (05:10)
- 03. Christmas Can Wait (08:03)
- 04. Our Heads, Our Hearts on Fire Again (06:30)(   Читать дальше...   )Жанр: Art Rock, Psychedelic RockПродолжительность: 01:11:16
+Это видео посвящено самому сердцу исландской природы, нетронутым высокогорьям и береговой линии. Что-то, чем можно наслаждаться и сохранить для будущих поколений.Производство: ИспанияЖанр: Документальный, видовойРежиссер: Олафур Мар БьорнссонПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8DA93F643C082C0491D9B89EDBD7BF4505AEB31
+magnet:?xt=urn:btih:64BC5AA86D3DAFCE1F71F279617235885D4AA670
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,57 +132,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444813   (1034234) от 03.02.2021
+###  Публикация: 1444081   (1034936) от 31.01.2021
 
-Phantom Scimitar - Electric Nemeton (2021) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AZ1M (04:15)
- 02. The Fish (03:57)
- 03. Phantom Scimitar (05:49)
- 04. The Fountain Of Enkidu (07:25)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43851A760CD4E9F019A1F4EED61A196C5B2E07F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444727   (1034233) от 03.02.2021
-
-Giorgi Mikadze - Georgian Microjamz (2020) [FLAC|Lossless|tracks + .cue] <Jazz, Jazz Rock, Ethnic Jazz, Experimental>
+Smooth Lounge Piano - Peaceful Winter Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034233.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Metivuri (Prelude) (3:44)
-02. Dumba Damba (9:35)
-03. Shedzakhili (Interlude) (1:04)
-04. Elesa (8:46)(   Читать дальше...   )Производство: RareNoise Records – RNR116Жанр: Jazz, Jazz Rock, Ethnic Jazz, Experimental, MicrotonalПродолжительность: 00:56:33
+01. Serene in the Snow (02:15)
+02. Dream Like Grooves (02:10)
+03. Ice on the Mind (02:03)
+04. 88 Strange Images (02:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0D6341A3B98987A792612BC68D98A97B7803D70
+magnet:?xt=urn:btih:2F9AEC79A3D122AAA78302AF2D7BBD4CE952F6B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,25 +161,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444842   (1034232) от 03.02.2021
+###  Публикация: 1444027   (1034935) от 31.01.2021
 
-Logistics - Jungle Music (DRS & Dynamite MC x Logistics Remix) (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+Ram Jam - 3 Albums, 1 Single (1977-2006) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock>
 
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034232.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jungle Music (DRS & Dynamite MC x Logistics Remix) (03:29)Жанр: Drum & BassПродолжительность: 00:03:29
+Ram Jam — рок-группа, родом из Нью-Йорка, Соединенных Штатов Америки. Коллектив был основан ещё в начале 1970-х годов. Коллектив внёс определённую лепту в развитие американского рока. Самым узнаваемым хитом группы доныне является трек «Black Betty». У истоков рок-коллектива стоят Билл Бартлетт, Стив Волмслей (бас-гитара) и Боб Неф (орган). Изначально музыканты создавали (   Читать дальше...   )--------------------------
+
+01. Black Betty (3:58)
+02. Let It All Out (4:00)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 02:47:38 |
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA8247BEE834F0CA63D0FE51F9ACC3FBA05DD9F2
+magnet:?xt=urn:btih:BB483F761F3C0327F3065A5FE9EBCA088208B083
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,28 +190,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444789   (1034231) от 03.02.2021
+###  Публикация: 1444112   (1034934) от 31.01.2021
 
-VA - Intensity: Trance Compilation (2021) [MP3|320 Kbps] <Trance, Electro>
+Непал / Nepal (2020) WEBRip [H.264/2160p]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034231.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Авторы сборника "Intensity" объединили свои силы, чтобы достичь нового уровня "Интенсивности", так называется представляемый Вашему вниманию новый транс-сборник, с мощными психоделическими звуками и массивной ударной базой, где нет места милосердию и сладкой лирике.001. Salvatore Mascaro - Isabel
-002. Indecent Noise - Pictures Of A Gallery
-003. Above & Beyond - On My Way To Heaven
-004. Vyacheslav Sketch - New Life(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 08:20:29
+Непал всегда восхищал меня своими эклектичными пейзажами, верованиями и первобытными народами.Производство: НепалЖанр: Документальный, видовойРежиссер: Martial FourretПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D7D5719385DA47E3935A59464320C08BA16BEF4
+magnet:?xt=urn:btih:AB06BC70689A001162521D25EBEA0E3FAFB7C15F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,28 +216,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444885   (1034230) от 03.02.2021
+###  Публикация: 1444079   (1034933) от 31.01.2021
 
-DJ Healer - Nothing 2 Loose (2018) All Possible Worlds [FLAC|Lossless|tracks|Vinyl] <Ambient, Breakbeat, House>
+Марсель Эме | Зелёная кобыла (2018) [MP3]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034230.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. At Last (Becalming The Storm) (03:27)
- 02. Great Escape (03:09)
- 03. 2 The Dark (08:27)
- 04. Gods Creation (08:01)(   Читать дальше...   )Жанр: Ambient, Breakbeat, HouseПродолжительность: 01:08:00
+Марсель Эме (1902 - 1967) - французский прозаик и драматург. Его прозе свойственны элементы абсурда и фантастики в сочетании с реалистичностью бытовых и психологических деталей.
+
+Роман "Зеленая кобыла" принес Эме мировую известность. Повествование развернуто в двух планах: часть как бы от автора, а часть - от имени зеленой кобылы, сошедшей с полотна художника, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 09:20:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BC38030683C5325CA00BE7493DD850636A44A90
+magnet:?xt=urn:btih:29EC78228310AC586F6C73F5E6C119802173323D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +244,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444943   (1034229) от 03.02.2021
+###  Публикация: 1444127   (1034932) от 31.01.2021
 
-C.O.D. - Tears (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+Эксмо | Приключения Синдбада-морехода (2021) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синдбад-мореход, находчивый и отважный путешественник, пускается в увлекательные плаванья в поисках чудес и опасностей! В далёких странах он встретит великанов и неведомых зверей, пролетит на лапе огромной птицы Рока, найдёт несметные богатства и благодаря своей смекалке и храбрости избежит гибели. В эту книгу вошли все семь историй о невероятных приключениях Синдбада, (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB91D9758F0EA53DF087013FE428BCC87E35BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444048   (1034931) от 31.01.2021
+
+Michelle - Tabu (2018) [FLAC|Lossless|image + .cue] <Pop, Schlager>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034229.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tears (3:20)
-02. Groovin' (2:52)
-03. Good Time (3:21)
-04. I Just Want To Be With You (3:21)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:30:26
+01. Tabu [3:35]
+ 02. Meine Welt [3:55]
+ 03. Lieben, Lieben, Lieben [3:38]
+ 04. Wenn ich was gelernt hab [3:29](   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:00:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59580E61C026A14B5EFE8654D6977BFCA7123E5E
+magnet:?xt=urn:btih:020DFC73257DBD4867EFC60332BA43C63719594F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,28 +299,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444800   (1034228) от 03.02.2021
+###  Публикация: 1444093   (1034930) от 31.01.2021
 
-VA - Acoustic Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Soul, Pop, RnB>
+Архитектура с воздуха / Architecture Drone Reel (2020) WEBRip [H.264/2160p]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034228.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tamia - Officially Missing You
-02. Leela James - When You Love Somebody
-03. Jason Derulo - Ridin' Solo (Acoustic Version)
-04. Rose Royce - Angel In the Sky(   Читать дальше...   )Жанр: Soul, Pop, RnBПродолжительность: 01:42:22
+Архитектура — искусство и наука строить, проектировать здания и сооружения, создающие пространственную среду для жизни и деятельности человека.Производство: ФранцияЖанр: Документальный, видовойРежиссер: We are content(s)Перевод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB76711D6D1B28B9ED6A70251FD13ADDEB9DCC1D
+magnet:?xt=urn:btih:A35E3C51F5704C95D273DB9246D21F43F622252C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +325,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444792   (1034226) от 03.02.2021
+###  Публикация: 1444024   (1034929) от 31.01.2021
 
-VA - Best New Electro: Tech House Party (2021) [MP3|320 Kbps] <Tech House, Electro>
+Гордая юность (Гордый юноша) / Xiao ao jiang hu / The Proud Youth (1978) WEB-DL [VO]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034226.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если вы фанат не стандартной современной электронной музыки, то вам определенно прийдётся по нраву альбом с названием "Best New Electro: Tech House Party". Сюжет космоса, роботов и технологий синтеза - это потрясающий музыкальный мир, в котором захочется раствориться и не заметить ход времени. Превосходные аранжировки, прогрессивный звук и выделяющееся (   Читать дальше...   )001. Sources - Fields
-002. Korioto - El Bien Y El Mal
-003. Lab Doctors - Doing Tricks
-004. Kacper Kirtz - Clarity(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 08:33:31
+Картина открывается собранием пяти школ боевых искусств, наставники которой решают жить в мире, выбрав единого главу. Однако не всем это решение нравится, и рознь и вражда между школами переходят в затяжной, скрытный период. Вонг Ю тут играет ученика одной из школ, который спасает ученицу другой школы от агрессивного Черного Всадника (Майкл Чан), за что его учитель (   Читать дальше...   )Производство: Гонконг, Shaw BrothersЖанр: Боевик, приключенияРежиссер: Чунг СуньАктеры: Вон Ю, Майкл Чань, Вон Чун, Стэнли Фун, Ку Фэн, Ши Сы, Лю Хуэйлин, Чжуан Ли, Яу Чхёйлин, Цзин Мяо, Ян ЧжицинПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: АнглийскиеПродолжительность: 01:33:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C31BD4D869523C7627B6A4F9597E3DB1978EB80B
+magnet:?xt=urn:btih:9C74D08AED1DDDCF7AA58BDCF8ABC2166B8565EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,28 +351,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444935   (1034225) от 03.02.2021
+###  Публикация: 1444097   (1034928) от 31.01.2021
 
-VA - Liquid Drum & Bass Sessions, Vol. 4 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+SSDReporter 1.5.7 [En]
 
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034225.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ghosty, Andy Grimwood - All I Know (Vocal Mix) (04:30)
-02. Tact Tokyo - Leaf Of Happiness (Original Mix) (05:12)
-03. Malaky - In Blue (Original Mix) (05:34)
-04. Satorbass - Mindcrime (Original Mix) (03:15)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:03:57
+В связи с тем, что у SSD дисков время жизни ограничено количеством циклов операций записи, очень важно следить за здоровьем ваших дисков. Приложение может предупредить вас о ухудшении здоровья вашего диска по электронной почте или уведомлением на рабочем столе или когда состояние здоровья падает ниже установленного предела. Кроме этого, иконка приложения в строке (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2021Разработчик: Albert MayerПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0669EDFEEF13DDE3E129E4C49E7B1FEFB2D5EDC6
+magnet:?xt=urn:btih:18992EDDA9CBC0F6A6BEE426832988A0FDF5EEB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,250 +377,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444882   (1034224) от 03.02.2021
+###  Публикация: 1444122   (1034927) от 31.01.2021
 
-VA - Liquid Drum & Bass Sessions, Vol. 2 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altered Perception - Bombay Sunset (Original Mix) (04:38)
-02. Rohmz - Promise Land (Original Mix) (05:36)
-03. Vibrant Scientists - Fortune (Original Mix) (09:02)
-04. Al Menos - New Stars (Original Mix) (07:29)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C44379D9C27AAD17160B4F4D3CD0779F997B302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444920   (1034223) от 03.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 3 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sikka - Spellbook (Original Mix) (05:22)
-02. Telpha, Jeauneil Baptiste - Polarity (Original Mix) (03:51)
-03. Swayz - Finding (Original Mix) (06:37)
-04. paul psr ryder - Challenge Everything (Format Remix) (02:03)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A433ED6AECAD3C7DAE5142E0C7BE7C9764DE7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444844   (1034222) от 03.02.2021
-
-Thе Ritсhiе Fаmily - Bad Reputation (1975-1983) [MP3|320 Kbps] <Pop, Funk, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская вокальная группа из Филадельфии. Некогда, во времена Disco, довольно популярная в Америке и мало известная в нашей стране. Основной период их творчества приходится на 1975-1983 года, а в последующие года меликнувшие только со своими ремиксами.01. Theme Of The Queen Of Sheba
-02. Theme Of Nefertiti
-03. Theme Of Cleopatra
-04. Lady Champagne(   Читать дальше...   )Жанр: Pop, Funk, DiscoПродолжительность: 03:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE161BD68BBB3AF0EFFDBAF47B957516D669EAC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444836   (1034221) от 03.02.2021
-
-Любовь Тильман | Мир круженья [Эксклюзивный релиз] (2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир круженья – тринадцатый сборник и восемнадцатая книга Любовь Иосифовны Тильман,
-две из которых написаны в соавторстве.
-Настроение сборника, как и почти всех других книг автора, отображает обложка, сделанная ей на основе собственного снимка. Над неподвижными домами, дорогами, светящимися фонарями, островками зелени – гонимые ветрами слои туч и туманы облаков, подсвеченные (   Читать дальше...   )Жанр: современная проза, поэзияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59A1FFAAF58E93160A3475DDDC60ED776519928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444747   (1034220) от 03.02.2021
-
-Газета | Народный совет №4 (январь 2021) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F17C1C69EBF26E2025EE76E25E75865C6DB9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444906   (1034219) от 03.02.2021
-
-Роско Арбакл. Простая жизнь Фатти и Мейбл / Mabel and Fatty's Simple Life (1915) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец Мейбл хочет выгодно выдать её замуж. Но Мейбл уже любит ФаттиПроизводство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Роско АрбаклАктеры: Роско Арбакл, Мэйбл Норманд, Аль Ст. Джон, Джозеф Суикерд, Джо Бордо, Тед Эдвардс, Филлис Аллен, Билли Гилберт, Бобби ДаннПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B489D16C2C7530DCCB95D35B40296B34617458E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444863   (1034218) от 03.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 1 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denial, Shiva - Don't Forget About Me (Furney Remix) (05:34)
-02. MSdoS, A.k.A - It's You (Original Mix) (05:58)
-03. Swiss, Struz - Together (Original Mix) (05:45)
-04. Exper1menT - Live Already (Original Mix) (07:09)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363510D968D84670AB8F01766D230F3D103ED9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444733   (1034217) от 03.02.2021
-
-The Persuaders - It's All About Love (1976) LP [MP3|320 Kbps] <Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Love (2:57)
-02. Count The Ways (4:58)
-03. I Need Love (4:15)
-04. Quickest Way Out (Vocal) (4:11)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B886262AAB7C476F05300D84D4DB0E88C201586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444245   (1034216) от 03.02.2021
-
-Екатерина Риз | Закон подлости (2017) [EPUB]
+Антон Бильжо | Где сходятся ветки (2020) [FB2]
 
 >>Художественная литература
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034216.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Маша искренне считала, что не хочет от жизни ничего сверхъестественного. Как и любая девушка хочет быть счастливой, любимой, выйти замуж и создать семью. И она встретила своего принца, человека, которого смогла полюбить, который отвечал ей взаимностью. Но, как порой бывает, любовная лодка разбилась. Под насмешливым взглядом надменного родственника… Который откровенно (   Читать дальше...   )Жанр: Современные любовные романыФормат: EPUB
+Шестнадцать лет назад Михаил попал в жуткую автомобильную аварию и потерял память. Придя в себя, он узнает, что был женат, хотел стать ветеринаром. У него растет сын, жизнь постепенно налаживается… но вот из ниоткуда появляется Мария, которая, с ее слов, была возлюбленной Михаила…
+Роман кинорежиссера («Рыбамечта», «Амбивалентность» и другие) и сценариста Антона Бильжо (   Читать дальше...   )Жанр: Проза, Триллер, УжасыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BB62FBBD21C340363E9B16FE7F063BC80FEDEF7
+magnet:?xt=urn:btih:CD37EA366F6C0BDB199B058AF8E7FF4B43C8CD33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -704,25 +404,288 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444921   (1034215) от 03.02.2021
+###  Публикация: 1444125   (1034926) от 31.01.2021
 
-Любовь Вайткене, Мира Филиппова | 200 любимых страниц для почемучек. Занимательные науки и увлекательные эксперименты (2017) [PDF]
+Рудольф Распе | Приключения барона Мюнхгаузена (2021) [EPUB]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034215.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хочешь узнать, что изучают различные науки, например такие, как химия, физика, биология? А может быть, ты уже рассматриваешь варианты будущей профессии? Тогда ты выбрал правильную книгу. Прочитав ее, ты разберешься во многом, чего раньше попросту не понимал. Теперь ты будешь знать, чем химические реакции отличаются от ядерных, как появился пенициллин, что такое молочная (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+Кто не слышал про знаменитого барона Мюнхгаузена и его фантастические приключения! Чего только не случалось с этим храбрецом и выдумщиком! Довелось ему пролететь на пушечном ядре, с одного раза подстрелить семь куропаток, выбраться из брюха огромной рыбы и даже побывать на Луне! Правда это или ложь – решать читателю. Но сам барон Мюнхгаузен действительно существовал. (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61077AC3E0168960516B507893A10E1E857A9335
+magnet:?xt=urn:btih:0E01C5E5402140B629CBBF6414A9322A2E31AF21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444001   (1034925) от 31.01.2021
+
+Журнал | Сваты на даче №1 (73) (январь 2021) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034925.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9CD954CE5C765A3767C702BCA1444B29C283DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444113   (1034924) от 31.01.2021
+
+Richard Elliot - Authentic Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snapshot
+02. Walk With Me
+03. Right On Time
+04. Authentic Life(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C952EDC066348752C427E6CA9D0974F4F1C3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444269   (1034923) от 31.01.2021
+
+Морозный пейзаж арктической Норвегии / The Frosted Landscape of Arctic Norway (2020) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку в ноябре солнце исчезает на несколько недель и больше не появится до января, арктическая Норвегия готовится к долгим полярным ночам. Ночью драматические пейзажи приобретают волшебный вид, поскольку с приходом холода и влажности всё покрывается кристаллами льда.Производство: НорвегияЖанр: Документальный, видовойРежиссер: Адриан МодуйтПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0BD6919CDAA8EE62D67A191EEA4E6F29609D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444193   (1034922) от 31.01.2021
+
+Роско Арбакл.  Фатти и Мейбл на выставке в Сан-Диего / Fatty and Mabel at the San Diego Exposition (1915) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейная пара отравляется на выставку, но Фатти любит пофлиртовать...Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Роско АрбаклАктеры: Роско Арбакл, Мэйбл Норманд, Джо Бордо, Билли Броуэлл, Глен Кэвендер, Элис Девенпорт, Минта Дарфи, Тед Эдвардс, Вивиан Эдвардс, Гарри ГриббонПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A821C318C39780C057F223BDBCF2E84322A5007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444253   (1034921) от 31.01.2021
+
+PrivaZer 4.0.18 Free + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034921.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E07E8C67F83186163E2EBA1A1DE7DF4C9E8783A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444121   (1034920) от 31.01.2021
+
+Эрин Груэлл | Писатели свободы. Как 150 «трудных» подростков и учительница бросили вызов стереотипам (2021) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой учительнице Эрин Груэлл достался трудный класс, на который остальные давно махнули рукой. Проявляя любовь и поддержку, она помогла подросткам рассказать свои истории и побороться за новое будущее.Жанр: Педагогика, Воспитание детей, Истории из жизниПеревод: Ульяна СапцинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F1C37819474F6E2519267B01E34C0A427BA483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444103   (1034919) от 31.01.2021
+
+Лила - Божественная игра / Lila - The Divine Play (2020) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я отправился в поездку на север Индии, чтобы запечатлеть фестиваль красок - Холи. Было бы справедливо сказать, что никогда в своей жизни я не испытывал такого яркого, игривого праздника.Производство: ИндияЖанр: Документальный, видовойРежиссер: Франк ЗауэрПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DF6AD5C71367109F620CB53AB9B68A5092B557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444244   (1034918) от 31.01.2021
+
+Пространство для блуждания / Space To Roam (2019) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, вдохновлённый уникальными структурами, узорами и общими «потусторонними» ландшафтами, обнаруженными на землях Юго-Западной АмерикиПроизводство: СШАЖанр: Документальный, видовойРежиссер: Эндрю СтудерПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0C38579AADBBBD190B9E5A735229A787A3B82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444142   (1034917) от 31.01.2021
+
+Супергёрл / Supergirl (2017-2018) WEB-DLRip [H.264/1080p-LQ] (сезон 3, серии 1-23 из 23) LostFilm
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034917.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Супергёрл" расскажет историю Кары Зор-Эл с планеты Криптон. После уничтожения родной планеты Кара прибывает на Землю, где скрывает свои сверхчеловеческие способности. Однако по достижении 24 лет она решает использовать свою силу во благо и стать тем героем, которым всегда хотела быть.Производство: США / Berlanti Productions, Warner Bros. TelevisionЖанр: фантастика, боевик, драма, приключенияРежиссер: Джесси Уарн, Глен Винтер, Ларри ТенгАктеры: Мелисса Бенойст, Кайлер Ли, Дэвид Хэрвуд, Мехкад Брукс, Кэти МакГрат, Джереми Джордан, Джесси Рат, Крис Вуд, Андреа Брукс, Николь МэйнсПеревод: Многоголосый (LostFilm)Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87E00F8F4CBEDCDF1E5A3ECAEDEA8C388C77855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444099   (1034916) от 31.01.2021
+
+Безмятежность / Serenity (2020) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сам фильм представляет собой трёхминутную смесь полного спокойствия и умиротворения, которая позволяет вам ненадолго уйти от реальности. Снятый в разных местах на Земле, он показывает уникальный и великолепный пейзаж под необычным углом.Производство: РоссияЖанр: Документальный, видовойРежиссер: Вадим ЩербаковПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3724F2602F626D4A98ECDBA95E61AA3EBEABAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

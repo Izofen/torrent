@@ -1,3 +1,177 @@
+###  Публикация: 1276336   (788507) от 15.01.2019
+
+A-Ha - Headlines And Deadlines: The Hits Of A-Ha Vol.2 (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788507.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Move To Memphis (4:17)
+A2. I've Been Losing You (4:27)
+A3. The Living Daylights (4:16)
+A4. Crying In The Rain (4:22)(   Читать дальше...   )Производство: Not On Label - RGM 7030Жанр: New WaveПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365EC4B13142CA1BF1868B2AFD46426DCC9B8AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202075   (788096) от 02.02.2018
+
+Дуговка - 10 - Фестиваль бардовской песни (1999) [FLAC|Lossless|tracks] <Ballad, Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Е. Гангаев, О. Селицкая, С. Каплан - Приветствие слету
+02. КСП города Хайфа - Пиратская лирическая
+(Б. Окуджава)
+03.Н. Якимов - Возок(   Читать дальше...   )Жанр: Ballad, VocalПродолжительность: 01:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A26CF19BBEDECF335AAAE346FE0B578BE3BA8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202935   (788095) от 02.02.2018
+
+Александр Слободяник - Фредерик Франсуа Шопен (1977) [WavPack|Lossless|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788095.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	До Мажор. Соч.10. Allegro
+A2	Ля Минор. Соч.10. Allegro
+A3	Ми Мажор. Соч.10. Lento Ma Non Troppo
+A4	До Диез Минор. Соч.10. Presto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23FD37C08CEF21647A635AA3CA2B25FCC79F30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203567   (787557) от 03.02.2018
+
+Judas Priest - Painkiller (1990) Reissue, 2017, Columbia [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painkiller (6:10)
+02. Hell Patrol (3:37)
+03. All Guns Blazing (3:58)
+04. Leather Rebel (3:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D981169D9A7F41E9D75B517ABBBB48591C13EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124338   (785741) от 11.04.2017
+
+KOTO - The Original Masterpiece (2014) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo-Disco, Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785741.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Chinese Revenge
+A2. Japanese Wargame (Club Mix)
+A3. Visitors
+B1. Jabdah (Long Version)(   Читать дальше...   )Жанр: Italo-Disco, Synth-PopПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BEC0F31F573A2C030CB9BA579C1DB5952FEDD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202943   (785265) от 04.02.2018
+
+Elton John - Made In England (1995) Mercury-526185-4 [FLAC|Lossless|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785265.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 	Believe  Arranged 4:55
+A2 	Made In England  5:09
+A3 	House Arranged   4:27
+A4 	Cold Arranged      5:37(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A20DDDEDFFB26CE2BFEAC312FF9F19327D0EBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203687   (785232) от 04.02.2018
 
 Чайф - Пусть Все Будет Так, Как Ты Захочешь (1995) [FLAC|Lossless|tracks] <Blues Rock, Acoustic>
@@ -573,171 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AD6BAC84384FED12CF8400D3A33D813975AFC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616265   (772491) от 21.06.2020
-
-Кино (Виктор Цой) - Неизвестные Песни Виктора Цоя (1992) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCF3778D92E0673B6A03A8630B32D552E81D453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660735   (771959) от 25.05.2013
-
-Vaya Con Dios - Night Owls (1990) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, Pop-Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Pop-JazzПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3F0249265CBB61A1FF2B0A8C30AB9302B5DC7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661199   (770500) от 26.05.2013
-
-Abba - 7 Альбомов (1975-1981) /Polar-Disco mate, Japan/ [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оцифровка японских винилов Великого Квартета.
-Автор оцифровки - неизвестен (источник bazar)
-Аппарат - неизвестен
-Код класса состояния винила - неизвестен(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F46A3A0C00943AFC55E458B73EAFF845F873126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125419   (768678) от 14.04.2017
-
-Rod Stewart - Tonight I'm Yours (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768678.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Tonight I'm Yours (Don't Hurt Me) (4:12)
-A2. How Long (4:14)
-A3. Tora, Tora, Tora (Out With The Boys) (4:31)
-A4. Tear It Up (2:29)(   Читать дальше...   )Производство: Warner Bros. Records - P-11067WЖанр: RockПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278675164DBCBB51AD4772275427EE1D5F4651B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278940   (767490) от 27.01.2019
-
-Slade - Легенды Зарубежного Рока (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767490.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Let's Call It Quits
-A2 Look At Last Night
-A3 Don't Blame Me
-A4 Gudbue Gudbue(   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25FFBD682E9A89D16461FC92806138C4DF1C1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203008   (765514) от 22.05.2010
-
-Depeche Mode - 11 альбомов (1981-2005) (Vinil-rip 24 Bit/96 kHz) [FLAC|Lossless]<Electro-Rock, New Wave, Synthpop>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro-Rock, New Wave, SynthpopПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

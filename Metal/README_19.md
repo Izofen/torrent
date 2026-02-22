@@ -1,3 +1,38 @@
+###  Публикация: 283639   (933785) от 22.01.2011
+
+Demons & Wizards - Дискография (2000-2005) [MP3|320 kbps]<Heavy Metal/Progressive Metal/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy Metal/Progressive Metal/Power MetalПродолжительность: 00:49:03
+
+1. Crimson King (5:47)
+2. Beneath These Waves (5:12)
+3. Terror Train (4:46)
+4. Seize The Day (5:22)
+5. The Gunslinger (5:15)
+6. Love's Tragedy Asunder (5:28)
+7. Wicked Witch (3:32)
+8. Dorian (6:19)(   Читать дальше...)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB43A076DB861F53B13C270314478AE3AA30645C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754210   (933729) от 07.02.2014
 
 Kowai - Dissonance (2014) [MP3|320 кб/с]<Symphonic Gothic Metal>
@@ -775,41 +810,6 @@ Tidal Dreams - Once upon a Tide (2012) [MP3|320 кб/с]<Heavy, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:082BF49BABD89510DFE0BBB846E5AC13C9BBB033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753724   (932004) от 08.02.2014
-
-Cryptic Wintermoon - 4 Альбома (2003 - 2009) [MP3|320 кб/с]<Melodic Black / Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. 21 Guns (Intro) (01:00)
-02. Pride Of Australia (04:41)
-03. Dominate (04:18)
-04. Dreadnought (04:34)
-05. Down Below (05:20)
-06. One Of Your Sons Is Coming Home (06:18)
-07. Hellstorm Infantry (04:20)
-08. Tales From The Trenches (04:10)
-09. God With Us (04:10)
-10. Last Letter (04:03)(   Читать дальше...   )Жанр: Melodic Black / Melodic Death MetalПродолжительность: 03:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD252BBE90D7CA0350E77C6A06EE9389E201845
 ```
 
 https://mybot314.ru/tekegram_catalog/

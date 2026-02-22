@@ -1,3 +1,29 @@
+###  Публикация: 1109860   (857061) от 28.02.2017
+
+Microsoft Windows and Office ISO Download Tool 4.19 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Windows and Office ISO Download Tool - небольшая, бесплатная, не требующая установки в систему утилита для прямого скачивания образов дисков (ISO) дистрибутивов ОС Windows и Office с серверов компании Microsoft.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1504F472D8457B265F7E73AA673CC82731522B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109662   (857060) от 28.02.2017
 
 MetaProducts Offline Explorer Enterprise 7.4.4572 SR1 Portable by punsh [Multi/Ru]
@@ -668,32 +694,6 @@ Ashampoo Photo Commander - новая девятая версия програм
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305709   (856996) от 07.03.2011
-
-Журнал | Сам [Россия] №3 (Март 2011) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856996.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЖурналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8868CF39E52E18EA6B3A215209C3EA699B68674A
 ```
 
 https://mybot314.ru/tekegram_catalog/

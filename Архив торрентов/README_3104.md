@@ -1,3 +1,29 @@
+###  Публикация: 1558512   (529889) от 21.06.2022
+
+Media Player Classic - Black Edition (MPC-BE) 1.6.3.0 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic - Black Edition (MPC-BE) – универсальный проигрыватель аудио- и видеофайлов для операционной системы Windows. Этот проект имеет свою независимую разработку на базе оригинального кода «Media Player Classic» и «Media Player Classic - Home Cinema». Плеер имеет внушительный набор аудио-видео фильтров, который позволяет ему воспроизводить практически (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A1286BC4D19BC70DF448A59CABB5B95F1F33ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558710   (529887) от 21.06.2022
 
 Piriform Utilities Pro (Defraggler 2.22.995, Recuva 1.53.2083, Speccy 1.32.774) RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -664,32 +690,6 @@ Infix PDF Editor Pro 7.2.8 RePack (& Portable) by TryRooM [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AA073EA5CD5251AFDA7949116B0D0DF9B786222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240246   (529669) от 10.08.2018
-
-Soft Organizer 7.27 RePacK by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D98321FAC5755C365D7FBE821D21D66B14EA66E
 ```
 
 https://mybot314.ru/tekegram_catalog/

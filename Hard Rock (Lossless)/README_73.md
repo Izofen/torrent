@@ -1,3 +1,32 @@
+###  Публикация: 1631739   (236111) от 07.05.2023
+
+The Answer - Sundowners (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_236111.jpg" />
+</div>
+
+
+###  Подробнее
+
+После семилетнего перерыва The Answer вернулись. Их долгожданное и долгожданное возвращение сопровождается новым альбомом, отражающим душу группы, стремящейся не только возродить свою фирменную искру рок-н-ролла, но и загореться ярче, чем когда-либо прежде. Эти четверо ирландских рокеров перегруппировались и с головой окунулись в создание альбома, вобравшего в себя (   Читать дальше...   )01. Sundowners
+02. Blood Brothers
+03. California Rust
+04. Want You To Love Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA688A13B6BBE5A9E9F49473453585158A744F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511483   (236108) от 21.11.2021
 
 Supernova Plasmajets - Now Or Never (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
@@ -716,35 +745,6 @@ Convoy - Some Gave All for Rock n Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F2FC2A68BA0105537CF65C555C89A29539DF8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620021   (235046) от 19.03.2023
-
-Stargazer - Life Will Never Be the Same (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can You Conceive It [00:03:48]
-02. Live My Dream [00:05:10]
-03. Rock The Sky [00:06:03]
-04. Live Today [00:03:48](   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4607F6C0F12F701F6F466206D69EC230B02013C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

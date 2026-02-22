@@ -1,3 +1,32 @@
+###  Публикация: 1652199   (206693) от 10.08.2023
+
+Sexy Lovers Music Collection - Barcelona Romantic Cafe: Spanish Guitar Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Guitar, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Coffee
+02. Romantic Weekend
+03. Sexy Summer
+04. Play Your Game(   Читать дальше...   )Жанр: Instrumental, Guitar, Easy ListeningПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80EF1A2A5EEB6DACA553345BB10DC2C2A004DACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652298   (206626) от 10.08.2023
 
 Chris Spheeris & Paul Voudouris - Europa (1995) [FLAC|Lossless|image + .cue] <Instrumental, New Age, Ambient>
@@ -716,35 +745,6 @@ Enigma - The Platinum Collection (2009) [FLAC|Lossless|tracks + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65B2B2433555787882EF95C3CD2DF6E80CD511F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627165   (199392) от 22.04.2023
-
-Ricardo - Klangschalen-Musik (2009) [FLAC|Lossless|tracks + .cue] <Meditative, Tibetan Bowls>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loslassen vom Alltag
-02. Die Entspannung genieben
-03. Sich rundherum Wohlfuhlen
-04. Die innere Ruhe genieben(   Читать дальше...   )Жанр: Meditative, Tibetan BowlsПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CE5CE60AA9CBF2991DD54FD22C1BE1E0DFA3D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

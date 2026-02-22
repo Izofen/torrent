@@ -1,3 +1,90 @@
+###  Публикация: 1128787   (724975) от 27.04.2017
+
+Sidney Bechet - Jazz Anthology (1952) 2007, Promo Sound [FLAC|Lossless|image + .cue] <Dixieland, Revival>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amarican Rhythm [00:47]
+02. Muskrat Ramble [05:37]
+03. Frankie an Johnny [05:48]
+04. Petite Fleur [03:20](   Читать дальше...   )Жанр: Dixieland, RevivalПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896A7CF9B5461B5A6A37EA3E9616D9D4E1777645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128790   (724843) от 27.04.2017
+
+Laurindo Almeida - Chamber Jazz (1978) 2000,	Concord Jazz [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Latin Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dingue le Bangue [04:21]
+02. Unaccistomed Bach [07:24]
+03. Odeon [02:08]
+04. Bourree and Double [04:02](   Читать дальше...   )Жанр: Brazilian Jazz, Latin Jazz, Guitar JazzПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3DCDB02DCEE133AFFC043630F47374B9054BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129124   (724834) от 27.04.2017
+
+Frank McComb - The Truth, Volume One (2003) Expansion [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine [07:02]
+02. Watcha Gonna Do [04:28]
+03. Never Letting Go [05:29]
+04. Do You Remember Love [04:22](   Читать дальше...   )Жанр: Jazz-Funk, SoulПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0394B86CE29DECD344F3AD70E991D0A7B66EB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129094   (724833) от 27.04.2017
 
 Innes Sibun - Superstitious (1995) [APE|Lossless|image + .cue] <Blues Rock, Classic Rock>
@@ -658,93 +745,6 @@ Joey DeFrancesco - Incredible! (2000) Concord Jazz [APE|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF02B77AED3972971B266500BB072A2BCE2B59C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218422   (723401) от 09.04.2018
-
-Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Another Monday Night At Birdland (1958) 2016, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's You Or No One [08:36]
-02. Jamph [11:11]
-03. Nutville [10:17]
-04. Wee [11:29]Жанр: Hard BopПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34F53611ED0C33431EED961F2D3C5D308BEB686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400016   (723166) от 03.08.2020
-
-Chet Baker Quartet featuring Phil Markowitz - Live at Nick's (1989) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Thing for You Is Me [9:44]
-02. Broken Wing [9:56]
-03. This Is Always [8:27]
-04. Beautiful Black Eyes [17:11](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242D1CC7ACD2970E7404573EB595981419862EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400014   (723163) от 03.08.2020
-
-Bebop & Beyond - Plays Thelonious Monk (1990) Bluemoon [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Francisco Holiday [7:12]
-02. Brilliant Corners [7:02]
-03. Think of One [7:30]
-04. Crepescule with Nellie [4:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953EAE00F23D1EC8A7C5077BB71C98C09D849FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

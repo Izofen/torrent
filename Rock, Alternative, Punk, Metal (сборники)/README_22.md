@@ -1,3 +1,32 @@
+###  Публикация: 1228237   (638893) от 30.05.2018
+
+VA - Super Хиты Зарубежного Рока (2018) [MP3|256-320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panic! At The Disco - High Hopes
+02. Imagine Dragons - Believer
+03. Imagine Dragons - Thunder (Final)
+04. Imagine Dragons - Radioactive (из фильма «Гостья»)(   Читать дальше...   )Жанр: RockПродолжительность: 06:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFA132541355ECF6716CFA0619C1EE9CB6E41FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906810   (637635) от 12.06.2015
 
 Алексей Фролов - гр. Condor [MP3|320 kbps]<Romantic Rock>
@@ -716,35 +745,6 @@ VA - Tragic Heroes: Hard Rock Legendary Sounds (2018) [MP3|320 Kbps] <Rock, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13832FB16407C67DE1C080A651AB9FDD7D54201D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230756   (612178) от 14.06.2018
-
-VA - Sound Of 70's Rock (2018) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZZ Top - Tush 2:14
-02. Warren Zevon - Werewolves Of London 3:28
-03. Alice Cooper - Schools Out 3:30
-04. Faces - Miss Judys Farm 3:40(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747D9AEE875CE50751259C53640B5CA05250B60B
 ```
 
 https://mybot314.ru/tekegram_catalog/

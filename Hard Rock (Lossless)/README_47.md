@@ -1,3 +1,32 @@
+###  Публикация: 1557218   (542830) от 14.06.2022
+
+Profound Less - Love Crusader (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come on Baby [00:04:01]
+02. Love Crusader [00:03:01]
+03. Love on a Distance [00:02:39]
+04. Hold on to Love [00:04:16](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B54998AF59FBA6DD9A57DA1C8EA610FB6257AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557256   (542703) от 14.06.2022
 
 Shaman's Harvest - Rebelator (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Metal>
@@ -720,35 +749,6 @@ Crystal Ball - Discography: 13 albums, 16CD (1999-2022) [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED5B2EC835E52F282C1C70A191D35F33B9E04819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051984   (530993) от 12.09.2016
-
-Art Nation - Revolution (2015) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Need you to Understand (3:51)
- 02.3000 Beats (3:58)
- 03.I Want Out (3:12)
- 04.Number One (4:40)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F026C7EC9D33026A7A03D863C628C287AFB02A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

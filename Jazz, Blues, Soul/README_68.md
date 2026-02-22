@@ -1,3 +1,96 @@
+###  Публикация: 752162   (943277) от 01.02.2014
+
+Adrien Moignard & Rocky Gresset - Entre Actes (2012) [FLAC|Lossless|WEB-DL]<Gypsy Jazz, Guitar>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Belleville
+02. How deep is your love
+03. Ready now that you are
+04. Dreams and waters
+05. Curtis song
+06. Love for sale
+07. Entre actes
+08. Bluesette
+09. I’ll remember april
+10. My funny Valentine(   Читать дальше...   )Жанр: Gypsy Jazz, GuitarПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406D7F7B02BDE008FE102DBE10EDE5008161D615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091435   (943237) от 09.01.2017
+
+Duke Jordan - Double Jordan (1979) 2CD, 1997, SteepleChase[APE|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943237.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Change A Pace [05:47]
+02.I Thought You'd Call Today [05:43]
+03.Double Scotch [07:07](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB6FDA0F32D5D68FB9B0842D5CC186D1D82DBDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091440   (943224) от 09.01.2017
+
+Perico Sambeat Ensemble - Plays Zappa (2016) Nuba Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Zomby Woof [05:57]
+ 02.It Must Be a Camel [06:19]
+ 03.Don't You Ever Wash That Thing? [06:28]
+ 04.For Calvin [06:34](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E133DBAD0A9346441A27C2E10A9D78CDCE63C92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 859878   (943221) от 15.01.2015
 
 Art Farmer - Live At The Half-Note / Meets Mulligan & Hall (1999) [FLAC|Lossless]<Jazz, Mainstream Jazz, Cool>
@@ -723,105 +816,6 @@ Alain Pinsolle - Chtarbmusique (2011) [FLAC|Lossless]<Contemporary Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69316E525B1654DF21F67EC9027ACFC49C5F67AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283046   (941939) от 16.01.2011
-
-Jon Butcher - Electric Factory (1996) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.  Rocket Ship (06:25)
-2.  Chili Sauce (06:24)
-3.  Rather Go Fishin' (03:15)
-4.  Cactus Flower (07:08)
-5.  A Sea Of Blues (05:04)
-6.  The Fireman's Ball (03:19)
-7.  Gambler (05:07)
-8.  Yes, She Does (03:46)
-9.  Brian's Electric Factory (05:23)
-10. --Instrumental-- (01:06)(   Читать дальше...)Жанр: BluesПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752236   (941841) от 02.02.2014
-
-Akale Wube - Mata (2012) [FLAC|Lossless]<Funk, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Marye (4:47)
-02. Dodo (4:28)
-03. Mata (3:50)
-04. Jour de pluie (2:23)
-05. Kasalefkut Hulu (5:25)
-06. Almaz yeharerwa (4:14)
-07. Asmarina (3:54)
-08. Bazay (5:42)
-09. Besetchet (2:39)
-10. Sabye (4:39)(   Читать дальше...   )Жанр: Funk, World FusionПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CF0A329E59E3375B342C2EB7279E106DA6492A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091814   (941769) от 10.01.2017
-
-Трио Льва Кушнира (The Lev Kushnir Trio) - Летучий Голландец (1994) Aprelevka Sound Production[APE|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.How Deep Is The Ocean [09:19]
- 02.Polina's Waltz [06:11]
- 03.Tones For Joan's Bones [05:36]
- 04.Sing, Sing, Sing [04:36](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2630C96B76B478B566CB3377015C8EF859625751
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1235299   (562275) от 10.07.2018
+
+Hadley Caliman & Pete Christlieb - Reunion (2010) [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Dex (Anschell) - 6:29
+02. Up Jumped Spring (Hubbard) - 7:31
+03. Comencia (Caliman) - 8:03
+04. Gala (Caliman) - 11:03(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF7DDAF275537A4D9EA438B2B228EACB9BC5CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235230   (562270) от 10.07.2018
+
+Ray Brown Trio - Live From New York To Tokyo (1987, 1989) 2CD, 2003, Concord Records [APE|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562270.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Red Hot Ray Brown Trio:
+01. Have You Met Miss Jones? [4:20]
+02. Meditation [6:06]
+03. Street of Dreams [5:19](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7BC0D23330F5F65D92E8FEC3CA0AFFD828F1C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235290   (562268) от 10.07.2018
+
+Mike Vax & Ron Romm - Collaboration (2018) [FLAC|Lossless|image + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadow of Your Smile (Mandel) - 7:24
+02. Cornet Chop Suey (Armstrong) - 3:31
+03. My Pal Yachee (Leoncavallo) - 3:11
+04. I Remember Clifford (Golson) - 3:40(   Читать дальше...   )Жанр: Swing, BopПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A9EE11D555E7574F0302FBBC826A8F7D1AD7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235281   (562263) от 10.07.2018
 
 VA - British Blues Cuts (2018) [MP3|320 Kbps] <Blues>
@@ -658,93 +745,6 @@ Hadley Caliman - Hadley Caliman (1971) 2014, Boplicity Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:247A8472E687266C605FDD9C30BD23A8E614F6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235416   (560462) от 11.07.2018
-
-Howard "Guitar" Luedtke And Blue Max - Face To Face With The Blues (1996) False Dog Records [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560462.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. You Make Me Feel Alright
-2. Your Love Is Hard On Me
-3. Howywood
-4. Meanest Gal I Know(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67507D6111C151E11A448574C28F66AEDC25F4B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235408   (560456) от 11.07.2018
-
-Keith Jarrett, Gary Peacock, Jack DeJohnette - After The Fall (1998) 2CD, 2018, ECM Records [FLAC|Lossless|image + .cue] <Contemporary Jazz, Post Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560456.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Masquerade Is Over [15:50]
-02. Scrapple From The Apple [8:47]
-03. Old Folks [9:23](   Читать дальше...   )Жанр: Contemporary Jazz, Post BopПродолжительность: 01:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC9C7D01626EA15CD95025F4F8BEF6BB8D5DF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153288   (560207) от 26.07.2017
-
-Vladimir Tolkachev (Владимир Толкачев) Big Band & John Downes (2010) Ermatell Records [APE|Lossless|image + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night And Day [04:15]
-02. How Insensitive [03:27]
-03. Festival Of Rhythm [05:04]
-04. What Are You Doing The Rest Of Your Life [03:55](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC371313C2C96567B545FE4169F0E97FDE5C3319
 ```
 
 https://mybot314.ru/tekegram_catalog/

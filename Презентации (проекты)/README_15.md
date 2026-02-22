@@ -1,3 +1,30 @@
+###  Публикация: 1010149   (805691) от 23.04.2016
+
+Проекты - VideoHive - Still Run [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плашки, слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFC3F53B3D907F46FC086C2E38E2199F0EDE0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010163   (805672) от 23.04.2016
 
 Проекты - VideoHive - Energy Wipes [AEP]
@@ -646,32 +673,6 @@ Dynamic Urban Opener - проект для создания презентаци
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65810FE8AC0B10C149BB187C33EE025EF9EDC7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122054   (799044) от 04.04.2017
-
-Проекты - VideoHive - Elastic Opener Typography - 19598966 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elastic Opener Typography - Проект для создания динамичной презентации или короткого интро. Пошаговое руководство включено.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49A8AB3679239CCC830EE058A7D2E67DB479B1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

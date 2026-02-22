@@ -1,3 +1,90 @@
+###  Публикация: 1201560   (792231) от 25.01.2018
+
+Elsie Bianchi - Fly Me To The Moon (1960 - 1962) 2011, Sonorama [FLAC|Lossless|image + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Remember Clifford [05:00]
+02. Hot Dig a Dee [04:38]
+03. No Moon at All [02:51]
+04. Paradise [03:10](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4F7C9A46FBBC98E379D0DD0188211F3BD8BDEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201550   (792230) от 25.01.2018
+
+Caterina Valente In London (1963) 2004, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Fly with Me [02:48]
+02. My Funny Valentine [02:58]
+03. I've Got You Under My Skin [02:54]
+04. Never Will I Marry [02:37](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C3E50C2AE1AABFC9E67E2DFE864F15CC019342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510091   (792209) от 15.11.2021
+
+Steve Tyrell - This Time Of The Year (2002) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Claus Is Coming to Town [2:10]
+02. Winter Wonderland [2:44]
+03. Rudolph the Red-Nosed Reindeer (feat. Clark Terry) [3:16]
+04. The Christmas Song [4:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185A7907A4C083773FCB99B91F1842906043C474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510084   (792207) от 15.11.2021
 
 Art Farmer - Silk Road (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -658,93 +745,6 @@ Miles Davis & Stan Getz - Move (1950 - 1952) 2003, Dynamic Entertainment [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E572B1A61BA1DDE3E28BD5B2A15D395943485F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201990   (791056) от 27.01.2018
-
-Ben Webster - Three Classic Albums Plus (1954, 1957, 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791056.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tangerine [05:24]
-02. La Rosita [05:06]
-03. Cocktails For Two [02:44](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A563A1BB6AD7ECABE65EFEC9BA552AAD72CBEBBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202015   (791021) от 27.01.2018
-
-John Hammond - Southern Fried (1969) Reissue, 2002, Water [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791021.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shake For Me
-2. Cryin' For My Baby
-3. I'm Tore Down
-4. Don't Go No Further(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6999DC28D9330295E801636AB45F5E1237FAF8B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201918   (790983) от 27.01.2018
-
-Trish Kerr - Clover (2018) [MP3|320 Kbps] <Blues Rock, Jazz Rock, Female Vocal>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clover
-02. Three
-03. Never Gonna Get It
-04. Insideline(   Читать дальше...   )Жанр: Blues Rock, Jazz Rock, Jazz, Female VocalПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43841F495DE8B5ECAE5909FAE6AB6FDD959AFC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

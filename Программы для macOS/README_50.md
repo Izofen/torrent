@@ -1,3 +1,29 @@
+###  Публикация: 1013483   (777452) от 04.05.2016
+
+Xilisoft Video Converter Ultimate 7.8.16 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия очень мощной программы для конвертирования большого количества видео форматов. Video Converter Ultimate поддерживает большинство популярных видео форматов, в том числе DVD, VCD, SVCD, MOV, RM, AVI, MPEG, MPEG1, MPEG2, MPEG4, WMV, 3GP, h264 и т.д. Присутствует возможность конвертирования в iPod и PSP видео. Кроме того, Xilisoft Video Converter позволяет (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2016Разработчик: Xilisoft Corporation.Поддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF3307C1EC62F366CD2E54EDE5085E647353FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211395   (777430) от 07.03.2018
 
 Templates Lab for MS Office 3.3 [Multi/Ru]
@@ -677,33 +703,6 @@ Fax Templates for Pages -  высококачественный набор из 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F362FF2B2C6FE6B78806F8E3B7BDD75C69580B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391745   (773244) от 21.06.2020
-
-MWeb: Markdown writing, note taking, static blog generator 3.4.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773244.jpg" />
-</div>
-
-
-###  Подробнее
-
-MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
-MWeb оддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop, вставку изображения и др.. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.06.2020Разработчик: CoderForArt IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927381B58B0DB51195F6CB4A0EC77A8713A2DAEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

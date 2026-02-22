@@ -1,3 +1,32 @@
+###  Публикация: 1552520   (586750) от 21.05.2022
+
+Ahmad Jamal - The Complete Ahmad Jamal Trio Argo Sessions (1956 - 1962) 9CD, 2010, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586750.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Volga Boatman [3:50]
+02. On Green Dolphin Street [3:18]
+03. How About You [5:27](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 09:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252657B68847070B27B78F3CF7646A972939618B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040504   (586577) от 05.08.2016
 
 Gil Evans - Svengali (1973) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Modern Big Band, Jazz Fusion>
@@ -725,35 +754,6 @@ Oriana Curls - Because I'm French (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD070BEDAF3A4C24D47CEA1E2A43A920EFCB9E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553190   (583808) от 24.05.2022
-
-Sarah Vaughan - The Roulette Years, Vols. 1-2 (1960 - 1964) 1991, Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Time We Say Goodbye [2:27]
-02. Great Day [2:13]
-03. Just in Time [2:21]
-04. You Stepped Out of a Dream [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED244966432DB782DA215B79CDB2BC386A57C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

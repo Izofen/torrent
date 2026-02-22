@@ -1,3 +1,90 @@
+###  Публикация: 1438394   (1041037) от 08.01.2021
+
+Vargas Blues Band - The Very Best Of (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Spanish Wine (feat. Chicuelo)
+02. Blues Latino (En Directo)
+03. Del Sur (feat. Chicuelo)
+04. Albatross (En Directo)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4592D4AF102E10990899B64001EA62BB81A12F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438420   (1041031) от 08.01.2021
+
+Salvo - Back to My Blues Vol. 1 (2021) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Ur Covid Frustration (03:26)
+ 02. It's Raining Again (02:40)
+ 03. Who's the Best (02:58)
+ 04. Kick (05:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E73BDA0FFE8E7E2372160978BC07D04986C17BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438586   (1040948) от 09.01.2021
+
+Sun Ra - Cosmos (1976) 2008, Inner City Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mystery of Two [5:52]
+02. Interstellar Low-Ways [5:24]
+03. Neo Project #2 [5:04]
+04. Cosmos [2:59](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C8FC2C05283354BEB44770D4296F2F02B0C98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611788   (1040842) от 13.02.2023
 
 VA - Ladies In Love classees X (1939 - 1956) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
@@ -657,93 +744,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93EA0376165339D8811F4F5DD931D3DDB73557BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439507   (1039599) от 14.01.2021
-
-Gotz Alsmann   - In Rom (2017) [FLAC|Lossless|image + .cue] <vocal Jazz. Early Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quando Quando Quando [0:03:46.46]
-02. Azzurro [0:04:05.36]
-03. Die schonste der Erde [0:03:30.14]
-04. Carina [0:02:50.16](   Читать дальше...   )Жанр: vocal Jazz. Early Jazz, SwingПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6D635D6D205699B2361689FFE8FE1F0AC2FCF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613446   (1039578) от 18.02.2023
-
-James Williams - Still Got the Grease (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Movin' on (5:12)
-02. There's a Hole in My Roof Leakin' (7:41)
-03. Goin' to the City (3:43)
-04. Black Cat (3:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6087DC36940AB2F48EB3B7A937E26ABECCF46E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613334   (1039542) от 18.02.2023
-
-Eric Clapton - Rarities 1983-1998 (2023) [FLAC|96/24|Lossless|WEB-DL|tracks] <Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone Free
-02. Crossroads (Live in Birmingham, England, 1986)
-03. White Room (Live in Birmingham, England, 1986)
-04. Theme From A Movie That Never Happened (Orchestral)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38449464693835334E1D23A25116241EA08A4B6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

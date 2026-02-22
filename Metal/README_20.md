@@ -1,3 +1,38 @@
+###  Публикация: 753724   (932004) от 08.02.2014
+
+Cryptic Wintermoon - 4 Альбома (2003 - 2009) [MP3|320 кб/с]<Melodic Black / Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. 21 Guns (Intro) (01:00)
+02. Pride Of Australia (04:41)
+03. Dominate (04:18)
+04. Dreadnought (04:34)
+05. Down Below (05:20)
+06. One Of Your Sons Is Coming Home (06:18)
+07. Hellstorm Infantry (04:20)
+08. Tales From The Trenches (04:10)
+09. God With Us (04:10)
+10. Last Letter (04:03)(   Читать дальше...   )Жанр: Melodic Black / Melodic Death MetalПродолжительность: 03:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD252BBE90D7CA0350E77C6A06EE9389E201845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754695   (932000) от 08.02.2014
 
 Woe Unto Me - A Step Into The Waters Of Forgetfulness (2014) [MP3|320 кб/с]<Funeral Doom/Death Metal>
@@ -781,35 +816,6 @@ U.D.O. - Decadent (2015) Limited Edition [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2080DDBD2925B1843CC9F2F6AA8E4466A29B07C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987307   (927969) от 16.02.2016
-
-Post-Mortem - God With Horns (2016) [MP3|320 кб/с] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Beyond the Void)
-02. Spine Trophy
-03. Rules of Death
-04. Eat the Cadaver(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DC2E08B53B20DE86E06B9DEA3DE352AECF4B67
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1341654   (229385) от 29.11.2019
+
+Droneghost - Curse (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curse One (06:44)
+ 02. Curse Two (08:21)
+ 03. Curse Three (05:49)
+ 04. Curse Four (08:00)Жанр: Techno, AmbientПродолжительность: 00:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30E55CE2C47AD4FA756C69213AC4AEFE6B925C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341586   (229251) от 29.11.2019
+
+VA - Anjunabeats The Yearbook (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond – Homecoming (1:26)
+02. Rolo Green – Miracle (6:11)
+03. Tinlicker – The Walk (5:09)
+04. Grum – Stay (feat Natalie Shay) (7:52)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BFB706BEB09CAB43D4F321200A0B0A90B44FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268315   (228200) от 10.12.2018
 
 Valentino Mora - Transmagnetic (2018) Spazio Disponibile [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Tribal>
@@ -684,64 +742,6 @@ Armin van Buuren - Balance (Extended Versions) (2019) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57F329C51826CC057AB4F4B91857839DBCEA0C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832226   (213484) от 30.10.2025
-
-VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Dance, Club>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amlex - Be With You 02:40
-02. Tod Allen & Kris Kiss - Feelings 03:33
-03. Francesco Diaz, Radio Killer & Young Rebels - Clothes Off (Jeff Rock Remix) 06:09
-04. Muphus - Mahaba 03:35(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7071191FA515ADFE437A280149DED7B9A3971E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602046   (210982) от 03.01.2023
-
-VA - Beach Lounge Selected, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Medsound -  Afterlife  (3:44)
-02.  Medsound -  Satellites  (4:16)
-03.  Medsound, Maria Estrella -  Firestorm  (3:45)
-04.  Pavel Svetlove -  Look at Me (Medsound Remix)  (4:38)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Chill HouseПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B48722385C51B9F463B9D1DEA8D753D9EAA07AB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

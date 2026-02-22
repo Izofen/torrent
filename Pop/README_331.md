@@ -1,3 +1,90 @@
+###  Публикация: 1736782   (106646) от 13.07.2024
+
+Griff - Vertigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertigo (3:00)
+02. Miss Me Too (3:02)
+03. Into The Walls (3:09)
+04. 19th Hour (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9C1249A8E8D84B4D9EE03261211FF06E260A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736524   (106611) от 14.07.2024
+
+VA - Italia - Dance Music From Italy (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Box - Ride On Time (Massive Mix) (Remix)
+02. Gino Latino - No Sorry (AC Mix)
+03. Starlight - Numero Uno (Club Mix)
+04. Kekkotronics & LTJ - Gimme The Funk(   Читать дальше...   )Жанр: Electronic, Italo HouseПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAF77A4B1B854B6D9BF1FCC221CEAAB1793AEB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736853   (106608) от 14.07.2024
+
+Mega NRG Man - Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Hi NRG, Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back On The Rocks [2024 Remastered] (3:45)
+02. Get Me Power [2024 Remastered] (3:55)
+03. Night Fever [2024 Remastered] (4:09)
+04. Grand Prix [2024 Remastered] (3:53)(   Читать дальше...   )Жанр: Hi NRG, Italo-Disco, Euro-DiscoПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3AEA28607BC69D1A554F3A754B45659E4AE886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737116   (106560) от 16.07.2024
 
 Duran Duran - Skin Trade (1987) Mix, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
@@ -658,90 +745,6 @@ Duran Duran - All She Wants Is (1988) Remaster, 2024, Rhino [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40C8B9E62D2C9BB3A1C9D7ACB8A23EB62214FAEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739602   (106047) от 28.07.2024
-
-Army Of Lovers - Remixodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexodus (Maxim Andreev Radio Edit) (3:22)
-02. Love Is Blue (Sagi Kariv Radio Edit) (3:55)
-03. What's That Look (SoundFactory Radio Edit) (2:59)
-04. Romanism (SoundFactory Radio Edit) (2:26)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC398E76189B866B1A9970411CB209960E4D3300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739217   (106041) от 28.07.2024
-
-VA - Now Yearbook Extra '90 3 x CD, Compilation, Collectors Edition (2024) [MP3|320 Kbps] <Electronic, Hip Hop, Jazz, Rock, Reggae, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106041.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-01	George Michael–Freedom! '90	6:29
-1-02	The B-52's–Roam	4:05
-1-03	Duran Duran–Serious (Single Edit)	3:57
-1-04	Belinda Carlisle–Runaway Horses	4:12(   Читать дальше...   )Жанр: Electronic, Hip Hop, Jazz, Rock, Reggae, Funk / Soul, PopПродолжительность: 04:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D307DC1E49AEC4BF58CF156653E719242D765941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739251   (106039) от 28.07.2024
-
-VA - Now Yearbook Extra '85 (60 More Essential Hits From 1985) (2023) [MP3|320 Kbps] <Electronic, Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electronic, Rock, Funk / Soul, PopПродолжительность: 04:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6768FFB83515BBF7BCF73CB80D1F99A739CF22
 ```
 
 https://mybot314.ru/tekegram_catalog/

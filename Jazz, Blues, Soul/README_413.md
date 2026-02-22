@@ -1,3 +1,32 @@
+###  Публикация: 1834325   (248512) от 03.11.2025
+
+Bob Corritore - Early Blues Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Little Milton - I Want To Be The One (3:37)
+02.  Sam Lay - So Glad I'm Living (3:26)
+03.  Dave Riley - On My Way (2:50)
+04.  Jimmy Rogers - She Loves Another Man (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685BAE7129536B57AB8A19D5FDCC00E5128B7AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834329   (248511) от 03.11.2025
 
 Bobby Sweets - Blood On The Strings (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -793,35 +822,6 @@ Jeremy Edge - Saints and Souls, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13966519DD61B7BF9F34D7A9F800222579F86329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447638   (246023) от 14.02.2021
-
-Kandace Springs - The Women Who Raised Me (2020) [FLAC|Lossless|image + .cue] <Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil May Care - 03:02
-02. Angel Eyes - 06:04
-03. I Put A Spell On You - 04:01
-04. Pearls - 04:47(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645DA9BBC8F47A7D89B63326D57FE4E739E2B1C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

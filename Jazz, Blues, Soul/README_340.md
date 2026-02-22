@@ -1,3 +1,90 @@
+###  Публикация: 1573195   (414767) от 30.08.2022
+
+Marvin Gaye - I Want You The John Morales M+M Mixes (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Soul, Funk, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You (John Morales M+M Main Mix) [00:09:36]
+02. I Want You (John Morales M+M Instrumental Mix) [00:07:38]
+03. I Want You (John Morales M+M Breakdown Mix) [00:08:26]
+04. I Want You (John Morales M+M Pianopella Mix) [00:08:22]Жанр: Soul, Funk, R&BПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E810AAA583DD103EBD7ED755C2270DD720F68BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066294   (414748) от 25.10.2016
+
+Mick Abrahams - Long Long Gone (2016) [MP3|320 Kbps] <Blues, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chuck Brick Aka Berry Drive   (03:19) 
+  02. Della Aka Daisy Delta   (01:23) 
+  03. Forty Three Aka Forty Two   (04:24) 
+  04. Late Night Aka Conchita Mercedes   (02:32) (   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 00:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F80242122D0A3C6FC0FC30EE5584BC245BCF11F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325286   (414681) от 14.09.2019
+
+Anders Widmark Trio - Psalmer (1997) Kaza [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I denna ljuva sommartid [2:44]
+02. Allena Gud i himmelrik [3:02]
+03. Bereden vag for Herran [3:15]
+04. Jag kan icke rakna dem alla [2:08](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7854BF693F6F9685621AE6331B67F63A675A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325291   (414676) от 14.09.2019
 
 Betty Carter - Whatever Happened To Love? (1982) 1989, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -658,93 +745,6 @@ A Family Curse - A Family Curse (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAB7250B862E74EAF750586A732358A5272737F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573362   (412656) от 31.08.2022
-
-Christina Skjolberg - I´m on fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar and love (2:31)
-02. I´m on fire (2:52)
-03. Beautiful (3:32)
-04. Strange man (3:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6F6A430805E65D7FEE10CC986E708E2788B628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573376   (412652) от 31.08.2022
-
-Justine Blazer - Girl Singing the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretend in the Dark (3:33)
-02. Cold Day in Hell (4:20)
-03. Big Bright Beautiful Day (3:04)
-04. Tears of Blue (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD239B5B4976BFDDDA501C98B28FFFF6BDF2884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573357   (412532) от 31.08.2022
-
-Masahiko Satoh featuring Eddie Gomez And Steve Gadd - As If... (1985) Denon [APE|Lossless|image + .cue] <Jazz Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cajuput Trip [5:20]
-02. Waltz for Debby [5:04]
-03. Nardis [6:36]
-04. Dead End [3:35](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46648C16B666B133342B3E3FE9CCF8FD3D93B83F
 ```
 
 https://mybot314.ru/tekegram_catalog/

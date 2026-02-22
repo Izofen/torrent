@@ -1,3 +1,32 @@
+###  Публикация: 1337373   (274795) от 10.11.2019
+
+UFO - The Best Of The Rest (1988) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Writer
+02. Mystery Train
+03. Makin Moves
+04. Night Run(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75417F974B50772B9F0CF34D6707A8CA20C076A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188462   (274718) от 02.12.2017
 
 McAuley Schenker Group - Save Yourself (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -714,35 +743,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:351C18110105A8C1A7E6E4672D37370629F5F4A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838490   (260777) от 23.11.2025
-
-Black Sabbitch - Unrest In The West (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wheels Of Confusion/The Straightener (8:13)
-02. A National Acrobat (6:10)
-03. The Wizard (4:20)
-04. A Hard Road (5:58)(   Читать дальше...   )Жанр: Hard-Rock, Heavy-MetalПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D5E1D3114F8E37A7912C08C6B45A6F00AC3DD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 1143552   (635122) от 18.06.2017
+
+Disco Digitale - Electronic Passion (2014) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora 5:26
+02. Night Sky 4:58
+03. You Tell Me 3:48
+04. The Future 4:15(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9782C958D58C41911880EA131936DCB786C3338B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143672   (635108) от 18.06.2017
+
+Disco Digitale - Discography (2006-2014) [MP3|320 Kbps] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Disco Digitale была образована в 2003 году под влиянием творчества Fancy, Digital Emotion, Trans-X. Первый альбом "Computer Dreams" вышел в 2006 году и включал в себя 11 песен, здесь присутствует мужской и женский вокал. Позже вышел диск с ремиксами на треки из первого альбома и несколькими новыми песнями.
+ Состав группы: братья Ларс и Кристер Бьёрндал (   Читать дальше...   )01. Taken To The Stars 3:47
+02. Videogirl 3:40
+03. Digital Love 3:58
+04. Lightspeed 3:23(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 02:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3A7C1770AD4A288CC3349283E56041CD3E9BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143332   (635094) от 18.06.2017
+
+Limelight - Special Love (2015) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Love (6:24)
+02. Hold Me Tight (7:03)
+03. Call Me (7:02)
+04. I Want Your Love (7:19)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A21DEB12B1A107F895475C256E657A3C8D15E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517552   (635060) от 07.07.2012
+
+Flo Rida - Wild Ones (2012) [FLAC|Lossless]<Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whistle
+02. Wild Ones (feat. Sia)
+03. Let It Roll
+04. Good Feeling
+05. In My Mind, Pt. 2 (feat. Georgi Kay)
+06. Sweet Spot (feat. Jennifer Lopez)
+07. Thinking Of You
+08. I Cry
+09. Run (feat. RedFoo of LMFAO)Жанр: Pop, Dance, R&BПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CBA0061B8FB95ECDF51893E54D41A7F6A33143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143549   (634971) от 18.06.2017
 
 Алла Йошпе и Стахан Рахимов - Лучшие песни (2009) [MP3|320 Kbps] <Ретро,Советская эстрада>
@@ -656,122 +778,6 @@ Ladies of Soul - Live at the Ziggo Dome (2018) [MP3|320 Kbps] <Soul, R&B, Pop, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CC43C7E6BE665F79ABF8D57947726417019127A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543385   (631983) от 10.04.2022
-
-Виктория Черенцова - Кукуруза (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. До завтра, Москва (3:53)
-02. Я люблю тебя (3:30)
-03. Будь со мной (3:36)
-04. Танцуй (3:42)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDCEDF5DB75177EC3E92C87BEDFDD6923CDF4FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228980   (631978) от 03.06.2018
-
-VA - Ещё одна вечеринка!! (1995) [FLAC|Lossless|image + .cue]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каролина - Вот и всё
-02. Лариса Черникова - Подари мне ночь
-03. Кай Метов - А ты меня не поняла (Techno Mix)
-04. Юла и Джимми Джи - Рэйв Тайм (Sovok Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85882F0058BEC2735DC0C08C8F4D895F1B6A52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294057   (631858) от 06.04.2019
-
-Weyes Blood - Titanic Rising (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Lot's Gonna Change (04:21)
-02. Andromeda (04:40)
-03. Everyday (05:07)
-04. Something to Believe (04:45)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E224C1CE0EC0B086D11B257E393492B0F2485F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543390   (631835) от 10.04.2022
-
-Виктория Черенцова - Карантин (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карантин (3:05)
-02. Не бойся (4:11)
-03. Опять дожди (3:51)
-04. Однажды ты соскучишься по мне (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15699D4FE94381D537A176B15C30B724455233F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

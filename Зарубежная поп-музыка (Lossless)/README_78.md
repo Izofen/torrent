@@ -1,3 +1,32 @@
+###  Публикация: 1585696   (220252) от 23.10.2022
+
+Carly Rae Jepsen - The Loneliest Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surrender My Heart
+02. Joshua Tree
+03. Talking to Yourself
+04. Far Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8493BAB1077C601F1860B6341F7DDBACAE406986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651807   (220209) от 08.08.2023
 
 Jef Scott - Ten Stories (1986) Remastered, 2013, Yesterrock [FLAC|Lossless|image + .cue] <Pop Rock, New Wave, AOR>
@@ -745,35 +774,6 @@ Belinda Carlisle - 7 альбомов (2013 - 2014) Remastered & Expanded Deluxe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:210DC15862A9AE6AFABF5E3BC1C838AB0AB3B8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586766   (215638) от 27.10.2022
-
-Bjork - Fossora (2022) [FLAC|Lossless|image + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atopos
-02. Ovule
-03. Mycelia
-04. Sorrowful Soil(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B890FBE5C050C6EF70D5251E0E2369FE89C74A
 ```
 
 https://mybot314.ru/tekegram_catalog/

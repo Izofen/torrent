@@ -1,3 +1,32 @@
+###  Публикация: 1465389   (1019163) от 26.04.2021
+
+West Hill - Rock 'n' Bubble (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pleasure Machine (04:38)
+02. The Bard (04:16)
+03. Innocent Smile (05:15)
+04. Pretty Air Hostess (04:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18BA887713EFB6E5BA0C7BB875FE7DCF9C3BAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465386   (1019158) от 26.04.2021
 
 Reach - The Promise Of A Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -716,35 +745,6 @@ A Rising Force - Undertow (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C68FDC066503EB8062D912A78F5D494BCBCABD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469250   (1016602) от 11.05.2021
-
-Simon Says - Spin This (1991) Reissue, Remastered, 2020, Escape Music [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Love Thing
-03. Let Me Know
-04. When I See You Standing There(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC8AC9CFA863865545A8ECDE7DE369439AF9B2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 997855   (868643) от 20.03.2016
+
+VA - Various Artists - Horenswert Vol. 10 (2016) [MP3|320 кб/с] <Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third Son - Oedipus
+ 02. Alex Neri - Desert Rose (Burnski Remix)
+ 03. Philip Bader - The Vibe
+ 04. Martinez - Honey Lips(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89013E0056B8C4B46F6556C6057DF540EDAE6652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998612   (868590) от 20.03.2016
+
+Flash Cartel - Elevate (2012) [MP3|320 кб/с] <Progressive House, Drum & Bass, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevate (Original Mix) [05:56]
+02. Elevate (Three20 Remix) [05:36]
+03. Breakaway (Original Mix) [06:46]
+04. Boulevard (Original Mix) [04:12]Жанр: Progressive House, Drum & Bass, Electro HouseПродолжительность: 00:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29DA6534A3453BAC43455A286C2D2E78615E565D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997862   (868576) от 20.03.2016
+
+VA - We Love Deep Vol. 1 (2016) [MP3|320 кб/с] <Tech House, Indie Dance, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phunk Investigation - Cadillac Man (Radio Edit)
+ 02. Mart - Hollywood (Short Edit)Жанр: Tech House, Indie Dance, Nu DiscoПродолжительность: 01:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A80DA118C937C9420C2A9B83BB93CF1224D9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107216   (868328) от 22.02.2017
 
 VA - Ibiza Forecast (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -694,111 +779,6 @@ Tensnake - Glow (2014) [MP3|320 кб/с]<Electro House / Nu-Disco / Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5300E7940E939D9B254841110716077541C4CF22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767980   (863977) от 18.03.2014
-
-VA - Pure Ecstasy Vol 1 (Dreamy Deep House & Chillout Tunes) (2014) [MP3|320 кб/с]<Electronic, Deep House, Chill Out>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. Erdal Kemahli - Prog Frog
-002. Image Sounds - Hands Up
-003. Michael Dodds - Hi Life
-004. Steve Cornish - Handy Escape Route
-005. Deep - Asleep On the Moon
-006. Pulsar - You Are My Universe
-007. Giorgos Zaras - Galactic Rain
-008. Summer Witch Music - Ambient Dreams
-009. A-P-M Productions - Ambient Forensics
-010. Michael Wheeler - Lunar Eclipse(   Читать дальше...   )Жанр: Electronic, Deep House, Chill OutПродолжительность: 01:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A308D540B78B70C7941CCA630CE5B0C0A2410FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302893   (863485) от 03.03.2011
-
-Zoo Brazil - Please Don't Panic (2011) [MP3|320 kbps]<Progressive House, Techno, Electro, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Zoo Brazil feat. Rasmus Kellerman - There Is Hope (
-02. Zoo Brazil - Empire
-03. Zoo Brazil feat. Shoddy Lynn - Manic
-04. Zoo Brazil feat. Leah - You Can Have It All
-05. Zoo Brazil feat. Rasmus Kellerman - Locus
-06. Zoo Brazil - Rampage
-07. Zoo Brazil feat. Gina Turrner - Bang It
-08. Zoo Brazil - Fix
-09. Zoo Brazil - Next
-10. Zoo Brazil feat. Rasmus Kellerman - Copycat(   Читать дальше...)Жанр: Progressive House, Techno, Electro, Tech HouseПродолжительность: 01:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB332F11B9D1C38059B9952E7295322F0B78C625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646293   (862545) от 20.04.2013
-
-Tinlicker - Remember The Future (2013) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Bombardier (feat. Thomas Oliver)
-02. There Is No Such Place
-03. Milkshakes & Cupcakes
-04. Applejuice
-05. Empty Skies (feat. Tessa Rose Jackson)
-06. Remember The Future
-07. I Will Surround You
-08. Turn Everything Around (feat. Allie Alvarado)
-09. Trektor (with Zonderling)
-10. The Last Night We Thought Was Real(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF796B5F2D9466808D32234CC2B364A29A38DA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

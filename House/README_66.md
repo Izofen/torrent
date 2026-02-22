@@ -1,3 +1,90 @@
+###  Публикация: 1185585   (293738) от 21.11.2017
+
+VA - Chillout Deep House 2017 Vol.1 (Mixed By Gerti Prenjasi) (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Miraux feat. Kimber Hernandez  - Haunted (Extended Mix)  5:37
+02.  Hel  - Belove (Original Mix)  5:25
+03.  Oscar GS  - Flavour (Original Mix)  7:02
+04.  K-Bana  - Sophisticated (Dub Mix)  7:09(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D2058FD4E479B3E9515C06F81684032BC47C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262653   (293522) от 16.11.2018
+
+VA - Whore House Loves Tech House (2018) [MP3|320 Kbps] <House, Tech-House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Ourselves & Us - Good Vibrations [5:33]
+02. Mescal Kids - Got Me Spinning [6:35]
+03. Kevin Andrews - Say Mumma [6:21]
+04. Monkeye - Invisible Man [6:00](   Читать дальше...   )Жанр: House, Tech-House, FunkyПродолжительность: 04:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C61687D39C125073F42C0C46E9EBC60D11E40A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185297   (293477) от 21.11.2017
+
+Purple Disco Machine - Soulmatic (2017) [MP3|320 Kbps] <House, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Disco Machine feat. Lorenz Rhode - Music in You (4:31)
+02. Purple Disco Machine - Body Funk (4:17)
+03. Purple Disco Machine & Boris Dlugosch feat. Karen Harding - Love for Days (3:16)
+04. Purple Disco Machine feat. CeeLo Green - Pray for Me (5:42)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8152C1D4D727DE0D3563C6D879AF006926600A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079595   (292140) от 05.12.2016
 
 VA - 5 Years Of Drugstore Records (2016) [MP3|320 Kbps] <Minimal, Tech House>
@@ -655,93 +742,6 @@ VA - Mainstage Music Top 10 (2016) [MP3|320 Kbps] <House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0D9ADB4B4B0EF2A1C32D25C199B1F625821D3DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081953   (281040) от 11.12.2016
-
-VA - Vocal House Dance Music Experience 2016 Vol.01 (Mixed By Jora Mihail) (2016) [MP3|320 Kbps] <House, Vocal House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benny Camaro - Soft 4:35
-02. Gaab - Way Back 4:58
-03. KVSH - Seekin' (Feat. Erinio) 5:41
-04. Paul Jacobson - Spend My Time (Radio Edit) 2:32(   Читать дальше...   )Жанр: House, Vocal House, ProgressiveПродолжительность: 02:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55647CDD81DB2EC6F9AD36389C6670FF18A4D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081934   (280905) от 11.12.2016
-
-VA - Armada Music: Best Of (2016) [MP3|320 Kbps] <House, Trance, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies - Beautiful Life (feat. Sandro Cavazza) 2:42
-02. Major Lazer & Showtek - Believer 3:44
-03. Armin van Buuren - Heading Up High (feat. Kensington) 3:53
-04. Gareth Emery - Reckless (feat. Wayward Daughter) 3:22(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 02:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3B9038C4113575474604791231A1261200C825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964581   (280792) от 12.12.2015
-
-VA - Armada Deep Best Of (2015) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robosonic feat. STAG - WURD (Radio Edit) (02:41)
-02. Autoerotique - Count On You (Radio Edit) (02:52)
-03. Lonely Boy - Everything (Radio Edit) (02:29)
-04. Low Steppa - Take Me Up (Radio Edit) (03:27)(   Читать дальше...   )Производство: Armada DeepЖанр: Deep HouseПродолжительность: 00:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F4A679E5716E7F9A167A9057FA78499B9CE0D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

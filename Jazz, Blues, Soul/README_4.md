@@ -1,3 +1,90 @@
+###  Публикация: 1842160   (1048572) от 14.12.2025
+
+VA - Jacktown USA (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jacktown Sons - Hold Up (3:32)
+02.  Dexter Allen - Hooked (4:52)
+03.  Eddie Cotton - Delivered By The Blues (5:19)
+04.  Four Washington - Dancing In Our Love (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E1EC44E030FB1876E1105BB8401480701EE6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842048   (1048340) от 14.12.2025
+
+Marcus King - Darling Blue (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  On & On (3:02)
+02.  Here Today (2:57)
+03.  Honky Tonk Hell (3:16)
+04.  Heartlands (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88CBFADF87E579089446102FE2AF0CA153EE5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842050   (1048339) от 14.12.2025
+
+Mozzpit - Luke Gibson (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Welcome to the MOZZPIT (1:14)
+02.  Virginia (5:13)
+03.  Windy Mountain (3:27)
+04.  Been Burnt (2:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C937C3AF201652DCA4CF1222A7C4981ED0572927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842052   (1048338) от 14.12.2025
 
 Mud Morganfield - Deep Mud (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ Nalani Rothrock - The Rock House Sessions (Extended Cut) (2022) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0381F6E88EC6EF7D2F90D58364E01E9F23D9CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601461   (1046445) от 01.01.2023
-
-Sancho - A Good Time Roll (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boring Autumn Rain (4:49)
-02. Lucky Man (3:49)
-03. I Love You (4:07)
-04. You Can Stop (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7DDFADFDE7420AAD2AA2115BE7FD4C6397AB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601447   (1046442) от 01.01.2023
-
-Randall Breneman & Lincoln Grounds - Gun (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul & Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edge Of Destruction (2:58)
-02. Trouble (3:34)
-03. Wake Up (2:48)
-04. Gun (3:06)(   Читать дальше...   )Жанр: Blues, Soul & FunkПродолжительность: 00:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2390AFE7F975C3D8B8999E7C19977F7ACF959237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601465   (1046441) от 01.01.2023
-
-Stan Mosley - No Soul, No Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Back To Collect (4:12)
-02. Blues Man (No Soul, No Blues) (3:40)
-03. I Can't Get Next To You (4:10)
-04. This Train (1:26)(   Читать дальше...   )Жанр: R&B, Soul, BluesПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8A0EE4580B6BB597554575A75A1DECB5C25EA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

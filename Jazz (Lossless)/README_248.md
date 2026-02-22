@@ -1,32 +1,3 @@
-###  Публикация: 1336553   (279255) от 07.11.2019
-
-Gary Burton - Artist's Choice (1963 - 1967) 1987, Bluebird [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Careful [4:13]
-02. Chega de Saudade (No More Blues) [4:43]
-03. Norwegian Wood [3:26]
-04. I Want You [3:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1CC96724F81498505158B374711886C2BEBC60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336633   (279168) от 07.11.2019
 
 Caecilie Norby - Sisters in Jazz (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -745,6 +716,35 @@ Jon Faddis - Hornucopia (1991) Epic [FLAC|Lossless|image + .cue] <Post-Bop, Trum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5CA36219965E621F9F3B5C6CEF8D95DC035E6FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337056   (276373) от 09.11.2019
+
+Mulgrew Miller & Niels-Henning Orsted Pedersen - The Duets: A Selection of Duke Ellington (1999) Bang & Olufsen [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C Jam Blues [3:54]
+02. Sophisticated Lady [4:47]
+03. Pitter Patter Panther [3:20]
+04. I Got It Bad [5:31](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E745FD3C7A13E61982C2C4BDC18817C6DCBCB73
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1227189   (650490) от 24.05.2018
+
+Answer Code Request - Gens (2018) Ostgut Ton [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Breakbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gens (04:08)
+ 02. Sphera (06:17)
+ 03. Ab Intus (05:05)
+ 04. Sensa (07:54)(   Читать дальше...   )Жанр: Ambient, Techno, BreakbeatПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3DE9CE711D94D723048CC6E397EB07D2A803D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031919   (649830) от 05.07.2016
+
+VA - Dezza Pres. Best of Progressive House, Vol. 07 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dezza - Silk Selections 07 (Continuous DJ Mix) [57:54]
+02. Vintage & Morelli - Daydream (Original Mix) [08:51]
+03. Sound Quelle - Allarg (Original Mix) [06:34]
+04. LTN & Roni Joni - In Between (eleven.five Remix) [06:57](   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E08BB2904EEF7A0BF6BD0D4163A7BDCC42AD0BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292058   (648750) от 28.03.2019
 
 Leon Vynehall - DJ-Kicks (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Techno, House>
@@ -686,64 +744,6 @@ VA - Deep Vibes - Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10F7869B734FCA754ABBCEA456BCF700BF2B4DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294230   (629994) от 07.04.2019
-
-VA - Solee - 10 Years Parquet Recordings (2016) Parquet Recordings [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solee - Ten (Original Mix) (08:19)
- 02. Solee - Ten (Petar Dundov Remix) (08:59)
- 03. Solee - Ten (Luca Bacchetti Endless Remix) (08:25)
- 04. Solee - Ten (Habischman Remix) (07:08)(   Читать дальше...   )Тип издания: WEBЖанр: Tech House, Deep House, Progressive House •Продолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947726DE40A4C0D5606CB403365500A073228FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294375   (629985) от 07.04.2019
-
-Jayda G - Significant Changes (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629985.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Unifying The Center (Abstract) (03:13)
-2. Renewal (Hyla Mix) (04:58)
-3. Stanley’s Get Down (No Parking On The DF) (05:22)
-4. Leave Room 2 Breathe (Feat. Alexa Dash) (07:00)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93CD1FB8B545EA37E1A740F7DBAF716F05459E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

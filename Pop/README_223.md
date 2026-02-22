@@ -1,3 +1,126 @@
+###  Публикация: 273100   (359682) от 16.11.2013
+
+Pandora - 3 альбома (1993-1996) [FLAC|Lossless]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_359682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pandora (Anneli Magnusson) - Шведская певица, её Профессиональная музыкальная карьера началась в 1993 году, с выходом дебютного сингла "Trust Me", который оказаться на верхних строчках Шведских хит парадов, получил звание «сингла года» и удостоился «золотого статуса».
+Дебютный альбом "One Of A Kind", оправдал ожидания получив "золотой статус" (   Читать дальше...   )01. Prologue: Echoes
+02. It's Alright
+03. A Little Bit (Radio Version)
+04. The Sands Of Time(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:24:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 254961   (359583) от 06.11.2010
+
+VA - Best Italo Disco Hits Remixed (3CD) (2007) [MP3|320 kbps]<Dance, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359583.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ken Laszlo - Hey Hey Guy (3:35)
+2. Den Harrow - Push Push ( Captain Kook Remix ) (3:23)
+3. Gigi DґAgostino - Wellfare ( Gigi & Pandolfi P.M. ) (3:18)
+4. Di Fumetti feat. D-JMC - Di Fumetti ( Video Edit ) (3:15)
+5. Max Him - Lady Fantasy 2003 (3:54)
+6. Carajillo - Fotonovela (3:50)
+7. 2 Eivissa - Fire In The Sky (3:32)
+8. Mike Mareen Vs. Da-Freaks - Love Spy (3:33)
+9. Kelly G. - Ouragan ( Irresistable ) (3:32)
+10. Fabrizio Faniello - Love On The Radio ( Video Edit ) (3:18)(   Читать дальше...   )Жанр: Dance, Italo-DiscoПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64F012E6749569712779B3779F46C438509227F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577138   (359509) от 17.09.2022
+
+Ялла - 2 Albums (1976, 2002) [MP3|320 Kbps] <Pop, Folk, Rock>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Караван [00:04:24]
+02. Азия [00:04:24]
+03. Уч кудук [00:04:28]
+04. Шахрисабз [00:03:46](   Читать дальше...   )Жанр: Pop, Folk, RockПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71C8DD03C98C050C8A857376D736BB6EC5D41D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 831263   (359067) от 02.10.2019
+
+Karel Gott - Music History (2001) [MP3|192 кб/с]<Pop, Euro-Pop, Vocal Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Měl jsem rád a mám (Soleado)
+02.  Tvůj stín se má
+03.  Záhadnou lásku mám
+04.  Kufr iluzí(   Читать дальше...   )Жанр: Pop, Euro-Pop, Vocal PopПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237540E5549E1B75F3055752A457194A64FD1D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328990   (359065) от 02.10.2019
 
 Mozzart - Devil's Randezvous: Greatest Hits & More (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
@@ -635,119 +758,6 @@ Fernando Express - Die Konige der Tanzpalaste (1998) [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:127425DC192D9453BC3857182807093474375B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952538   (355718) от 01.11.2015
-
-Belinda Carlisle - The Very Best Of (2015) 2CD [FLAC|image + .cue]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Is A Place On Earth [03:54]
-02. Circle In The Sand [03:42]
-03. (We Want) The Same Thing [03:58]
-04. Runaway Horses [04:13](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE60993D9EED0F837D97773F79BAE1709A6A1731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578055   (354772) от 20.11.2012
-
-Самоцветы - Лучшие песни 1996-2003 (2011) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8905FB08D3C5F101BD8257ADA1903957359D3D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329234   (354594) от 04.10.2019
-
-City and Colour - A Pill for Loneliness (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living in Lightning (03:19)
-02. Astronaut (06:01)
-03. Imagination (05:47)
-04. Difficult Love (04:04)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC83A737FBAF4FC474B69DEE20A6979D34435187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329347   (354589) от 04.10.2019
-
-Easy Going - Fear (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Strip You (8:25)
-02. Fear (7:55)
-03. To Simonetti (10:06)
-04. Put Me In The Deal (7:56)Жанр: Electronic, DiscoПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E535DC6A6563246428E74DF578EE6B2BF5F9A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

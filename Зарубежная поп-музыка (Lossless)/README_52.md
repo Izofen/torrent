@@ -1,3 +1,32 @@
+###  Публикация: 1239195   (540485) от 04.08.2018
+
+VA - Sounds Of The Eighties The Rolling Stone Collection 1983-1985 (1995) Time Life Music [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540485.jpg" />
+</div>
+
+
+###  Подробнее
+
+И так, продолжаем серию публикаций о холдинге Time Life Music и музыкальных сериях, изданных музыкальным лейблом. В настоящем релизе, (который является продолжением релиза см. ссылку внизу), так же каждый отдельный выпуск (в данном случае, с 1983 по 1985 год) определяет стилистические тенденции и конкретных художников, влиятельных в рок-музыке именно в эти годы по (   Читать дальше...   )01. Van Halen - Jump  (4:04)
+02. ZZ Top - Sharp Dressed Man  (4:15)
+03. Rod Stewart - Some Guys Have All The Luck  (4:34)
+04. Tina Turner - What's Love Got To Do With It  (3:50)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5106881351667933709B2903BDB186802A9922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050160   (540368) от 07.09.2016
 
 Bee Gees - Best Of Bee Gees Vol.1 (1969) Reissue, 1987, Polydor [FLAC|Lossless|image + .cue]<Pop Rock>
@@ -728,35 +757,6 @@ VA - Diskoteka в стиле O-Zone (2005) [FLAC|Lossless|tracks + .cue] <Europo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B812162DDA87E512F2F7CBC702B17A66CCBF084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240474   (528747) от 11.08.2018
-
-Giusy Ferreri - Girotondo (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fa talmente male (2:59)
-02. L'amore tante volte (3:02)
-03. Partiti adesso (3:15)
-04. L'amore mi perseguita (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF8C4747DA1BC68783917476B6930B90501B52C
 ```
 
 https://mybot314.ru/tekegram_catalog/

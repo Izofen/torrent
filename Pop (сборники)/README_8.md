@@ -1,3 +1,32 @@
+###  Публикация: 1088784   (953897) от 02.01.2017
+
+VA - Полный отрыв. Зимние хиты. Сборник № 2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Не.Kurili Feat. Mansarda - Оскал 5:31
+002. Adlernebel - The Forgotten Trail 8:39
+003. Original Sin - Red Mist 4:20
+004. Mc Doni - Полегче 2:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0B47675C23BAB17282D65019009AC5610791DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089198   (953788) от 02.01.2017
 
 Mark Ashley - Best Of Mark Ashley (2015) [MP3|320 Kbps] <Disco,  Euro-Disco>
@@ -716,35 +745,6 @@ JohnnyM5 - The Best Song Collection (bootleg) (2009) [MP3|256 Kbps] <Italo-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:183FBE50F352C3EE84DA5A7560A9B6810D4F9A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090076   (947494) от 06.01.2017
-
-VA - Billboard Hot 100 Singles Chart 14.01.(2017) [MP3|32-320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947494.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-002. Bruno Mars - 24k Magic 3:47
-003. The Weeknd feat. Daft Punk - Starboy 3:51
-004. The Chainsmokers feat. Halsey - Closer 4:06(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6ACD949B36F7CDB165EC2890776674265C0D544
 ```
 
 https://mybot314.ru/tekegram_catalog/

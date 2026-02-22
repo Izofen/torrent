@@ -1,3 +1,33 @@
+###  Публикация: 870767   (884564) от 19.02.2015
+
+Pain Killer - Cuts Of A Virgin & Buried Secrets (1998) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Scud Attack [03:07]
+02. Deadly Obstacle Collage [00:19]
+03. Damage to the Mask [02:40]
+04. Guts of a Virgin [01:15]
+05. Handjob [00:11](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0DD496A08B9DCCF7F413BC87FA3CA606C2F121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495074   (884537) от 10.09.2021
 
 Matthew Whitaker - Now Hear This (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop, Soul-Jazz>
@@ -737,36 +767,6 @@ Al Jarreau - Breakin' Away (1981) 1990 [WavPack|Lossless|image + .cue] <Smooth j
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC7493EE41A7CB653DEA8E61107DB96DC02037FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871260   (881484) от 21.02.2015
-
-Lionel Hampton - Flying Home (2009) 10CD[FLAC|Lossless]<Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD1 (00:34:49)
-CD2 (00:30:28)
-CD3 (00:34:14)
-CD4 (00:35:20)(   Читать дальше...   )Жанр: Jazz, Swing, Big BandПродолжительность: 05:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CDA341293A018253763B8CD975F5526CC4C529
 ```
 
 https://mybot314.ru/tekegram_catalog/

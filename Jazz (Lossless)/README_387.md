@@ -1,61 +1,3 @@
-###  Публикация: 1742964   (46815) от 14.08.2024
-
-Frank Sinatra & Tommy Dorsey - Learn To Croon (1940 - 1942) 1999, Buddha Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ida! Sweet As Apple Cider [2:09]
-02. Blue Moon [3:42]
-03. Learn To Croon, More Than You Know, How Come You Do Me Like You Do [3:07]
-04. I've Got My Eyes On You [2:59](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960B7082BA3BEDF263F7AF8BD7EEBBFDD1079014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744184   (46185) от 20.08.2024
-
-Gerry Mulligan - The Gerry Mulligan Quartets In Concert (1957, 1962) 2001, Universal [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction by Norman Granz [0:34]
-02. Come Out, Come Out Wherever You Are [3:51]
-03. Baubles, Bangels and Beads [5:13]
-04. Laura [4:31](   Читать дальше...   )Жанр: CoolПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A476A8E2A17DD788C076D89C028D04FD7802557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744373   (46102) от 21.08.2024
 
 VA - Ultimate Chilly Soothing Instrumentals for Rest, Study or Travel (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -745,6 +687,64 @@ Herb Ellis & Joe Pass - Two For The Road (1974) 1985, Pablo [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4314AA984C6C3089BA0D113DF5AE79D3AE504D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754416   (40768) от 10.10.2024
+
+Joe Pass - Virtuoso Live! (1992) Victor [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stompin' at the Savoy [5:14]
+02. Just the Way You Are [3:18]
+03. Eric's Smoozie Blues [5:21]
+04. Beautiful Love [4:26](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1A69A8E839231A486D054D3055FCFAF50AD005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755272   (40352) от 14.10.2024
+
+Joe Pass - A Sign Of The Times (1966) 2010, EMI Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sign of the Times [2:15]
+02. The Phoenix Love Theme (Senza Fine) [2:53]
+03. Nowhere Man [2:41]
+04. Dindi [2:21](   Читать дальше...   )Жанр: Bop, Mainstream jazz, Guitar JazzПродолжительность: 00:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9DE3C85EE7F020A47C065C145510882FA99F023
 ```
 
 https://mybot314.ru/tekegram_catalog/

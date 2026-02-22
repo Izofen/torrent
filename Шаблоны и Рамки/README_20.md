@@ -1,3 +1,29 @@
+###  Публикация: 1043600   (571982) от 16.08.2016
+
+Шаблоны - Photography & Photo Studio Flyer Bundle [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photography & Photo Studio Flyer Bundle - шаблон флаера фотостудии.Формат: PSDРазрешение файлов: 2551x3579 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984F9145849B355C4E046B5ABA3347ED0134536F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923488   (564258) от 31.07.2015
 
 Рамки - Золотые красивые рамки / Gold nice frames [PSD]
@@ -645,33 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B40D0DC825F2B9CD546F9FD8C978361CCA81430F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047149   (549922) от 29.08.2016
-
-Шаблоны - Football Sports V8 Flyer Template [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спортивный флаер для Вашего творчества.
-Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1275x1875 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506E883DBC3185F08443008C9699119A91E508D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

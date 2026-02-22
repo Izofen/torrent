@@ -1,3 +1,29 @@
+###  Публикация: 359473   (581033) от 07.07.2011
+
+VA - 200-ка Master Hit Europa Plus 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6945B37C4ECD104F2DC0FA9FC30504AB51B4EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359344   (580960) от 07.07.2011
 
 VA - Музыкальная энергия пиратских станций (2011) [MP3|128 kbps]<Pop,Dance>
@@ -692,32 +718,6 @@ Claudia Mori - Compilation (2022) [MP3|320 Kbps] <Pop, Italo Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEF199904D6EE6ED5FBEE25FCAA1B5CEE8F32F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361357   (577432) от 10.07.2011
-
-VA - Летний попсовый рай (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBF7554CC82D7E7494734FB870A60BE4310465F
 ```
 
 https://mybot314.ru/tekegram_catalog/

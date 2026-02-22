@@ -1,3 +1,38 @@
+###  Публикация: 643079   (863587) от 19.04.2013
+
+Amorphis - Circle (2013) [MP3|320 кб/с]<Extreme Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Shades Of Gray 05:27
+02. Mission 04:33
+03. The Wanderer 04:43
+04. Narrow Path 04:23
+05. Hopeless Days 05:08
+06. Nightbird's Song 05:00
+07. Into The Abyss 05:36
+08. Enchanted By The Moon 05:32
+09. A New Day 06:00
+10. Dead Man's Dream 04:03Жанр: Extreme Progressive MetalПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43424515B9D57DE1E2400D716E7A2C0CC674626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 560546   (863385) от 18.03.2014
 
 Тінь Сонця  - 4 Альбома (2005 - 2014) [MP3|320 кб/с]<Folk, Power Metal>
@@ -749,35 +784,6 @@ Eternity's End - The Fire Within (2016) [MP3|320 кб/с] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51D87F7E9A83E0FBE6DFA2B2B174D7DC61A4685D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000149   (859266) от 25.03.2016
-
-Metal Church - XI (2016) [MP3|320 кб/с] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reset
-02. Killing Your Time
-03. No Tomorrow
-04. Signal Path(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5FF65855ECB1E768CF92D9767E228BB4A31DEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

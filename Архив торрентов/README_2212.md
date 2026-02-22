@@ -1,3 +1,29 @@
+###  Публикация: 1530603   (728916) от 11.02.2022
+
+Aiseesoft Screen Recorder 2.2.70 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите самый простой, но профессиональный способ записывать экран и делать с него снимки. Aiseesoft Screen Recorder - лучшее программное обеспечение для записи экрана, позволяющее фиксировать любую активность на компьютере Mac или Windows. Он может работать как хороший рекордер видеоигр, захватывать видеозвонки и многое другое для захвата любой области экрана. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45273DAE725E915D91D137D64D6C30D9000D2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530408   (728910) от 11.02.2022
 
 CrystalDiskInfo 8.15.1 + Portable [Multi/Ru]
@@ -672,35 +698,6 @@ Flux является передовым программным обеспече
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94217D67C4C985D32311E97DB1FE530AACB01E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128267   (728793) от 24.04.2017
-
-VA - ROXO 03 (2016) Monster Jinx [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Future Bass, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OSEB - Bau (2:24)
-02. pretochines - Pain (2:57)
-03. Pulso - Cábulas (3:00)
-04. NO FUTURE - Subúrbio (3:16)(   Читать дальше...   )Жанр: Abstract Hop, Future Bass, ElectronicПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5072FCF8E9E3880303140916267D7C2695B2358A
 ```
 
 https://mybot314.ru/tekegram_catalog/

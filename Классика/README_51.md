@@ -1,34 +1,3 @@
-###  Публикация: 478792   (86785) от 06.04.2012
-
-Telemann, Schaffrath, Fasch, Torriani, Waterson, Donizetti - Virtuosity of Bassoon 2: Valery Popov, Alexander Bakhchiev etc. (1983-1991)/2003, Vista Vera/[FLAC|Lossless]<Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Georg Philipp Telemann
-Sonata f-moll 
-1.	Triste (2:29)
-2.	Allegro (4:18)
-3.	Andante (1:55)
-4.	Vivace (2:22)2003Жанр: Chamber musicПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC2B8782C5DFD23E93E5D0BA3B29796A657ED44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478311   (86778) от 06.04.2012
 
 Johann Sebastian Bach – Brandenburg Concertos 2, 4, 6; 1, 3, 5: 2CD, VA, (1991-1992), Virtuosi Saxoniae, conductor Ludwig Guttler /2007/[FLAC|Lossless]<Classical>
@@ -848,6 +817,35 @@ VA - Classical Music Brilliance (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80312BEDBC07533921E20A6537A516EE33C7C947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782560   (69997) от 01.03.2025
+
+VA - Best Classical Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - Beyond (1:35)
+02. Sergey Bryukhno - 3 Gymnopédies No. 1, Lent et douloureux (2:53)
+03. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+04. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:28)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D79E356A61BAF99369F7759FD27512614A6D27
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1658716   (190884) от 09.09.2023
+
+VA - ¡90's Rockstars Hits! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shania Twain - Man! I Feel Like A Woman! (3:53)
+02. R.E.M. - Losing My Religion (4:28)
+03. The Cranberries - Zombie (5:07)
+04. The Cardigans - Carnival (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22305D0BCB193EE3EC19DB85A3B5A76B17269FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659042   (190454) от 10.09.2023
 
 Supermax - 3 Albums (1977 - 1986) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Soul, Funk>
@@ -711,35 +740,6 @@ VA - Electrónica Para Fiestas 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65466A989789BCAD3F223620D1E5D2465573344B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427316   (183223) от 28.11.2020
-
-Thomas Anders - Christmas For You (Remastered 2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Must Have Been the Mistletoe - Remastered 2020 (3:04)
-02. Christmas is Just Around the Corner - Remastered 2020 (2:43)
-03. Sleigh Ride - Remastered 2020 (2:41)
-04. The Christmas Song - Remastered 2020 (3:13)(   Читать дальше...   )Жанр: Pop, Christmas MusicПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63F39BD5C941A27AD85E03208B02AEBFCFBE0EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

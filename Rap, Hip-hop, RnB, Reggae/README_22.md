@@ -1,3 +1,61 @@
+###  Публикация: 1413518   (408194) от 04.10.2020
+
+Pra(Killa'Gramm) - УЛИЦА ГОВОРИТ (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чувствуй [02:48]
+02. Дикая езда [02:38]
+03. На небеса (feat. B1 & BLOWIN'UP) [04:19]
+04. Горизонты [03:03](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D368957596C1646C3EB3A4682397740A6682EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413525   (408096) от 04.10.2020
+
+Санчес - ПРОДАНО. Часть 1. Начало (Version 2020) (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Продано (Вступление) [00:58]
+02. Продано [03:19]
+03. TV [02:57]
+04. Время [03:15](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00F10E590BEC35B512C3055B5DFC621947F90F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413516   (407976) от 04.10.2020
 
 Нурминский - Дорога в Сити (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -686,70 +744,6 @@ Kid Abstrakt & Emapea - Jazzy Vibes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5473E2D1186A84EF0CF5259928202AC2B683D79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178100   (357646) от 27.10.2017
-
-Макс Корж - Малый повзрослел ч.2 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357646.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вспоминай меня
-2. Молодость всё прощает
-3. Пьяный дождь
-4. Малиновый закат(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D0A215894BCFBA4017F1E3A3FA35D33C94163A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577117   (356995) от 19.11.2012
-
-Rihanna - Unapologetic (2012) [FLAC|Lossless]<Pop, R&B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_356995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fresh Out The Runway (03:42)
-02. Diamonds (03:45)
-03. Numb (feat. Eminem) (03:25)
-04. Pour It Up (02:41)
-05. Loveeeeeee Song (feat. Future) (04:16)
-06. Jump (04:24)
-07. Right Now (feat. David Guetta) (03:02)
-08. What Now (04:03)
-09. Stay (feat. Mikky Ekko) (04:01)
-10. Nobody's Business (feat. Chris Brown) (03:36)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1265487   (274127) от 28.11.2018
+
+VA - Future Trance - Return to the Millennium 2000er (2018) 3CD [MP3|320 Kbps] <Italo Dance, Hardstyle, Hard Trance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274127.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Gigi D'Agostino - L'Amour Toujours (Small Mix)
+02. Scooter - Weekend!
+03. Groove Coverage - Moonlight Shadow(   Читать дальше...   )Жанр: Italo Dance, Hardstyle, Hard TranceПродолжительность: 03:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3CA6DD37E77F391D1910448F9C006399884654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083691   (273704) от 16.12.2016
+
+Champagne Explosion - Champagne Explosion (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Action Is Tight  (5:27)
+02. Sexy Changes  (6:02)
+03. Love Now Hurt Later  (7:03)
+04. Jesus Christ Super Star  (4:06)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF52B544078B0ED4CD484B13115232F76681462B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188469   (273669) от 03.12.2017
+
+Lucio Dalla - Storie di casa mia (1971) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Itaca
+02 - Un uomo come me
+03 - Il bambino di fumo
+04 - Il colonnello(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796AE908BFAC29431FE04E82229336B344280244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188472   (273588) от 03.12.2017
 
 Lucio Dalla - Dalla (1980) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -652,96 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:543C61CC2B4B171AF2B46765EDB19FA99C924719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189200   (271049) от 05.12.2017
-
-Joe Dassin - La Selection (Best Of) 3CD (2016) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Les Champs-Elysees
-02. Le dernier slow (Blu)
-03. Excuse Me Lady(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 02:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26CE72C02447DE91458041584D2A2AADB328A6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266398   (270961) от 01.12.2018
-
-VA - Top Of The Pops '1980 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1980s, pop, rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собственно, вот мы и добрались до 80-х. Другое десятилетие, другие вкусы, другая музыка...
-Этот список треков является хронологическим списком популярных песен 80-х, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского сингла.
-Эти программы (   Читать дальше...   )CD1:
-01. Adam & The Ants - Antmusic  (3:38)
-02. Dexy's Midnight Runners - Geno  (3:27)
-03. The Jam - Going Underground  (2:53)(   Читать дальше...   )Релиз состоялся: 31.10.2017Жанр: 1980s, pop, rockПродолжительность: 03:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF49B112FD1808CDB38DC6E251C9911CF7363057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 311382   (270824) от 01.12.2018
-
-Ken Wilbard - You're Burning (1977) [FLAC|Lossless|tracks]<Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270824.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1977 году альбом был издан тиражом в 40 тыс экземпляров. Песня "Sing, Sing A Song" врывается в хит-парады Голландии, Бельгии, Швейцарии и Германии, весь первый тираж альбома расходится за 5 дней. После этого было принято решение выпустить еще 170 тыс. копий.
-Но Кену не суждено было об этом узнать, т.к. буквально через полтора месяца после выпуска альбома (   Читать дальше...   )01. You're Burning
-02. Ma Cherie, Mon Amour
-03. Don't Cry, My Baby
-04. Do It(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399025D0D9212E2E497447ECFC572101E78871B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1586590   (215932) от 27.10.2022
+
+Lem Winchester & Benny Golson - Winchester Special (1959) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_215932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down Fuzz [10:05]
+02. If I Were a Bell [4:04]
+03. Will You Still Be Mine? [7:04]
+04. Mysticism [7:34](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D1E50EAFFB3A01143ACD440B85B0CF6D8F91C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586757   (215827) от 27.10.2022
 
 Steinar Ytrehus - Black Coffee and Sweet Love Songs (2022) [FLAC|Lossless|image + .cue] <Blues>
@@ -758,35 +787,6 @@ VA - Jazz Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EEA3FCE5283C13EDD15E654F92C1AFD21453950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085476   (214692) от 21.12.2016
-
-Marc Ford & The Neptune Blues Club - The Vulture (2016) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|   Devil's in the Details  (03:42) 
-02|   The Same Coming Up  (01:50) 
-03|   All We Need to Do Is Love  (04:30) 
-04|   This Ride  (02:00) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286F4A6BFF9A78077BF698146872D2D1D15EBC6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

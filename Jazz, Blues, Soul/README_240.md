@@ -1,3 +1,90 @@
+###  Публикация: 1542880   (633172) от 09.04.2022
+
+Jack White - Fear Of The Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Taking Me Back (00:03:59)
+02 - Fear Of The Dawn (00:02:02)
+03 - The White Raven (00:02:43)
+04 - Hi-De-Ho (00:03:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB049FBA19B95A32AF94C7C4D142ECC01CA38058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034853   (632676) от 14.07.2016
+
+Jeremy Steig - Fusion (1970) Groove Merchant[APE|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Home [04:40]
+ 02.Cakes [04:53]
+ 03.Swamp Carol [04:12]
+ 04.Energy [04:51](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0A53DAAADBB867A3BF97F965E7D81457D9CDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908665   (632493) от 15.06.2015
+
+Bobby Hutcherson - Linger Lane (2012) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Make The World Go Round [08:53]
+02. Theme from 'M*A*S*H' [04:33]
+03. NTU [05:55]
+04. Manzanita [04:04](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5BFAA585261995916C62B730F7F3527121970B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908670   (632488) от 15.06.2015
 
 Ornette Coleman - New York Is Now! Vol. 1 (2014) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
@@ -666,93 +753,6 @@ Illinois Jacquet - The Definitive Black & Blue Sessions: God Bless My Solo (1978
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E251F089827A933631FA58B1D277E4255ABDF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908780   (630220) от 16.06.2015
-
-Milt Jackson - And The Thelonious Monk Quintet (2013) [FLAC|Lossless]<Jazz, Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lillie [03:19]
-02. Tahiti [03:30]
-03. What's New [03:16]
-04. Bags' Groove [03:09](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, Hard BopПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708A5CA3DD1F5977F832DF7E0917BB49F0BA59B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909051   (630219) от 16.06.2015
-
-Wynton Marsalis - The Music of America (2012) 2CD /Sony Masterworks/[FLAC|tracks+.cue]<Jazz, Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630219.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Express Crossing (Astride from Horses) [05:13]
-02. 'D' in the Key of 'F' (Now the Blues) [05:17]
-03. Jump [04:22](   Читать дальше...   )Жанр: Jazz, Post-Bop, Big BandПродолжительность: 02:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA0E7F260DCC908CF647FD7C5EA083BDE1E65E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294262   (630104) от 07.04.2019
-
-Joey DeFrancesco - In The Key Of The Universe (2019) Mack Avenue [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Being [5:19]
-02. Vibrations in Blue [6:42]
-03. Awake and Blissed [3:02]
-04. It Swung Wide Open [3:55](   Читать дальше...   )Жанр: Soul Jazz, Post-Bop, Straight-Ahead JazzПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A898D11B6046138441D7D24636CEF85DFEA06331
 ```
 
 https://mybot314.ru/tekegram_catalog/

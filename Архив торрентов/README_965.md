@@ -1,3 +1,38 @@
+###  Публикация: 177416   (929425) от 22.02.2010
+
+Cheryl Porter - What's Going On (2001) [FLAC|Lossless]<Soul / Blues / Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. It Takes Better (Bonivento, Andriolo)
+02. Route 66 (Bobby Troup)
+03. Ain't No Sunshine (Bill Withers)
+04. You've Got a Friend (Carol King)
+05. Hit the Road Jack (Ray Charles)
+06. Summertime (George Gershwin)
+07. Imagine (John Lennon)
+08. Dock of the Bay (Otis Redding)
+09. Mustang Sally (Wilson Pickett)
+10. Rainy Blues (Porter, Bonivento, Andriolo)(   Читать дальше...   )Жанр: Soul / Blues / JazzПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 177793   (929423) от 22.02.2010
 
 Vista Codec Package 5.6.1 Final [Multi/Русский]
@@ -698,41 +733,6 @@ Polarr – это продвинутый, интуитивный и многос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:160511B89729C64E5070703DFA7816085B1B95E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286586   (929374) от 25.01.2011
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #37 (2011) [MP3|320 kbps]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. Klauss Goulart feat. Matt Johnso - Fallen (Everson K Remix)
-002. Faithless feat. Dido - Feelin Good (Ferry Corsten Mix)
-003. 4 Strings feat. Ellie Lawson - Safe From Harm
-004. Adam Tas feat. Sopheary - Say (Trance Arts Remix)
-005. Aeron Aether & Mango feat. Civil Servants - Searching for A Memory (Original Mix)
-006. Ali Wilson feat. Chris Jones - Become One
-007. Bobina feat. Sabrina Atlan - Angel Of The North (Bobina's Megadrive Mix)
-008. Damien S feat. Marcie - Before You Leave Me (Original Mix)
-009. DJ Observer & Daniel Heatcliff feat. Hannah Ray - With Me (Intro Edit)
-010. Fabio XB feat. Yves De Lacroix - Close To The Stars (Extended Mix)(   Читать дальше...)Жанр: Vocal TranceПродолжительность: 03:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719EBA753342A300BBDFA543DB4F8B26BB4D1493
 ```
 
 https://mybot314.ru/tekegram_catalog/

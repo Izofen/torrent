@@ -1,3 +1,171 @@
+###  Публикация: 1746043   (45242) от 29.08.2024
+
+The Dark Element (Anette Olzon, Jani Liimatainen) - Studio Albums (3 releases) (2017-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45242.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Dark Element - шведско-финская симфо-метал группа, созданная бывшей вокалисткой Nightwish Анетт Олзон и бывшим гитаристом Sonata Arctica Яни Лииматайнен.2017 - The Dark Element
+2019 - Songs The Night Sings
+Jani Liimatainen - 2022 - My Father's SonЖанр: Symphonic/Power MetalПродолжительность: 02:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C84E35F459D6CBE74AA77DC64E4DA661623C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746070   (45240) от 29.08.2024
+
+Nick Cave & The Bad Seeds - Wild God (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Punk, Alt.Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song Of The Lake [00:03:36]
+02. Wild God [00:05:19]
+03. Frogs [00:04:34]
+04. Joy [00:06:13](   Читать дальше...   )Жанр: Post-Punk, Alt.RockПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D4BE8E1BA233EE27DCA529E6BA7AE590D0D79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746463   (45039) от 31.08.2024
+
+Фёдор Шаляпин - Арии из Опер «Роберт Дьявол» и «Севильский Цирюльник» (1951) Запись 1912 года [FLAC 1.0|88,2/24|tracks|Shellac-Rip] <Classical, Opera>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Воззвание БертрамаЖанр: Classical, OperaПродолжительность: 00:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABE81364C483A6F331A7CED205EE18245F17799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746497   (45021) от 31.08.2024
+
+Bryan Adams - War Machine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Machine (3:33)
+02. Rock And Roll Hell (3:18)Жанр: RockПродолжительность: 00:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09C89B91587C2DC94FD56895C20067A93B5AE0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747008   (44763) от 03.09.2024
+
+Xiaoloulou - Tales of a Broken Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One More Day (3:55)
+02. Shadows of Regret (3:15)
+03. Fading Love (3:19)
+04. Shattered Love (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348DDF287C05CA7BB08CD44B2EB76720C963E593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747016   (44760) от 03.09.2024
+
+Людмила Сенчина - А Любовь Смеется И Поет (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Золушка
+02. Камушки
+03. Песня О Нежности(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4CB191865CD41FE093FB36623E3283DB3DBA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746561   (44726) от 03.09.2024
 
 Helloween - Master of the Rings (1994) Remaster, 2024, Sanctuary Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Power metal>
@@ -566,180 +734,6 @@ Flotsam And Jetsam - I Am The Weapon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB8458C46C29E32592B5B439A0CF2E09744FFD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749022   (43762) от 12.09.2024
-
-Indochine - Babel Babel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babel Babel [00:08:06]
-02. En route vers le futur [00:05:39]
-03. Girlfriend [00:04:15]
-04. Les nouveaux soleils [00:05:05](   Читать дальше...   )Жанр: RockПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0671BD6B22D00F97D1CE6FFEB7EA5ABFD561E854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748998   (43759) от 12.09.2024
-
-Kylie Minogue - My Oh My (with Bebe Rexha & Tove Lo) (The Remixes) (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Pop, House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Oh My (with Bebe Rexha & Tove Lo) [3:02]
-02 - My Oh My (with Bebe Rexha & Tove Lo) (Extended Mix) [4:04]
-03 - My Oh My (with Bebe Rexha & Tove Lo) (Franklin Dream Edit) [2:54]
-04 - My Oh My (with Bebe Rexha & Tove Lo) (Franklin Remix) [3:22](   Читать дальше...   )Жанр: Electronic, Pop, House, Alternative Dance, Electro-Disco, Techno, Dance-PopПродолжительность: 00:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB46FCE6A4DF227EE85746E04B967BCBA9BC3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749149   (43666) от 13.09.2024
-
-Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edition [FLAC 24/96|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Renaissance [1:39]
-02 - Habits [4:59]
-03 - Trouble [0:42]
-04 - Brand New Dance [3:27](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E88EF550B91C922CF3A8D45E30BEE1EF209697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749195   (43665) от 13.09.2024
-
-Judas Priest - Rocka Rolla (1974) Reissue, 2024, MNRK Music [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One For The Road (4:44)
-02. Rocka Rolla (3:25)
-03. Winter (2:59)
-04. Deep Freeze (2:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F80F2D80DA67D58D31E84597B08570F2FA3DF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749726   (43357) от 16.09.2024
-
-Find Me - Nightbound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Be Alone (4:38)
-02. I See You In Everyone (4:15)
-03. Can't Wait Here Anymore (4:05)
-04. Distant Lovers (3:41)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3818E52305F11993A7D019E7461CF4B00E40ADF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603776   (43309) от 17.09.2024
-
-Dark Tranquillity - Studio Albums (14 releases) (1993-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Tranquillity — шведская метал-группа, созданная в 1989 году в Гётеборге, под названием Septic Broiler. После записи демо Enfeebled Earth музыканты изменили название на Dark Tranquillity. Наряду с In Flames и At the Gates считаются одними из пионеров жанра мелодичного дэт-метала.1995 - Skydancer
-1995 - The Gallery
-1997 - The Mind's I
-1999 - ProjectorЖанр: Melodic Death MetalПродолжительность: 14:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B847EA2E41247C4DA950B815C068659AA7A27C
 ```
 
 https://mybot314.ru/tekegram_catalog/

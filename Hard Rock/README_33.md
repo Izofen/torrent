@@ -1,299 +1,3 @@
-###  Публикация: 1735458   (106921) от 08.07.2024
-
-Big Sun - Rite De Passage (2024) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sun (04:02)
- 02. I Was Loving You (03:24)
- 03. Stronger Than Anyone (03:38)
- 04. Directions (04:02)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59DA5F1A0693AFA756036E53C204CAE05B74015D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735435   (106915) от 08.07.2024
-
-Chris Boudreaux - Who Made Who (2024) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Made Who (04:10)
- 02. Turn Away Eyes (05:11)
- 03. The Beat (02:37)
- 04. Strange Fascination (03:18)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1778FFCB7D19C7DB6B021C511DFEDF7E5C1A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735941   (106814) от 10.07.2024
-
-Mr. Big - Ten (2024) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Luck Trying (04:06)
- 02. I Am You (04:32)
- 03. Right Outta Here (04:38)
- 04. Sunday Morning Kinda Girl (04:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D526170BD806264A61DB36F37FEBD4CE149C67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740829   (105788) от 03.08.2024
-
-Fred Guillemet Band - Hard N’Roll Stories (2024) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Upgraded Generation (04:13)
- 02 - Break Up (04:04)
- 03 - Not Dreamer (04:26)
- 04 - Here We Are (05:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A76C0BD2E244536990040E671558583513D4986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749400   (104348) от 14.09.2024
-
-The Gibbons - Into The Storm (2024) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 80's Ham (04:45)
- 02. Evil Shade Of Blue (03:35)
- 03. Chase The Night Away (04:41)
- 04. The Scroll Of Osiris (03:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49307150673733C296EC2A1D188C75985FC9CA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755012   (103632) от 13.10.2024
-
-Crossbone Skully - High On You (feat. Nikki Sixx) (2024) EP [MP3|320 Kbps] <Hard-Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - High On You (feat. Nikki Sixx) [3:50]
-02 - Everyone's On Dope [3:18]
-03 - Money, Sex, or God [3:40]
-04 - I'm Unbreakable [3:38](   Читать дальше...   )Жанр: Hard-Rock, RockПродолжительность: 00:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881712B4603F02BC92C3ABED673AE2EC6846013C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756061   (103567) от 19.10.2024
-
-Stephan Georg - Blood Of The Witches (2024) [MP3|320 Kbps] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий гитарист Штефан Георг (Stephan Georg), известный по мелодик-рок-группам TIGHT и SECRET FIRE, выпустит новый сольный альбом "Blood Of The Witches" 19 октября. Все песни на этом альбоме исполняют девушки - Лив Син (Liv Sin, SISTER SIN), Лаура Гулдемунд (Laura Guldemund, BURNING WITCHES), Джейми Бекхэм (Jamie Beckham, VIOLET), Свенья Романн (Svenja (   Читать дальше...   )01 - Blood Of The Witches (03:52)
- 02 - The Nighthawk (04:31)
- 03 - Nothing Goes Unpunished (04:26)
- 04 - When Love Goes Wrong (04:07)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9AE7B327E8A81D20A0F36EBA1EA44DED45E57C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758256   (103421) от 01.11.2024
-
-Brad Smith - Broken Bones And Bullet Holes (2024) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Broken Bones and Bullet Holes (04:42)
- 02 - Late is the Hour (05:18)
- 03 - Troubles Enough (03:52)
- 04 - Lift Me Up (03:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD500F18072E64BF0DF769DAFC7C01F16746472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765749   (101349) от 14.12.2024
-
-Blue Oyster Cult - 50th Anniversary - Third Night - Live (2024) Deluxe Edition, 2CD [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burnin' For You (Live) [00:04:53]
-02. Shooting Shark (Live) [00:08:49]
-03. Black Blade (Live) [00:06:09]
-04. Train True (Lenny's Song) (Live) [00:03:49](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 02:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C293AFB147CC15129150F423146B377EF0F56C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488115   (90584) от 25.04.2012
-
-Europe - Bag Of Bones [Japanese Edition] (2012) [MP3|192 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riches To Rags
-02. Not Supposed To Sing The Blues
-03. Firebox
-04. Bag Of Bones
-05. Requiem
-06. My Woman My Friend
-07. Demon Head
-08. Drink And A Smile
-09. Doghouse
-10. Mercy You Mercy Me(   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481A922A167C08A76FBE865B396E2AF8D2B279A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485886   (89800) от 21.04.2012
 
 Crazy Lixx - Riot Avenue (2012) [MP3|320 кб/с]<Melodic Hard Rock, Glam Metal>
@@ -797,6 +501,293 @@ In Theory - Retribution (2025) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8555F49B76B4260054800E969B82474F769CD3F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711248   (61310) от 30.03.2024
+
+The Michael Schenker Group - Is It Loud Enough? Michael Schenker Group: 1980-1983 (2024) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DISC 01 Michael Schenker Group
+DISC 02 MSG
+DISC 03 Assault Attack(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 6 CD, 05:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BA10B828DC9FBE79BE5424F75C72F849B2B1EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717321   (59190) от 19.04.2024
+
+UFO - Covenant + Sharks (1995-2002) 3xCD, Reissue, Remastered, 2024, HNE [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59190.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Covenant:
+01 - Love Is Forever (2024 Remaster) (04:22)
+ 02 - Unraveled (2024 Remaster) (04:16)
+ 03 - Miss The Lights (2024 Remaster) (04:43)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 02:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A711003C6B89702E591319C68DF41E990DBC4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718515   (58558) от 25.04.2024
+
+Lee Aaron - Tattoo Me (2024) [MP3|320 Kbps] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tattoo (04:17)
+ 02 - Are You Gonna Be My Girl (03:46)
+ 03 - Even It Up (04:28)
+ 04 - What Is and What Should Never Be (05:03)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0E236BE5B6A7F601D89A46FDC50CF0E0CBE6FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723283   (56457) от 15.05.2024
+
+Joe Satriani - Onomatopoeia (2024) Live [MP3|320 Kbps] <Hard Rock, Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying In A Blue Dream (05:48)
+ 02. The Crush Of Love (04:16)
+ 03. The Extremist (03:36)
+ 04. Until We Say Goodbye (06:57)(   Читать дальше...   )Жанр: Hard Rock, Instrumental RockПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7128B35D72045481F4DFF3EB7F49D8CEA0283D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726401   (54989) от 29.05.2024
+
+Motorhead - Remorse? No! (1984) Remaster, 2024, Sanctuary Records [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Heavy MetalПродолжительность: 01:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C76546A1F81864E84895B60254817003F111DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728282   (54189) от 06.06.2024
+
+Black Sabbath - Anno Domini (1989-1995) Box Set, Reissue, Remastered, 2024, BMG [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - Headless Cross (2024 Remaster):
+ 01. The Gates Of Hell (01:06)
+ 02. Headless Cross (06:29)
+ 03. Devil & Daughter (04:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CEE0D394A42641A1D94D4E165DC1226BA5F44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729922   (53434) от 13.06.2024
+
+Black Country Communion - V (2024) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Enlighten (05:20)
+ 02 Stay Free (04:30)
+ 03 Red Sun (06:33)
+ 04 Restless (05:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5CFF6AB99CC9BB043FC2644C58FBE8B71A4195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737551   (49676) от 18.07.2024
+
+Deep Purple - =1 (2024) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me (03:59)
+ 02. A Bit On The Side (04:11)
+ 03. Sharp Shooter (03:44)
+ 04. Portable Door (03:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAFD3AF53660D183335C21812DE4995010F5487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742583   (47019) от 12.08.2024
+
+Black Jack - Black Jack (2024) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Times Trouble (03:17)
+ 02. Celebrate Love (04:58)
+ 03. The Way (04:53)
+ 04. When She Looks at Me (04:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245D22047B93CDB7103A3709BF008CDB0A2EE576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743670   (46498) от 17.08.2024
+
+Mojo Thunder - The Infinite Hope (2024) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sun Still Rises (04:28)
+ 02. Coming Back To You (04:46)
+ 03. Step By Step (03:25)
+ 04. Let It Fall (04:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCC5F5AF025DE55C87071CC04E9D1ADD5E5B602
 ```
 
 https://mybot314.ru/tekegram_catalog/

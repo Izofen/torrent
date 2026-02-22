@@ -1,3 +1,119 @@
+###  Публикация: 1288605   (694195) от 12.03.2019
+
+Carmen - Più forti del ricordo (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabato subito (2:55)
+02. Più forti del ricordo (3:48)
+03. Non è amore (4:00)
+04. Punto a capo (3:50)(   Читать дальше...   )Жанр: PopПродолжительность: 34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A795118D84AE176AC8E7E429C70916C5690A579E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288540   (694190) от 12.03.2019
+
+Kleeer - Tonight: Greatest Hits (2019) [MP3|320 Kbps] <Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight (5:11)
+02. Intimate Connection (4:46)
+03. Open Your Mind (6:38)
+04. Tonight's The Night (Good Time) (6:20)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 02:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1761FA5C78C00447CD9DB8B346EC4673A0A2BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288525   (694182) от 12.03.2019
+
+Fred Ventura - Greatest Hits & Remixes (2019) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Years (Go By) (7'' Version) (3:31)
+02. Streets (All Right) (7'' Version) (3:32)
+03. Leave Me Alone (7'' Version) (3:24)
+04. Wind Of Change (Short Version) (4:32)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 02:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD84E2E3859E66F70342FD0C847B66EA692BBA90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403261   (694154) от 18.08.2020
+
+VA - Energy Booster Music Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kathleen Young - Idgaf (03:39)
+02. Nicholas Bailey - Shape of You (03:52)
+03. Donald Perry - Finesse (03:38)
+04. Harold Rice - Paradise (03:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4F00209456D525AAA56E978DB6F6E420DA5BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403156   (694149) от 18.08.2020
 
 VA - Summer Acoustic (2020) [MP3|320 Kbps] <Pop>
@@ -621,122 +737,6 @@ Olsson - Millions (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3322A41A03DE35E64583A220857AF53528915CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221710   (691452) от 26.04.2018
-
-French Kiss - Panic! (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panic / Save Me (Suite) (8:37)
-02. We're the Right Combination / Right Combination (Suite) (9:01)
-03. You Got Me Groovin' (5:09)
-04. All Out of Tears / Lovin' Tears (Suite) (7:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BE08B5028BB170048367F22C16DB5EB3DDC323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134076   (691417) от 14.05.2017
-
-Кристиан Рэй & МФ3 - Жар (1997) [TAK|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - О-Э-О
-02 - Тихий вечер
-03 - Дикая кошка
-04 - Город(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F25FD970B7265ADA5F33E4F3CA3C37B8892615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134190   (691403) от 14.05.2017
-
-VA - Top Of The Spot 2017  [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons – Believer
-02. Lp – Lost on you
-03. The Strumbellas – Spirits
-04. Jake Bugg – Lightning bolt(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B82E221147725844F8FC333A7DF33812F59943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134055   (691289) от 14.05.2017
-
-VA - Русское счастье (Romantic Melodies) (2006) [TAK|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Павел Кашин - Московская Одиссея
-02 - Михей & Асман + Пицца - По волнам
-03 - Алёна Свиридова - В городе N
-04 - Гости из будущего - Разбить души твоей стёкла(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08763E3389DBA1BCBC74186129AAC5813A43B698
 ```
 
 https://mybot314.ru/tekegram_catalog/

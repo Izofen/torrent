@@ -1,32 +1,3 @@
-###  Публикация: 1762188   (36239) от 24.11.2024
-
-VA - Top Romantic Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-03. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)
-04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AE4A03CF7944723F01AAC03566BC38A09B7390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763028   (35725) от 29.11.2024
 
 VA - Famous Classical Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -741,6 +712,35 @@ VA - Classicworks: Best of Classical (2000) 2 x CD, Compilation [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6F0EC498934F8E2C5C401E347DF34EC24C77CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806287   (11602) от 13.07.2025
+
+VA - 100 Classics For Relaxation - A Glorious Sunrise (2008) CD, Compilation [FLAC|Lossless|tracks + .cue] <Classical, Contemporary, Romantic>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Hammerstein: London Promenade Orchestra & Chorus / Flower Duet    [0:04:03.25]
+02. Edward Elgar / Chanson de Matin    [0:03:04.00]
+03. London Promenade Orchestra / Waltz in a Flat Major, Op. 39, No. 5    [0:01:26.48]
+04. Frédéric Chopin / Etude In A Minor, Op. 25, No. 11 ("Winter Wind")    [0:03:29.44](   Читать дальше...   )Жанр: Classical, Contemporary, RomanticПродолжительность: 01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4605ECDE9CA7B2C05A691FC5507FAA25CB4EDD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

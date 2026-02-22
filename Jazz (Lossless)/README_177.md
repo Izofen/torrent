@@ -1,3 +1,32 @@
+###  Публикация: 1312650   (530965) от 05.07.2019
+
+The Count Basie Orchestra - Long Live The Chief (1986) Denon [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Got It [5:41]
+02. April in Paris [3:43]
+03. Misunderstood Blues [7:16]
+04. Autumn Leaves [5:32](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11ADD78F5FA716FA87E38761B6EEB04DA63D9E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312648   (530963) от 05.07.2019
 
 Chris Amemiya & Jazz Coalescence - In The Rain Shadow (2013) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -716,35 +745,6 @@ Coleman Hawkins / Frank Wess - Giants Of The Tenor Sax (1940, 1943, 1954) 1988, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1710A812E6BC880FD5789D263A1973D8AE5BBFF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313076   (528178) от 07.07.2019
-
-Mats Gustafsson / Barry Guy / Paul Lovens - Mouth Eating Trees And Related Activities (1996) [FLAC|Lossless|tracks + .cue] <Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part I (4:25)
- 02. Part II (12:31)
- 03. Part III (6:46)
- 04. Part IV (27:14)(   Читать дальше...   )Жанр: Free ImprovisationПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB3017E159E98CE0BA13CC3E7DB107F76860F8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

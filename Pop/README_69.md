@@ -1,3 +1,119 @@
+###  Публикация: 1115252   (828152) от 17.03.2017
+
+Hazmat Modine - Extra-Deluxe-Supreme (2015) [MP3|320 Kbps] <SKA, Fusion, World>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Day (04:25)
+02. Plans (05:12)
+03. Your Sister (05:37)
+04. Up & Rise (05:30)(   Читать дальше...   )Жанр: SKA, Fusion, WorldПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63E14F4FE895AE7F37B0366FFE8FC9F06463374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115243   (828059) от 17.03.2017
+
+Zara Larsson - So Good (2017) [MP3|320 Kbps] <Pop, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. What They Say (03:39)
+02. Lush Life (03:21)
+03. I Would Like (03:45)(   Читать дальше...   )Жанр: Pop, R'n'BПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6BC725ADDCA12D86966DCAB27A030768258EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115203   (828058) от 17.03.2017
+
+The Chantoozies - Chantoozies (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Up
+02. Kiss 'N' Tell
+03. Bang Bang
+04. Slightest Notion(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, PopПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88C3BE1234A6F981FEBFEDD1F97441191FC8C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381343   (827814) от 06.05.2020
+
+Candido - Candi's Funk (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candi's Funk (8:25)
+02. Do You Wanna Dance? (8:12)
+03. Samba Funk (7:43)
+04. Super City (7:45)Жанр: Funk Soul, DiscoПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5DD90C98B9FAD8B5F75F2F30828565E1B336BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 653322   (827283) от 09.05.2013
 
 Modern Tracking - Running Away (Special Single Edition) (2013) [MP3|320 кб/с]<Pop, Dance>
@@ -632,122 +748,6 @@ Fleur East - Love, Sax & Flashbacks (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F0C6607913384E0F4422419ED8129E3068CBA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006804   (825176) от 13.04.2016
-
-Alexandra Stan - Cliche (Hush Hush) (2013) Japanese Limited Edition [FLAC|Lossless|image + .cue] <Pop, Dancepop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Saxobeat (03:15)
-02. Ting Ting (03:56)
-03. Show Me The Way (03:44)
-04. Lollipop (Param Pam Pam) (03:55)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, Electropop, Euro House, Europop, R&B, BalladПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65877C0CE5388CD9135F31F966FB678F2F08E0E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502938   (824959) от 16.10.2021
-
-VA - GANGSTER MUSIC, Vol. 3 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824959.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rasster - Alligator
-2. JOOLIA - Maserati
-3. DJ Chris Parker/Frost - Radioactive
-4. Rompasso/Rich The Kid - Angetenar(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2389E24E8013DFD15BD7751689C229A2C379C17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502939   (824944) от 16.10.2021
-
-VA - GANGSTER MUSIC, Vol. 4 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824944.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. TRITICUM - Gangster
-2. Slider & Magnit - Down Low
-3. Motivee - Murcielago (Radio Mix)
-4. Mari Ferrari/Fugo - Slow(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D1BE8129BEF2F340CD879AB882999E0EF274B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502940   (824857) от 16.10.2021
-
-Инна Маликова & Новые Самоцветы - Просто не верится (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824857.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Просто не верится
-2. Лунная ночь
-3. Там
-4. Незнакомка(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317BC3A7D124A9420B2A740EA8A65B9B454115E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

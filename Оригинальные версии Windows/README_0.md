@@ -1,3 +1,111 @@
+###  Публикация: 1464057   (1019905) от 21.04.2021
+
+Microsoft Windows 10.0.17763.1879 Version 1809 (Updated April 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1879.
+Оригинальные образы business_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569C03F1F8D0A53277D1B58D77F11CEA24F88055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464062   (1019904) от 21.04.2021
+
+Microsoft Windows 10.0.19041.928 Version 2004 (Updated April 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.928.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D101E84A9737A56BC30BC86D73CE8448E7253D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464063   (1019887) от 21.04.2021
+
+Microsoft Windows 10.0.19042.928 Version 20H2 (Updated April 2021) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.928.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4DB97FE209CF1AE91D24F540FD2677B298C159A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464064   (1019844) от 21.04.2021
+
+Microsoft Windows 10.0.19042.928 Version 20H2 (Updated April 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.928.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E063158AB1AE0963D5BF3C3EA126CC41143847F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471477   (1015123) от 20.05.2021
 
 Microsoft Windows 10.0.19041.985, Version 2004 (Updated May 2021) - Оригинальные образы от Microsoft MSDN [En]
@@ -580,112 +688,6 @@ Microsoft Windows 10.0.17763.2114, Version 1809 (Updated August 2021) - Ориг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24AD3400E0C3E8196F1DDC8C4F77B9CD8EF478D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489846   (923441) от 17.08.2021
-
-Microsoft Windows 10.0.19042.1165, Version 20H2 (Updated August 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1165.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40FD1DDBD7D0FF26A01BD04D5B440D85CDFA6FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489849   (914884) от 22.08.2021
-
-Microsoft Windows 10.0.19043.1165, Version 21H1 (Updated August 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1165.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D1CC4AD452423531FEB3EC82149CABCF2F53AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 298044   (884280) от 19.02.2011
-
-Microsoft Windows 7 SP1 - Оригинальные образы от Microsoft MSDN [English]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Windows 7 с интегрированным пакетом обновления SP1. Пакет обновления 1 (SP1) для Windows 7 и содержит ранее выпущенные обновления, распространявшиеся через Центр обновления Windows, а также добавочные обновления для указанных платформ.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299334   (878848) от 22.02.2011
-
-Microsoft Windows 7 SP1 - Оригинальные образы от Microsoft MSDN [Russian]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 7 с интегрированным пакетом обновления SP1. Пакет обновления 1 (SP1) для Windows 7 и содержит ранее выпущенные обновления, распространявшиеся через Центр обновления Windows, а также добавочные обновления для указанных платформ.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

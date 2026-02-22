@@ -1,3 +1,38 @@
+###  Публикация: 744236   (972826) от 10.01.2014
+
+VA - 90 Hits Of The 90s (2013) 4CD [FLAC (track)|Lossless|WEB-DL]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Armand Van Helden (Feat.. Duane Harden) - U Don't Know Me (03:56)
+ 02. Tori Amos - Professional Widow (Armand's Star Trunk Funkin Mix) (03:30)
+ 03. Everything But The Girl - Missing (Todd Terry Remix) (03:32)
+ 04. Robert Miles - Children (04:01)
+ 05. ATB - 9 Pm (Till I Come) (02:41)
+ 06. William Orbit - Barber's Adaggio For Strings (Ferry Corsten Remix) (03:09)
+ 07. Moloko - Bring It Back (Boris Musical Mix Edit) (03:19)
+ 08. David Morales Presents The Face Feat Juliet Rogers - Needin' U (03:21)
+ 09. Pete Heller - Big Love (04:01)
+ 10. Baby D - Let Me Be Your Fantasy (03:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E178DEBDE3454A70336CF4410F6127C65011F207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975661   (972099) от 15.01.2016
 
 VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian Pop>
@@ -753,35 +788,6 @@ Deborah Harry - Debravation (1993) [APE|Lossless|image+.cue] <Pop Rock, Synth-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13D39D2EC139BBCCD68826F783A4764C450CCFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977362   (965740) от 21.01.2016
-
-VA - DJ Soul Ballads vol.1 (2000) [APE|lossless|image+.cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whithey Houston - Exhale (Shoop Shoop)
-02. Mariah Carey feat. Boyz II Man - One Sweet Day
-03. Jon B. feat. Babyface - Someone To Love
-04. TLC - Red Light Special(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1935722C97B75471D9273C7655CFAAF3AA2D7AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

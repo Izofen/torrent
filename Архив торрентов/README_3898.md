@@ -1,3 +1,32 @@
+###  Публикация: 577764   (357000) от 19.11.2012
+
+Advanced Tokens Manager 3.5 BETA 7 [Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_357000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Tokens Manager приложение, которое поможет вам с сохранением активации Windows и восстановлением. Microsoft на каждую лицензию (ключ) накладывает предел активация в онлайне. Это приложение может сделать полную резервную копию активации, для последующего восстановления.
+Операция восстановление активации успешна на 100%, если новый Windows той же редакции, и установлен с оригинального дистрибутива.
+Можно использовать восстановление активации бесконечно на том же оборудовании.
+Активацию можно перенести c 32 битных ОС, на 64 битных ОС.Название программы: Advanced Tokens ManagerЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577818   (356997) от 19.11.2012
 
 Minecraft [Ru/En/Multi56] (L/1.3.2) 2012 l sOka!
@@ -670,35 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75FB83F7C14544D719E211882F65B99D29A5ECC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256388   (356794) от 21.10.2018
-
-Cell Shouter Feat. Bad Habit Boys - I Hate The F*cking Ringtones! (2005) [FLAC|Lossless|tracks + .cue] <Hard Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cell Shouter Feat. Bad Habit Boys - I Hate The F*cking Ringtones! (Radio Edit) (3:13)
-02. Cell Shouter Feat. Bad Habit Boys - I Hate The F*cking Ringtones! (Mike De Ville Radio Edit) (3:29)
-03. Cell Shouter Feat. Bad Habit Boys - I Hate The F*cking Ringtones! (Club Mix) (5:38)
-04. Cell Shouter Feat. Bad Habit Boys - I Hate The F*cking Ringtones! (Mike De Ville (   Читать дальше...   )Жанр: Hard TranceПродолжительность: 00:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E72BDA1E047F9C6A41D7FC13C29772158CC24DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

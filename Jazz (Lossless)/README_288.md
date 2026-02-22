@@ -1,38 +1,3 @@
-###  Публикация: 852797   (218275) от 24.12.2014
-
-VA - The Greatest Voices & Unforgettable Evergreens CD1 (2000) [APE|Lossless]<Jazz, Folk, Pop, Traditional>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Memories Are Made of This (1955) - Dean Martin
-02. We'll Meet Again (1962) - Vera Lynn
-03. Sentimental Journey(1959) - Dinah Shore
-04. Unforgettable (1963) - Peggy Lee
-05. P.S. I Love You (1961) - Kay Starr
-07. Portrait of My Love (1960) - Matt Monro
-08. They Can't Take That Away From Me (1958) - June Christy
-09. Change Partners (1961) - Vic Damone
-10. A Nightingale Sang in Berkeley Square (1962) - Bobby Darin
-11. Baby, It's Cold Outside (1959) - Dean MartinЖанр: Jazz, Folk, Pop, TraditionalПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4B5AA87DF7CC8CD254BC123A5953ED93E11B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269840   (218207) от 16.12.2018
 
 Bob Reynolds - Quartet (2018) Bob Reynolds Music [FLAC|Lossless|WEB-DL|tracks] <Crossover Jazz, Fusion>
@@ -763,6 +728,35 @@ Eddie Higgins Trio - Essential Romance (2009) Venus Records [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:182D858DF9E599CD6CB1F71DB86875DABED91BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586682   (215655) от 27.10.2022
+
+Club des Belugas - Best of 2002-2022 (2022) 3CD Box Set [FLAC|Lossless|image + .cue] <Nu Jazz, Downtempo, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Club des Belugas - немецкая Nujazz и Lounge группа. Ядро Club des Belugas составляют Maxim Illion и Kitty the Bill; их поддерживают различные известные и приглашенные музыканты. Club des Belugas - одна из ведущих групп Nujazz в Европе, а возможно, и в мире. В своей музыке музыканты сочетают современные европейские стили электро, лаунж и нюджаз с бразильскими битами, (   Читать дальше...   )CD - 1:
+01. Early Daiquiris (5:23)
+02. Kissez in Gallop (4:59)
+03. Sisi Tartar (4:54)(   Читать дальше...   )Жанр: Nu Jazz, Downtempo, ElectronicПродолжительность: 03:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7E2C2591B209928C698B4CE7CAA39D0DC79261
 ```
 
 https://mybot314.ru/tekegram_catalog/

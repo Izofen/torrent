@@ -1,3 +1,32 @@
+###  Публикация: 1509102   (795555) от 11.11.2021
+
+Dalton - The Race Is On (1987) Reissue, 1994, EMI [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caroline
+02. No Reason
+03. Losing My Mind
+04. Loving You(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CABF8E3D2191633E4FF1D908EEB3A61343B8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509520   (795006) от 12.11.2021
 
 Rock's Finest - Planet Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Male Female Vocal>
@@ -717,35 +746,6 @@ Java - Change Of Heart (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B9D75985B6C138F02351EBB1F1C12FA7B551AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511772   (788411) от 22.11.2021
-
-Tania Kikidi - Rock & Roll Paradise (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock & Roll Paradise (6:14)
-02. Queen Rider (3:41)
-03. Freedom Highway (3:55)
-04. Night Burner (3:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD2E3F55B2470C27E9FD1648B5C56FD9EBF27BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

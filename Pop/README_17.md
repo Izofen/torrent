@@ -1,3 +1,119 @@
+###  Публикация: 1455592   (1025664) от 19.03.2021
+
+Андрей Яшин - От А до Я (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инструментал #1 (3:52)
+02. Лето улетело (5:08)
+03. Снова ветер и дождь (4:52)
+04. Забудь (5:39)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF88692AC5E2E6DD520F2377FD9367E56651D874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455320   (1025627) от 19.03.2021
+
+Чё Те Надо? - Где найти мужчину? (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Где найти мужчину? (3:10)
+02. Она работает на скорой врачом (3:31)
+03. Чайничек (2:56)
+04. Снег летит (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F4981B6ECEF39599F795BF0FA508111D9BBC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455580   (1025622) от 19.03.2021
+
+Roosevelt - Collection 6 Releases (2013-2021) [FLAC|Lossless|tracks + .cue, tracks] <EDM, Indie Pop, Nu Disco, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Way Out (4:35)
+02. Strangers (3:41)
+03. Feels Right (4:35)
+04. Closer to My Heart (4:44)(   Читать дальше...   )Жанр: EDM, Indie Pop, Nu Disco, Synthpop |Продолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A6BD97B7D3CD3E2DD7C6DF4D662839E9C7B085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455430   (1025608) от 19.03.2021
+
+Мари Краймбрери - Нас узнает весь мир (Part 1) (2021) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025608.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ты меня не забудешь (Intro)
+2. Ты меня не забудешь
+3. Иди танцуй (Intro)
+4. Иди танцуй(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38DD130159267AF558AA31AA3A5ECCA935CF436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455432   (1025606) от 19.03.2021
 
 Валерий Леонтьев - На крыльях любви (2021) EP [MP3|320 Kbps] <Pop>
@@ -627,122 +743,6 @@ Thomas Anders - Cosmic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ED3C1A28ED189B8686EE91ACADB679E9727975E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458012   (1024176) от 27.03.2021
-
-Inga & Anete Humpe - Swimming With Sharks (серия "Другие восьмидесятые") (1987) [MP3|320 Kbps] <German Pop, Synthpop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Careless Love
-02. Idiot
-03. No Longer Friends
-04. Conspiracy(   Читать дальше...   )Жанр: German Pop, Synthpop, New WaveПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E1E9AD9CF6BDEE8FFE7898EEB5DDFD67711DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457972   (1024099) от 27.03.2021
-
-*NSYNC ('N Sync) - No Strings Attached (2000) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bye Bye Bye (3:21)
-02. It's Gonna Be Me (3:13)
-03. Space Cowboy (4:24)
-04. Just Got Paid (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AA68FFFA42D147DECEAE72C2C6829B1BFA116D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458324   (1024068) от 28.03.2021
-
-Eva Eva Eva - Eva Eva Eva (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me Please Forever (3:34)
-02. Vedrai (2:51)
-03. Do (3:09)
-04. Argentina (3:54)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B6E187348FE2973D818634CE7C5617BDE9DA0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458157   (1024066) от 28.03.2021
-
-VA - 50s 60s and 70s Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Take Me Home, Country Roads (Acoustic) (03:21)
-02. John Burnsby - I Saw Her Standing There (Acoustic) (02:58)
-03. Shannon & Keast - Sixteen Tons (Acoustic) (02:39)
-04. Logan York - I Heard It Through the Grapevine (Acoustic) (03:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E13035781BE95A2C5CE395FD4FAE0EC441CA14F
 ```
 
 https://mybot314.ru/tekegram_catalog/

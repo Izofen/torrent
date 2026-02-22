@@ -1,32 +1,3 @@
-###  Публикация: 1607564   (237192) от 27.01.2023
-
-Fats Waller - 1936 - 1937 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallelujah! Things Look Rosy Now (vocal) [2:49]
-02. Hallelujah! Things Look Rosy Now (instrumental) [2:48]
-03. 'Tain't Good (Like a Nickel Made of Wood) (vocal) [2:31]
-04. 'Tain't Good (Like a Nickel Made of Wood) (instrumental) [2:30](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347B0262B4E8CBD748F2D2E0BD919ACE61FA00DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608131   (236977) от 29.01.2023
 
 Fats Waller - 1937 - 1938 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
@@ -745,6 +716,35 @@ Luciana Souza - The Book Of Chet (2012) Sunnyside [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95926EE172B3ABE92FAF4FED291E1FF14430393C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635380   (236256) от 25.05.2023
+
+Black Art Jazz Collective - Ascension (2020) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_236256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascension [5:37]
+02. Mr. Willis [4:16]
+03. Involuntary Servitude [6:46]
+04. Twin Towers [6:28](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4771DAD93DB30CC235B472F710C73D6C55121DF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

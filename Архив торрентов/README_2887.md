@@ -1,3 +1,32 @@
+###  Публикация: 920482   (580118) от 22.07.2015
+
+VA - Spring Chillstep Sessions 2015 (2015) [FLAC|tracks|WEB-DL]<Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breex - Shooting Stars [4:05]
+02. Li'lith - When You Smile [3:33]
+03. Tom Strobe - Love Makes Me Sad [2:51]
+04. Sonatrix - Remember Me [4:02](   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE7C88E6ED947F73B8516A068062905BF2D0475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920515   (580114) от 22.07.2015
 
 Vivaldi 1.0.231.3 Technical Preview [Multi/Ru]
@@ -667,32 +696,6 @@ Urucubaca - Artes Naturais (2011)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C80E36E4D8FD7BC09398E46B6F6219E792BEE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302492   (579958) от 16.05.2019
-
-AirServer 7.2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579958.jpg" />
-</div>
-
-
-###  Подробнее
-
-AirServer – это мощное приложение для Mac, которое позволяет вести потоковую передачу или зеркалировать ваше устройство iOS, на ваш Mac. Если ваш компьютер подключен ко второму или альтернативному дисплею, такому как HDTV или проектор, ваше устройство iOS сможет использовать этот дисплей. Если устройство iOS поддерживает зеркалирование, то все, что вы видите на дисплее (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.05.2019Разработчик: AirServerПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B46C2D7C395201E760C5DF8BEC4A21E6F21563
 ```
 
 https://mybot314.ru/tekegram_catalog/

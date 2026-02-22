@@ -1,3 +1,90 @@
+###  Публикация: 1584188   (226624) от 17.10.2022
+
+Mylène Farmer - Désobéissance (2018) [OGG Vorbis|480 Kbps] <Electronic, Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_226624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rolling Stone
+02. Sentimentale
+03. Desobeissance
+04. N'oublie pas(   Читать дальше...   )Жанр: Electronic, Pop, BalladПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B024630FC77D7F7641B77F154D02720494B3B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268520   (226523) от 11.12.2018
+
+VA - Dance Hits 2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_226523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosima Frehta - Never Felt Like This
+02. Riha - One Day
+03. BR!GHT feat. Jim Paxton - Let Me
+04. R3Wind - If You Be Mine(   Читать дальше...   )Жанр: DanceПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311851DD068CE8AE5E0711454752D6AA59A19480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584138   (226477) от 17.10.2022
+
+Sade - The Best Of Sade (1994) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_226477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Love Is King
+02. Hang On To Your Love
+03. Smooth Operator
+04. Jezebel(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40ACD38EF22178233878E2446E8B4666297DD0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268657   (226449) от 11.12.2018
 
 VA - Venti Compilation 5 (2018) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco>
@@ -669,93 +756,6 @@ CD1-CLUB MIX:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3362FCA80CCD696EE8433A2FCB7D2BB5696881CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342149   (225274) от 01.12.2019
-
-VA - The World's Best Ever Beer Song's 10th Anniversary (2008) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ровно 11 лет тому назад - 1 декабря 2008 года Австралийский дивизион лейбла EMI выпустил этот сборник для людей любящих в компании пропустить кружечку-вторую, а иногда и третью-четвертую. Головы людей, составлявших этот сборник, были явно этим самым пивом не затуманены, потому как он получился на удивление свежим и интересным. Знатоки вряд ли для себя найдут новые (   Читать дальше...   )CD1:
-01. Lynyrd Skynyrd - Sweet Home Alabama  (4:37)
-02. Choirboys - Run To Paradise  (4:05)
-03. Divinyls - Boys In Town  (2:50)(   Читать дальше...   )Релиз состоялся: 01 декабря 2008 годаЖанр: Pop, Rock, DanceПродолжительность: 03:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB7903A784377701AB6069453541FED9A983E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268701   (225154) от 12.12.2018
-
-VA - I Saw You Dancing (2001) Приложение к журналу Stereo & Video [MP3|320 Kbps] <Pop, Euro-Disco, Latin, Euro-House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaft - Mucho Mambo (3:27)
-02. Q-pow! - Summer Holiday (3:18)
-03. Loona - Bailando (3:34)
-04. Crystal Waters - 100% Pure Love (4:39)(   Читать дальше...   )Жанр: Pop, Euro-Disco, Latin, Euro-HouseПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555B70F111FD3A1D06F07BAD7E3BF06CA0400E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268934   (225146) от 12.12.2018
-
-VA - Deep Strips (2018) [MP3|320 Kbps] <Funky, Dance, Nu Disco, Deep House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Hill - You Will See (Chunkee Remix)
-02. Natasha Baccardi - No Sleep (Original Mix)
-03. Alex Dee Gladenko - Beach Party (Original Mix)
-04. Melih Aydogan - You Tell Me (Original Mix)(   Читать дальше...   )Жанр: Funky, Indie-Dance, Nu Disco, Deep HouseПродолжительность: 03:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EA2ABB248FB5C481915CD5C314037E5B43FA38
 ```
 
 https://mybot314.ru/tekegram_catalog/

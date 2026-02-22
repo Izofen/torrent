@@ -1,3 +1,93 @@
+###  Публикация: 310263   (837707) от 18.03.2011
+
+The Gil Evans Orchestra - Out Of The Cool (2007) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Nevada (15:34)
+02. Where Flamingos Fly (5:12)
+03. Bilbao Song (4:13)
+04. Stratusphunk (8:05)
+05. Sunken Treasure (4:19)
+06. Sister Sadie (6:57)Жанр: Jazz, Progressive Big Band, Cool, Post-Bop, Modern Big BandПродолжительность: 00:44:19
+                
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379632   (837676) от 30.04.2020
+
+Andrea Motis & Joan Chamorro Group featuring Scott Hamilton - Live At Jamboree-Barcelona (2013) Swit Records [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exactly Like You [4:24]
+02. Meditacao [6:45]
+03. I Fall in Love Too Easily [6:36]
+04. Sun Showers [4:33](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F437112D6BEEA5CBE1D2C285218C39024C4A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879379   (837351) от 18.03.2015
+
+Ray Charles - Standards (1998) [APE|Lossless]<Blues, R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Had To Be You [02:45]
+02. Am I Blue [03:38]
+03. Come Rain Or Come Shine [03:42]
+04. Georgia On My Mind [03:40](   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 01:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF7EE1348AA5B6202E9BA634D2039D8CFC55602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004845   (836974) от 07.04.2016
 
 Bobby Hutcherson - Now! (1969) Remaster, 2004, Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -658,93 +748,6 @@ Caro Emerald - Emerald Island (2017) EP [MP3|320 Kbps] <Jazzy, Electro Swing>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52DCC7F9E30B28DB66278B95D898BD67BEFBAE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005140   (834842) от 08.04.2016
-
-Nat Adderley - Autobiography (1964-1965) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sermonette [05:56]
- 02.Work Song [04:00]
- 03.The Old Country [04:29]
- 04.Junkanoo [03:05](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5020FEAC92C0E3F1A937ABAAFA63921F3A33F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005132   (834839) от 08.04.2016
-
-Joachim Kuhn New Trio - Beauty & Truth (2016) ACT[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beauty and Truth [01:25]
- 02.The End [04:05]
- 03.Because of Mouloud [03:50]
- 04.Sleep on it [04:19](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46A93700223D66FCB9F19BD6B62F61D4C033E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005137   (834833) от 08.04.2016
-
-Stanley Turrentine - Always Something There (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.(There's) Always Something There [02:50]
- 02.Little Green Apples [04:22]
- 03.When I Look Into Your Eyes [02:36]
- 04.Light My Fire [03:15](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46FC4EE0FEC5C4FC841BB4279AAEE213F9AA71D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1560292   (520894) от 29.06.2022
+
+Text Workflow 1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и простой в использовании инструмент, который поможет вам преобразовать ваш текст. Text Workflow устраняет необходимость выполнять повторяющиеся задачи вручную над вашим текстом. Комбинируйте действия по преобразованию, чтобы создать мощную автоматизацию для вашего текста.
+Комбинируйте действия преобразования, чтобы создать мощную автоматизацию для вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.06.2022Разработчик: © 2022 Giorgos TrigonakisПоддерживаемая ОС: macOS 11.2+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AA190FCEEDED96DC617DAE5EB6A5704FB72E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560296   (520892) от 29.06.2022
 
 Allavsoft Video Downloader Converter 3.24.8.8210 [Multi/Ru]
@@ -662,35 +689,6 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA30898699F95C714D8BA403B0BCD316E08744C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928984   (520636) от 18.08.2015
-
-Idlefon - Submarine (2015) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Industrial>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make It Rain (7:13)
-02. Absorbed (6:08)
-03. Sinking (6:48)
-04. Conflict (6:06)(   Читать дальше...   )Жанр: Ambient, IDM, IndustrialПродолжительность: 00:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4348C3530C3F1E83053E5DC88EFBD157F9681F55
 ```
 
 https://mybot314.ru/tekegram_catalog/

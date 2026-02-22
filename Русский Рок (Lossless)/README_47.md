@@ -1,3 +1,32 @@
+###  Публикация: 1648258   (231428) от 23.07.2023
+
+Der Dobermann - Don't Be Afraid, You Already Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instrumental Intro [00:00:40]
+02. Burn Your Fire [00:02:43]
+03. Blood on Your Hands [00:04:09]
+04. Killer Party [00:03:06](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2813D0AEEB2182786CCB3DB582A3FA058738DE25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581636   (231079) от 06.10.2022
 
 ДДТ (DDT) - Творчество в пустоте - 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -726,35 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E515B416A46C976B3D36C2824BD1E68FD357B229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650836   (223375) от 05.08.2023
-
-Screammet - Десять Жизней (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Надо бежать [00:04:03]
-02. За нами бой [00:05:08]
-03. Стальной огонь [00:04:44]
-04. Здравый смысл [00:05:02](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2821C8FFC6C52B5D3002559DA94CF902FE6161E
 ```
 
 https://mybot314.ru/tekegram_catalog/

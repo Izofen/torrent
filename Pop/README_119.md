@@ -1,3 +1,119 @@
+###  Публикация: 1287825   (701351) от 08.03.2019
+
+Гречка - сборник малолетки (2019) [MP3|320 Kbps] <Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701351.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. проснись моя любовь
+2. каждую секунду
+3. мир сходит с ума
+4. ты главный герой(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6008A3FB0F5B45F4D6F6C7A5232D41E7D30869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 895299   (701015) от 05.05.2015
+
+Lara Fabian - Essential (2015) [FLAC|Lossless]<Pop, Classical Crossover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voce
+02. Tu t’en vas
+03. Tout
+04. Je t’aime(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5558150FCD5F39D76529CFE0FE42D5BB35A1D857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132511   (700841) от 09.05.2017
+
+Lola Coca - The Only Child (2017) [MP3|320 Kbps] <Pop, Britpop, Alternative Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Songs
+02. Big Ben
+03. Dream Date
+04. GQ(   Читать дальше...   )Жанр: Pop, Britpop, Alternative Hip HopПродолжительность: 00:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D0167AF95C890A4400BE7A4F18FFF5DF317B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287821   (700803) от 08.03.2019
+
+Кватро - XV лет. Посвящение женщине. Часть 3 (2019) [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700803.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Замок из дождя
+2. Как ты красива сегодня
+3. Сердце в 1000 свечей
+4. Виноградная косточка(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185E119B23AA2EE6CBCDF118335B8927CC932EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220749   (700664) от 21.04.2018
 
 Lisa Stansfield (Лиза Стэнсфилд) - Affection (1989) Arista [MP3|320 Kbps] <Pop, R&B, Soul>
@@ -628,120 +744,6 @@ Pupo - Su di noi - The Best of Pupo (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1893DFC2DFDDA20B50A4637B7913836F625F057E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895693   (697418) от 07.05.2015
-
-Whitney Houston - The Star Spangled Banner (1991) Single [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хьюстон исполнила «The Star Spangled Banner» перед финальным матчем чемпионата НФЛ по американскому футболу в январе 1991 года. Эта запись песни была выпущена как коммерческий сингл, который попал в двадцатку U.S. Hot 100, сделав Хьюстон первым артистом, выпустившим национальный гимн в качестве хита. Хьюстон пожертвовала свою долю выручки Американскому Красному Кресту. Десять лет спустя песня была перевыпущена после терактов 11 сентября 2001 года.01. The Star Spangled Banner
-02. America The BeautifulЖанр: PopПродолжительность: 00:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28769EAA1FB2DCA2418743EC47D25ADD943233CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288289   (697167) от 10.03.2019
-
-Dido - Still On My Mind (2019) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricanes
-02. Give You Up
-03. Hell After This
-04. You Don't Need a God(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71AB7B8AF764A11490D50B4A1A646B0B71AA316E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895779   (697083) от 07.05.2015
-
-Город 312 - Без вариантов (2015) [FLAC|Lossless]<Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не теряй меня, Москва
-02. Вне зоны доступа
-03. Фонари
-04. Останусь(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D102B9C72BF3F2AB5A2367B36943EC8A79DAE48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133223   (697008) от 11.05.2017
-
-Masquerade - The Sound of Masquerade (1984) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (2:01)
-02. Guardian Angel (4:25)
-03. Love Hurts (3:46)
-04. Deep Under My Skin (4:18)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9AB2318F0BF1CD6AB141EC3B1F3B1A6BA575D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

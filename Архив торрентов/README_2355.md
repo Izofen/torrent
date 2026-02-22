@@ -1,3 +1,29 @@
+###  Публикация: 1027933   (694447) от 20.06.2016
+
+TapinRadio Pro 1.72.7 Portable by PortableAppC [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694447.jpg" />
+</div>
+
+
+###  Подробнее
+
+TapinRadio - интернет радио от компании RaimerSoft (разработчика известной программы RarmaRadio) предоставляет своим пользователям широчайший ассортимент радиостанций. Данная программа даёт возможность прослушивать огромное количество радиостанций разного направления и стиля музыки. Для более удобного поиска любимых станций можно создавать свой список часто прослушиваемых (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C5C72B807098C30FEB9AF3E3072F892641BBE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027803   (694444) от 20.06.2016
 
 Technimatic - Better Perspective LP (2016) [MP3|320 кб/с] <Drum & Bass, Liquid Funk>
@@ -665,32 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8625BB234DCAC627A8DF98CAF10FBEB2C909FD03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403125   (694268) от 18.08.2020
-
-Серия Кубков NASCAR-2020. Дайтона Дорожный Курс 235 / NASCAR Cup Series 2020. GoBowling 235, Daytona International Speedway Road Course (2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694268.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 этап Nascar Cup Series, GoBowling 235, Daytona International Speedway Road Course (65 Laps, 231 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 03:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6770AFD6E43969B358424F19BC3CA543B4F480
 ```
 
 https://mybot314.ru/tekegram_catalog/

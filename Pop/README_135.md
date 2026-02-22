@@ -1,3 +1,122 @@
+###  Публикация: 1541291   (646938) от 02.04.2022
+
+Famous Groupies - Rehearsing The Multiverse (2019) 2020,  ATOZ [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Bury Me 3:55
+02. Wouldn't That Be Lovely 1:39
+03. We All Fall Down 2:22
+04. Tonight 0:31(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614713B4DDD67011F3659F9F16752A5B6FF7D621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292458   (646920) от 29.03.2019
+
+Amy Correia - Christmas in L.A. (2000) Single [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas in L.A. (feat. The Tinseltown Tabernacle Choir) (4:15)Жанр: PopПродолжительность: 00:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEFDE6CA5AFE1F41EFCD6BFC457C5CB071053B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517161   (646860) от 01.07.2012
+
+Владимир Пресняков - Лучшая Коллекция (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Стюардесса по имени Жанна
+ 02.Ночкой темной
+ 03.Курочка Ряба
+ 04.Ночной звонок
+ 05.Ты скажи
+ 06.Недотрога
+ 07.Падший ангел
+ 08.Острова
+ 09.Дождь
+ 10.Ты сделана из огня(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009CB2478A5EF00F570649CA78D93ED581442902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540874   (646857) от 02.04.2022
+
+Mad Show Boys - Чудо из ниоткуда (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Омерзительный сосед (4:08)
+02.Фея лени (3:01)
+03.Люблю ролевика (3:49)
+04.Оптимистюшки (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2450D3C8F90307813E3114402DF0E8437B9287E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541151   (646852) от 02.04.2022
 
 Britney Spears - Circus (2008) Deluxe Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop>
@@ -635,122 +754,6 @@ Izia - La Vague (2015) [OGG|497-517 кб/с]<Alternative, French Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D518EF25155C7EB387FDB205E9B9B1B4A9AC73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032362   (645569) от 07.07.2016
-
-Нэнси - Grand Collection (2004) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645569.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дым сигарет с ментолом
-2. Ромео
-3. Черный Кадиллак
-4. Лада(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6FC2FB3FFBFB8334C94AE7B823E09C06DDD7E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906414   (645530) от 08.06.2015
-
-James Blunt - All The Lost Souls (2007) [MP3|320 кб/с]<Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1973 (04:40)
-02. One Of The Brightest Stars (03:12)
-03. I'll Take Everything (03:05)
-04. Same Mistake (04:59)(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D60DC90ECC2EBD942B058CFB8C0E291B6341F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905803   (645527) от 08.06.2015
-
-Sister Crayon - Devoted (2015) [MP3|320 кб/с]<Trip-Hop, Dream Pop, Indie>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armor (2:29)
-02. Devoted (3:11)
-03. Ride / Die (3:27)
-04. Into Solemn Hymns (3:42)(   Читать дальше...   )Жанр: Trip-Hop, Dream Pop, IndieПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C747A00B2DD446D5EC82D8D3C803EF5F309570AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032339   (645451) от 07.07.2016
-
-VA - Radio 538 Hitzone 78 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
-01. Justin Timberlake - Can't Stop The Feeling!  (3:58)
-02. Kungs vs. Cookin' On 3 Burners - This Girl  (3:17)
-03. Enrique Iglesias feat. Wisin - Duele El Corazon  (3:22)(   Читать дальше...   )Тип издания: Box Set, 2CDПроизводство: Sony Music B.V. - 88985332742Жанр: Top 40, Pop, RockПродолжительность: 02:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FACFAF88DCD12A784ADFA1FAE10A57ACB3CBE4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

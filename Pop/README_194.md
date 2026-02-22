@@ -1,3 +1,119 @@
+###  Публикация: 1554685   (474323) от 02.08.2022
+
+The Chainsmokers - So Far So Good (+ Time Bomb) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fall
+02. Why Can't You Wait
+03. Time Bomb
+04. Riptide(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5780F36D02B3B806899A78095459D95F62373B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160687   (474141) от 25.08.2017
+
+VA - Festivalbar '78  (1978) 2LP [MP3|320 Kbps] <Electronic, Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umberto Tozzi - Tu (4:02)
+02. Leano Morelli - Cantare Gridare... (3:31)
+03. Lina Savona' - Maya (3:50)
+04. El Pasador - Mucho Mucho (3:04)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 01:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A340E049436904EDB1BF9BF65BD151508469E44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160678   (474011) от 25.08.2017
+
+Sabrina - Golden Disco Hits (2003) [APE|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys (Summertime Love)
+02. Hot Girl
+03. Get Ready (Holiday Rock)
+04. Kiss(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA19597C609AD8868DC2BD75BC9E7D0369EB42FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245251   (473992) от 05.09.2018
+
+Ani Lorak (Ани Лорак) - Smile (2005) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Away
+02. Smile
+03. A Little Shot Of Love
+04. Car Song(   Читать дальше...   )Жанр: РорПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A57D1F2A6524500D942D370344DDE876052969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245250   (473862) от 05.09.2018
 
 Toto Cutugno - L'Italiano (1983) [FLAC|Lossless|image + .cue] <Pop>
@@ -642,124 +758,6 @@ VA - DJ Empire presents: A Tribute To Giorgio Moroder (2000) Compilation [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C0D24B1BBC0281E4156897A7D525968E7DF976C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161225   (469657) от 27.08.2017
-
-VA - Love Songs (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Vogue - Don't Let Go (Love) (4:52)
-02. INXS - Never Tear Us Apart (3:06)
-03. Donna Lewis - I Love You Always Forever (4:00)
-04. a-ha - This Alone Is Love (Remastered 2015) (5:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FDDD23C8A96CAACBC572B65979A46FCF128B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547786   (469551) от 17.09.2012
-
-Carly Rae Jepsen - Curiosity (EP) (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469551.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Call Me Maybe [03:14]
-2. Curiosity [03:26]
-3. Picture [03:04]
-4. Talk To Me [02:52]
-5. Just A Step Away [03:47]
-6. Both Sides Now [03:52]Жанр: PopПродолжительность: 00:20:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320642   (469378) от 19.08.2019
-
-Kish Mauve - Black Heart (2009) [MP3|320 Kbps] <Alternative Pop, Electropop, Electroclash>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lose Control
-02. Matthew
-03. I Don't Care
-04. In My Kitchen(   Читать дальше...   )Жанр: Alternative Pop, Electropop, Electroclash, Synthpop, Indie Pop, Dance-PopПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF5B51A97EDF7DBC911E2F70847E073118A5969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058290   (469194) от 01.10.2016
-
-Here Come The Mummies - Cryptic (2013) [MP3|320 Kbps] <Funk, Rhythm & Blues, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Know The Drill   (03:34)
-02. Chaperone   (02:59)
-03. Infinity   (03:25)
-04. Devil Better Run   (03:21)(   Читать дальше...   )Жанр: Funk, Rhythm & Blues, SoulПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E87D873FF68259F667462364CF04138AA7E150F
 ```
 
 https://mybot314.ru/tekegram_catalog/

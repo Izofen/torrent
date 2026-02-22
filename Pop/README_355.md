@@ -1,3 +1,90 @@
+###  Публикация: 1748691   (43876) от 11.09.2024
+
+VA - DJ Hits Vol. 888 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chilli feat. Carrapicho - Tic Tic Tac
+02. Sash! Feat. Rodriguez - Equador
+03. Gala - Everyone Has Inside
+04. Daniel Aminati - I Want You Back(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D700DFEED079F5A2DB25B3D26AAC097C52E723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748835   (43863) от 11.09.2024
+
+Amadeus Liszt - The Collection (Original Mike Mareen Master Tape Series) (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Donna (Oh Wie So Trügerisch) (6:26)
+02. Only Time (4:08)
+03. Win The Race (Maxi Version) (8:02)
+04. Get The Groove (7:31)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCDC139C7A19E1A556C084F6EFE60DB03A6B6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748775   (43774) от 12.09.2024
+
+VA - DJ Hits Vol. 999 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sash - Ecuador
+02. Dj Quicksilver - Free
+03. Naln & Kane - Beachball
+04. Red 5 - Lift Me Up(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF1B39F6B98CF2B4509050D82A3794687060EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748730   (43773) от 12.09.2024
 
 VA - DJ Hits Vol. 985 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
@@ -655,93 +742,6 @@ Cher - Forever Fan (2024) [MP3|320 Kbps] <Pop-Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C59CF1D2F4E7C6EB51F3D4FF32A4B70290B4738E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750940   (42711) от 22.09.2024
-
-VA - 90s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spice Girls - Wannabe
-02. Shania Twain - Man! I Feel Like A Woman!
-03. M.C. Hammer - U Can't Touch This
-04. Lenny Kravitz - Fly Away(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 05:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568A68681B84F335610EB3B605894563C73B2DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751075   (42616) от 23.09.2024
-
-Linda Jo Rizzo - Best Of Linda Jo Rizzo (1999) [OGG Vorbis|480 Kbps] <Electronic, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My First, You're My Last
-02. I've Got The Night
-03. Heartflash (Tonight)
-04. Just One World(   Читать дальше...   )Жанр: Electronic, Euro-DiscoПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AEB9ECF819A83C6732AFFA283AA1C1B7F26945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751387   (42538) от 24.09.2024
-
-VA - Powermix Vol. 001+002 (1990) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Hi NRG, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Power Intro
-02. The Fans - Ole, Ole, Ole
-03. Mike Mareen - Stand Up
-04. Sinery - Don't You Ever Run Away(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Hi NRG, Synth-popПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288EB886B9883F085EBB5C2462D1DE3AED074E6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1036173   (622759) от 19.07.2016
+
+Ina Forsman - Ina Forsman (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz, Retro Pop Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanging Loose (3:19)
+02. Pretty Messed Up (3:46)
+03. Bubbly Kisses (5:23)
+04. Farewell (4:01)(   Читать дальше...   )Жанр: Blues, Jazz, Retro Pop RockПродолжительность: 0:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A470F7DFF449AC54BBBB7493DFD30646D4AAE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295296   (622508) от 11.04.2019
+
+Nubiyan Twist - Jungle Run (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Afrobeat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell It to Me Slowly (feat. Nick Richards) (5:15)
+02. Jungle Run (feat. Nubiya Brandon) (5:14)
+03. Basa Basa (feat. K.O.G.) (5:59)
+04. Brother (feat. Nubiya Brandon) (5:09)(   Читать дальше...   )Жанр: Jazz, Funk, AfrobeatПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA381AE82F86E4ECE755B7D77DA0CD5EC2960B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910457   (622389) от 20.06.2015
+
+The Pentagon - The Pentagon (1976) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manteca [05:59]
+02. Darn That Dream [05:20]
+03. Una Mas [05:18]
+04. D.B. Blues [04:41](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4211ACC89BB098B930A19C473EFAD42F2CC27CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910227   (622388) от 20.06.2015
 
 Larry Young - Of Love And Peace (1966) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
@@ -658,93 +745,6 @@ Blaa Trikaa - Part of My Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2903E26F5D2BECB8E3AD03BE0E8C0508DF33C05D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544690   (620195) от 16.04.2022
-
-Andrew Thabah - In the Shadow of Your Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Down on Your Knees (3:59)
-02. Free as Love Can Be (5:30)
-03. I Feel Swell (3:29)
-04. In the Shadow of Your Love (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30DDEB3393B721D0F151AAE8246A83317909643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145564   (620100) от 26.06.2017
-
-Gregoire Maret - Gregoire Maret (2012) M.A.T. [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucilla's Dream [04:57]
-02. The Secret Life Of Plants [04:49]
-03. The Man I Love [04:58]
-04. Travels [04:55](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FDAA1C956AFF093F47E62158E72E72E6B02F32C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145656   (620099) от 26.06.2017
-
-Don Byron - Love, Peace And Soul (2012) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Modern Creative, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway To Heaven [06:09]
-02. When I've Sung My Last Song [06:25]
-03. It's My Desire [07:55]
-04. Sham Time [04:50](   Читать дальше...   )Жанр: Modern Creative, Vocal JazzПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162AC3127BE9335A658D4EFCC5C852731AF012F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

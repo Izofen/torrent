@@ -1,3 +1,38 @@
+###  Публикация: 500574   (257194) от 23.05.2012
+
+Ethel Waters - Ethel Waters (1921-1923) (1994) [FLAC|Lossless]<Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New York Glide
+02. At the New Jump Steady Ball
+03. Oh Daddy
+04. Down Home Blues
+05. One Man Nan
+06. There'll Be Some Changes Made
+07. Dying With the Blues
+08. Kiss Your Pretty Baby Nice
+09. Frisco Jazz Band Blues
+10. Royal Garden Blues(   Читать дальше...   )1994Жанр: Vocal Jazz, SwingПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500579   (257174) от 23.05.2012
 
 Mary Lou Williams - Mary Lou Williams (1927-1940) (1992) [FLAC|Lossless]<New Orleans Jazz, Bop, Piano>
@@ -821,35 +856,6 @@ Before Doom - Noir (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C74DA6C2BECD247A880F9C82E713BB49DEFFA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624114   (255542) от 04.04.2023
-
-Anne Bisson - Be My Lover (2023) Japan [FLAC|Lossless|tracks] <Vocal Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moondance
-02. Blue Bayou
-03. I Wake Up
-04. Are You Sure You Want Me?(   Читать дальше...   )Жанр: Vocal Jazz, Smooth JazzПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3093DF6191E1DADD0311EC4A7C3E57851C1B7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

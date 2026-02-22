@@ -1,3 +1,32 @@
+###  Публикация: 1263402   (288010) от 19.11.2018
+
+VA - Back In Your Life (2018) [MP3|320 Kbps] <Alternative, Punk, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288010.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. They Might Be Giants - Theme From Flood
+002. A Vulture Wake - Collateral Damage
+003. Camiches - Espero Nadie Ocupe Mi Lugar
+004. Wax Chattels - It (Live At Part Time Punks)(   Читать дальше...   )Жанр: Alternative, Punk, Punk RockПродолжительность: 09:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F669CCBA7271B858670550BD2DD2E1FA1A09A22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080297   (287581) от 07.12.2016
 
 VA - Alterportal HITS - Vol. 1-97 (2008-2016) [MP3|32 -320 Kbps] <Alternative, Metal, Rock>
@@ -717,35 +746,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D46DEB293AF28435FF365F821FD3D9B6107FB231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191045   (265093) от 12.12.2017
-
-VA - Maximum Alternative (2017) [MP3|320 Kbps] <Rock Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265093.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rainbow - Love's No Friend
-002. Dreamcar - After I Confessed
-003. Anathema - 32.63N 117.14W
-004. Mallory Knox - Giving It Up(   Читать дальше...   )Жанр: Rock AlternativeПродолжительность: 10:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1CAEA5508A28F520A56D71FE2B90A5F8563A75
 ```
 
 https://mybot314.ru/tekegram_catalog/

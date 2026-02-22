@@ -1,3 +1,177 @@
+###  Публикация: 1752605   (103907) от 01.10.2024
+
+Helloween - The Time of the Oath (1996) Remastered, 2024, Sanctuary Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Power metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Burn (3:06)
+02. Steel Tormentor (5:42)
+03. Wake Up the Mountain (5:05)
+04. Power (3:32)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Power metalПродолжительность: 01:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426411A990DB7F5C3F3190355EF83CD355802D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752991   (103900) от 03.10.2024
+
+Bad Love Junkie - The Fool Is On The Ledge (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fool Is On The Ledge (3:11)
+02. Let The Monkey Talk (3:29)
+03. The Cosmic Comedian (2:51)
+04. She Dog Kills Beauty Queen (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292EE378E183FA1744B7A4E9B0C6102DFEFC795C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753001   (103894) от 03.10.2024
+
+Heart 2 Heart - Alley of Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Arrival (0:22)
+02. Alley of Dreams (4:06)
+03. Carles Salse - 2.000 Miles (3:53)
+04. Stay (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5C92839C451374F1E9C84E7C71A13189B4C3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753149   (103889) от 03.10.2024
+
+Walter Smith III - three of us are from Houston and Reuben is not (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. seesaw (6:09)
+02. Gangsterism on Moranish (4:03)
+03. 24 (2:40)
+04. Misanthrope's Hymn (6:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C1CEB95A3C222941FDFEF1FE48DDBDDEBACB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753131   (103887) от 03.10.2024
+
+Sleeper's Keep - Tales Beyond the Past (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing the Dream (3:53)
+02. Ascension (4:10)
+03. Ghost Harmony (3:44)
+04. Winter's Call (3:04)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15219A4E248DF15B684B0A693BDA5C33D328FE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753030   (103886) от 03.10.2024
+
+Morgana Lefay (a.k.a. Lefay) - Studio Albums (10 releases) (1993-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Morgana Lefay - шведская трэш/пауэр-метал-группа из Боллнеса. В 1986 году была образована группа "Damage", которая в 1989 сменила название на "Morgana Lefay". В 1997 году группа разделилась, причём право на оригинальное название осталось у одной части, а желание исполнять музыку — у другой. В результате новая группа получила название "Lefay" (   Читать дальше...   )1993 - Knowing Just as I
+1993 - The Secret Doctrine
+1995 - Sanctified
+1996 - Maleficium(   Читать дальше...   )Жанр: Power/Thrash/Groove MetalПродолжительность: 09:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23A1FF9892AF579EFB3DC2FE988F2AC4B90003B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753000   (103885) от 03.10.2024
 
 Glorious Bankrobbers - Rock'n'Roll Church (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -569,180 +743,6 @@ Agnes Darelid - RISE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1658F3A522998DE5F7A460C339A433CC62DE7E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754120   (103743) от 08.10.2024
-
-Chris Killz and The Family - Mister Move On (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mister Move On (2:29)
-02. Are We Gonna Make It (5:09)
-03. Would You Believe Me (4:22)
-04. Give Me Time (2:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E796C3614F19A3C3DD9829090CD1A7A1FE15B848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754123   (103742) от 08.10.2024
-
-Lights of Marfa - Light of Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Knows (3:37)
-02. My Burning Flower (2:50)
-03. Light of Day (3:35)
-04. Double Vision (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B842C68CA65071136BEA3A4BB6BB5B248A4572E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754134   (103741) от 08.10.2024
-
-Krzysiek Ponieważ - The Devil, the Past and the Countryside: The Blues Collected (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Was It the Devil? (2:49)
-02. Heavy Delta Blues (Electric) (4:29)
-03. Where Everything Began (Electric) (6:20)
-04. Called by the Devil (5:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5C584D373FBEEBB3BEA5A6D322B35BAE348184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754130   (103740) от 08.10.2024
-
-Abraham - Swing Low, Rock Hard (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Tell It on the Mountain (3:40)
-02. Oh Happy Day (3:05)
-03. Come Down Angels (3:29)
-04. Wade in the Water (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3158B08EA50E6935E6E4E6E4F2A4AA5622F5AFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754144   (103739) от 08.10.2024
-
-Ten eleven XII bluesband - Something Different (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight (6:12)
-02. Always on My Mind (8:05)
-03. Every Time You Come Home (5:59)
-04. 20 - Wien - 20 (6:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F062EB87B37BBACA4D190C0FCC560350924D2C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754133   (103738) от 08.10.2024
-
-Andrew Moore and Hooch - Artists of the Moon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Ride With You (5:11)
-02. First Love (2:47)
-03. Tyrant (5:20)
-04. Freedom (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9316E40D74545AD8255E9AAEB00F23948AC76C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

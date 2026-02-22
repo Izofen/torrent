@@ -1,3 +1,30 @@
+###  Публикация: 982624   (946713) от 04.02.2016
+
+BetterTouchTool 1.55 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946713.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterTouchTool - Настройка жестов Multi-Touch
+BetterTouchTool удобное приложение, которое позволяет в продвинутом режиме настроить режимы сенсорной панели, многие другие жесты, не предусмотренные инженерами Apple, но отлично распознаваемые самими устройствами. BetterTouchTool-позволяет настраивать множество различных жестов для MagicMouse и MagicTrackpad, дает возможность (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 февраля 2016Разработчик: Andreas HegenbergПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8FA95075FF49DD8D72F13D9A9B126703804E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982315   (946712) от 04.02.2016
 
 Oddisee - The Good Fight (2015) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Conscious, Jazzy Hip-Hop>
@@ -654,35 +681,6 @@ Adguard – интернет-фильтр для защиты пользоват
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F85FF4A98E9CC2EC78999717D1D49F7E11E9ECFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362612   (946579) от 25.02.2020
-
-Dan Deacon - Mystic Familiar (2020) [FLAC|Lossless|tracks + .cue] <Electronic,  Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Become a Mountain (04:05)
-02. Hypnagogic (01:33)
-03. Sat by a Tree (04:26)
-04. Arp I: Wide Eyed (02:07)(   Читать дальше...   )Жанр: Electronic,  ExperimentalПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E1757276CF3C457E5669CBB4D833EAB1B5D87E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1704152   (114310) от 04.03.2024
+
+Sarah L King - Fire Horse (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Vocal Music (Secular and Sacred)>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding On To Love (3:38)
+02. Devil May Care (4:39)
+03. Born Yesterday (4:22)
+04. Mystery Ride (5:34)(   Читать дальше...   )Жанр: Jazz, Vocal Music (Secular and Sacred)Продолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C24C583C51824C8B13AF3B0B11881808EA9E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704078   (114309) от 04.03.2024
+
+Solitude Aeturnus - Hour of Despair (2024) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Epic Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scent of Death (HoD Deluxe Edition) [00:09:00]
+02. Haunting The Obscure (HoD Deluxe Edition) [00:04:56]
+03. Mental Pictures (HoD Deluxe Edition) [00:04:31]
+04. Destiny Falls To Ruin (HoD Deluxe Edition) [00:05:21](   Читать дальше...   )Жанр: Epic Doom MetalПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D564A906947089940FFE1C5479A42B744835BB34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704145   (114306) от 04.03.2024
+
+Max Cruise - Nights at Sunset Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nights at Sunset Beach (4:55)
+02. Risky Business (4:45)
+03. Midnight Glow (4:35)
+04. La Contessa (2:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6F44FF5C466A3898B8226920F42D41D20B739A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704156   (114305) от 04.03.2024
+
+Timo Lassy and Jukka Eskola - Nordic Stew (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Duke of Bayou (3:50)
+02. King Cake (4:28)
+03. Long Walk (4:32)
+04. Sweet Holler (2:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA79747BC86F474E38FD72C8090BCC2F81B9EA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704383   (114304) от 04.03.2024
+
+Van Morrison - The Legendary Bang Sessions (1994) Remaster, 2024, Charly Digital[FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brown Eyed Girl (Studio Alternate) (3:34)
+02. He Ain't Give You None (Studio Alternate) (5:50)
+03. T.B. Sheets (9:37)
+04. Spanish Rose (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F704F6B0B808A82309E4CCDA6A5E77AA02AEE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704126   (114301) от 04.03.2024
+
+Odd Chap - Collaborations (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy out There (3:15)
+02. (Hey, Brother) What Have You Done? (2:59)
+03. Highway Romance (3:33)
+04. Take the Night (2:58)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE4FD84DC78B31A09B36485CD2989333661B7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704178   (114299) от 04.03.2024
 
 AC/DC - Powerage (1978) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
@@ -569,180 +743,6 @@ Tinsley Ellis - Naked Truth (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:089BCB6821F9880896675E0E8F7C27CBFF46D37A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704643   (114124) от 05.03.2024
-
-Emerson, Lake & Powell - Эмерсон, Лейк и Пауэлл (1986) 1988 [FLAC 24/96|Lossless|tracks] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01-Счет. The Score (Keith Emerson / Greg Lake)
-02-Учимся летать. Learning To Fly (Keith Emerson / Greg Lake)
-03-Чудо. The Miracle (Keith Emerson / Greg Lake)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18BA76BF3E93220BD4BE13EF8CAC3025DE99429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704609   (114120) от 05.03.2024
-
-В. Осеева - Васёк Трубачёв и его товарищи. Инсценировка (1975) [FLAC 24/192|Lossless|tracks] <Инсценировка>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть
-Васек Трубачев и его товарищи
-По повести В. Осеевой (инсценировка Е. Агурова)
-Б. Гуляев, А. Хотченков, А. Комиссаров, П. Подъяпольский, Ю. Савич, А. Бодуков, К. Устюгов, Е. Крючков, Л. Гнилова и др. инстр. ансамбль «Кругозор»Жанр: ИнсценировкаПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E739FFB05E4B9DE5F0CAF1DB7A8BD379E41B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704677   (114114) от 05.03.2024
-
-Mama Kandy - The Whitening (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casbah Cowboy (6:16)
-02. Pastures of Plenty (5:01)
-03. The Double (5:00)
-04. Life Change (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15507985B6BF7DA7CC0090FCAEC3ED031C46559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704686   (114112) от 05.03.2024
-
-The Mighty Howlers - Back on Track (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money or Love (4:30)
-02. Love Me Babe (4:23)
-03. Gotta Keep Running (4:54)
-04. Can't Do No More (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5789E2720A084B124192454F428DC626F22309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704681   (114110) от 05.03.2024
-
-Omar Coleman - Strange Times (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicago (3:56)
-02. Strange Times (4:23)
-03. Crazy About You (4:59)
-04. Got A Good Man (2:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749A3A03E0FF4FAAF9E4F66C299C39FBFECCE6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704678   (114108) от 05.03.2024
-
-Mr. Smood - You'd Better Leave Now (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Technology (3:06)
-02. Bogie Boogie (3:08)
-03. You'd Better Leave Now (4:38)
-04. I Gotta Go (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A39E3FEC5A76B92A3631243CD83DF32AD79E35
 ```
 
 https://mybot314.ru/tekegram_catalog/

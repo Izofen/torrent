@@ -1,3 +1,32 @@
+###  Публикация: 1127772   (731157) от 22.04.2017
+
+Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Universe [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modus Operandi [09:38]
+02. Come Sunday [05:28]
+03. Gap Sealer [05:48]
+04. Jeep's Blues [06:29](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828223038A621EBB4D12FEEF17DF68733A5B2FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127655   (731155) от 22.04.2017
 
 Valery Ponomarev & Feelin's (2006) Монолит [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -715,35 +744,6 @@ The Modern Jazz Disciples (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC9FCCD708C9973C323D1F19EBD088BAAA4EA952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022798   (727856) от 03.06.2016
-
-Jay McShann - The Last Of The Blue Devils (1977) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Piano Jazz, Jump Blues, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Confessin' The Blues [04:46]
- 02.'Tain't Nobody's Bizness If I Do [07:03]
- 03.Hootie Blues [04:33]
- 04.Blue Devil Jump [03:29](   Читать дальше...   )Жанр: Piano Jazz, Jump Blues, Mainstream JazzПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DEA9AB810403BD04BD5824E9070AAC5F559B0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

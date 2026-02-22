@@ -1,3 +1,29 @@
+###  Публикация: 582987   (315245) от 01.12.2012
+
+Royal Hunt - 20th Anniversary: Special Edition (2012) [MP3|320 кб/с]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive MetalПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9B6E68F467B7C89B73DFF3FA48B94D13F8967A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182663   (314998) от 11.11.2017
 
 The Unguided - And the Battle Royale (2017) [MP3|320 Kbps] <Melodic Death Metal, Modern Metal>
@@ -726,35 +752,6 @@ Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88007C3F068B9E72A568D1DB8F38B296D53994BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184188   (303525) от 16.11.2017
-
-Cavalera Conspiracy - Psychosis (2017) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303525.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 	Insane
-2. 	Terror Tactics
-3. 	Impalement Execution
-4. 	Spectral War(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD29A203F5056CB6A250E700E37C5B6E0C1886F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

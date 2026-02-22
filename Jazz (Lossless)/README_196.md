@@ -1,3 +1,38 @@
+###  Публикация: 549345   (463032) от 20.09.2012
+
+Sally Night - Love For Sale (2012) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Funny Valentine [04:25]
+02. Love For Sale [04:04]
+03. Wisper Not [02:50]
+04. Angel Eyes [04:52]
+05. It's Alright With Me [03:57]
+06. Black Coffee [06:16]
+07. Tendery [04:10]
+08. Just You Just Me [02:19]
+09. Bossa Medley [06:06]
+10. The Lady Is A Tramp [03:51](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941027   (463012) от 27.09.2015
 
 Jacky Terrasson - Take This (2015) /Universal/[FLAC|tracks+.cue]<Contemporary Jazz>
@@ -721,35 +756,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:783EE4E82C84407440BD1B0796FACC23B7282A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059891   (459437) от 05.10.2016
-
-Level 42 - Standing In The Light (1983) [FLAC|Lossless|image + .cue] <Jazz-Rock, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Micro-Kid (4:44)
-02. The Sun Goes Down (Living It Up) (4:15)
-03. Out Of Sight, Out Of Mind (5:12)
-04. Dance On Heavy Weather (4:27)(   Читать дальше...   )Жанр: Jazz-Rock, Jazz-FunkПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246D7A5C35915D2E665539875966F6979DF0F257
 ```
 
 https://mybot314.ru/tekegram_catalog/

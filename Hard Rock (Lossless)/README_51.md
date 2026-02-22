@@ -1,3 +1,38 @@
+###  Публикация: 384476   (482671) от 06.09.2011
+
+Uriah Heep - You Can't Keep A Good Band Down (2001/1970-1986) 7 Albums Box Set [FLAC|Lossless]<Hard Rock, Progressive Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Way Or Another (4:39)
+02. Weep In Silence (5:06)
+03. Misty Eyes (4:15)
+04. Midnight (5:40)
+05. Can't Keep A Good Band Down (3:38)
+06. Woman Of The World (3:08)
+07. Footprints In the Snow (3:56)
+08. Can't Stop Singing (3:20)
+09. Make A Little Love (3:27)
+10. Confession (2:08)Жанр: Hard Rock, Progressive Rock, Heavy MetalПродолжительность: 05:14:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566502   (482429) от 29.07.2022
 
 Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -731,35 +766,6 @@ Airbourne - Breakin' Outta Hell (2016) Limited Edition [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD6E09018577D3463127BD68A0C03F76087517EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246016   (465653) от 09.09.2018
-
-Clutch - Book of Bad Decisions (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465653.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gimme the Keys (3:33)
- 2. Spirit of '76 (3:39)
- 3. Book of Bad Decisions (3:23)
- 4. How to Shake Hands (3:52)(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C379579DB9535DFA5552731A802B8AC227A2F71
 ```
 
 https://mybot314.ru/tekegram_catalog/

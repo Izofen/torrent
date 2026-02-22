@@ -1,3 +1,173 @@
+###  Публикация: 1739702   (47898) от 04.08.2024
+
+VA - Остров Сокровищ. По Другому! от Arhangel Music (2024) [FLAC 2.0|44.1/16|Lossless|tracks] <Pop, Rock, Disco, Techno, Electronic, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47898.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1:04] 01. Предисловие
+[3:58] 02. Вступление (1 часть)
+[3:33] 03. Трагическая и поучительная история о мальчике Бобби
+[3:21] 04. 15 человек на сундук мертвеца(   Читать дальше...   )Жанр: Pop, Rock, Disco, Techno, Electronic, ChansonПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8150643928E958009D3B75148F29D9509AA504D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741743   (47438) от 08.08.2024
+
+The Winery Dogs - Studio Albums (4 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47438.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Winery Dogs — американская хард-рок-супергруппа, образованная в 2012 году Майком Портным, Билли Шиэном и Ричи Коценом.2014 - The Winery Dogs
+2015 - Hot Streak
+2017 - Dog Years (EP)
+2023 - IIIЖанр: Hard RockПродолжительность: 03:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FB08828BE13BFB36DA2B8173639076EBF14096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741968   (47335) от 09.08.2024
+
+Social Distortion (Social D; SxDx) - Studio Albums (3 releases) (1996-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_47335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Social Distortion — американская панк-рок-группа, созданная в 1978 году в Фуллертоне, Калифорния.1996 - White Light  White Heat  White Trash
+2004 - Sex, Love, and Rock n' Roll
+2011 - Hard Times And Nursery RhymesЖанр: Punk RockПродолжительность: 02:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD23AA59969216C808171FA595F3D34FF2BAF0C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740755   (46712) от 15.08.2024
+
+VA - Одинокий пастух. Два Альбома (1998, 2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundtrack, Theme, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46712.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Одинокий пастух" в исполнении оркестра Джеймса Ласта и флейтиста Замфира прочно занимает место в топе инструментальной музыки XX века. Но кто её написал? Как выясняется, на этот счёт существует множество мнений, причём довольно экзотических! В общем, возникает путаница. Если верить официальным данным, Джеймс Ласт является автором "Одинокого пастуха", (   Читать дальше...   )Жанр: Soundtrack, Theme, BalladПродолжительность: 01:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23AA3AE43B2068EF2E15091B503AF72A0D0A8A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743696   (46488) от 17.08.2024
+
+VA - MTV Hits vol. 23 (1994) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Take That - Sure
+02. M. Carey & L. Vandross - Endless Love
+03. Shampoo - Trouble(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBBFF1DF2226D9BD4C4E391E558EF9C44227A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655777   (46196) от 20.08.2024
+
+Dark The Suns - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark the Suns — коллектив из Финляндии исполняет, по заявлению самих музыкантов, мелодичный и атмосферный gothic metal в комбинации с мощным звучанием гитарных партий и гроул-вокалом в духе melodic death metal.2007 - In Darkness Comes Beauty
+2009 - All Ends in Silence
+2010 - Sleepwalking in a Nightmare
+2021 - Suru Raivosi Sydameni PimeydessaЖанр: Melodic Death/Gothic MetalПродолжительность: 04:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7B138A5659D759D9EB59F1B4277CF4B60CCB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744260   (46183) от 20.08.2024
 
 Revolution Renaissance - Studio Albums (3 releases) (2008-2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
@@ -565,176 +735,6 @@ Metal Church - американская хеви-метал-группа. Пер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FA9A1DE82C6223C1BDBF70BB9541F719EEC2A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751288   (42513) от 24.09.2024
-
-Hiraes - Studio Albums (2 releases) (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hiraes — немецкая мелодик-дэт-метал группа из Оснабрюка, в состав которой входят бывшие участники Dawn of Disease и Бритта Гёрц, бывшая вокалистка Critical Mess.2021 - Solitary
-2024 - DormantЖанр: Melodic Death MetalПродолжительность: 01:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A6A18F916AF29076C0E9C7C6F3AB39084FAFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751292   (42500) от 24.09.2024
-
-Toni Braxton - Singles Collection (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <RnB, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Another Sad Love Song (1993)
-02. You`re Makin Me High (1996)
-03. Breathe Again (1993)(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 01:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0F36879A531718713E27E67859907AE1A8D5E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751638   (42304) от 26.09.2024
-
-Ratt - Studio Albums (2 releases) (1999; 2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Glam Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ratt — американская глэм-метал-группа из Сан-Диего, достигшая пика своей популярности в середине 1980-х годов. Считается, что Ratt сильно повлияли на становление и популяризацию лос-анджелесской хард-рок- и глэм-метал-сцены.1999 - Ratt
-2010 - InfestationЖанр: Glam Metal, Hard RockПродолжительность: 01:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75D0971C7FBBB5738B3CA0A60F4191F27E2A4A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751835   (42190) от 27.09.2024
-
-Toni Braxton - Secrets (1997) Unofficial Release [FLAC 2.0|64/24|image +.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Come On Over Here
-A2 You're Makin' Me High
-A3 There's No Me Without You(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A04E0A43A43BFE63F7531C1AF2E3D1CA592D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572826   (42076) от 29.09.2024
-
-Disturbed - Studio Albums (8 releases) (2000-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu/Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disturbed — американская метал-группа, образованная в городе Чикаго (штат Иллинойс) в 1994 году под названием «Brawl». В 1996 году меняет своё название на «Disturbed», тогда в группу входили Дэн Дониган, Стив Кмак, Майк Венгрен и Дэвид Дрейман. С момента формирования группы они продали около 35 миллионов копий альбомов во всем мире, выпустили семь студийных альбомов, (   Читать дальше...   )2000 - The Sickness
-2002 - Believe
-2005 - Ten Thousand Fists
-2008 - IndestructibleЖанр: Nu/Heavy Metal, Hard RockПродолжительность: 08:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B6CB03A9DF03D9F99AB8381299B755D0156463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752412   (41886) от 30.09.2024
-
-Tad Morose - Studio Albums (11 releases) (1993-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal; Power/Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tad Morose — шведская пауэр-метал группа, основана в Боллнесе в 1991 году и возглавляется гитаристом Кристером «Крунт» Андерссоном. Их стиль был описан как «гибрид пауэра и классического хэви-метала с легкими прогрессивными тенденциями».1993 - Leaving the Past Behind
-1995 - Sender Of Thoughts
-1996 - Paradigma
-1997 - A Mended Rhyme(   Читать дальше...   )Жанр: Progressive Metal; Power/Heavy MetalПродолжительность: 09:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDCE5E33E301D9A1C40BCA9B763BB5885CF26B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

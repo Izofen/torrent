@@ -1,3 +1,90 @@
+###  Публикация: 1146621   (614772) от 29.06.2017
+
+Members Of The Duke Ellington Orchestra - A Tribute To Duke Ellington (1997) Green Hill [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The A Train [03:00]
+02. Cotton Tail [03:07]
+03. Solitude [03:16]
+04. Jeeps Blues [04:37](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D115C0E43245FC09BF2203351F6291D91B463F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146545   (614771) от 29.06.2017
+
+Apollo Saxophone Orchestra - Perpetual Motion (2012) Nimbus [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Classical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perpetual Motion [05:20]
+02. Dear Bach [07:24]
+03. Celebration [04:39]
+04. Black [04:23](   Читать дальше...   )Жанр: Modern Creative, Third Stream, ClassicalПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9409C5910BB2C40F6DC1BEEF7AE024A4A249DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146529   (614770) от 29.06.2017
+
+Stanley Turrentine - Six Classic Albums (1960, 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614770.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Look Out & Blue Hour:
+01. Look Out [07:11]
+02. Journey into Melody [04:57]
+03. Return Engagement [04:49](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 03:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD3376DA9C76A3AC194710E721399A6A4FE09D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146671   (614766) от 29.06.2017
 
 Shri Blues Band - SHRI (2014) [MP3|320 Kbps] <Blues Rock>
@@ -664,93 +751,6 @@ Howard Rumsey's Lighthouse All-Stars - Volume 6 (1954, 1955) Original Jazz Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6643ED0F5400A702F8C73B461B44DFC38BB9EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912300   (612895) от 25.06.2015
-
-Pee Wee Russell Sextet - Complete Live At Bovi's Town Tavern (1964) /2011, Gambit Records/[FLAC|tracks+.cue]<Jazz, New Orleans Jazz, Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Announcement [00:26]
-02. Oh Baby [04:18]
-03. Keepin' Out Of Mischief Now [04:02]
-04. Sugar [03:54](   Читать дальше...   )Жанр: Jazz, New Orleans Jazz, Dixieland, SwingПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E6522F17C522BBA71B4C07A8469933708FEC8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912305   (612893) от 25.06.2015
-
-Lonnie Smith - Drives (1970) /2009, EMI Music/[FLAC|tracks+.cue]<Jazz, Jazz Fusion, Post-Bop, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twenty Five Miles [05:42]
-02. Spinning Wheel [07:36]
-03. Seven Steps To Heaven [05:50]
-04. Psychedelic Pi [06:32](   Читать дальше...   )Жанр: Jazz, Jazz Fusion, Post-Bop, Hammond OrganПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D815056C295C002F2F0E8DA948FDE17FDC93FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912338   (612812) от 25.06.2015
-
-Illinois Jacquet - The King! (1968) /2000, Prestige/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Haunting Melody [05:21]
-02. I Wish I Knew How It Would Feel To Be Free [06:41]
-03. How High the Moon [05:35]
-04. The King [03:29](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE85354555968941DB3492217CCC502C5EF6F420
 ```
 
 https://mybot314.ru/tekegram_catalog/

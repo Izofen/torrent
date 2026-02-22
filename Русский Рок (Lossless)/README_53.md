@@ -1,3 +1,32 @@
+###  Публикация: 1592238   (184582) от 21.11.2022
+
+Пандемия - Смотри (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Апокалипсис [00:05:03]
+02. В темноте [00:03:54]
+03. Смотри [00:04:44]
+04. Зеркала [00:04:11](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF72D9CA741220D994BFECE26E369C705D157FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592473   (183921) от 22.11.2022
 
 Savage Soul - Suffering World (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Grrove Metal>
@@ -708,35 +737,6 @@ The Hatters - По ходу люблю (Полная версия) (2023) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71CDACEAE0F10E51410E69CC6CB5DC4E9DA8B2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666210   (179382) от 04.10.2023
-
-Красная плесень - Баллады 90-х (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белокурая девчонка (Original Version of the 90s) [00:02:42]
-02. Я бы хотел... (Original Version of the 90s) [00:02:33]
-03. Ночной экспресс (Original Version of the 90s) [00:04:16]
-04. Сон моей мечты (Original Version of the 90s) [00:04:12](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3F8F3E7E16038CCE120A1C3137653F28D0BEF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

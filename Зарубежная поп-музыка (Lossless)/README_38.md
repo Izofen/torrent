@@ -1,3 +1,32 @@
+###  Публикация: 1287537   (703347) от 07.03.2019
+
+Dido - Still on My Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricanes
+02. Give You Up
+03. Hell After This
+04. You Don't Need a God(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6BF22248F105DCA3A766EE0B44B2193530D027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287393   (703241) от 07.03.2019
 
 Mylene Farmer - Dance Remixes (1992) Compilation, Reissue, 2000, Polydor [FLAC|Lossless|tracks] <Pop, Electronic>
@@ -712,35 +741,6 @@ VA - La Dolce Vita! Italian Cool…From Rome To The Amalfi Coast (2015) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E214A384F893AE8D58C3E416BBE07BA41757E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534701   (692386) от 03.03.2022
-
-Avril Lavigne - Love Sux (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cannonball (02:18)
-02. Bois Lie (feat. Machine Gun Kelly) (02:43)
-03. Bite Me (02:39)
-04. Love It When You Hate Me (feat. blackbear) (02:25)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC87882711A754EF21EBAAACBA6A3448DBB2DA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

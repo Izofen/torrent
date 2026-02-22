@@ -1,3 +1,32 @@
+###  Публикация: 1273560   (799904) от 02.01.2019
+
+Herman Chittison - 1944 - 1945 (1998) Classics [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How High The Moon [1:56]
+02. The Song Is Ended [3:19]
+03. Just One Of Those Things [2:21]
+04. Schubert's Serenade [2:05](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DA57329FC66C8F3356816D4448D6624F666532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273557   (799895) от 02.01.2019
 
 VA - Thinking of You: Soul Love Grooves (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, R&B>
@@ -716,35 +745,6 @@ Claudio Chiara - It's Easy to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5C1103C6C863A0CBC1C4341CF427B6914CDFFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507925   (798104) от 06.11.2021
-
-Dexter Gordon Quartet - Espace Cardin 1977 (2018) Elemental Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sticky Wicket [13:22]
-02. A la Modal [13:45]
-03. Body and Soul [14:05]
-04. Antabus [8:51](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE78B721E2A8727407E980C9849F3ABE57812A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

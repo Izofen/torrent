@@ -1,3 +1,96 @@
+###  Публикация: 1447545   (246066) от 14.02.2021
+
+Edna B. Jerano - Let Your Feelings Show (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Producer (3:37)
+02. Just A Step Closer (3:34)
+03. Just Because I Love You (2:57)
+04. Devil Dance (3:41)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783ADB2B276F67AB59A2E454382F50AC6316F6D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 258410   (246063) от 26.03.2022
+
+Laid Back - Good Vibes - The Very Best Of Laid Back (2008) 2CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe I'm Crazy
+02. Sunshine Reggae
+03. High Society Girl
+04. White Horse
+05. Elevator Boy
+06. One Life
+07. I'm Hooked
+08. It's A Shame
+09. Bakerman
+10. Highway Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EE7CAD665E29F3F652D73A6940B43F5E769248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623311   (246020) от 01.04.2023
+
+Whitney Houston - I Go to the Rock: The Gospel Music of Whitney Houston (2023) [FLAC|Lossless|image + .cue] <Pop, Soul, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безошибочно узнаваемый голос Whitney Houston мощный и неподвластный времени. Она достигла вершины популярности и успеха, став одной из самых опытных исполнителей всех времен. Но ее сердце было отдано gospel'у, стилю который повлиял на всю ее карьеру. Познакомьтесь с той стороной Whitney, которая присуща самой ее душе, с выпуском I Go to the Rock: The Gospel Music (   Читать дальше...   )01. I Go To The Rock (4:05)
+02. Jesus Loves Me (5:12)
+03. He Can Use Me (4:54) (Previously Unreleased)
+04. Joy to the World (4:41)(   Читать дальше...   )Жанр: Pop, Soul, GospelПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6173D805159D66B11F2F2C699F13419C1FDC0F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620702   (246016) от 21.03.2023
 
 VA - Italo Dance Classics Volume 1 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop, 	Italo-Disco>
@@ -654,93 +747,6 @@ tobyMac - Portable Sounds (2007) [FLAC|Lossless|image + .cue] <Pop, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22AD556F658D3BD5D1F6A39C58F01489139E9278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631894   (244464) от 08.05.2023
-
-VA - USA Top Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melanie Martinez - VOID
-02. NLE Choppa - SLUT ME OUT
-03. Zach Bryan - Something in the Orange
-04. Yng Lvcas, Peso Pluma - La Bebe (Remix)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 03:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B72A5B5DBC0272385A72EBD680C231AC66EB098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610027   (244451) от 05.02.2023
-
-Whitney Houston - Don't Cry For Me (2023) The Remixes [FLAC|Lossless|WEB-DL|tracks] <Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry For Me (Extended Mix) [00:04:00]
-02. Don't Cry For Me [00:03:19]
-03. Don't Cry For Me (Instrumental) [00:04:00]
-04. Don't Cry For Me (Thunderpuss Reunion Extended Remix) [00:06:29](   Читать дальше...   )Жанр: Soul, PopПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D5C7579A4B53E46E28B342BCC30609EAF31F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631951   (244439) от 08.05.2023
-
-VA - Disco Boy, I'm A Disco Boy: Weekend Party Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La$$A - Disco Boy                                       [02:36]
-   02. Yung Gravy - Betty (Get Money)                          [02:25]
-   03. Kungs - Never Going Home                                [02:49]
-   04. Dio - Tijdmachine (Edit)                                [03:29](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067D0D55EA2CAA40C676451DF87C7CF72AB2954B
 ```
 
 https://mybot314.ru/tekegram_catalog/

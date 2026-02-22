@@ -1,3 +1,174 @@
+###  Публикация: 1801410   (15041) от 10.06.2025
+
+Samael - Exodus (1998) (EP) Reissue, 2014, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15041.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Exodus
+A2 Tribes Of Caïn
+A3 Son Of Earth
+B1 Winter Solstice(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA43A92C43CA1A82120FB316C36DD3497DAD6A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801439   (15037) от 10.06.2025
+
+Lil Wayne - Tha Carter VI (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Carter [00:01:48]
+02. Welcome to Tha Carter [00:03:35]
+03. Bells [00:03:24]
+04. Hip-Hop [00:04:01](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE49CCBCE44980D9565B003E24BA5F4AB119C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801445   (15026) от 10.06.2025
+
+Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why (Interlude) [00:00:41]
+02. Best For Me [00:03:27]
+03. More Than Twice [00:04:33]
+04. You First [00:04:29](   Читать дальше...   )Жанр: PopПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D848FFC35C106D020F147B9AA46B076DBA17F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801771   (14825) от 12.06.2025
+
+Till Lindemann - Und die Engel singen (2025) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Und die Engel singen [00:03:27]Жанр: Industrial MetalПродолжительность: 00:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D1C82F769C2E3D610986D73083086DEF8F8DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801795   (14743) от 13.06.2025
+
+Metallica - Load (1996) Remastered, 2025, UMC (Universal Music Catalogue) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ain't My Bitch (Remastered 2025) [5:05]
+02 - 2 x 4 (Remastered 2025) [5:29]
+03 - The House Jack Built (Remastered 2025) [6:39]
+04 - Until It Sleeps (Remastered 2025) [4:30](   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, MetalПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F2F5551C1A03370C9934B009A61AB09AEB8037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801785   (14731) от 13.06.2025
+
+Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bequest Of The Wicked [1:05]
+02 - The Eyes Of Suffering [4:04]
+03 - Deformity [4:42]
+04 - Never Forgotten Place [4:38](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8F257C9877839346E3B6F206CC401943FC2773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801777   (14730) от 13.06.2025
 
 Saxon - Eagles Over Hellfest (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Heavy Metal>
@@ -568,180 +739,6 @@ Sodom — немецкая трэш-метал-группа из Гельзен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2CCC08F48EB63226F419B6061A47285E48372F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804110   (13279) от 27.06.2025
-
-Barbra Streisand - The Secret Of Life: Partners, Volume 2 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The First Time Ever I Saw Your Face (feat. Hozier)
-02. My Valentine (feat. Paul McCartney)
-03. To Lose You Again (feat. Sam Smith)
-04. The Very Thought Of You (feat. Bob Dylan)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A889E4430A8DB603A2DF44B011E9978A5768273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804090   (13278) от 27.06.2025
-
-De-Phazz - Luck You! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Trip Hop, Lounge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotel Grand Moondial
-02. Overjoked
-03. Serenade To Go
-04. My Turntable Is Unable(   Читать дальше...   )Жанр: Nu Jazz, Trip Hop, LoungeПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5767AA5AC2A9671EF400BD659E68BD018257240C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804117   (13265) от 27.06.2025
-
-Noumenia - Echoes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blind Idols [5:40]
-02 - The Circle [3:41]
-03 - Outsider [3:32]
-04 - Fractures [4:17](   Читать дальше...   )Жанр: Post-Groove MetalПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76BBF481FA149FD0EE66423DF978F255679C6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804049   (13263) от 27.06.2025
-
-Crematory - ...Just Dreaming (1994) Remastered, Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heavens Throat [2:11]
-02 - Transmigration [5:13]
-03 - Only Once In A Lifetime [3:52]
-04 - Shadows Of Mine [5:16](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493ED6A47EE10D8E5CE70E8837298BB79AFF19B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804050   (13260) от 27.06.2025
-
-Heaven Shall Burn - Heimat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Keinen Schritt zurück [4:37]
-02 - Schweineherbst [3:17]
-03 - Eisenkopf [3:51]
-04 - Destroy Fascism (Too Good to Steal from Edition) [1:59]Жанр: Melodic Death Metal, MetalcoreПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A816EC79D0D0C3240653296FDF60D3AA8509D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804161   (13254) от 27.06.2025
-
-Gabrielle De Val - I Am The Hammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sky Is Falling
-02. Let Sleeping Dogs Lie
-03. Good Morning Vietnam
-04. For Whom The Bell Tolls(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E669A8B0FD8DEE84D6737545D72FF0728688AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,181 @@
+###  Публикация: 1821929   (91157) от 04.10.2025
+
+Sleazy Sweet - Sleazy Party (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Glam Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Intro (0:30)
+02. - Sweet Party (3:34)
+03. - Get it (2025) (2:58)
+04. - Testing Rehearsing (2025) (3:33)(   Читать дальше...   )Жанр: Glam Metal, Hard RockПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A4F5983719A357E20D1EB0428205549A97A637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821906   (91156) от 04.10.2025
+
+Kylie Minogue - Tension Tour Live 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lights Camera Action (Intro;Live From The Tension Tour) [00:01:45]
+02. Lights Camera Action (Live From The Tension Tour) [00:01:28]
+03. In Your Eyes (Live From The Tension Tour) [00:02:05]
+04. Get Outta My Way (Live From The Tension Tour) [00:02:22](   Читать дальше...   )Жанр: PopПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011F1A6455417E3AD9B847AD915B9982D6444ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821896   (91155) от 04.10.2025
+
+Wednesday - Bleeds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reality TV Argument Bleeds [00:03:02]
+02. Townies [00:03:15]
+03. Wound Up Here (By Holdin On) [00:03:28]
+04. Elderberry Wine [00:03:35](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCDAA0126EF760848BBE486A01364DED4DF853F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483502   (88881) от 16.04.2012
+
+Red Hot Chili Peppers – Californication (1999) [FLAC 2.0 24/192 | image (VinylRip)] <Funk Rock/Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Funk Rock/Alternative RockПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB63894A9936B5F9F40346F536EFE6F522B6EC9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482977   (88635) от 15.04.2012
+
+Чайф - 25 лет выдержки (2009) [FLAC 2.0 24/96 | image (VinylRip)]<Рок-н-ролл, Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шаляй-валяй
+02. Кот
+03. Вольный ветер
+04. Белая ворона
+05. Оранжевое настроение
+06. Ой-йо
+07. Всему своё время
+08. Давай вернемся
+09. Поплачь о нём2009Жанр: Рок, Рок-н-РоллПродолжительность: 01:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420BEC04286E9FAC5EB3CCA0CE1BD5DAF8614AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482730   (88403) от 14.04.2012
+
+Крематорий - Двойной альбом (1993) [APE 2.0 24/96 | tracks (VinylRip)]<Рок-н-ролл, Хард-рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Проходящие Мимо
+02. Реанимационная Машина
+03. Клаустрофобия
+04. Адольф
+05. Таня
+06. Кондратий1993Жанр: RockПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14E85105F90560DED479EC47FD0AEE807526CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480589   (87423) от 09.04.2012
 
 Scorpions - 2 альбома (1974-1975)  [FLAC 2.0 24/192 | tracks (VinylRip)]<hard-rock, heavy-metal>
@@ -598,180 +776,6 @@ Pink Floyd - Live at Empire Pool (Wembley, London, UK, 16 November 1974) (2024) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:198FD7233595B57A073BACF71B3816C9E87A618B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771249   (71923) от 05.01.2025
-
-Gustav Lundgren Trio - Sofo Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Giant Steps (2:37)
-02.  The Times They Are A-Changin' (2:38)
-03.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - O Amor Em Paz (3:21)
-04.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Sunny (4:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C73B9F14303A3BE0ABB133C41D2CB2EF7B22878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771224   (71922) от 05.01.2025
-
-Catlvish - Jazzthematics (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Algebra Anthem (2:50)
-02.  Automatic arithmetic (1:57)
-03.  Coordinate geometry (2:36)
-04.  The geometry (1:49)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AEFEE339C1F26921DF86BBA4BEA552CD0F3269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771267   (71920) от 05.01.2025
-
-Unusual Suspects - At The Australian Jazz Museum Vol. 9 (Live) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ain't Misbehavin' (5:14)
-02.  East of the Sun (and West of the Moon) (5:42)
-03.  Out of Nowhere (5:14)
-04.  'S Wonderful (5:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBBFCFE143D39FB00C5AA26E61B64646694A4AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771223   (71918) от 05.01.2025
-
-Ari Karason - Melodies for us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lovely Day (3:32)
-02.  It Runs Through Me (3:04)
-03.  Until The End of Time (4:30)
-04.  Stars (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E642651C4DF980AF9352640FC5EAC9F5F96D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771264   (71913) от 05.01.2025
-
-The Blue Moods - Force & Grace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Crisis (4:42)
-02.  First Light (4:19)
-03.  Latina (4:04)
-04.  Brigitte (4:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A918C443F12BF82E1F6A74FE8D0A8F1AEC320D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771013   (71909) от 05.01.2025
-
-Pink Floyd - Live At Odeon (Newcastle-upon-Tyne, UK, 9 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shine On You Crazy Diamond (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [22:00]
-02 - Raving And Drooling (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [13:10]
-03 - You've Got To Be Crazy (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [16:25]
-04 - Speak to Me (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [1:13](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BB19E6BEDE15E44FE3F705E0BA411BE55576B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

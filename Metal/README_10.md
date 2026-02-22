@@ -1,3 +1,38 @@
+###  Публикация: 607774   (994142) от 24.01.2013
+
+Jorn - Symphonic (2013) [MP3|320 кб/с]<Symphonic, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Came to Rock
+ 02. Rock and Roll Children
+ 03. The World I See
+ 04. Burn Your Flame
+ 05. Man of the Dark
+ 06. My Road
+ 07. Time to Be King
+ 08. Black Morning
+ 09. Like Stone in Water
+ 10. Vision Eyes(   Читать дальше...   )Жанр: Symphonic, Heavy MetalПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA7321220742F5E39F7002B5E83044E89D6A945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 430786   (993922) от 02.01.2012
 
 Hexfire - The Fire Of Redemption (2011) [MP3|320 kbps]<Power Metal>
@@ -794,32 +829,6 @@ Pyogenesis - A Silent Soul Screams Loud (2020) [MP3|320 Kbps] <Gothic Metal, Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3C5AFD996E10B2024DD042803C67AF6D122FA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162503   (986549) от 07.01.2010
-
-Vicious Crusade - Freedom Comes (2009) [MP3|320 kbps]<Melodic Thrash>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Melodic ThrashПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

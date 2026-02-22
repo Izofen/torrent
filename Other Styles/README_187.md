@@ -1,3 +1,32 @@
+###  Публикация: 1765892   (101295) от 15.12.2024
+
+VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Da Mata - Aich (5:42)
+02. Indiano - Meditation (10:28)
+03. Kalico Jak - Sunlight Through the Treetops (9:04)
+04. 4Moon Music - Sofy (7:48)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FED498FA70FA3B38E35B48E0E0A0A357D4100E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766551   (101240) от 19.12.2024
 
 Iana - Native Dancer, Vol. 2 (2013) [MP3|320 Kbps] <Native American, New Age, World>
@@ -813,35 +842,6 @@ VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C943EB4F92FF9021AD759457C15F6034C005D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822104   (94498) от 05.10.2025
-
-VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania, Alexander Barabash - Bedouin (Original Mix) (6:49)
-02. Ertunç Şenbay, Tibetania - Ancient Phokaia (Original Mix) (5:20)
-03. Antonello D'Arrigo, Alessio Serra, Tibetania - Organica (Original Mix) (6:48)
-04. Inkwall, Kintero Guzman, Tibetania - Eterno (Original Mix) (5:50)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1ACD7FE87F3D8E707FC61B06F36763905F5F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

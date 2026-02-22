@@ -1,3 +1,32 @@
+###  Публикация: 1137069   (669464) от 25.05.2017
+
+Independent Art - Uplifting Trance Collection By Independent Art Vol.11 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy (Original Mix)
+02. Offshore (Original Mix)
+03. The Final Walk (Original Mix)
+04. Cyberion (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57CC21E370FD347C0EEE57D79192BDED8900518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137102   (669463) от 25.05.2017
 
 TextLab 1.3.4 [En]
@@ -665,35 +694,6 @@ PicturesToExe Deluxe 9.0.10 RePack by вовава [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A375074F6E0BCF61F6291BC7AC56DF1411DE5B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136848   (669210) от 25.05.2017
-
-Schpunk - Techno Ist Das Halbe Leben (2017) [MP3|320 Kbps] <Techno, Zenonesque>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Du Bist (08:49)
-02. Funkelndes Rauschen (08:30)
-03. Cadenza Fur Katzengeschnurre (09:31)
-04. Radikale Vervielfaltigung (06:28)(   Читать дальше...   )Жанр: Techno, ZenonesqueПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4802B7553A78BC1DA4E17B5EC263B90E2105913
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1037826   (610318) от 26.07.2016
+
+VA - Pharmacy Plus - Anthology  Vol.1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christopher Lawrence & Fergie & Sadrian -  Buenos Aires (Original Mix) 7:25
+02. Serjan -  Lost In Translation (Original Mix) 6:45
+03. Danny JW -  Guardian (Original Mix) 9:58
+04. Awoken -  Xenomorph (Original Mix) 6:04(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F8C291666523DEDCE6C6D81AA12C6A3999DE29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037884   (610317) от 26.07.2016
 
 VA - The July Releases (2016) [MP3|320 Kbps] < Trance, Progressive>
@@ -674,34 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D9863DEF95AC3810E3F662B7BF1ABCD7BDE402C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296353   (610139) от 18.04.2019
-
-Mate: Universal Tab Translator 6.0.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекращайте изучать языки и заниматься переводом старыми неэффективными способами. Mate Translate – это исчерпывающие словари 103 языков мира, разговорники, синхронизация переводов и фраз между всеми вашими устройствами и прямой доступ через вашу панель меню Mac.
-
-Mate Translate обладает невероятно полной базой данной словарей для мгновенного перевода между 103 языками. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2019Разработчик: Twopeople Software LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3AD9026B67A0569B4BC6BC83E6B814A56416B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

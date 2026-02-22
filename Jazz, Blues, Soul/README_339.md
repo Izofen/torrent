@@ -1,3 +1,90 @@
+###  Публикация: 1065780   (417031) от 24.10.2016
+
+VA - Brazilian Jazz - Brazilian Jazz Beach (2016) [MP3|320 Kbps] <Nu Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smokey Skies (04:31)
+ 02. Wed (03:57)
+ 03. Attained Dreams (03:56)
+ 04. Rnb1 (03:57)(   Читать дальше...   )Жанр: Nu Jazz, LoungeПродолжительность: 01:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714716ECABE79919675A3C23D7C06AE13444ABC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065880   (417029) от 24.10.2016
+
+Ray Fuller And The Bluesrockers - Long Black Train (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn Me Up 03:07
+02. Devil's Den 04:46
+03. Voodoo Mama 03:56
+04. Hip Shakin' Mama 03:03(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A9E16EA8F33C639256632E11AAB1B7F8733E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325140   (416907) от 13.09.2019
+
+Earl Hines - Tour De Force (1972) 1989, Black Lion Records [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mack the Knife (take 2) [7:34]
+02. Indian Summer [5:34]
+03. I Gotta Right to Sing the Blues [6:46]
+04. I Never Knew (I Could Love Anybody Like I'm Loving You) (take 1) [4:50](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFA484AED8D9389186550C7CC37E8029ED9E6D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065881   (416860) от 24.10.2016
 
 Mighty Sam McClain - Time and Change (2016) [FLAC|Lossless|image + .cue] <Blues, Soul, Funk>
@@ -658,93 +745,6 @@ Nat King Cole - Unforgettable (1954) 2007, Collectors' Choice Music[FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B9662D1C975F9331A0DDEF8DF21B9D48248B721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573195   (414767) от 30.08.2022
-
-Marvin Gaye - I Want You The John Morales M+M Mixes (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Soul, Funk, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want You (John Morales M+M Main Mix) [00:09:36]
-02. I Want You (John Morales M+M Instrumental Mix) [00:07:38]
-03. I Want You (John Morales M+M Breakdown Mix) [00:08:26]
-04. I Want You (John Morales M+M Pianopella Mix) [00:08:22]Жанр: Soul, Funk, R&BПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E810AAA583DD103EBD7ED755C2270DD720F68BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066294   (414748) от 25.10.2016
-
-Mick Abrahams - Long Long Gone (2016) [MP3|320 Kbps] <Blues, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuck Brick Aka Berry Drive   (03:19) 
-  02. Della Aka Daisy Delta   (01:23) 
-  03. Forty Three Aka Forty Two   (04:24) 
-  04. Late Night Aka Conchita Mercedes   (02:32) (   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F80242122D0A3C6FC0FC30EE5584BC245BCF11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325286   (414681) от 14.09.2019
-
-Anders Widmark Trio - Psalmer (1997) Kaza [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I denna ljuva sommartid [2:44]
-02. Allena Gud i himmelrik [3:02]
-03. Bereden vag for Herran [3:15]
-04. Jag kan icke rakna dem alla [2:08](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7854BF693F6F9685621AE6331B67F63A675A47
 ```
 
 https://mybot314.ru/tekegram_catalog/

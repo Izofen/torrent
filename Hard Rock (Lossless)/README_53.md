@@ -1,3 +1,32 @@
+###  Публикация: 1408965   (451602) от 14.09.2020
+
+Arctic Rain - The One (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Of My Life (04:15)
+02. Lost (04:01)
+03. Friends (04:09)
+04. Night After Night (04:34)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5AC71A7027EDFE4AFEFE0C932E6670D23614A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408951   (451598) от 14.09.2020
 
 Black Rose Maze - Black Rose Maze (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -734,35 +763,6 @@ Mama's Boys - Power And Passion (1985) [FLAC|Lossless|image + .cue] <Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8738A4A241F1C681603328C1444664CE971CEAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410166   (436155) от 21.09.2020
-
-Overland - Scandalous (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t Give Up
-02. Never Say Die
-03. Lost In The City
-04. Closest Thing To Heaven(   Читать дальше...   )Жанр: Melodic Hard Rock, Classic RockПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DD10A0EC47BA5337CE63F0AABC39C7AEA8EE83
 ```
 
 https://mybot314.ru/tekegram_catalog/

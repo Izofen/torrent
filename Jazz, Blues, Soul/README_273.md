@@ -1,3 +1,90 @@
+###  Публикация: 810689   (568541) от 18.08.2016
+
+The Hoax - 6 альбомов (1994 - 2014) [FLAC|Lossless]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568541.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале девяностых годов из крошечной деревни Уилтшир, Великобритания, пришла группа с огнем в груди и любовью к блюзу в сердце, она назвалась The Hoax. В 1991 году бывшие школьные друзья Хью Колтман (Hugh Coltman), Джесси Дэви (Jesse Davey), Дэви Робин (Robin Davey), Джон Амор (Jon Amor) обнаружили общую любовь к великим американским мастерам блюза Albert King, (   Читать дальше...   )Список альбомов:
+1994 - Sound Like This
+1996 - Unpossible
+1998 - Humdinger(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88270268DCE7E097F0BE7D4F9BEE9543E5146014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922781   (568354) от 29.07.2015
+
+Jimmy Smith - Stay Loose (1968) /2000, Verve/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Move to the Outskirts of Town [04:45]
+02. Stay Loose [03:56]
+03. If You Ain't Got It [03:08]
+04. One for Members [06:48](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E201C2EED5EA537CD63B544047EACEA775EBD0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922575   (568231) от 29.07.2015
+
+Marvin Gaye - Les Genies du Rock - Live (1993) [MP3|320 кб/с]<Soul,Funk,R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I heard it through the grapevine (4:57)
+02.  Come get to this (3:00)
+03.  Let's get it on (5:20)
+04.  God is love (2:32)(   Читать дальше...   )Жанр: Soul,Funk,R&BПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94988D0AE896166157C2EFEBA0E803C1CAB9212A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922582   (568226) от 29.07.2015
 
 Sitti Navarro - Singles Bossa Nova Trio (2015) [MP3|320 кб/с]<Bossa Nova, Latin Jazz>
@@ -699,99 +786,6 @@ Harvey Mandel - Cristo Redentor (1968) Remastered 2003, Raven Records [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD731A613A33FEB469F3A8CC2FBB0713FEC38B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529411   (567262) от 31.07.2012
-
-Andre Christovam - Catharsis (1997) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Leading Brand
-02. Every Night and Every Day
-03. Snowy Wood
-04. I Like it This Way
-05. Sad Hours
-06. Hell Is Fine With Me
-07. Doctor´s Cage
-08. Me & My Woman
-09. Ain´t No Sunshine
-10. Chewing Bone Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787182   (567153) от 05.06.2022
-
-Claude Thornhill - Snowfall (2000) [FLAC|Lossless]<Swing, Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stealin' Aplles (A.Razaf - T. Waller) [03:14]
-02. Snowfall (C.Thornhill) [02:56]
-03. Where or When (R.Rodgers - L. Hart) [02:59]
-04. A Sunday Kind of Love (B.Belle -L. Prima - A. Leonard - S. Rhodes) [03:22](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDF9ACD586235330073C6FAED76399AD4DEDD9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044259   (567098) от 19.08.2016
-
-Susie Webb - Bossa Loves Abba (2016) [MP3|320 Kbps] <Jazz, Bossa Nova, Latin>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (4:01)
-02. Knowing Me, Knowing You (4:00)
-03. Chiquitita (4:39)
-04. Take A Chance (3:37)(   Читать дальше...   )Производство: Rockchicks LtdЖанр: Jazz, Bossa Nova, LatinПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1FB694762487A3DDFACC2BC38B095A2BD24029
 ```
 
 https://mybot314.ru/tekegram_catalog/

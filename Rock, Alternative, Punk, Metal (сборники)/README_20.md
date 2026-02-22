@@ -1,3 +1,32 @@
+###  Публикация: 1404162   (684265) от 23.08.2020
+
+VA - Rock Songs: Essentials Collection (2020) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684265.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Broken Field Runner - Test Everything
+002. Vulture Party - Mayday Cockerel
+003. Neufundland - Liebe (Radio Edit)
+004. Bersuit Vergarabat - Vuelos(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C958F0AECCE5A418C90F7F3546A018CAC019A115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289645   (683731) от 17.03.2019
 
 VA - Знакомые все лица...Rock 90-х (зарубежный выпуск) (1990-1999) [MP3|320 Kbps] <Hard Rock, Metal, Rock>
@@ -715,35 +744,6 @@ Procol Harum - Beyond The Pale (2CD) Compilation (2018) [MP3|320 Kbps] <Rock, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05C07C737749A4E331804A3880D5DF1AB602B319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538880   (661088) от 22.03.2022
-
-VA - Get a Rock! 2 (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sueco - Loser (2:13)
-02. Е2 Знакомы - Зёрна (2:21)
-03. Ярик Бро - В Питере Дождь (2:38)
-04. The Score - Fighter (2:36)(   Читать дальше...   )Жанр: RockПродолжительность: 04:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D29728E095E0E0D57F13A015C0E1F1A118F611
 ```
 
 https://mybot314.ru/tekegram_catalog/

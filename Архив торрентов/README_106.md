@@ -1,3 +1,29 @@
+###  Публикация: 1623122   (1029613) от 31.03.2023
+
+Aiseesoft iPhone Cleaner 1.0.22 [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft iPhone Cleaner  - это лучший способ для очистки мусора на платформе iOS, удаление ненужных документов и данных на вашем устройстве. Это также защищает вашу конфиденциальность и делает ваш iPhone / iPad / iPod Touch быстрее и безопаснее.Тип издания: macOS SoftwareРелиз состоялся: 30.03.2023Разработчик: © 2023 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C4D8D0CFAD729110B25DADBE5285F5870F5DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623205   (1029612) от 31.03.2023
 
 Scrivener 3.3.1 [En]
@@ -652,35 +678,6 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0A3C64B3EA11C97CF15F369D83EE824D3AD2AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450063   (1029375) от 24.02.2021
-
-Madlib ‎ - Sound Ancestors (2021) [FLAC|Lossless|tracks + .cue] <Instrumental Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is No Time (Prelude) (01:16)
-02. The Call (02:05)
-03. Theme De Crabtree (02:17)
-04. Road Of The Lonely Ones (03:38)(   Читать дальше...   )Жанр: Instrumental Hip-HopПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEA98FD415B42B8C13C9E61C0DC1A9126046DD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

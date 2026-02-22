@@ -1,3 +1,295 @@
+###  Публикация: 979283   (959699) от 26.01.2016
+
+VA - Cafe Italiano, Vol. 1 (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florito - Brasil Gossa Party - Extended Mix (05:43)
+02. Peter Pearson - Your Gentle Eyes (05:40)
+03. Newton - Homerun (04:50)
+04. Michael Crueger - I'll See You Again (12:23)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChillOutПродолжительность: 02:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285EFC7AA29A63A5E1B1CFC42388FBF5F1884803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979272   (959653) от 26.01.2016
+
+VA - Зимняя 100-ка Популярных Треков (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ева Польна - Мало
+02. Ёлка - Праздник К Нам Приходит!
+03. Kristina Si - Не Обижай Меня
+04. Milki - Лапочка(   Читать дальше...   )Жанр: PopПродолжительность: 06:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE9014694044E490120935A9D6A18EA9522641D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 855633   (959639) от 03.01.2015
+
+W.A.S.P. - All ballads (1982-2012) 2CD Bootleg [MP3|320 кб/с]<Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Free
+02. Heaven's Hung In Black
+03. Kill Your Pretty Face
+04. Chainsaw Charlie (Intro)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 04:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA97CFAECF07A57B0976B24F042FD741D50B693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978287   (959599) от 26.01.2016
+
+VA - Blues Forever vol.01 - vol.04 (2015) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Rooster - Little Darling
+02. Anni Piper - Untrue
+03. Steve Pryor Band - Moving Me
+04. Big Bad Voodoo Daddy - Maddest Kind Of Love(   Читать дальше...   )Жанр: BluesПродолжительность: 05:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F45D8E95C8C5A7355E1E886E5C3B23B916DAFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978369   (959597) от 26.01.2016
+
+VA - Blues Forever vol.05 - vol.08 (2015) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinsley Ellis - Leave Me
+02. Midnight Club Blues Band - Midnigh
+03. Neal Black & The Healers - Bridge In Tennessee
+04. Bernard Allison Group - Set Me Free(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F794C561B12A3D4152EF4DB08BCB2F35441ADCFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360605   (959408) от 16.02.2020
+
+VA - The Official UK Top 40 Singles Chart 14.02.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Roddy Ricch - The Box
+03. Lewis Capaldi - Before You Go
+04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96937A1A7AC7866257DE1CD1B0A2E6D151B8F9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979618   (958434) от 27.01.2016
+
+VA - The Eurodance Evolution 2016 (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Folk, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free 2 Night - Under the Sun (Eurodance Remix) [04:33]
+02. Real 2 Day Ft B.P. - Change Our Life (Radio Mix) [03:12]
+03. B.P.M - No End No Limit (Radio Mix) [03:27]
+04. Shilton - Don't Stop Your Dreams (Eurodance Radio Mix) [03:00](   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0668CD3F90102E813D953D89FEBF77FBE40D6026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979642   (958202) от 27.01.2016
+
+Ace Of Base - Super Hits Collection (2015) [MP3|320 кб/с] <Disco , Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always Have, Always Will
+02. Wonderful Life
+03. Dr. Sun
+04. All That She Wants(   Читать дальше...   )Жанр: Disco , EurodanceПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2DE72C3CC466BC8B7EF4033B98C33D58BB744D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360849   (958082) от 17.02.2020
+
+VA - Зимняя свежая 30-тка Vol.4 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958082.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Anessa Kay - Уходи (3:00)
+2.Elbrus - Я Не Верю (3:07)
+3.Gezweirdo feat. Nomovoln - Цепи (3:18)
+4.HammAli & Navai - Где Ты Была (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D92F62ABCC0318416552ED6FCD5BE1F68F8D5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 856531   (957579) от 05.01.2015
+
+VA - The Official UK Top 40 Singles Chart (04-01-2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую первый в этом году традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Mark Ronson - Uptown Funk! (Feat.Bruno Mars)  (4:31)
+02. Philip George - Wish You Were Mine  (2:58)
+03. Ed Sheeran - Thinking Out Loud  (4:42)
+04. Ben Haenow - Something I Need  (3:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066C24ABB9D11C5587701F3841365B9C8C992B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979918   (957459) от 28.01.2016
 
 VA - Colibri Trance Pack (2016) [MP3|320 кб/с] <Progressive, Uplifting, Vocal Trance>
@@ -455,302 +747,6 @@ VA - 50 Jump Blues Classics (2015) [MP3|320 кб/с] <Blues, Rock, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EAC56E52BCA25E46C4C9E1F7E900DF050495189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980195   (955933) от 29.01.2016
-
-The Eagles - Edgy and Heavy (2016) (3CD)[MP3|210-320 кб/с] <Rock, Folk-rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955933.jpg" />
-</div>
-
-
-###  Подробнее
-
-25. You Dont Have Me
-26. Already Gone
-27. Victim of Love
-28.You Dont Know Me At All(   Читать дальше...   )Жанр: Rock, Folk-rockПродолжительность: 03:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6A0160CCBBC7BACF07EB4509AEF42800876148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361387   (955814) от 19.02.2020
-
-VA - EDM Resources: Techno Dance Set (2020) [MP3|320 Kbps] <Techno, Dance, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955814.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Frank Maurel - The Stage (Original Mix)
-002. David Phillips - 6ygr
-003. Rhomb - Artefact
-004. Hype Bass - Freak(   Читать дальше...   )Жанр: Techno, Dance, Club, ElectroПродолжительность: 14:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D1454DF961B484ECA0E857E82C4C080F44D81A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361386   (955742) от 19.02.2020
-
-VA - Reggae On The Roof Vol.07 (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Kalabash - Plus Jamais
-02. Krys - Ne Lui En Veux Pas
-03. Comoriano - Dopain Dobèr
-04. Supa Lexx - Boom Fire (Feat Lady Sweety)(   Читать дальше...   )Жанр: Reggae, Dancehall, RiddimПродолжительность: 04:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A1C5000FC87D9364B79EE81D228B6DBB0BB6B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361384   (955734) от 19.02.2020
-
-VA - Soft Winter Ambient Music (2020) [MP3|320 Kbps] <Ambient, New Age, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chronos - Diacronity
-02. Jepe & Takumi Motokawa - Unfolded
-03. Point - Amonit Gate (Original Mix)
-04. Buddha-Bar - Tritone(   Читать дальше...   )Жанр: Ambient, New Age, Downtempo, RelaxПродолжительность: 06:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87897A405C44430E6D5F2B25FB19DA1748AD8DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623372   (955709) от 26.02.2013
-
-VA - The Official UK Top 40 Singles Chart (24-02-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую очередной UK Singles Chart — официальный хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
-Составляется с 1952 года как аналог американского Billboard.
-По ссылке в дополнительной информации Вы найдете и USA Billboard Hot 40 (23-02-2013)
-Во все треки вшиты обложки альбомов.Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 02:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11BAEF8A13B0113B8E65C7924BA20CD7065DEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361397   (955510) от 19.02.2020
-
-VA - Popular European Mix (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955510.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. La Roux - Gullible Fool (Original Mix)
-002. Where Is Maps - Crazy Together
-003. Skif Bazzaty - Solo Tu Y Yo (Original Mix)
-004. Dstrqt - Missions (Original Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC94CED5D240D98309254052BB29190E7D89A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361176   (955493) от 19.02.2020
-
-VA - 100 Greatest Dance Anthems (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955493.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stardust - Music Sounds Better With You (Radio Edit) 4:21
-002. Donna Summer - I Feel Love 3:45
-003. Daft Punk - One More Time 5:20
-004. Inner City - Good Life (Original 12' Mix) 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CAF170D6AABDC9DC8B9259E886DB29CB190168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360935   (955405) от 19.02.2020
-
-VA - Romantic Souls: Popular Lyric Collection (2020) [MP3|320 Kbps] <Pop, Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neron - Decomposing
-02. Hilaa - Naked
-03. Cassidy Janson - Fairytale
-04. 1Team - Not Afraid(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 04:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22459538E085772FF8FAB7D0E9598CCFF29C413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361369   (955401) от 19.02.2020
-
-VA - Рок впрок 14 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стёртые Лица - Чтобы жить
-02. Deviltears – Безликие
-03. МИССИЯ - Ранняя весна
-04. Тень Звука – Город(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F6CDB29003AF474094A4F15DD82E1E09F732CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623211   (955349) от 26.02.2013
-
-VA - Gold of Teddy Killerz (2013) [MP3|320 кб/с]<Drum'n'Bass, Dub Step, Glitchhop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955349.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Modestep - Evolution Theory (Teddy Killerz Remix)
-2. Modestep feat. Teddy Killerz and Ghetts - Inside My Head
-3. Nishin Verdiano, AK9 – Bitch Please (Teddy Killerz Remix)
-4. Skrillex feat. Damian Marley - Make It Bun Dem (Teddy Killerz Remix)
-5. Teddy Killerz - Bad Taste
-6. Teddy Killerz - Hunger
-7. Teddy Killerz - New Drums
-8. Teddy Killerz - Ravezone Anthem
-9. Teddy Killerz - Samsyka
-10. Teddy Killerz - Scary(   Читать дальше...   )Жанр: Drum'n'Bass, Dub Step, GlitchhopПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA57CFA94547F64B418450FF383766BB0DD035E
 ```
 
 https://mybot314.ru/tekegram_catalog/

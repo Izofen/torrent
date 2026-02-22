@@ -1,473 +1,3 @@
-###  Публикация: 484930   (89378) от 19.04.2012
-
-Bathory - 16 albums + Quorthon (1984 - 2006) [MP3|320 кб/с]<Viking Metal, Thrash Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1984 - 2006Жанр: Viking Metal, Thrash Metal, Black MetalПродолжительность: 00:45:19
-
-01. Roller Coaster (4:06)
-02. It's Ok (4:18)
-03. All In All I Know (4:18)
-04. No Life At All (2:38)
-05. An Inch Above The Ground (3:34)
-06. The Notforgettin (4:09)
-07. Deep (5:32)
-08. Label On The Wind (6:47)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14500BC9ABF89C43E3BFB7AF56BD707908BD4469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484859   (89205) от 18.04.2012
-
-Trans-Siberian Orchestra - Beethoven's Last Night (2012) [MP3|320 кб/с]<Symphonic Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89205.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Overture (2:56)
- 02. Midnight Narration (1:36)
- 03. Midnight (2:10)
- 04. Fate (1:14)
- 05. What Good This Deafness Narration (0:43)
- 06. What Good This Deafness (1:46)
- 07. Mephistopheles Narration (3:10)
- 08. Mephistopheles (3:44)
- 09. What Is Eternal Narration (4:41)(   Читать дальше...   )2012Жанр: Symphonic Progressive MetalПродолжительность: 01:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48A851BDA6DC491F240D4C0A4BBEB41431BF285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483096   (88767) от 16.04.2012
-
-Venom - 13 albums (1981 - 2011) [MP3|320 кб/с]<Thrash / Black / Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1981 - 2011Жанр: Thrash / Black / Heavy MetalПродолжительность: 01:06:44
-
-01 - Hammerhead (4:59)
-02 - Nemesis (3:06)
-03 - Pedal To The Metal (3:43)
-04 - Lap Of The Gods (5:09)
-05 - Damnation Of Souls (4:29)
-06 - Beggarman (4:28)
-07 - Hail Satanas (4:33)
-08 - Sin (5:32)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE91EE74055515BDA24C7507C123E58DBFFAC25A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482815   (88391) от 14.04.2012
-
-Arch Enemy - 9 Albums (1996-2011) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1996 - Black Earth
-1998 - Stigmata
-1999 - Burning Bridges
-2001 - Wages Of Sin
-2003 - Anthems Of Rebellion(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 08:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB37094781420E2197CED9437FC2DB06D6F7D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483133   (88390) от 14.04.2012
-
-Nightwish - Imaginaerum (Tour Edition) (2012) [MP3|320 кб/с]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-2012Жанр: Symphonic Power MetalПродолжительность: 02:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B461C1644D222F22291C5B437FCD2F12D34AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482400   (88341) от 14.04.2012
-
-Running Wild - Shadowmaker (2012) [MP3|320 кб/с]<Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Piece Of The Action (04:25)
-02. Riding On The Tide (4:18)
-03. I Am Who I Am (04:51)
-04. Black Shadow (05:13)
-05. Locomotive (04:35)
-06. Me & The Boys (05:00)
-07. Shadowmaker (04:25)
-08. Sailing Fire (04:14)
-09. Into The Black (04:57)
-10. Dracula (07:29)2012Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3434DDD04C016350E3FD6D1C278A6945E6159C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481029   (87567) от 10.04.2012
-
-Dragonforce - The Power Within (2012) [MP3|320 кб/с]<Extreme Power Metal/Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87567.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012Жанр: Extreme Power Metal/Speed MetalПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F6F0F14BA25678E2A4ABC0B9826476CC17B9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479851   (87191) от 08.04.2012
-
-Roadrunner United - 2albums (2005-2008) [MP3|320kbps] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Metal, Extreme Metal, Death Metal, Thrash Metal, Hardcore, Black Metal, RockПродолжительность: 02:00:35
-
-
-01 | Intro | 2:12
-02 | Biohazard's Punishment | 4:48
-03 | Madball's Set It Off | 2:52
-04 | Stormtroopers Of Death's March Of The S.O.D. | 1:31
-05 | Life Of Agony's River Runs Red | 2:06
-06 | Obituary's The End Complete | 4:59
-07 | Mercyful Fate's Curse Of The Pharaohs | 3:45(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477686   (86299) от 04.04.2012
-
-Powerwolf - Alive In The Night (Live) (2012) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lupus Daemonis (Intro) 01:20
-02. Sanctified With Dynamite 04:53
-03. Prayer In The Dark 04:37
-04. Raise Your Fist, Evangelist 04:35
-05. We Drink Your Blood 04:32
-06. Werewolves Of Armenia 04:13
-07. Dead Boys Don't Cry 04:03
-08. Resurrection By Erection 05:25
-09. Saturday Satan 05:55
-10. Lupus Dei 06:592012Жанр: Power MetalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B65D915D8BD9B5C7AEE6D8B58F7E799C345E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477676   (86124) от 03.04.2012
-
-Overkill - The Electric Age (2012) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come And Get It (6:18)
-02. Electric Rattlesnake (6:20)
-03. Wish You Were Dead (4:19)
-04. Black Daze (3:55)
-05. Save Yourself (3:44)
-06. Drop The Hammer Down (6:25)
-07. 21ST Century Man (4:13)
-08. Old Wounds, New Scars (4:12)
-09. All Over But The Shouting (5:30)
-10. Good Night (5:37)2012Жанр: Thrash MetalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F009844E3E78FBEC1B78DDF8F74D5F857B8394A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476698   (85757) от 01.04.2012
-
-Rammstein - LIFAD Demos Edition (2008) [MP3|128-320 kbps]<Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85757.jpg" />
-</div>
-
-
-###  Подробнее
-
-2008Жанр: Industrial Metal
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACFA327BAE035A06433ECDAFBCA7B2E281DBA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366412   (85571) от 31.03.2012
-
-Running Wild - 19 альбомов (1984-2011) [MP3|320 kbps]<Heavy|Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Rivalry
-02. Draw The Line
-03. Detonator
-04. Firebreather
-05. Kiss Of Death
-06. Ballad Of William Kidd
-07. Victory
-08. Tsar
-09. Welcome To Hell
-10. The Brotherhood(   Читать дальше...   )1984-2011Жанр: Heavy|Power MetalПродолжительность: 01:33:36
-
-CD 1
-Продолжительность: 00:56:34
-Трек лист:
-01. Intro
-02. Port Royal
-03. Bad To The Bone
-04. Riding The Storm
-05. Soulless(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475801   (85347) от 30.03.2012
-
-Annihilator - The Best Of Annihilator (2004) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Crystal Ann
-2. Alison Hell
-3. W.T.Y.D.
-4. Wicked Mystic
-5. Word Salad
-6. Phantasmagoria (Demo)
-7. Human Issecticide (Live)
-8. Fun Palace
-9. Road To Ruin
-10. Stonewall(   Читать дальше...   )2004Жанр: Thrash MetalПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE36403F1704AAB1E1FCD55B2C258322D3EE398B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471729   (84741) от 27.03.2012
-
-Meshuggah - 15 студийных альбома, 5 концертных записей, 2 Demo + Bonus /Дискография/ (1989-2012) [MP3|192-320kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. The Beginning Of The End Of Extraction (Evolutional Slow Down) (1:36)
-2. The Executive Furies Of The Robot Lord Of Death (1:28)
-3. Descent To The Netherworld (0:29)
-4. ...Och STJ Rnans Namn Var Mal RT (1:54)
-5. Dante's Wild Inferno (0:23)
-6. I. Galactus (1:28)
-7. Skeletonization (0:14)
-8. Sickness And Demoniacal Dreaming (1:06)
-9. Uforia (0:37)
-10. Zeta 1 - Reticuli (2:53)(   Читать дальше...   )1989-2012Жанр: Progressive MetalПродолжительность: 00:49:58
-
-Доп. информация:
-Переиздание альбома Sol Niger Within с улучшенным звуком и порезкой на треки. Также в данном издании был убран церковный орган и добавлено 2 трека
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D751646CCC9E4F20578DA409ED75B237444D368F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472156   (83899) от 23.03.2012
 
 Axel Rudi Pell - Circle Of The Oath (2012) [MP3|320 кб/с]<Heavy Metal>
@@ -858,6 +388,436 @@ Unreal - Дискография (2006 - 2012) (5 альбомов, 2 сингл�
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 328721   (78538) от 26.02.2012
+
+Halford - 10 альбомов (2000-2011) [MP3|320 kbps]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Resurrection
+02. Made In Hell
+03. Locked And Loaded
+04. Drop Out
+05. Made Of Metal
+06. Undisputed
+07. Nailed To The Gun
+08. Golgotha
+09. Fire And Ice
+10. Green Manalishi With The Two Pronged Crown(   Читать дальше...   )2000-2011Жанр: Heavy MetalПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7E631DC31798797626934F3F7794583B20B940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 345614   (78309) от 25.02.2012
+
+Freedom Call - 8 альбомов (1999-2012) [MP3|224-320 kbps]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1999-2012Жанр: Power MetalПродолжительность: 00:25:44
+
+01.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7935428FFCAFB3E8511FFAF1382412B44384C51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457295   (78149) от 24.02.2012
+
+Xandria - Neverworld's End (2012) [MP3|320 кб/с]<Symphonic Epic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. A Prophecy of Worlds to Fall (7:23)
+02. Valentine (4:11)
+03. Forevermore (4:59)
+04. Euphoria (4:30)
+05. Blood on My Hands (4:17)
+06. Soulcrusher (6:11)
+07. The Dream is Still Alive (4:23)
+08. The Lost Elysion (5:26)
+09. Call of the Wind (4:52)
+10. A Thousand Letters (4:18)(   Читать дальше...   )2012Жанр: Symphonic Epic MetalПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB0FA413B627282F1A3517BF6B97ADFFD014950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 215553   (75547) от 11.02.2012
+
+Eluveitie - 5 Albums (2006 - 2012) [MP3|320 kbps]<Folk Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+2006 - 2012Жанр: Folk Metal,  Melodic Death MetalПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 136845   (73895) от 03.02.2012
+
+Caliban - 10 Albums (1999 - 2012) [MP3|256 - 320 kbps]<MetalCore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1999 - A Small Boy And A Grey Heaven
+2000 - The Split Program I
+2001 - Vent
+2003 - Shadow Hearts (Reissue 2005)
+2004 - The Opposite From Within(   Читать дальше...   )Жанр: MetalCoreПродолжительность: 08:04:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 445645   (73688) от 02.02.2012
+
+Nightwish - Live at Gibson Amphiteatre (2012) [MP3|320 kbps]<Symphonic Metal>«Сделай свой первый релиз!»
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 Finlandia (00:05:25)
+02 Storytime (00:05:29)
+03 Wish I Had an Angel (00:04:00)
+04 Amaranth (00:05:23)
+05 Scaretale (00:06:29)
+06 The Siren (00:04:49)
+07 Slow, Love, Slow (00:05:42)
+08 I Want My Tears Back (00:05:16)
+09 The Crow, the Owl and the Dove (00:05:37)
+10 The Islander (00:05:48)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73DB575778DA502B217DA4FF3887A6D472238D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 445117   (73452) от 01.02.2012
+
+Peter Crowley Fantasy Dream - Коллекция 8 альбомов (2011-2012) [MP3|320 kbps]<Epic Fantasy Symphonic Metal> «Сделай свой первый релиз!»
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Epic Fantasy Symphonic MetalПродолжительность: 08:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA19AC5982174296715F935C40E5C24A474DCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439373   (72232) от 25.01.2012
+
+Biohazard - Reborn In Defiance (2012) [MP3|320 kbps]<Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. 9:Iiix6.941 (0:54)
+02. Vengeance Is Mine (3:24)
+03. Decay (4:24)
+04. Reborn (4:52)
+05. Killing Me (4:49)
+06. Countdown Doom (4:56)
+07. Come Alive (3:48)
+08. Vows Of Redemption (4:57)
+09. Waste Away (4:24)
+10. You Were Wrong (6:05)(   Читать дальше...   )2012Жанр: HardcoreПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1706850AEDC9DCEB8F135DBDF7A26094B3A432A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441254   (72127) от 24.01.2012
+
+Blind Guardian - Memories Of A Time To Come [Deluxe Edition] (2012) [MP3|320 kbps]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Disc I
+1. Imaginations From The Other Side [2011 Remix]
+2. Nightfall [2011 Remix]
+3. Ride Into Obsession [2011 Remix]
+4. Somewhere Far Beyond [2011 Remix]
+5. Majesty [2011 Remix]
+6. Traveler In Time [2011 Remix]
+7. Follow The Blind [2011 Remix]
+8. The Last Candle [2011 Remix]
+(   Читать дальше...   )2012Жанр: Power MetalПродолжительность: 00:52:03 + 00:51:28 + 01:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC195A533E4629E30C01AD88143FD51AD63DE1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770543   (71914) от 05.01.2025
+
+Эсента - Вечность (2018) [MP3|320 Kbps] <Symphonic, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71914.jpg" />
+</div>
+
+
+###  Подробнее
+
+◈ 01 - Не Сейчас (00:04:54)
+◈ 02 - Высь (00:03:38)
+◈ 03 - Путь (00:04:35)
+◈ 04 - На Краю Земли (00:04:42)(   Читать дальше...   )Жанр: Symphonic, Heavy MetalПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B7CD5810A2263AE63FB2291FF0C36F0A34027B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771683   (71809) от 08.01.2025
+
+Evadam - Jiva (Deluxe Edition) (2013) [MP3|320 Kbps] <Oriental Electronic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return Of The Nephilim
+02. Enuma Elish
+03. Алеф
+04. Под Обломками Мира(   Читать дальше...   )Жанр: Oriental Electronic MetalПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD5855832A1A2DC45162522A7C6899E6A6DA6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771691   (71795) от 08.01.2025
+
+7Letters - Ver 2.0 (2016) [MP3|320 Kbps] <Alternative Metal, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сделай Шаг
+02. Новый День
+03. Планеты
+04. Весенний Дождь(   Читать дальше...   )Жанр: Alternative Metal, ElectronicПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3133725CA44A7359EF9AB6CD2147E6252B3193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772289   (71787) от 10.01.2025
+
+Garden Of Stone - The Grave Mistake (2025) [MP3|320 Kbps] <Melodic Death, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visions of the End
+02. Day of Discord
+03. The Prophet
+04. Waiting for the Light(   Читать дальше...   )Жанр: Melodic Death, Heavy MetalПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CB724AAFB5C916694AF8DD6650CE0F1D14B610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777494   (70984) от 06.02.2025
+
+Drohkaal - Divinity Within (2024) [MP3|320 Kbps] <Thrash, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Shot
+02. Best Served Cold
+03. The Witch
+04. Where Are We Headed(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F53E36E7E7155E0A3242740D16BE4E1A347FE49
 ```
 
 https://mybot314.ru/tekegram_catalog/

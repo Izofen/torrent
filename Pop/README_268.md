@@ -1,3 +1,90 @@
+###  Публикация: 1623882   (238301) от 03.04.2023
+
+VA - Mega Hits 2013 (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii - Wake Me Up (Radio Edit)
+02. Imagine Dragons - Radioactive
+03. OneRepublic - Counting Stars
+04. Katy Perry - Roar(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1812BBAC2DD0286A2B340EDC691AE5E80432F416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629299   (238293) от 26.04.2023
+
+VA - New Disco House Lights (2023) [MP3|320 Kbps] <Nu Disco, Soulful, Dance, Funky House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Von Paramus - Party Sweet  (Radio Edit)
+02. Middlestones - Talk to You
+03. Arisia - Cocaina
+04. Another Nelson - Mr. Undercover(   Читать дальше...   )Жанр: Nu Disco, Soulful, Dance, Funky HouseПродолжительность: 02:46:07 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6F2E6F00B753E622476DCAA54F52E0615DE62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629326   (237998) от 26.04.2023
+
+VA - Venti Compilation 8 (2023) 2CD, Compilation [MP3|255-277 kbps VBR] <Italo-Disco, Hi NRG, Electro, Eurodisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237998.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Fun Fun - No More Tears
+02. Koto - Tron
+03. Den Harrow - Always (Eddy Mi Ami Remix)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Electro, EurodiscoПродолжительность: 01:12:45 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2313A1E2663833227F6D742FFCF402873BC8A842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639931   (237837) от 15.06.2023
 
 a-ha - Headlines and Deadlines (The Hits Of a-ha) (1991) [FLAC|Lossless|tracks + .cue] <Synth-pop, Pop Rock>
@@ -658,93 +745,6 @@ Kumano - Kumano (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:372DB944D556369AB015C09BA57EFD72E7911B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631969   (235924) от 08.05.2023
-
-Linda Jo Rizzo - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now
-02. Can't Escape From You
-03. Angel Of Love
-04. I Love Fashion(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F1CF6DACD3AED0642B2A7D6AEB957947313D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458102   (235913) от 28.03.2021
-
-Annette Humpe - Solo (серия "Другие восьмидесятые") (1990) [MP3|320 Kbps] <German Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Macht nichts
-02. Ich kusse Ihren Mann
-03. Warten auf ein Telegramm von Gott
-04. Nur zu Gast(   Читать дальше...   )Жанр: German Pop, ElectronicПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC836E86623901511284A77489D57B669C5CB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458084   (235905) от 28.03.2021
-
-Chicasss - 2 Albums (1989, 1990) Collection [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manana (3:48)
-02. Your Memory (4:35)
-03. Te Quiero (3:20)
-04. Noches De Acapulco (3:45)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EDA9A05AA7B26D7046A7FCB0A02C1834F07B26
 ```
 
 https://mybot314.ru/tekegram_catalog/

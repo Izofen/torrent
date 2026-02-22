@@ -1,3 +1,35 @@
+###  Публикация: 466808   (96512) от 13.03.2012
+
+Arild Andersen Quintet - Auditorio RSI, Lugano, Switzerland, 09. 11. 2011 (2011) [FLAC|Lossless]<Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyperborean 08:10
+02. Chorus II 09:49
+03. Saturday 16:47
+04. Announcement Arild Andersen 00:51
+05. Electra Song 06:05
+06. Unknown Title 10:10
+07. Unknown Title2011Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466767   (96425) от 12.03.2012
 
 Annie Ross - Gypsy (1995) [FLAC|Lossless]<Vocal Jazz, Big Band>
@@ -860,38 +892,6 @@ Ranee Lee - Lives Upstairs (2009) [FLAC|Lossless]<Jazz, Vocal>
 08. Beautiful Love (4:43)
 09. The Storm (6:05)
 10. Dearly Beloved (5:22)2009Жанр: Jazz, VocalПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460927   (95066) от 02.03.2012
-
-Alvin Queen - Jammin' Uptown (2008) [FLAC|Lossless]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Europia
-02. Jammin' Uptown
-03. After Liberation
-04. Mind Wine
-05. Hear Me Drummin'
-06. Resolution of Love
-07. Hassan2008Жанр: Mainstream JazzПродолжительность: 00:47:59
 
 ## Скачать торент
 ```bash

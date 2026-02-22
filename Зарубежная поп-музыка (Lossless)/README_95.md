@@ -1,3 +1,32 @@
+###  Публикация: 1776613   (71186) от 02.02.2025
+
+VA - Valentines Day 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Mraz - I’m Yours (Radio Edit) (3:34)
+02. Ed Sheeran - Perfect (4:23)
+03. Sia - Gimme Love (2:57)
+04. All-4-One - I Swear (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D355E215F1A781DD74D7371A912E7AA26C83AD64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776717   (71131) от 03.02.2025
 
 Nej (Nej') - SOS IV (Paranormal) (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
@@ -715,35 +744,6 @@ The Temptations - Reflections (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C0BC2E3B9B2CE84BE6228470F35B3E485E90F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801918   (66117) от 14.06.2025
-
-Lonestar - Lonely Grill (1999) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturday Night    [0:04:03.52]
-02. Simple as That    [0:03:17.70]
-03. Amazed    [0:04:00.68]
-04. What About Now    [0:03:29.60](   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20589EB4AE9F31D2595FD2C12A9F6C5AF3692151
 ```
 
 https://mybot314.ru/tekegram_catalog/

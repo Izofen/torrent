@@ -1,3 +1,32 @@
+###  Публикация: 1085476   (214692) от 21.12.2016
+
+Marc Ford & The Neptune Blues Club - The Vulture (2016) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|   Devil's in the Details  (03:42) 
+02|   The Same Coming Up  (01:50) 
+03|   All We Need to Do Is Love  (04:30) 
+04|   This Ride  (02:00) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286F4A6BFF9A78077BF698146872D2D1D15EBC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853582   (214688) от 26.12.2014
 
 Walker Fields - Black Kat Blues (2014) [MP3|320 кб/с]<Blues Rock>
@@ -720,35 +749,6 @@ The Band Ham - I'll Take That Drink Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:152E3ABC03A0B253213A41884913135A8CEFBE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515052   (213706) от 05.12.2021
-
-Sons of Mars - Hell & Heartbreak (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Lost the Blues (7:35)
-02. Cracked Paint (3:03)
-03. Pissing Off the Preacher (3:53)
-04. Wicked Woman (3:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6C5750F8D5D9085CD116DF9B8ECA9986598DF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

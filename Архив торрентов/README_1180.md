@@ -1,3 +1,38 @@
+###  Публикация: 762289   (892979) от 02.03.2014
+
+Paul Michael Meredith - Daybreak (2000) [MP3|320 кб/с]<New age, Relax, Nature sounds, Harp>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(4:15) 01. Daybreak
+(3:56) 02. Through Open Windows
+(3:34) 03. Gentle Breeze
+(5:20) 04. Shadow And Light
+(4:21) 05. Promise Of Love
+(6:30) 06. Dusk To Dawn
+(4:04) 07. Water's Edge
+(4:48) 08. Everywhere You Look
+(4:15) 09. Softly
+(5:13) 10. Morning Mist(   Читать дальше...   )Жанр: New age, Relax, Nature sounds, HarpПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECA42D8BBD184F0D4428BB09629FEB2876D6B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 639341   (892977) от 04.04.2013
 
 TMeter Freeware Edition 13.0.641 [Multi/Русский]
@@ -670,40 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A0DF84B8BBA6A45F45A60B482CDF6ABF42DC1C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295766   (892860) от 15.02.2011
-
-Astroff - Star Eater EP (2011) [MP3|~215 kbps] <Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Astroff - Star Eater EP (2011)
-Год: 2011
-Жанр: Psytrance
-Лейбл: Sun Station Records
-Продолжительность: 00:28:28
-Кодек: MP3
-Битрейт: ~215 kbps
-Тип битрейта: VBRТрек лист:
-01. My Lasergun [06:58](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0447FA29511915AB7AE7EA453F5F6A5B0F6C53
 ```
 
 https://mybot314.ru/tekegram_catalog/

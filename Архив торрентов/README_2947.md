@@ -1,3 +1,32 @@
+###  Публикация: 1151943   (568780) от 21.07.2017
+
+Arch Enemy - War Eternal (2014) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tempore Nihil Sanat (Prelude in F minor)
+02.Never Forgive, Never Forget
+03.War Eternal
+04.As the Pages Burn(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69925764626C396513F4B93CE2E3AD102BDBFC1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043869   (568771) от 18.08.2016
 
 Felix Slovacek - Con amore (1998) [FLAC|Lossless|tracks + .cue] <Instrumental>
@@ -673,32 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043608   (568503) от 18.08.2016
-
-Hotspot Shield Elite 6.20.0 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hotspot Shield VPN – самое полное решение проблем безопасности в Интернет. Защищает ваши сессии в веб-браузере, обнаруживает и блокирует вредоносное ПО, сохраняет конфиденциальность, обеспечивает доступ к заблокированным сайтам. Hotspot Shield делает безопасным просмотр веб-страниц, защищая ваше (проводное или беспроводное) соединение дома и в общественных местах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FCF8DAC57D3468FB481771D1AD6EB7F2786805
 ```
 
 https://mybot314.ru/tekegram_catalog/

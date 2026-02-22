@@ -1,3 +1,29 @@
+###  Публикация: 1039597   (594347) от 02.08.2016
+
+Проекты - VideoHive - Modern Times - 9360030 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для видео-презентаций, показа моды, рекламы и пр.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C07C71702B14686FDF4C9F34CF62C0D057D3C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039709   (594272) от 02.08.2016
 
 Проекты - VideoHive - App/Service/Product Promotion - 2080809 [AEP]
@@ -667,32 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:905A973E435EC28257614EF7966BD07ADF91A091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918861   (585745) от 16.07.2015
-
-Проекты - Motion Array - Directors Cut [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084720D7E1890EC02BC616647E0FCB17EAE0B14F
 ```
 
 https://mybot314.ru/tekegram_catalog/

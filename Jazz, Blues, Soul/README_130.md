@@ -1,3 +1,90 @@
+###  Публикация: 1111145   (850431) от 04.03.2017
+
+Benny Goodman - B.G. in Hi-Fi (1954) 1989, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Let's Dance [02:16]
+ 02.Airmail Special [03:39]
+ 03.Ain't Misbehavin' [03:28]
+ 04.Get Happy [03:06](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7204B5E65EE0D0A2324992B883D82C5D83909F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110972   (850430) от 04.03.2017
+
+The Blind Boys Of Alabama - Down In New Orleans (2008) [FLAC|Lossless|tracks + .cue] <Blues, Gospel>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blind Boys of Alabama (Блайнд Бойз оф Алабама) — американская музыкальная группа из штата Алабама, исполняющая музыку в жанре госпел. Является пятикратным лауреатом премии «Грэмми». Выступает с 1939 года. В 2003 году группа была принята в Зал славы госпела, в 2010 — в Музыкальный зал славы штата Алабама01. Free At Last  (3:33)
+02. Make A Better World (3:19)
+03. How I Got Over (5:03)
+04. You Got To Move (3:35)(   Читать дальше...   )Жанр: Blues, GospelПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB30E0742E45C9E6F2BEDA2F05A1DC97DAEB812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110946   (850426) от 04.03.2017
+
+Omar Sosa & Seckou Keita - Transparent Water (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <World Fusion, Ethnic Jazz, Piano & Kora>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дуэт двух великих музыкантов – кубинского джазового пианиста и композитора, неоднократного номинанта премии Грэмми Омара Соса и сенегальского гриота, мультиинструменталиста и вокалиста Секу Кейта, искусно владеющего корой (21-струнная африканская арфа). В записи альбома Transparent Water («Прозрачная вода») также принимали участие: Густаво Оваллес – венесуэльский (   Читать дальше...   )01. Dary (Feat. Gustavo Ovalles) (5:09)
+02. In The Forest (5:14)
+03. Black Dream (Feat. Mieko Miyazaki & Wu Tong) (5:24)
+04. Mining-Nah (Feat. Gustavo Ovalles) (4:55)(   Читать дальше...   )Жанр: World Fusion, Ethnic Jazz, Piano & KoraПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983917B173EB0F2BA6F6C2CE3533176F99AED7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377768   (850171) от 23.04.2020
 
 Gene Krupa - Four Classic Albums 1954 - 1957 (2014) 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Swing>
@@ -656,93 +743,6 @@ Johnny Griffin & Eddie "Lockjaw" Davis - Ow! Live at the Penthouse (1962) 2019, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB475A754C984824A60018F9E8A4C7C9EC3D8BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499673   (846322) от 03.10.2021
-
-Marcos Valle & Victor Biglione - Live In Montreal (2007) [FLAC|Lossless|tracks + .cue] <MPB>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azimuth 3:20
-02. Preciso Aprender A Ser Só 4:11
-03. Samba De Verão 4:02
-04. Terra De Ninguém 3:11(   Читать дальше...   )Жанр: MPBПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5360177E0D5B550764FB1B5C0001A8B023612F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499758   (846320) от 03.10.2021
-
-Ella Fitzgerald - The Irving Berlin Songbook, Vols. 1-2 (1958) 2CD, 1986, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846320.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Let's Face the Music and Dance [2:58]
-02. You're Laughing at Me [3:17]
-03. Let Yourself Go [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A26CB44A1D5E179B95E7FE7D92FEA3B06B4D781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877809   (845941) от 13.03.2015
-
-VA - Living The Blues: The 70s Blues Classics (1997) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby “Blue” Bland - I Wouldn't Treat a Dog (The Way You Treated Me) (3:16)
-02. Ted Taylor - Something Strange Is Goin' on in My House (2:54)
-03. Ann Peebles - (I Feel Like) Breaking Up Somebody's Home (2:29)
-04. Albert King - I'll Play the Blues for You, Part 1 (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B72787DBE53C60ADAFEF611DCEC8D71739BB1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

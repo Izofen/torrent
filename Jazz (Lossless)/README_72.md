@@ -1,3 +1,38 @@
+###  Публикация: 770101   (853187) от 24.03.2014
+
+Oscar Peterson - The Song Is You - Best of the Verve Songbooks (1996) 2CD [FLAC|Lossless]<Bop, Standards, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1 I Only Have Eyes for You (Harry Warren-AI Dubin) 4:07
+2 I Gotta Right to Sing the Blues (Harold Arlen-Theodore 'Ted' Koehler) 5:06
+3 You Must Have Been a Beautiful Baby (Harry Warren-John Herndon "Johnny" Mercer) 4:05
+4 Come Rain or Come Shine (Harold Arlen-Johnny Mercer) 4:27
+5 I Can't Give You Anything but Love (Jimmy McHugh-Dorothy Fields) 5:23
+6 I'm in the Mood for Love (Jimmy McHugh-Dorothy Fields) 3:53
+7. John Hardy's Wife (orig., "John Hardy") (Mercer Kennedy Ellington) 2:32
+8 I Got It Bad (and That Ain't Good) (Duke Ellington-Paul Francis Webster) 3:08
+9 That Old Black Magic (Harold Arlen-Johnny Mercer) 3:03
+10 A Foggy Day (George and Ira Gershwin) 2:51(   Читать дальше...   )Жанр: Bop, Standards, Piano JazzПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF11D70D86DC63AA9399F8E7AFF5E5BF1272B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 306236   (853158) от 09.03.2011
 
 Youn Sun Nah - Voyage (2009) [FLAC|Lossless]<Vocal Jazz>
@@ -739,35 +774,6 @@ Harry Allen - 007 Songs (2010) Swingbros Co. [FLAC|Lossless|image + .cue] <Mains
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE2FFD3959D1D726B8F03062C7452FD2740F1FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377517   (851898) от 22.04.2020
-
-Harry Allen - Viva! Bossa Nova (2008) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [6:21]
-02. Desafinado [5:39]
-03. Dindi [5:04]
-04. Mais que Nada [6:23](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A061042B4FFF79420FF4721868E2F19143746E35
 ```
 
 https://mybot314.ru/tekegram_catalog/

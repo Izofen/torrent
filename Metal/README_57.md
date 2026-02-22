@@ -1,3 +1,29 @@
+###  Публикация: 1393791   (659036) от 24.03.2022
+
+Вury Тomorrow - 6 альбомов + 2 EP + 1 сингл (2007-2022) [MP3|320 Kbps] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DEATH (Ever Colder)Жанр: Melodic MetalcoreПродолжительность: 05:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10FAC7A6D1D5D8C81CEE0CD7AED52333A650630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924323   (658808) от 03.06.2017
 
 Miss May I - 6 альбомов (2009-2017) [MP3|320 кб/с]<Melodic Metalcore>
@@ -737,35 +763,6 @@ Debauchery - Rockers & War (Limited Edition) (2009) [MP3|320 кб/с]<Melodic De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDB3C23D39DE024C2756775576B3A8A823F08F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905165   (652104) от 05.06.2015
-
-Arsenica - Arsenica (2015) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652104.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Destino
-2. Diario De Un Heroe
-3. Rompiendo Cadenas
-4. Lo Que El Mal Hace(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C69E71BD6BBF91A99BAAF8BA298E0F53B3836E
 ```
 
 https://mybot314.ru/tekegram_catalog/

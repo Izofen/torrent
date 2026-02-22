@@ -1,3 +1,176 @@
+###  Публикация: 1818224   (2609) от 15.09.2025
+
+Caliban - Studio Albums (16 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caliban - металкор-группа из Германии, образованная в 1997 году в Хаттингене.1998 - Caliban (EP)
+1999 - A Small Boy And A Grey Heaven
+2001 - Vent
+2003 - Shadow HeartsЖанр: MetalcoreПродолжительность: 12:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44898F5A8576B2844B0872DE6E0C84E71638F224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818225   (2608) от 15.09.2025
+
+Tonix - Santo Domingo (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2608.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dar Bara Manen Ser (Under The Moon Of Love)
+A2 Tornerai Tornero
+A3 Forever
+A4 Sen Jag Fann Dej (We Made Love)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB8B3BCF52FAB37BC9F26F76880FCF5D21E3C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818227   (2606) от 15.09.2025
+
+Taetre - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Taetre - метал-руппа из Гётеборга, Швеция, образована в 1995 году, распалась в 2009.1997 - The Art
+1999 - Out of Emotional Disorder
+2002 - Divine Misanthropic MadnessЖанр: Melodic Death/Thrash MetalПродолжительность: 01:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC54EACDF18F00A3E974E980B3645C56A5A69288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818211   (2600) от 15.09.2025
+
+Vargas Blues Band - Down Under Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Down Under Blues (4:19)
+02.  Tasmanian Blues (3:52)
+03.  Midnight Drive (4:45)
+04.  Sydney Street (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2B424C2CF34483F144C436C82D8ABAF460C980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818383   (2490) от 16.09.2025
+
+Led Zeppelin - Live EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bluse Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Time of Dying (Live from Earl's Court, 1975) [00:11:24]
+02. Trampled Under Foot (Live from Earl's Court, 1975) [00:09:05]
+03. Sick Again (Live from Knebworth, 1979) [00:05:17]
+04. Kashmir (Live from Knebworth, 1979) [00:09:02]Жанр: Bluse RockПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D035B89B76B53BC13907232C8A7827798763D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818329   (2469) от 16.09.2025
+
+Katya Filipova - Катя Филипова (1977) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2469.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Чай За Двама • Tea For Two • Чай Для Двоих
+A2 Начало • Beginning • Casanova Brown
+A3 Дълъг Ден, Кратка Нощ • A Long Day, A Short Night • Длинный День, Короткая Ночь
+A4 Танц За Теб • A Dance For You • Танец Для Тебя(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38686F333013CC66C9DF98679E3721D24DBBB50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818339   (2467) от 16.09.2025
 
 The Rusties Blues Band - disCOVERing the White Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
@@ -571,177 +744,6 @@ Novembers Doom - американская дум/дэт-метал группа 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95159EB1D1E266E841D465BC78BFE2EAF3565E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783456   (1988) от 19.09.2025
-
-Ravager (Germany) - Studio Albums (4 releases) (2017-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ravager - метал-группа из Германии, г. Вальсроде, Нижняя Саксония2017 - Eradicate... Annihilate... Exterminate...
-2019 - Thrashletics
-2021 - The Third AttackЖанр: Thrash MetalПродолжительность: 02:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1C5C4D5782ED6180D0FEFF0B2DA2B289BFC3E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818966   (1982) от 19.09.2025
-
-Paradise Lost - Ascension (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, Death Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Serpent On The Cross [6:14]
-02 - Tyrants Serenade [4:21]
-03 - Salvation [7:08]
-04 - Silence Like The Grave [4:48](   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57F13431CD55E2D23B41969AAF3C15B8927FEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818985   (1963) от 19.09.2025
-
-Yasmine Hamdan - I remember I forget (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hon هون [00:04:38]
-02. Shmaali شمالي [00:03:49]
-03. Shadia شادية [00:03:35]
-04. The beautiful losers الحلوين الخسرانين [00:03:15](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2AC27BB059D0ADA03C5B85AB1A6159D4C6827E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818980   (1962) от 19.09.2025
-
-Native American Music Consort - The Calling of the Wolf (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Native American, World, New Age>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voice of the Midnight Howl [00:03:12]
-02. Path of the White Fang [00:03:25]
-03. Moonlit Ancestral Rite [00:04:15]
-04. Guardian of the Frozen Peaks [00:03:29](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD5DB64ABB0A8812A030137A7D900CAD7D5DE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818885   (1950) от 19.09.2025
-
-Sins Of Omission - Studio Albums (2 releases) (1999-2001) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sins Of Omission - рок-группа из Стокгольма, Швеция. Образовалась в 1996 году1999 - The Creation
-2001 - Flesh On Your BonesЖанр: Melodic Death MetalПродолжительность: 01:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D73380091BA6939F041E1BE8C65A1D1BA970BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818973   (1946) от 19.09.2025
-
-Arjen Anthony Lucassen - Songs No One Will Hear (No Narration) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Rock, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Clock Ticks Down (No Narration) [00:06:47]
-02. Goddamn Conspiracy (No Narration) [00:04:41]
-03. The Universe Has Other Plans (No Narration) [00:05:31]
-04. Shaggathon (No Narration) [00:02:45](   Читать дальше...   )Жанр: Prog Rock, Progressive MetalПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB9BE3B8A61601A3D579BEE7E96D44BBAF47B8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

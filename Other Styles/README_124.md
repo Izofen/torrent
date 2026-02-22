@@ -1,3 +1,32 @@
+###  Публикация: 1246839   (459168) от 12.09.2018
+
+Evgeny Grinko - Evgeny Grinko (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Valse
+02 Serenade
+03 Faulkner's Sleep (D-Moll)
+04 Field(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D559BFFAB296EFE38205C72FEE8D161D5ED7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162340   (458912) от 01.09.2017
 
 Тюргэн Кам - Ahoi (2011) [MP3|320 Kbps] <Rock, Folk, Modern Ethnic>
@@ -721,33 +750,6 @@ Ennio Morricone - Ennio Morricone Lounge Vol 1 (2017) [MP3|320 Kbps] <Soundtrack
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23B9B16F0EAC48D5BDB547F84B3294349D4DBD78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392412   (450050) от 16.09.2018
-
-Канцлер Ги - 17 альбомов (2002-2017) [MP3|97-320 kbps]<Нео-Фолк/блюз>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя исполнительницы - Майя Вячеславовна Котовская — автор и исполнитель песен. Основатель проекта «Брэган Д’Эрт».
-	Родилась 24 июня 1979 года в Свердловске (ныне Екатеринбург). Пишет песни и музыку с 1995 года. Окончила музыкальную школу по классу фортепиано, гитару освоила самостоятельно в 2000 году. Увлекается музыкой (фолк, соул, джаз), историей Средних (   Читать дальше...   )Жанр: нео-фолк,фьюжн,блюзПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D450C9F4002D76C6C9B9A43642CD9C9B56EFB63D
 ```
 
 https://mybot314.ru/tekegram_catalog/

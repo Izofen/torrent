@@ -1,3 +1,32 @@
+###  Публикация: 1768763   (100645) от 29.12.2024
+
+VA - SAW 3 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alter Bridge - Show Me A Sign
+002.Corroded - Dust
+003.Disturbed - Mine
+004. Lacuna Coil - I Like It(   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, Progressive RockПродолжительность: 06:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C0C72A910EFFED13A04136156FDED669A43A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768772   (100624) от 29.12.2024
 
 VA - SAW 5 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
@@ -728,35 +757,6 @@ VA - Fantasy Medieval Celtic Music (2024) [MP3|320 Kbps] <Celtic, Folk, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A937FA072782BE80835F70ADD36F05A79D9D8661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748997   (43797) от 12.09.2024
-
-VA - The Open Hearts. Compilation (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43797.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chanel Beads - Unifying Thought
-002. Coldplay - Speed Of Sound
-003. Harrison Storm - Better With You
-004. Zach John King - The Way I See You(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 09:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27E39C6FD771EE5845A2BCD8EAC40FDF3D787B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

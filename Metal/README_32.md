@@ -1,3 +1,38 @@
+###  Публикация: 301407   (869343) от 28.02.2011
+
+Nasty Tendency - Hello Suckers (2011) [MP3|192 kbps]<Heavy metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Stay Heavy 2:46
+2. Jailbreaker 3:34
+3. Rocket Woman 3:19
+4. Love Is Over 3:28
+5. Gimme The Nite 3:15
+6. Switchblade Serenade 5:28
+7. Burn Baby Burn 4:01
+8. Metal Strikes Again 3:31
+9. Play It Loud 4:17
+10. One More Round 3:46(   Читать дальше...)Жанр: Heavy metalПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A366279ABD274D7365D6A8CC54B06571A53572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 302370   (869340) от 28.02.2011
 
 Destruction - Day Of Reckoning (2011) [MP3|320 kbps]<Thrash metal>
@@ -774,36 +809,6 @@ Lord Vigo - 4 Albums (2015 - 2020) [MP3|320 Kbps] <Epic Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A897AC908CB85A6BA71AC80BD644B83127D1965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873836   (866884) от 01.03.2015
-
-First Fragment - The Afterthought Ecstasy EP (2010) [MP3|320 кб/с]<Technical/Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Ordnance 03:43
-2. Fake Repentance 03:59
-3. Obsolete Ascendancy 04:42
-4. Quintessential Rebirth 04:35
-5. The Afterthought Ecstasy 05:05(   Читать дальше...   )Жанр: Technical/Progressive Death MetalПродолжительность: 00:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D128377AC2EB7D3D385CE2524040961BBE1E54CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

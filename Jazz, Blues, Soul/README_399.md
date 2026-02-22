@@ -1,3 +1,32 @@
+###  Публикация: 1338632   (269015) от 16.11.2019
+
+Junior Mance - Three Classic Albums Plus 1959 - 1961 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269015.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A Smooth One [3:31]
+02. Miss Jackie's Delight [3:56]
+03. Whisper Not [4:23](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 02:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40F4E29FBBDAD21785989856B40A129BFD2C969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338646   (269013) от 16.11.2019
 
 Jay Thomas & The Cantaloupes - The Art of Jazz: Live At SAM (2015) McVouty Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -716,35 +745,6 @@ Bunny Berigan - 1937 - 1938 (1994) Classics [FLAC|Lossless|image + .cue] <Swing,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58BC09CF3F3E4BCF8B5D78C23533F58465F104F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267423   (266735) от 06.12.2018
-
-Art Van Damme - State Of Art (1967 - 1970) 2000, MPS [FLAC|Lossless|image + .cue] <Mainstream Jazz, Accordion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone With The Wind [3:26]
-02. When Your Lover Has Gone [3:14]
-03. I Get A Kick Out Of You [2:38]
-04. My Little Boat [3:15](   Читать дальше...   )Жанр: Mainstream Jazz, AccordionПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7338F385202F1EC9A63BA29B79C75EF4B4344282
 ```
 
 https://mybot314.ru/tekegram_catalog/

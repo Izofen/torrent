@@ -1,3 +1,90 @@
+###  Публикация: 954491   (340100) от 08.11.2015
+
+Nicholas Bridgman - Wheel of Life (2015) [MP3|320 кб/с]<Contemporary Jazz, Smooth Jazz, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Spiral Staircase
+02.  Wheel of Life
+03.  Swingtown
+04.  Planar Texture for Gloria(   Читать дальше...   )Жанр: Contemporary Jazz, Smooth Jazz, PianoПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D1C923CF7E549D8BB980DE7A34EFD20C4F4B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180592   (340026) от 04.11.2017
+
+Samantha Fish - Belle Of The West (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Dream
+02. Blood In The Water
+03. Need You More
+04. Cowtown(   Читать дальше...   )Жанр: Modern BluesПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F799CE26AFF5A0BA907159C836A0FDEFE7A50123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419455   (339987) от 28.10.2020
+
+Jeremiah Johnson - Unemployed Highly Annoyed (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn Down The Garden (05:31)
+ 02. Muddy Black Water (03:49)
+ 03. Cherry Red Wine (04:53)
+ 04. Daddy’s Going Out Tonight (04:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E4379AB7092B74B102E80EAA1DACE795CF2A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954683   (339961) от 08.11.2015
 
 Walter Trout - Battle Scars (2015) Deluxe Edition [MP3|320 кб/с]<Blues, Blues Rock>
@@ -346,41 +433,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 258330   (338822) от 15.11.2010
-
-Glenn Miller (Гленн Миллер) - The Gold Collection (2CD) (Remastering 2001) (2001) [APE|Lossless]<Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_338822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие композиции лидера довоенного джаза, легендарного Гленна Миллера, удостоенного в 2003 году премии Грэмми за вклад в развитие музыки. Пластинки его "Биг Бэнда" из года в год становились самым продаваемыми в США, и буквально все произведения его репертуара стали джазовыми стандартами. (   Читать дальше...)01. Chattanooga Choo Choo (3:29)
-02. Beat Me Daddy, Eight To The Bar (3:03)
-03. Somewhere (2:54)
-04. Frenesi (3:31)
-05. Song Of The Volga Boatman (3:27)
-06. Sun Valley Jump (3:01)
-07. A Little Old Church In England (2:58)
-08. Perfidia (3:20)
-09. Don't Cry Cherie (2:48)
-10. Take The 'A' Train (3:26)(   Читать дальше...)Жанр: Jazz, Big Band, SwingПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074308   (338758) от 19.11.2016
 
 The Bob Lanza Blues Band - Time to Let Go (2016) [MP3|320 Kbps] <Electric Blues>
@@ -702,64 +754,6 @@ Popa Chubby - Two Dogs (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E21E6E400D50BA9B310FF6F06F09C83114D3993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419710   (337418) от 29.10.2020
-
-Marion Brown - Why Not? Porto Novo! Revisited (1966, 1967) 2020, Hat Hut Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Sorella [11:32]
-02. Fortunato [8:36]
-03. Why Not [7:00]
-04. Homecoming [10:19](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C80FA9C2769F40157D8F1BD303D903E42828781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954914   (337343) от 09.11.2015
-
-Charles Brown - Merry Christmas Baby (2015) [OGG| 383-494 кб/с]<Christmas Pop, Blues, Oldies>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merry Christmas Baby
-02. Please Come Home for Christmas
-03. Let's Make Every Day a Christmas Day
-04. I'll Be Home for Christmas(   Читать дальше...   )Жанр: Christmas Pop, Blues, OldiesПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5571D74186C42AD35596C0E69B2F25113A7B53D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

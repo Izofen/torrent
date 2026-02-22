@@ -1,3 +1,29 @@
+###  Публикация: 284666   (937432) от 19.01.2011
+
+Рыболов элит. Ловля щуки по первому льду на жерлицу. (2009) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Этот эпизод о ловле щуки по первому льду на жерлицу. Первый лед понятие относительное. Перволедье все рыболовы ждут с нетерпением. Это многообещающая пора для ловли хищника. Мы решили поохотиться за щукой на самой Волге, а жерлицы выбрали, потому что это самая лучшая снасть для поиска уловистых мест.Жанр: Документальный, Телепередача, СпортПродолжительность: 00:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CFBF08BC2B5776AF8E7EAB49B2BF31108FE144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092990   (937431) от 13.01.2017
 
 VA - Let's Start December Top 2016 (2016) [MP3|320 Kbps] <Trance>
@@ -673,41 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A2093435F22FC396D7BEA07AA4B56F57EAB7886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284293   (937364) от 19.01.2011
-
-VA - Best Of Chill Out (2010) [MP3|320 kbps]<Lounge, Downtempo, Chill Out>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz And Funk - Laid Back (6:08)
-02. Tom And J - Shooting Star (4:25)
-03. Miraflores - Give Me Your Smile (5:22)
-04. Chill Ind - Chieuti (3:08)
-05. Wasis Diop - Galu Nobel (Amour) (1:36)
-06. Chill Groovers - Rirgo (5:00)
-07. Ron Ractive - Danach (5:13)
-08. Club Camarillo - A Happy Day (5:31)
-09. Bud Norris And Terence Seagal - Come For (Chillout-Mix) (7:09)
-10. Don Gorda Project - Daydreaming (6:17)Жанр: Lounge, Downtempo, Chill OutПродолжительность: 09:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEDC69267FA0AAF3A4FE0BB6D505D9210E7489A
 ```
 
 https://mybot314.ru/tekegram_catalog/

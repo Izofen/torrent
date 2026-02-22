@@ -1,3 +1,91 @@
+###  Публикация: 1488961   (927039) от 15.08.2021
+
+Mojo Radio - 2 albums (2011-2013) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mojo Radio - блюз-рок группа из Висконсина, США. Четверка парней стремится открыть новый подход к музыке,
+исполняя тяжелый, олдскульный блюз-рок, сделав акцент на своих героев ретро-70-х, с явно заметным оттенком южного американского рока, используя техасский звук, больше Point Blank, чем ZZ Top, Humble Pie и много Free, the Rival Sons и Blindside Blues Band.--------------------------
+
+01. Torn Asunder (4:31)
+02. Death Of Me (4:55)(   Читать дальше...   )Жанр: Blues Rock |Продолжительность: 01:48:13 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E14B2BBDB600AB0C9987F4FF0A16B89145B5FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095165   (926299) от 20.01.2017
+
+Ray Bryant - Alone With the Blues (1958) 1996, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues #3 [7:15]
+02. Joy (Blues #2) [3:59]
+03. Lover Man (Oh, Where Can You Be?) [3:52]
+04. Me and The Blues (Blues #1) [5:00](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB79FCBCC589BF16C0C42EF98859B9F67615BB48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987434   (926291) от 17.02.2016
+
+The Dave Bailey Sextet - Gettin' Into Somethin' (1960) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Slop Jah [07:44]
+ 02.Little Old Mongoose [06:27]
+ 03.Evad Smurd [03:49]
+ 04.Blues For J. P. [17:13]Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963081A4943DEDF5BA763E90A62D55ACB32A6458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987433   (926281) от 17.02.2016
 
 Dick Katz - Piano & Pen (1959) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
@@ -657,93 +745,6 @@ Monty Alexander - Sunday Night (1985) Remaster, 2016, Solid Records[FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B59162FCCBB7D23D074AB6DF0197AED5714A0E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095498   (924639) от 21.01.2017
-
-Pepper Adams - Encounter! (1968) [WavPack|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Inanout [05:56]
- 02.Star-Crossed Lovers [03:58]
- 03.Cindy's Tune [06:03]
- 04.Serenity [06:31](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F822C9D1C7BF31DE9A9B5CA14A20F140DBF6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987682   (924583) от 18.02.2016
-
-Nancy Harms - Ellington at Night (2016) [MP3|320 кб/с] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lush Life (03:40)
-02. Rocks In My Bed (04:14)
-03. Do Nothin' Till You Hear From Me (02:56)
-04. Lost In Meditation (05:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD2653BC0D1063A511C4C4672DD28AB06BCA6B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095633   (924568) от 21.01.2017
-
-Chico Hamilton - The Master (1973) 2016, Culture Factory[FLAC|Lossless|tracks + .cue] <Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.One Day Five Months Ago [08:03]
- 02.Feels Good [05:33]
- 03.Fancy [03:11]
- 04.Stu [03:57](   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA25A0B5DD25A3E7D9D7250C130AE42EA5CCEAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

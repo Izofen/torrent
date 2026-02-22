@@ -1,3 +1,177 @@
+###  Публикация: 910131   (623295) от 19.06.2015
+
+Barbra Streisand - The Movie Album (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <pop/rock, vocal, ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623295.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Movie Album - тридцатый студийный альбом американской певицы Барбры Стрейзанд, выпущенный 14 октября 2003 года лейблом Columbia Records. В целом, это ее шестидесятый релиз со своим звукозаписывающим лейблом, который был спродюсирован Стрейзанд и ее менеджером Джеем Ландерсом. Концептуальный альбом, он содержит двенадцать песен из любимых фильмов певицы, выпущенных (   Читать дальше...   )01. Smile
+02. Moon River
+03. I'm In The Mood For Love
+04. Wild Is The Wind(   Читать дальше...   )Жанр: VocalПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF969F72900F79DC9F21741FBBD9DEBC554D45A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909541   (623282) от 19.06.2015
+
+Paul van Dyk – Reflections (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <dance, trance, electronic, pop/rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Crush  [07:45]
+ 2.  Time Of Our Lives  [04:26]
+ 3.  Like A Friend  [03:56]
+ 4.  Reflections  [07:15](   Читать дальше...   )Жанр: Dance, TranceПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68CF82D0E0FD5FBD466099F2D15A76A2F337240C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035218   (622437) от 19.07.2016
+
+Jean-Michel Jarre - Equinoxe (1978/2011) [WavPack 2.0|32/384|image + .cue|Vinyl-Rip] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equinoxe Part 1 (2:23)
+02. Equinoxe Part 2 (5:04)
+03. Equinoxe Part 3 (4:59)
+04. Equinoxe Part 4 (7:04)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3D940C1100E465E7EA26199BF87072CE37A1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294483   (622364) от 11.04.2019
+
+Blues Company - Ain't Givin' Up [Mastering YMS X] (2019) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Blues, Electric Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Givin' Up (6:19)
+02. Guns (5:17)
+03. The News (4:02)
+04. Waiting For Springtime (6:53)(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49524F38172E15AACA7797FEEB5F2B485DAAAED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544280   (622202) от 15.04.2022
+
+Лариса Долина - Песня Нептуна (из к-ф «Танцплощадка») (1986) Серия: По Вашим Письмам [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622202.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Песня Нептуна
+(Е. Дога - М. Танич)
+B На Последнем Сеансе Кино
+(Е. Дога - М. Танич)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500BF53E0757A5064D6012EAF2F0FF6152D4A9EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059776   (621889) от 15.04.2022
+
+Надежда Чепрага - Только Ты (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Человеческий Голос
+02. Симфония Чувств
+03. Только Ты
+04. В Краю Родном(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B272478996D8909E21DC36B088F507449B86998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934459   (621888) от 15.04.2022
 
 VA - Лето 2002/Зарубежная супер двадцатка (2002) [FLAC 2.0 16/44,1|image+cue (MC Rip)]<Pop>
@@ -565,181 +739,6 @@ Enigma - MCMXC a.D. (1990) Virgin, Universal Music | Remastered 2016 [FLAC 2.0|2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9635BD46AD88B3ED4F7584445B60D63AF609020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037018   (616882) от 22.07.2016
-
-Gentle Giant - Octopus (1972) 2015, Alucard Music [DTS 5.1|LPCM 2.0|96/24|Blu-ray]  <Rock, Prog Rock, Sympho Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remixed By Steven Wilson (96/24 Stereo LPCM, DTS-HD MA 5.1)
-01. The Advent of Panurge
-02. Raconteur Troubadour
-03. A Cry For Everyone(   Читать дальше...   )Жанр: Rock, Prog Rock, Sympho Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16597DC706D6221599C01E95D9832CF8051EA4CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036869   (616864) от 22.07.2016
-
-Yes - Fragile (1971) 2015, Atlantic [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray] <Rock, Art Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fragile — четвёртый студийный альбом британской прогрессив-рок-группы Yes, выпущенный в 1971 году лейблом Atlantic Records.
-Альбом занимает 11 место в списке Топ-25 лучших альбомов прогрессивного рока по версии Progarchives.com.
-Диск стал первым для клавишника Рика Уэйкмана в составе группы Yes, который пришёл вместо Тони Кэя, начавшего работать над альбомом Fragile, (   Читать дальше...   )01. Roundabout
-02. Cans And Brahms
-03. We Have Heaven
-04. South Side Of The Sky(   Читать дальше...   )Жанр: Rock, Art Rock, Prog RockПродолжительность: 00:51:55 + 00:47:44 + 00:41:13 + 00:41:08 + 00:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8A44649F0DB34A078ADDE778031A9618A50311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295809   (616836) от 14.04.2019
-
-Louis Armstrong - Collection (Unofficial Release, Unknown Year) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Do You Know What It Means To
-02. La Vie En Rose
-03. Same Of These Days(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A9651751BD0F69B2327200917F8A558178502F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036932   (616795) от 22.07.2016
-
-Pink Floyd - The Division Bell (1994) 2014, Rhino Music [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616795.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Division Bell — четырнадцатый студийный альбом английской прогрессив-рок-группы Pink Floyd. На территории Великобритании диск вышел 28 марта 1994 года на лейбле EMI, в США релиз состоялся 4 апреля того же года на Columbia Records.
-
-Музыка по большей части написана Дэвидом Гилмором и Ричардом Райтом, тексты песен посвящены преимущественно теме общения. Запись (   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D234FEA3943D57044FB75A0DA3251F2DF7132E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039511   (616381) от 18.04.2022
-
-VA - Jazz Mix Evening Conversation 1950-2008 (2016) [WavPack|96/32|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gene Ammons - Hittin' The Jug (1960)
-02. Billy Holiday - I’m A Fool To Want You (1958)
-03. Wild Bill Davis & Buddy Tate - Memories Of You (1965)
-04. Ernestine Anderson - As Long As I Live (1981)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B83E215337AA6AC61C7C872E52742747E8FD84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022492   (616253) от 18.04.2022
-
-Benny Goodman / Бенни Гудмен - Как Глубок Океан (1940-1950) 1987 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616253.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Каприс
-A2	Как Глубок Океан
-A3	Граф
-A4	Я Здесь(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286D1278B5E58FA18EAE110F4DA4CD4C1B74DEE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

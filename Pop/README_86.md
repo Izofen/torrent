@@ -1,3 +1,119 @@
+###  Публикация: 1203533   (788215) от 02.02.2018
+
+Dana Dawson (Дана Доусон) - Paris New-York And Me (1991) Columbia, COL 481568 2, Europe [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Да́на До́усон (англ. Dana Dawson; 7 августа 1974, Ямайка (англ.) русск., Куинс, Нью-Йорк, США - 10 августа 2010, Нью-Йорк, США) - американская актриса и певица. Как певица, Дана выпустила свой первый сингл в 1988 году - «Ready To Follow You». Песня была написана французской певицей Жаклин Тайеб (англ.)русск., записана во Франции и достигла Top 20 во французском (   Читать дальше...   )01. Romantic World 4:44
+02. Tell Me Bonita 5:01
+03. Survival 3:45
+04. I'm A Singer 4:03(   Читать дальше...   )Жанр: Electronic, Pop, R&BПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45D6EF7A68776B5FDE9D489F20DE6A6D0D2B0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276524   (788197) от 16.01.2019
+
+VA - Fresh Dance Hits 2019 (2019) [MP3|320 Kbps] <Dance, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jair & Chrizz Morisson - Baby (Don't Let Me Be Alone) (Dolls House Remix)
+02. B.G. The Prince Of Rap feat. Timi Kullai & Nathan Reynolds III - Once You Have Me (Remundo Remix)
+03. Chrizz Morisson feat. Latisha Van Simon - From Here On Up (Dolls UK Edit)
+04. Real System - There Is No More Love (Randy Norton Edit)(   Читать дальше...   )Жанр: Dance, ElectroПродолжительность: 01:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207CE836DFF664643B1DDE807F758D5A52422C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276292   (788190) от 16.01.2019
+
+Marianne Ligthart - Black Tea & Whiskey (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Tea & Whiskey 03:35
+02. Mr. Bartender 04:14
+03. In The Meantime 04:43
+04. Josephine 04:20(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973DBB0FEC1A639CB4A8625C34759AC2222E11E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203457   (788174) от 02.02.2018
+
+Number One Ensemble - 2 Albums, 1 Singles & EPs (1979, 1980) LP, 7" [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одни из интересных основоположников итальянского диско.Список альбомов:
+1979 - Candy Music
+1980 - Gipsylon
+1980 - N.O.E.(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBBA7A891180FEC2DD8953ABBA64C6517683FCFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203483   (788172) от 02.02.2018
 
 Roots - Roots (1979) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -629,122 +745,6 @@ Sarah Brightman - Hymn (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B0D265EA12397F7491312A1A01F4887788AB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388317   (786867) от 05.06.2020
-
-VA - Feel Good Disco Anthems (2020) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Trammps - That's Where the Happy People Go (7:54)
-02. Kc & The Sunshine Band - Get Down Tonight (5:17)
-03. The Spinners - Are You Ready for Love (Single Version) (3:44)
-04. Ecstasy, Passion & Pain - Touch and Go (7'' Version) (4:19)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 02:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EA76BC9F2A9D29A5ABB44974870B3789673E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388220   (786856) от 05.06.2020
-
-Thomas Anders & Florian Silbereisen - Das Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-2. Sie hat es wieder getan (feat. Florian Silbereisen)
-3. Sie ist wieder da
-4. Versuch's nochmal mit mir(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C11F2247338F77AF18195100D7F6B695B2D076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388217   (786844) от 05.06.2020
-
-Thomas Anders & Florian Silbereisen - Das Album (2020) [MP3|320 Kbps] <Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-2. Sie hat es wieder getan (feat. Florian Silbereisen)
-3. Sie ist wieder da
-4. Versuch's nochmal mit mir(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22188E5B6EDE24886EFBE9CEE0D5900CECC3B28F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388387   (786843) от 05.06.2020
-
-Joy - Party Megamix (20 Hits Non-Stop) (2015) Dance Version, RM. [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm in Love (Dance Version) (3:56)
- 02. Magic Eyes (Dance Version) (2:40)
- 03. Fire in the Night (Dance Version) (3:00)
- 04. Countdown of Love (Dance Version) (3:16)(   Читать дальше...   )Жанр: Euro-Disco, 80sПродолжительность: 01:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4D16189231F82971EDB5AC48BCA28E87620414
 ```
 
 https://mybot314.ru/tekegram_catalog/

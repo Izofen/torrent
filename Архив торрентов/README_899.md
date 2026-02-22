@@ -1,3 +1,38 @@
+###  Публикация: 754121   (935373) от 06.02.2014
+
+DJ Nike Twist - TranceWave 082 @ GTI Radio (06.02.2014) [MP3|320 кб/с]<Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Liquid Soul - Nirvana (Activa Remix) (Perfecto Fluoro]
+2. Falcon & Redstar - Lost In A Dream (Original Mix) (Monster Digital]
+3. Cold Rush - Pacific (Original Mix) (Digital Society]
+4. Daniel Kandi vs. Markus Wilkinson - Cityscape (Always Alive]
+5. Thomas Datt & Magnus - Binary Complex (Original Mix) (Borderline Music]
+6. Jimmy Chou - Madison (Original Mix) (INOV8]
+7. Sou Kanai & Sergei Kanev - Defiance (Original Mix) (Infrasonic Future]
+8. Anton Chernikov - Arctic Adventure (Timewave Remix) (JOOF]
+9. Johan Ekman - Movement (Original Mix) (Diverted Music]
+10. Matt Chowski - Simply Magic (Emanuele Congeddu's Magical Touch) (Beyond The Stars](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38BBD0EA9ABA7826A755E2FFFAD5852788549DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753770   (935371) от 06.02.2014
 
 VA - Pedro Del Mar – Mellomania Deluxe 629 (03.02.2014) [MP3|256 кб/с]<Trance>
@@ -703,32 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40AD8CF87E403D24C29DC00D8D02FF5A00826B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753774   (935311) от 06.02.2014
-
-Газета | Сезон у дачи №2 (152) (январь 2014) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6D38A58B6E55BA8C948835BA4AF7AC5F2D58C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

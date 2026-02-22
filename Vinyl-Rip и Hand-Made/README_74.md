@@ -1,3 +1,177 @@
+###  Публикация: 1727085   (108467) от 02.06.2024
+
+VA - Metal Massacre 10 (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Death Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108467.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Betrayal - Sick Or Sane?
+A2 - Solitude - Typhoid Mary
+A3 - Murdercar - Mirage Of Blood
+A4 - Confessor - The Secret(   Читать дальше...   )Жанр: Thrash, Death Metal, Heavy MetalПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2ADBDBDC9F1DCF71A974BD381AB5116B6D18BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727404   (108461) от 02.06.2024
+
+Dark Sarah - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Sarah — финская симфо-метал группа, созданная Хайди Парвиайнен после ее ухода из Amberian Dawn в 2012 году.2015 - Behind The Black Veil
+2016 - The Puzzle
+2018 - The Golden Moth
+2020 - GrimЖанр: Symphonic MetalПродолжительность: 04:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C204351EE67680F5559F4D08EAF1CAA0F4B32D7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727708   (108417) от 03.06.2024
+
+Deicide - Banished by Sin (2024) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108417.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - From Unknown Heights You Shall Fall
+A2 - Doomed To Die
+A3 - Sever The Tongue
+A4 - Faithless(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAF7F4591B0913976D785125AA84992A6405FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727928   (108392) от 04.06.2024
+
+Channel Zero - Studio Albums (8 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Channel Zero — бельгийская метал-группа, образованная в Брюсселе в 1990 году. На пике своей карьеры в 1997 году, группа приостановила детельность, однако в 2009 произошло воссоединение коллектива.1992 - Channel Zero
+1993 - Stigmatized For Life
+1994 - Unsafe
+1996 - Black FuelЖанр: Thrash/Groove MetalПродолжительность: 06:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A5F19740E499FA19EC48ED9D579F25ECAA0F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727866   (108380) от 04.06.2024
+
+Kreator - Terrible Certainty (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blind Faith (04:06)
+02 - Storming With Menace (04:26)
+03 - Terrible Certainty (04:28)
+04 - As The World Burns (03:51)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA834B1AE0427B304A8D19C590199FBAEDADFC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728418   (108346) от 07.06.2024
+
+Chorus and Orchestra of Teatro Communale, Firenze, cond. E. Ghili - Bizet – Carmen (1966) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical, Opera, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Act I
+A1 Habanera: L'amour Est Un Oiseau Rebelle
+A2 Parlez-Moi De Ma Mere
+A3 Seguidilla: Pres Des Rampart De Seville(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B8E051941F5B10140DEC7251090EEEC3D4E70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728449   (108345) от 07.06.2024
 
 VA - Bubblegum Is Back (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop>
@@ -562,178 +736,6 @@ A4 Two Paths(   Читать дальше...   )Жанр: Epic Folk MetalПро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4C21E15A7E0AA1E82F13AE0520D1622A5C0A9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730450   (107858) от 16.06.2024
-
-Torture Squad - Studio Albums (10 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Torture Squad — бразильская дэт/трэш-метал группа, основанная в 1990 году.1998 - Shivering
-1999 - Asylum Of Shadows
-2001 - The Unholy Spell
-2004 - PandemoniumЖанр: Thrash/Death MetalПродолжительность: 08:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B71312888D786CF75616463A890529BC01D0324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731732   (107614) от 22.06.2024
-
-VA - Двое - Песни на стихи Михаила Танича. Записи 1982 - 1984 гг. (1984) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Валерий Леонтьев - Пароходы
-(И. Николаев)
-02. Манана Тодадзе - Скажи мне все(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CC987FD993FC1CBB184203C8239919D33A9F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732021   (107528) от 23.06.2024
-
-S.O.D. - Stormtroopers of Death (Anthrax) - Studio Albums (2 releases) (1985-1999) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover/Hardcore Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107528.jpg" />
-</div>
-
-
-###  Подробнее
-
-S.O.D. (Stormtroopers of Death) — музыкальная кроссовер-трэш группа, сформированная в Нью-Йорке в 1985 году. Группа считается одним из первых кроссовер-трэш коллективов, смешавших в своём творчестве хардкор-панк и трэш-метал.1985 - Speak English or Die
-1999 - Bigger Than The DevilЖанр: Thrash Metal/Crossover/Hardcore PunkПродолжительность: 01:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A833621B679ADD999E5879420C289AA8C7C8FFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732202   (107492) от 24.06.2024
-
-M.O.D. (Method of Destruction) - Studio Albums (9 releases) (1987-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover/Hardcore Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107492.jpg" />
-</div>
-
-
-###  Подробнее
-
-M.O.D. (Method of Destruction) — кроссовер-трэш группа, сформированная в Нью-Йорке в 1986 году бывшим роуди Anthrax и вокалистом Stormtroopers of Death Билли Милано.1987 - U.S.A for M.O.D.
-1988 - Surfin' M.O.D.
-1989 - Gross Misconduct
-1992 - Rhythm Of FearЖанр: Thrash Metal/Crossover/Hardcore PunkПродолжительность: 06:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FFE5E576D22BEC6B9CB021FB6F0380DAEE8E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732625   (107468) от 25.06.2024
-
-Lutharo - Studio Albums (4 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lutharo - канадская метал-группа основанная в 2014 году.2018 - Unleash the Beast (EP)
-2020 - Wings of Agony (EP)
-2021 - Hiraeth
-2024 - Chasing EuphoriaЖанр: Melodic Death/Power/Thrash MetalПродолжительность: 02:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C879AE85426435E987E46CF9E32F120D6CE2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733961   (107203) от 01.07.2024
-
-Luca Turilli (Dreamquest; Rhapsody) - Studio Albums (7 releases) (1999-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лука Турилли — итальянский рок-музыкант, гитарист-виртуоз, клавишник и композитор. Сооснователь пауэр-метал-группы Rhapsody of Fire и соавтор большей части её песен.1999 - King Of The Nordic Twilight
-Luca Turilli's Dreamquest
-Luca Turilli's Rhapsody
-Turilli / Lione RhapsodyЖанр: Symphonic Power MetalПродолжительность: 07:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF1E9CD184C7FD6E4F368E3A1430FCD067C28574
 ```
 
 https://mybot314.ru/tekegram_catalog/

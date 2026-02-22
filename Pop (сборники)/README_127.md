@@ -1,3 +1,32 @@
+###  Публикация: 1790155   (22178) от 07.04.2025
+
+AlimkhanOV A. - Cover Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlantis Is Calling (SOS For Love) (MT Cover) (3:59)
+02. Do You Wanna (Disco Magic Remix) (4:47)
+03. Doctor For My Heart (Extended MT Version) (5:38)
+04. Don't Break The Heart (BBB Cover) (3:40)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 05:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E1B7F2D71A4E85891CA5F2E8D9F68955151511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790552   (21830) от 10.04.2025
 
 Fantastique - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco,>
@@ -717,35 +746,6 @@ Talking Luna - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF5ED598F293968B3A6D491A1C60A3710BA49EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817866   (2612) от 15.09.2025
-
-Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Numero Uno
- 02 - Pasta Con Te (Dream Version)
- 03 - Non Mi Amava Più (Club Version)
- 04 - Bella Bavaria(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0697099B1E10B7126623E25EA8FABA2B1ACB505
 ```
 
 https://mybot314.ru/tekegram_catalog/

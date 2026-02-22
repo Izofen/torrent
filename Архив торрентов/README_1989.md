@@ -1,3 +1,32 @@
+###  Публикация: 1208170   (780114) от 21.02.2018
+
+Paulina Cassidy - Drawing Up A Storm (2018) Projekt Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Darkwave, Ethereal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterdancer (06:08)
+ 02. Ocean Nymph (03:45)
+ 03. Seahorses (03:34)
+ 04. Asleep In The Undercurrent (04:33)(   Читать дальше...   )Жанр: Ambient, Downtempo, Darkwave, EtherealПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9240883905E63FBB277159D0258D9D864C99CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208261   (780098) от 21.02.2018
 
 Surfalone - Surfalone (2018) [FLAC|Lossless|WEB-DL|tracks] <Bass>
@@ -659,32 +688,6 @@ Auslogics File Recovery® - легкая и эффективная в испол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCBF80D04D587FD23ACAF415FA722946ED87F46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208465   (779908) от 22.02.2018
-
-Movavi Video Suite 17.2.1 RePack by KpoJIuK  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Suite – это пакет программ на русском языке, который поможет вам без труда смонтировать отличный фильм, музыкальный клип или слайд-шоу, даже если вы совсем новичок в создании видеороликов. Накладывайте музыку, применяйте визуальные эффекты, добавляйте титры и стильные переходы – обрабатывайте видео на свой вкус! Также в Movavi Video Suite входит набор (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8858D3886B18AFC39A692E2D5BF1D6EBC81F55F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

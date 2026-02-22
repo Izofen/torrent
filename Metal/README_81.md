@@ -1,3 +1,32 @@
+###  Публикация: 1165898   (430307) от 14.09.2017
+
+Ensiferum - Two Paths (2017) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ajattomasta Unesta
+02. For Those About to Fight for Metal
+03. Way of the Warrior
+04. Two Paths(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AF2B6ECE720230EE51202BF063370CD20288EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411153   (429842) от 24.09.2020
 
 NZM - Time's Running Out (2020) [MP3|320 Kbps] <Heavy / Power Metal>
@@ -712,35 +741,6 @@ Lindemann - Steh auf (2019) Single [MP3|320 Kbps] <Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D22ED40C20470D509C5AAEF9BEADACE3A5EFD99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412410   (418462) от 29.09.2020
-
-Mountains of Charlie - Unfinished Business (2020) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overton Window (05:31)
- 02. Echo Chambers (04:33)
- 03. Derrida's Poison (03:53)
- 04. Soma Holiday (04:44)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF19292BF1AAEE8F36078E2C85768FA4BDC4C9BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

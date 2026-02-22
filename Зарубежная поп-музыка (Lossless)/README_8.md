@@ -1,3 +1,32 @@
+###  Публикация: 1352480   (1000721) от 15.01.2020
+
+VA - Acoustic Pop Songs 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Someone You Loved 3:19
+02. Nora & Will - Late Night Feelings 3:57
+03. Shannon & Keast - We Found Love 3:05
+04. Custom 7 - What We Need (Acoustic Version) 2:41(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B20DC252288CF0C177538C886A1AC0E75264B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605304   (995779) от 19.01.2013
 
 ABBA - ABBA (Deluxe Edition) (1975) /2012 Remaster, Polar/ [FLAC|Lossless]<Pop>
@@ -743,35 +772,6 @@ New York Gypsy All Stars - Dromomania (2015) [FLAC|Lossless|WEB-DL|tracks] <Cont
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9623CB1B84283332D53E03A3D41EA9DAC5E15315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973554   (979131) от 09.01.2016
-
-Duran Duran - Astronaut (2004) SACD, 2005 Epic [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Reach Up for the) Sunrise (3:25)
-02. Want You More! (3:37)
-03. What Happens Tomorrow (4:04)
-04. Astronaut (3:24)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E070568B3EB993DF65E504C7A713C01A0BAA45F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

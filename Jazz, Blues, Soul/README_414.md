@@ -1,3 +1,32 @@
+###  Публикация: 1447638   (246023) от 14.02.2021
+
+Kandace Springs - The Women Who Raised Me (2020) [FLAC|Lossless|image + .cue] <Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil May Care - 03:02
+02. Angel Eyes - 06:04
+03. I Put A Spell On You - 04:01
+04. Pearls - 04:47(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645DA9BBC8F47A7D89B63326D57FE4E739E2B1C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620699   (245998) от 21.03.2023
 
 Harry Hmura - Goin’ Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ VA - News & The Blues: Telling It Like It Is (1990) Series: Roots n' Blues [WavP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A2CB6380B4DBE6933B3B537ABDA5FA017DF9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058415   (245515) от 01.10.2016
-
-Harry Manx - 20 Strings And The Truth (2015) [FLAC|Lossless|tracks] <Blues, Folk, World>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Veenarama   (03:24)
-02. Phunkistan   (04:24)
-03. Summertime   (02:59)
-04. Waiting in Vain   (04:32)(   Читать дальше...   )Жанр: Blues, Folk, WorldПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4045BCB064556835C34FFF22225F2253A66BFF5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

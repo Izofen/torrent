@@ -1,3 +1,38 @@
+###  Публикация: 640416   (887483) от 07.04.2013
+
+Edmar Castaneda - Cuarto De Colores (2005) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Sonrisas (3:19)
+ 02. Andrea (4:02)
+ 03. Autumn Leaves (3:38)
+ 04. Cuarto De Colores (5:52)
+ 05. Negrita (1:10)
+ 06. Madrugaga Azul (5:11)
+ 07. Amen (0:38)
+ 08. Alfonsina Y El Mar (5:57)
+ 09. Afrojoropo (4:34)
+ 10. El Camino (4:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640516   (887468) от 07.04.2013
 
 Enrico Galetta - 48 Hour Odyssey (2008) [APE|Lossless]<Jazz - Rock, Fusion, Bass>
@@ -767,36 +802,6 @@ Dr. Lonnie Smith - Spiral (2010) Palmetto Records[FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7217342862AAB189E72B417D8C791F376C2B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870767   (884564) от 19.02.2015
-
-Pain Killer - Cuts Of A Virgin & Buried Secrets (1998) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Scud Attack [03:07]
-02. Deadly Obstacle Collage [00:19]
-03. Damage to the Mask [02:40]
-04. Guts of a Virgin [01:15]
-05. Handjob [00:11](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0DD496A08B9DCCF7F413BC87FA3CA606C2F121
 ```
 
 https://mybot314.ru/tekegram_catalog/

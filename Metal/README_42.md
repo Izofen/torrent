@@ -1,3 +1,32 @@
+###  Публикация: 1201757   (791633) от 26.01.2018
+
+In Vain - Currents (2018) [MP3|320 Kbps] <Melodic Black Metal, Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791633.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Seekers Of The Truth
+2. Soul Adventurer
+3. Blood We Shed
+4. En Forgangen Tid (Times Of Yore Pt II)(   Читать дальше...   )Жанр: Melodic Black Metal, Progressive Death MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29908F199792F1CFADE49BBD07E2F766D56701F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387591   (791333) от 02.06.2020
 
 The Ghost Inside - The Ghost Inside (2020) [MP3|320 Kbps] <Metalcore>
@@ -716,35 +745,6 @@ Caligula's Horse - Rise Radiant (2020) [MP3|320 Kbps] <Progressive Rock, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3D2F8A2B183C5E9BD8A5509164CA1DD89541B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205166   (784035) от 08.02.2018
-
-Therion - Beloved Antichrist (2018) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn From Heaven
-02. Where Will You Go?
-03. Through Dust, Through Rain
-04. Signs Are Here(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3857492065A332009273AF92917A727295AB5942
 ```
 
 https://mybot314.ru/tekegram_catalog/

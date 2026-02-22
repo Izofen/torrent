@@ -1,73 +1,3 @@
-###  Публикация: 472507   (84037) от 24.03.2012
-
-Charlie Parker - Charlie Parker for Lovers (2006) [FLAC|Lossless]<Jazz, Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Easy to Love [03:29]
-02. Loverman [03:23]
-03. I Didn't Know what Time It Was [03:12]
-04. I'm in the Mood for Love [02:51]
-05. Laura [02:58]
-06. Un Poquito De Tu Amor [02:41]
-07. Everything Happens to Me [03:15]
-08. I Love Paris (Take 3) [05:07]
-09. Summertime [02:46]
-10. Autumn in New York [03:28](   Читать дальше...   )2006Жанр: Jazz, Bop, Big BandФормат: CD, CompilationПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472360   (84029) от 24.03.2012
-
-Marcel Loeffler - Source Manouche (2006) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84029.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Swing Suspens
-2. Ma Référence
-3. Fiso Place
-4. Douce Ambiance
-5. Them There Eyes
-6. All the Things You Are
-7. Passion
-8. Pont de Venise
-9. Ruby
-10. Joshua Fit the Battle of Jericho(   Читать дальше...   )2006Жанр: JazzПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472159   (83835) от 23.03.2012
 
 Great Jazz Trio - Standard Collection Vol.1 - Summertime (1988) [FLAC|Lossless]<Jazz,Post-Bop>
@@ -873,6 +803,70 @@ Aleka Kanellidou - Gia ligous, 12 erotic moments, Didyma feggaria (1979-1993) [F
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442201   (72291) от 26.01.2012
+
+VA - Various - Nu Jazz  A Selection Of New Rare Tunes With A Jazz Flavour (2007) [FLAC|Lossless]<World Fusion, Clubjazz, Jazz-House, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Quasimode - 1000 Days For Spirit (7:00)
+02. Slope feat. Jane Hamilton - Find Our Love (Volker Meitz Acoustic Replay) (6:33)
+03. Nostalgia 77 - Wildflower (4:10)
+04. Nomo - Rocket #9 (5:45)
+05. Re Jazz - People Hold On (Metropolitan Jazz remix) (4:57)
+06. Jazzinho - Da tempo Ao Tempo (Nicola Conte Rework) (7:25)
+07. Fdel - that's his name (1:22)
+08. Basement Boys present Mudfoot Jones - boomerang (3:33)
+09. Malko - Follow My Lead (S-Stone Inc Remix) (4:37)
+10. Cleveland Watkiss - So near (4:07)(   Читать дальше...   )2007Жанр: World Fusion, Clubjazz, Jazz-House, Jazz-PopПродолжительность: 02:30:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770620   (71960) от 02.01.2025
+
+Andre Previn & Thomas Stevens - Play A Classic American Songbook (1992) DRG Records [FLAC|Lossless|image + .cue] <Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust/Skylark [6:09]
+02. It Might as Well Be Spring [4:09]
+03. My Funny Valentine [4:37]
+04. Slowly/Laura [5:07](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8185206B8CF924DCC3BB2F74674ED4F1DCBBE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

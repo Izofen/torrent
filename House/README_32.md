@@ -1,3 +1,90 @@
+###  Публикация: 1017586   (761224) от 17.05.2016
+
+VA - Groovedelicious, Vol. 2 (40 Deep & Tech House Sounds) (2016) [MP3|320 кб/с] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystall Refraction - Waterfalls in Catskills (7 Lights Mix) [05:42]
+02. Kalimba - Pillow Flight (The Sky Mix) [05:45]
+03. Deep Factor - Like a Circle (Melodic Synphony Mix) (feat. Martha Fox) [06:42]
+04. Diba Project - Leaving Sleepy Hollow (Progression Mix) [05:44](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F016A402FC18015FD86A441E9C89FEBAE547D84B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017278   (761115) от 17.05.2016
+
+VA - Future EDM Essentials Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quantum Duxe - Sunwalker (Original Mix) 5:17
+02. Savant - Cassette (Notice Me Senpai Mix) 4:56
+03. Distrix - Violet Skies (Original Mix) 5:06
+04. Sasha Lemon - Sunshine (Original Mix) 4:38(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AA87F15DC250AFDEB74776C57AB8552C7699CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394887   (760515) от 07.07.2020
+
+VA - Workout Body Man Extreme (2020) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760515.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stan Kinley - The Party G (4:49)
+2. Yuri Salgado - Small Circle of Friend (3:43)
+3. Quentin - Dream X (4:33)
+4. Leo DJ - Bear Music (6:15)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7674F83ADF3BED756034D25E7DDC06D7D77AA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215566   (758103) от 26.03.2018
 
 VA - Deep House Spring Essentials 2018 [MP3|320 Kbps] <Deep House>
@@ -658,93 +745,6 @@ The Soundlovers - People (1997) [MP3|320 Kbps] <Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:804038E1388EBB67B4668605E8B26B97228EA0CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282766   (743843) от 13.02.2019
-
-Hi_Tack - Say Say Say (Waiting 4 U) (2006) Enhanced [MP3|~245 Kbps (V0)] <House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say Say Say (Wayting 4 U) (2:50)
-02. Oh la la (feat. Morandi) (6:12)
-03. Love Sensation (feat. Loleatta Holloway) (3:01)
-04. Somebodys Watching Me (feat. Beatfreakz) (2:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ACB76FA9465303266D36E4DC07E8BA3CFB74201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397311   (741362) от 19.07.2020
-
-VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Hush - Good Vibrations (3:25)
-02. Orlando - Singing In The Rain (4:06)
-03. Heartclub - Super Trouper (3:53)
-04. DJ Kee - Mamma Mia (3:53)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69750BC0797E214135DE1A7F7D7DED212F7C3251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283139   (741232) от 15.02.2019
-
-BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BK & Christopher Lawrence - Warp (7:23)
-02. BK & EJ Doubell - Butterflies (7:46)
-03. BK & Tom Harding - Raucous (2:56)
-04. BK & Dave Randall - Tiptronic (5:25)(   Читать дальше...   )Жанр: House, Hard HouseПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680F533C78B26AAB6770A5DC385318B16707A37C
 ```
 
 https://mybot314.ru/tekegram_catalog/

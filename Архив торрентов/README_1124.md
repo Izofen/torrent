@@ -1,3 +1,29 @@
+###  Публикация: 1369983   (900333) от 25.03.2020
+
+Movavi Slideshow Maker 6 v6.4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Slideshow Maker – это простая и удобная программа для создания слайд-шоу на русском языке. Вы сможете самостоятельно превращать фотографии из вашей коллекции в красивое видео, причем для этого вам не потребуется каких-либо специальных навыков. Загрузите изображения в программу, соедините фото анимированными переходами, добавьте подходящий саундтрек, наложите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2020Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F59BFE16810954586BC3447E703DC22D6013AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 182582   (900331) от 13.03.2010
 
 Вики Кристина Барселона / Vicky Cristina Barcelona (2008) [1080p] Blu-Ray
@@ -711,39 +737,6 @@ Alex M.O.R.P.H. B2B Woody van Eyden, Chriss Ortega - HeavensGate 236 (08.02.2011
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE48B3332E1368C24A173E4E2D90E9B69872F876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182023   (900227) от 13.03.2010
-
-Telepopmusik - Discography (2001-2009)| [MP3|~96-320 kbps]<Techno, Downtempo, Tech House, Electro>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Французский рекординговый лейбл Source Records несколько лет назад затеял компиляцию новой электронной музыки "Sourcelab". Открытие новых имен в таких проектах просто неизбежно. На третьем сборнике "Sourcelab" неизбежность предстала в виде стильного электронного формирования Telepopmusik. Предложенный ими для сборника трек "Sonic 75" пришелся по вкусу руководству лейбла, а впоследствии и довольно избалованным французским слушателям. Вдохновившись прекрасным приемом, Telepopmusik принялись за новые записи.1 Breathe (New extended mix)
-2 Breathe (Tiga TGV remix)
-3 Breathe (Markus Schulz club mix)
-4 Breathe (Watkins mark us of respect remix)
-5 Smile (Ming & Mangle mix)
-6 Love can damage your health (Laid mix)
-7 Love can damage your health (Freaks downright sleazy speakeasy)
-8 Dance me (Soda pop mix)Жанр: Techno, Downtempo, Tech House, ElectroПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

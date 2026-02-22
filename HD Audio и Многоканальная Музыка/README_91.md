@@ -1,3 +1,177 @@
+###  Публикация: 1696705   (119471) от 03.02.2024
+
+Peter and the Roses - Peter and the Roses (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Disco, Nu-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – First Wave
+02 – Save You (feat. Surahn)
+03 – Burning House (feat. Goldie Boutilier)
+04 – Scary Weather (feat. Jodie Abacus)(   Читать дальше...   )Жанр: Electronic, Disco, Nu-DiscoПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5A25194028FD04440EE4C6AA9DB56396CDF9D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696700   (119463) от 03.02.2024
+
+Ocean Jet - Mind Rivers (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic Rock, Indie Rock, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flock [00:03:17]
+02. Stride [00:03:14]
+03. Mind Rivers [00:03:08]
+04. Not Anymore [00:03:13](   Читать дальше...   )Жанр: Electronic Rock, Indie Rock, SynthpopПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55141ECE8C882DA13B3FA563C234E19493BA8B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696592   (119456) от 03.02.2024
+
+Jennifer Porter - Yes, I Do! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before We Call It A Day (3:46)
+02. Yes, I Do (4:19)
+03. Over You (4:24)
+04. All I Needed Was You (3:57)(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 00:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028314A06A6885CEA69BC48E7B038BA83F15A219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696710   (119454) от 03.02.2024
+
+Hearts & Hand Grenades - Where I Begin (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn (By My Fire) [00:03:37]
+02. Where I Begin [00:03:41]
+03. Boom [00:03:16]
+04. Silver [00:02:57](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABBA8D6AA29BA6F3618806546D37DE5B4C410FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696619   (119450) от 03.02.2024
+
+Larmet - Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Start Me Talking (3:23)
+02. Stormy Monday (5:57)
+03. Stop Breaking Down (6:41)
+04. Long Grey Mare (2:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E7D1A948D71C82F6D34FDB3B044DADCAFB0542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696627   (119447) от 03.02.2024
+
+The Tibbs - Keep It To Yourself (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't It Funny (3:19)
+02. Can't Teach an Old Dog New Tricks (3:33)
+03. For Lack of Better Words (3:30)
+04. Give Me a Reason (2:59)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F15640D5B0DF97DB63E0ADA3E24210FEE680E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696572   (119444) от 03.02.2024
 
 Brookwood Drive - Take A Ride On The Drive (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -568,179 +742,6 @@ Background Music Masters, Smooth Jazz Family Collective - Bellissimo Jazz Italia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F49FCC019D3948A956994CEEE3840C9B27DCA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697093   (119098) от 05.02.2024
-
-Code Elektro - Metal Heart (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nebula Nights [00:04:12]
-02. Metal Heart [00:03:57]
-03. Last Frontier [00:03:50]
-04. City of the Stars [00:03:39](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D835B8CE20D3BEA2A63C5BEE74C87085E34D759A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697095   (119085) от 05.02.2024
-
-Modern Witchcraft - Modern Witchcraft (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Waves [00:04:27]
-02. Corpse Painter [00:04:13]
-03. Bible Belt Baphomet [00:03:51]
-04. Honey Creeper [00:02:52](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5322D60DCDC141F080AED62FF4C505ADC48BC7C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697195   (119082) от 05.02.2024
-
-Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119082.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ravnens Banner
-A2 Frosne Vind
-A3 Må Du Brænde I Helvede
-B1 Latvian Fegurð(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6C74709662552E4386128EF8CA6785B40D02CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696947   (119079) от 05.02.2024
-
-Urne - Studio Albums (3 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Stoner/Sludge Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119079.jpg" />
-</div>
-
-
-###  Подробнее
-
-URNE - британская рок-группа. Сложно определить звучание группы в каком-то одном стиле... Все сводится к одному: тяжести.2018 - The Mountain of Gold
-2021 - Serpent & Spirit
-2023 - A Feast On SorrowЖанр: Stoner/Sludge Metal/MetalcoreПродолжительность: 02:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3D90B3739BF06799A27D9662E946428322A2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697057   (119078) от 05.02.2024
-
-South Of Sundays - Honey Tongue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - She Keeps It Coming (00:05:54)
-02 - Heaven Falls (00:03:15)
-03 - Slow Burn (00:03:26)
-04 - Diamonds In The Rough (00:03:33)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1247A8565022EDF64DE5B9B9F9DA4FE2F24F751D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697278   (119075) от 05.02.2024
-
-Kmfdm - Hyëna (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Industrial Rock, Electro-Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - All 4 1 (00:03:22)
-02 - Rock 'n' Roll Monster (00:03:00)
-03 - Black Hole (00:03:08)
-04 - Hyena (00:05:02)(   Читать дальше...   )Жанр: Progressive Rock, Industrial Rock, Electro-IndustrialПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA6E9F8197646CA7C66396DAF07728569E7243B
 ```
 
 https://mybot314.ru/tekegram_catalog/

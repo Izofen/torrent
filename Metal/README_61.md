@@ -1,3 +1,32 @@
+###  Публикация: 1293665   (635671) от 04.04.2019
+
+Demons & Wizards - Demons & Wizards (1999) 2000, NEMS Enterprises [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rites Of Passage (0:56)
+ 02 - Heaven Denies (5:17)
+ 03 - Poor Man's Crusade (4:02)
+ 04 - Fiddler On The Green (5:56)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C14723C184E38D5D8092F3CC2FDFDFDC146A09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293673   (635493) от 04.04.2019
 
 Nine Inch Nails - Strobe Light (2019) [MP3|320 Kbps] <Industrial Metal>
@@ -717,35 +746,6 @@ Sadman Institute - Revival (2015) [MP3|320 кб/с]<Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:993DB14179040E46A373D55B1B5A148A97449FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909769   (626410) от 18.06.2015
-
-Antagoniste - The Myth of Mankind (2015) [MP3|320 кб/с]<Avant-Garde Black / Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rise of the Lightbringer
-02. The Barren Lands
-03. The Demiruge
-04. The Fall of Man(   Читать дальше...   )Жанр: Avant-Garde Black / Sludge MetalПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890AC4AEB350C9B26A46EA774DBF80F5254A44B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

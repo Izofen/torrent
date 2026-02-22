@@ -1,3 +1,90 @@
+###  Публикация: 1038987   (599678) от 30.07.2016
+
+Mick Kolassa - Taylor Made Blues (2016) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Faced Louise (03:04)
+02. Taylor Made Blues (05:12)
+03. Prison Song (04:16)
+04. I'm Getting Late (02:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FD351FB6EE84D0EE2776465D1FA31FC70EEF91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149804   (598637) от 12.07.2017
+
+Donald Byrd & Doug Watkins - The Transition Sessions (1955, 1956) 2CD, 2002, Capitol Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598637.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Doug's Blues [12:10]
+02. El Sino [10:06]
+03. Crazy Rhythm [07:38](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E173B96D0747E80766BA822BE19B118524181F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149800   (598633) от 12.07.2017
+
+Bria Skonberg - So Is The Day {ECD} (2012) Random Act Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Me in the Back of Your Mind [04:11]
+02. So Is the Day [07:36]
+03. Hip Check [07:31]
+04. I Wish I Hadn't Forgotten [04:04](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D55AF19373D500EFA1286F263B10685FE5C05EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914486   (598575) от 02.07.2015
 
 Art Blakey & Les Jazz-Messengers - Au Club Saint-Germain Vol. 3 (1959) /2014, Columbia/[FLAC|tracks+.cue]<Jazz, Hard Bop>
@@ -676,104 +763,6 @@ Francesco Digilio - A Glass Of Wine (2018) [MP3|320 Kbps] <Smooth Jazz, Easy Lis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93960D6D400A410D05000248258473EAC6DE8C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409364   (596140) от 26.06.2018
-
-Taste (Rory Gallagher) - 3 Albums, 1 Box Set (1969 - 2015) [FLAC|Lossless|image + .cue|tracks+.cue]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Taste появилась в 1966-м, первоначально с Rory Gallagher играли Norman Damery и Eric Kitteringham, но состав, завоевавший славу, был сформирован лишь в 1967 году, когда они переехали в Лондон, где Rory определился окончательно (в золотой состав Taste входили Галлахер - гитара, вокал, Джон Уилсон (John Wilson) - барабаны, Ричард МакКрэйкен (Richard McCracken) (   Читать дальше...   )1969 - Taste
-1970 - On The Boards
-1974 - The Best Of TasteЖанр: BluesПродолжительность: 06:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E0F737A8F4ACAD4C890D30A2EB48D10080A0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526817   (595835) от 25.07.2012
-
-VA - Cafe New York (2005) [FLAC|Lossless]<Big Band, Swing, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy Mitchell - My truly, truly fair [02:48]
-02. Frankie Laine - Jealousy [03:16]
-03. Ella Fitzgerald - I'm making believe [03:13]
-04. Johnnie Ray - All of me [02:10]
-05. Jo Stafford, Johnny Mercer & The Pied Pipers - Candy [03:15]
-06. Jeri Southern - I've got five dollars [01:32]
-07. Leas Paul & Mary Ford - Vaya Con Dias [02:54]
-08. Perry Como - Don't let the stars get in your eyes [02:42]
-09. The Andrew Sisters - I can dream, Can't I? [02:41]
-10. Charlie Barnet - Skyliner [03:03](   Читать дальше...   )Жанр: Big Band, Swing, VocalПродолжительность: 01:10:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526776   (595825) от 25.07.2012
-
-Igor Matković - Sonic Motion (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State of Mind
-02. Sonic Space
-03. Intuition
-04. On the Edge
-05. Blue Flow
-06. Approaching Chaos
-07. Inner Voice
-08. Mood Channel
-09. Doors to Open
-10. Keep It ThereЖанр: JazzПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 959346   (316814) от 24.11.2015
+
+Julien Dore - Love  Live (2015) [FLAC|tracks|WEB-DL]<Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316814.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Viborg (Live) (07:52)
+ 2. hotel Therese (Live) (04:52)
+ 3. Habemus papaye (Live) (03:30)
+ 4. London nous aime (Live) (03:40)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53C05C36EC88B7F9E8813DA82BFEBDFF64517CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181794   (316402) от 10.11.2017
 
 Sandra - Greatest Hits (2008) [FLAC|Lossless|WEB-DL|tracks] <Europop, Synth-pop, Euro Disco>
@@ -714,35 +743,6 @@ VA - 80s Symphonic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59E675B7629C000E39B635D60443FD662C98DE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960638   (305151) от 29.11.2015
-
-VA - Golden Memories - The...Gold Party Collection (2012) 4CD [FLAC|image + .cue]<Pop, Blues, Oldies, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatever Will Be, Will Be (02:08)
-02. Magic Moments (02:43)
-03. Sway (02:45)
-04. Nel Blu, Dipinto Di Blu (02:04)(   Читать дальше...   )Жанр: Pop, Blues, Oldies, RetroПродолжительность: 03:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC0BC2B7C2D2A3BFB1F50A997651872D271BC78
 ```
 
 https://mybot314.ru/tekegram_catalog/

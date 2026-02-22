@@ -1,3 +1,38 @@
+###  Публикация: 638576   (895222) от 03.04.2013
+
+Lazy Bonez - Vol. 1 (2013) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Bring It All Now (feat. Stefan Schwarzmann)
+02. Stainless Steel
+03. First to Go — Last to Know (feat. Marco Hietala & Udo Dirkschneider)
+04. Frozen Love (feat. Stefan Schwarzmann)
+05. Written in the Sky (feat. MC Raaka Pee)
+06. M.I.L.F.
+07. Got a Soul
+08. Free Ride
+09. Poker Face
+10. Return to MeЖанр: Heavy Metal, Hard RockПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046B6CC2A26CD61263A8A44BC636E26213959A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 638366   (895219) от 03.04.2013
 
 Mage - The Tides Of Unknown (2013) [MP3|320 кб/с]<Drum & Bass>
@@ -684,32 +719,6 @@ Total Doc Converter решает проблему конвертирования
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D1A1E9DECFD2DCD3442EE18BD04F6E0EE68EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370661   (895052) от 28.03.2020
-
-USDownloader 1.3.5.9 Portable (27.03.2020) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3290DB77CD9086AB42DBFB883C19F6C671FD72
 ```
 
 https://mybot314.ru/tekegram_catalog/

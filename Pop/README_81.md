@@ -1,3 +1,116 @@
+###  Публикация: 1200330   (796372) от 20.01.2018
+
+Руст (Рустэм Султанов) - Между светом и тенью  (1997) [FLAC|Lossless|image + .cue]<Pop, Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, RockПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41AD78EA46CCD0105AA4E60748514D2ACAF68ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011467   (796352) от 28.04.2016
+
+VA - Running Playlist (2016) [MP3|320 кб/с] <Pop, Dance, Club>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liberation Zulu - Rather Be (03:44)
+02. Underground Charisma - Use Somebody (03:20)
+03. Olafur Ros - Show Me Love (05:55)
+04. Liberation Zulu - Forget You (04:25)(   Читать дальше...   )Производство: On the BeatЖанр: Pop, Dance, ClubПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B22FB38B99E392A87B2AFCACC51E1A9C922D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200229   (796316) от 20.01.2018
+
+Everything But The Girl - Amplified Heart (1994) 2013, RE, RM, 2CD [FLAC|Lossless|tracks + .cue] <Pop, House, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Understand Anything (Home Demo) (4:18)
+02. Rollercoaster (Home Demo) (3:14)
+03. Two Star (Home Demo) (2:57)
+04. Troubled Mind (Home Demo) (3:48)(   Читать дальше...   )Жанр: Pop, House, Downtempo |Продолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C1ECAA999B496A204F4DAE53D2EDAC86AAF9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200216   (796262) от 20.01.2018
+
+VA - New Generation Italo Disco: The Lost Files Vol.6 (2018) [MP3|320 Kbps] <Italo-Disco, Synthpop, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aldo Lesina  -  Castles & Dungeons (Extended Knight Mix)  7:07
+02.  Boris Zhivago  -  Twenty Years Ago (Refurbished Version)  6:42
+03.  Miko Vanilla  -  Goodbye (Fabulous Remix)  6:27
+04.  Boy Blue  -  Take My Heart (Fast Vocal Romantic Mix)  7:06(   Читать дальше...   )Жанр: Italo-Disco, Synthpop, EurobeatПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6627AC6FE720A90659758FA6B233C0534C5F6B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200123   (796206) от 20.01.2018
 
 VA - Fitness Hits 2018 [MP3|320 Kbps] <Dance>
@@ -628,122 +741,6 @@ VA - Euro Disco: The Lost Legends Vol. 12 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1932716BDE8D6F9C7EA001E4A15657E278797E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200727   (794970) от 22.01.2018
-
-VA - Euro Disco: The Lost Legends Vol. 14 (2017) [MP3|320 Kbps] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'I' Featuring Alison Yasou - More Than A Dream (7:43)
-02. Tanay - Just One More Night (5:02)
-03. Double Date - Feel It (7:04)
-04. Kevin Hall - Rocket Man (7:20)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A7745F1E8106FE1480655C859F6BE8C416449F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200724   (794965) от 22.01.2018
-
-VA - Euro Disco: The Lost Legends Vol. 11 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koo De Tah - Too Young For Promises (7:01)
-02. Laurent Voulzy - Les Nuits Sans Kim Wilde (6:39)
-03. Scott Marlowe - Living In Chinatown (7:38)
-04. Telepathic - We Are Telepathique (4:54)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698E30B21EDA7C2284681E36729B5A444F0348D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200823   (794917) от 22.01.2018
-
-Marzio - Smoke On The Volcano (1980) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke On The Water (7:34)
-02. Volcano (5:38)
-03. Jumping (3:38)
-04. The Phantom Of The Opera (6:27)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989E11D5CD52A30515DE4AAE9A8FD9DA42CFBACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200907   (794915) от 22.01.2018
-
-Тина Кароль - Полюс притяжения (2007) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полюс притяжения
-02. Белое небо
-03. Люблю его
-04. Ни к чему(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4EA0FA12BC153A32956C541516962305F68F14
 ```
 
 https://mybot314.ru/tekegram_catalog/

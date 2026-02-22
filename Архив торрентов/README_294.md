@@ -1,3 +1,38 @@
+###  Публикация: 601842   (998040) от 11.01.2013
+
+VA - Armin van Buuren - A State Of Trance Radio Top 20 January 2013 (2013)  [MP3|320 кб/с]<Trance/ House/ Progressive/ Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAM & Alex M.O.R.P.H. - Grotesque (Original Mix) (6:48)
+02. Markus Schulz feat. Ana Diaz - Nothing Without Me (Beat Service Remix) (7:12)
+03. Neev Kennedy with Adrian & Raz - This Heart Is Yours (Philippe El Sisi Radio Edit) (4:06)
+04. James Dymond - Alana (Original Mix) (7:28)
+05. Thomas Bronzwaer - Proteus (Original Mix) (8:41)
+06. Solarstone vs Scott Bond - 3rd Earth (Heatbeat remix) (6:25)
+07. Aiera - Dunes (Ahmed Romel Remix) (8:55)
+08. Anushka De'sai - Far & Close (LTN Sunrise Mix) (6:54)
+09. Luke Bond - Dropzone (radio edit) (3:29)
+10. Tenishia & Ruben de Ronde feat. Shannon Hurley - Love Survives (3:56)(   Читать дальше...   )Жанр: Trance/ House/ Progressive/ VocalПродолжительность: 02:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4DABAFAF2D1AA8811CE3C5EFFE53D6E3E93B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601485   (998039) от 11.01.2013
 
 Чайф - Дети Гор (1993) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Blues Rock, Acoustic>
@@ -677,34 +712,6 @@ PS: Игрушка - бомба!)Жанр: Action/ShooterЯзык интерфе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46D4DB9BC5D946887F5955388459824923DA06EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601691   (997985) от 11.01.2013
-
-Никита Королев, Анатолий Белоусов | Киберсант-Профессионал [2012] [ISO]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеокурс «Киберсант-Профессионал» по праву может считаться энциклопедией киберсантинга. Это самый объемный и всеохватывающий обучающий видеокурс из всех, которые когда-либо выходили в Рунете (по данной теме). В нем присутствует всё, что необходимо для успешного старта, последующего развития и доведения до совершенства вашего интернет-бизнеса.
-
-Материала настолько (   Читать дальше...   )Жанр: Обучающее видеоФормат: ISO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA322584336D3781F0D03D10188342544726DE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

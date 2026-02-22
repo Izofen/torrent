@@ -1,25 +1,22 @@
-###  Публикация: 1719858   (110474) от 01.05.2024
+###  Публикация: 1720299   (110324) от 03.05.2024
 
-Футбол. Лига Чемпионов 2023-2024. 1/2 Финала. Бавария (Германия) - Реал (Мадрид, Испания) (30.04.2024) HDTVRip [H.264/1080p]
+Icecream PDF Editor Pro 3.23 [Multi/Ru]
 
->>Спорт и активный отдых
->>Футбол
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110474.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2023-2024. 1/2 Финала. Бавария (Германия) - Реал (Мадрид, Испания) (30.04.2024)
-СУДЬЯ Тюрпен Клеман (Улинс, Франция)
-Судья на линии 1: Дано Николя (Франция)
-Судья на линии 2: Пажес Бенжамен (Франция)(   Читать дальше...   )Телекомпания: Матч! ФутболЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:53:40
+Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью "умной" панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70807BBC8DD716AAF14816AFB7CA4CBAF2D79B54
+magnet:?xt=urn:btih:75242E456471823DB4A121AE9B9190F3FBE37255
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719487   (110473) от 01.05.2024
+###  Публикация: 1720473   (110323) от 03.05.2024
 
-The Dave Brubeck Quartet - Plays Music From West Side Story (1960, 1965) 1986, Columbia [FLAC|Lossless|tracks + .cue] <Cool>
+The Future Sound Of London - ISDN (30th Anniversary Edition) (2024) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Ambient, Experimental, Modern Classical>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110473.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maria [3:17]
-02. I Feel Pretty [5:11]
-03. Somewhere [4:16]
-04. A Quiet Girl [2:23](   Читать дальше...   )Жанр: CoolПродолжительность: 00:42:19
+01. Just A Fuckin' Idiot [00:05:45]
+02. The Far Out Son Of Lung And The Ramblings Of A Madman [00:04:08]
+03. Appendage [00:02:36]
+04. Slider [00:07:22](   Читать дальше...   )Жанр: Ambient, Experimental, Modern ClassicalПродолжительность: 01:30:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4AF0F99AEA2D968A952ABB0D26E706A90012FC5
+magnet:?xt=urn:btih:59A221855E74075E81E9E6E8924CBB6F63AB48ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719694   (110472) от 01.05.2024
+###  Публикация: 1720373   (110322) от 03.05.2024
 
-Ascia - The Wandering Warrior (2024) [MP3|320 Kbps] <Stoner Doom Metal>
+VA - Trance In Motion Vol.375 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110472.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Greenland [00:05:42]
-02 Blood bridge battle [00:06:32]
-03 Ruins of war [00:04:01]
-04 Dhul Qarnayn [00:02:39](   Читать дальше...   )Жанр: Stoner Doom MetalПродолжительность: 00:51:30
+01. Gary McPhail - The Big Babushka - My Everything (Extended Mix)
+02. Armin van Buuren & GRYFFIN - What Took You So Long (Extended Mix)
+03. Craig Connelly - Perseverance (Extended Mix)
+04. Angelus - Deus Volente (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:21:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D555336FF291DF7428E210CEA10238C2159B614C
+magnet:?xt=urn:btih:F56372F29BC275DC4A0F8CC77B4F9EF143519F58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,26 +82,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719926   (110471) от 01.05.2024
+###  Публикация: 1720334   (110321) от 03.05.2024
 
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Колорадо Эвеланш - Виннипег Джетс (30.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+Сергей Соловьёв | История России с древнейших времен (Том 17, 18) (2014) [MP3, Юрий Заборовский]
 
->>Спорт и активный отдых
->>Хоккей
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110471.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 мая 2024, среда. 04:30 МСК. 1/4 финала - Запад. 5-й матч. Стадион: Канада Лайф-центр (Виннипег, Канада), 15 225 зрителей (99% при вместимости 15 325)
-Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Линейный: Трент Кнорр (Пауэлл Ривер, Канада); Линейный: Марк Шевчук (Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:30
+Знаменитый труд великого русского историка Сергея Михайловича Соловьева (1820-1879) является крупнейшим достижением русской исторической науки XIX в. Соловьев - "первый среди равных" в плеяде блестящих русских историков, в которую входят Н. Карамзин, В. Ключевский, Н. Костомаров, А. Пресняков, Т. Грановский, С. Платонов и многие другие.
+Семнадцатый том (   Читать дальше...   )Жанр: ИсторияИздательство: Нигде не купишьПродолжительность: 40:06:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8362ADEDC40605665A3BE125E702AEA0FE2B9937
+magnet:?xt=urn:btih:ACF92FAF21C73F6C6CF55441B59F888209BEC16A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,26 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719912   (110470) от 01.05.2024
+###  Публикация: 1720496   (110320) от 03.05.2024
 
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Торонто Мэйпл Лифс - Бостон Брюинз (30.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+Михаил Шуфутинский – Тихий Дон (1993) [FLAC|Lossless|tracks + .cue] <Шансон>
 
->>Спорт и активный отдых
->>Хоккей
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110470.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 мая 2024, среда. 02:00 МСК. 1/4 финала - Восток. 5-й матч. Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
-Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Кайл Реман (Стеттлер, Канада); Линейный: Джонни Мюррей (Бипорт, Канада); Линейный: Эндрю Смит (Китченер, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:13
+01. Тихий Дон
+02. Москвичка
+03. Кто был ничем, тот стал никем
+04. Эх, ты жизнь...(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:59:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02D2979A753632A4128348882AC1A2A6CA48B84B
+magnet:?xt=urn:btih:C002AA9C1C30D9BFB2617D0D9475BADD762C4414
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,28 +138,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719626   (110469) от 01.05.2024
+###  Публикация: 1720433   (110319) от 03.05.2024
 
-Mike Holober & The Gotham Jazz Orchestra - Thought Trains (1996) 2004, Sons Of Sound [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+Журнал | Homebuilding & Renovating №6 (2024) [PDF][EN]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110469.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jump Down, Spin Around [11:35]
-02. Big Sky [10:11]
-03. Waltz Medium [7:43]
-04. Thought Trains [6:38](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:09:43
+Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:382411CB2A21791B1040B8809A897D0425DB5349
+magnet:?xt=urn:btih:0A332C7A10EC6308AE6937661B4701ABF7BB1FCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,26 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719930   (110468) от 01.05.2024
+###  Публикация: 1720309   (110318) от 03.05.2024
 
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Нэшвилл Предаторз - Ванкувер Кэнакс (30.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
+Icecream Video Converter Pro 1.43 [Multi/Ru]
 
->>Спорт и активный отдых
->>Хоккей
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110468.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 мая 2024, среда. 05:00 МСК. 1/4 финала - Запад. 5-й матч. Стадион: Роджерс-Арена (Ванкувер, Канада), 19 036 зрителей (101% при вместимости 18 910)
-Главный судья: Франсис Шаррон (Оттава, Канада); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Джеймс Тобиас (Баффало, США); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: TBSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:12
+Мощный, но простой в использовании медиа конвертер, который поддерживает все самые распространенные аудио и видео форматы, включая AVI, MKV, MP4, WMV, MP3, WAV, MPEG, WMA и многие другие, а также позволяет конвертировать медиа файлы для мобильных устройств.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C02C55BCE50261B4E13BB6458A8AF5FF307A6779
+magnet:?xt=urn:btih:D78010006AC37A4D0FE37E580B13ED712643EBA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,21 +190,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719996   (110467) от 01.05.2024
+###  Публикация: 1720260   (110317) от 03.05.2024
 
-Годзилла: Минус один / Godzilla: Minus One / Gojira -1.0 (2023) WEB-DLRip [H.264] [звук с TS] [AD]
+Спящие псы / Sleeping Dogs (2024) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110467.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Послевоенная Япония подвергается нападению Годзиллы.Производство: Япония / Robot Communications, Toho Company, Toho StudiosЖанр: фантастика, боевикРежиссер: Такаси ЯмадзакиАктеры: Сакура Андо, Минами Хамабэ, Рюносукэ Камики, Рикако Миура, Юки Ямада, Мунэтака Аоки, Такато Ёнэмото, Юки Такао, Майкл Ариас, Кураносукэ СасакиПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:36Реклама: Плавающий баннер
+После лечения провалов в памяти бывший детектив по расследованию убийств пересматривает дело десятилетней давности, связанное с жестоким убийством профессора колледжа.Производство: Австралия, США / Gramercy Park Media, Nickel City Pictures, Gala Media CapitalЖанр: детектив, триллер, криминалРежиссер: Адам КуперАктеры: Рассел Кроу, Карен Гиллан, Мартон Чокаш, Томми Флэнаган, Томас М. Райт, Гарри Гринвуд, Пачаро Мзембе, Линн Гилмартин, Паула Арунделл, Элизабет Блэкмор и др.Перевод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:52:18Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
@@ -221,28 +216,225 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719854   (110466) от 01.05.2024
+###  Публикация: 1720464   (110316) от 03.05.2024
 
-Jazzlamic Jihad (The Hard Bop Holy War) - Forbidden Expression (1994) Ratamacue Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Идеальная зависимость / Perfect Addiction (2023) BDRip [звук с TS]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиенна — успешный тренер по боксу. Однажды она узнаёт, что её парень Джэкс, действующий чемпион, изменял ей с её же сестрой. Разъярённая, она решает отомстить бывшему самым болезненным способом — она берётся тренировать единственного боксёра, который может свергнуть Джэкса с пьедестала. Но то, что начиналось как план мести, постепенно перерастает во что-то большее.Производство: США, Германия / Constantin Film, JB Pictures, Arbor FilmsЖанр: боевик, мелодрамаРежиссер: Кастиль ЛэндонАктеры: Ману Беннетт, Росс Батлер, Поппи Гилберт, Киана Мадейра, Мэттью Нозка, Николас Дювернэй, Бри Уинслоу, Райан Баун, Джей Демеритт, Кайлас МахадеванПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720378   (110315) от 03.05.2024
+
+А.А. Иванов | Лабораторные работы по общей электротехнике и электрооборудованию промышленных предприятий (1958) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее пособие предназначено для студентов технологических вузов УССР, в которых читается курс общей электротехники и электрооборудования промышленных предприятий.Жанр: ЭлектротехникаИздательство: ГостехиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BFCCEF91FBA7341605771890C64A8A3F4380A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720444   (110314) от 03.05.2024
+
+Bad Marilyn - Eye Of The Snake (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Die Inside
+02. Eye Of The Snake
+03. Perfect Moment
+04. Retribution(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3187B5D28DF9C94FF402B00DD89C73D1E8B120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720359   (110313) от 03.05.2024
+
+The Last Element - Act I: Find Me in the Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Wreckage
+03. Safe
+04. Ego(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C2A3090C11E4B277588F1FC5CF32D8573A3987E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719826   (110312) от 03.05.2024
+
+James Grant & Jody Wisternoff - Live @ Anjunadeep London, Roundhouse London, United Kingdom (2024-03-09) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. The Chemical Brothers - Escape Velocity (Ezequiel Arias Remix)
+03. ID - ID
+04. Dosem - Beach Kisses (2023 Mix)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6C3928814D5291DB236D017132AA3D50A3C316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720347   (110311) от 03.05.2024
+
+VA - Armin van Buuren - A State Of Trance 1171 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & D.O.D ft. Laura Welsh - By Now (Tune Of The Week)
+02. Joris Voorn & AVIRA - The Orange Theme
+03. Mhammed El Alami & EGGSTA - Through An Avalanche
+04. Protoculture - In Bloom (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C707C65D9D7414424AF58841FDDE083911C3179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720507   (110310) от 03.05.2024
+
+Ironsmith - Ironsmith (2024) [MP3|320 Kbps] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whose Hand (04:14)
+ 02. A Heart For A Kingdom (04:00)
+ 03. More Than This (03:08)
+ 04. Make Straight The Path (03:59)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC907E1B33EE1A860BD073BE7F47B013BB9E883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720369   (110309) от 03.05.2024
+
+Kandace Springs - Run Your Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110466.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nadroj [5:54]
-02. Hotline [5:46]
-03. Under the Moon [6:24]
-04. Yellsker Bellsker [5:40](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:49
+01. Run Your Race
+02. So Far So Near
+03. Chasing Shadows
+04. What Was I Made For(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C6C5B191519134ABB3ECDEF73BFD22FE3B992BA
+magnet:?xt=urn:btih:B0CE66B33691F5C584C127179487579EC1612C63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,28 +442,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719876   (110465) от 01.05.2024
+###  Публикация: 1720273   (110308) от 03.05.2024
 
-Tanshuman Das - Progress Report (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+Спящие псы / Sleeping Dogs (2024) WEB-DLRip [звук с TS] [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110465.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Battle theme
-02 - Machine
-03 - Scarlet
-04 - Fearless leader(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:53
+После лечения провалов в памяти бывший детектив по расследованию убийств пересматривает дело десятилетней давности, связанное с жестоким убийством профессора колледжа.Производство: Австралия, США / Gramercy Park Media, Nickel City Pictures, Gala Media CapitalЖанр: детектив, триллер, криминалРежиссер: Адам КуперАктеры: Рассел Кроу, Карен Гиллан, Мартон Чокаш, Томми Флэнаган, Томас М. Райт, Гарри Гринвуд, Пачаро Мзембе, Линн Гилмартин, Паула Арунделл, Элизабет Блэкмор и др.Перевод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:52:18Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B60C30B9D035FB7C3DB70BFE4846D4552C6DADA7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,28 +468,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719703   (110464) от 01.05.2024
+###  Публикация: 1720389   (110307) от 03.05.2024
 
-Double Horse - Diablerie (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom, Occult, 70's>
+PhotoDirector - Редактор фото 19.1.7 Mod by Balatan [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110464.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Last House on the Left [00:07:47]
-02. Blind Dead [00:04:58]
-03. Castle Crypt [00:06:58]
-04. Lady Bathory [00:05:52](   Читать дальше...   )Жанр: Stoner Doom, Occult, 70'sПродолжительность: 00:37:47
+PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.04.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE4EC0235180A6EB631AB8254C5169F6E9F8E31D
+magnet:?xt=urn:btih:CC2C092B165A3E0A0BEC0EBD142F73E313E90A85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,28 +494,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719674   (110463) от 01.05.2024
+###  Публикация: 1720342   (110306) от 03.05.2024
 
-Exiled on Earth - Vertenbra (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power, Thrash Metal>
+Bobby Watson - At the Gouvy Festival: In The Groove (2000) Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110463.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Revived Entity [00:04:48]
-02. Constellations Collapse [00:04:38]
-03. The Messenger From The Red Aeon [00:04:17]
-04. The Dying Sun of Sarnath [00:05:18](   Читать дальше...   )Жанр: Progressive Power, Thrash MetalПродолжительность: 00:42:08
+01. Confirmation [11:16]
+02. Footprints Wayne Shorter [15:23]
+03. The Shadow of Your Smile [11:06]
+04. Cherokee [11:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58CC85F1C2BF975080811A7C0E558E5BE4C06332
+magnet:?xt=urn:btih:2DFE943F1F7ADEB55B63A68D2BDF5E72FB5B8736
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +523,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719836   (110462) от 01.05.2024
+###  Публикация: 1720476   (110305) от 03.05.2024
 
-Emitt Rhodes - Rainbow Ends (2016) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Белая рабыня / Den hvide slavinde (1907) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коротенькая, но очень драматическая история. Субтитры отсутствуют, поэтому перескажу сюжет. Просьба не усмехаться, это все же драма. Провинциальная девушка по объявлению в газете нашла хорошо оплачиваемую работу в большом городе. То ли гувернанткой, то ли горничной. Полная надежд она уезжает в город. Но, о, разочарование! На самом деле, местом ее работы оказался, (   Читать дальше...   )Производство: Дания,  Nordisk FilmЖанр: короткометражный, драма, немое киноРежиссер: Вигго ЛарсенАктеры: Герда Дженсен, Вигго Ларсен, Густав ЛундЯзык озвучки: немойСубтитры: отсутствуютПродолжительность: 00:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78089350EDA6849B9D1B0222E3FBA7E368144B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720401   (110304) от 03.05.2024
+
+Nevercenter CameraBag Pro 2024.1.0 (x64) Portable by 7997 [En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110304.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag Pro позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag Pro к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1637094AEAFA97279F460D8387BD842BCEF5EE36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720275   (110303) от 03.05.2024
+
+Агент-9. Миссия: уничтожить / MR-9: Do or Die (2023) WEB-DLRip [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Секретный агент элитного уровня с командой особого назначения противостоят международной преступной организации, возглавляемой безжалостным, но очень харизматичным бизнесменом Россом. Для него все подчинено самой важной цели — установить новый мировой порядок. На стороне Росса самые новые военные разработки. Он не остановится ни перед чем.Производство: США, Бангладеш, Jaaz Multimedia, Al Bravo Films, Avail EntertainmentЖанр: боевик, триллер, драмаРежиссер: Азиф АкбарАктеры: Абм Сумон, Майкл Джей Уайт, Нико Фостер, Фрэнк Грилло, Сакши Прадхан, Келли Грейсон, Мэтт Пассмор, Томас Надас, Мишель Ван, Оми ВайдяПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:48:09Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720497   (110302) от 03.05.2024
+
+V.A. - Best Sound of Chill & Lounge 2024 - Summer Edition (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110462.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dog on a Chain (3:44)
-02. If I Knew Then (3:59)
-03. Isn't It So (2:26)
-04. This Wall Between Us (2:49)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 00:37:01
+01. Soundset City - Keep on Moving
+02. Jean Mare - Kling Klang
+03. Audiozoom - Happy Smile
+04. Dave Neville - Rapture(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9281AD167A19FABA1F8BAF7FD4D529D1F1F5B9D6
+magnet:?xt=urn:btih:BC2B48BB586A1F9EA44F6B8CB9FCF1E4CDA9907E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,169 +630,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719823   (110461) от 01.05.2024
+###  Публикация: 1720489   (110301) от 03.05.2024
 
-In Search Of Sun - Lemon Amigos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Electric (3:56)
-02. Contagious (4:26)
-03. Lemon Amigos (4:12)
-04. The Fire I Play With (4:23)(   Читать дальше...   )Жанр: Alternative Metal, Progressive RockПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0033BA4217A6F1B57D56DF6813853CB4A15273F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719490   (110460) от 01.05.2024
-
-Judy Garland - That's Entertainment! (1960) 1987, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Entertainment [2:31]
-02. Who Cares (As Long as You Care for Me) [1:32]
-03. I've Confessed to the Breeze (I Love You) [3:08]
-04. If I Love Again [2:42](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047CB38AEA6EE4F5809A8C4E1B3E59C9F7A5D54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719888   (110459) от 01.05.2024
-
-Niels van Gogh - The Rebel (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, Hard House, Hard Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niels van Gogh – The Rebel (3:04)
-02. Niels van Gogh – The Rebel (extended mix) (4:46)Жанр: Club House, Hard House, Hard TranceПродолжительность: 00:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FE3EEAA3E5689BFE2848E544ABA223C334C704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719620   (110458) от 01.05.2024
-
-Dave Brubeck - Blue Rondo: The 1987 Dave Brubeck Quartet (2000) Concord Jazz [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Does Your Garden Grow? [5:57]
-02. Festival Hall [5:59]
-03. Easy as You Go [3:19]
-04. Blue Rondo a la Turk [7:36](   Читать дальше...   )Жанр: CoolПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD8AFD2F95631CADD57C715D95D55AB5585D220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719889   (110457) от 01.05.2024
-
-Niels van Gogh - Rave All Night (2023) [FLAC|Lossless|tracks] <EDM, Future House, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niels van Gogh – Rave All Night (2:34)
-02. Niels van Gogh – Rave All Night (extended mix) (4:03)Жанр: EDM, Future House, Club HouseПродолжительность: 00:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CC455758498A88E776D05076A6F9FC97226D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719461   (110456) от 01.05.2024
-
-The Acid Machine - Mushrooms (2024) [MP3|320 Kbps] <doommetal, stoner>
+Митьки - Митьковские танцы (1997) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110456.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Sky Opened [00:05:42]
-02 - Acid Machine [00:05:23]
-03 - Mushrooms [00:05:36]
-04 - Wild Sap [00:03:49](   Читать дальше...   )Жанр: doommetal, stonerПродолжительность: 00:44:52
+01. Икарушка
+02. Брат не пей, сестра не кури
+03. Разговор с Лениным
+04. Чаепитие в Москве(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:52:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4587387D2585D9EC445E7AEFAF03E1F71BB494B
+magnet:?xt=urn:btih:1F4C08AC68DB0F7A5258342BAF60DA8192B7E525
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,28 +659,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720038   (110455) от 01.05.2024
+###  Публикация: 1720519   (110300) от 03.05.2024
 
-Thalia - The River Of Books (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
+FastCopy Pro 5.7.7 [Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110455.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The River Of Books
-02 - Vision Empire
-03 - AtmoSign
-04 - Body & Soul(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:52:12
+FastCopy - инструмент для быстрого копирования/удаления файлов и папок. Поддерживает юникод (unicode) символы и пути/имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09D55259E27134564A9843C7A11C45346672B7AC
+magnet:?xt=urn:btih:CC68B11190AFAC6E238214B7F4D180FD87DE3F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,171 +685,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719825   (110454) от 01.05.2024
+###  Публикация: 1720431   (110299) от 03.05.2024
 
-U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+Леонид Каневский. Народный артист (2024) WEBRip [H.264/1080p]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Документалистика и Телепередачи
+>>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110454.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110299.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Tongue Reaper
-A2 Make The Move
-A3 Keeper Of My Soul
-A4 In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:50
+Актер, телеведущий или… герой популярных мемов? А может — друг, которого знают все — от мала до велика? Леонид Каневский — артист, покоривший сердца миллионов зрителей. В чем секрет его успеха и почему уже много лет подряд он феноменально популярен? Вслед за Леонидом Семёновичем Каневским авторы фильма отправятся на сцены театров, съемочные площадки фильмов и программ. (   Читать дальше...   )Производство: Россия | «Free Motion»Жанр: ДокументальныйРежиссер: Арина ПрошинаУчастники: Леонид Каневский, Анна Березина, Наталья Каневская, Евгений Стычкин, Константин Хабенский, Игорь Верник, Леонид Ярмольник, Клара Новикова, Евгений Маргулис, Александр КаневскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:56:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:177683999F4E23A3BBA4A2F864FB76812DEAF171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719834   (110453) от 01.05.2024
-
-Emitt Rhodes - The Emitt Rhodes Recordings 1969-1973 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother Earth (2:30)
-02. Pardon Me (2:46)
-03. Textile Factory (3:05)
-04. Someone Died (2:04)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 02:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78728AB803DBEA869A8CDA54D41DEC6F52CE9C46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719822   (110452) от 01.05.2024
-
-Azaab - Summoning the Cataclysm (2022) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandemonium Twilight
-02. Carbon Plague
-03. A Hollow Pact
-04. Preachers Of Hate(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00: 38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B908286F4AE705FABE56FDBD493ECAD86145BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719972   (110451) от 01.05.2024
-
-Amiensus - Reclamation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blink of the Moment (5:28)
-02. Reverie (5:28)
-03. Senses Amplified (7:04)
-04. Sun and Moon (8:38)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F60C43600A1EF8829BAACF707693FA711C49CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719505   (110450) от 01.05.2024
-
-Invalid Yellow - Hendecagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Point [00:03:26]
-02. Line [00:02:53]
-03. Triangle [00:02:15]
-04. Square [00:03:42](   Читать дальше...   )Жанр: Progressive Metal, Heavy ProgПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8E15F4A6A90EA9784ABD8C1AD17F2F15CDE104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719919   (110449) от 01.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Нью-Йорк Айлендерс - Каролина Харрикейнз (30.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110449.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 мая 2024, среда. 02:30 МСК. 1/4 финала - Восток. 5-й матч. Стадион: Пи-Эн-Си-Арена (Роли, США), 18 874 зрителя (99% при вместимости 19 041)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Кендрик Николсон (Милвертон, Канада); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: TBSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4457E7E81FD5D9C2BC7256F5DCAA643222378518
+magnet:?xt=urn:btih:A8255C23F4CDA2D2C9258B0E0EEC244F0D7F4934
 ```
 
 https://mybot314.ru/tekegram_catalog/

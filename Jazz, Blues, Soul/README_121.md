@@ -1,3 +1,90 @@
+###  Публикация: 1108505   (863194) от 25.02.2017
+
+Gerry Mulligan & Stan Getz - Getz Meets Mulligan In Hi-Fi (1957) 1999, Verve [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Let's Fall In Love [06:28]
+ 02.Anything Goes [03:38]
+ 03.Too Close For Comfort [06:58]
+ 04.That Old Feeling [05:59](   Читать дальше...   )Жанр: CoolПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E8F4C6CF846CFB1B515380D2045648D63D3272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497650   (863162) от 23.09.2021
+
+Terry Gibbs Quartet - Plays Terry Gibbs Featuring Alice McLeod (1963) 2012, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burton Up Your Lip [2:25]
+02. Up at Logue's Place [3:12]
+03. One for My Uncle [2:44]
+04. Ballad for Barbara [3:47](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDAE1397162109EB2C7826F854C91F9C9B58915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999849   (863147) от 23.03.2016
+
+Bobby Hutcherson - Happenings (1966) Remaster, 1999, Toshiba[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aquarian Moon [07:46]
+ 02.Bouquet [08:11]
+ 03.Rojo [06:04]
+ 04.Maiden Voyage [05:52](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7ADCA8BB0395EAF447E99212F0B1F2531259DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999501   (863145) от 23.03.2016
 
 Grant Green - Talkin' About (1964) 1999, Blue Note Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
@@ -688,96 +775,6 @@ Nighthawks - Today (2010) [FLAC|Lossless]<Nu Jazz, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1443050D38ACFAFEFCCB3663B24DB04399060764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874790   (861371) от 04.03.2015
-
-Rosa King - The Best Of Rosa King & Upside Down (1995) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. You've Changed Your Mind (05:44)
-02. Georgia On My Mind (04:44)
-03. I Never Knew (04:02)
-04. Why (07:54)
-05. Lonely Me (03:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD32924458330FFDA48FEB31E29B0A56F6C657EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874699   (861279) от 04.03.2015
-
-Nighthawks - As The Sun Sets (2004) [FLAC|Lossless]<Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Descend (6:02)
-02. Norways (5:46)
-03. Receptions In Brazil (5:15)
-04. Managing The Beatles (4:44)
-05. Capetown Unvisited (5:53)(   Читать дальше...   )Жанр: Future JazzПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49E62E4B792AD9DF11EDC4A65EB06678839D8F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874899   (861278) от 04.03.2015
-
-Nir Felder - Golden Age (2014) [FLAC|Lossless]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Lights
-02. Bandits
-03. Ernest / Protector
-04. Sketch 2
-05. Code(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44B4F56EAB343726497F5C848ED645DDA343D65
 ```
 
 https://mybot314.ru/tekegram_catalog/

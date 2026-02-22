@@ -1,3 +1,32 @@
+###  Публикация: 1106831   (871391) от 20.02.2017
+
+2002 - Celtic Fairy Lullaby (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seoithín Seo Hó Gartan Mother's Lullaby
+02. Cariad
+03. Bí Thusa Mo Shúile
+04. Away from the Roll of the Sea(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EAF3FFF7DD4436495704E6EF134AA11F9CECDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106771   (871220) от 20.02.2017
 
 VA - Ёлки 5 (Музыка к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -761,35 +790,6 @@ Ancient Future - Asian Fusion (1993) [MP3|320 кб/с] <Folk, World, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B729215DA2C3474CF6CCB2E9A8494F7BF616968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998734   (868439) от 20.03.2016
-
-Celtic Woman - Solo (2015) [MP3|320 кб/с] <Celtic folk, World, New age>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chloe - To Where You Are
-02. Lisa Kelly - Home and the Heartland
-03. Lynn Hillary - Carolina Rua
-04. Meav - Marble Halls(   Читать дальше...   )Жанр: Celtic folk, World, New ageПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9659DA7613E1BEF7E7838CD733870D92487111
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,105 @@
+###  Публикация: 759811   (905498) от 23.02.2014
+
+Arve Henriksen - Cartography (2008) [FLAC|Lossless]<Avant-Garde, Modern Composition>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Poverty And Its Opposite
+ 02. Before And Afterlife
+ 03. Migration
+ 04. From Birth
+ 05. Ouija
+ 06. Recording Ange
+ 07. Assembly
+ 08. Loved One
+ 09. The Unremarkable Child
+ 10. Famine’s Ghost(   Читать дальше...   )Жанр: Avant-Garde, Modern CompositionПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CB18CF3458000F5A4925277AC8BAD6FBCB18C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760092   (905497) от 23.02.2014
+
+Bettye Swann - The Complete Atlantic Recordings (2014) [FLAC|Lossless]<Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Victum of a Foolish Heart [03:01]
+ 02. Cold Day in Hell [03:03]
+ 03. I'd Rather Go Blind [02:44]
+ 04. Today I Started Loving You Again [02:52]
+ 05. Yours Until Tomorrow [03:31]
+ 06. I'm Not That Easy to Lose [03:42]
+ 07. Till I Get It Right [02:57]
+ 08. The Boy Next Door [03:22]
+ 09. Kiss My Love Goodbye [03:24]
+ 10. Time to Say Goodbye [03:34](   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9B7AE3D2AB4D1EA6012B4AAB178C2A46F22D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760104   (905485) от 23.02.2014
+
+B.T. Express - Keep it Up (2012) [FLAC|Lossless]<Funk, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. This Must Be The Night For Love
+ 02. It's Got To Be You
+ 03. Star Child
+ 04. Keep It Up
+ 05. Just Can't Stop Dancin'
+ 06. Dancin' Dream
+ 07. Let Yourself GoЖанр: Funk, DiscoПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984552A8DFF0170F0AE89A165A0C6F86906D7798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099357   (905447) от 01.02.2017
 
 The Ned Irving Quintet - Round & Round (1996) Rafsky Records[FLAC|Lossless|image + .cue] <Post-Bop>
@@ -703,93 +805,6 @@ Randy Brecker - In The Idiom (1987) Denon [FLAC|Lossless|tracks + .cue] <Post-Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2134FA442C6AB5F6C9438C4FE968F53930AE4C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369207   (903813) от 23.03.2020
-
-Bill Evans - Escape (1996) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Билл Эванс (англ. Bill Evans, 9 февраля 1958, Кларендон Хиллс, Иллинойс, США) — американский саксофонист. Основные направления — джаз-рок, современный джаз, экспериментировал с рэгги, фанком, блюграссом и хип-хопом. Первоначальную известность получил как участник ансамбля Майлза Дэвиса и группы Mahavishnu Orchestra. Был неоднократно номинирован на премию «Грэмми». (   Читать дальше...   )01. Swing Hop
-02. Escape
-03. Reality
-04. The Sunday After(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CF12D8B98D1D800AC2AB11B859EB2CED4095A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099792   (903712) от 02.02.2017
-
-Lawrence Brown - Slide Trombone (1955) 1999, Verve[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rose Of The Rio Grande [03:57]
- 02.Caravan [06:01]
- 03.Down The Street, 'Round The Corner Blues [04:22]
- 04.Where Or When [03:22](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFA93185E79D134F3E318883C8731089FDCDE32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099902   (903707) от 02.02.2017
-
-Harry Verbeke & Rob Agerbeek Quartet - Seven Steps (1982) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Seven Steps [05:53]
- 02.Ghana [07:19]
- 03.Without A Song [07:10]
- 04.Ladies Birthday [05:18](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5CAFC5C0DD9BEAA5C6E527DEE2AE748C02B7AC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

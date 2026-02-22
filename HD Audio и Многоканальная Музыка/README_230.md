@@ -1,3 +1,178 @@
+###  Публикация: 1758838   (38270) от 04.11.2024
+
+Svaneborg Kardyb - Superkilen (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superkilen (5:58)
+02. Cycles (4:20)
+03. St. Pancras (3:46)
+04. Vakler (4:58)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2021EBB1F3AA595FDB1292DA432A14F4C1B012AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519857   (38256) от 05.11.2024
+
+Motley Crue - Studio Albums (10 releases) (1981-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] < Heavy/Glam Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mötley Crüe — американская глэм-метал группа, основанная в Лос-Анджелесе в 1981 году.
+Группа была создана бас-гитаристом Никки Сиксом и барабанщиком Томми Ли, к которым впоследствии присоединились гитарист Мик Марс и вокалист Винс Нил.1981 - Too Fast for Love
+1983 - Shout At The Devil
+1985 - Theatre Of Pain
+1987 - Girls, Girls, GirlsЖанр: Heavy/Glam Metal, Hard RockПродолжительность: 11:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E827EA74E336AE7B60CB4C0A69FF9E7B129D728C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668555   (38210) от 05.11.2024
+
+Withering Surface - Studio Albums (7 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Withering Surface - Melodic Death Metal группа из Нестведа, Дания. Основана в 1993 году.1997 - Scarlett Silhouettes
+1998 - The Nude Ballet
+2001 - Walking on Phantom Ice
+2004 - Force The PaceЖанр: Melodic Death MetalПродолжительность: 04:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF91E5458263DBA29058FFE0C03959E98A79C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758902   (38198) от 05.11.2024
+
+Nordic Twilight - Nordic Twilight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nordic Twilight (3:48)
+02. Edge of Frozen Hearts (4:37)
+03. Sleeping Beauty (5:04)
+04. Free Me (4:08)(   Читать дальше...   )Жанр: Symphonic Power Metal, Female VocalПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E238B99420377964628BD14FEFE0527EECB4251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758971   (38196) от 05.11.2024
+
+Circle Of Mud - Inside The Circle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Circle (3:40)
+02. Six Feet Under Ground (3:58)
+03. Snake (3:14)
+04. Since You're Gone (5:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607CCB3E8F8937BB4332B161F82ED17759A4C08E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758966   (38195) от 05.11.2024
+
+63 Deluxe - 63 Deluxe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Say (4:11)
+02. My Favourite Hurricane (5:18)
+03. Too Late (4:02)
+04. Did You Really Think (4:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27F1B4828040FE5E93BECD42873C87810812D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758972   (38194) от 05.11.2024
 
 Koko-Jean & The Tonics - Love Child (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock, R&B/Soul>
@@ -572,181 +747,6 @@ Crippled Black Phoenix - The Wolf Changes Its Fur But Not Its Nature (2024) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAE34CB5A8A4EBBDD217F892D5EC3E5BD6D8226F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759964   (37570) от 11.11.2024
-
-Shaka Ponk - Shaka Ponk (2023) Deluxe Edition, 2024, Tot Ou Tard [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Electro-Rock, Pop Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell of a Sad Song [00:02:07]
-02. The Underground [00:03:06]
-03. We Don't Give a Fuck [00:06:17]
-04. Sex Ball LGBT + (Live on Uranus) [00:09:50](   Читать дальше...   )Жанр: Alternative Rock, Electro-Rock, Pop PunkПродолжительность: 2 CD, 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCA9DD7B1542B3D07EC405BDC172E78CDF52E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583521   (37545) от 12.11.2024
-
-Blind Guardian - Studio Albums (13 releases) (1988-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Speed/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blind Guardian — немецкая метал-группа, образованная в 1984 году в городе Крефельд. Считается одним из пионеров пауэр-метала, однако музыка группы часто выходит за рамки этого жанра.
-Тексты многих песен группы, которые пишет вокалист Ханси Кюрш, основаны на сюжетах фантастических произведений: книг Джона Толкина, Майкла Муркока, Стивена Кинга, а также на легендах (   Читать дальше...   )1988 - Battalions Of Fear
-1989 - Follow The Blind
-1990 - Tales From The Twilight World
-1992 - Somewhere Far Beyond(   Читать дальше...   )Жанр: Speed/Power MetalПродолжительность: 14:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B3C75E32148359B23793D347F09EC6C8C2B949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552689   (37507) от 12.11.2024
-
-Kreator - Studio Albums (9 releases) (1995-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kreator — немецкая трэш-метал-группа, основанная в 1982 году в Эссене. Название группы происходит от лат. create — «создавать», «творец», а также от имени демона в древненемецкой мифологии. Однако существует и иная трактовка этого названия («Kreatur» с немецкого языка переводится как «тварь» или «создание»). В 1980-х годах группа приложила много усилий к распространению (   Читать дальше...   )1995 - Cause For Conflict
-1997 - Outcast
-1999 - Endorama
-2001 - Violent Revolution(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 09:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E766A677B505A92D94E77AB6748E446F2DB29AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760323   (37370) от 13.11.2024
-
-Citizen Soldier - Icarus (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Letdown [00:03:51]
-02. Everybody Hates You [00:03:18]
-03. Where Were You [00:03:35]
-04. Feels Like a Funeral [00:03:08](   Читать дальше...   )Жанр: Alt.Metal, Modern RockПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F442862D9259E26CD669B77DF3C0E7F4F0F4F958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760498   (37313) от 14.11.2024
-
-The Black Keys - Ohio Players (Trophy Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Nowhere (3:44)
-02. Don't Let Me Go (2:35)
-03. Beautiful People (Stay High) (2:47)
-04. On The Game (4:03)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F530F520C45EB716478B5ACAB5D7D284352D11E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732828   (37312) от 14.11.2024
-
-di liberta - Dictum (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indi Folk, Dark Folk, Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Кто здесь [00:03:36]
-02 - Колея [00:02:19]
-03 - Небожители [00:03:14]
-04 - Весна [00:03:17](   Читать дальше...   )Жанр: Indi Folk, Dark Folk, Folk RockПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619F0D5ABD43397EAA7174147D31EE054917444B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1341907   (227675) от 30.11.2019
-
-Mildred Bailey - A Forgotten Lady 1935 - 1942 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Day Is Done [3:29]
-02. Willow Tree [3:20]
-03. Honeysuckle Rose [2:57]
-04. Squeeze Me [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B76C36F0F71BBA4D44D607CB4D9A595E19E5AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341904   (227658) от 30.11.2019
 
 Bucky Pizzarelli - April Kisses (1999) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
@@ -763,6 +734,35 @@ Fats Navarro - Nostalgia (1946, 1947) 1991, Savoy Jazz [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54833EFAB0EA8DBAB1DE4AF07B9A0993F1D3380D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342273   (225948) от 01.12.2019
+
+Aging - Suitable For Night (2017) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Jazz Noir, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doused In The Moon (10:32)
+02. Suitable For Night (6:09)
+03. The Kiss of Wet Asphalt (7:50)
+04. Ballade pour ma Bête Noire (9:10)Производство: Tombed Visions - TV44Жанр: Doom Jazz, Jazz Noir, Experimental, AmbientПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCFCF1D0C9D91244F5AB198BFEE0466C671EC86
 ```
 
 https://mybot314.ru/tekegram_catalog/

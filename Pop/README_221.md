@@ -1,3 +1,122 @@
+###  Публикация: 1328089   (367696) от 28.09.2019
+
+A-ha - Lifelines (2019) Deluxe Edition, Remastered [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifelines (2019 Remaster)
+02. You Wanted More (2019 Remaster)
+03. Forever Not Yours (2019 Remaster)
+04. There's a Reason for It (2019 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 02:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72DEA13CBA409043FEA856F997486387BA577788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575123   (367544) от 15.11.2012
+
+t.A.T.u. - 200 KM/H In The Wrong Lane (10th Anniversary Edition) (2012) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05CB0F62423ABECD23A5F89040A893428F879062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575677   (367529) от 15.11.2012
+
+Lana Del Rey - Born To Die (2CD, The Paradise Edition) (2012) [FLAC (tracks+cue)|Lossless]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_367529.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:00:42
+
+01. Born To Die
+02. Off To The Races
+03. Blue Jeans
+04. Video Games
+05. Diet Mountain Dew
+06. National Anthem
+07. Dark Paradise(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416407   (367260) от 16.10.2020
+
+Нюша (Nyusha) - Solaris Es (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367260.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Solaris Es
+2. Ruber Es
+3. Entrance
+4. Капкан(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527CEDD425DD1A25C1CA4C2D813C6DA2C5A0A2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070746   (366659) от 07.11.2016
 
 Иракли - Ангелы и демоны (2016) [MP3|320 Kbps] <Pop>
@@ -626,122 +745,6 @@ Basic Element - The Earthquake (1998) [OGG Vorbis|484 Kbps] <Electronic, Euro Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E5448D3DB3D067B7410B07FD916060069E187B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576584   (364029) от 15.09.2022
-
-E-Type - Made In Sweden (1994) [OGG Vorbis|484 Kbps] <Electronic, Pop, 	Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Made  In  Sweden
-02. Set  The  World  On  Fire
-03. This  Is  The  Way
-04. So  Dem  A  Com(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92805B316A502422230203723BE64DA6E4ACE67E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255576   (363627) от 18.10.2018
-
-Thomas Anders - Ewig mit Dir (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Leben ist jetzt
-02. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-03. Ewig mit Dir
-04. Wir sind eins(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CAEE24576872B04DAAF9376731CCBAA876112EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328301   (363406) от 30.09.2019
-
-Ryan Paris - 1Album + 1Single (1983, 1984) Vinyl [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris On My Mind (5:39)
-02. Harry's Bar (5:18)
-03. Bluette (4:25)
-04. Marianne (2:59)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEDA2093A87DEFC16A7FF3FC61698689154EF4F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950862   (363309) от 29.10.2015
-
-Shy'm - A nos dix ans (2015) 2CD [OGG| 454-561 кб/с]<French Pop, Dance, R&B, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363309.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: Les incontournables
-01. Femme de couleur
-02. Oublie-moi
-03. T'es parti(   Читать дальше...   )Жанр: French Pop, Dance, R&B, SynthpopПродолжительность: 02:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4B56EF2EC4015CD11F6D4E751587BC0B463F66
 ```
 
 https://mybot314.ru/tekegram_catalog/

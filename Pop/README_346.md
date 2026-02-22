@@ -1,3 +1,90 @@
+###  Публикация: 1799661   (66406) от 29.05.2025
+
+VA - Soulmates (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Teddy Swims - Are You Even Real (feat. Givēon) [00:02:27]
+02 - Bruno Mars - Love’s Train [00:05:07]
+03 - Aretha Franklin - (You Make Me Feel Like) A Natural Woman [00:02:39]
+04 - Mary J. Blige - Good Morning Gorgeous (feat. H.E.R.) [00:02:54](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 02:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A811E8BF8921AD142BDE07487BFA1A08F200B5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799658   (66404) от 29.05.2025
+
+Юлия Проскурякова - 7 Albums (2023-2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2023 - Жизнь прекрасна!
+2023 - Лучшие хиты
+2023 - Романтика зимы(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 7CD, 06:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FD7441055E9B8558FA67CB434EEAD5F67892B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799915   (66373) от 30.05.2025
+
+Spencer Sutherland - The Drama Deluxe (The Encore!) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Show! [00:01:22]
+02. Alive [00:02:49]
+03. Let Me Loose [00:02:25]
+04. Drama [00:02:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754CB3D040904D6C49C5C3D9DA7C0487CF0F1B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799773   (66366) от 30.05.2025
 
 Владимир Истомин - Пива налей (1994) [MP3|320 Kbps] <Electronic, Pop>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90FC0A5718226BD65695AEBC9AAED0D597A55A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806258   (65407) от 11.07.2025
-
-VA - Kohl's Cares For Kids: Songs Of The Season 2001 (2001) CD, Compilation [FLAC|Lossless|tracks + .cue] <Ballad, Light Music, Vocal, Holiday>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Armstrong & The Commanders - Cool Yule (2:57)
-02. Tony Bennett - Winter Wonderland (2:14)
-03. Lou Rawls - Have Yourself a Merry Little Christmas (2:29)
-04. Nancy Wilson - The Christmas Waltz (2:39)(   Читать дальше...   )Жанр: Ballad, Light Music, Vocal, HolidayПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AC6B997CF4B06B01903538053595AEFDC68F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806442   (65369) от 13.07.2025
-
-Юлия Kalina - Счастье моё (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Душенька [00:03:16]
-02 - Почему мы [00:03:20]
-03 - В День рождения [00:03:51]
-04 - Осторожно, горячо [00:02:39](   Читать дальше...   )Жанр: PopПродолжительность: 00:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83BB19FBE07E0B11C73A3985DE144CBD6718093F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806444   (65368) от 13.07.2025
-
-Сергей Лазарев - Мы и Есть Любовь (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Руины (После тебя) [00:03:53]
-02. По твоим следам (Пальто) [00:02:49]
-03. Тут или Там [00:03:25]
-04. Я обещал тебе [00:03:19](   Читать дальше...   )Жанр: PopПродолжительность: 00:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588CE6116A31473E0A684582A36C5FC76A760015
 ```
 
 https://mybot314.ru/tekegram_catalog/

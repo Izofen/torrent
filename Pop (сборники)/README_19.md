@@ -1,3 +1,32 @@
+###  Публикация: 1373668   (878425) от 07.04.2020
+
+Kenny G - 100% Kenny G (2020) [MP3|320 Kbps] <Pop, Jazz, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Songbird
+02. Silhouette
+03. Forever in Love
+04. Everytime I Close My Eyes(   Читать дальше...   )Жанр: Pop, Jazz, RockПродолжительность: 06:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B551F49B0F7084D09CE36C5C9EA46B9AAE1ADFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996687   (877197) от 15.03.2016
 
 VA - Сборник от CJ.Koka v.01 (2016) [MP3|320 кб/с] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Высшая лига интернациональная 50/50 (2011) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F044EDBBF018CA66A1073264416D9F3341562AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998487   (868101) от 20.03.2016
-
-VA - Клубный мега хит в машину (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868101.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Estradarada - Мне Нравится (08:03)
-2. Alex Kafer & Lera - Ничего Не Говори (06:23)
-3. Twoloud, Showtek - Move (05:21)
-4. Yelawolf feat Eminem - Best Friend (05:14)(   Читать дальше...   )Жанр: PopПродолжительность: 08:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAE022CA353C01F829FE61D8A5CAFF16E115FE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

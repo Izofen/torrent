@@ -1,3 +1,269 @@
+###  Публикация: 360191   (581094) от 07.07.2011
+
+VA - Летний прикид! Русский (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E67895D727207C155239C47484C794427F1E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359882   (581090) от 07.07.2011
+
+VA - Песня Года Vol.2 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 11:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5311714253693D748CCD62F8ABDB75E91B24952D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360019   (581087) от 07.07.2011
+
+VA - Шансон: избранное (2011) [MP3|128 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ШансонПродолжительность: 12:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8762AADE3BCAE774A2E3C672E2A91A1B944E8ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359473   (581033) от 07.07.2011
+
+VA - 200-ка Master Hit Europa Plus 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6945B37C4ECD104F2DC0FA9FC30504AB51B4EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359344   (580960) от 07.07.2011
+
+VA - Музыкальная энергия пиратских станций (2011) [MP3|128 kbps]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop,DanceПродолжительность: 12:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E9D2105063BD8320AAE6AF99815AB15DFC66C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920233   (580914) от 21.07.2015
+
+VA - Car Audio. Атмосфера таинственных 80-ых. (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Synthwave, New Wave, Dreamwave>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580914.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Acid Drink - Quarta Sinfonia
+2. ActRazer - Kill Switch
+3. ActRazer - Resurrected Streets
+4. ActRazer - Thief(   Читать дальше...   )Жанр: Synthwave, New Wave, DreamwaveПродолжительность: 12:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E515B3DD60240DBD8F0727330C4CAF666E65100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359811   (580893) от 07.07.2011
+
+VA - 1000% Ballads  (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF0DCFF0C742BAB29A58AE51409662F15A0B793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359577   (580886) от 07.07.2011
+
+VA - За Тех, Кто На Зоне 2 (2011) [MP3|256 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ШансонПродолжительность: 06:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA75A1CCEA2FD4215741B970E894F788EADAFF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359429   (580885) от 07.07.2011
+
+VA - Лучшие Песни Русского Радио 3 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 11:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55273BCADD15E5F6DAFA001825CD44ADBFAA6423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920031   (580862) от 21.07.2015
+
+VA - Союз летних хитов на Europa Plus. Часть 6 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580862.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Young Professionals Feat. Anna F - All Of It But Me (03:09)
+002. Анастасия Приходько - Ника (03:27)
+003. Chris Parker - Robot Romantic Love (03:39)
+004. Виктор Романченко - Я Услышу (03:31)(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60ED180011B14CE33ED758CDA5A09464F4FF68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359068   (580740) от 07.07.2011
 
 VA - Блатные 90-е. Ностальгия (2011) [MP3|256 kbps]<Шансон>
@@ -452,305 +718,6 @@ VA - Records That You Play (2019) [MP3|320 Kbps] <Pop Dance, Electro Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC0999763A643AD2CF196B07D5AA8DF1008661C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302672   (580247) от 16.05.2019
-
-VA - не Громкие новинки недели 15 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580247.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.5sta Family - Плечи (Lavrushkin & Max Roven Remix) (2:42)
-2.Aize - В Невесомости (3:20)
-3.Alesta - Темнота (3:59)
-4.AMCHI - Медленно (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0AC74FDE71B6BD2055F2EB68D2CCD3D9068F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302521   (580166) от 16.05.2019
-
-VA - Classic Rock Giganten (2019) [MP3|320 Kbps] <Classic Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580166.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Queen - We Will Rock You
-002. Toto - Africa
-003. Sum 41 - In Too Deep
-004. Third Eye Blind - Charmed Life(   Читать дальше...   )Жанр: Classic Rock, AlternativeПродолжительность: 09:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E198986C130DE532833FB8B9D124FBBA3ABFD91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553723   (580016) от 28.05.2022
-
-VA - Armada Club Rising (2022) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyma - Running (feat. Meg Myers) (6:25)
-02. DJ Oyster - Citrus (Gerd Janson Mix) (5:59)
-03. Borgore - Shadows (4:44)
-04. Eelke Kleijn - Electric Eel (4:42)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 04:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6176B8E2F817EDB04F752E85A690760AFCEF3369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553747   (580015) от 28.05.2022
-
-VA - Armada Music: New Dance Now (2022) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Sunstroke (Disco Citizens Evolution Mix) (3:12)
-02. MUNTII - Matter Of Time (2:50)
-03. Signum - Beyond This Earth (Richard Durand Remix) (4:18)
-04. Bond - Focus (4:31)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 03:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D8571E6ED3D44E2CB9DD7CD7E736CEEEFB1433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920287   (580005) от 22.07.2015
-
-VA - Дискотека 2015 Deep House - The Best (2015) [MP3|320 кб/с]<Deep, Progressive House, NuDisco, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZHU - Faded (Original Mix)
- 02. Feder feat. Lyse - Goodbye (Maxim Kurtys Remix) (DEEP ONE radio edit)
- 03. Kadebostany - Castle In The Snow (Ivan Spell Radio Mix)
- 04. Charming Horses feat. Emma Carn - You And I (Original Mix)(   Читать дальше...   )Жанр: Deep, Progressive House, NuDisco, Indie DanceПродолжительность: 15:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D99FEE1BFFA3AC01307789058BA316FEB23B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920445   (579998) от 22.07.2015
-
-VA - (Score) Sonic The Hedgehog 4 Episode I & II (2012) [MP3|320 кб/с]<Score>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип собранный из Lossless качества01. Sylvania Castle Zone Act 3
-02. White Park Zone Act 1
-03. White Park Zone Act 2
-04. White Park Zone Act 3(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A05E5EF48C0CE1C62915DA8DB02A5A63C78092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360339   (579914) от 08.07.2011
-
-VA - Зажигательное лето (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129B91F68DE02600FB5DC8A8B6B124D8336F4921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360448   (579912) от 08.07.2011
-
-VA - Зарубежные клубные новинки vol.4 (2011) [MP3|320 kbps]<Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Holland feat. Yana Kay - Tears In The Rain (Alex M.O.R.P.H B2b Woody Van Eyden Remix) (8:17)
-02. Ava Mea - In The End (Original Mix) (9:25)
-03. Jarah Damial - Incognata (Original Mix) (9:06)
-04. Rihanna - S & M (Dave Aude Club) (7:28)
-05. Calvin West - Children (5:32)
-06. Bassmonkeys Feat. Natasha Anderson - I 'll Show You Love (Bassmonkeys Club Mix) (6:56)
-07. Daniel Kandi & Phillip Alpha - If It Ain't Broke (Original Mix) (7:26)
-08. J Latif- I Wanna Go There (Stonebridge Club Mix) (6:21)
-09. DJ Danila ft Gosha - Let The Music (Belocca Remix) (7:02)
-10. Filo & Peri vs Ronski Speed - Propane (Original Mix) (6:33)(   Читать дальше...   )Жанр: ClubПродолжительность: 04:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA82A305CF55C9FFF1687C7BEA097C74E1027E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360693   (579911) от 08.07.2011
-
-VA - Зарубежные клубные новинки vol.8 (2011) [MP3|320 kbps]<Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albin Myers - Faking Love (Sebastien Drums & Rob Adans Remix) (6:03)
-02. Alice Deejay - Better Off Alone (Laidback Luke Remix) (5:03)
-03. Antoine Clamaran feat. Laurent Pautrat - Somebody Scream (Original Mix) (7:03)
-04. Armin Van Buuren feat. Nadia Ali - Feels So Good (Armin Van Buuren Club Mix) (6:26)
-05. Bella - Nobody Loves Me (Hardwell Remix) (6:03)
-06. Belmond & Parker - On The Move 2k11 (Club Mix) (6:17)
-07. Ben Preston feat. Max Fredrikson - Glorious 2011 (Cliff Coenraad Remix) (7:15)
-08. Cahill feat. Joel Edwards - In Case I Fall (Club Mix) (6:56)
-09. Cobra Starship Ft. Sabi - You Make Me Feel (Disco Fries Extended Mix) (5:31)
-10. Craig Connelly - Absolute Electric (Tritonal Club Mix) (7:50)(   Читать дальше...   )Жанр: ClubПродолжительность: 04:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACEC25B4E2DB208502584DAA48928DCF1449A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553627   (579876) от 28.05.2022
-
-VA - Deep Night Deep House 3 (2022) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eelke Kleijn feat. Nathan Nicholson - Taking Flight (4:47)
-02. Eldar Stuff, Tim Cosmos - Morning (5:43)
-03. Rusez1 - Just Thoughts (3:16)
-04. dndm - In My Dreams (5:07)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C354141FA01CF722785728DA9A99CA7783BDC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

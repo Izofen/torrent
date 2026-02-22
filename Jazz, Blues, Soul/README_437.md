@@ -1,3 +1,32 @@
+###  Публикация: 1638408   (235048) от 09.06.2023
+
+Liza Ohlback - Unravelling (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_235048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gets Hard Sometimes (4:22)
+02. Talk To me Child (3:25)
+03. Watch My Smoke (3:52)
+04. Unravelling (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7337EEBD483C3CE74C9A0D302201FBA6AF943E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633011   (235009) от 12.05.2023
 
 Jazzamor - From The Edge Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Easy-Listening>
@@ -713,35 +742,6 @@ Luciana Souza - Storytellers (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BCE625490DAF5B27E59A0F638B132D8A6F8FA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642900   (234427) от 29.06.2023
-
-Lynn Cannon - Just Chillin'! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light‘emup! (4:34)
-02. Keeponmovin'! (4:23)
-03. Changeswillcome! (4:49)
-04. Stompn’&bumpn'! (4:41)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B254437441DEFB9985E36C8CFF59B2BC481D76FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

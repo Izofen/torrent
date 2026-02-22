@@ -1,3 +1,30 @@
+###  Публикация: 914055   (600182) от 01.07.2015
+
+GPU-Z 0.8.4 RePack by loginvovchyk [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600182.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPU-Z - программа для вывода информации о графическом адаптере, отображает детальную информацию о видеокарте. Можно просмотреть данные о чипе, его ревизии, количестве разнообразных вспомогательных "процессоров", размере памяти, версии драйвера и других характеристиках.
+Поддерживаются карты на базе чипсетов NVIDIA и ATI.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE5BA85A0F2B9CAF3CF5D2E76E605053200F10F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914286   (600180) от 01.07.2015
 
 VA - Female Vocal Trance Anthems (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -669,35 +696,6 @@ Los Chikatilos - Guten Organ (2001) Exotica [FLAC|Lossless|tracks] <Breakbeat, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86CC9A169BF4796773FD82A6F213551346F6FAD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298237   (600039) от 01.05.2019
-
-VA - Live @ Mixmash Takeover, Delano Beach Club Miami (2019-03-28) (2019) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - Paradise (Fedde Le Grand Remix)
-02. Gotye ft. Kimbra - Somebody That I Used To Know (dBerrie Remix)
-03. Afrojack vs. Jack U - Bass Is Kickin vs. Hands Up (Afrojack Edit)
-04. Chuckie & Hardwell ft. MC Ambush - Move It 2 The Drum(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98CBD3A3817B1D61A42C43153A6FB93FFE56F4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

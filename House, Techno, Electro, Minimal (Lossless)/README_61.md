@@ -1,3 +1,61 @@
+###  Публикация: 1706991   (113417) от 15.03.2024
+
+LAO - Chapultepec (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axolotl [00:06:49]
+02. Corriente de aire [00:01:59]
+03. Manantial [00:04:27]
+04. Alita [00:03:29](   Читать дальше...   )Жанр: House, Techno, Electro, MinimalПродолжительность: 01:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1E2904349CDCFE59C46ABA665F05A533925DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707355   (113361) от 16.03.2024
+
+Argy - New World (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Argy, Son Of Son - Faust (3:38)
+02. Argy, Weekend Heroes - No One’s Coming (3:39)
+03. Argy, Omnya - Aria (3:56)
+04. Argy - All Day Long (3:44)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EE6F00C6E27882F2E04941CC7D4AE977B567CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709611   (112789) от 25.03.2024
 
 VA - Balance pres: Dave Seaman & Quivver (Mixed) - 2024 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -675,62 +733,6 @@ Niel De One - People Are People (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A283DBC1622EAF92D0525579AE32CE20D46B8BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724181   (109285) от 19.05.2024
-
-VA - Electronica Confessions, Vol. 4 (2014) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony S - Not the Droids You're Looking For (6:40)
-02. DGL.Co. - Music.Life.Solutons (5:20)
-03. J Dovy - Once Upon a Night (7:24)
-04. Makvillian - Luciano's Dream (5:19)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E043357CD8EEF904042818036E96745CDD9875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724237   (109278) от 19.05.2024
-
-Ootkeen - Voo Da Borboleta EP (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voo Da Borboleta
-02.O Sussurro Das MontanhasЖанр: Tech House, Deep House, ProgressiveПродолжительность: 00:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBD1F551A0CBDD4928D849C896DA655D49583C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

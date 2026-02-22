@@ -1,3 +1,29 @@
+###  Публикация: 1373864   (878550) от 07.04.2020
+
+SQLPro Studio 2020.35 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878550.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 06.04.2020Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9E2C8E7FEDF433FF46690E9264628D7F3D7531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373736   (878548) от 07.04.2020
 
 Butler 4.3.3 [Multi]
@@ -688,32 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7664F21EF5BAF18DC7E61411D0A5D97BC236E19E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373815   (878468) от 07.04.2020
-
-Soft4Boost AMPlayer 5.6.5.289 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный медиаплеер, с помощью которого можно воспроизводить видео- и аудиофайлы практически всех существующих форматов, а также просматривать изображения и фотографии.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA61E5BE3B637799253E99536230EED20E2CEA17
 ```
 
 https://mybot314.ru/tekegram_catalog/

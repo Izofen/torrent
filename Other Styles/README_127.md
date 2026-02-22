@@ -1,3 +1,32 @@
+###  Публикация: 1410426   (436080) от 21.09.2020
+
+VA - Still Like a Stone Structure: Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kurt Tepperwein - Dreaming Guitar (Long Version) (09:59)
+02. SanSouci - Silence (09:58)
+03. Antiphon - The Great Attractor (09:52)
+04. B-Less - Inner Journey (09:52)(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 04:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B782E63589E489AA02C6C82583C31B3D63E9F424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943982   (435851) от 09.10.2015
 
 Garden Of Delight - Back in Ireland (2015) [OGG| 482-555 кб/с]<Alternative, Irish Folk Rock, Celtic Rock>
@@ -718,35 +747,6 @@ Francisco Canaro & Carlos Roldn - Que me quiten lo bailao (1944) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34A1C1C45AA5F9A25043E9AC1016BD9D9F795155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945484   (431570) от 11.10.2015
-
-Francisco Canaro - Charlo - Con Francisco Canaro & Francisco Lomuto (1989) [MP3|160 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiempos viejos
-02. Desconfiale | Desconfiale
-03. Remordimientos
-04. Nelly(   Читать дальше...   )Жанр: TangoПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C32462C524446FE50FA2B458D5C2EDFCB7BD1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

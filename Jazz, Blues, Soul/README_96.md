@@ -1,3 +1,96 @@
+###  Публикация: 295061   (894379) от 14.02.2011
+
+James Brown - Sex Machine - The Very Best Of (1991) [APE|Lossless]<Soul, Funk, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Please Please Please (2:47)
+02. Think (2:48)
+03. Night Train (3:34)
+04. Out Of Sight (2:26)
+05. Papa's Got A Brand New Bag (Part 1) (2:09)
+06. I Got You (I Feel Good) (2:49)
+07. It's A Man's Man's Man's World (2:50)
+08. Cold Sweat (2:54)
+09. Say It Loud, I'm Black And I'm Proud (Part 1) (2:49)
+10. Get Up (I Feel Like Being A Sex Machine) (5:19)(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993884   (894341) от 06.03.2016
+
+Andrew Hill - Grass Roots (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Grass Roots [05:42]
+ 02.Venture Inward [04:46]
+ 03.Mira [06:20]
+ 04.Soul Special [08:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B49245230C4D1B7FE85B7294AE1AB3395393C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993791   (894321) от 06.03.2016
+
+Charles Lloyd - Wild Man Dance (2015) Blue Note Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Flying Over The Odra Valley [11:00]
+ 02.Gardner [08:12]
+ 03.Lark [13:21]
+ 04.River [16:08](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12A04D61DAD0FDD65526417640CA15C12FAF117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993788   (894314) от 06.03.2016
 
 Art Blakey & The Jazz Messengers - Oh-By The Way (1982) Remaster, 2015,Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -690,96 +783,6 @@ The New York Hardbop Quintet - A Mere Bag Of Shells (2001) [FLAC|Lossless]<Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66CFAE1D660D5F70490E9121A956D3E297F116FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869161   (893122) от 14.02.2015
-
-N-Groove - It's Who We Are (2007) [WavPack|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. You and Me 5:22
-02. Funny How Time Flies 3:54
-03. Groove Serum 3:52
-04. Bring It On Let's Go 3:04
-05. It's Who We Are 4:59(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65EBFCF56C3FF7223909D0617652062551101572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869358   (893120) от 14.02.2015
-
-Nicholas Payton - Payton's Place (1998) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Zigaboogaloo
-02. The Three Trumpeteers
-03. Back To The Source
-04. A Touch Of Silver
-05. Concentric Circles(   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A86FCE6C379BF5E1657171117E7247DAB279CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869357   (893119) от 14.02.2015
-
-Nicholas Payton - Gumbo Nouveau (1996) [FLAC|Lossless]<Neo-Bop, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Whoopin' Blues
-02. When The Saints Go Marching In
-03. Wild Man Blues
-04. After You've Gone
-05. Way Down Yonder In New Orleans(   Читать дальше...   )Жанр: Neo-Bop, New Orleans JazzПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7F85E03C278B18C3110B18A06E44896B2A42F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

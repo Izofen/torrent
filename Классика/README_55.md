@@ -1,32 +1,3 @@
-###  Публикация: 1806287   (11602) от 13.07.2025
-
-VA - 100 Classics For Relaxation - A Glorious Sunrise (2008) CD, Compilation [FLAC|Lossless|tracks + .cue] <Classical, Contemporary, Romantic>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Hammerstein: London Promenade Orchestra & Chorus / Flower Duet    [0:04:03.25]
-02. Edward Elgar / Chanson de Matin    [0:03:04.00]
-03. London Promenade Orchestra / Waltz in a Flat Major, Op. 39, No. 5    [0:01:26.48]
-04. Frédéric Chopin / Etude In A Minor, Op. 25, No. 11 ("Winter Wind")    [0:03:29.44](   Читать дальше...   )Жанр: Classical, Contemporary, RomanticПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4605ECDE9CA7B2C05A691FC5507FAA25CB4EDD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806539   (11498) от 14.07.2025
 
 Frederick Delius - A Village Romeo and Juliet (1971) [FLAC|Lossless|WEB-DL|tracks] <Classical, Opera>

@@ -1,3 +1,32 @@
+###  Публикация: 944579   (438403) от 08.10.2015
+
+VA - Most Uplifting (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BCee - Class of '92
+02. Technimatic - Not Far to Go
+03. Mutated Forms - Smalltalk
+04. LSB - Rolling Sideways(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1DA0C828F2A773CD49F05E7FFA0D37DFBAF4EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554552   (438393) от 30.09.2012
 
 LiveCD ESET NOD32 7473 [29.09.2012] [Русский / Английский]
@@ -660,32 +689,6 @@ VA - Reinforcements, Vol. 2 (2015) [MP3|320 кб/с]<Dubstep, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:046B03E9AE7C197CB9BD13B019559FD5AB9DD69C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944916   (438322) от 08.10.2015
-
-BurnAware Professional 8.5 Portable by PortableAppZ [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438322.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский  и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB44212B282427476F0DBC4262CB580FDAE8C123
 ```
 
 https://mybot314.ru/tekegram_catalog/

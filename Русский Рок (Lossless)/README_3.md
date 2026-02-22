@@ -1,3 +1,32 @@
+###  Публикация: 1443708   (1035163) от 30.01.2021
+
+Танцы Минус - 8 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035163.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мне б уснуть в твоих руках
+2. Девочка
+3. Лыжи
+4. Скриншот(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB5426396474C5BC35C78BCF9C007063E3A2A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443748   (1035097) от 30.01.2021
 
 Кино - Черный Альбом (1990) 3CD, Limited Edition, 2021, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
@@ -711,35 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79BD06A61DC9179456DE83D495446F127D94FFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620832   (1031671) от 22.03.2023
-
-RGPO - Ешка (2023) [FLAC|Lossless|WEB-DL|tracks] <ska-core>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ешка [00:03:25]
-02. Аналог жизни [00:02:49]
-03. Цепи [00:02:18]
-04. Краски [00:02:44](   Читать дальше...   )Жанр: ska-coreПродолжительность: 00:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E582EF0B4539EA7095E709D77CFB9834205A5AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

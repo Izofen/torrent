@@ -1,3 +1,32 @@
+###  Публикация: 1001596   (852301) от 29.03.2016
+
+Футбол. Товарищеский матч. Украина - Уэльс (28.03.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852301.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 марта 2016, понедельник. 21:00 МСК
+Товарищеские матчи 1
+
+Стадион: НСК Олимпийский (Киев, Украина) , 20 000 зрителей (29 % при вместимости 70 050)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 01:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4C3BE24CF83C6F48E2506C6E9B77AE52103498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001744   (852300) от 29.03.2016
 
 Время покажет с Петром Толстым (29.03.2016) SATRip
@@ -687,35 +716,6 @@ Downie – это простейший видео-загрузчик. Подде
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA47A1BA8685DA383B903664DFD009C49DCA6826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001765   (852196) от 29.03.2016
-
-VA - 15 Years Of Vandit Records (The Remixes) Vol 1 (2016) [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Roth & Alex Bartlett - Off The World (Eddie Bitar Remix) (07:08)
-02. Filo & Peri feat. Aruna - Ashley (Maria Healy Remix) (07:48)
-03. Reverse - Distant Destiny (Dan Dobson Remix) (06:13)
-04. Alex M.O.R.P.H. feat. Ana Criado - Sunset Boulevard (Ben Nicky Remix) (06:06)(   Читать дальше...   )Производство: VANDIT RecordsЖанр: TranceПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9058CEBF264993FFF175D6438EEA897ACD9DCC83
 ```
 
 https://mybot314.ru/tekegram_catalog/

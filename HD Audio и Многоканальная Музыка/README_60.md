@@ -1,3 +1,176 @@
+###  Публикация: 1583852   (188193) от 16.09.2023
+
+Stone Sour (Corey Taylor, Slipknot) - Studio Albums (10 releases) (2002 - 2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Heavy Metal ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_188193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stone Sour — американская метал-группа, образованная в 1992 году в Де-Мойне, штат Айова. Её основатели — Кори Тейлор, ставший известным как вокалист группы Slipknot, а также барабанщик Джоел Экман. Просуществовав до 1997 года, коллектив прекратил свою деятельность, но в 2000 году, после успеха дебютного альбома Slipknot, Тейлор с Экманом решили вернуться к своему (   Читать дальше...   )2002 - Stone Sour
+2006 - Come What(ever) May
+2010 - Audio Secrecy
+2012 - House Of Gold And Bones - Part 1Жанр: Hard Rock, Heavy MetalПродолжительность: 09:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E4519727C61B26E164259B1C28DFA4215BA805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827449   (188101) от 21.10.2025
+
+Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винсент Нил Уортон (англ. Vincent Neil Wharton; род. 8 февраля 1961, Голливуд, США) — американский музыкант, вокалист, в первую очередь известный как вокалист американской глэм-метал-группы Mötley Crüe1993 - Exposed
+1997 - Carved In Stone
+2010 - Tattoos & TequilaЖанр: Hard RockПродолжительность: 02:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3859703AFDF4F32DD867C90A54641393996B9248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662444   (188078) от 17.09.2023
+
+Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seventh Wonder — прогрессив-метал группа, была создана в Стокгольме в 2000 году бас-гитаристом Андреасом Бломквистом, гитаристом Йоханом Лифвендалом и барабанщиком Джонни Сэндином.2005 - Become
+2006 - Waiting In The Wings
+2008 - Mercy Falls
+2011 - The Great EscapeЖанр: Progressive MetalПродолжительность: 06:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434CC2B40B5BD6A7B47CC4DB3FA555D8965DB38A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662672   (187674) от 18.09.2023
+
+Rory Gallagher - Big Guns – The Very Best Of (2005) 2 x SACD, Compilation, Remastered, Capo [DST64|2.0,5.1|2822,4/1|SACD-R] <Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Big Guns 03:53
+02. What’s Going On 02:48
+03. Tattoo’d Lady 04:50(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95DD56C160D1B5089EBE19F225669505BDA5F3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662856   (187530) от 19.09.2023
+
+Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-Rip]<Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187530.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Song For Eden
+A2 Jerusalem Is Falling
+A3 Design The Century
+A4 Rise Of The 4th Reich(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08F578F930294AF66E5AA2A0E22A33857C88674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662814   (187452) от 19.09.2023
+
+VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Puccini, Berlioz and Bizet (1976) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Opera, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187452.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Serbami Ognor (Semiramide, Act I)
+A2 Se M'Ami Ancor ... Al Nostri Monti Ritorneremo (Il Trovatore, Act IV)
+A3 Un Di Felice (La Traviata, Act I)
+A4 Ascoltai Le Porte Dell'Asil S'Apron Gia, Dio, Che Nell'Alma Infondere (Don Carlo, Act II)(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870A41064ADDD114E0F45E11BFF88C53539B6227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662671   (187437) от 19.09.2023
 
 The Who - Who’s Next : Life House (Super Deluxe) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -571,178 +744,6 @@ Vengeance - Sewer Surge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Spe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE22CAFB4374698F7F29FE144D81F08F2BD55A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663811   (186457) от 23.09.2023
-
-Eva Under Fire - Love, Drugs & Misery (2022) Deluxe Edition, 2023, Better Noise Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal, Female Vocal, Detroit rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blow (feat. Spencer Charnas of Ice Nine Kills) (2:45)
-02. Unstoppable (3:07)
-03. With or Without You (4:05)
-04. Another Shot Through the Heart (3:10)(   Читать дальше...   )Жанр: Alt.Metal, Female Vocal, Detroit rockПродолжительность: 01:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12090CC0F1C4BD100106A1C2BF4FD450252DAD28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663746   (186451) от 23.09.2023
-
-The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia · Karelia Suite · Valse Triste, etc. (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Romantic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186451.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Symphonic Poem ''Finlandia'', Op. 26
-''Karelia'' Suite, Op. 11
-A2 Intermezzo
-A3 Ballade(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663882   (186440) от 23.09.2023
-
-Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mortemia — готик-метал сайд-проект Мортена Веланда, норвежского музыканта, который является одним из основателей Tristania и основателем Sirenia.2010 - Misere Mortem
-2022 - The Pandemic Pandemonium SessionsЖанр: Symphonic Gothic MetalПродолжительность: 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0CD45A1431C2E03A5ADEBD2348E1D64C41CE36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663796   (186437) от 23.09.2023
-
-yeule - softscars (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, cyber goth, glitch princess, post pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – x w x
-02 – sulky baby
-03 – softscars
-04 – 4ui12(   Читать дальше...   )Жанр: Synthpop, cyber goth, glitch princess, post popПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19F02A12B32E41A2DE1375622D3BFB55FCA2FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663727   (186428) от 23.09.2023
-
-A Golden Hour From Winchester Cathedral, soloist Timothy Wilson - Hear My Prayer (1974) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Choral, Organ>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186428.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hear My Prayer/O For The Wings Of A Dove
-A2 O Sacred Head Surrounded (St Matthew Passion)
-A3 Toccata In F
-A4 I Know That My Redeemer Liveth (From 'The Messiah')(   Читать дальше...   )Жанр: Classical, Choral, OrganПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6908EE3E570286E9AF5439E59B75EFDA1B4603D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663667   (186425) от 23.09.2023
-
-Sirenia - Studio Albums (12 releases) (2002-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sirenia — норвежский готик-метал-проект, основанный Мортеном Веландом в 2001 году2002 - At Sixes And Sevens
-2004 - An Elixir For Existence
-2007 - Nine Destinies And A Downfall
-2009 - The 13th FloorЖанр: Symphonic/Gothic MetalПродолжительность: 11:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFFCE365B756EE82FACC92DDF929812D27B4FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

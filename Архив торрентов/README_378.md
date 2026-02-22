@@ -1,3 +1,29 @@
+###  Публикация: 609627   (992371) от 27.01.2013
+
+Wallpapers - Selection of wallpapers vol.5 (27.01.13) [JPG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1680х1050 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C0FD5DBB11042F2863DFF7A74F6F627D02A2B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609609   (992369) от 27.01.2013
 
 Laura Eceiza | Современные модельеры. Атлас [2011] [PDF] [En]
@@ -683,32 +709,6 @@ Wallpapers - Girls Wallpapers vol.2 (27.01.13) [JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84B20FC5148BBCDC72A5E4CFEC6BD9391054893A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609582   (992300) от 27.01.2013
-
-Wallpapers - Nature Wallpapers vol.1 (27.01.13) [JPG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1600х1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E418B34BE73A4223BA02EB2FE8CCF2A9112836
 ```
 
 https://mybot314.ru/tekegram_catalog/

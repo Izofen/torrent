@@ -1,61 +1,3 @@
-###  Публикация: 1801897   (66119) от 14.06.2025
-
-Jimmy Scott - Very Truly Yours (1955) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time on My Hands [2:42]
-02. Imagination [2:52]
-03. When Did You Leave Heaven [3:19]
-04. Everybody Needs Somebody [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0F557E2958243572EF762C7512F5C06DAA3C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801960   (66109) от 14.06.2025
-
-The Swingfield Big Band - Big Band Favorites (2009) 2CD, Reflections [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Serenade [4:06]
-02. I'll Be Seeing You [4:40]
-03. Over the Rainbow [4:45]
-04. Moon River [3:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9C8ABA120C1E4BF31FC294436745E11D0C9345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802275   (66095) от 15.06.2025
 
 V.A. - Best of BOSSA NOVA COVERS (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Pop Jazz>
@@ -745,6 +687,64 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF95AB9FC25256B08624F01E5688397A5F275E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804184   (65701) от 28.06.2025
+
+Georgia Mancio & Alan Broadbent - Songbook (2017) Roomspin Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Journey Home [4:34]
+02. The Last Goodbye [5:23]
+03. Someone's Sun [3:20]
+04. Cherry Tree [5:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E6708CA09C1688008D18A74FC98A8F7FD75A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804264   (65692) от 28.06.2025
+
+Paul Brown - So Much To Say (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  So Much To Say (3:57)
+02.  Summertime (4:17)
+03.  Vice Versa (4:13)
+04.  My Sweet Baby (3:47)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446BF38C14540AF3B829C49F46877FCF7F317739
 ```
 
 https://mybot314.ru/tekegram_catalog/

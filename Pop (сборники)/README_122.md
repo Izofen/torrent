@@ -1,3 +1,38 @@
+###  Публикация: 482294   (88166) от 13.04.2012
+
+VA - Disco Hits 90's Зарубежный (2012) [MP3|256 kbps]<Pop | Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brooklyn Bounce - Contact
+02. DJ Aligator Project - Payback Time
+03. Real McCoy - Automatic Lover (Call For Love)
+04. Red 5 - Da Beat Goes…
+05. Felix - Don't You Want Me
+06. DJ Bobo - Respect Yourself
+07. Shaggy - Bombastic
+08. Dr. Alban - One Love
+09. Technotronic - Pump The Jam
+10. No Mercy - Plase Don't Go(   Читать дальше...   )2012Жанр: Pop | DiscoПродолжительность: 06:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB1A4C1E32C17D29BA1107262BBE2CA5BCA724B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482211   (88163) от 13.04.2012
 
 VA - Disco Hits 90's Русский (2012) [MP3|256 kbps]<Pop | Disco>
@@ -866,45 +901,6 @@ VA - Здравствуйте, гости! (2012) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A371698A5F8FECDD9DF30896E30A4EBDE53F46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472729   (84378) от 25.03.2012
-
-VA - I Love ZYX Italo Disco Collection Vol.1-13 (2002-2012) [MP3|320 кб/с]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84378.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cyber People - Polaris (Club Mix) (6:30)
-2. Ken Laszlo - Hey Hey Guy (US Remix) (5:46)
-3. Brian Ice - Tokyo (DJ Version) (6:37)
-4. Hypnosis - Droid (Automatic Piano) (5:08)
-5. Patrick Colby - Mandrill (Extended Version) (6:10)2002-2012Жанр: Disco, Dance, PopПродолжительность: 01:12:50
-
-1. Trixie - When Everybody's Dancin' (Voca (5:20)
-2. Ursula - Young People (Extended Version (7:04)
-3. Venus - Caballeros (Vocal) (5:51)
-4. Yan-Guru - Won't You Help Me (Vocal) (5:59)
-5. Jasmine - Runaway (Extended Mix) (5:26)
-6. Joe Yellow - Lover To Lover (For Sale) (8:00)
-7. M And G - When I Let You Down (Extended (5:59)
-8. Rose - Memories (Vocal Version) (6:16)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05D74473EE1D4761D96D0C8667C00864590FDE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

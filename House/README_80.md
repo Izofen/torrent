@@ -1,3 +1,102 @@
+###  Публикация: 739545   (146237) от 28.12.2013
+
+VA - Bargrooves Deluxe (2014) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Daniell - Bargrooves Deluxe 2014 Mix 1 (70:21)
+ 02. Andy Daniell - Bargrooves Deluxe 2014 Mix 2 (66:56)
+ 03. Andy Daniell - Bargrooves Deluxe 2014 Mix 3 (70:54)
+ 04. Osunlade - Dionne (04:16)
+ 05. Andhim - Boy Boy Boy (07:01)
+ 06. MK - Always (feat. Alana) (NY Stomp Remix) (06:35)
+ 07. Dusky - Careless (06:31)
+ 08. Route 94 - Tell You Why (05:45)
+ 09. Close - Beam Me Up (feat. Charlene Soraia & Scuba) (George FitzGerald Remix) (05:17)
+ 10. Sonny Fodera - Hold It Down (feat. Amber Jolene) (06:34)(   Читать дальше...   )Жанр: Deep House, Tech House, HouseПродолжительность: 08:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9049F70724D3BA46BF7EE6456C7934382AC82473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590291   (146176) от 16.12.2012
+
+VA - SoSexy - Deep House Selection Vol.1-2 (2012) [MP3|320 кб/с]<House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diego Suarez - Bossa and Trip
+02. Marco Van Erpen - Keep On Dreamin
+03. Tiapason - Day Dream
+04. Tiapason - Wasting Time
+05. DJ Joseph B - All Kinds of Everything
+06. DJ Jerry - Keep in Mind
+07. Diego Suarez - Guitar Reverse
+08. Love Pacific Industries - Conselvee
+09. Musixx - Test Giose
+10. 4th Floor - A Night in New York(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 06:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F9DDAFA046960BB915A38AB0C29C83BE70530A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519976   (145529) от 26.12.2021
+
+VA - Seveneves Best of 2021 (2021) [MP3|320 Kbps] <Funky, Club-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Hofmann - Show Me What You Got (02:43)
+02. AirDice - Momento (Radio Edit) (02:39)
+03. Jake Dile; Valentino Vines - Light It Up (Radio Edit) (03:23)
+04. DJ Bass-T - Call You MIne (02:57)(   Читать дальше...   )Жанр: Funky, Club-HouseПродолжительность: 02:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BF7B81A454A07499B124BE266FB6AD4DDE2116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 739826   (144895) от 29.12.2013
 
 VA - The Best in 2013 (2013) [MP3|320 кб/с]<Deep House>
@@ -694,99 +793,6 @@ VA - Tronic 2013 (2012) [MP3|320 кб/с]< Tech House, House, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6415B9DBB14CFCCDDD1D0A1F85CD18278FE0EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591930   (136290) от 20.12.2012
-
-Funkzelle - A Day Within A Day (2010) [MP3|320 кб/с]<Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Day Day (Coney Island Remix) (07:32)
-02. Day Day (Funfair Mix) (08:04)
-03. Day Day (Light And Shadow Edit) (08:09)
-04. Night Night (06:36)Жанр: Deep House, Tech HouseПродолжительность: 00:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A34E85FB44754576FF68B640A20C9AFF6B05992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591959   (136289) от 20.12.2012
-
-Marodelmimo - The Real Life (2011) [MP3|320 кб/с]<Deep House, Minimal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ideologie (07:00)
-02. Addiction (07:31)
-03. Number 13 (06:00)
-04. Ego (05:32)Жанр: Deep House, MinimalПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA96D0144A5AEA41D2952DD6886CFB3F148FE61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591996   (136274) от 20.12.2012
-
-VA - Illustrate Your Sound (2012) [MP3|320 кб/с]<Deep House, Downtempo, Minimal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Juan Demal - Noctambulo (05:54)
-02. Angel Galan - Colonization (05:08)
-03. Rodrigo Atler - En Frio Y Sin Aviso (07:38)
-04. E-teb - Ekomat2 (07:34)
-05. Meto - Space Ducks (05:57)
-06. Marodelmimo - Molécule (05:48)
-07. Krzho - God Mode (08:42)
-08. Movemat - Individroid (04:51)
-09. Argon - Schokoschlacht (07:07)
-10. Evade - Reminder Version (04:12)(   Читать дальше...   )Жанр: Deep House, Downtempo, MinimalПродолжительность: 01:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580C01DDB7667419A498053879DDA6DC8807BA0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

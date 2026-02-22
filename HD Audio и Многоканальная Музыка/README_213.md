@@ -1,3 +1,177 @@
+###  Публикация: 1808957   (64800) от 27.07.2025
+
+Cyfurcat - 1.0.0 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lodewijk (3:52)
+02.  Cyfurcat (5:47)
+03.  Doom City (4:01)
+04.  New order (4:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEFF1C4E95988065B89D8E853905058F7CC369D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808967   (64799) от 27.07.2025
+
+Pharaoh Rumor - Vintage Blues Express (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vintage Blues Express (3:57)
+02.  The Wanderer (3:06)
+03.  As the Barriers Fall (4:00)
+04.  Treasure Vein (5:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FA3AB4E1D19D4C919634F378A96FDAACDF474F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808974   (64793) от 27.07.2025
+
+Zayden Fleet - Lone Star Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lone Star Blues (4:56)
+02.  Sonny’s Sorrow (5:15)
+03.  Dark Spell Lady (5:56)
+04.  Aged Lowdown Blues (5:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9ACEA6F615FC696049073A8750CDACD04C5A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808956   (64785) от 27.07.2025
+
+Buddy Reed & Th' Rip It Ups - Tough Enough (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  (Buddy's) Big Legged Woman (4:25)
+02.  Rock Me (3:27)
+03.  Blues for Mud (3:29)
+04.  You're So Fine (3:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6F7A45CB3723D970B3A238C035AA84174F4820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808960   (64784) от 27.07.2025
+
+Daddy Longlegs & the Swamp Donkeys - Mud Bucket (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Be Bop Baby (6:45)
+02.  Possession Over Judgement Day (8:34)
+03.  Diamond Man (3:55)
+04.  Mud Bucket (4:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5548DF80EB3460BB10FB9289F340A8C1C58DB07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809037   (64770) от 28.07.2025
+
+Night Tempo - Night Tempo Presents The Showa Idol Groove (Rare Groove From 80s) (2021) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop, Synthwave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Deja Vu (Night Tempo Showa Groove Mix)
+A2 Nice-catch! (Night Tempo Showa Groove Mix)
+A3 淋しい熱帯魚 - Glowing tropical fish (Night Tempo Showa Groove Mix)(   Читать дальше...   )Жанр: Electronic, Synth-pop, SynthwaveПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93AF4075B841A08C23BD8ECE29C0CE1AF42FD07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809277   (64760) от 29.07.2025
 
 Paramore - All We Know Is Falling (2005) Deluxe Edition, 2025, Fueled By Ramen [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
@@ -571,180 +745,6 @@ Alice Cooper - Billion Dollar Babies (50th Anniversary Deluxe Edition) (1973) Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B966C845599D10859B85324EBE1AECA25CF3E566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705090   (63701) от 07.03.2024
-
-Joe Dassin - Поет Джо Дассен (1979) [FLAC 24/192|Lossless|tracks] <Chanson, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63701.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сторона.
-01 - Если бы тебя не было. Et Si Tu N'existais Pas
-02 - Альбатрос. L'Albatros.
-03 - Моя музыка. Ma Musique.(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7BBFEC264B1B1115A0EFE1B689924D0D57B2F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705171   (63690) от 07.03.2024
-
-Judas Priest - Invincible Shield (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panic Attack (5:26)
-02. The Serpent and the King (4:20)
-03. Invincible Shield (6:21)
-04. Devil in Disguise (4:47)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4971BAC26BAF4839995A3A1C30E8D35F3302F38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705451   (63580) от 08.03.2024
-
-AC/DC - Who Made Who (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Made Who
-02. You Shook Me All Night Long
-03. D.T.
-04. Sink The Pink(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A43B5A18B2B72D0E640E1718A2FF66D3C1407EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705526   (63579) от 08.03.2024
-
-AC/DC - Blow Up Your Video (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Heatseeker"
-02. "That's the Way I Wanna Rock 'n' Roll"
-03. "Meanstreak"
-04. "Go Zone"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075C705BCA2F3F6C13764D529768BD184C40549E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705635   (63528) от 09.03.2024
-
-AC/DC - Rock or Bust (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Or Bust
-02. Play Ball
-03. Rock The Blues Away
-04. Miss Adventure(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32AF562F344693E295A567B0F9FBC6CCF73E2ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705601   (63496) от 09.03.2024
-
-Supertramp - The Very Best Of Supertramp (1990) 1992 [FLAC 24/192|Lossless|tracks] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodbye stranger (R.Davies, R.Hodson)
-02. The logical song (R.Davies, R.Hodson)
-03. Bloody well right (R.Davies, R.Hodson)
-04. Breakfast in America (R.Davies, R.Hodson)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:472DAAD91B14667DFB7D10F2546CFED2FD43B79B
 ```
 
 https://mybot314.ru/tekegram_catalog/

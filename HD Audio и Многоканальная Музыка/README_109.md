@@ -1,3 +1,177 @@
+###  Публикация: 1708818   (112936) от 22.03.2024
+
+Steve Emm - Framework (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Bullet (3:25)
+02. Freewheelin' (3:01)
+03. Class Of '84 (3:48)
+04. Shining Heart (3:34)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA785C8B65D5B2B3EEE1AA70B54BC8E78760B947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708871   (112931) от 22.03.2024
+
+Samson - Live at Reading`81 (1990) [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Brother
+02. Take It Like A Man
+03. Nice Girl
+04. Earth Mother(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B167F93C1506393414E24B4126D7AE601D80630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708814   (112929) от 22.03.2024
+
+Deej - Blue Sky Mama (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Nights (3:12)
+02. Sentimental Dreaming (3:20)
+03. Breath of the Moon (2:51)
+04. Waterfall (2:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE0B21027D4074D720718A4FAAD9EC4374C846C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708846   (112928) от 22.03.2024
+
+Relaxing Piano Man - Heading South (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Old Days (3:33)
+02. The Clincher (4:14)
+03. Faraway Love (3:55)
+04. Magazine Street (3:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8466D2B303A4AE7B2B24ADD42AE411C9F2CEC474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708910   (112927) от 22.03.2024
+
+Bruce Dickinson - Balls to Picasso (1994) [FLAC|24/96|tracks|Vinyl-Rip] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyclops
+02. Hell No
+03. Gods Of War
+04. 1000 Points Of Light(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641AAF879A0740C7F2F0DBE784D8508ECE102B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708809   (112925) от 22.03.2024
+
+Alligator Cats - Whiskeyland (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Red! (3:20)
+02. Coco Blues (4:23)
+03. Whiskeyland (3:35)
+04. Weedsmokers Dream (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED2383B94F35DE7514E24ABCFB3F440D278317C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708829   (112924) от 22.03.2024
 
 Крис Кельми - Открой свой Сезам (1990) [FLAC 24/192|Lossless|tracks] <Rock, Pop>
@@ -571,180 +745,6 @@ Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D096B08FC05D3CBF574BEBF6C6693AA225CEAF88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709141   (112852) от 23.03.2024
-
-Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Heavy Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Almanac — неоклассическая метал-группа из Германии, основанная в 2015 году гитаристом, продюсером и композитором белорусского происхождения Виктором Смольским.2016 - Tsar
-2017 - Kingslayer
-2020 - Rush Of Death
-& Victor Smolski solo albumsЖанр: Power/Heavy/Progressive MetalПродолжительность: 05:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9549FC32DFE49AE358E1C6E05C1C2D68031BB00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709374   (112848) от 24.03.2024
-
-Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm a Little Mixed Up (3:18)
-02. 99 1/2 (3:40)
-03. San Francisco (4:12)
-04. Don't Let Me Be Misunderstood (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453C3095B281CE2CA44BD51CB1C2836B714A07B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709396   (112844) от 24.03.2024
-
-Новая коллекция - Край наших надежд (1990) [FLAC 24/192|Lossless|tracks] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Ностальгия
-02. Неизвестная история
-03. Над суетой(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB40223988F5C736D123901D1B04784473E857D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709378   (112836) от 24.03.2024
-
-Stevie & the Blue Flames - Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Flames Bar B Que (2:45)
-02. Every Dog Has His Day (3:34)
-03. First Class Fool (2:56)
-04. Blues Comes A Callin' (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A152DE7543EAB973F113EE908E8D3B6ED8A365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709370   (112835) от 24.03.2024
-
-Sol - Mall Gig (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strong For Today (3:18)
-02. Soul Shade Mechanic (4:03)
-03. Welcome Back Eloise (3:38)
-04. Killing Floor (6:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93597F9E5A7B021B4C52C2AEFFAE379F61E5DDF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709361   (112831) от 24.03.2024
-
-Lorenzo Sanchez Band - Blue Avenida (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Should Be Glad (3:52)
-02. I Need Your Love (3:28)
-03. ¡ Huye ! (4:19)
-04. True Love (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E02A9C286761A9E9140AC5806889340EA52D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

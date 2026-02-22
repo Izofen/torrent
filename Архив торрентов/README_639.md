@@ -1,3 +1,38 @@
+###  Публикация: 439839   (972789) от 21.01.2012
+
+Woods Of Ypres - Deepest Roots And Darkest Blues (2007) [FLAC|Lossless]<Black Metal, Death Metal, Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Northern Cold :: 05:32
+02. Iron Grudge :: 03:57
+03. Your Ontario Town Is A Burial Ground :: 05:35
+04. Through Chaos And Solitude I Came... :: 04:58
+05. Years Of Silence (And The Private Joke) :: 04:27
+06. Distractions Of Living Alone :: 06:16
+07. Deepest Roots: Belief That All Is Lost :: 02:12
+08. Darkest Blues: Relief That Nothing Can Be Done :: 04:53
+09. Thrill Of The Struggle :: 06:32
+10. December In Windsor :: 03:00(   Читать дальше...   )2007Жанр: Black Metal, Death Metal, Heavy MetalПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 439654   (972787) от 21.01.2012
 
 VA - German TOP100 Single Charts (19.01.2012) [MP3|139-270 kbps]<Dance, Pop>
@@ -697,32 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A09FC4298BE28443212B3AFD9B72073EC7A5381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439376   (972708) от 21.01.2012
-
-Хоккей. НХЛ Сезон 2011/2012 Minnesota Wild vs Toronto Maple Leafs / NHL 11/12, RS: Minnesota Wild vs Toronto Maple Leafs (19.01.2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Матч регулярного чемпионата NHL 2011-2012Жанр: СпортПеревод: Одноголосый закадровый, профессиональный (Дмитрий Донской)Продолжительность: 1:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA5B8D6BA84F7D9693C2BBA5952491226EF8B85
 ```
 
 https://mybot314.ru/tekegram_catalog/

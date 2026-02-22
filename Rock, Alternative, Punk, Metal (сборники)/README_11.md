@@ -1,3 +1,32 @@
+###  Публикация: 1004970   (834158) от 08.04.2016
+
+VA - Love Lyric Compilation Rock Blues (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mungo Jerry - In the Summertime
+002. Monte Montgomery - Little Wing
+003. Mighty Mo Rodgers - Black Paris Blues
+004. Mike & The Mechanics - Mea Culpa(   Читать дальше...   )Жанр: Blues RockПродолжительность: 12:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD977424A9F05CDC6455BCA8EA33107B63DB5ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114254   (833499) от 14.03.2017
 
 VA - I Love Music! - Heavy Metal Edition Vol.32 (2017) [MP3|288-320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
@@ -717,35 +746,6 @@ VA - The Top 100 Most Played: Rock (2021) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDB710DD75176095A83CDE3E74E5D4EC39E1E427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381558   (820872) от 10.05.2020
-
-VA - Life under the rubble - collection (2020) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abuser - Creations (05:01)
-02. Accept - Stalingrad (05:59)
-03. Accuser - Perish By Oblivion (04:06)
-04. Agent Steel - Illuminati Is Machine (05:01)(   Читать дальше...   )Жанр: MetalПродолжительность: 07:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA2098A79493DAD310B22B218759CB25E443B60
 ```
 
 https://mybot314.ru/tekegram_catalog/

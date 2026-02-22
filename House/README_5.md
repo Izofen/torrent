@@ -1,3 +1,102 @@
+###  Публикация: 742630   (979151) от 06.01.2014
+
+VA - Sexy House Tunes (Deep Funky & Delicious) Vol.1 (2014) [MP3|320 кб/с]<Deep House / Club House / Funky House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Beach Lovers - Lemon Soda (06:20)
+02. Juicy Lotta - Get Down (06:47)
+03. Alan Palmieri - Catarroia (04:42)
+04. Piccadilly Groove Ensemble - Baby, Baby (04:49)
+05. Frank & Gee - New York Sensation (04:23)
+06. Gonzales Casal - Ritmo Tranquilo (06:10)
+07. Matteo Vanetti - Free Your Mind (05:46)
+08. Martinez - Creaming (06:10)
+09. Roger Vega - Rostos (04:25)
+10. Chill Vortex - Barita (06:20)(   Читать дальше...   )Жанр: Deep House / Club House / Funky HouseПродолжительность: 03:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B80C069A61D91A3FE4674C568854EB7730B33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356466   (979118) от 30.01.2020
+
+VA - Chic & Shock (House Music Selection 2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979118.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. House Boyzz - Now Baby Com (Boyzz Mix) 3:03
+2. Carl Carlton - I'll Wait Here (Deep Cut Mix) 3:07
+3. Piet Lorrigan - Baja Buggys (Root Mix) 2:59
+4. Paul Sandemann - Do It Yourself (Diy Edit) 2:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1F2571268888711DCBDEF986A6D9C234EA816F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742625   (979094) от 06.01.2014
+
+VA - Ministry Of Sound: Running Trax Summer 2014 (2014) [MP3|320 кб/с]<House, Club, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Disclosure - When A Fire Starts To Burn (04:38)
+02. Lana Del Rey vs. Cedric Gervais - Young And Beautiful (Cedric Gervais Remix) (03:40)
+03. Avicii - Wake Me Up (04:00)
+04. Alesso vs. OneRepublic - If I Lose Myself (03:37)
+05. Calvin Harris feat. Ayah Marar - Thinking About You (04:03)
+06. John Newman - Love Me Again (Gemini Remix) (04:05)
+07. The Aston Shuffle feat. Will Heard - Comfortable (04:15)
+08. Federico Scavo - Funky Nassau (03:56)
+09. Mark Knight feat. Sway - Alright (03:02)
+10. Elen Levon - Wild Child (DJ Ross & Alessandro Viale Remix) (03:56)(   Читать дальше...   )Жанр: House, Club, FunkyПродолжительность: 03:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9863F906289254786F570E36BC9BCB9964089D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 166120   (978925) от 13.01.2010
 
 Jean F Cochois - Gold In The Attic (2009) [MP3|320 kbps]<Deep House>
@@ -736,111 +835,6 @@ VA - Shake It: Pure Deep House Vol.1 (2013) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A865E286508A09EACDE9912C9914247CC5B4B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618236   (971188) от 13.02.2013
-
-VA - In The Name Of House: Deep & Soulful Session Vol.15 (2013) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Yse - Magic in Your Eyes (feat. Frank H. Carter III) (Giom Remix) (05:52)
-02. Southbound - Forever Changed (Original Mix) (07:34)
-03. Ruben F - Go Back in Time (Original Mix) (05:25)
-04. Daniel Kyo - Hypnotized (Kelvin K Remix) (06:43)
-05. Jon Flores - La Bahia (Original Mix) (06:18)
-06. Pete Dafeet - Mistakes (Original Mix) (07:18)
-07. Stanny Abram - S’argamassa (Baunzz! ‘a Bit Deepeh’ Remix) (07:01)
-08. Manjane - If You Wanna (Original Mix) (06:22)
-09. Jon Flores - Good Feelings (Original Mix) (06:32)
-10. Oscar Barila, Maiki - Debbie White (Simone Tavazzi Remix) (07:03)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96FF9F83688AA1799FE7EC6FD4D4368C742F3F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744809   (970719) от 12.01.2014
-
-VA - Intricate Records: Essentials 2013 [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. Fon.Leman - Lynx Eye (Jaytech Remix)
-002. Proff - Intensify (Original Mix)
-003. Sergey Tkachev - Syntro (Original Mix)
-004. Tasadi - You Know Me (Aerofeel5 Remix)
-005. Vadim Soloviev - Tempo (Flippers Remix)
-006. Verve & InSilico - Synergy (Shingo Nakamura Remix)
-007. Alexey Sonar - All Again (Dub Mix)
-008. Blend - Taking Flight (Original Mix)
-009. Cramp - 2030 A.d. (PROFF Remix)
-010. Fon.Leman - Heirloom (Original Mix)Жанр: Progressive HouseПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8445E1F7FFA6988BD2070D5488171D5DC0C5D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168010   (970144) от 20.01.2010
-
-VA - HouseVip (12.01.2010) [MP3|320 kbps]<Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970144.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Danger - 4h30 (F.O.O.L Remix) (5:42)
-2. Danny Soundz - Jack It Up (Original Mix) (5:09)
-3. Defunct! Feat. Mr Eyez - Drop the Bomb (Original Mix) (6:11)
-4. DJ Fenix feat. Supafly - Reason to live (Original rmx) (7:37)
-5. Foundation - Boogie Wonderland (Noll & Kliwer Travolta Remix) (5:39)
-6. Franklin & Navaro - I Need Love (Electro Banger Remix) (4:30)
-7. John Revox vs EasyTech - Sexy Ole (Disco Fanatics Bootleg) (5:26)
-8. Michael Feiner - The Feeling (Jean Elan Remix) (6:16)
-9. Ray Guarano - Killing Me (Original Club Mix) (7:55)
-10. Re-Deux - Another Lonely Night (Rev-Players Extended Remix) (6:06)(   Дальше...)Жанр: Electro House
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

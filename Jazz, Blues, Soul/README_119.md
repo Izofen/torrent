@@ -1,3 +1,99 @@
+###  Публикация: 188577   (866326) от 03.04.2010
+
+Miles Davis - 2 альбома (1999, 2001) [APE, FLAC|Lossless]<Jazz, Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Мягкие, лирические баллады в исполнении трубача Майлза Дэвиса (Miles Davis) и др. музыкантов.
+Можно расслабиться и отдохнуть...01. I Fall In Love Too Easily (6:48)
+02. I Thought About You (4:55)
+03. Summer Night (5:58)
+04. My Ship (4:31)
+05. Someday My Prince Will Come (9:08)
+(   Читать дальше...   )Жанр: Jazz, Hard Bop, CoolПродолжительность: 03:39:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767681   (866310) от 17.03.2014
+
+The Jeff Steinberg Jazz Ensemble - Jazz Blends (2006) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. How About You (3:09)
+02. That Old Black Magic (3:53)
+03. Black Coffee (4:21)
+04. Old Devil Moon (3:21)
+05. But Not for Me (3:44)
+06. A Taste of Honey (4:22)
+07. You're the Cream in My Coffee (4:11)
+08. I'll Never Fall in Love Again (4:35)
+09. The Coffee Song (4:00)
+10. You Stepped Out of a Dream (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317552D257E41F0B968A250885BABEFBDBEFAE56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999293   (866264) от 21.03.2016
+
+VA - Ultimate Smooth Jazz (2009) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы обязательно влюбитесь в этот сборник. Во-первых, потому что все мелодии здесь удивительно узнаваемы  и знакомы. Во-вторых, потому что легкое и непринужденное исполнение создаст такое же легкое настроение. Ну и наконец, потому что завораживающие джазовые интерпретации и расслабляющие ритмы с изяществом плетут кружева мелодий. Слушая эти три диска я представлял себя (   Читать дальше...   )CD1:
+01. Bob James - Angela  (5:44)
+02. Richard 'Groove' Holmes - Moon River  (6:28)
+03. 2Play - Just The Two Of Us  (4:33)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 03:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA18E917E116E56C3705A2D63444398F1F6EAF81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999055   (866251) от 21.03.2016
 
 100 Watt Vipers - Cold Sunday Blues (2016) [MP3|320 кб/с] <Blues, Blues Rock>
@@ -682,93 +778,6 @@ Omer Klein - Sleepwalkers (2017) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92702B34338FBF6701319A6C956F4FF6519F6F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108108   (864835) от 24.02.2017
-
-Nils Petter Molvaer - Baboon Moon (2011) Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mercury Heart [05:56]
- 02.A Small Realm [03:22]
- 03.Recoil [05:13]
- 04.Bloodline [04:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C04C76F17A032A85EF0100F959BDB10FACEDFA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108119   (864832) от 24.02.2017
-
-Jean Goldkette And His Orchestra - Victor Recordings (1924-1928) 2001, Trans Atlantic Radio [FLAC|Lossless|tracks + .cue] <Early Jazz, Dance Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's The Blues [02:48]
- 02.I Didn't Know [03:10]
- 03.After I Say I'm Sorry [03:18]
- 04.Dinah [03:07](   Читать дальше...   )Жанр: Early Jazz, Dance BandПродолжительность: 01:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C71FFD3D6732C255713A4DFF9DA2E91A64FA0EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108273   (864831) от 24.02.2017
-
-Belmont Blues Kingz - Blues in Sonoma (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rhythm-&-Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Jam (1:52)
-02. Have A Good Time (2:30)
-03. Everybody's Fishin' (3:35)
-04. Drugs Guns And Violence (4:04)(   Читать дальше...   )Жанр: Blues, Rhythm-&-BluesПродолжительность: 00:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795D6791CBF355AA2599B00D542FF9BD5811F073
 ```
 
 https://mybot314.ru/tekegram_catalog/

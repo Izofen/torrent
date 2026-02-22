@@ -1,3 +1,90 @@
+###  Публикация: 1692991   (122031) от 19.01.2024
+
+Den Harrow - Day By Day (1987) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Day By Day
+02.  Don't Break My Heart
+03.  Catch The Fox
+04.  Don't Forget (To Buy This Record)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FD75DA61D57C86B0BB7C87D944645DC1883FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693093   (122029) от 19.01.2024
+
+Den Harrow - The Best Of Den Harrow (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Holiday Night
+02.  I Wanna Go
+03.  Lies
+04.  Charleston(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D45BC23AC532D1629EF4AEB5F76F465A3A74FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693179   (121940) от 20.01.2024
+
+VA - 90'S EuroDance Hitmix 2 (2024) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double AA - Dancers in the Night (Extended Version) (05:33)
+02. Ritmo Ritmo - Caramba Caracho (03:32)
+03. Heath Hunter & The Pleasure Company - Master & Servant (03:39)
+04. Heath Hunter & The Pleasure Company - Love Is All Around (03:40)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8BCC5683996959A58A39B45BDA77BD582B174F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688158   (121938) от 20.01.2024
 
 A-HA - Hunting High And Low (1985) 1st German Press Gold disc [APE|Lossless|image + .cue] <Pop>
@@ -655,93 +742,6 @@ Anastacia - Our Songs (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5F4C83FA4798BAB794B2BE5647580CBC2457D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695561   (120138) от 30.01.2024
-
-Александр Морозов - The Best (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Люби меня, люби [00:02:54]
-02 - Будь собой [00:03:31]
-03 - Ты только верь [00:03:35]
-04 - Почему черёмуха [00:03:54](   Читать дальше...   )Жанр: PopПродолжительность: 01:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8230BBA2B72736D1FB1E91EED37A61862F61C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695564   (120129) от 30.01.2024
-
-Валерий Сёмин - С любовью! (2024) [MP3|320 Kbps] <Фолк, Эстрада>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - На деревне-матушке [00:04:01]
-02 - А по речке лодочка [00:03:37]
-03 - Эх, раз, ещё раз! [00:03:07]
-04 - Деревенька ты моя заповедная [00:03:35](   Читать дальше...   )Жанр: Фолк, ЭстрадаПродолжительность: 02:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECEDBFFF338E42681434B3669885CA4D0A2F2BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695718   (120082) от 30.01.2024
-
-Виктория Черенцова - Карантин (2021) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карантин
-02. Не бойся
-03. Опять дожди
-04. Однажды ты соскучишься по мне(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF91F793757273866E54F2CD8AC8F1BCA556363
 ```
 
 https://mybot314.ru/tekegram_catalog/

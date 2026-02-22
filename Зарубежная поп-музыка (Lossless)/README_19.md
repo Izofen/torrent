@@ -1,3 +1,32 @@
+###  Публикация: 1103958   (883514) от 13.02.2017
+
+Hermes House Band - No.1 Gold Selection (Greatest Hits) (2006) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go West
+02. Come On Eileen
+03. I Will Survive 2006
+04. (Is This The Way To) Amarillo(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20BBF4B2DF2988DE7B6599671A05C54D1D1DAA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995691   (882844) от 12.03.2016
 
 VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Europop>
@@ -745,35 +774,6 @@ Duran Duran - Notorious (1986) Unofficial Release [APE|Lossless|image + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A18AEFA91BAE3FCF295B1340ADBE657FC7BB016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105617   (874815) от 18.02.2017
-
-VA - BRAVO Hits 96 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Paul feat. Dua Lipa - No Lie (3:43)
-02. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye (4:10)
-03. Alan Walker - Alone (2:39)
-04. Nevada feat. Mark Morrison & Fetty Wap - The Mack (2:46)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AD1AD45936FE439BCDC0196C4CB0514F9DBA4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1119058   (809288) от 27.03.2017
+
+VA - WMC Bonzai Progressive (2017) [MP3|320 Kbps] <Dance, Club, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809288.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Airwave - The Quest For Beauty (Jam El Mar Remix) 8:50
+002. Stan Kolev - Forsaken (Original Mix) 6:51
+003. Darko De Jan - Reflections 6:34
+004. Phi Phi - Breaking Danger 8:27(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 08:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A61B07F54F6E608ECA2E20C58F576360EE99D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119234   (809151) от 27.03.2017
+
+VA - Moon River: 20 All-Time Favourite Love Songs (1998) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Disco, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon River (2:40)
+02. My Guy (3:25)
+03. Friends (4:51)
+04. Dont Let The Sun Catch You Crying (2:23)(   Читать дальше...   )Жанр: Pop, Soft Rock, Disco, OldiesПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B735EFF307DB54AE1A0DB04F418454B1D87D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119120   (808943) от 27.03.2017
+
+Charli XCX - Number 1 Angel (2017) [FLAC|Lossless|tracks] <Dance-Pop, Electro, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Dreamer (feat. Starrah and RAYE)  (03:58) 
+02|  3AM (Pull Up) (feat M)  (03:59) 
+03| Blame It On You  (03:47) 
+04| Roll With Me  (03:21) (   Читать дальше...   )Жанр: Dance-Pop, Electro, Synth-popПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57E69A55121B544D57406607008D72C128B423C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119261   (808913) от 27.03.2017
+
+VA - NRJ Spring Hits (2017) 3CD [MP3|320 Kbps] <Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dance, R&BПродолжительность: 03:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F2F71FA957640FFBDFC9A211840CD17F07C981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119187   (808818) от 27.03.2017
 
 Cerrone - X-XEX (1993) [FLAC|Lossless|image + .cue] <House, Ambient>
@@ -629,124 +742,6 @@ Christie Allen - Magic Rhythm (1979) Reissue, 1997, Mushroom [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2041CE7215765843DA2EF2AC8917CB4F9582E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548435   (805683) от 26.10.2021
-
-Michael Jackson - Bad (1987) 2012, 25th Anniversary Deluxe Edition, 3CD [FLAC|Lossless] <Pop, R&B, Funk, Dance, Rock, Dubstep>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный релиз состоит из трёх CD-дисков из нового Коллекционного издания в формате Бокс Сета, состоящего из 3-х СD-дисков (и 1-го DVD, в этой раздаче отсутствует).
-
-Диск 1 - ремастеринговые хиты основного альбома (01. Bad (4:08)
-02. The Way You Make Me Feel (4:59)
-03. Speed Demon (4:05)
-04. Liberian Girl (3:50)(   Читать дальше...   )Жанр: Pop, R&B, Funk, Dance, Rock, DubstepПродолжительность: 03:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E82C0398F650ADDF86FE4472D6378CA51BBD37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009975   (805564) от 23.04.2016
-
-VA - Radio 538 Hitzone 77 (2016) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
-01. Dua Lipa - Be The One  (3:24)
-02. Coldplay -  Hymn For The Weekend  (4:21)
-03. Fifth Harmony feat. Ty Dolla Sign - Work From Home  (3:38)(   Читать дальше...   )Жанр: Top 40, Pop, RockПродолжительность: 02:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD27BB68E39FCFDFCF08699ABE1BFE4DCB98C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119906   (805484) от 29.03.2017
-
-VA - Sports Megamix 2017.1 (2017) 3CD [MP3|320 Kbps] <Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805484.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robin Schulz feat. Akon - Heatwave (Muzzaik Remix) (2:11)
-002. Crew 7 - Last Night A DJ Saved My Life (Club Mix) (1:48)
-003. Marco Tolo feat. Jean Pearl - Would I Lie To You (Baby) (Extended Mix) (1:48)
-004. Propulsive & Robin Embrace - Give Me Tonight (Extended Mix) (1:36)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 03:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1A5FAF10E1DF334E26C016785899DC909F9894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119660   (805365) от 29.03.2017
-
-Baby's Gang - Challenger (2016) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Challenger (05:18)
-02. Jamin (05:58)
-03. Happy Birthday (To My Mammy) (04:57)
-04. Happy Song (Remix) (05:38)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB39570A0F9885EA958661296552C857B40127F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1482350   (1007620) от 08.07.2021
+
+Frank Marocco Groups - Brazilian Waltz (1988) Discovery Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Accordion Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Gorgeous George [3:51]
+02. Brazilian Waltz [4:40]
+03. Ecaroh [5:03]
+04. Spring Is Here [5:03](   Читать дальше...   )Жанр: Mainstream Jazz, Accordion JazzПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1601680134E06B70E9DA9E38F81A0D5525845814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482780   (1007316) от 10.07.2021
 
 Stephane Grappelli - Live In Warsaw '91 (1994) Jukebox Collection [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Jazz Violin>
@@ -716,35 +745,6 @@ Edgar Hayes And His Orchestra - 1938 - 1948 (1999) Classics [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1624A4808432449BE9F3D48DD428999C67833B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350148   (1003853) от 04.01.2020
-
-Splashgirl - Doors. Keys. (2007) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Contemporary Jazz, Dark Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 Is 3 Is 2 Are One (3:21)
-02. Leo (6:04)
-03. Forsøk (5:01)
-04. Shut Up And Dance! (6:08)(   Читать дальше...   )Производство: Aim Records – AIMCD121Жанр: Dark Jazz, Contemporary Jazz, Dark ExperimentalПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABA6E496BE4736014471210712A0E285007718C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1744821   (105192) от 24.08.2024
+
+Sabrina Carpenter - Short n' Sweet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taste [00:02:37]
+02. Please Please Please [00:03:06]
+03. Good Graces [00:03:05]
+04. Sharpest Tool [00:03:38](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32416C1DEBDD015BD73327CBDAA6F65DA5E271FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744814   (105188) от 24.08.2024
+
+101 Strings Orchestra - I Left My Heart in San Francisco (1964) Remaster from the Original Somerset Tapes, 2014-2024, Somerset [FLAC 24/96|Lossless|WEB-DL|tracks] <Easy Listening, Jazz, Blues, P ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Left My Heart in San Francisco (2014 Remaster) [00:02:58]
+02. Limehouse Blues (2020 Remaster) [00:02:35]
+03. Top o' the Mark (2024 Remaster) [00:04:50]
+04. Cable Cars (2024 Remaster) [00:02:35](   Читать дальше...   )Жанр: Easy Listening, Jazz, Blues, PopПродолжительность: 00:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8198893EFF70964DD3B47E3246BED7A46644FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745113   (105184) от 24.08.2024
+
+Burning Point - Studio Albums (8 releases) (2001-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burning Point — финская пауэр-метал-группа из города Оулу. Burning Point сочетают музыкальность классических Accept, Black Sabbath и Judas Priest со страстью Children Of Bodom.2001 - Salvation By Fire
+2003 - Feeding The Flames
+2006 - Burned Down The Enemy
+2009 - EmpyreЖанр: Heavy Metal, Power MetalПродолжительность: 08:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80704816DAC85F2D4AC32C87410CB4431C94A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744822   (105182) от 24.08.2024
+
+The Emperor Machine - Island Boogie (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Funk, Soul, Nudisco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Island Boogie [00:06:29]
+02. La Cassette [00:08:27]
+03. Dévoilez-Vous [00:08:26]
+04. Walk the Dog [00:08:11](   Читать дальше...   )Жанр: Electronic, Funk, Soul, NudiscoПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFB6A78C5F4A36E1A4DEA6BE391BDE6DDE4FC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745008   (105180) от 24.08.2024
+
+Soen - Studio Albums (7 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soen - прогрессивная рок/метал группа из Стокгольма, Швеция.2012 - Cognitive
+2014 - Tellurian
+2017 - Lykaia
+2019 - LotusЖанр: Progressive Rock, Progressive MetalПродолжительность: 07:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877852EBAD88A61CC6DD85F96CF4471BEEE052B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744819   (105176) от 24.08.2024
+
+Glass Spells - Crystals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without You [00:03:18]
+02. Venom [00:03:44]
+03. Glow [00:03:32]
+04. Before Dawn [00:03:44](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63091467967FF552D9B3CCA17B57BDF69A593B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744999   (105168) от 24.08.2024
 
 Static-X (Wayne Static) - Studio Albums (10 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial Metal, Nu Metal>
@@ -571,180 +745,6 @@ The Georgia Thunderbolts - Rise Above It All (2024) [FLAC 24/44.1|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6BF953D6E177FA76A210C935702C96136208C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745476   (105057) от 26.08.2024
-
-Shaman (a.k.a. Shaaman) - Studio Albums (5 releases) (2002-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shaman - бразильская прогрессив-пауэр-метал группа, образованная в 2000 году Рикардо Конфессори, Луисом Мариутти и Андре Матосом после того, как они покинули "Angra".2002 - Ritual
-2005 - Reason
-2007 - Immortal
-2010 - OriginsЖанр: Progressive/Power MetalПродолжительность: 04:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EE556676D92A88B8559B5000E429A09E42ACDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745459   (105056) от 26.08.2024
-
-Angra - Studio Albums (11 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angra — бразильская пауэр-метал-группа, основанная в 1991 году.1993 - Angels Cry
-1996 - Holy Land
-1998 - Fireworks
-2001 - RebirthЖанр: Power/Progressive MetalПродолжительность: 10:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50CDA7E32FE24EEA6468A53F3CD516B2A061FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745444   (105047) от 26.08.2024
-
-Alltheprettythings - Prose (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Teeth (3:49)
-02. Chin Up, Kid (3:09)
-03. Teenage Lines (3:45)
-04. I Want You Back (3:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F393C4EBB612770A3716CA40D5A086E50610746D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745465   (105046) от 26.08.2024
-
-Matyas Gayer Trio - Westbourne Park (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterdays (5:45)
-02. On Green Dolphin Street (6:20)
-03. Homage To Cedar (5:26)
-04. Mr Harris (6:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7831FE73276B14786C92F79A77AC0C78307812B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745484   (105045) от 26.08.2024
-
-Rune Robert Friis - Built For Comfort, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running on Empty (3:16)
-02. Annabelle (3:47)
-03. Glitter & Dirt (3:31)
-04. Gin Gin Mule (7:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA3E15C963E657BA4B7D6C5DE6A3A14892713F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745467   (105044) от 26.08.2024
-
-Almah - Studio Albums (5 releases) (2006-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Almah — бразильская метал-группа, сольный проект солиста "Angra" Эдуардо Фаласки.2006 - Almah
-2008 - Fragile Equality
-2011 - Motion
-2014 - UnfoldЖанр: Progressive/Power MetalПродолжительность: 04:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2BA07E0E0D4F9999C966DC00B013B460327009
 ```
 
 https://mybot314.ru/tekegram_catalog/

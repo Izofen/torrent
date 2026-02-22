@@ -1,3 +1,61 @@
+###  Публикация: 1221711   (691532) от 26.04.2018
+
+Giriu Dvasios - Gaja (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klajoja (04:48)
+ 02. Perkunas (03:56)
+ 03. Gentis (03:56)
+ 04. Buk (07:12)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291D5B88B4DE5C7B49CE79C1869FE130E1262FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221596   (691266) от 26.04.2018
+
+Monolink - Amniotic (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amniotic (7:31)
+ 02. Black Day (5:37)
+ 03. Sirens (5:58)
+ 04. Rearrange My Mind (7:18)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CEE791CB2204CAFAFE8FD9CF89763B695606D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028395   (690783) от 22.06.2016
 
 VA - Balkan Connection Summer 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -681,64 +739,6 @@ VA - Summer Sessions 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B0C35339F97CA1EA5AFF7B993B1D1CB59E9A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029652   (680152) от 27.06.2016
-
-VA - Get Physical Music Presents: Body Language, Vol. 18 by Tim Green (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Green - Body Language, Vol. 18 (Continuous Mix)
-02. Sven Laux - Off You Go!
-03. Ole Biege - Justus
-04. Landside - Still There(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D74F80A61738B3D391FC704D0CB2D1F8493E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223138   (679367) от 02.05.2018
-
-PHCK - Natu (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natu (Original Mix) (10:40)
- 02. Cecilia (Original Mix) (7:10)
- 03. Magnolia (Original Mix) (8:11)
- 04. Natu (El Mundo Remix) (8:31)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34877643729E8AE8E8F3222F5054CB1B5A473940
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1053264   (526728) от 16.09.2016
+
+VA - Black Hole House Music 09-16 (2016) [MP3|320 Kbps] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dryra & Epicfail - Run Your Love 3:48
+02. Tim Arisu - Good Times (Rowen Reecks Remix) 3:51
+03. Eskai & SNR - Find Yourself 3:12
+04. The Assistants - You Are the One 3:15(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F219E3342EC18768C423D4025D954FC622F0BC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156913   (526455) от 09.08.2017
+
+VA - Vibes Del Mar (50 Progressive House Tunes) (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcelos Pi, Swooney - Live (Alex Greed Remix)
+02. Max Lean - Dreamer (PROMI5E Remix)
+03. POINT BLVNK, TAAMY - Full Smash (Original Mix)
+04. Mark Bale, Lost Identity - Get Ready (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27B1228CA3C9322A8B0C60834CA5990DE2E8ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156962   (526444) от 09.08.2017
+
+VA - Global Player Saint Tropez 2017, Vol.1 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York – What are we waiting for
+02. Goose Bumps , Jason Caesar – This Life (Funkerman Remix)
+03. HP Vince – Shut Up
+04. Andy B. Jones, Matty Menck – World To Life (Radio Edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E03C325AB1C4F1243DC8373877FC20E5D9E57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156877   (526400) от 09.08.2017
 
 VA - Ministry Of Sound - Chilled House Ibiza (2017) 2CD [MP3|320 Kbps] <Chill House, Lounge>
@@ -664,97 +751,6 @@ VA - Milk & Sugar Summer Sessions 2022 [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0AD11FA606B4A6A54BB2E52D3C840E6A80425EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315599   (510982) от 22.07.2019
-
-VA - Future House (2019) [MP3|320 Kbps] <House, Progressive House, FutureHouse, ClubHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. General Wooky - Jungle Boogie (Clubmix) 4:42
-02. Made In 1978 - Acrobat (Extended Mix) 6:02
-03. Mister Shuffle - Dance All Day (Ibiza Mix) 5:42
-04. Tony Wong - Back 2 Back (Warehouse Mix) 5:03(   Читать дальше...   )Жанр: House, Progressive House, FutureHouse, ClubHouseПродолжительность: 01:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FA1DAFB3B7EB77C4DCC31F83A777824FFE608F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315827   (510978) от 22.07.2019
-
-VA - Like A Summer Day, Vol. 3 (2019) [MP3|320 Kbps] <House, Deep House, Indie Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510978.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Walter N. – Dubai Beach (05:02)
-2. Marco Malinverno – Heart Breaker (05:57)
-3. Living Large – Lacetti (04:44)
-4. Junior D – Gold Lounge (05:15)(   Читать дальше...   )Жанр: House, Deep House, Indie DanceПродолжительность: 05:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6659880C5EA2A6780AFB8DC0D47EFBDDFF6809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538199   (510444) от 22.08.2012
-
-Hard Bass School - Album (2012) [MP3|320 кб/с]<Pumping House / Hardbass>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Bass School - Album (2012)
-
-Год: 2012
-Жанр: Pumping House / Hardbass
-Продолжительность: 00:56:40Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Intro (0:31)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33328E6AEF4EC494E626E1A07247C9172365C1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

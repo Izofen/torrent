@@ -1,3 +1,32 @@
+###  Публикация: 954405   (342416) от 07.11.2015
+
+VA - Recoverworld Radio 001 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rich Smith - Nightfall (Original Mix) (07:02)
+ 02. Ehren Stowers - Oracle (Original Mix) (07:56)
+ 03. UDM - Beyond the Borders (Original Mix) (08:13)
+ 04. Andy Cain - Nailed to the Sky (Original Mix) (08:08)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962FB137D6A3A0282079A79190B6E2A470E1A918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330460   (341394) от 10.10.2019
 
 Orjan Nilsen pres. Orion - Gobstice (2007) EP [MP3|320 Kbps] <Trance>
@@ -709,35 +738,6 @@ VA - Silk Music Pres. Terry Da Libra 02 (2018) [MP3|320 Kbps] <Trance,Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59A34EAA3B525FBB315358A8EB475B09464BB7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259011   (333028) от 01.11.2018
-
-VA - Richard Durand – The Air We Breathe (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geert Huinink & Richard Durand – Insolidus (Intro Mix)
-02. Richard Durand – The Air I Breathe (Original Mix)
-03. Richard Durand – Land of Angels (Original Mix)
-04. Richard Durand & Mike Schmid – Kill the Fear (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90788A6D7C4FDC224D33E447F83F3D986538C0EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

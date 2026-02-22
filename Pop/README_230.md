@@ -1,3 +1,120 @@
+###  Публикация: 1419611   (337695) от 29.10.2020
+
+VA - Christmas 2020 Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gwen Stefani - Jingle Bells
+ 02. The Vamps - We Wish You A Merry Christmas
+ 03. Justin Bieber - Mistletoe
+ 04. Brenda Lee - Rockin' Around The Christmas Tree (Single Version)(   Читать дальше...   )Жанр: Pop, Rock, ChristmasПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2113136AF159E42FE3AB51C1753E85568A161542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413145   (337684) от 29.10.2020
+
+Missio - Discography (2016-2020) 3 Albums, 2 EP's, 14 Singles [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Synth-Pop, Future Bass>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337684.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Animal 3:30
+2. I Do What I Want 3:37
+3. Middle Fingers 3:35
+4. I Don't Even Care About You 3:35(   Читать дальше...   )Жанр: Pop-Rock, Synth-Pop, Future BassПродолжительность: 04:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370F6C3127BCB777419624BC919C643BFC3C6180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840092   (337524) от 11.11.2014
+
+VA - 1982 The Collection (Time Life) (1994) [FLAC|Lossless]<Pop, Rock, Jazz, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий диск из серии Time Life Music. Решил поделиться. Может кто молодость вспомнит.01. Survivor - Eye Of The Tiger  (4:06)
+02. Dexy`s Midnight Runners - Come On Eileen  (4:01)
+03. Asia - Heat Of The Moment  (3:49)
+04. Kim Wilde - View From A Bridge  (3:32)(   Читать дальше...   )Жанр: Pop, Rock, Jazz, ElectronicПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E67AADE6C3D52F950E742B6988436A113D18BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581487   (337430) от 27.11.2012
+
+Enrique Iglesias - 12 альбомов + 7 синглов (1995-2011) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_337430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glam As You Club Mix by Guena LG [07:59]
+02. Junior Caldera Club Mix [05:20]
+03. Jody Den Broeder Club Mix [07:51]
+04. Jody Den Broeder Dub Mix [07:51]
+05. Jody Den Broeder Radio Mix [03:59]Жанр: Pop, DanceПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955031   (337339) от 09.11.2015
 
 VA - Barbra Streisand & Partners (2014) [FLAC|tracks + .cue]<Pop, Vocal, Ballad>
@@ -627,122 +744,6 @@ Zinc - Street Level (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Boog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3900FEB4DF4C1F0E301BC94685868A2B52A5F36F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258661   (334600) от 31.10.2018
-
-VA - Hits From The Dancefloor (2018) [MP3|320 Kbps] <Funky, Vocal, Club, Nu Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Busiello - My Friend
-02. Alex Barattini - Abc
-03. Corti & Lamedica - I Rock I Sweat I Dance
-04. Nick Detti - I Do It For Money (Funky Bull Remix) (Feat. Francesca)(   Читать дальше...   )Жанр: Funky, Vocal, Club, Nu DiscoПродолжительность: 02:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0AE880AC5B4248EF284022BF03D8CC124CA6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258650   (334592) от 31.10.2018
-
-Intercity Sound Association - Philly Sound (1976) LP [MP3|320 Kbps] <Space-Age, Disco, Jazz-Funk, Easy Listening>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Train (2:29)
-02. Alaska Flight (2:43)
-03. Proud Horse (2:33)
-04. Night Shift (2:48)(   Читать дальше...   )Жанр: Space-Age, Disco, Jazz-Funk, Easy ListeningПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F484DD83911FB27A3CA3ACEFE9726610669E3B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258768   (334240) от 31.10.2018
-
-Игорь Саруханов - RЕАНИМАЦИЯ (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334240.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Парень с гитарой (Dance version 2018)
-2. Зелёные глаза (Dance version 2018)
-3. Лодочка (Dance version 2018)
-4. Моя любовь по городу (Dance version 2018)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F8A63475E270FED4F681E908784A4C39DD1C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420075   (333770) от 31.10.2020
-
-Roxette - Bag Of Trix Vol. 1 (Music From The Roxette Vaults) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help! (Abbey Road Sessions November 15, 1995) (2:54)
- 02. Listen To Your Heart (Abbey Road Sessions November 15, 1995) (3:34)
- 03. Let Your Heart Dance With Me (3:07)
- 04. Waiting For The Rain (Studio Vinden Demo 1997) (3:33)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0EA0F33A3DA3CD05CC14CBCD774E2BAD7D3291
 ```
 
 https://mybot314.ru/tekegram_catalog/

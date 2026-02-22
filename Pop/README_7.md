@@ -1,3 +1,119 @@
+###  Публикация: 1611419   (1041303) от 11.02.2023
+
+VA - Romantic Collection. Magic Blues (2000) [OGG Vorbis|480 Kbps] <Blues>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Blue–	Gold Rain
+02. Beth Hard Band–	Am I The One
+03. Rhythm Kings–	Bad To The Bone
+04. Smokin' Joe Kubek–	Walk On(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA511D9358ACA7F5FBED40E1EB6209E765282E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438310   (1041149) от 08.01.2021
+
+Skin - Hot Skin (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let The Music (Move You On) (4:15)
+02. Lady Oh Lady (3:50)
+03. Baby Baby (3:47)
+04. Something Called Love (5:38)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13604A91CEE0CF7DCB2FD78724B8D0BD83C57856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438466   (1041146) от 08.01.2021
+
+Seemone - Seemone (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brun de Folie (02:52)
+02. La Belle Et la Bête (03:03)
+03. Parle-moi (03:12)
+04. Coeur de Pierre (03:21)(   Читать дальше...   )Жанр: Pop, Vocal, InstrumentalПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA53B042E99BB4DA8038776C5071DBC262D588D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611667   (1041126) от 12.02.2023
+
+Валерия - 16 Альбомов (1992-2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Океаны
+02. Ничего личного
+03. Можно я побуду счастливой?
+04. С такими, как ты(   Читать дальше...   )Жанр: PopПродолжительность: 14:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39271EB40CED4E5889980E07AD235C69491C7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438387   (1041076) от 08.01.2021
 
 Barry Gibb & Friends - Greenfields: The Gibb Brothers' Songbook (Vol. 1) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ VA - Romantic Collection. Black and Beautiful (2000) [OGG Vorbis|480 Kbps] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F5D1E4340C7EDD48E6A85D5CCD335A17003A1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612579   (1040091) от 16.02.2023
-
-VA - Romantic Collection. Country (2000) [OGG Vorbis|480 Kbps] <Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean-Luc Ponty - New Country
-02. John Fogerty - Big Train
-03. Reba McFutire - Cumb That Mountain High
-04. S.Buono - Ode To 33(   Читать дальше...   )Жанр: CountryПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E456539FF880938B616BD058999FE62D83A9EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439351   (1040079) от 12.01.2021
-
-Ric Perilano's Disco Sound Band - Sound Of The 80s (Instrumental) (2010) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dallas (4:25)
-02. Imagination (3:38)
-03. I'm Alive (3:06)
-04. L'lama L'amor (3:55)(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, InstrumentalПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF78A8A7060A3B606A1BADA62A4D6FC2374E039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612805   (1039807) от 17.02.2023
-
-VA - Romantic Collection. Diva Mystic (2000) [OGG Vorbis|480 Kbps] <Electronic, Pop, 	New Age>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cecilia-Daughter Of The Midnight Sun
-02. Sally Oldfield-Flaming Star
-03. Marie Frediriksson-Det Regnar Igen
-04. Ofra Haza-Give Me A Sign(   Читать дальше...   )Жанр: Electronic, Pop, 	New AgeПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C614E185028DE11A6546A540A5F7141BF450EE49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439732   (1039530) от 14.01.2021
-
-Barry Gibb and Friends - Greenfields: The Gibb Brothers' Songbook (Vol. 1) (2021) [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barry Gibb feat. Keith Urban - I’ve Gotta Get a Message to You (3:14)
-02. Barry Gibb feat. Jason Isbell - Words of a Fool (3:47)
-03. Barry Gibb feat. Brandi Carlile - Run to Me (3:22)
-04. Barry Gibb feat. Alison Krauss - Too Much Heaven (3:39)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291AA5AB817A6A9756AD310ED9C4ACE6E6360421
 ```
 
 https://mybot314.ru/tekegram_catalog/

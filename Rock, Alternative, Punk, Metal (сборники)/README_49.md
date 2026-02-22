@@ -1,3 +1,32 @@
+###  Публикация: 1438017   (5103) от 31.08.2025
+
+VA - Workout Motivation (2019-2025) Alternative Edition, Mixed by Sergey Sychev [MP3|320 Kbps] <Rock, Alternative, Other> - Обновляемая раздача
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5103.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Deuce - Do You Think About Me
+2. We As Human - Double Life - EP Version
+3. Manafest - Kamikaze
+4. Rain City Drive - Ride or Die(   Читать дальше...   )Жанр: Rock, Alternative, Other, CoverПродолжительность: 19:01:17 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3329148FA7971377155BD80F88748653C472C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815956   (4665) от 02.09.2025
 
 Graham Bonnet - Voice Of Rock - Compilation (1969-2025) [MP3|320 Kbps] <Hard rock, Heavy metal, AOR, Blues rock>

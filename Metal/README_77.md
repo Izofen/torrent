@@ -1,3 +1,32 @@
+###  Публикация: 1405452   (483676) от 30.08.2020
+
+Motorpsycho - The All Is One (2020) [MP3|320 Kbps] <Psychedelic Rock, Alternative Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The All Is One (8:50)
+02. The Same Old Rock (One Must Imagine Sisyphus Happy) (5:18)
+03. The Magpie (5:36)
+04. Delusion (The Reign of Humbug) (2:44)(   Читать дальше...   )Жанр: Psychedelic rock, alternative rock, progressive rockПродолжительность: 01:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A746F59777ED5F54FA9CD1F1CB455AFF1F8D3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964289   (482112) от 21.08.2017
 
 Pomegranate Tiger - Boundless (2015) [MP3|320 кб/с]<Experimental Progressive Metal, Instrumental>
@@ -713,35 +742,6 @@ Gloryhammer - Space 1992: Rise of the Chaos Wizards (2015) 2CD [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35DB5BCBDB0F6352DF4F1736007B22A3D63D37CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407208   (468735) от 06.09.2020
-
-Abated Mass of Flesh - Коллекция: 2-CD (2020) [MP3|320 Kbps] <Brutal Death, Slamming Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468735.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Abandoned Homes (2:14)
-2. Creation Weeps (3:12)
-3. Subsequent Abuse (3:04)
-4. Dragged Through the Mud (3:32)(   Читать дальше...   )Жанр: Brutal Death, Slamming Brutal Death MetalПродолжительность: 2 CD: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653D111307D1B55E9BBAD4400767669DEF79D1DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

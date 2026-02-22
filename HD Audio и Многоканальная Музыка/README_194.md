@@ -1,3 +1,177 @@
+###  Публикация: 1790047   (68144) от 07.04.2025
+
+Fear Factory - Demanufacture (1995) Reissue, 2007, Cargo Records [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68144.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Demanufacture
+A2. Self Bias Resistor
+A3. Zero Signal
+B1. Replica(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1634BEE1E7A644DF8A7A6686DBE07CBB0A70BBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790374   (68120) от 08.04.2025
+
+Dream Theater - Metropolis Pt. 2: Scenes from a Memory (1999) Reissue, 2025, Rhino Records [DSD256|Lossless|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68120.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Regression
+A2 Overture 1928
+A3 Strange Deja Vu
+A4 Through My Words(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C74B60F260D1526D8A489986E9C9D5FFA70DCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790358   (68101) от 08.04.2025
+
+Akolyth - Akolyth (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68101.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. A Work of Ages (09:03)
+A2. The Night, the Fog (09:13)
+B1. What Dwells Between Fractured Worlds (09:20)
+B2. To Become His Doorway (09:21)Жанр: Black MetalПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DFAAF0107925A935B648E889FBF2946B2E1467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790262   (68100) от 08.04.2025
+
+Daylight Dies - Studio Albums (5 releases) (2000-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daylight Dies — метал-группа из Северной Каролины, США, образована в 1996 году.2000 - Idle (EP)
+2002 - No Reply
+2006 - Dismantling Devotion
+2008 - Lost To The LivingЖанр: Melodic Doom/Death MetalПродолжительность: 03:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48ADE40EF46ED9C820660A3636C36B9832B7D96A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790340   (68096) от 08.04.2025
+
+Nightwish - The Crow, the Owl and the Dove (2012) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crow, the Owl and the Dove (Radio Edit)
+02. The Heart Asks Pleasure First (Theme From 'The Piano')
+03. The Crow, the Owl and the Dove (Album Version)
+04. The Crow, the Owl and the Dove (Instrumental)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42C39634DEBE05012EDDE53406DD5E490D8ADF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790524   (68087) от 09.04.2025
+
+Nightwish - Endless Forms Most Beautiful (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shudder Before the Beautiful
+02. Weak Fantasy
+03. Élan
+04. Yours Is an Empty Hope(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE29F8B9BA0D9429AA0EF54717194E2D7AE47C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790501   (68082) от 09.04.2025
 
 Manowar - Sign of the Hammer (1984)  [FLAC|24/192|tracks|Vinyl-Rip]<Heavy Metal>
@@ -568,179 +742,6 @@ Sewing Jar - Classic Hoots (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:080FF490805727D9FF48C51CD729766338010ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790723   (68000) от 10.04.2025
-
-Blue Stalk - Roller Coaster (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roller Coaster (3:55)
-02. Society (4:19)
-03. Cold Sand (5:48)
-04. Like a Broken Tile (5:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692CCBB3803B13CE908AAC011EC7DC795008FD4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790755   (67999) от 10.04.2025
-
-Vincent Ryder - Way Too Quiet (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Generation Lost Love (4:41)
-02. The Feeling (3:28)
-03. Be (4:58)
-04. Children in The Woods (2:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD17A311A3BA59C80CFBA542C23B144AA548D3CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790668   (67998) от 10.04.2025
-
-Elusive (Norway) - Studio Albums (3 releases) (2001-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Goth Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elusive — норвежская музыкальная группа, исполнявшая готик-рок вплоть до своего распада в 2009 году.2001 - Destination Zero
-2005 - The Great Silence
-2007 - Locked doors, drinks and funerals (songs from the desert)Жанр: Goth RockПродолжительность: 03:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C14E7AED4F1296D9B4BE30BAB502C9000340BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791022   (67994) от 11.04.2025
-
-Empire Of The Sun - Ask That God (2024) Remixes, 2025, EMI Recorded[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electropop, Synth-pop, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67994.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. Changes (DJ Tennis Remix) [00:03:33]
-00. Cherry Blossom (Vintage Culture Remix) [00:04:13]
-00. Music On The Radio (Adam Ten Remix) [00:03:54]
-00. The Feeling You Get (TELYKAST Remix) [00:03:36](   Читать дальше...   )Жанр: Electropop, Synth-pop, Indie PopПродолжительность: 00:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B03E7B98F68C53E9E2B9E110FD142B66CA6EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790906   (67978) от 11.04.2025
-
-Magnolia Park - Vamp (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, Metalcore, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pain [00:03:26]
-02. Shadow Talk [00:02:58]
-03. Cult [00:03:06]
-04. The Screams [00:03:13](   Читать дальше...   )Жанр: Alt. Metal, Metalcore, ElectronicПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D26E4627ACD39DCD0318EAFCC389CF204C3787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790932   (67975) от 11.04.2025
-
-Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music
-02. Noise
-03. Shoemaker
-04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F40D7463340ACB4CC674DB740EFF55E5027CEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

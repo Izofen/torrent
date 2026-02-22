@@ -1,3 +1,32 @@
+###  Публикация: 1557004   (556472) от 12.06.2022
+
+Yet Again - Revival (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolution
+02. Media Lies
+03. Freedom Ain't Free
+04. Groundhog Day(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8A604432F564B5F9E34FC606B3A40800FEDE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556923   (556464) от 12.06.2022
 
 Darian And Friends - Lost Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Traditional Heavy Metal>
@@ -714,35 +743,6 @@ Stereoside - Hellbent (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Grun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35D0E5578F79EB87E59EADCEFE012FB5AC964E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557218   (542830) от 14.06.2022
-
-Profound Less - Love Crusader (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come on Baby [00:04:01]
-02. Love Crusader [00:03:01]
-03. Love on a Distance [00:02:39]
-04. Hold on to Love [00:04:16](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B54998AF59FBA6DD9A57DA1C8EA610FB6257AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

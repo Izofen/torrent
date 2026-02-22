@@ -1,3 +1,32 @@
+###  Публикация: 1180101   (344438) от 02.11.2017
+
+Moonspell - 1755 (2017) [MP3|320 Kbps] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Em Nome do Medo
+02. 1755
+03. In Tremor Dei
+04. Desastre(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFA36DDFBE1C14E01AF3FCCAB7F5B9AA038756D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370473   (343372) от 24.09.2022
 
 Skrik - 5 Relises (2017-2022) [MP3|320 Kbps] <Crust Hardcore, Metallic Hardcore>
@@ -716,35 +745,6 @@ Ashenvoid - Psalms of the Grave Serpent (2020) [MP3|320 Kbps] <Heavy Metal, Doom
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F328EDFAF41C9F29C8B344B4FB59EDCF0799777C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420078   (333986) от 31.10.2020
-
-Seraphic - Chrysalis (2020) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind the Veil (02:32)
- 02. Garden of Unearthly Delights (06:54)
- 03. Shapeshifter (06:26)
- 04. The Monster Within (06:09)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB5297F3185BBF918A3BAB431048397D474BA2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

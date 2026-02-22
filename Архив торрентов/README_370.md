@@ -1,3 +1,29 @@
+###  Публикация: 608979   (992891) от 26.01.2013
+
+Wallpapers - Wallpapers Fantasy №29(Pavel)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола 50 штФормат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8334F55D246A2CFB867E02B358B0614504450E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608910   (992890) от 26.01.2013
 
 Cinema Wallpapers  (25.01.13) [Wallpapers] (jpg)
@@ -659,41 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5CA8DA97A84BF697682A8882E9982F5A73810D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608600   (992826) от 26.01.2013
-
-Cobalt 60 - Elemental (1996) [FLAC|Lossless]<EBM, Electro, Industrial>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bye Bye     03:58
-02. Sad        02:11
-03. T.O.M.A.M.     03:51
-04. Before     03:41
-05. You Are     04:19
-06. The Worried Well     05:11
-07. If I Was     03:34
-08. La Mort      04:50
-09. In The Valley       04:37
-10. Born Again      04:49(   Читать дальше...   )Жанр: EBM, Electro, IndustrialПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28AC718354F989E8442136344B8DF9F12E3A6A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

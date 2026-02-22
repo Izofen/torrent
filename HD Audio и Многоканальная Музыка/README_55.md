@@ -1,3 +1,179 @@
+###  Публикация: 1613838   (209326) от 09.07.2023
+
+Bloodbound - Studio Albums (10 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloodbound — шведская метал-группа, сочетающая в себе как традиционный по стилю пауэр-метал, с присущей ему динамикой, мелодикой и сменами ритмов, так и не менее традиционный хеви-метал с мощным акцентированным вокалом, героическими текстами и сольными партиями гитаристов.2005 - Nosferatu
+2007 - Book Of The Dead
+2009 - Tabula Rasa
+2011 - Unholy CrossЖанр: Heavy/Power MetalПродолжительность: 08:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9B50B56DEB4A690E67CDD03026A7F0B104D125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645475   (209223) от 10.07.2023
+
+VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-Rip] <Funk, Pop Rock, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209223.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Manuel & The Music Of The Mountains - The Windmills Of Your Mind
+A2 Cliff Richard - Spanish Harlem
+A3 Bobbie Gentry - Ode To Billy Joe
+A4 Roger Whittaker - Dirty Old Town(   Читать дальше...   )Жанр: Funk, Country, Pop Rock, Easy ListeningПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD8D4E54EAE979C637F7A47C69564A37CD4CC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645674   (209153) от 11.07.2023
+
+VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Country, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209153.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Hot Chocolate - You Sexy Thing
+A2 Silver Convention - Save Me
+A3 Chequers - Rock On Brother
+A4 Drifters - Hello Happiness(   Читать дальше...   )Жанр: Pop Rock, Glam, Country, SoulПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BBC4E9ACA3EF0514DC61B52F614085D892AE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574794   (208677) от 07.09.2022
+
+Blackmore's Night - Дискография (13 albums) (1997-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Folk rock, Neo-medieval>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blackmore’s Night — фолк-рок-группа, основанная в 1997 году бывшим гитаристом «Deep Purple» и «Rainbow» Ричи Блэкмором (акустические и электрические гитары, мандола, лютня и другие инструменты) и Кэндис Найт (вокал, духовые, перкуссия). Название группы может толковаться и как каламбур: «Найт Блэкмора».
+Музыкальной основой и главным вдохновением музыкантов является (   Читать дальше...   )1997 - Shadow of the Moon
+1999 - Under a Violet Moon
+2001 - Fires at Midnight
+2003 - Ghost of a Rose(   Читать дальше...   )Жанр: Folk rock, Neo-medievalПродолжительность: 13:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C053294091A78AD79E78FAEA3F3D23B502A1EB28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514480   (207992) от 15.09.2022
+
+Megadeth - Дискография (23 releases) (1985-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Megadeth — американская трэш-метал-группа из города Лос-Анджелес, штат Калифорния, сформированная в 1983 году. Коллектив основан гитаристом и вокалистом Дэйвом Мастейном и бас-гитаристом Дэвидом Эллефсоном.
+Вместе с такими группами как Slayer, Metallica и Anthrax входит в «большую четвёрку трэш-метала».1985 - Killing Is My Business... and Business Is Good!
+1986 - Peace Sells... But Who's Buying?
+1988 - So Far, So Good... So What!
+1990 - Rust in PeaceЖанр: Thrash Metal, Heavy MetalПродолжительность: 31:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A6F9A9D23BA243BA5709BF7CC33F62DA0379A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409499   (207971) от 26.07.2023
+
+Sinead O'Connor - I Do Not Want What I Haven't Got (1990/1993) Reissue, Unofficial Release [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Alternative Rock, Folk Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207971.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Feel So Different
+A2 Three Babies
+A3 The Emperor's New Clothes
+A4 Black Boys On Mopeds(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Pop RockПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4683C0CCB354E4FACD74B1C635CD638EF8B49EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646379   (207751) от 28.07.2023
 
 VA - K-Tel's 40 Super Greats (1975) 2 x LP, Compilation, Gatefold [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Soul, Funk>
@@ -570,179 +746,6 @@ A4 All of the Same Blood(   Читать дальше...   )Жанр: Thrash Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D634E009E064101BADD89BCC1A58B569E1C50319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655086   (204616) от 24.08.2023
-
-Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crusher Destroyer
-02. March Of The Fire Ants
-03. Where Strides The Behemoth
-04. Workhorse(   Читать дальше...   )Жанр: Progressive, Sludge MetalПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3B124811987B455D7D1285CC972C8BE9AD3F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655257   (204462) от 25.08.2023
-
-Игорь Романов и группа «Союз» - Красный Свет (1990) [FLAC|24/192|image + .cue|VinylRip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204462.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Осторожней, Сталкер
-A2 Стрелы
-A3 Диктатор
-B1 Племена(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3AE30BC92F8C225A78AD535510DB0078DB00FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655200   (204452) от 25.08.2023
-
-Felix Jaehn - Happy Rave (2023) [FLAC|24/44.1|tracks|WEB-DL] <Electronic, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn - Nonstop (3:03)
-02. Felix Jaehn - Wishlist (2:23)
-03. Jonas Blue - Weekends (2:07)
-04. Butschi - Atme Ein (Atme Rauch Aus) (5:52)(   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18ECAA31302DF0803FC9012257FD1F4A7AF7E578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655501   (204295) от 26.08.2023
-
-SPAN - Studio Albums (2 releases) (2004-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204295.jpg" />
-</div>
-
-
-###  Подробнее
-
-SPAN — норвежская рок-группа, образованная в 2000 году.
-Расформирована в 2005 году.2004 - Mass Distraction
-2005 - Vs. TimeЖанр: Hard RockПродолжительность: 02:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AD5AE651BFC5D0ACB821AB4293C61D6AE00683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603557   (204287) от 09.01.2023
-
-The Cars - The Cars (1978) Remastered, 2015, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <New Wave, Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Times Roll 03:46
-02. My Best Friend’s Girl 03:44
-03. Just What I Needed 03:44
-04. I’m In Touch With Your World 03:32(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-popПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5D862F2C07004B63653D2418040F5EF13C0ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655542   (204266) от 26.08.2023
-
-Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204266.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Sergio Corbucci Is Dead
-A2 - Hate Uber Alles
-A3 - Killer Of Jesus
-A4 - Crush The Tyrants(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8A925B03EC6C3823AA02235C891C97B281DC8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

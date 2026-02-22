@@ -1,3 +1,90 @@
+###  Публикация: 952542   (353664) от 02.11.2015
+
+Rehab Allstars - Feel the Blues (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Next To You (04:24)
+02. Jesus Just Left Chicago (04:31)
+03. Burden (05:05)
+04. Look On Yonder Wall (04:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91702C89BFD57B5B9DC6570DFE6F8F677AD393BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952818   (353660) от 02.11.2015
+
+Pat Metheny - Selected Recordings ECM (2004) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Bright Size Life		04:52
+02.	Phase Dance		08:22
+03.	New Chautauqua		05:18
+04.	Airstream		06:21(   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E8BF7A5A8EAF7BC0C6A3989FE93C1A2F496E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952537   (353656) от 02.11.2015
+
+VA - The Future Sound of Jazz 3 (1998) [FLAC|tracks +.cue]<Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pressure Drop – Unify (ripped)
+02. Truby Trio – Donaueschingen
+03. As One – The Hideout
+04. Tosca – Ocean Beat(   Читать дальше...   )Жанр: Future JazzПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F05BC4CC9A5A227621BC9AB7389C4C0981BA079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178831   (353558) от 29.10.2017
 
 Gregory Porter - Nat King Cole & Me (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -664,93 +751,6 @@ Barney Kessel - Modern Jazz Performances From Bizet's Carmen (1958) 1986, Origin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0D86429667A46EBE92B88A05CA7B313D17236CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953119   (351796) от 03.11.2015
-
-Andrew Hill - Compulsion (1965) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Compulsion [14:19]
- 02.Legacy [05:55]
- 03.Premonition [10:35]
- 04.Limbo [10:18]Жанр: Avant-Garde JazzПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64780D1E07F3310320851F17664C808132EA29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952812   (351794) от 03.11.2015
-
-Erroll Garner - Long Ago And Far Away (1950-1951) /1987, Columbia/[FLAC|tracks+.cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When Johnny Come Marching Home [03:26]
- 02.It Could Happen To You [03:48]
- 03.I Don't Know Why [03:30]
- 04.My Heart Stood Still [04:19](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36C35DD2FD6495EAA6CF5D0747A31DD9A563020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952857   (351788) от 03.11.2015
-
-Trudy Lynn - Everything Comes With A Price (2015) [MP3|320 кб/с]<Texas Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Latch On (03:41)
-02. Fat Daddy (03:39)
-03. Everything Comes With A Price (03:47)
-04. Yesterday I Was Lonely (04:55)(   Читать дальше...   )Жанр: Texas BluesПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D878677007DEED412A79F5952E97AAA0DFBFCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

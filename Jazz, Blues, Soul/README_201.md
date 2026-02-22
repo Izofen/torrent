@@ -1,3 +1,90 @@
+###  Публикация: 1286596   (711182) от 03.03.2019
+
+Rosie Flores - Simple Case Of The Blues (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Don't Love Nobody 03:53
+02. Mercy Fell Like Rain 04:46
+03. I Want To Do More 03:35
+04. Simple Case Of The Blues 03:38(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF992E2566516589652EEA27275FF90CCCCC1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401134   (710981) от 09.08.2020
+
+Maria Daines - Wisdom's Tooth (2007) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm The Lonely (5:16)
+02. What Are We Livin' For (4:16)
+03. Wisdom's Tooth (6:30)
+04. Pay For This (5:31)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2FD8643B018AF813D3891A209788BEC2C5136B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401136   (710875) от 09.08.2020
+
+Maria Daines - The River (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The River (7:10)
+02. Flames Of The Blues (3:28)
+03. Where Is Your Heart? (4:52)
+04. New World (5:04)(   Читать дальше...   )Жанр: Country, Rock, BluesПродолжительность: 01:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B20F166FBCB05BD8999700BD1CF210719C37F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130579   (710828) от 04.05.2017
 
 Actis Dato Quartet - Swingin' Hanoi (2003) Splasc(H) Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
@@ -658,93 +745,6 @@ Ben Webster - Ballads (1954, 1955) 2011, Phoenix Records [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB2FE176679BB0AE2E840BD920354474142B9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533066   (708997) от 22.02.2022
-
-Maxine Sullivan With The Scott Hamilton Quintet - Uptown (1985) Concord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Were Meant for Me [3:35]
-02. I Thought About You [5:10]
-03. Goody Goody [3:50]
-04. Something to Remember You By [5:22](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25D88E26CC13241F2A2AE0DC782A1E60B99ABDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131186   (708915) от 05.05.2017
-
-VA - Easy Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grover Washington, Jr. - More Than Meets the Eye (04:31)
-02. Rick Braun - Nightfall (04:21)
-03. Entrance - Cream (02:28)
-04. Larry Carlton - Closer to Home (03:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8C7A8F66623135DF628B2DFBC3804029313350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131371   (708790) от 05.05.2017
-
-Caught A Ghost - Human Nature (2014) [FLAC|Lossless|tracks + .cue] <Soul, Alternative, College Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех, кто скучает по шикарному нео-соулу для коктейльных вечеринок вроде трехлетней давности записей Fitz & The Tantrums, стоит предложить еще один американский и столь же обаятельный проект Caught A Ghost. Вокалист этой команды Джесси Нолан, судя по помятой физиономии, измучен нарзаном не меньше, чем Майкл «Фитц» Фитцпатрик, и столь же много внимания уделяет (   Читать дальше...   )01. No Sugar In My Coffee
-02. Sleeping At Night
-03. Human Nature
-04. Time Go(   Читать дальше...   )Жанр: Soul, Alternative, College RockПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D65F250A59D07D0A71AB9C90CD0F7CA7284F5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

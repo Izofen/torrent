@@ -1,351 +1,3 @@
-###  Публикация: 1736153   (106728) от 11.07.2024
-
-Ice - Man In The Moon (2024) [MP3|320 Kbps] <Neo Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man In The Moon (07:00)
- 02. The Voice of Black Mountain (07:04)
- 03. Inside the Bulb (06:10)
- 04. The Dreams that Never Were (05:41)(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8E6499038CFFDE3812974A1C7ABD34EC6A38B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738046   (106434) от 20.07.2024
-
-Santana - House Of Blues - Las Vegas, NV / May 23, 2024 (2024) [MP3|320 Kbps] <Rock, Instrumental, Latin Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Sacrifice [03:44]
-02. Cindy Blackman Santana Drum Solo [05:35]
-03. Speech 3 [00:50]
-04. Smooth [05:36]Жанр: Rock, Instrumental, Latin RockПродолжительность: 01:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B4F84A080B35D908E16F48E1F8A14262098279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739279   (106092) от 27.07.2024
-
-Dmitry Spirin (ex-Тараканы) - Чем кончается родина (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чем кончается родина
-2. Если в этот раз пронесет
-3. Страшнее смерти
-4. Чем кончается родина (Acoustic)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:361CCB5FF3A1EB02F3EA63C77AC4509447FA3955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739129   (106073) от 27.07.2024
-
-Keys - The Grand Seduction (2024) [MP3|320 Kbps] <Melodic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Grand Seduction (09:00)
- 02 - All I Need (06:50)
- 03 - Shiining Sails (05:51)
- 04 - Switchblade (06:02)(   Читать дальше...   )Жанр: Melodic Rock, Prog RockПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:232F1ED48642285F21FDDA7BDD7FABE91224AF73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740604   (105793) от 03.08.2024
-
-The Smashing Pumpkins - Aghori Mhori Mei (2024) [MP3|320 Kbps] <Alternative Rock, Indie Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Edin [6:47]
-02 - Pentagrams [6:26]
-03 - Sighommi [2:55]
-04 - Pentecost [3:19](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D15BBF7E7A81A966BDA55BF61B3C28331A65E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741050   (105741) от 04.08.2024
-
-Tom Petty - Full Moon Fever (1989) LP [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Producer, Written-By, Bass, Guitar, Keyboards, Backing Vocals - Jeff Lynne01. Free Fallin' (4:14)
-02. I Won't Back Down (2:57)
-03. Love Is A Long Road (4:06)
-04. A Face In The Crowd (3:57)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E9569C95A6446486A4F6DC6D2E5ACE740A897E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742886   (105511) от 13.08.2024
-
-Lacey Sturm(ex Flyleaf) - Kenotic Metanoia (2024) Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (My Heartbeat) (02:18)
- 02 - State of Me (03:14)
- 03 - Are You Listening (04:08)
- 04 - The Decree (04:15)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F495E0A6EF5E436BD3ED32F7EB65D77F83FDAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743181   (105461) от 15.08.2024
-
-Miazma - 5 Albums (2011-2018) [MP3|320 Kbps] <Gothic Rock, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Miazma - 2011 - Dressed in black
-Miazma - 2016 - Miazma (Compilations)
-Miazma - 2017 - Dollar Rush (10th Anniversary)(   Читать дальше...   )Жанр: Gothic Rock, DarkwaveПродолжительность: 5 CD, 03:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9AC54D1B916068A75C02736C265759911EA31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743291   (105394) от 16.08.2024
-
-The Red Moon Macabre (Renzo Tellez) - 13 Albums (2021-2024) [MP3|320 Kbps] <Gothic Rock, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-The Red Moon Macabre - 2021 - Blood Masquerade
-The Red Moon Macabre - 2021 - The Red Moon Macabre
-The Red Moon Macabre - 2022 - Iniquity(   Читать дальше...   )Жанр: Gothic Rock, DarkwaveПродолжительность: 13 CD, 12:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4CA78F8923A0AA15A633929654A56B7EBCE2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743668   (105378) от 17.08.2024
-
-Freedom Rockets - American Trash (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Beautiful (03:05)
- 02. That's How I Met Addison Rae (05:13)
- 03. Die Another Day (03:52)
- 04. Take It To The Streets (03:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2AB3BB122E945893FED2F792F4B0BDC317319A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743699   (105344) от 18.08.2024
-
-And So I Watch You From Afar - 7 Albums (2009-2024) [MP3|320 Kbps] <Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-And So I Watch You From Afar - 2009 - And So I Watch You From Afar
-And So I Watch You From Afar - 2013 - All Hail Bright Futures (Bonus Track Version)
-And So I Watch You From Afar - 2015 - Heirs(   Читать дальше...   )Жанр: Post-RockПродолжительность: 7 CD, 06:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705FE873C145B1F1E4E3E6ED3F1B11A4F91FF1F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747679   (104717) от 06.09.2024
-
-Saga - The Works (1991) 2CD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotta Love It
-02. How Long
-03. What Do I Know?
-04. Only Time Will Tell(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC1D13E84836C18B822E71975967084C4B6C482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749042   (104351) от 14.09.2024
 
 The Alan Parsons Project - The Turn of a Friendly Card (1980) Sessions, 2024, Legacy[MP3|320 Kbps] <Soft Rock>
@@ -750,6 +402,399 @@ The Cure - Songs Of A Lost World and Songs Of A Live World: Troxy London MMXXIV 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD06174B90982BDE116F092FA68DA9B7D1A6B09B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765738   (101327) от 14.12.2024
+
+Hawkwind - Live At The Royal Albert Hall (2024) [MP3|320 Kbps] <Psychedelic, Space Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen In Time - Studio Rehearsal
+02. Practical Ability - Studio Rehearsal
+03. Lost Chances - Studio Rehearsal
+04. Second Chances - Studio Rehearsal(   Читать дальше...   )Жанр: Psychedelic, Space Rock, Progressive RockПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC23F1F1736F99F807F6A32FBA1FCB88A29FB56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768800   (100883) от 26.12.2024
+
+Lynyrd Skynyrd - Comin' Down (Live Mountain View 1988) (2023) [MP3|320 Kbps] <Southern, Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Workin' For MCA (Live 1988) [00:04:56]
+02 - I Ain't The One (Live 1988) [00:03:52]
+03 - Saturday Night Special (Live 1988) [00:05:29]
+04 - The Needle And The Spoon (Live 1988) [00:04:25](   Читать дальше...   )Жанр: Southern, Blues Rock, Classic RockПродолжительность: 01:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D52F7C0204DF85673E6947ACE312B1A97EE76C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485392   (100063) от 20.04.2012
+
+Occultation - Three And Seven (2012) [MP3|258-279 kbps]<Psychedelic Progressive Doom Occult Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sea Of Snakes And Souls 06:00
+ 02. The One Who Sleeps 05:44
+ 03. Shroud Of Sorrows 06:35Жанр: Psychedelic Progressive Doom Occult RockПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BEC2AA9DD0C3D75216F8F2462367C6BF11A9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483944   (100024) от 19.04.2012
+
+Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It
+ 02. WhitewashЖанр: Stoner Noise RockПродолжительность: 0:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDDC9B3E59E0EF1DF5E3F537D1D7E8C224A39387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483642   (99760) от 16.04.2012
+
+Mickey Hart Band - Mysterium Tremendum (2012) [MP3|320 кб/с]<Psychedelic Progressive Rock, Electronic, Worldbeat>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Heartbeat of the Sun
+02. Slow Joe Rain
+03. Cut the Deck
+04. Starlight Starbright
+05. Who Stole The Show?
+06. Djinn Djinn
+07. This One Hour
+08. Supersonic Vision
+09. Time Never Ends
+10. Let There Be Light(   Читать дальше...   )2012Жанр: Psychedelic Progressive Rock, Electronic, WorldbeatПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D085FF29DB166C14ACCD02C60A57D07FF985F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478693   (98961) от 07.04.2012
+
+Dark Moor - Best Ballads (2012) [MP3|320 кб/с]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mist In The Twilight (Instrumental)
+ 02. Green Eyes
+ 03. A Lament Of Misery
+ 04. The Sound Of The Blade
+ 05. A Music In My Soul
+ 06. The Shadow Of The Nile
+ 07. Wood's Song
+ 08. Your Symphony
+ 09. The Mysterious Maiden
+ 10. The King's Sword(   Читать дальше...   )2012Жанр: Symphonic Power MetalПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831E7D12207BE75B61062AF1E2DB93864ECA2466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476387   (98222) от 31.03.2012
+
+VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Have All the Flowers Gone? - Kingston Trio
+02. Eve of Destruction - Barry McGuire
+03. With God on Our Side - Manfred Mann
+04. Universal Soldier  - Donovan
+05. Laugh at Me - Sonny
+06. Let Me Be - Turtles
+07. It's Good News Week - Hedgehoppers Anonymous
+08. I Ain't Marching Anymore  - Phil Ochs
+09. The "Fish" Cheer/I-Feel-Like-I'm-Fixin'-To-Die Rag - Country Joe & The Fish
+10. People Got to Be Free - Rascals(   Читать дальше...   )Жанр: Psychedelic Rock/PopПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FA0C3E9AD2DAC0B9E7871A8F26A5BA8BDA3CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469517   (97115) от 18.03.2012
+
+AOR - The Colors of L.A (2012) [MP3|320 кб/с]<Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jenny At Midnight (04:32)
+02. Benedict Canyon (04:30)
+03. Kimberly (04:33)
+04. Under Your Spell (04:32)
+05. Brittany (04:56)
+06. Halo of Light (03:44)
+07. Just One Kiss On Your Heart (05:29)
+08. Dreams From Silver Lake (04:17)
+09. You're My Obsession (03:27)
+10. Teach Me How to Love You Again (05:52)(   Читать дальше...   )2012Жанр: Melodic RockПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E250E32021F96BE088E257450B7D5C94CD6B4AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469510   (97018) от 17.03.2012
+
+Unheilig - Lichter der Stadt (Limited Deluxe Edition) (2012) [MP3|~245 кб/с (V0)]<Industrial Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97018.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012Жанр: Industrial Gothic RockПродолжительность: 00:38:58
+
+01. Brenne Auf (Demoversion) (03:36) [251 kbps]
+02. Das Leben Ist Schoen (Demoversion) (03:34) [232 kbps]
+03. So Wie Du Warst (Demoversion) (03:23) [229 kbps]
+04. Ein GroЯes Leben (Demoversion) (04:19) [230 kbps]
+05. Ein Guter Weg (Demoversion) (04:01) [224 kbps]
+06. Herzwerk (Demoversion) (04:00) [278 kbps]
+07. Wie Wir Waren (Demoversion) (03:42) [252 kbps]
+08. Unsterblich (Demoversion) (03:59) [222 kbps](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39DDC51C872610B75BD48C4294AA88F05452E4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468892   (97008) от 17.03.2012
+
+VA - X 2010 Christian Rock Hits (2010) [MP3|258-310 кб/с]<Christian Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thousand Foot Krutch - Fire It Up
+02. Skillet - Dead Inside
+03. Flyleaf - Again
+04. The Almost - Hands
+05. Red - Fight Inside
+06. Demon Hunter - Collapsing (Radio Edit)
+07. Fireflight - Desperate
+08. Kutless - You Save Me
+09. Hawk Nelson - Live Life Loud
+10. FM Static - Take Me As I Am(   Читать дальше...   )2010Жанр: Christian Rock, Hard RockПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29786F4B50AE0D3D195A5C7C736344E6672EB19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469410   (96980) от 17.03.2012
+
+H.e.a.t. - Address The Nation (2012) [MP3|320 кб/с]<AOR , Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking the Silence (04:50)
+02. Living on the Run (04:55)
+03. Falling Down (03:33)
+04. The One and Only (05:06)
+05. Better off Alone (04:00)
+06. In And Out of Trouble (04:55)
+07. Need Her (03:55)
+08. Heartbreaker (03:05)
+09. It’s all about tonight (03:34)
+10. Downtown (04:32)2012Жанр: AOR , Melodic RockПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59ADF42A21667B2C69E141D1B35F28A958224CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466906   (96488) от 12.03.2012
+
+I See Stars - Digital Renegade (2012) [MP3|320 кб/с]<Post-Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gnars Attacks
+02. Nzt48
+03. Digital Renegade
+04. Endless Sky (feat. Danny Worsnop of Asking Alexandria)
+05. Underneath Every Smile
+06. Mystery Wall
+07. Ibelieve
+08. Summer Dies In Connersville
+09. Electric Forest (feat. Cassadee Pope of Hey Monday)
+10. Filth Friends Unite2012Жанр: Post-Hardcore, ElectronicПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBD323C96B1E9C8361A51A7CBA30CE28AB7EF58
 ```
 
 https://mybot314.ru/tekegram_catalog/

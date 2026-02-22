@@ -1,3 +1,90 @@
+###  Публикация: 1369205   (905703) от 22.03.2020
+
+VA - Resonance Vol.2 (Mixed By DJ Arseniy) (2005) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm Code Hypnotic Influence (Always Listen) (The McKenn-apella) (6:47)
+02. D:Facto - PDG (4:31)
+03. Bill Payer And Fat Hippy - Moon Musik (Kingkade vs. Bpfh Remix) (Guitar From H.C.B. - Hard Club Band (Bolls Mix) (3:05)
+04. Deepgroove - Electricity (5:15)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4D36305F8CB516BCE0316ABD8B3C2F12A302C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369137   (905702) от 22.03.2020
+
+Dj Бинокль - Tribalhouse 1 (2003) [MP3|256 Kbps] <House, Disco, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Despina Vandi - Gia (Milk & Sugar Dub Mix) (5:42)
+02. Bocagrande - Push (Main Mix) (4:51)
+03. Tanja Monies - It's Only A Test (Andrea T. Mendoza vs. Tibet Tribal Mix) (4:36)
+04. Global Brothers - Clap Your Hands (Main Mix) (5:59)(   Читать дальше...   )Жанр: House, Disco, Progressive HouseПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006B6C13FB1D6AF25CD6A795C38A6AB54526CD97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369135   (905646) от 22.03.2020
+
+VA - Kontor Festival Sounds 2020.01: The Beginning (2020) [MP3|320 Kbps] <House, Club House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerome - Take My Hand (Extended Mix) 3:33
+02. Dimitri Vegas & Like Mike vs. Timmy Trumpet - The Anthem (Der Alte) (Extended Mix) 3:50
+03. W&W x Timmy Trumpet & Will Sparks feat. Sequenza - Tricky Tricky (Extended Mix) 3:37
+04. Armin van Buuren feat. Ne-Yo - Unlove You (Nicky Romero Extended Remix) 4:22(   Читать дальше...   )Жанр: House, Club House, Progressive, Hardstyle, ElectronicПродолжительность: 07:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38F271A98F0789AED0B8B953FC80C097EA36EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369200   (905634) от 22.03.2020
 
 VA - Битва Dj - Chief MC Vs. Бинокль Vs. Anna Lee (2003) [MP3|320 Kbps] <Progressive House, House>
@@ -676,105 +763,6 @@ VA - Glamour Grooves Paris (2015) [MP3|320 кб/с]<House, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3EA1F49A9417EBA66CAB8806F82879863B96621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761906   (894585) от 01.03.2014
-
-The Noisy Freaks - Straight Life (2014) [MP3|320 кб/с]<Nu Disco, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude
-02. Love Robot
-03. Freaks Orchestra
-04. Straight Life
-05. French Club
-06. Cheer Song
-07. Funky Kids
-08. Bring It Back (feat. None Like Joshua)
-09. Selection
-10. Hell & Back(   Читать дальше...   )Жанр: Nu Disco, ElectronicПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7112DC8196FAE96565307D56CC8CD6F1367721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448201   (894010) от 13.02.2015
-
-DJ JIM - Breath Of Winter (2007-2015) (Обновляемая) [MP3|192-320 kbps]<Progressive House, Electro Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Fox Stevenson - Sweets (Soda Pop)
-02. Nora En Pure - The Sound
-03. Mindset - Phaneron (Stiben Dapper Remix)
-04. D05 - Fly
-05. Fonzerelli - Innovate(   Читать дальше...   )Жанр: Progressive House, Electro Progressive, Progressive Trance, House, Deep HouseПродолжительность: 01:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C912FCF8C8336F3A73DFB7B5F1554C34674D287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637080   (893271) от 04.04.2013
-
-Harley & Muscle - Life Evolution (2013) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1 Life Evolution
-2 Have You Ever Wondered
-3 White Shoes
-4 Open Society
-5 Burning Fire (Feat. Charles McDougald)
-6 Degraded Nation
-7 Milk & Honey
-8 Kept Honor
-9 Light To A Flame (Caio's Theme)Жанр: HouseПродолжительность: 02:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0544E3EC67A8400FA0C0F8049BD4223A28FE206
 ```
 
 https://mybot314.ru/tekegram_catalog/

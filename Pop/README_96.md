@@ -1,3 +1,119 @@
+###  Публикация: 1278024   (774095) от 23.01.2019
+
+Марк Бернес - Песня Посвящается Моя... (1995) Мелодия, записи 1957, 1964-1976 [FLAC|Lossless|image + .cue] <Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня Посвящается Моя
+02. Песенка Фронтового Шофера
+03. Шаланды, из к/ф ''Два Бойца''
+04. Тучи Над Городомб из к/ф ''Человек с ружьём''(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D4D715A11BB04CDCAC8FE142CC41D8AEB79738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015725   (774054) от 11.05.2016
+
+Вячеслав Добрынин - И это всё Доктор Шлягер! (2004) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774054.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Спасатель (3:31)
+2. Синий туман (3:54)
+3. Не сыпь мне соль на рану (4:49)
+4. Казино (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C2BB181D9ECDB10B02D5216110C4A63AA81426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124831   (773538) от 13.04.2017
+
+VA - Singers & Songwriters: Classics (2010) [MP3|320 Kbps] <Pop/Rock ,Country ,R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buffalo Springfield - For What It's Worth (2:39)
+02. Gordon Lightfoot - Sundown (3:34)
+03. Nilsson - Everybody's Talkin' (2:44)
+04. Loggins And Messina - Your Mama Don't Dance (2:49)(   Читать дальше...   )Жанр: Pop/Rock ,Country ,R&BПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245B203F65E50557B77EE1E7D77FC59C233D6D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213044   (773354) от 15.03.2018
+
+VA - Robot Is Systematic (2009) EP (Franco Rago & Gigi Farina feat. 'Lectric Workers) [MP3|320 Kbps] <Electronic, Italo-Disco, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Lectric Workers - Robot Is Systematic (8:59)
+02. 'Lectric Workers - The Garden (6:56)
+03. Pleasure Discipline - For Hours Now (Remix) (7:01)
+04. Expansives - Life With You .... (6:56)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, ElectroПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA4A390BABB8C9DB002C7521595377F6F925928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124373   (773320) от 13.04.2017
 
 Paul Anka - The Real... Paul Anka (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
@@ -621,122 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:481F8F60E23F10B784EDB80B17660CB8EFCEDC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391960   (769877) от 24.06.2020
-
-Phoebe Bridgers - Punisher (2020) [MP3|320 Kbps] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DVD Menu (01:10)
- 02. Garden Song (03:40)
- 03. Kyoto (03:05)
- 04. Punisher (03:10)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7ABCBAFD87C1210FFD456BA10187579BDAC372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392035   (769847) от 24.06.2020
-
-Linda Jo Rizzo - Magic Moments-My 35th Anniversary (2020) Singles Collection [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Volcano Project feat. Linda Jo Rizzo - More To Love (03:32)
- 02. Linda Jo Rizzo - Paradise Island Amor (03:08)
- 03. Linda Jo Rizzo & Ken Laszlo - Different Kind Of Magic (04:30)
- 04. Linda Jo Rizzo - Policeman (04:06)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D234226F311C8EDDEED58279C5C621F5FE5175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392131   (769845) от 24.06.2020
-
-Carly Rae Jepsen - Dedicated Side B (2020) Japan Exclusive [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Love Isn't Crazy (03:53)
-02. Window (03:18)
-03. Felt This Way (03:37)
-04. Stay Away (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694991712B38887581B2DC18E3B7A0070C7FAF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016637   (769514) от 15.05.2016
-
-Kygo - Cloud Nine (2016) [MP3|320 кб/с] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:09)
-02. Stole The Show (feat. Parson James) (03:43)
-03. Fiction (feat. Tom Odell) (04:05)
-04. Ringing (feat. Kodaline) (03:45)(   Читать дальше...   )Производство: Kygo MusicЖанр: Pop, DanceПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153406205055BF0A5C61379D6D00697C68566B0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

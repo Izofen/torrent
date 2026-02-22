@@ -1,32 +1,3 @@
-###  Публикация: 1680963   (133453) от 01.12.2023
-
-Kenny G - Innocence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acapella Lullaby
-02. Rock-a-Bye Baby
-03. A Mother's Lullaby
-04. Nocturne Op. 9 No. 2(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511208B844C981F70E33AB5E7BB04F5E39E399B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594907   (133198) от 27.12.2012
 
 The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
@@ -793,6 +764,41 @@ Frederic Belinsky - Swing Tzigane (2005) [FLAC|Lossless]<Gypsy Jazz>
 08. Avalon (V.Rose - Al Jolson - B.Desylva) (2:22)
 09. Lady Be Good (G. & I. Gershwin) (3:00)
 10. Si Tu Savais (Georges Ulmer) (2:47)(   Читать дальше...   )Жанр: Gypsy JazzПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490697   (130215) от 02.05.2012
+
+VA - Smooth Jazz - Sexual Healing (2000) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kim Watters - Sexual Healing (5:21)
+02. Gerald Albright - The Night We Fell In Love (5:06)
+03. Kevin Toney - Extra Sensual Perception (4:44)
+04. Angela Bofill - Love Changes (5:25)
+05. Walter Beaslley - From The Moment On (4:38)
+06. Chuck Loed - Blue Kiss (6:53)
+07. Nelson Rangell - The Way To You (4:53)
+08. Jon Lucien - Hello Like Before (5:45)
+09. Fattburger - Joy (5:11)
+10. Special EFX - Oceanna (4:48)2000Жанр: Smooth JazzПродолжительность: 00:52:45
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,90 @@
+###  Публикация: 1555065   (572513) от 02.06.2022
+
+Andy Lindquist - Your Mother's Eye's (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Mother's Eyes
+02. Goodbye Mother
+03. The Lord Give Me That
+04. Brick(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190706A956CB536CA9EFE32BB0A9DC7D2D990562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555144   (571975) от 02.06.2022
+
+Mungo Jerry - Somelight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight City (3:54)
+02. Lord What Have We Done (4:03)
+03. Whole Lotta Rhythm (5:24)
+04. The Lockdown Thank You Song (3:02)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95DB4985FF9FB02E5F5BF1939778AC7B9CE5EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555177   (571969) от 02.06.2022
+
+Fantastic Negrito - White Jesus Black Problems (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Blues Rock, Reggae, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venomous Dogma (5:32)
+02. Highest Bidder (3:34)
+03. Mayor of Wasteland (0:49)
+04. They Go Low (3:43)(   Читать дальше...   )Жанр: Blues Rock, Reggae, SoulПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F42F07DDD97A362892E9C6A5CE88545507E15E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555147   (571962) от 02.06.2022
 
 Mungo Jerry - Somelight (2022) [MP3|320 Kbps] <Blues Rock, Classic Rock>
@@ -683,99 +770,6 @@ VA - Vocal Jazz Lounge Hits (2017) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A863A1C39957D2DD1C1CE6F9D38D8080A105ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922556   (570046) от 28.07.2015
-
-Shorty Rogers - The Fourth Dimension In Sound (1961) /2014, Warner/[FLAC|tracks+.cue]<Jazz, West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One O'Clock Jump [03:42]
-02. Speak Low [03:35]
-03. Tonight [02:56]
-04. Lover [04:50](   Читать дальше...   )Жанр: Jazz, West Coast Jazz, CoolПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388BF592CC91CD6FCBF9D9AB52879E75342AC377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527741   (569567) от 30.07.2012
-
-Brad Leali - Claus Raible Quartet - D.A.'s Time (2007) [FLAC|Lossless]<Post-Bop, Bebop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Currawong
-02. Puddin' Time
-03. I guess I hang my tears out to dry
-04. Catina
-05. Manteca
-06. Little Freddie steps
-07. D.A.'s Time
-08. I'll keep loving you
-09. Not yet
-10. Blues for LizzieЖанр: Post-Bop, BebopПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303878   (569496) от 23.05.2019
-
-Jelly-Roll Morton - 1939 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Stride>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crave [3:05]
-02. The Naked Dance [2:51]
-03. Mister Joe [2:49]
-04. King Porter Stomp [2:50](   Читать дальше...   )Жанр: New Orleans Jazz, StrideПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBE475AD2286568BEDF8CF7F46A0DAA79E4820B
 ```
 
 https://mybot314.ru/tekegram_catalog/

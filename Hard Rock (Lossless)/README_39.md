@@ -1,3 +1,32 @@
+###  Публикация: 1541960   (641215) от 05.04.2022
+
+The Hellacopters - Eyes Of Oblivion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Reap A Hurricane (00:03:15)
+02 - Can It Wait (00:01:59)
+03 - So Sorry I Could Die (00:04:21)
+04 - Eyes Of Oblivion (00:03:59)(   Читать дальше...   )Жанр: Hard Rock, Garage RockПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E78A37D0BB9BA3D3723D7C9202F64DCD5A0B889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541932   (641213) от 05.04.2022
 
 Caught In Action - Devil's Tango (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -725,35 +754,6 @@ Star Mafia Boy - Permíteme Que Me Presente (2022) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8A325AA5E4EA11100B436037AB6165A1C348F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543698   (627900) от 12.04.2022
-
-Leader Of Down - The Screwtape Letters (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cat's Eye Night
-02. Holloway Motel
-03. Hitman
-04. The Screwtape Letters(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8071BAD958568F391C20E6EAC90DE82B30BD5B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

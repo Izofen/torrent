@@ -1,3 +1,32 @@
+###  Публикация: 1178184   (353832) от 29.10.2017
+
+VA - Best of Uplifting Vocal Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Watts - Break Without The Pain (Original Mix) 06:07
+02. Victoriya - Nothing Remains (F.G. Noise Remix) 07:35
+03. Ana Criado - Border Line (Original Mix) 06:02
+04. Susana - Only Summer Knows (Original Mix) 07:25(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6186CE1BED666DD5879B0FD396A40781B6A7750E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329551   (352249) от 05.10.2019
 
 VA - Trance Escapades (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -713,35 +742,6 @@ VA - Nothing But... The Future Of Trance Vol. 04 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDF2737EF7D201864312E219BE9FA03C57C6A237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954405   (342416) от 07.11.2015
-
-VA - Recoverworld Radio 001 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rich Smith - Nightfall (Original Mix) (07:02)
- 02. Ehren Stowers - Oracle (Original Mix) (07:56)
- 03. UDM - Beyond the Borders (Original Mix) (08:13)
- 04. Andy Cain - Nailed to the Sky (Original Mix) (08:08)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962FB137D6A3A0282079A79190B6E2A470E1A918
 ```
 
 https://mybot314.ru/tekegram_catalog/

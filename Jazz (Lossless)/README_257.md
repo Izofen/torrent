@@ -1,38 +1,3 @@
-###  Публикация: 501441   (258787) от 27.05.2012
-
-Quincy Jones & Stan Getz - Big Bossa Nova Band with Quincy Jones & Stan Getz (2000) [APE|Lossless]<Big Band, Cool, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Bossa Nova
-02. Boogie stop Shuffle
-03. Desafinado
-04. Manha de Carnaval
-05. Se E Tarde Me Pardoa
-06. On The Street Where You Live
-07. Samba de Una Nota So
-08. Lalo Bossa Nova
-09. Serenata
-10. Chega de Saudade(   Читать дальше...   )2000Жанр: Big Band, Cool, Bossa NovaПродолжительность: 01:08:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501428   (258718) от 27.05.2012
 
 Big Band-ul Radio - Jazz... Pe Romaneste (2010) [FLAC|Lossless]<Big Band>
@@ -831,6 +796,32 @@ Louis Armstrong - Gold collections [Lossless]<Jazz> 4CD
 08. I Wonder
 09. When It's Sleepy Time Down South
 10. I'm Confessin' (That I Love You)(   Читать дальше...   )2006Жанр: Jazz, BluesПродолжительность: 01:07:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499690   (256454) от 21.05.2012
+
+Jazzamor - Lucent Touch (2011) [FLAC (tracks+cue)|Lossless]<Acid Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Acid Jazz, LoungeПродолжительность: 00:58:29
 
 ## Скачать торент
 ```bash

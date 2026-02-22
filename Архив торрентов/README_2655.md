@@ -1,3 +1,29 @@
+###  Публикация: 1229324   (627818) от 05.06.2018
+
+Viber 9.0.0.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266C433FA4900BAEFB20E9E549D7AF17B3A97A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229118   (627811) от 05.06.2018
 
 Macrium Reflect 7.1.3196.0 x64 Home/Workstation/Server Plus [En]
@@ -671,35 +697,6 @@ Last Phase - Method (2014) [MP3|320 Kbps] <Future Pop, Synth Gothic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABF7B181532C9AD4397509B1FAF93D71CC85F320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144441   (627609) от 22.06.2017
-
-MetaComplex (aka Dublicator) - Collection 4 Releases (2014-2017) [FLAC|Lossless|WEB-DL|tracks] <Electro>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simulation Model (02:57)
- 02. Digital Reflection (05:18)
- 03. Cellular Warfare (05:24)
- 04. Quantum Compression (05:08)(   Читать дальше...   )Жанр: Electro •Продолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BBB2708766FA1E88F6E618DA7917C5B65F5580
 ```
 
 https://mybot314.ru/tekegram_catalog/

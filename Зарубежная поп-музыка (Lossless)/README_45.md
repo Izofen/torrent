@@ -1,3 +1,32 @@
+###  Публикация: 1544468   (620322) от 16.04.2022
+
+Laid Back - Laidest Greatest (1995) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Horse
+02. Bakerman
+03. Sunshine Reggae
+04. We Don't Do It(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629DE2C94ACF4D1391ADDCC6E3D3CC3B2951AD09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036589   (619095) от 21.07.2016
 
 Savage Garden - Savage Garden (1997) 2CD, Mixed [APE|Lossless|image + .cue] <Synth-Pop>
@@ -718,35 +747,6 @@ VA - Top Of The Pops '1977 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F93984D9F75280929971DF822F6C550A879143AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038630   (604923) от 29.07.2016
-
-HONNE - Warm On A Cold Night (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Pop, Soul, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warm On A Cold Night (04:21)
-02. Til The Evening (04:40)
-03. Someone That Loves You (With Izzy Bizu) (04:04)
-04. All In The Value (03:42)(   Читать дальше...   )Жанр: Alternative Pop, Soul, ElectronicПродолжительность: 01:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DB29C4FD7E54681703FB61835129F924C91AAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

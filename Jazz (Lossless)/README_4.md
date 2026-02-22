@@ -1,3 +1,32 @@
+###  Публикация: 1439150   (1040147) от 12.01.2021
+
+VA - Hit The Rhodes, Jack (2005) [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul, Funk, Rare Grooves>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit The Road, Jack (01:02)
+02. Hampton Hawes – Web (03:29)
+03. David Axelrod – Mucho Chupar (feat. George Duke) (03:13)
+04. João Donato – Nana Das Águas (02:21)(   Читать дальше...   )Жанр: Jazz-Funk, Soul, Funk, Rare GroovesПродолжительность: 01:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8155EA49C68B7B15A89C88B1FF8D777C0F1C878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439270   (1040146) от 12.01.2021
 
 Sun Ra & His Intergalaxtic Arkestra - Second Star To The Right: Salute To Walt Disney (1989) 1995, Leo Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -716,35 +745,6 @@ The Hot Sardines - Shanghai'd (2011) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04EEA4C11C23C38C6B1580AFC195ECF97A383330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441364   (1037821) от 21.01.2021
-
-Junior Mance - Straight Ahead! (1964) 2011, EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Mellow Tone [2:33]
-02. Hannah Strikes Again [1:46]
-03. Li'l Darlin' [4:55]
-04. Diane [2:47](   Читать дальше...   )Жанр: Hard Bop, Big Band, Piano JazzПродолжительность: 00:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D21422DF6859BC77E0782DBDAEA1A6B2AE95E93
 ```
 
 https://mybot314.ru/tekegram_catalog/

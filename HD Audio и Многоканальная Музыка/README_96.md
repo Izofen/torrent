@@ -1,3 +1,177 @@
+###  Публикация: 1700953   (116676) от 19.02.2024
+
+Cigar Box Band - Don't Belong (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be Mine (4:05)
+02. Don´t You Believe (4:34)
+03. A Lot Of Times (4:34)
+04. Don´t Belong (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B34E4C53BE7343B6AEE66D1A6D6EA1B3B693D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700966   (116675) от 19.02.2024
+
+Lucky Wuthrich (Lucky Wüthrich) - My Kind of Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Organ Intro (0:32)
+02. Love the Life You Live (2:14)
+03. What Did You Do to Me (4:37)
+04. My Kind of Music (4:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB9B4C5D1651694A8CB3866982B1A47F7C0C248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700975   (116672) от 19.02.2024
+
+Paul Jensen - Journey Back Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally Got to Nashville (3:57)
+02. Who Was That Man? (4:02)
+03. Drive (5:45)
+04. Them Better Angels (4:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD9993C60B63CBD00BF01A87F7B49281A2BF0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700960   (116653) от 19.02.2024
+
+Fatal Rails - Damned (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Having a Free Mind (3:56)
+02. DAMNED (3:12)
+03. THE REIGN OF TERROR (2:51)
+04. Icy Waters (4:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE97C848A9B4C32BD4305D78B139817E4C46BBFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700976   (116651) от 19.02.2024
+
+The Immediate Family - Srin In The Game (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole Lotta Rock And Roll (4:08)
+02. 24/7/365 (3:30)
+03. The Toughest Girl In Town (3:51)
+04. Catch You On The Other Side (3:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15342CF2B118353072AB7B362F9D11B005049254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700956   (116649) от 19.02.2024
+
+Crazy Lixx - Two Shots At Glory (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Shots At Glory (3:42)
+02. Fire It Up ('23) (3:40)
+03. Invincible (4:05)
+04. Lights Out! ('23) (3:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CCD522C9C1EE7C33460E97A87D8B2C6855E364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700979   (116647) от 19.02.2024
 
 The Once - Out Here (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
@@ -572,179 +746,6 @@ Headhunter — немецкая трэш-метал группа, образов
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2364FAFC97CE75CAEDDFFB54781869A17344C562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641319   (115894) от 24.02.2024
-
-Ace Frehley - Studio Albums (6 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paul Daniel «Ace» Frehley — американский гитарист и вокалист, участник американской рок-группы Kiss, созданной Джином Симмонсом и Полом Стэнли. Он придумал образ и грим персонажа «Space Ace», когда присоединился к Kiss. Фрейли играл в группе с самого её образования в 1972 году и до ухода в 1982 году.2009 - Anomaly
-2014 - Space Invader
-2016 - Origins Vol.1
-2018 - SpacemanЖанр: Hard Rock, Heavy MetalПродолжительность: 05:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03466C1E95DF200BFDD0039E14AB20021553F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702269   (115878) от 24.02.2024
-
-Sexual Music Collection, Cuban Latin Collection - Erótica Nights: Sensual Latin Atmosphere for Romantic Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salsa Dance (3:24)
-02. Cuban Romance (3:32)
-03. Dancing All Night (3:13)
-04. Latin Lullaby (3:11)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E9D39BE6A8D0EAFFC2B903A5BFFC5E48B0EA7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702267   (115866) от 24.02.2024
-
-Sexual Music Collection - Sex for an Aperitif: Erotic Jazz Background Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Date at Winery (4:33)
-02. Drink Wine Day 2023 (3:12)
-03. Dizzy Romantics (3:11)
-04. Saxophone Melody (3:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91AB7A2115BD4F38F8B6A72B212EDA0278DF42E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702353   (115862) от 24.02.2024
-
-Tarja Turunen - Dark Star (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Star (Single Version) [00:04:04]
-02. Underneath [00:04:27]
-03. Dark Star (Tarja Lead Vocals Version) [00:04:42]Жанр: Symphonic Metal, Gothic MetalПродолжительность: 00:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7EE4CB8E07F21B37784C1422F4628795741E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702344   (115860) от 24.02.2024
-
-Kim Wilde - Love Blonde: The RAK Years (2024) 2020 Remastered, 4CD + Digital Booklet [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115860.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Water on Glass
-02. Our Town
-03. Everything We Know(   Читать дальше...   )Жанр: Pop |Продолжительность: 03:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AF5EF5A7B5662E229693ED2A3831366576DF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702273   (115848) от 24.02.2024
-
-Soft Jazz Mood, Erotica - Intimate Nights: Erotic Valentine’s Day, Jazz Love Songs, Sexy Atmosphere (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sax for My Darling (4:34)
-02. Never Forget Our Love (3:40)
-03. Straight to His Arms (3:39)
-04. Brave Game (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0BD581CD1FB5E0D8410B4FF7E641CF409E0388
 ```
 
 https://mybot314.ru/tekegram_catalog/

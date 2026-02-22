@@ -1,3 +1,128 @@
+###  Публикация: 1315910   (510898) от 22.07.2019
+
+F.R. David - The Best Of (2002) [FLAC|Lossless|image + .cue] <Electronic, Italo-Disco, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Words (03:26)
+02. Pick Up The Phone (03:10)
+03. Girl (You Are My Song) (03:40)
+04. Take Me Back (03:06)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-pop, DiscoПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DF2B3DCE4750B7AC3EF1F7E2222E169D04827A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537721   (510318) от 22.08.2012
+
+Bad Boys Blue - 25 Best Songs (2012) [MP3|320 кб/с]<Euro Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Woman 1985
+02. Pretty Young Girl 1985
+03. I Wanna Hear Your Heartbeat (Sunday Girl) 1986
+04. One Night In Heaven 1986
+05. Kisses & Tears (My One And Only) 1986
+06. Come Back And Stay 1987
+07. Gimme Gimme Your Lovin (Little Lady) 1987
+08. Kiss You All Over, Baby (New Version) 1987
+09. A World Without You (Michelle) (Radio Edit) 1988
+10. Lovers In The Sand 1988(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 01:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B052BD410D911AB37785CFD4B3C6FD4D0FAA1629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537729   (510236) от 22.08.2012
+
+Lara Fabian - Greatest Hits (2010) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc-1Жанр: PopПродолжительность: 01:19:54
+01. Russian fairy tale (4:04)
+02. Il ne manquait que toi (4:32)
+03. Aimer dejа (4:07)
+04. Je t'aime (4:21)
+05. Soleil soleil (3:56)
+06. L'homme qui n'avait pas de maison (4:22)
+07. Dites moi pourquoi je l'aime (4:57)
+08. Мама моя (4:22)
+09. I guess i loved you (3:35)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E119A07109631EFFEB2BA4A82DDAF030B57636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 376342   (510201) от 17.08.2011
+
+Кай Метов - 7 альбомов (1994-2009) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 376526   (510065) от 17.08.2011
 
 Bee Gees - 10 альбомов (1976 - 2001) /Studio Albums/ [FLAC|Lossless]<Disco, Pop>
@@ -654,128 +779,6 @@ Zodiac - Disco Alliance & Music In The Universe (2003) Compilation[FLAC|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DDD331CA6A65B3F36507D61874F43A88EDB72F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316671   (505006) от 27.07.2019
-
-Michael Jackson - Memorial (2019) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thriller (Instrumental)
-02. Wanna Be Startin' Somethin' (12'' Mix)
-03. Billie Jean (Underground Mix)
-04. Ghost(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1C589702ABFC516D07880C387A9499D46E3A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539701   (504206) от 28.08.2012
-
-Дискач 90-х - Come Back To... (2012) [MP3|320 кб/с]<Pop,Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Back To USSR (3:35)
-02. Где-То Далеко (4:10)
-03. Девочка-Луна (4:19)
-04. Грустная История (3:56)
-05. Сердце (3:17)
-06. Замерзаю (4:06)
-07. Я Позову Тебя (4:23)
-08. Улетаю (3:42)
-09. Достала Школа (3:28)
-10. Я Танцую (4:08)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBC80BCB2A05B828EF5C10B3657B5144079DA3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934034   (504170) от 03.09.2015
-
-VA - 300 Hits - Love Songs (2012) [MP3|320 кб/с]<Pop, R&B, Soul, Rock, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504170.jpg" />
-</div>
-
-
-###  Подробнее
-
-По просьбам одноклубников выкладываю этот сборник в МР3, который несколькими днями раньше выложен мною в lossless (ссылка на первоисточник внизу).Список альбомов:
-CD1 - I Will Survive
-CD2 - Timeless Love Songs
-CD3 - Always & Forever(   Читать дальше...   )Жанр: Pop, R&B and Soul, Rock, CountryФормат: 15CD, box setПродолжительность: 16:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8BF47BA01B443E34F24ECDB142124C7D6C6432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316883   (504048) от 28.07.2019
-
-Стас Костюшкин - Караочен (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504048.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Всё ровно
-2. Такси до города
-3. Фанера (feat. Нелли Ермолаева)
-4. Оки чмоки(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D4E38648116B21703036FA4D7B49E51345879A
 ```
 
 https://mybot314.ru/tekegram_catalog/

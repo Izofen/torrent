@@ -1,3 +1,32 @@
+###  Публикация: 1373149   (882074) от 05.04.2020
+
+Govi - Your Lingering Touch: Govi at His Romantic Best (2001) [FLAC|Lossless|tracks + .cue] <New Age, New Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears Of Joy
+02. Magellan's Beat
+03. Sailing Away
+04. Your Lingering Touch(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90315AF8F667E03B797E8D8CC6D21162B51A299E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373045   (882054) от 05.04.2020
 
 Toundra - Das Cabinet Des Dr. Caligari (2020) [FLAC|Lossless|tracks + .cue] <Soundtrack, Post Rock, Instrumental>
@@ -751,37 +780,6 @@ Cusco - Essential Cusco: The Journey (2005) [FLAC|Lossless|image + .cue] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA47FF17862CEF17F818B31EA8540EB1018AD01C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764787   (878067) от 10.03.2014
-
-Ecuador Manta - 5 альбомов (1998-2008) [MP3|128-320 кб/с]<Native American, Instrumental, Folklore>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Эквадорская группа Ecuador Manta исполняет традиционную музыку региона Анд (Эквадор, Перу, Боливия, Колумбия) как на традиционных инструментах (zampona, bamboo flute, quena, charango), так и в комбинации с гитарами, виолончелью, перкуссией в ритмике современной латинской музыки. (   Читать дальше...   )Альбомы:
-1998 - Caminando En La Imaginacion
-1999 - El Carretero
-2000 - Alegrando el Alma
-2001 - Yarina
-2008 - AlboradaЖанр: Native American, Instrumental, FolkloreПродолжительность: 04:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E625E76B1636D0EBEACC5AB5DD7217C01A74A509
 ```
 
 https://mybot314.ru/tekegram_catalog/

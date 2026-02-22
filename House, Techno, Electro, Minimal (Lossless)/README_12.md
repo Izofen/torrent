@@ -1,3 +1,61 @@
+###  Публикация: 1101526   (894430) от 07.02.2017
+
+VA - Urban Dance Vol.19 (2017) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Will Sparks, Tyron Hapi & Luciana - Gorilla
+02 W&W - Caribbean Rave
+03 Tujamo - BOOM!
+04 MAKJ & Timmy Trumpet Feat. Andrew W.K. - Party Till(   Читать дальше...   )Жанр: HouseПродолжительность: 03:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57FE358654B2543CF54A2DE3588D41D8467C300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493713   (894209) от 04.09.2021
+
+Crooked Colours - Langata (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Downbeat, Electroacoustic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be There (4:39)
+ 02. Do It Like You (3:11)
+ 03. Heart String (3:46)
+ 04. Just Breathe (3:37)(   Читать дальше...   )Жанр: Deep House, Organic House, Downbeat, ElectroacousticПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF4F0D500027EA82535CCF35CFA1E20CA90624C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992759   (893803) от 06.03.2016
 
 Lady Gaga - The Remix (2010) [FLAC|Lossless|tracks + .cue] <Progressive House, House, Electro>
@@ -680,64 +738,6 @@ Eekkoo - The 4th Season (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B450E415689C00941AC996D173768C7F07482D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996956   (877318) от 15.03.2016
-
-VA - Ultra Music Festival 2016 (2016) Compilation [FLAC|Lossless|tracks] <Progressive House, Electro House, EDM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Kygo Ft Maty Noyes - Stay [3:59]
-02.Carnage Ft Tomas Barfod & Nina Kinert - November Skies (Radio Edit) [3:22]
-03.Deorro Ft I-Ez - Haters [4:08]
-04.Louis The Child Ft K.Flay - It's Strange [4:06](   Читать дальше...   )Жанр: Progressive House, Electro House, EDMПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A398DE00C298FCA231A7942346609578EEC8B2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373687   (876904) от 08.04.2020
-
-Amtrac - Oddyssey (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Deep House, Dancefloor>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethel (4:28)
- 02. Accountable (3:52)
- 03. Between The Lines (4:38)
- 04. Replica (5:22)(   Читать дальше...   )Жанр: EDM, Electro, Deep House, DancefloorПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C772578124CD08DC2DCB5A3F0BBA0DF654A525
 ```
 
 https://mybot314.ru/tekegram_catalog/

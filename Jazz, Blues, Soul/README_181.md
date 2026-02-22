@@ -1,3 +1,90 @@
+###  Публикация: 1280495   (760630) от 03.02.2019
+
+Blue Mitchell - Vital Blue (1971) 2017, Solid Records [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booty Shakin' [5:30]
+02. Vital Blue [5:25]
+03. Unseen Sounds [3:34]
+04. Herman's Helmet [7:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C57D70BF17A41F9CF4139CFE48E662DF22FAFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280334   (760624) от 03.02.2019
+
+Ant Law - Life I Know (2018) [FLAC|Lossless|tracks+.cue] <Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Movies. 4:52
+02. Searching. 2:40
+03. Aquilinus. 7:45
+04. Pure Imagination. 2:50(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3839CE322AFD9E918F58B9AA365A456863579B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394850   (760622) от 07.07.2020
+
+Andre Previn - Plays Songs By Harold Arlen 1960 (1994) Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Old Black Magic [4:36]
+02. Come Rain or Come Shine [4:38]
+03. My Shining Hour [3:42]
+04. Happiness Is a Thing Called Joe [4:32](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194A9BF809C9927C0DEA8480CB11CC9E4CA98B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394845   (760618) от 07.07.2020
 
 Yank Lawson-Bob Haggart Jazz Band - Jelly Roll's Jazz & Louis' Hot 5's And 7's 1951, 1954 (2007) Membran Music [FLAC|Lossless|tracks + .cue] <Swing>
@@ -657,93 +744,6 @@ Vula Viel - Do Not Be Afraid (2019) [FLAC|Lossless|Web-DL|tracks] <Jazz, World M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90DD9A4C3D24BA5CF1579E58785875A2567167A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522613   (758396) от 07.01.2022
-
-Frenchie Moe - Way Down In Hustleville (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Down In Hustleville (3:54)
-02. Gotta Have A Witness (4:12)
-03. Troubles' Trouble (4:42)
-04. Something You Got (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215FAA85657A4B28726A7FDC45782D21794FFBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522614   (758390) от 07.01.2022
-
-Paulie Bignell and the Thornbury Two - Express Elevator (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eight Tracks and Cadillacs (2:47)
-02. Crawlin' Home (3:59)
-03. Gonna Get You (3:48)
-04. Only You (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404F35F37B443D83BE0B337F6A58BB77CDFC6DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522612   (758388) от 07.01.2022
-
-First Underground Roots - First Undergroung Roots (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Very Normal Man (5:20)
-02. Roots (3:23)
-03. No Making Allright (3:49)
-04. I Feeling You (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4D6DB63E1ADECA94CCB68F044E1C9D34B865AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

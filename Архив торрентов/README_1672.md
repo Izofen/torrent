@@ -1,3 +1,32 @@
+###  Публикация: 1378351   (846601) от 25.04.2020
+
+NetBalancer 9.17.3 Build 2303 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846601.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetBalancer — это удобное приложение, предназначенное для отслеживания сетевой активности компьютера,
+а также назначения ограничений на использования интернет-канала отдельными программами. Программа будет особенно полезна
+обладателям медленного подключения к сети. К примеру, NetBalancer позволяет свести к нулю вероятность такой ситуации:
+Вы запускаете браузер и (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED6BB20E30751DFCF99514450612B40A1B779B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002785   (846597) от 01.04.2016
 
 Teorex PhotoStitcher 1.6 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -654,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43CB95C8765E7B5C59823FC93220A55801433299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111773   (846465) от 06.03.2017
-
-Your Universal MultiBoot Installer UEFI 0.0.0.4 Beta Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846465.jpg" />
-</div>
-
-
-###  Подробнее
-
-YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58085B972965C42F646B3059408463BFDC054153
 ```
 
 https://mybot314.ru/tekegram_catalog/

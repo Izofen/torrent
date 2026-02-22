@@ -1,3 +1,108 @@
+###  Публикация: 597445   (1000514) от 02.01.2013
+
+VA - My Love Is Systematic Vol. 5 (Mixed by Christian Smith) - 2012 [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. My Love Systematic (Continous DJ Mix By Christian Smith)
+02. Patrice Bäumel - If Not Now, When?
+03. Jin Choi & Daso - Teer (Rodriguez Jr. Remix)
+04. Spirit Catcher - Sedona (André Lodemann Remix)
+05. Christian Smith & John Selway - Clear Intention
+06. Dimitri Andreas - Snickerz (Santos Guardingo Remix)
+07. Marc Romboy - Karambolage (Oxia Remix)
+08. Marc Romboy - More Muzik
+09. Robert Babicz - Cyberlove
+10. Steve Lawler - Distrait (Kaiserdisco Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B11D1B88BD3C2A78DF1BDEE24496A82AAEA9A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598519   (1000034) от 04.01.2013
+
+VA - Motherland Russia Vol.2 (Deep House Edition) (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Scsi-9 - Had I But Wings Like Thine (06:27)
+02. BarBQ - For Nothing (03:49)
+03. Joss & Illya - Tripping (07:58)
+04. A Contrari - The Fish of My Dreams (Olej Deep Lake Remix) (07:50)
+05. Datamode - Running Back (Terry Lee Brown Junior Remix) (07:16)
+06. Kolokol Production - Saturn (Rene Breitbarth Remix) (07:32)
+07. Frank Johnson - Vendabal (Vela's Deep Tech Version) (08:08)
+08. Igor Brzovic - Easy Rider (07:54)
+09. Pr. Morriarti - Mystic Smile (Robert Babicz Galactic Mix) (08:01)
+10. Alex Savanin - InFlight (Hernan Cattaneo & Soundexile Remix) (09:14)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBF8ECE4F8020D1D44C7E2FEC6900204ED5A5F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598471   (1000014) от 04.01.2013
+
+VA - 111 Golden Techhouse Tunes (2012) [MP3|320 кб/с]<Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Aki Bergen - Black & Light - Club Rework Part 1
+02. Nikola Gala - A Voice From Outer Space
+03. The Timewriter - Love is Beautiful - Francois Dubois Remix
+04. Terry Lee Brown Junior - Baltimore - Aki Bergen Remix
+05. Boris Brejcha - Express Myself - Daniel Schlender Remix
+06. Hector vs Mikel - Mabing - Hector Remix
+07. J. Axel - The Journey
+08. Matthew Hoag - El Pueblo Rojo
+09. MSMS & Terry Grant - The Angel In You
+10. Arantxa Gallardo - Monk - Danito Remix(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 13:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB4C55AEA30982D571B944FD65614E0EE564A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597321   (999165) от 07.01.2013
 
 VA - N.Y.C Fashion Night: Selected Deep House Tracks (2012) [MP3|320 кб/с]<Deep House>
@@ -785,111 +890,6 @@ VA - House is A Feeling Vol 9 (2012) [MP3|320 kbps] <Club-House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C301A0DAC472D5730FFD36BA15D7474FA69C6349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603187   (995951) от 19.01.2013
-
-VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Deepshakerz - Silbidos 013 (07:52)
-02. Deniz Koyu - Hydra (07:05)
-03. Dabruck - I Found Love (Feat. Ollie James) (07:42)
-04. Jean Elan - What It Takes - Club Edit (03:16)
-05. DBN - Inside Out (06:15)
-06. DJ Shevtsov - Moscow Girls (Feat. Mic E.P.) - Sean Finn Dub Mix (06:30)
-07. Syke'N'Sugarstarr - So Alive - Tito & Slider Dub (06:34)
-08. Cosmic Funk - I'll Never Stop (Feat. Max'C) - Ian Osborn & Nicolas Francoual Remix (06:57)
-09. Kaelig - Bring Back (Feat. Jayhem) - Yves Murasca & Ezzy Safaris NeXu5 Big Room Edit (04:02)
-10. Tom Geiss - No More Tomorrows (Feat. Max C) - Alex Shaje & Luciano Vargas Remix (06:51)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB18251CF19BEA0361426C7F888F2F1A6B5B91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603133   (995874) от 19.01.2013
-
-VA - Ministry Of Sound Pump It Up 2013 (2013) [MP3|320 kbps] <Club, House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Fresh - Gold Dust (Shy FX Re-Edit) (03:02)
-02. Wiley feat. Skepta - Can You Hear Me (Ayayaya) (03:52)
-03. Example - Changed the Way You Kiss Me (Radio Edit) (03:15)
-04. Carly Rae Jepsen - Call Me Maybe (Almighty Mix Radio Edit) (04:14)
-05. Jessie J feat. David Guetta - LaserLight (03:32)
-06. Nicki Minaj - Starships (Edited Version) (03:30)
-07. Lady Gaga feat. Colby O'Donis - Just Dance (04:02)
-08. LMFAO feat. Lauren Bennett & GoonRock - Party Rock Anthem (Radio Edit) (03:52)
-09. Maroon 5 feat. Christina Aguilera - Moves Like Jagger (Radio Edit) (03:21)
-10. Pitbull feat. Ne-Yo - Give Me Everything (03:48)(   Читать дальше...   )Жанр: Club, House, ProgressiveПродолжительность: 04:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B26D3305E562E13E1FC2B40B0D886A5FBE07E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605453   (995832) от 19.01.2013
-
-VA - InFine By Jean Michel Jarre (2013) [MP3|320 кб/с]<Deep House, Ambient>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Oxia – Exaila
-02. Murcof – Como Quisiera Decirte
-03. Rone – Tasty City
-04. Aufgang – Sonar
-05. Clara Moto – Goodnight Twilight
-06. Cubenx – Grass
-07. Spitzer – Marsch
-08. Composer – Polar Bear
-09. Agoria – Under the River
-10. Danton Eeprom – Vivid Love(   Читать дальше...   )Жанр: Deep House, AmbientПродолжительность: 01:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2A1CB8F45F2FBB5D9F2DC156FD71671F0B5795
 ```
 
 https://mybot314.ru/tekegram_catalog/

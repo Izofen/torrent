@@ -1,3 +1,29 @@
+###  Публикация: 1111943   (840117) от 10.03.2017
+
+Monster Energy NASCAR Cup Series 2017 / Этап 2 - Atlanta / Гонка / (2017) HDTVRip [H.264/480p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840117.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 этап Monster Energy NASCAR Cup Series Atlanta, Atlanta Motor Speedway (325 laps, 500 miles).Телекомпания: FOXЖанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 3h 7mn
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285CC2A4FBB89DD45AAAE8B96AF309E3A7D8B90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112976   (840110) от 10.03.2017
 
 Markus Schulz - Global DJ Broadcast: World Tour - Australia (2017) [MP3|320 Kbps] <Progressive Trance, Trance>
@@ -670,33 +696,6 @@ Balabolka 2.15.0.802 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D3822712E421000F49017F4C17D6B945D2963B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501011   (839812) от 07.10.2021
-
-PDF24 Creator 10.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839812.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF24 Creator - бесплатная программа, которая позволяет легко создавать PDF-документы практически из любого графического изображения (формат PNG, JPEG, BMP, PCX, TIFF, PSD) с функцией их печати при помощи виртуального принтера.
-Кроме того, программа предоставляет возможность просматривать созданные PDF-файлы, разделять и объединять документы, извлекать отдельные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C68D0A5C2A71B7A4D191A4372590CA258A83B13
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1439282   (1040156) от 12.01.2021
+
+VA - The VERSE Uplifting Trance Journey 2020 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arentis & Jovi Frost - Flora's Touch (Intro Mix)
+02. Joe Cormack & Binary Ensemble - For The Ones We Love (Original Mix)
+03. Joulez - Summer Rain (Original Mix)
+04. Joulez - Wishes For Tomorrow (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4969066B16C95A4B3CA2F0EB32563E280FF00A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439448   (1039948) от 13.01.2021
 
 VA - Best Of FSOE Clandestine (2020) [MP3|320 Kbps] <Trance>
@@ -715,35 +744,6 @@ VA - Ablazing Winter Sessions (2021) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37340A5FA63C89ACB779614BB9C4063E3F5825A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443256   (1035737) от 28.01.2021
-
-VA - Blue Soho Recordings - Best Of 2020 (2021) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoundLift - Maharaj (Original Mix)
-02. Jon Bourne - Palinka (Original Mix)
-03. Nuera - Revise (Alex Wright's Slow 'N' Funky Remix)
-04. Jon Bourne - Zimbabwe (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A5983C35E35A646F79B726A301D38FD71384B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

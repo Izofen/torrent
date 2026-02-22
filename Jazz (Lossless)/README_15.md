@@ -1,3 +1,32 @@
+###  Публикация: 1470939   (1015517) от 18.05.2021
+
+Carla Van Blake - Land of Enchantment (2018) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First Time (3:59)
+02. Land of Enchantment (7:51)
+03. Falling in Love (5:03)
+04. Your Lovely Skin (5:09)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2884E1FF1D47582B64E7BE6E2FB3E4B62AC116DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470816   (1015512) от 18.05.2021
 
 Lena Horne - The Best Of Lena Horne (1941 - 1946) 2005, Chestnut [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -716,35 +745,6 @@ VA - Casino Lights: Recorded Live At Montreux (1982) Warner[FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88CE266856FB0720C63EBE25284BCAA034A9422D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475926   (1012027) от 09.06.2021
-
-Chico Hamilton - Believe (2006) Joyous Shout! [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evan's-ville [6:28]
-02. Love Me a Long, Long Time [2:51]
-03. My Brother Don [5:50]
-04. Christina [7:44](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374CCBC6FDA35072E2C5F2AEDD7FE9BCD34625EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

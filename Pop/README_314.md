@@ -1,3 +1,90 @@
+###  Публикация: 1195811   (138838) от 31.12.2017
+
+VA - Cafe Puls Italo Hits '17 (2017) [MP3|320 Kbps] <Italo Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Gabbani - Occidentali's Karma (Radio Edit) 3:32
+02. Umberto Tozzi - Gloria 4:16
+03. Al Bano - Felicita 3:04
+04. Ricchi e Poveri - Mamma Maria 2:47(   Читать дальше...   )Жанр: Italo Disco, PopПродолжительность: 02:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3BD88DB2369ABD79458AD1EE57424DA0C1EC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195734   (138799) от 31.12.2017
+
+VA - I Love Tocata 80's (2012) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138799.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Atlanta  -  Romantic Break  5:06
+02.  Modern Talking  -  You're My Heart, You're My Soul  5:33
+03.  Spagna  -  Easy Lady  6:53(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5071C46F7AE81317BE93C05A4F28FE02EEF132EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195821   (138733) от 31.12.2017
+
+Darren Hayes - Spin (2002) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Strange Relationship
+2. Insatiable
+3. Heart Attack
+4. I Miss You(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BD30B7269D92B2C762DA5DA14608940CEFE7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520991   (138719) от 30.12.2021
 
 ВИА  Синяя птица - 7 Albums (1977-1987) LP Collection [MP3|320 Kbps] <Pop, Pop Rock>
@@ -660,99 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A01BF4D52BCFDA243C39F416F7DC4EA2F09879A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824726   (136758) от 17.10.2025
-
-Duffy - Rockferry (2008) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Neo Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockferry [00:04:12]
-02. Warwick Avenue [00:03:46]
-03. Serious [00:04:10]
-04. Stepping Stone [00:03:29](   Читать дальше...   )Жанр: Neo SoulПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411DE8F297D0E955C78DF819851F9168813DEEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825196   (136757) от 17.10.2025
-
-Yellow Claw - Blood For Mercy (2015) 10th Anniversary,  Remaster, 2025, Mad Decent [FLAC|Lossless|WEB-DL|tracks] <trap music, hip hop, dubstep, hardstyle and moombahton>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roller (2025 Remaster) [00:03:17]
-02. Higher (feat. Lil Eddie) (2025 Remaster) [00:03:36]
-03. For The Thrill (feat. Becky G) (2025 Remaster) [00:04:16]
-04. Nightmare (feat. Pusha T & Barrington Levy) (2025 Remaster) [00:04:06](   Читать дальше...   )Жанр: trap-music, hip-hop, dubstep, hardstyle, moombahtonПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5C5C91C6EEA34AAE91D9413DE77CC7706A0563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591190   (136383) от 19.12.2012
-
-Белый орел - The Best (2010) [MP3|256 кб/с]<Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Я по тебе скучаю [04:32]
-02.Говори мне, говори [04:49]
-03.Крик на морском берегу [03:55]
-04.Я бы умер молодым [04:10]
-05.Я не хочу тебя ни с кем делить [03:35]
-06.Другая [03:38]
-07.Моя любовь-воздушный шар [05:47]
-08.Три гвоздики [04:19]
-09.Я объявляю вам любовь [05:05]
-10.Рулетка [04:52](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147BFF291953EBC0A304ECE4C1A91DC8FBCAD3B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1248092   (446177) от 18.09.2018
+
+Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000 / 2013) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт воссоединившейся группы Scorpions, исполнившей свои хиты 22 июня 2000 года в своём родном городе Ганновере с Берлинским филармоническим оркестром.01. Hurricane 2000
+02. Moment Of Glory
+03. You And I
+04. We Don't Own The World(   Читать дальше...   )Производство: США \ Eagle Rock EntertainmentЖанр: Heavy Metal, Hard Rock, Symphonic RockРежиссер: Пит ВайрихСубтитры: ОтсутствуютПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E5F511E9F011E837CD3D4FD2C3F392CEF24B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553019   (446087) от 27.09.2012
+
+Sandra Afrika - Neko ce mi nocas napraviti sina (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4FA48620A6AC17FBBB2049B8BD9D893094716E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552689   (445770) от 27.09.2012
+
+Lindsey Stirling - Elements  (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F40B0B5C6BE4DA9C8C6DA52BFB1225C4087A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552894   (445677) от 27.09.2012
 
 Свит / The Sweet-Video Collection 1971-1980 (2CD) (2008) VHSRip
@@ -629,84 +710,6 @@ Crossroads Guitar Festival — музыкальный фестиваль и бл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:665514FA95699B6BBB931383BF275B1E452E7D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554353   (436815) от 01.10.2012
-
-Basshunter - Dream on the Dancefloor (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3307DB74A4897F70746932E2498F26FF01C000F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554357   (436672) от 01.10.2012
-
-Ben Gold feat. The Glass Child - Fall With Me (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21EFCA15708E77E023D8AB66CB9019F0D1C2D759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062924   (436613) от 15.10.2016
-
-Земфира. Маленький человек (2016) DVB [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грандиозный концерт Земфиры в «Олимпийском» состоялся 1 апреля 2016 года и стал завершающим аккордом концертного тура исполнительницы под названием «МаленькийТелекомпания: Первый каналЖанр: Концерт, рок, поп-рокСубтитры: ОтсутствуютПродолжительность: 01:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5753752A4A298C29C5780D5A3BDA93744608866
 ```
 
 https://mybot314.ru/tekegram_catalog/

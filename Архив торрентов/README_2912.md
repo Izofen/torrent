@@ -1,3 +1,29 @@
+###  Публикация: 921343   (575375) от 25.07.2015
+
+Internet Download Manager 6.23 Build 17 Final RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDA620D49BB392DAC47F8978D9B94168255286F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921399   (575368) от 25.07.2015
 
 Punto Switcher 4.1.0 Build 432 Final RePack by D!akov [Ru]
@@ -698,41 +724,6 @@ VA - Absolute Trance Volume 13 (10.07.2011)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98239A5753BF7EA3543F68D1D980ABE5051C2228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361516   (575220) от 11.07.2011
-
-Ray Lugo & The Boogaloo Destroyers - Mi Watusi (2011) [MP3|~220 kbps/VBR]<Boogaloo, Latin>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soy El Rey
-02. Swingy Boogaloo
-03. Combolu
-04. My Shingaling
-05. A Taste Of Honey
-06. Let's Boogaloo
-07. El Bantu
-08. At The Party
-09. Me And You Baby (Picao Y Tostao)
-10. Lugo's BoogalooЖанр: Boogaloo, LatinПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD3F922D1E3B0130E4CFB633C5A6F45DD907ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1461828   (1021598) от 11.04.2021
+
+V.A. - Women Of Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etta James – At Last
+02. Norah Jones – Don’t Know Why
+03. Nina Simone – Feeling Good
+04. Ella Fitzgerald – Mack The Knife (Live)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40649C02F49FB3AA59B7B5A6F2C6F44A4E786CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461790   (1021540) от 11.04.2021
+
+Black Lung Lucy - Black Lung Lucy (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thousand Men (3:22)
+02. Watch Me Bleed (3:52)
+03. Lana (4:22)
+04. Right by Me (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA321DC43209E061B03B4DAF075C5D980B1EC63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461792   (1021536) от 11.04.2021
+
+Jim Preen - Cat in the Spirit House (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shopping for Clothes (3:39)
+02. Big Red Cars (3:28)
+03. Armani Suit, New Guitar (3:12)
+04. Framed (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943FDC1531F86DF3AAF8E74ABE417AF02EF646C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461795   (1021535) от 11.04.2021
 
 Pete Wain - When the Blues Get You Baby (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ Ghost Train Orchestra - Book Of Rhapsodies (2013) Accurate [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:582CE45E564874072192EC8D1C9879F55F4214AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465471   (1019150) от 26.04.2021
-
-Bill Evans - The Complete Fantasy Recordings (1973 - 1979) 9CD, 1989, Fantasy [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019150.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Mornin' Glory [5:48]
-02. Up with the Lark [6:48]
-03. Yesterday I Heard the Rain [6:33](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 10:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0768CFE112A72E2C530F8FB747DE1804656B7E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465490   (1019147) от 26.04.2021
-
-Jeff Kashiwa - Sunrise (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise (00:04:20)
-02. Givin' In (00:05:00)
-03. The Night Is Young (00:04:19)
-04. Slow Turn (00:05:13)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:573C8CE027F6F406446A264A058137678CB417A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465579   (1019063) от 26.04.2021
-
-Indian Shadows - Tam Tam Blues (2021) [MP3|320 Kbps] <Blues, Blues Rock, Native American>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tam Tam Blues (4:16)
-02. Dance for Me (3:03)
-03. I Will Sing This Song (3:03)
-04. We Will Never Know (3:41)(   Читать дальше...   )Жанр: Blues, Blues Rock, Native AmericanПродолжительность: 00:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F94522BF31F0EAB4384521C0E5A5C405AA53D13
 ```
 
 https://mybot314.ru/tekegram_catalog/

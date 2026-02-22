@@ -1,3 +1,264 @@
+###  Публикация: 1506919   (799166) от 02.11.2021
+
+Aeon - 5 Studio Albums (2001-2012) 5xCD [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aeon — шведская дэт-метал-группа, образованная в 1999 году . Группа выпустила свой дебютный альбом, Dark Order, в мае 2001 года, в него вошло 6 композиций. Следующий альбом — Bleeding the False, был выпущен лишь в 2005 году, а третий альбом — Rise to Dominate, выпускался звукозаписывающим лейблом MetalBlade Records в 2007 году. Четвертый альбом группы — Path of Fire, (   Читать дальше...   )2001 - Dark Order
+2005 - Bleeding The False
+2007 - Rise To Dominate
+2010 - Path Of Fire(   Читать дальше...   )Жанр: Death MetalПродолжительность: 03:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF70669AB94213FA40E110468D4B5DE6A68E7276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507065   (799122) от 02.11.2021
+
+Eyes Of Eden - Faith (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Night (3:37)
+02. When Gods Fall (3:37)
+03. Star (3:48)
+04. Pictures (4:10)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB7C6F2275B325127CE0729B7FE9844D4C6F820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506950   (799069) от 02.11.2021
+
+Split Heaven - Electric Spell (2021) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gerudo Valley (02:10)
+02. Sacred Fire (05:46)
+03. Soul Possessor (06:15)
+04. The Haunted Palace (05:28)(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09237BADAC5A1DC81FB2AE7433D6434C1EF47532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506823   (799031) от 02.11.2021
+
+Annihilator - Double Live Annihilation (2003) Limited Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799031.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Murder 04:35
+02. Ultra-Motion 05:17
+03. The Box 04:55(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A8C509FF516A4B155A87F23EA4EFFCDD73DB8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122357   (798869) от 05.04.2017
+
+Disembowelment - Transcendence Into the Peripheral (1993) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tree of Life and Death (10:25)
+02. Your Prophetic Throne of Ivory (07:39)
+03. Excoriate (04:43)
+04. Nightside of Eden (02:38)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301A28AF5EBB60C9E161115BCDFF8E5ABE1DDB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122231   (798864) от 05.04.2017
+
+Warbringer - Woe To The Vanquished (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silhouettes
+02. Woe to the Vanquished
+03. Remain Violent
+04. Shellfire(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00: 40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2343D7697936C3EFFD69429FFB6C1592EDF25A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122505   (798854) от 05.04.2017
+
+Mastodon - Emperor of Sand (2017) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Stoner Metal, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultan's Curse (4:10)
+02. Show Yourself (3:03)
+03. Precious Stones (3:46)
+04. Steambreather (5:03)(   Читать дальше...   )Жанр: Stoner Rock, Stoner Metal, Sludge MetalПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AA41A1589BC0C4E9020E595CE32DC0DE434BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507202   (798788) от 03.11.2021
+
+Nightivity - Deathsurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Male Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:29)
+02. The Curse (05:48)
+03. Annabelle (04:37)
+04. Ouija (04:03)(   Читать дальше...   )Жанр: Heavy Metal, Male Female VocalПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FBB2DB1D25A82BF18035F945641C376689167E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507185   (798787) от 03.11.2021
+
+Draconicon - Dark Side of Magic (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Principium Tenebris
+02. Fiery Rage
+03. Dark Side of Magic
+04. Blackfire(   Читать дальше...   )Жанр: Power Metal, Symphonic Folk MetalПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B6DAAD5C460DC760F7183A2948703E107471D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507324   (798485) от 04.11.2021
 
 VA - Relapse Sampler 2015 (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <black metal, death metal, atmospheric black metal, other>
@@ -484,267 +745,6 @@ Dragonland - Starfall (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21578667A65AF25BBFFE95ADF45E7A44D519BE75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508547   (797562) от 08.11.2021
-
-Dragonland - Astronomy (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supernova
-02. Cassiopeia
-03. Contact
-04. Astronomy(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C9B67FBDEE5A17C5696DEF7783C20B153BD2E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508558   (797559) от 08.11.2021
-
-Dragonland - The Battle Of The Ivory Plains (2001) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dragondawn
-02. Storming Across Heaven
-03. A Last Farewell
-04. Ride For Glory(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA19EBE71EBE155ECC3506C5F79580433161840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508431   (797553) от 08.11.2021
-
-Black September - The Forbidden Gates Beyond (2010) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Forbidden Gates Beyond (6:16)
-02. Creation Of Chaos (4:33)
-03. Hallow Of Decay (1:17)
-04. Tyrants (5:42)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD81E66ACF3D867F09FCB3331BF19B12C8CBD6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508553   (797552) от 08.11.2021
-
-Dragonland - Holy War (2002) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hundred Years Have Passed
-02. Majesty Of The Mithril Mountains
-03. Through Elven Woods And Dwarven Mines
-04. Holy War(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5783D2014B328543AB729DDC79500BCF32DAD63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508418   (797551) от 08.11.2021
-
-Anatomy Of I - Substratum (2011) Reissue, 2015, Punishment 18 Records [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Organic Machine 04:22
-02. Harvest the Fallen 03:33
-03. Drowning 04:27
-04. Dimensions 03:42(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0F869211930DCB37985F0FF146820E03819A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508413   (797550) от 08.11.2021
-
-Raphael and the Thorns - Rituals (2021) [FLAC|Lossless|WEB-DL|tracks] <Dark Theatrical metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sirens of Stone (07:16)
-02. Winter (04:14)
-03. Cold Hideaways (05:02)
-04. As the Wheel Turns (04:31)(   Читать дальше...   )Жанр: Dark Theatrical metalПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF43E8222B8D956215C3063F023B7232859628A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508426   (797520) от 08.11.2021
-
-Dragonland - Under The Grey Banner (2011) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilmarion
-02. Shadow Of The Mithril Mountains
-03. The Tempest
-04. A Thousand Towers White(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2471CDAFE1216999C9DDF61A48B56A76B3B9263E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508400   (797515) от 08.11.2021
-
-Lou Siffer And The Howling Demons - Too Old to Die Young (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Worm 02:44
-02. Sucks To Be You 03:13
-03. Amplifire 02:59
-04. The Song That Wrote Itself 03:20(   Читать дальше...   )Жанр: Heavy Metal, Groove MetalПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683891BFED328F1F6797090C71B919240C727F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508395   (797509) от 08.11.2021
-
-Evile - Hell Unleashed (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paralysed
-02. Gore
-03. Incarcerated
-04. War of Attrition(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94381DA993FA393D0541CA7FE8B04E8D9AAD2376
 ```
 
 https://mybot314.ru/tekegram_catalog/

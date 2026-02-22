@@ -1,3 +1,29 @@
+###  Публикация: 261069   (946869) от 12.01.2015
+
+JazzItaliano - Live at Casa del Jazz (2006 - 2010) 41x2 CD [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Casa del Jazz - место, ставшее меккой джаза в Италии.Это - комплекс зданий, расположенный в Риме (Villa Osio).Концерты в Casa del Jazz проходят непрерывно, причем выступает очень много молодых исполнителей из разных стран Европы. Выступают также лучшие итальянские джазмены, концерты которых издаются каждый год под эгидой RadioCapital и газеты La Repubblica.Исполнители: Danilo Rea, Enrico Pieranunzi, Enrico Rava, Francesco Cafiso, Paolo Fresu, Rita Marcotulli, Rosario Giuliani, Roberto Gatto, Stefano Bollani, Stefano Di Battista, Doctor 3, Franco Cerri & Enrico Intra, Franco D'Andrea, Fabrizio Bosso, Gianluca Petrella, Gianluigi Trovesi, Giorgio Gaslini, Giovanni Tommaso, Maria Pia De Vito, Maurizio Giammarco, Paolo (   Читать дальше...   )Жанр: Jazz |Продолжительность: 41:47:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090666   (946183) от 07.01.2017
 
 Duke Jordan - Flight to Jordan (1961) 2011, Blue Note[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -746,35 +772,6 @@ The Cinematic Orchestra - To Believe (2020) Remixes [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14D31460460FD9B6A8519C3C0702E7CDC5F7066A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983356   (943807) от 06.02.2016
-
-Chantal Chamberland - Soiree (2014) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Besame mucho
-02. Que reste-t-il de nos amours?
-03. J'ai deux amours
-04. J'ai oublie le jour(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA63B78733307BD9BFCC529446BBA443B5742230
 ```
 
 https://mybot314.ru/tekegram_catalog/

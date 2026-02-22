@@ -1,3 +1,38 @@
+###  Публикация: 763041   (888961) от 04.03.2014
+
+VA - Spaced Out Jazz (2009) [FLAC|Lossless]<Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Многие из засветившихся на этом сборнике имен уже достаточно полно представлены в клубе. Тем не менее рекомендую всем любителям джаза послушать этот диск. Эти в большинстве своем знакомые (ну кто ж например не знает Here Comes The Sun Джоржа Харрисона) медленные композиции, исполненные великими мастерами не оставят Вас равнодушными.01. George Benson -  Here Comes The Sun  (2:36)
+02. Don Ellis -  Mirror-Pond Of Stars  (3:26)
+03. Roy Ayers Ubiquity -  Time & Space  (4:08)
+04. George Duke -  Capricorn  (5:08)
+05. Roland Kovac Orchestra -  Milky Way  (3:02)
+06. Alphonse Mouzon -  Electric Moon  (4:53)
+07. Mike Nock Underground -  Space Bugaloo  (6:50)
+08. Pharoah Sanders -  Astral Traveling  (5:50)
+09. Sun Ra & His Intergalactic Research Arkestra -  Walkin' On The Moon  (8:53)
+10. Alice Coltrane -  Galaxy In Turiya  (9:57)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05DED27F53BE3B62ED7073BF56730C392681FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 762963   (888814) от 04.03.2014
 
 Ella Fitzgerald - Ballads (2003) [FLAC|Lossless]<Vocal Jazz>
@@ -764,41 +799,6 @@ Eddie Gomez, Billy Drummond, Yutaka Kobayashi - Beautiful Love (2008) [FLAC|Loss
  07. I'll Close My Eyes
  08. Sundry Waltz No. 9
  09. Chiquilin de BachinЖанр: FusionПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640416   (887483) от 07.04.2013
-
-Edmar Castaneda - Cuarto De Colores (2005) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Sonrisas (3:19)
- 02. Andrea (4:02)
- 03. Autumn Leaves (3:38)
- 04. Cuarto De Colores (5:52)
- 05. Negrita (1:10)
- 06. Madrugaga Azul (5:11)
- 07. Amen (0:38)
- 08. Alfonsina Y El Mar (5:57)
- 09. Afrojoropo (4:34)
- 10. El Camino (4:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:46
 
 ## Скачать торент
 ```bash

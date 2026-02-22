@@ -1,3 +1,29 @@
+###  Публикация: 1122054   (799044) от 04.04.2017
+
+Проекты - VideoHive - Elastic Opener Typography - 19598966 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elastic Opener Typography - Проект для создания динамичной презентации или короткого интро. Пошаговое руководство включено.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49A8AB3679239CCC830EE058A7D2E67DB479B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011131   (797467) от 26.04.2016
 
 Проекты - VideoHive - Business Force [AEP]
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F730D5AA17503B005F8EC5870FBD2CA449D6C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388496   (786644) от 06.06.2020
-
-Проекты - VideoHive - Fashion Opener - 26949208 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для промо-ролика, рекламы в фэшн-индустрии и т.п.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13648A66BF64D7C26860CE00C09B8CB361DD88B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

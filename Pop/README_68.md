@@ -1,3 +1,119 @@
+###  Публикация: 1501761   (833543) от 11.10.2021
+
+VA - 538 Hitzone: Best Of 2020 (2020) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Hip-hop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восполняю пробел по ежегодным сборникам нидерландской радиостанции 538. Все релизы этой серии вы как всегда сможете найти по ссылке внизу. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию. Так что наслаждайтесь...CD1:
+01. The Weeknd - Blinding Lights  (3:23)
+02. Sheppard - Die Young  (3:24)
+03. Davina Michelle & Snelle - 17 Miljoen Mensen (Live@538 In Ahoy)  (1:48)(   Читать дальше...   )Тип издания: Box Set, 2CD, CompilationРелиз состоялся: 13 ноября 2020 годаЖанр: Pop, Dance, Hip-hop, ElectronicПродолжительность: 02:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04DF26EFC6173072BE0520CBEE92CAAF819C5A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380517   (832945) от 03.05.2020
+
+Suzanne Vega - An Evening of New York Songs and Stories (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop, Folk Rock>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marlene on the Wall
+02. Luka
+03. So How Many People Are Here from out of Town?'
+04. New York Is a Woman(   Читать дальше...   )Жанр: Pop, Folk RockПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D44A1DA410C8DD75F1E63BAC0786DE475B5495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005712   (832634) от 09.04.2016
+
+DJ Mash Up - Summer Vibes: Chill-Out and Dance Hits (2016) [MP3|320 кб/с] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer (03:42)
+02. Summertime Sadness (Remix) (03:36)
+03. High By The Beach (04:15)
+04. Hideaway (04:16)(   Читать дальше...   )Производство: Dance Mash Up EntertainmentЖанр: Pop, DanceПродолжительность: 01:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C79029CAF964CB4C542C7F7A848FD4E58691408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114344   (832156) от 15.03.2017
+
+Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Up On Your Health
+02. Do Harm
+03. Small Towns
+04. When We Met(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E9509366F0A3428CEE055DCA253A35362939BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114657   (831980) от 15.03.2017
 
 VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul, Blues>
@@ -625,122 +741,6 @@ VA - Pure... america (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2F94E4500D658EDE8A005721C44C872A93FEE1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115252   (828152) от 17.03.2017
-
-Hazmat Modine - Extra-Deluxe-Supreme (2015) [MP3|320 Kbps] <SKA, Fusion, World>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Day (04:25)
-02. Plans (05:12)
-03. Your Sister (05:37)
-04. Up & Rise (05:30)(   Читать дальше...   )Жанр: SKA, Fusion, WorldПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63E14F4FE895AE7F37B0366FFE8FC9F06463374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115243   (828059) от 17.03.2017
-
-Zara Larsson - So Good (2017) [MP3|320 Kbps] <Pop, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. What They Say (03:39)
-02. Lush Life (03:21)
-03. I Would Like (03:45)(   Читать дальше...   )Жанр: Pop, R'n'BПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6BC725ADDCA12D86966DCAB27A030768258EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115203   (828058) от 17.03.2017
-
-The Chantoozies - Chantoozies (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Up
-02. Kiss 'N' Tell
-03. Bang Bang
-04. Slightest Notion(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, PopПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88C3BE1234A6F981FEBFEDD1F97441191FC8C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381343   (827814) от 06.05.2020
-
-Candido - Candi's Funk (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candi's Funk (8:25)
-02. Do You Wanna Dance? (8:12)
-03. Samba Funk (7:43)
-04. Super City (7:45)Жанр: Funk Soul, DiscoПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5DD90C98B9FAD8B5F75F2F30828565E1B336BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

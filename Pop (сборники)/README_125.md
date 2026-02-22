@@ -1,3 +1,32 @@
+###  Публикация: 1747732   (44102) от 09.09.2024
+
+VA - compilation part 119 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Pierce - Fog
+02. Black Sabbath - Dying for Love
+03. Michael Oakley - Left Behind
+04. Joy Peters - Winter in My Heart(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 03:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B23CA1F1220F85CCF61779A3978C02A1524DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749291   (43685) от 13.09.2024
 
 VA - Summer Green Dancefloor (2024) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Pop Dance Weekend Party Non Stop (2024) [MP3|320 Kbps] <Pop, Rock, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F3242385249F05D20450D7B9CF8A17BFFC6B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763991   (35243) от 04.12.2024
-
-VA - US Top 100 – The 00s (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Day - Boulevard of Broken Dreams - (04:22)
- 02. JAY-Z-Linkin Park - Numb - Encore - (03:25)
- 03. Coldplay - Viva La Vida - (04:02)
- 04. Jason Mraz - I’m Yours - (04:02)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC5022AF7417E4190EC7D95045B48B0CC02A428
 ```
 
 https://mybot314.ru/tekegram_catalog/

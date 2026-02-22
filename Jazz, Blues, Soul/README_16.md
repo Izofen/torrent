@@ -1,3 +1,90 @@
+###  Публикация: 1102477   (1038817) от 21.02.2023
+
+Ray Brown - I'm Walking (1998) JVC[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I'm Walking [05:16]
+ 02.Couch Potate Blues [02:46]
+ 03.Time After Time [06:31]
+ 04.Drum Feature [04:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE9271EE8274303B008D754F10065E6A024533D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440227   (1038737) от 17.01.2021
+
+Andy Lindquist - Blues Soul Groove (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By the Foot of John Lee (4:23)
+02. Blues Soul Groove (3:23)
+03. That's Where I Born My Blues (3:09)
+04. Bygone Blues (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659FA55497466FB4244886B3E77B23EEC59A2337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614437   (1038609) от 22.02.2023
+
+Charles Mingus - East Coasting (1957) 1986, Bethlehem Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories of You [4:28]
+02. East Coasting [5:14]
+03. West Coast Ghost [10:34]
+04. Celia [7:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50AA8578A34612F94297D87BF7CE0335F5B6EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614438   (1038608) от 22.02.2023
 
 Freddie Hubbard - Above & Beyond (1982) 1999, Metropolitan Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -658,93 +745,6 @@ Morblus - I Feel Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Electricblues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDA47B3353B06CEABACB5D94D0AC40769CB76FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441107   (1037973) от 20.01.2021
-
-Kung Botes Kapell - Botemedel (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On A Roll (3:30)
-02. Reminder (2:48)
-03. Countryside Sunrise (2:43)
-04. Cool Organ (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C8C962D6E27449B6887D69B421D78EC3021E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441105   (1037970) от 20.01.2021
-
-Brandon Trickey - Ruby Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruby Meredith (3:43)
-02. Drama Queen (3:32)
-03. Telephone (3:40)
-04. More Than Friends (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D005CEF6EA8282A3B04D9C4BEDED56B1BD85000C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441103   (1037947) от 20.01.2021
-
-Bonny B - Bonny B. & the Jukes (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Going Home (5:49)
-02. One String Is Enough (5:11)
-03. Trust Yourself (5:33)
-04. Father (7:57)(   Читать дальше...   )Жанр: Blues HarmonicaПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3EAD0FD05A3B76445A37BAC601E39AD6D1CFEFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

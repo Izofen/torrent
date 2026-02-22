@@ -1,22 +1,26 @@
-###  Публикация: 485212   (99974) от 19.04.2012
+###  Публикация: 482662   (99503) от 13.04.2012
 
-[Wallpapers] Girls Wallpapers Mix (20.04.12)
+[Wallpapers] Nature Pictures №42
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99974.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1440х900 - 3145х2040
+[Wallpapers] Nature Pictures №42
+Название: Nature Pictures №42
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12994C838F98ECDAE5AC6B9633F4ABC581B4DF07
+magnet:?xt=urn:btih:68733C105078C93190E042F5C8F1EE149FB2A280
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +28,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484947   (99973) от 19.04.2012
+###  Публикация: 482378   (99499) от 13.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls Pack (19.04.12)
+Корсар - Каменный ангел (Single) (2012) [MP3|320 кб/с]<Heavy Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99973.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3200x2000
+01. Каменный ангел
+02. Он не отдаст тебя
+03. Его ли дом?2012Жанр: Heavy MetalПродолжительность: 00:18:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC3851C8BD6C571706D28464FA47AF9050CFAA7A
+magnet:?xt=urn:btih:147BF3EC77A6919CF43C09767C77E26CB81D7E97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,102 +56,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484492   (99970) от 19.04.2012
+###  Публикация: 482524   (99497) от 13.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls Pack (18.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3600x2400
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417F324EEA7F72B3D8A8655B8083C7A79165FBBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484948   (99968) от 19.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (19.04.12)
+[Wallpapers] Wallpapers Sexy Girls Pack (14.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1440х1080 - 5228х3456
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92518BE3490619F9A535D333980A1F5F89E640D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484676   (99966) от 19.04.2012
-
-VA - Freedom Festival 2011 Back To The Roots (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Project - Hey You 07:50
- 02. Sun Project - Epic Transition 07:46
- 03. Azax Syndrom - A Man On Acid (feat Bliss) 08:23
- 04. Vibe Tribe Spade - Music People 07:17
- 05. Absolum Lost and Found - Power Science 08:21
- 06. Ex Gen - Bankai 09:41
- 07. Space Tribe - Time Warp (remix) 09:01
- 08. Electric Universe - Boddisatva 08:25
- 09. Rinkadink - Tranzmachien 06:59
- 10. Skunk Tribe - Gods Equation 09:282012Жанр: Psychedelic / Full OnПродолжительность: 01:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F295BCA861384B0F5352AC4351A5813E393B59E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484941   (99964) от 19.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (19.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99964.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99497.jpg" />
 </div>
 
 
@@ -155,7 +74,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:950326F2F08360741F1C1519623FCC080C29E381
+magnet:?xt=urn:btih:72F2518D2D9C699B3DE007D5DE7EEBC170728050
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,32 +82,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484740   (99960) от 19.04.2012
+###  Публикация: 482140   (99494) от 13.04.2012
 
-VA - Trance Parade Vol.2 (17.04.2012) [MP3|320 кб/с]<Trance>
+Exumer - Fire & Damnation (2012) [MP3|320 кб/с]<Speed / Thrash Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99960.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Trance Parade Vol.2 (17.04.2012)
-Год: 17.04.2012
-Жанр: Trance
-Продолжительность: 03:27:39Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-1.Robert, The Martinez Brothers--Dreaming About Paprica (Dave Joy Remix)
-2.DJ Shog--Jelousy (Vocal Mix)(   Читать дальше...   )
+01. Fire & Damnation (03:16)
+ 02. Vermin of the Sky (03:17)
+ 03. The Weakest Limb (03:50)
+ 04. New Morality (03:08)
+ 05. Waking The Fire (03:13)
+ 06. Fallen Saint (03:54)
+ 07. Crushing Point (03:01)
+ 08. Devil Chaser (02:42)
+ 09. I Dare You (03:40)
+ 10. Tribal Furies (03:28)2012Жанр: Speed / Thrash MetalПродолжительность: 00:33:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D64CFC25903F489C7DD8BD0D244642BF5519D86
+magnet:?xt=urn:btih:4920E535311EF50D74708E27BCF8EB2C94923973
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,71 +117,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485109   (99958) от 19.04.2012
+###  Публикация: 482520   (99493) от 13.04.2012
 
-[Wallpapers]Различная тематика
+[Wallpapers] Super Girls Wallpapers (14.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99958.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers]Различная тематика
-Название: Различная тематика
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200/2560х1600
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2246E38B1449DE84C2A4EDB381D767D337FADACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484975   (99957) от 19.04.2012
-
-Величайшие автомобили: Cobra / Great Cars: Cobra (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более сорока лет машины Керола Шелби поражают мир своей мощью и скоростью. Не важно был ли он за рулем или руководил гоночной командой - Шелби был обречен на победы. Не имело значения сколько машин он создал и сколько гонок он выиграл. Каждый раз главной его целью было сделать новый автомобиль еще лучше и быстрее.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1308EB9AF5DFF8430C562080EC5C705DF9556E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484944   (99956) от 19.04.2012
-
-[Wallpapers] Best HD Wallpapers Pack (19.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99956.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99493.jpg" />
 </div>
 
 
@@ -270,7 +135,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B8D6807E34471ED13E88072F2D843A9BBF2E9B3
+magnet:?xt=urn:btih:E7CD9705B2BB6DB270FAAD139B8B325300DA4101
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,29 +143,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485106   (99955) от 19.04.2012
+###  Публикация: 482686   (99492) от 13.04.2012
 
-[Wallpapers]Delicious Wallpapers
+[Wallpapers] Нравятся! Сотня № 004 (1920х1080-2560х1600)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99955.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers]Delicious Wallpapers
-Название: Delicious Wallpapers
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200/2796x3567
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Хотя на вкус и цвет...
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1B5B74645798D3D477FDB53B2D48B929934C9C8
+magnet:?xt=urn:btih:42D31CF2F4925D5362D2B2D0B65F2A9A16818DA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,25 +170,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485210   (99954) от 19.04.2012
+###  Публикация: 481843   (99491) от 13.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls Pack (20.04.12)
+Amongst The Deceit - Tribulations Of Man (2011) [MP3|320 кб/с]<Brutal Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inceptum 1:26
+ 02. Inferior Lives 4:08
+ 03. Dark Science 4:33
+ 04. Dawn Of The Martyr 4:41Жанр: Brutal DeathПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD4F0C6BBE039F7786672B9365D7E775E5CFBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480892   (99490) от 13.04.2012
+
+Trifixion - A Utopia For The Damned (2011) [MP3|~245 кб/с (V0)]<Brutal Technical Death>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99954.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x3000
+01. The Human Construct (Intro) (01:53)
+ 02. Fucked In Gutteral Vortex (03:56)
+ 03. Delta 9 Messiah (04:10)
+ 04. In Nomine Patris (03:56)Жанр: Brutal Technical DeathПродолжительность: 00:47:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E6C27810D8A7F7BB05DC00FF03A63FCE723FBF7
+magnet:?xt=urn:btih:72F2FB8ED4C0014EF8E33E529D47E0FCF30BD3CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,220 +228,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485211   (99951) от 19.04.2012
+###  Публикация: 481590   (99489) от 13.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls (20.04.12)
+220v - Overcharged (2008) [FLAC|Lossless]<Psychedelic / Full-On>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99951.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_99489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 2582х1849
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F898163FF83BDC099453AF9BB1FEA58F3A71E88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484945   (99950) от 19.04.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (19.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4075x2288
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4115A14186D31D2E9A8F59E408CFE2CB2FC9F47C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485218   (99949) от 19.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №23
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1280х1024 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7942913FBF52D0E77E4AD5DFA7F70189CE5EBB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484677   (99944) от 18.04.2012
-
-Журнал | Современный дом и офис №1 [2012 февраль-март] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная информация о модных тенденциях и дизайнерских идеях на интерьерном рынке, помощник в решении практических вопросов строительства, ремонта и обустройства комфортного качественного интерьера. Журнал регулярно знакомит своих читателей с новинками рынка, рассказывает о наиболее авторитетных марках и производителях мебели, отделочных материалов, строительных компонентов.2012 февраль-мартФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5288B5EB49E4D87BD1C647E92D40A4AE9EA5C5FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484869   (99943) от 18.04.2012
-
-[Wallpapers] Wallpapers Fantasy №5 (Pavel)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 50 шт
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1253520E194C40624CB51401A4DAA038027FAEF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484564   (99941) от 18.04.2012
-
-VA - MAXI. Русские новинки MTV (2012) [MP3|320 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ради Славы & Katty - Целуй Меня
-02. Paralleli - Опасные
-03. Пыльца - Красная Пелена
-04. Nomad - Сколько Можно
-05. DMS - Давай Полетим
-06. Пара Нормальных - Невеста
-07. N.A.O.M.I. (Наоми) - Нежность)
-08. DJ Рублёв feat. Вячеслав Лопаков - Одиночество (DJ Denis Rublev Club Mix)
-09. Оля Полякова - Лепесток
-10. Monaco - Не Дети (Dj Denis Rublev Remix)2012Жанр: Pop,DanceПродолжительность: 05:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203C4FB9B7F6DEB73797292C0E54D74D81F84634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484776   (99940) от 18.04.2012
-
-А.Д. Чернев | 229 кремлевских вождей [1996] [DJVU]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник кратких биографий высших партийных чинов: членов Политбюро, Оргбюро и Секретариата ЦК РКП(б) - ВКП(б) – КПСС. Любой уважающий себя россиянин знаком с такими фамилиями, как Берия, Троцкий, Жданов, Бухарин, Каменев, Зиновьев, Ворошилов, Молотов, Суслов, не говоря уже о властных лидерах Ленине, Сталине, Хрущеве, Брежневе и т.д. Загадкой до недавнего времени оставался коллективный потрет высшей элиты советского общества.1996Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56076B52D79D2FBEF96C3B079111B180001A2702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484426   (99937) от 18.04.2012
-
-Naglfar - Teras (2012) [FLAC|Lossless]<Melodic Black Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teras 02:16
-02. Pale Horse 03:38
-03. III: Death Dimension Phantasma 04:15
-04. The Monolith 06:33
-05. An Extension of His Arm and Will 04:46
-06. Bring Out Your Dead 04:49
-07. Come, Perdition 05:43
-08. Invoc(H)ate 04:25
-09. The Dying Flame of Existence 08:12Жанр: Melodic Black MetalПродолжительность: 00:44:35
+01. 220v - Overcharged [08:17]
+ 02. 220v - Friday [06:49]
+ 03. 220v - Insane To The Brain [07:22]
+ 04. 220v - Keeping The Music Real [08:10]
+ 05. 220v - Swinguin Beat [07:54]
+ 06. Eskimo - Every single sound (220V Remix) [07:54]
+ 07. 220v - Kizuna [08:12]
+ 08. 220v - The Future Shock [07:22]
+ 09. 220v - Turn The Beat Back [06:44]2008Жанр: Psychedelic / Full-OnПродолжительность: 01:08:42
 
 ## Скачать торент
 ```bash
@@ -559,25 +262,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484826   (99935) от 18.04.2012
+###  Публикация: 482164   (99488) от 13.04.2012
 
-Каникулы в Мексике - 2. Выпуск №33 (2012.04.18) SATRip
+VA - MAXI. Популярные новинки Раdio Плюс (2012) [MP3|256-320 kbps]<Pop | Dance>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99935.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:40
+01. Bahh Tee - Я Наверное
+02. Frisco Disco ft. Ski - One Way Ticket (Original Club Mix)
+03. Lia Love feat. Chaddi - Down Down (Kriss Raize Radio Edit)
+04. T1One feat. U'Lee (44) - Всё Будет Как Прежде
+05. Макsим - Небо-самолёты
+06. A-VIA & Extasy Project - Мама-Любовь
+07. Katy Perry - Wide Awake
+08. Spencer & Hill feat. Ari - Surrender (Radio Edit)
+09. Людмила Соколова - Дарю Тебе Счастье
+10. Оксана Почепа - Стаи птиц (DJ Audiophil Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:16:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D347D8572A2370BC7374C68FEBF3B4373B30C52
+magnet:?xt=urn:btih:B73ACAADD045E4568220F6E9A18C07F96FA6423A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,25 +297,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484704   (99934) от 18.04.2012
+###  Публикация: 482758   (99486) от 13.04.2012
 
-Русский север. Каргополье (2011) DVDRip
+VA - Trance Maniacs Party: Trancefer Wave #96 (13.04.2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99934.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сокровищнице Каргопольской культуры немало подлинных жемчужин, нанизанных на нитку времени. По сей день здесь сохранились памятники зодчества и живописи древней Руси, народные промыслы и ремесла. Когда-то железная дорога на Архангельск обошла Каргополь стороной, и город потерял выгодность своего прежнего географического положения. Но это помогло сохранить его архитектурные и природные богатства.Жанр: ДокументальныйРежиссер: Р. АднобаевПродолжительность: 00:50:03
+001. Solesystem presents Mel-O-Maniacs - A Little Big Planet (Basil O'Glue Remix)
+002. Santerna - Aquamarine
+003. Radion 6 - B U Tiful (Original Mix)
+004. Patric la Funk - Baltic (Original Mix)
+005. Ralphie B - Bullfrog (Original Mix)
+006. Veracocha - Carte Blanche (Dabruck & Klein Remix)
+007. Marcel Woods - Champagne Dreams (W&W Remix)
+008. Ummet Ozcan - Cocoon (Original Mix)
+009. Matt Bowdidge - Crossing North (Original Mix)
+010. Mark Burton - Delusion (Original Mix)(   Читать дальше...   )13.04.2012Жанр: Trance, Uplifting TranceПродолжительность: 03:36:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBE311CC5523753315C13EEC9799EA283E76E5EF
+magnet:?xt=urn:btih:24D9BAB52FF711E9861F50BF0B9E5287973EE9D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,25 +332,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 738549   (99933) от 05.10.2025
+###  Публикация: 482682   (99483) от 13.04.2012
 
-Географ глобус пропил (2013) BDRip [1080p]
+[Wallpapers] HD Wallpapers №10
 
->>3
->>След.
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99933.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молодой биолог Виктор Служкин от безденежья идет работать учителем географии в обычную пермскую школу. Он борется, а потом и дружит с учениками, конфликтует с завучем, ведет десятиклассников в поход — сплавляться по реке. Еще он пьет с друзьями вино, пытается ужиться с женой и водит в детский сад маленькую дочку. Он просто живет…Производство: РоссияЖанр: ДрамаРежиссер: Александр ВелединскийАктеры: Константин Хабенский, Елена Лядова, Александр Робак, Евгения Брик, Анна Уколова, Агриппина Стеклова, Евгения Крегжде, Максим Лагашкин, Анфиса Черных, Анастасия ЗолоткоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:04:51
+[Wallpapers] HD Wallpapers №10
+Название: HD Wallpapers №10
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200/1680x1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A8FD9FECE50823FE44454A270EDF0198A0B3009
+magnet:?xt=urn:btih:C49978FCF3B11DFB99CA646FA9F2F098880C80D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,25 +362,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822204   (99932) от 05.10.2025
+###  Публикация: 481989   (99480) от 13.04.2012
 
-T-FLEX CAD 16.0.88.0 [Ru]
+Jeff Hughell (ex-Brain Drill) - I Came To Hate [EP] (2009) [MP3|320 кб/с]<Technical Instrumental>
 
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99932.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-T-FLEX CAD - профессиональная конструкторская программа, объединяющая в себе мощные параметрические возможности 2D и 3D-моделирования со средствами создания и оформления чертежей и конструкторской документации. Технические новшества и хорошая производительность в сочетании с удобным и понятным интерфейсом делают T-FLEX CAD универсальным и эффективным средством 2D (   Читать дальше...   )Язык интерфейса: Русский
+01. I Came To Hate
+ 02. Elbowed Back To Life
+ 03. Fuck You All
+ 04. Classicaly
+ 05. Black Label Bongo Thrash2009Жанр: Technical InstrumentalПродолжительность: 00:18:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A526CA41450C7A1525C553842E9D6FCCB5BC84D4
+magnet:?xt=urn:btih:498971FAC13080EF6ACEF2D0839969C2A376225C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,51 +392,385 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822205   (99931) от 05.10.2025
+###  Публикация: 482550   (99476) от 13.04.2012
 
-M.A.S.S. Builder (2019) [Multi] (1.0) Scene Rune
+Derelict - Perpetuation (2012) [MP3|~295 кб/с]<Technical Progressive Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perpetuation 3:05
+ 02. Spoils Of War 3:37
+ 03. Expiry 2:55
+ 04. Digital Birthright 3:25
+ 05. Intricate Decay 4:38
+ 06. Olympic 3:26
+ 07. Ergogenic 3:32
+ 08. Recreated 3:06
+ 09. Yours To Surpass 2:34
+ 10. Shackles Of Indoctrination 4:48(   Читать дальше...   )2012Жанр: Technical Progressive DeathПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E182DD163A8DBAA74A81BC0736B98A107DA8F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482712   (99475) от 13.04.2012
+
+[Wallpapers] HD Wallpapers №12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99475.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №12
+Название: HD Wallpapers №12
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ED6EFC203C01ADF00E1A5C77911BCF8D1D6B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482435   (99474) от 13.04.2012
+
+Журнал | 5 колесо №3 (март 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99474.jpg" />
+</div>
+
+
+###  Подробнее
+
+«5 колесо» - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей. В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA6B8FF9EDAD852F29BD1DEC825B758C7C2C1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482513   (99473) от 13.04.2012
+
+[Wallpapers] Scotland (Шотландия) wallpaper | для БориСКА47
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз подготовлен по просьбеРазрешение файлов: 1280x840 - 1600х1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E308BB5B9E1E119EB2B872DF9445FD064ACB77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481984   (99471) от 13.04.2012
+
+Taenya - Contaminate [EP] (2011) [MP3|~275 кб/с (V0)]<Slamming Brutal Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+ 02. Parasite
+ 03. Mensonges
+ 04. People
+ 05. Cadaveric Slam
+ 06. Amnésie
+ 07. Hate My Face
+ 08. All Star
+ 09. Anal Evil
+ 10. Armes de Sang Froid2011Жанр: Slamming Brutal DeathПродолжительность: 00:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7894AFF7D4032B8A3A08EDB6BDDF2295546FA6D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481846   (99467) от 13.04.2012
+
+I’ll Eat Your Face - Hot Brains Terror (2011) [MP3|320 кб/с]<Death Metal / Grindсore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weasel Tank Slime (01:08)
+ 02. Acid Worm Monsoon (01:37)
+ 03. Brainwolf: Revenge of the Priest (01:53)
+ 04. Drowning Dogs in a Swamp (03:32)
+ 05. Enslaved by the Prawnmaster (01:18)
+ 06. Reverse Eagle Embeastment (02:13)
+ 07. The Eels of Love Lake (02:10)
+ 08. Castle of Vomiting Owls (01:48)
+ 09. Forever Sealed in the Electric Brains’ Melting Slug-Ray (05:16)2011Жанр: Death Metal / GrindсoreПродолжительность: 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4EB3D02112D6B7D1A2F1C97CA45B961EE5024C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482064   (99465) от 13.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (12.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A7C28B2DFCC1C692CA45DA6FA8EA45D830864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481178   (99464) от 13.04.2012
+
+Infestdead - 3 альбома - Discography (1995 - 1999) [MP3|320 кб/с]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Death MetalПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFDAAC34B836075448B536C1791C2288F56A74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481995   (99462) от 13.04.2012
+
+A Million Dead Birds Laughing - Force Fed Enlightenment (2011) [MP3|~275 кб/с (V0)]<Experimental Grindcore / Technical Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99462.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Conduit - 01:04
+ 2. Void - 01:47
+ 3. Forcefed - 01:11
+ 4. Edge - 01:44
+ 5. Requiem - 01:30
+ 6. Defiants - 02:37
+ 7. Purpose - 01:21
+ 8. Willow - 01:09
+ 9. Oracle - 02:49
+ 10. Leech - 02:26(   Читать дальше...   )Жанр: Experimental Grindcore / Technical DeathПродолжительность: 00:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94391266783DF4CDCBE7FFA59D272B091153A0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482526   (99460) от 13.04.2012
+
+[Wallpapers] Best HD Wallpapers (14.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F36852AF17C7DF1D8B29391D8BD69F3AE41ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482519   (99459) от 13.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (14.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22ED87B38CE754111DEF9CEE51C199092D5B8C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481810   (99457) от 12.04.2012
+
+The Cardigans - Life (2005) /2008 Japan SHM-CD Edition/ [FLAC|Lossless]<Pop Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_99457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carnival [03:37]
+02. Gordon's Gardenparty [03:20]
+03. Daddy's Car [03:35]
+04. Pikebubbles [03:02]
+05. Tomorrow [03:03]
+06. Beautiful One [03:27]
+07. Travelling with Charley [04:09]
+08. Fine [03:09]
+09. Sunday Circus Song [03:54]
+10. Hey! Get Out of My Way [03:30](   Читать дальше...   )2008Жанр: Pop RockФормат: CD, Album, ReissueПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481888   (99456) от 12.04.2012
+
+Inspector Magnusson: Murder on the Titanic (P) [En] 2012
 
 >>Win Игры
->>Горячие новинки Игр
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99931.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-M.A.S.S. Builder - это ролевая игра, в которой игроки управляют механическим штурмовым скелетным костюмом (M.A.S.S.) в качестве командира частной военной компании, отправляясь на борьбу с угрозой Кварков. Вы будете создавать, модифицировать и сражаться, чтобы спасти мир, или, по крайней мере, получать удовольствие от создания и настройки своих идеальных механических (   Читать дальше...   )Тип издания: SceneРазработчик: Vermillion DigitalЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Японский, Китайский (упрощенный) и другие
+Спустя месяц после гибели Титаника экипаж рыболовного судна "Plymouth" обнаружил тело Ричарда Гринфилда Бартоломью ІІІ. Тело идентифицировать не удалось, но экипаж рыболовного судна заинтересовал документ, найденный на теле, в котором сообщалось о плане собрать деньги на страхование от гибели лайнера "Олимпик".(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76A1BD887B5BBAD352D7701FEE0102D2F407F7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822200   (99930) от 05.10.2025
-
-Растровый клипарт - Adobe Stock - Old Time, Vintage Desks & Boards [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99930.jpg" />
-</div>
-
-
-###  Подробнее
-
-32 стоковых изображений старинных, винтажных столов и досок из Adobe Stock. Оригинальные названия сохранены.Формат: JPGРазрешение файлов: 4098x2306 - 12544x4704
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1EDD1F2C792CF6EDAA79900AE80534A2BADA99F
+magnet:?xt=urn:btih:4EBCDDF434D27F16DDACABB9352FDBCC9746E17A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 499992   (256991) от 22.05.2012
+
+Foster The People - Torches (2011) [FLAC|Lossless]<Indie Pop, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256991.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Helena Beat
+2. Pumped Up Kicks
+3. Call It What You Want
+4. Color On the Walls (Don't Stop)
+5. Waste
+6. I Would Do Anything for You
+7. Houdini
+8. Hustling (Life On the Nickel)
+9. Miss You
+10. Warrant(   Читать дальше...   )Жанр: Indie Pop, AlternativeПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836484   (256323) от 10.11.2025
 
 VA - 10s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -731,35 +766,6 @@ Elkie Brooks - No More The Fool (1986) [FLAC|Lossless|tracks + .cue]<Funk, Soul,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D08902FD4088E1C629B33B1668B16BEEF0ADBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621437   (245036) от 25.03.2023
-
-Lana Del Rey - Did you know that there's a tunnel under Ocean Blvd (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Grants (00:04:55)
-02 - Did you know that there's a tunnel under Ocean Blvd (00:04:45)
-03 - Sweet (00:03:35)
-04 - A&W (00:07:13)(   Читать дальше...   )Жанр: Pop, AlternativeПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51D7ABC6F12FC365993FF695D0EFBB96C108F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

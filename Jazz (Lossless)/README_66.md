@@ -1,3 +1,32 @@
+###  Публикация: 999140   (866497) от 21.03.2016
+
+The Puppini Sisters - The High Life (2016) [FLAC|Lossless|image + .cue] <Jazz Vocal, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is This The High Life?
+02. Accentuate The Positive
+03. It Ain't What You Do
+04. Girls Just Wanna Have Fun(   Читать дальше...   )Жанр: Jazz Vocal, SwingПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FB2C32C3182B945FB704AA92739F661B882DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107763   (866483) от 23.02.2017
 
 Miles Davis - Agharta (1975) 2CD, 1997, Sony Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -743,35 +772,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80AE1B19F9B8D170FB0ACBD11E1563F07F4E9ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108106   (864647) от 24.02.2017
-
-Freddie Hubbard - Anthology: The Soul-Jazz And Fusion Years (1966-1982) 2CD, 2002, Soul Brother Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864647.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Return Of The Prodigal Son [05:42]
-02.Little Sunflower (Original) [07:52]
-03.Latina [04:48](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBEEBBECCCAAE3846F49A0CB487BA6EC1123E79
 ```
 
 https://mybot314.ru/tekegram_catalog/

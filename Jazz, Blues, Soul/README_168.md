@@ -1,3 +1,90 @@
+###  Публикация: 1206516   (782161) от 14.02.2018
+
+Dinah Washington - Ballads (1962, 1963) 2002, Roulette Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Man [03:01]
+02. I Wanna Be Around [03:41]
+03. I Didn't Know About You [03:07]
+04. Funny Thing [02:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2EB95DE7413E6991806622BCEE1FFC2335B562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206537   (782160) от 14.02.2018
+
+Ron Carter And The WDR Big Band - My Personal Songbook (2015) In+Out Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eight [07:03]
+02. Receipt, Please [06:00]
+03. Ah, Rio [06:09]
+04. Doom Mood [07:49](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Big BandПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D8B82148656DE819E55009EB7F32C99E1A8A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206526   (782151) от 14.02.2018
+
+Mike Garson - Mike Garson's Jazz Hat (2008) Reference Recordings [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rumble [05:08]
+02. All Blues [09:49]
+03. It's You or No One [05:22]
+04. A Song For You [10:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28EC1362FCD2C99508A41CDB335B36C3136C2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206522   (782144) от 14.02.2018
 
 Robert Moore - Outta My Soul (2012) 2014, Reference Recordings [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -658,93 +745,6 @@ Carmen McRae - Carmen Sings Monk (1988) 2017, Sony Music [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71B7C49B7D8FB98564F8FFCB160934F4102C03DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207958   (780228) от 20.02.2018
-
-VA - Slide Guitar Blues (2018) [MP3|320 Kbps] <Blues, Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuck E. Weiss - Devil With Blue Suede Shoes (5:00)
-02. Kelly Joe Phelps - House Carpenter (6:43)
-03. John Hammond - Shake Your Money Maker (1:58)
-04. Delaney & Bonnie & Friends - Come On In My Kitchen - Mama, He Treats Your Daughter Mean Going Down The Road Feeling Bad (4:15)(   Читать дальше...   )Жанр: Blues, Electric Blues, Blues RockПродолжительность: 01:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159D9FE89D868F1A5F6B58DF3EFE46B8AFD4C4A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208184   (780132) от 21.02.2018
-
-Mose Allison - Ramblin' With Mose (1958) 2005, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got A Right To Cry [02:52]
-02. Old Devil Moon [05:11]
-03. The Minstrels [03:31]
-04. You Belong To Me [04:24](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D82A760D2C53022D7A0FFB1770C372FF30CCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208192   (780131) от 21.02.2018
-
-Billy Childs - Rebirth (2017) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backwards Bop [06:38]
-02. Rebirth [07:39]
-03. Stay [05:59]
-04. Dance of Shiva [06:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF92CC8983AF6F0EE753A2F2FDDA423342F9438D
 ```
 
 https://mybot314.ru/tekegram_catalog/

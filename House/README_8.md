@@ -1,3 +1,102 @@
+###  Публикация: 627143   (941616) от 07.03.2013
+
+VA - Destination Ocean Drive (Miami Beach Chill-Out Session) (2012) [MP3|320 кб/с]<Downtempo,ChillOut>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. David Tort, Norman Doray - Chase The Sun (Musica Feliz Ibiza Beat remix) (05:02)
+02. Thomas Lemmer - The Beach (Original Version) (03:46)
+03. Ensoul - Clouds (Original Mix) (04:16)
+04. Ingo Herrmann - Beauty of Life (Original Mix) (04:06)
+05. Thomas Lemmer - I Like It (Original Version) (05:35)
+06. Minor Dreamer - D.o.n.t. (Original Mix) (04:29)
+07. Minus Blue - Close Your Eyes (feat. Emma Saville) (05:01)
+08. The Soulful Sun - Loose It (Original Mix) (04:44)
+09. Kevin Place - Sax Trip (Original Mix) (05:42)
+10. Michael E - Be Yourself (Original Version) (04:56)(   Читать дальше...   )Жанр: Downtempo,ChillOutПродолжительность: 01:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC2B0406857E64288CFF013A5CA9AF7122BDE16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 627086   (941613) от 07.03.2013
+
+VA- Anjunadeep - In Miami 2013 [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Above & Beyond - Prelude (Andrew Bayer & James Grant Remix) (4:43)
+2. Matt Lange - Rift (Original Mix) (2:51)
+3. Michael Cassette - Crockett's Theme (Tom Middleton Cosmos Mix) (9:48)
+4. Solarity - Primordial (Original Mix) (3:08)
+5. Dusky feat. Janai - It's Not Enough (jozif's Voxatron Remix) (5:12)
+6. Martin Roth - Beautiful Life (Original Mix) (4:11)
+7. Alfred Taylor - Don't You Leave Me (Original Mix) (4:39)
+8. Kahwe - Anything (Original Mix) (6:34)
+9. Beckwith - All I Need (Original Mix) (6:06)
+10. Jody Wisternoff feat. Jonathan Mendelsohn - Out Of Reach (Alfred Taylor Remix) (6:06)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E04692323D49FB1BD1C803701B6E845039FF019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092076   (940302) от 11.01.2017
+
+VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Feedback - Rien ne va plus - Don Gorda Project Remix
+02. Don Gorda Project - Do That Again
+03. Enrico Donner - I Need A Love
+04. Lazypojke - Ta en fika(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C6F2B2837931A8C02A68EA2A8ECCE211BD183A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 175505   (939275) от 15.02.2010
 
 VA - House Vip (09.02.10) [MP3|128 - 320 kbps]<Electro House>
@@ -676,93 +775,6 @@ VA - Future Punk, Vol. 6 (2020) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D635D571EC368C6D5FB049AF49709A3359870B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365112   (932336) от 06.03.2020
-
-VA - Urban Sports Music, Vol. 2 (2019) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melbourne Bounce Project feat. Gemeni - Melbournia Superstars (Radio Edit) [03:12]
-02. Sunloverz - Summer of Love 2k13 (Edit) [03:04]
-03. Steve Cypress - Play It Loud (A2C Remix Edit) [03:50]
-04. Benjiy - Do It Yourself (Club Edit) [03:02](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEA6486B154FD9B04383006A8B55A8ACBBA5690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365105   (932249) от 06.03.2020
-
-VA - Urban Sports Music, Vol. 4 (2019) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monkey Warriors - In Your Face (Radio Edit) [03:07]
-02. SRNDR - Sandstorm (Radio Edit) [02:37]
-03. Phun and Key - System Crash (Radio Edit) [03:05]
-04. Whitemaxx - Let's Do the Sh..! (Short Mix) [02:57](   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2054F91C3D20A82DE9D0F9E3CCDFD9D1CCB6B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365324   (932244) от 06.03.2020
-
-VA - Afro Tribal House 7 (2020) [MP3|320 Kbps] <House, Afro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christos Fourkis - Funky Feelings (Afro Mix) [06:19]
-02. Raul Soto Inaky Garcia - You Are the One (Jack n Brothas Remix) [06:50]
-03. Teejay Walton Gina Glover - Rescue Me (Nikos Diamantopoulos Remix) [06:48]
-04. Walterino Plastik Guys - Aje-Ajo (Plastik Guys Remix) [05:35](   Читать дальше...   )Жанр: House, Afro HouseПродолжительность: 01:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939AEBD77421F156D5770DDE7162546BB4CA9973
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1391382   (780958) от 20.06.2020
+
+Sade - Collection 6 Albums (1984-2010) Originals & Remasters [FLAC|Lossless|tracks + .cue] <Pop, Smooth Jazz, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780958.jpg" />
+</div>
+
+
+###  Подробнее
+
+1984 - Diamond Life (2005, Epic– MHCP 603, JP)
+1985 - Promise (2005, Epic ‎– MHCP 604, JP)
+1988 - Stronger Than Pride (2005, Epic– MHCP 605, JP)
+1992 - Love Deluxe (2005, Epic ‎– MHCP 606, JP)(   Читать дальше...   )Жанр: Pop, Smooth Jazz, Soul, Funk, R&B, Trip-Hop |Продолжительность: 04:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74C91F116A2095DCEB11B71A1DD6408BEFB3B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207264   (780852) от 17.02.2018
+
+DJ Piligrim - Ночером...вечером...кечером (1999) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Мне не жить без тебя
+03. Хайр, дустим, прощай
+04. Кур булсин(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2BFB142FD8B0B01F36C3E1B71FB2ED47325561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207218   (780815) от 17.02.2018
+
+Telex - 11 Studio Albums (1978 - 2006) Discography [MP3|320 Kbps] <Electronic, Disco, Synth-pop, House, Techno>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telex - бельгийская группа, образованная в 1978 в Брюсселе бывшим участником джаз-рок-группы Cos Марком Муленом (1942—2008), Даном Лаксманом и Мишелем Мером с намерением «создать что-нибудь по-настоящему европейское, непохожее на рок-музыку, без использования гитар: этим критериям больше всего соответствовала электронная музыка». Группа соединяла эстетику диско-музыки, (   Читать дальше...   )Список альбомов:
+1978 - Looking for St. Tropez
+1980 - Neurovision
+1981 - Sex(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, House, TechnoПродолжительность: 08:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D315954CDF0B75CCF154EB2EE63A3CDE48507DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207529   (780599) от 18.02.2018
+
+Natasha Barnes - Real (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Don't Mean It
+02. Sun, Moon and Stars
+03. Supermodel
+04. Dollar Signs(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8377009D7CD68B87BD84259D5641A01DBC2F30A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207400   (780571) от 18.02.2018
 
 Giorgia - Oronero Live (2018) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
@@ -625,122 +741,6 @@ Trace Adkins (Трэйси Эдкинс) - The King's Gift: A Celtic Christmas C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E76524274F34BCEBF7CB0EE7748A0BE507BF557B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209181   (779517) от 25.02.2018
-
-Trace Adkins (Трэйси Эдкинс) - The Definitive Greatest Hits: Til The Last Shot's Fired (2010) Hump Head, 2×CD, Compilation [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэйси Эдкинс - американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. Ladies Love Country Boys 3:42
-02. Lonely Won't Leave Me Alone 3:06
-03. You're Gonna Miss This 3:44
-04. Muddy Water 3:54(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835169273A5E6EDC1E37A8897F90F4E1E440FC06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209290   (779452) от 25.02.2018
-
-ABBA - The Ultimate Collection (2004) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fernando [04:14]
-02. I Let the Music Speak [05:21]
-03. Chiquitita [05:27]
-04. Eagle [05:52](   Читать дальше...   )Жанр: PopПродолжительность: 05:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997A745DEDF1D7900EB51FE1DA2B30B79CC2EF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209322   (779403) от 26.02.2018
-
-Shenandoah Davis - Souvenirs (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779403.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Wings 03:18
-2. Supernatural Powers 04:02
-3. Seventeen 03:23
-4. Gold Coast 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485E74810AEF16F9A8CF4316BBDD87A4F02FAF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209627   (779287) от 27.02.2018
-
-The Creatures - 6 Albums, 1 Compilations (1982-1999) [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одни из пионеров  итало-диско. The Creatures - проект с элементами шоу, основанный двумя продюсерами и аранжировщиками Mario Flores, Maurizio Sangineto.Список альбомов:
-1982 - Expansion
-1983 - Believe In Yourself
-1985 - Illusion(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 05:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7276293F3FCE8A1D51A64370F227229B1ACB07
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1128497   (727551) от 25.04.2017
+
+Trance - The Loser Strikes Back (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderbird Rising
+02. I Want to Live
+03. Star Invaders
+04. Loser(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E66A2D9B037E31A000B488EE3F1866B9DAB1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022762   (727470) от 03.06.2016
 
 Volbeat - Boogie - Seal the Deal & Let's (2016) Deluxe Edition [MP3|320 кб/с] <Heavy Metal, Groove Metal>
@@ -716,35 +745,6 @@ All That Remains - Madness (2017) [MP3|320 Kbps] <Metalcore, Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B67C76883719B6D2DFB63DB18021A31CBEBCCA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024459   (718254) от 08.06.2016
-
-Severoth - Solitude (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718254.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Гроза / Storm
-2. Самітність / Solitude
-3. Дихання Осені I / Autumn's Breath I
-4. Останні Птахи / Last Birds(   Читать дальше...   )Жанр: Atmospheric Black Metal, AmbientПродолжительность: 01:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3B954D0A4B34560711E5981EB3A7E8D726D5A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

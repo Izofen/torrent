@@ -1,3 +1,32 @@
+###  Публикация: 1018055   (755820) от 20.05.2016
+
+VA - In Too Deep (Original Motion Picture Soundtrack) (1999) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Funk, Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NAS & Nature - In Too Deep (3:42)
+02. Method Man & Redman - Tear If Off (4:13)
+03. Ali Vegas - The Specialist (3:32)
+04. R Kelly - Use To Me Spending (5:03)(   Читать дальше...   )Жанр: Hip-Hop, Funk, Gangsta, Neo Soul, R'n'B, Soundtrack, Thug RapПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B310BA4518177D3D41C10B76D71E69EDAF0220AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018615   (755677) от 20.05.2016
 
 Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -716,35 +745,6 @@ Morgan Frazier - The Best (2015) [MP3|~245 кб/с (V0)] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54A9755822D028E2B94888D36CAC1E7863F0FF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216953   (746006) от 02.04.2018
-
-VA - Playing For Change - PFC 2 - Songs Around the World (2011) [MP3|320 Kbps] <Blues-Rock, Reggae, World Music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Little Birds
-02. Gimme Shelter
-03. La Tierra del Olvido
-04. Satchita(   Читать дальше...   )Жанр: Blues-Rock, Reggae, World MusicПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E47E5F85C3BAE2D5362B2AD90EB7C05A8F8082A
 ```
 
 https://mybot314.ru/tekegram_catalog/

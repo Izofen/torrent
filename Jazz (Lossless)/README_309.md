@@ -1,32 +1,3 @@
-###  Публикация: 1085716   (156987) от 22.12.2016
-
-Dalindeo - Kallio (2013) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Rockabilly>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ota linja 8! (3:21)
-02. Karhupuiston kuningatar (3:56)
-03. Pyoraily Hameentiella (3:02)
-04. Ilta Tokoinrannassa (3:09)(   Читать дальше...   )Жанр: Nu Jazz, RockabillyПродолжительность: 00: 41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37BA425ADE780475B4E28320E0CC01D955F6DA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085413   (156967) от 22.12.2016
 
 Hank Crawford & Jimmy McGriff - Crunch Time (1998), Fantasy[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -756,6 +727,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:487F5D7FC110807A477CF3CF8844DAABAFD0E27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085831   (154903) от 23.12.2016
+
+John Coltrane - Blue Train (1957) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blue Train [10:44]
+ 02.Moment's Notice [09:11]
+ 03.Locomotion [07:15]
+ 04.I'm Old Fashioned [07:59](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D24C9029E54402E48E1D3D303C6C33855AB068
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1701302   (116543) от 20.02.2024
+
+VA - Jazz - The Best - Standards and Rarities (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Bublé - Come Fly with Me (3:19)
+02. Maynard Ferguson - Sunny (3:50)
+03. Duke Ellington - Minnie the Moocher (2:51)
+04. John Coltrane - Summertime (11:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6336333A0515EB572B3F26BC35428C0E35A85E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701207   (116516) от 20.02.2024
 
 Albert Cummings - Strong (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -716,35 +745,6 @@ Marian McPartland - In Concert (1951, 1953) 1993, Savoy Jazz [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9232F39D65DBDB50537E404EFCB8568B6918BC3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701955   (116015) от 23.02.2024
-
-VA - Instrumental Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cooltrane Quartet - Dreams (4:08)
-02. Eve St. Jones - Everywhere (3:01)
-03. The Cooltrane Quartet - Just Like Heaven (3:35)
-04. Nova Bossa Ltd. - Go Your Own Way (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFC37591F97067380195780348518261A836246
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,90 +1,3 @@
-###  Публикация: 1722742   (109639) от 13.05.2024
-
-Hot Water Music - VOWS (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Punk Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Menace [00:03:25]
-02. Searching For Light [00:02:56]
-03. Burn Forever [00:03:00]
-04. After The Impossible [00:04:10](   Читать дальше...   )Жанр: Alt. Rock, Punk Rock, Pop PunkПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ECDDDA8D30FE1C0F30B020C1B13BDDFFD0DA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722730   (109638) от 13.05.2024
-
-Fivebyfive - Phuck Around Phind Out (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Alternative Metal, Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exordium (feat. Clayton Theodore Rex) [00:00:36]
-02. The Konami Kid [00:03:07]
-03. Kraken Down [00:03:23]
-04. The Salty Spitoon [00:00:25](   Читать дальше...   )Жанр: Rapcore, Alternative Metal, Hip-HopПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60730D357733CB7EB35740E44FBB8DFA2832C276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722711   (109635) от 13.05.2024
-
-Sublime with Rome - Sublime with Rome (2024) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool & Collected (feat. Slightly Stoopid)
-02. Tangerine Skies
-03. Battle Scar
-04. All I Need(   Читать дальше...   )Жанр: Reggae, Pop RockПродолжительность: 00:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1C4C0108E620B4AE773EACB0FDF29FEBC0DCFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722716   (109634) от 13.05.2024
 
 Rainbow Kitten Surprise - Love Hate Music Box (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -745,6 +658,93 @@ James - 1999 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F82ECA89649E3319D4E325B0EDDAA31944E9091A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737965   (106424) от 20.07.2024
+
+OneRepublic - Artificial Paradise (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artificial Paradise
+02. Hurt
+03. Sink Or Swim
+04. Last Holiday(   Читать дальше...   )Жанр: Alternative Pop, Pop RockПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1328047DF4BACDCEFD4A798871C2B0452FDC9B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739304   (106080) от 27.07.2024
+
+Crawlers - The Mess We Seem To Make (2024) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meaningless Sex (3:44)
+02. Kiss Me (3:35)
+03. Hit It Again (3:56)
+04. Better If I Just Pretend (2:58)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F879A5F33FBA0765AEED342320BA59D8B9F524A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739900   (105917) от 31.07.2024
+
+James - 2001 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Getting Away With It (All Messed Up) [00:04:10]
+02. Make It Alright [00:04:08]
+03. So Swell (Ambient Version) [00:03:26]
+04. Stand [00:03:33](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5B2EE7C633EA6EE4438937CCAF9E2A112A11F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1741537   (105623) от 07.08.2024
+
+Jamie Wood & Nutty Brown - Who's Shuckin Who (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Medicine Blues (4:33)
+02. Keep Your Nose Out My Business (3:40)
+03. Riding With My Baby (2:28)
+04. Shoe Shine Shuffle (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680F839887FAA32C7298BAD509B8730DE18E00A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741557   (105622) от 07.08.2024
 
 Tony Ivan O'hara - Harder Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -716,35 +745,6 @@ Claus Ogerman - Featuring Michael Brecker (1991) GRP [APE|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A2E8496C463E6E418331CC4715A9BB51C85C1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744044   (105311) от 19.08.2024
-
-Charlie Mariano - Boston All Stars (1951 - 1953) 1990, Original Jazz Classics [FLAC|Lossless|image + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boston Uncommon (master A) [2:10]
-02. Boston Uncommon (master B) [2:09]
-03. The Wizard (master A) [2:35]
-04. The Wizard (master B) [2:32](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAB052A538CF9BB1EE1FFF203B3DB259BF693DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

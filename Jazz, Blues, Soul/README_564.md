@@ -1,3 +1,32 @@
+###  Публикация: 1746877   (104800) от 03.09.2024
+
+Stan Getz - In Stockholm (1955) 2008, Verve [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indiana [4:54]
+02. Without A Song [4:42]
+03. I Don't Stand A Ghost Of A Chance With You [5:53]
+04. I Can't Believe That You're In Love With Me [5:22](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CFBD96CC86BE14D2D846F702CEBD70F8DE06A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746625   (104797) от 03.09.2024
 
 Stan Getz - Blue Skies (1982) 1995, Concord Jazz [FLAC|Lossless|image + .cue] <Post Bop, Mainstream Jazz, Cool>
@@ -716,35 +745,6 @@ Jim Hall And Friends - Live At Town Hall, Vol. 2 (1990) MusicMasters [APE|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E15DD7A3BC1039A9E73CA1D750A0703EB9EA9AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749109   (104521) от 13.09.2024
-
-VA - Soulful Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jan Henlich - Yellow Moon (4:21)
-02. Kim Levien - All My Love (4:10)
-03. Robin Flam - When Eyes Meet (4:10)
-04. Don Leviev - Black and Blue (3:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E524DEFEF3F8BE9CE56821E216887A56814D1CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

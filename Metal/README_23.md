@@ -1,3 +1,32 @@
+###  Публикация: 1367732   (914256) от 17.03.2020
+
+Ethir Anduin - Pathway To Eternity. The Agony (2020) [MP3|320 Kbps] <Black, Doom Metal, Hardcore, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awareness Of The Frailty Of Being
+02. Pandemonium
+03. The Invisible Veil Of The Cold Silence
+04. The Agony(   Читать дальше...   )Жанр: Black, Doom Metal, Hardcore, Female VocalПродолжительность: 01:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA44CD483C3A1B27424DA7AA900AC1A395ADF248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368007   (914255) от 17.03.2020
 
 Kreator - London Apocalypticon - Live at the Roundhouse (2020) 3CD [MP3|320 Kbps] <Thrash Metal>
@@ -717,35 +746,6 @@ Neorhythm - 3 CDr Альбома (2018-2020) [MP3|320 Kbps] <Groove, Death Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDEE2E4C67913E6D6E9B24C0B19848937C8F77B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491956   (907385) от 27.08.2021
-
-Dark Arena - Worlds of Horror (2021) [MP3|320 Kbps] <Progressive, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Worlds of Horror (05:33)
- 02 - Dark Arena (03:54)
- 03 - Annunaki Arise (05:12)
- 04 - Damnation Within (06:15)(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4FE40466BF19BF35F90D30D6F5D140546BE0542
 ```
 
 https://mybot314.ru/tekegram_catalog/

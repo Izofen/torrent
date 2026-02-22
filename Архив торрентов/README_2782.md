@@ -1,3 +1,30 @@
+###  Публикация: 1548197   (600812) от 01.05.2022
+
+SiSoftware Sandra Lite 20/21 R12 (версия 31.83) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600812.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiSoftware Sandra Lite - бесплатная версия многофункциональной программы для анализа, диагностики и тестирования компьютера и его компонентов. Программа позволяет получить расширенную информацию о системной плате, процессоре, комплектующих и периферийных устройствах, а также выполнять тесты производительности и диагностики.
+Разнообразные тесты помогут узнать вычислительные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABBDC4FC64F1D8FF82822673628501BEA0561B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548179   (600808) от 01.05.2022
 
 Cyberduck 8.3.3 Build 37544 [Multi/Ru]
@@ -667,35 +694,6 @@ Dimension & Raphaella - Pull Me Under / Maschinen (2015) [MP3|320 кб/с]<Drum 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B513A7104AA1525A9891F3E2CFDCD38F38A4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913889   (600430) от 01.07.2015
-
-Acting Damage - Hell From Earth LP (2015) [MP3|320 кб/с]<Dubstep, Drum'n'Bass, JumpUp>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pagan Ritual 1:56
-02. Into The Jungle Part 1 4:44
-03. Into The Jungle Part 2 5:36
-04. Demons & Angels 4:48(   Читать дальше...   )Жанр: Dubstep, Drum'n'Bass, JumpUpПродолжительность: 01:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2010E845D3C394504BE24343D436BFDB08EE28A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

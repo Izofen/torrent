@@ -1,3 +1,176 @@
+###  Публикация: 1697481   (118923) от 06.02.2024
+
+Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118923.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mareridt
+A2 Maneblot
+A3 The Serpent
+A4 Crown(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697478   (118921) от 06.02.2024
+
+Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brutus - норвежская хард-рок-группа из Осло, Норвегия, образованная в 2007 году. У Brutus тяжелый грув, основанный на блюз-ориентированном рифф-роке 1970-х годов, в духе Black Sabbath, Grand Funk Railroad, Blue Cheer, Pentagram и других.2010 - Brutus
+2013 - Behind The Mountains
+2016 - Wandering BlindЖанр: Hard Rock, Stoner RockПродолжительность: 02:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222B5D0E09D75613B3C530324777BEF7B6A97287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697367   (118905) от 06.02.2024
+
+Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118905.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Skøgen Skulle Dø
+A2 Hævnen
+A3 Onde Børn
+A4 Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697414   (118903) от 06.02.2024
+
+Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118903.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vølvens Spådom
+A2 Jeg Er Guden, I Er Tjenerne
+A3 Skøgen Skulle Dø
+A4 Byssan Lull(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF39500BFC0B3C0B038E5EE2892A261311FD103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697486   (118898) от 06.02.2024
+
+Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118898.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ella
+A2 Fager Som En Ros
+A3 Leaves Of Yggdrasil
+A4 Ramund(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED376654036B0920377373ACCEAAC855CCD647C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698572   (118414) от 09.02.2024
+
+Lacuna Coil - In a Reverie (1999) Reissue, 2019, Century Media [FLAC|24/192|image + .cue|Vinyl-Rip] <Century Media – 19075971571>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118414.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Circle
+A2 - Stately Lover
+A3 - Honeymoon Suite
+A4 - My Wings(   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883767E7AE364641ECAA4A80DDE31931CC2B8A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698554   (118409) от 09.02.2024
 
 XentriX - Studio Albums (6 releases) (1989-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
@@ -569,180 +742,6 @@ Unheilig - Frohes Fest (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E051C9F8E01C30629A8BB0A899F681DD9B7AFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700800   (116847) от 18.02.2024
-
-Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Filmrolle
-02. Zauberer
-03. Hört Mein Wort
-04. Willst Du Mich(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934A76C055C325057C9FB8071FCD2F2514063C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700860   (116830) от 18.02.2024
-
-Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Uhrwerk
-02. Luftschiff
-03. Ich Will Alles
-04. Goldene Zeiten(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE1702BD282D85C1C19285E9DC846C16F386EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700717   (116829) от 18.02.2024
-
-Unheilig - Das 2. Gebot (2003) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eva
-02. Maschine
-03. Gib Mir Mehr
-04. Sternenschiff(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0259EA072B97EE5E6B0AE74F96CFFDF13AD52C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701220   (116527) от 20.02.2024
-
-Лариса Мондрус - Поет Лариса Мондрус (1970) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116527.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Синий Лён
-(Р. Паулс – А. Круклис, перевод А. Дмоховский)
-A2 Озёрный Край
-(Р. Паулс - З. Пурвс, перевод А. Дмоховский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B779520909E7A97AEEB60580E800121343F35DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701224   (116500) от 20.02.2024
-
-Unheilig - Grosse Freiheit (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Meer
-02. Seenot
-03. Für Immer
-04. Geboren Um Zu Leben(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6F193CF087F09D28236E094D5CB202106DB4FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701200   (116499) от 20.02.2024
-
-Unheilig - Puppenspiel (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vorhang Auf
-02. Puppenspieler
-03. Spiegelbild
-04. Dein Clown(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A83BC102CBADA30FB2BE3C0421948E5DD1F0F58
 ```
 
 https://mybot314.ru/tekegram_catalog/

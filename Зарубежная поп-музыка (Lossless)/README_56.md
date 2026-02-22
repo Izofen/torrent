@@ -1,3 +1,32 @@
+###  Публикация: 1319189   (486819) от 10.08.2019
+
+Stella Donnelly ‎ - Beware Of The Dogs (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Man (03:33)
+02. Mosquito (03:11)
+03. Season’s Greetings (02:49)
+04. Allergies (02:55)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8745631B30BF2DE7C97FD5B3E756F98F426E2030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545145   (486418) от 09.09.2012
 
 VA - Fantastic 80's The Complete Collection (2008) 5CD BoxSet [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
@@ -726,41 +755,6 @@ Eros Ramazzotti - Ali E Radici (Limited Edition) (2009) (Limited Edition) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43642B231EA6F138C8DBA356AA2F5375BBF0654D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546749   (475757) от 14.09.2012
-
-Pink (P!nk) - The Truth About Love (2012) [FLAC|Lossless]<Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are We All We Are
- 02. Blow Me (One Last Kiss)
- 03. Try
- 04. Just Give Me A Reason (ft. Nate Ruess)
- 05. True Love (ft. Lily Rose Cooper‎)
- 06. How Come You're Not Here
- 07. Slut Like You
- 08. The Truth About Love
- 09. Beam Me Up
- 10. Walk Of Shame(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

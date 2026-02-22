@@ -1,3 +1,61 @@
+###  Публикация: 1328902   (359270) от 02.10.2019
+
+Brickman - Collection 6 Releases (2010-2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep Techno, Dub Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seashore (6:02)
+02. Fractal Vision (6:27)
+03. Red Lake District (7:23)
+04. Meditation (7:29)(   Читать дальше...   )Жанр: Electronic, Deep Techno, Dub Techno, Minimal |Продолжительность: 00:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44296C057216B5A1E83DC8AB1B800CCAF8F8C5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256038   (359032) от 20.10.2018
+
+Dirty Vegas - Photograph (2015) D:vision Records [FLAC|Lossless|WEB-DL|tracks] <House, Pop, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/14. Let the Night (3:28)
+ 02/14. Setting Sun (3:30)
+ 03/14. Do What You Feel (4:01)
+ 04/14. Photograph (4:44)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438C132FAE334A4807B7C6CDA2C8BA022CC1FDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417373   (358066) от 20.10.2020
 
 Ulro - The Land Of (2020) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
@@ -680,64 +738,6 @@ Tinlicker - This Is Not Our Universe (2019) [FLAC|Lossless|WEB|tracks] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A048C6E78562A207D7EDCE01986B0CD4675FDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074737   (335932) от 20.11.2016
-
-Orphx - Pitch Black Mirror (2016) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unknowing (05:48)
-02. Sever The Signal (06:37)
-03. Blood In The Streets (05:55)
-04. Molten Heart (06:50)(   Читать дальше...   )Жанр: Techno, IndustrialПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D82FF04C66952D8A731D7F1CFA8D14D8A65B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420098   (335814) от 30.10.2020
-
-DJ Sven & Marc Hartman - The Revival (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Is the Music (5:23)
-02. Rhythm in My Immy Bo Home (6:08)
-03. Back in the Days (4:59)
-04. Riding in the Disco Train (5:27)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0567CFAF913A027FD9147A2C9FDA0E6733197D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

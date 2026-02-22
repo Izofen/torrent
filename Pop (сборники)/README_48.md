@@ -1,3 +1,32 @@
+###  Публикация: 1136533   (673005) от 23.05.2017
+
+VA - Топовая весенняя сотня выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_673005.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ejen & Lunna - Гармония 3:10
+002. 2 Маши - Не Буди 4:03
+003. Татьяна Буланова & Михаил Боярский - Единственный Дом 4:01
+004. Hann - На Больничном 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEABD28CC02E444D3FD3669359DBCF42D2C4838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136526   (672761) от 23.05.2017
 
 VA - Дискотека Хит FM. Любимая музыка выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
@@ -734,35 +763,6 @@ VA - Русская Дискотека ХХ Века - 14 (2010) [MP3|320 Kbps]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA99E42E9A7DF6898BB4A966CA4D5726AE791752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030943   (670324) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 45 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barcode Brothers - Dooh Dooh ( Radio Edit 1999 )
-02. Angie Gold - Eat You Up ( Classic Mix 1995 )
-03. Barbarella - Please, Please Me ( Don't Make Me Blue ) ( 1991 )
-04. Vocal Control - Cheri, Cheri Lady ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E48CF800FB1943E489605A1EFE1A60C98085115
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1466921   (1018091) от 02.05.2021
+
+Threestyle - Perfect Combination (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steppin´up (4:07)
+02. Keep It Simple (4:23)
+03. Giant (4:38)
+04. Lovin on Next to Nothin (4:10)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB1C88870E4162AE803210D85715B997D329899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467232   (1017962) от 03.05.2021
 
 Martial Solal - Solo Piano: Unreleased 1966 Los Angeles Sessions, Vol. 1 (2017) Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D0F2F069A8C7F21B35D0F278BC416F747A537D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470939   (1015517) от 18.05.2021
-
-Carla Van Blake - Land of Enchantment (2018) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The First Time (3:59)
-02. Land of Enchantment (7:51)
-03. Falling in Love (5:03)
-04. Your Lovely Skin (5:09)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2884E1FF1D47582B64E7BE6E2FB3E4B62AC116DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1136007   (677398) от 21.05.2017
+
+Susie Ibarra - Songbird Suite (2002) Tzadik [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azul [04:16]
+02. Songbird Suite [08:41]
+03. Trance No. 1 [05:32]
+04. Illumination [04:04](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F29D58C266AA458DBDB5FEEA03620C0D8E5C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135996   (677394) от 21.05.2017
+
+Simon Rattle - Classic Ellington (1999) 2000, EMI [FLAC|Lossless|tracks + .cue] <Swing, Modern Creative, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [09:10]
+02. You're the One [02:59]
+03. Sophisticated Lady [05:15]
+04. Harlem [14:13](   Читать дальше...   )Жанр: Swing, Modern Creative, Third StreamПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6E5FEFF95BB09F3B74621D83F095C7EF1ABD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135851   (677392) от 21.05.2017
+
+Duke Ellington - The Essential Duke Ellington (1929 - 1960) 2CD, 2005, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677392.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. East St. Louis Toodle-Oo [03:07]
+02. Black and Tan Fantasy [03:27]
+03. Take It Easy [02:38](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BAC747977A23F11744D21A69935342DC232B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135839   (677299) от 21.05.2017
 
 Duke Ellington - Love You Madly (1970) 2002, Collectables [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -676,99 +763,6 @@ Tony Bennett & Dave Brubeck - The White House Sessions, Live 1962 (2013) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF4F75E80A54978B6A1372B05276E1DE8CD50268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509289   (675310) от 12.06.2012
-
-The Bill Holman Band - Brilliant Corners: The Music of Thelonious Monk (1997) [FLAC|Lossless]<Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight, No Chaser
-02. Bemsha Swing
-03. Thelonious
-04. 'Round Midnight
-05. Bye-Ya
-06. Misterioso
-07. Friday the 13th
-08. Rhythm-A-Ning
-09. Ruby, My Dear
-10. Brilliant Corners1997Жанр: Hard Bop, Post-BopПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536518   (675127) от 12.03.2022
-
-Papik - Cocktail Mina Vol.2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Soul, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Se Telefonando (feat. Alessandro Pitoni)
-02. Acqua e Sale (feat. Frankie Lovecchio, Claudia Arvati)
-03. Volami Nel Cuore (feat. Stefy Gamboni)
-04. L'Amore Forse (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Nu Jazz, Soul, PopПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34745883B23F599242D188204AABB9F79C4EF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136409   (675075) от 22.05.2017
-
-Mads Vinding Trio - The Kingdom (Where Nobody Dies) (1998) Stunt Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alba Prima [06:11]
-02. Lover [04:13]
-03. The Kongdom (Where Nobody Dies) [07:19]
-04. Someday My Prince Will Come [07:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933B38785839A50F4771A8E0D21C3D354A3577D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

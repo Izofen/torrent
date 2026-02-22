@@ -1,3 +1,32 @@
+###  Публикация: 1247419   (452861) от 15.09.2018
+
+VA - Ellie Lawson: The Best Of (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Raz Nitzan & Ellie Lawson - Beyond Time (Original Mix)
+02.Frainbreeze & Ellie Lawson - I Pray (Original Mix)
+03.Davey Asprey & Ellie Lawson - Bridge The Divide (Radio Edit)
+04.Alan Morris & Ellie Lawson - Find Myself in Losing You (Radio Edit)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10C25D29C823A1E4A03E4821264011F98866055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569096   (451647) от 13.08.2022
 
 DJ Dado - The Album (1996) [OGG|485 Kbps] <House, Trance>
@@ -716,35 +745,6 @@ VA - Future Trance 85 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,House,>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89BD28B677F99B8A244FABD1A3776653FDE00FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165767   (430611) от 14.09.2017
-
-Paul Oakenfold - Generations - Three Decades Of Dance (2017) 3 CD[Box set] [MP3|320 Kbps]<Trance,House,Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sueno Latuni, Manuel Goettsching & E2E4 – Sueno Latino (Paradise Version) (05:00)
-02. M/A/R/R/S – Pump Up The Volume (02:03)
-03. Steve "Silk" Hurley – Jack Your Body (Club Your Body) (03:52)
-04. Joe Smooth – Promised Land (02:18)(   Читать дальше...   )Жанр: Trance,House,ElectronicПродолжительность: 03:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6FA3A1747AF8308C67767A36F022E2AEB351749
 ```
 
 https://mybot314.ru/tekegram_catalog/

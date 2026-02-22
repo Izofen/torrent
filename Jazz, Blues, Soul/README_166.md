@@ -1,3 +1,90 @@
+###  Публикация: 1204728   (784405) от 07.02.2018
+
+Gene Krupa And His Orchestra - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Old Kentucky Home [02:41]
+02. Take Your Love [02:43]
+03. I Like To Recognize The Tune [02:57]
+04. All Dressed Up (Spic And Spanish) [02:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB1D8EA63F590C3D008F701CA8BDEB7223CDA54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204559   (784399) от 07.02.2018
+
+The Modern Jazz Quartet - Concert In Japan, Vol.2 (1966) 2014, Warner [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ralph's New Blues [06:48]
+02. I Love You Porgy [04:56]
+03. Pyramid [07:20]
+04. Home [04:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C645435FEFEA316E8F4D93F99B14176F6D791D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204651   (784395) от 07.02.2018
+
+Big Boy Bloater & The Limits - Big Boy Bloater And The Limits (2011) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Ugly Way Of Thinking 3:08
+02. I Heard Those Voices Again 3:11
+03. Fumble Fisted Fool 3:19
+04. Sweet & Brown 2:34(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A54F926C4E7BDE0CBA90B1A4049D0675B5067F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204658   (784393) от 07.02.2018
 
 Big Boy Bloater - Loopy (2014) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
@@ -659,93 +746,6 @@ Eddie Jefferson - Letters From Home (1962) 1987, Original Jazz Classics [APE|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8B94CD9452E14FAD71A05A3CC2D9DFB5DB16AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205499   (783548) от 10.02.2018
-
-The Three Sounds - Moods (1960) 1987, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love for Sale [06:38]
-02. Things Ain't What They Used To Be [08:55]
-03. On Green Dolphin Street [05:37]
-04. Loose Walk [04:56](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AA43B50F40DA44EB9EEEDAC86A9504DEE1BE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205581   (783525) от 10.02.2018
-
-Blindstone - Live In Denmark (2015) Grooveyard Records [MP3|320 Kbps] <Blues Rock, Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Freedom's Calling 3:12
-02. Temple Trippin' 3:38
-03. Rock Your Mojo 5:03
-04. Land Of 1000 Nights 6:34(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9913699ABECA7A90EAD1122569EB8F8CE0C595AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205618   (783516) от 10.02.2018
-
-Blindstone - The Seventh Cycle Of Eternity (2016) Grooveyard Records [MP3|320 Kbps] <Blues Rock, Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blindstone - Датское Трио , сформированно в 2002 (Thisted, Дания). Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Джеспкра и барабанщика Бенджамина Хова. Современно и, главное, у этих датчан присутствует трепетное отношение к традициям. Удачный синтез тяжелого блюз рока cо стоунером. Не зря на них обратила внимание студия звукозаписи Grooveyard, специализирующаяся (   Читать дальше...   )01. Dead Man's Blues 4:53
-02. Rolling 4:14
-03. Rebel In Black 4:48
-04. On My Way 4:29(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B342D212FE6696B1AECD63688B5F82D85E52878
 ```
 
 https://mybot314.ru/tekegram_catalog/

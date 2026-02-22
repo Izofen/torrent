@@ -1,3 +1,32 @@
+###  Публикация: 1536954   (669323) от 15.03.2022
+
+Ork Bastards - Warmongers Of The Gloomy Lands (2019) [FLAC|Lossless|image + .cue] <Speed Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Baptized By Smoke And Fire
+03. Green People Of Barsoom
+04. Exile King(   Читать дальше...   )Жанр: Speed Metal, Black MetalПродолжительность: 00:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0B85E6F284403A356DD637A77704920AB32902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291656   (668800) от 25.03.2019
 
 Петля Нестерова - Кто здесь (1989) Maschina Records, 2019 [FLAC|lossless|image + .cue] <Post-Punk>
@@ -740,35 +769,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907114   (639181) от 11.06.2015
-
-Ария - Star-Hit. Лучшее. Звёздная коллекция (2013) [FLAC|image+.cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночь короче дня
-02. Вампир
-03. Небо тебя найдет
-04. Бал у князя тьмы(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B777535DFE496B4BEC6B1344BCE989F372F71BFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1400132   (718864) от 05.08.2020
+
+Groove Da Praia - The Groove Girls (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Electro>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cars and Girls (4:47)
+02. Groove Da Praia, Shelly Sony - Latch (4:20)
+03. Anybody Seen My Baby? (3:51)
+04. Sua Cara (Reggae Version) (3:28)(   Читать дальше...   )Жанр: Reggae, ElectroПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE81CE273124045DC1DB103B2D60E37FE2AC7435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400130   (718755) от 05.08.2020
+
+Groove Da Praia - Transformations (2016) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Electro, Chillout, Trip-Hop, Lounge>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Final Countdown (3:52)
+02. Memories (3:05)
+03. Todas As Coisas (3:22)
+04. Toy Soldiers (4:57)(   Читать дальше...   )Жанр: Reggae, Electro, Chillout, Trip-Hop, LoungeПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636AA12D006919C632659CCAEC5FFA4C4C887775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400838   (714886) от 07.08.2020
 
 The Gaslamp Killer - Heart Math (2020) [MP3|320 Kbps] <Abstract, Hip-Hop, Instrumental>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:254EB8A27E01F81DB9680C0360D0FC1805D5C5FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291270   (682958) от 14.05.2015
-
-Rap Прорыв - Выпуски 1-8 (2000-2006) [MP3|320 kbps]<Рэп, Хип-Хоп>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Budz (Москва) - Деньги
-02. Переходный Возраст (С.-Петербург) - Темы Для Разговоров (Feat. DJ Птиц, Т-42 & La Cuuda)
-03. Злой Дух (Казань) - Ангел
-04. EK. Playaz (Екатеринбург) - Кома(   Читать дальше...   )Жанр: Рэп, Хип-ХопПродолжительность: 09:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CD99D8BE8CE060D639CB647D37659B5EFA1A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222796   (682606) от 30.04.2018
-
-Tammy Rivera - Fate (2018) [MP3|320 Kbps] <RnB, Soul>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Did This
-02. Only One
-03. Do Me Like That
-04. One Step Away(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 00:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFB03EDF80B7B17A490521E46916AE7BA2327DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 603545   (996989) от 15.01.2013
+
+VA-Зимний хит-парад звёзд Российской попмузыки (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996989.jpg" />
+</div>
+
+
+###  Подробнее
+
+101. A'Studio - Я искала тебя
+102. Юрий Шатунов - А лето цвета
+103. МакSим - Это же я
+104. Влад Дарвин - Сохраню Любовь
+105. Денис Клявер - Твои руки
+106. Николай Трубач - Отшумела
+107. Фабрика - Фильмы о любви
+108. Премьер-Министр - Любимая
+109. 140 ударов в минуту - Мне с тобою Тикитак
+110. Елка - Около тебя(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA244093076C9234D1AE7F4A65E5C48EF1EDB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603839   (996765) от 16.01.2013
 
 VA-Шевели попой (2013) [MP3|128 кб/с]<Pop>
@@ -854,41 +889,6 @@ VA-Зарубежный Союз Новинок (2013) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A69ED9227544234FB2C5ADF9573FE5234E3F697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610934   (989227) от 30.01.2013
-
-VA - Дискотека : Зимний Mix Отрыв 50/50 (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 DJ Smash & DJ Vengerov - Только Вперед (DJ Noiz & DJ Maxtal Radio Remix)
-02 Basto & Yves V - Cloud Breaker (Basto mix)
-03 Virone - Расстояние (Dj Glazunov remix)
-04 Metrik - Engine Room (original mix)
-05 Дискотека Авария - Ноги-Ноги (DJ Nejtrino & DJ Stranger Remix)
-06 Max Graham feat. Jeza - Still There's You (Tomas Heredia remix)
-07 Чи-Ли - Кошка (Sergei Karpov Minimal Pop remix)
-08 Will.I.Am feat. Jennifer Lopez - T.h.e. (DJ Rich-Art & DJ Kirillich remix)
-09 Alex Akimov & Ivan Flash feat. Dana K - Dance (Original Mix)
-10 Badiizrael - Insomnia (original mix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7930278525E9595B49EEBE9FAEC50D3634FC50A
 ```
 
 https://mybot314.ru/tekegram_catalog/

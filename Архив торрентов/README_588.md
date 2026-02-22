@@ -1,3 +1,32 @@
+###  Публикация: 742871   (976964) от 07.01.2014
+
+Kevin Kern - Beyond the Sundial (1997) [FLAC|Lossless|image + .cue] <New Age, Piano>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Sundial (4:23)
+02. Threads of Light (3:11)
+03. Where Paths Meet (5:15)
+04. A Flurry of Golden Leaves (3:33)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23DFC6186F7E1EDE63AD54ECF5DF28DA41BA336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742714   (976963) от 07.01.2014
 
 Yes - Close To The Edge (1972) Definitive Edition /2013, Panegyric/ [FLAC|image + .cue]<Progressive Rock, Symphonic Rock, Art Rock>
@@ -719,32 +748,6 @@ Screamer - Phoenix (2013) [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAB60C7B263E0A99D2CB1672E83E550A872EC583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616200   (976900) от 09.02.2013
-
-Журнал | Атмосфера №2 [февраль 2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женский журнал об искусстве жить, о моде, отдыхе, путешествиях, о знаменитых людях, которые щедро делятся с читателями своими сокровенными тайнами и секретами. В каждом номере - неожиданные перевоплощения, эксклюзивные съемки, свежие идеи дизайнеров, новинки косметики.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D4EE9BA2398B51BC51CA5347515D5A69006DCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

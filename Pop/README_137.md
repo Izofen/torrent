@@ -1,3 +1,119 @@
+###  Публикация: 1032774   (643911) от 08.07.2016
+
+G.G. Tonet - Why (1980) [MP3|320 Kbps] <Electronic, Experimental, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1947 (5:12)
+02. Dedicated To Norbert Wiener (5:35)
+03. Marketing (5:02)
+04. Total Time (3:52)(   Читать дальше...   )Жанр: Electronic, Experimental, DiscoПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03B26CD68D6B546FA9569023AD4784C0D1B595D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032508   (643691) от 08.07.2016
+
+VA - Disco 2.0 - Fever's Risin' Again (2016) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Imperatrice - La Lune (3:13)
+02. Bon Voyage Organisation - Shenzhen V (5:57)
+03. Marvin & Guy - Makin' Love (9:13)
+04. Monika - Secret In The Dark (The Juan MacLean edit) (6:28)(   Читать дальше...   )Производство: WeWantSoundsЖанр: Disco, Nu-DiscoПродолжительность: 01:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DC5FD5970380CEC43EDFCB0970AE55A303AD47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032649   (643685) от 08.07.2016
+
+Алла Горбачёва - Я приду! (1997) [FLAC|Lossless|image + .cue] <pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Где-то рядом (4:10)
+02. Прощай (4:04)
+03. Напиши (3:59)
+04. Зовущая любовь (3:55)(   Читать дальше...   )Жанр: popПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445578D4E1C3C4AC229B100950F7BEC508E4B84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906630   (643570) от 09.06.2015
+
+Tove Styrke - Kiddo (2015) [OGG|489-534 кб/с]<Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Got No... (03:52)
+02. Snaren (03:01)
+03. Ego (03:48)
+04. Samurai Boy (03:27)(   Читать дальше...   )Жанр: ElectropopПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056DBC37F83459CFCF7F3C2C60E893BD341DB62E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032415   (643557) от 08.07.2016
 
 Люди встречаются - Люди встречаются (2016) [MP3|320 Kbps] <Pop, Retro>
@@ -635,122 +751,6 @@ QED - Animal Magic (1984) [OGG|475-526 кб/с]<Electronic, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C3EE94D1B5FC4FE0CF74BEC79E8DA64DC534D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905800   (641698) от 10.06.2015
-
-Ульяна КаракоZ - New Angels (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Angels
- 02. Каждый по себе
- 03. Стефаниада
- 04. Русалка(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B7196C858F2246EE305EA03CA6A3381677887B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906303   (641623) от 10.06.2015
-
-The Supremes - At The Copa: Expanded Edition (2012) 2CD [FLAC|Lossless]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641623.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-ORIGINAL STEREO LP (1965)
-1. Opening Introduction
-2. Put On A Happy Face(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 02:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56DFA77C95BBBED1FCAC309C38D00816C5E7CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907016   (641619) от 10.06.2015
-
-Юлия Ковальчук - JK2015 (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В дым...
-02. Стать чужими
-03. В заметки
-04. Шоколад(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F2FB87FE8B018F19F4A4300CA3706A2D3D13BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905846   (641520) от 10.06.2015
-
-Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delilah
-02. Help Yourself
-03. She's A Lady
-04. What's New Pussycat(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F6BAAF62C249BD93E450365DE54E004D516E44
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1500940   (839826) от 07.10.2021
+
+Chris Rea - Blues Guitars VIII - Gospel Soul Blues & Motown (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Love (4:12)
+02. Break Another Piece of My Heart (4:19)
+03. Ball and Chain (4:55)
+04. Gospel Trail (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24C4505611E17EAC450EFACA257B9E96FE50C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379553   (839637) от 29.04.2020
+
+Spike Robinson & Al Cohn - Once In A Wild (1987) AAD [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sippin' At Bells [6:17]
+02. Easy Living / These Foolish Things [10:27]
+03. Sweet's Blues [7:22]
+04. Rustic Hop [5:35](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401594EDA7CF6F680B21E5A152AE78DFB4F07E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379504   (839635) от 29.04.2020
+
+Red Callender - Four Classic Albums 1942 - 1958 (2016) 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839635.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Speak Low [7:30]
+02. Nice Day [4:17]
+03. In A Sentimental Mood [3:31](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8560EDF332D9F439336C37D72EC32F9F9521E1C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500782   (839590) от 07.10.2021
 
 Izzo Blues Coalition - Take It or Leave It (2021) [MP3|320 Kbps] <Blues Rock>
@@ -670,96 +757,6 @@ VA - 100 Hits: 50s (2009) 5CD, Box Set [FLAC|Lossless]<Soul, rock'n'roll, funk>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310263   (837707) от 18.03.2011
-
-The Gil Evans Orchestra - Out Of The Cool (2007) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Nevada (15:34)
-02. Where Flamingos Fly (5:12)
-03. Bilbao Song (4:13)
-04. Stratusphunk (8:05)
-05. Sunken Treasure (4:19)
-06. Sister Sadie (6:57)Жанр: Jazz, Progressive Big Band, Cool, Post-Bop, Modern Big BandПродолжительность: 00:44:19
-                
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379632   (837676) от 30.04.2020
-
-Andrea Motis & Joan Chamorro Group featuring Scott Hamilton - Live At Jamboree-Barcelona (2013) Swit Records [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exactly Like You [4:24]
-02. Meditacao [6:45]
-03. I Fall in Love Too Easily [6:36]
-04. Sun Showers [4:33](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F437112D6BEEA5CBE1D2C285218C39024C4A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879379   (837351) от 18.03.2015
-
-Ray Charles - Standards (1998) [APE|Lossless]<Blues, R&B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Had To Be You [02:45]
-02. Am I Blue [03:38]
-03. Come Rain Or Come Shine [03:42]
-04. Georgia On My Mind [03:40](   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 01:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF7EE1348AA5B6202E9BA634D2039D8CFC55602
 ```
 
 https://mybot314.ru/tekegram_catalog/

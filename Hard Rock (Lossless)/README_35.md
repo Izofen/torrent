@@ -1,3 +1,32 @@
+###  Публикация: 1401496   (709545) от 10.08.2020
+
+Rhino Bucket - The Hardest Town (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hardest Town (04:01)
+02. Justified (04:27)
+03. Know My Name (03:44)
+04. Dog Don't Bite (05:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744782C8941C1F8BAF0CA95B76457D733A2B2293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401298   (709400) от 10.08.2020
 
 FM - Atomic Generation (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -720,35 +749,6 @@ City Of Lights - новый мелодик-хард-рок проект брит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0C5DA918E84A7E3B979C1F0F7252F8B2D5B194B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289137   (686637) от 16.03.2019
-
-Tesla - Shock (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Won't Take Me Alive (03:34)
-02. Taste Like (03:12)
-03. We Can Rule The World (04:15)
-04. Shock (03:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D731D94E14FD8C4BA85C342E2FAB475A0A9804
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1682302   (131487) от 07.12.2023
+
+Steve Shanahan - Blue Ranchero (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Train Kept a-Rollin' (2:34)
+02. Crazy Mixed up World (2:24)
+03. Driftin' Blues (4:23)
+04. Dangerous Mood (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7685C7712480CCE7351F5C2F8AEB06B2C0CFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596157   (131474) от 30.12.2012
 
 Miss Li - Tangerine Dream (2012) [FLAC|Lossless]<Indie Pop/Blues/Jazz>
@@ -780,35 +809,6 @@ Amy Winehouse - Stronger Than Me (2003) Remastered, 2023, UMC [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25DD276A32B0E1C71F648B5FF78CEFE1ED80F233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682929   (129755) от 09.12.2023
-
-Buddy Rich - Milestones Of A Jazz Legend (1946 - 1962) 10CD, 2020, The Intense Media [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lulu's Back In Town [5:50]
-02. Playtime [6:10]
-03. Will You Still Be Mine [4:42]
-04. Fascinating Rhythm [4:34](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 12:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:138F4B5C829766F3D6B0B9135F7DEEDD8CF85CAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

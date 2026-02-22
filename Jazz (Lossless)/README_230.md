@@ -1,3 +1,32 @@
+###  Публикация: 953846   (344777) от 06.11.2015
+
+Johnny "Hammond" Smith - Open House (1963) /2001, Milestone/[FLAC|tracks+.cue]<Soul-Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Open House [04:39]
+ 02.Cyra [05:28]
+ 03.I Remember You [05:02]
+ 04.Theme From Cleopatra [02:37](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1D8FAD3B78868D7ED6B9BFFFDF33CF761C5A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179655   (344692) от 02.11.2017
 
 Julian & Roman Wasserfuhr - Gravity (2011) ACT [FLAC|Lossless|image + .cue] <Contemporary Jazz, Post-Bop>
@@ -740,35 +769,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47ACD16475CADE3EE07D04CEFC00383FE9B6CE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257967   (341440) от 28.10.2018
-
-Florian Pellissier Quintet - Bijou Voyou Caillou (2018) Heavenly Sweetness [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuck with the Police [9:28]
-02. South Beach [6:50]
-03. Bijou voyou caillou [5:36]
-04. Hibou bleu [4:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21C98DF1FD03D43F0E5EACD4353CE8BD33E1B6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

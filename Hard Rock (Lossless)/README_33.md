@@ -1,3 +1,32 @@
+###  Публикация: 1283591   (731026) от 19.02.2019
+
+Viana - Forever Free (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Free (04:14)
+02. In The Name Of Love (03:54)
+03. Heart Of Stone (05:26)
+04. We Can’t Choose (03:38)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A25DAAAC8EBB7FA30D5ADA3CCDB33CBB893FB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283827   (730863) от 19.02.2019
 
 Geordie - A Band From Geordieland 1972-1996 (1996) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock, Pop Rock>
@@ -721,35 +750,6 @@ Steel Rhino - Steel Rhino (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6438165F8CD2E45880559FF156622E3F4C51415B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272370   (718471) от 27.02.2019
-
-Scorpions - Gentle Power (Best Of The Ballads) (2018) Remastered, Unofficial [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Send Me An Angel
-02. You And I
-03. Is There Anybody There
-04. When The Smoke Is Going Down(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B13F17AF60921BE7A59DEAF5DE848FE9B00BC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

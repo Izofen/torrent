@@ -1,3 +1,61 @@
+###  Публикация: 1188655   (273679) от 03.12.2017
+
+Mr. Cloudy - Perceived 2 (Magnetic Tide) (2017) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetic Tide 1 (17:50)
+02. Magnetic Tide 1 (Toki Fuko ReDub) (17:50)
+03. Magnetic Tide 2 (19:00)
+04. Magnetic Tide 2 (Toki Fuko Reshape) (18:44)Жанр: Ambient, Drone, Dub TechnoПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00A5232B38E9F51502E691690B1EEFEA61E3045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188651   (273677) от 03.12.2017
+
+Joachim Spieth - Irradiance (2017) Affin LTD [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iliachtides (05:17)
+02. Dispersion (07:08)
+03. Luciferin (07:29)
+04. Candela (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95611C0CEC645A033C701AD977DBFC7D94063439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188649   (273676) от 03.12.2017
 
 Automatic Tasty - A World Of Moving And Connected Parts (2017) SLEEPERS [FLAC|Lossless|24Bit|tracks] <Electro, Acid>
@@ -683,64 +741,6 @@ Scooter - 100% Scooter: 25 Years Wild & Wicked 5CD (Limited Edition) (2017) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F237D7A296BE4DA91EC0D6753B4986049818464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341495   (262352) от 28.11.2019
-
-Dj De Key - Anniversary Edit (2019) [FLAC|Lossless|image + .cue] <Progressive House, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinlicker feat. Belle Doron - Close Your Eyes (Extended Mix)
-02. Exit 11 - Nights Of The Jaguar (Extended Mix)
-03. Nora En Pure - Dry Sobbing (Original Club Mix)
-04. Saaz, Gu Noronha - Together (Extended Mix)(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28F1F504B2774A3915388B35BDBC4F3C0104F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341333   (262340) от 28.11.2019
-
-Bob Sinclar - III (2006) [FLAC|Lossless|tracks + .cue] <House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Goes On
-02. Kiss My Eyes
-03. If I Was
-04. Musique Is Fantastique(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 01:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0BE08394D04D8C273B36585BCBEA74D6DD4340
 ```
 
 https://mybot314.ru/tekegram_catalog/

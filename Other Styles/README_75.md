@@ -1,3 +1,32 @@
+###  Публикация: 1284589   (724458) от 24.02.2019
+
+Lady Gaga, Bradley Cooper - A Star Is Born Soundtrack (2018) Explicit [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724458.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cast – Intro (00:20)
+2. Bradley Cooper – Black Eyes (03:03)
+3. Cast – Somewhere Over the Rainbow (Dialogue) (00:42)
+4. Cast – Fabulous French (Dialogue) (00:19)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8298C227D49AA01FD9263B6F06E2F8043264AA05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129209   (724371) от 27.04.2017
 
 VA - 50 Mindful Sessions Turkish Massage Treatment (2017) [MP3|320 Kbps] <New Age, Meditative, Relax>
@@ -707,35 +736,6 @@ Conjure One [Fake Enigma] - Sleep (2003) [APE|Lossless|image + .cue] <New Age, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBE16ABB3B499C60364A9648F89CE1AF79DCABDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023997   (720303) от 07.06.2016
-
-John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse (03:43)
-02. The Transference (03:50)
-03. Pyramid Collapse / Main Titles (02:25)
-04. Eric's New Life (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0357E92259386C875748C50A943E4B6026C136A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1205438   (783528) от 10.02.2018
+
+Numina - The Chroma Plateau (2018) Spotted Peccary [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beaming Up The Fossils (06:32)
+ 02. Bringer Of The Beings (09:14)
+ 03. Intergalactic Traveller (05:25)
+ 04. Where All The Creatures Are Dreaming (08:44)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB7AB05F37D70A71E96AFCC365B43C63A737C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205515   (783509) от 10.02.2018
 
 Junksista - Promiscuous Tendencies (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electroclash, EBM>
@@ -669,35 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F620F04797F36DB7CF5238BC9B396FDAE025F312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390250   (783386) от 14.06.2020
-
-Хоккей. Молодёжный Чемпионат мира 2020. Предварительный раунд. Группа B. Германия — Канада (2019) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783386.jpg" />
-</div>
-
-
-###  Подробнее
-
-44-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2020 года.
-30 декабря 2019, понедельник. 17:00 МСК
-Предварительный раунд. Группа B.
-Германия — Канада(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65351E45E87FE810CA2A2068A67D2F77DF8BBC49
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1298588   (601671) от 28.04.2019
+
+Grand Funk Railroad - 24 albums, 3 Box sets, 64 CD (1969-2017) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Boogie Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grand Funk Railroad (или Grand Funk) — американская хард-рок-группа, образованная в 1969 году. В течение 1969—1972 годов пять альбомов GFR стали платиновыми (остальные три — золотыми); общий альбомный тираж группы в 70-х годах составил более 25 миллионов[1]. Grand Funk Railroad исполняли предельно упрощённый, но оглушительно-громкий вариант блюз-рока; впоследствии (   Читать дальше...   )--------------------------
+
+01. Footstompin' Music (4:08)
+02. Rock 'N' Roll Soul  (4:04)(   Читать дальше...   )Жанр: Hard Rock, Boogie Rock, Blues Rock |Продолжительность: 56:54:51 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4887D5CABC2770C0A1F45D59660E26DF3E19CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298612   (601627) от 29.04.2019
 
 Mantra - Roots (2002) [FLAC|Lossless|image + .cue] <Hard Rock, Psychedelic Rock>
@@ -720,35 +749,6 @@ Outlaw Saint - Persistence Pays Off (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EA561D3012A2DA2702C17640A94964C6857C770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550826   (591226) от 13.05.2022
-
-Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paroxysm
-02. One And Only
-03. Hero
-04. War Machine(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
 ```
 
 https://mybot314.ru/tekegram_catalog/

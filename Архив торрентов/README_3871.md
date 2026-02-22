@@ -1,3 +1,29 @@
+###  Публикация: 1177503   (362571) от 25.10.2017
+
+Adobe Flash Player 27.00.183 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BE3D181F9E5FFAC804BFAD28041737683E1C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576315   (362560) от 17.11.2012
 
 В гости к Робинсонам / Meet the Robinsons (2007) [1080p] Blu-Ray  3D
@@ -669,41 +695,6 @@ VPlayer - очередной видеопроигрыватель на Android. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF1DA3C3F49E76669EE1DFACA7A3E94C3D71AF0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576367   (362278) от 17.11.2012
-
-VA - Лучшие Хиты 80-90-Х В Обработке DJ Русский (2012) [MP3|320 кб/с]<Disco, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алла Пугачева - Осенний поцелуй (Larin Radio Mix)
-02. Григорий Лепс - Рюмка водки на столе (DJ Skydreamer Remix)
-03. Кино - Кончится лето (DJ MakonЯ 4ever Club Mix)
-04. Руки Вверх - Ай, Яй, Яй (Netz DJs Remix 2012)
-05. DJ Fisun feat. Сергей Зверев & Рома Жуков - Я люблю Вас
-06. Андрей Губин - Солнышко (Alex Dea & Dj Combric 2012 Bootleg)
-07. Комбинация - Твоя вишневая девятка (Mansui Studio Remix)
-08. DJ Joyint & M.V.Records feat. Irina Kulkova - Червона рута
-09. Михаил Боярский - Песенка мушкетеров (Dj Virus Electro Remix)
-10. Блестящие и Дискотека Авария - Чао, Бамбина (Ural Djs Dance Edit)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 04:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0D7FF7DF86ACD96FE330B7A4929DBA6C5A0C3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1272439   (799394) от 03.01.2019
+
+Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|tracks] <Soundtrack, Epic, Battle>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Main Theme. 2,13
+03. Narrative 02.    9,27
+04. Schindelgeist. 14,5
+05. Campaign 01. 	14,19(   Читать дальше...   )Жанр: Soundtrack, Epic, BattleПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E824BE52A943351233A691CFDE7C4797B8FB2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121803   (799220) от 04.04.2017
 
 Mehdi - Christmas Treasures II (2005) 2009, SoothingMusic [FLAC|Lossless|image + .cue] <New Age>
@@ -719,35 +748,6 @@ Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C129CE82B254DC37528CC016CBC9723F6193A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011032   (795447) от 29.04.2016
-
-Andreas Vollenweider - White Winds (1984) [FLAC|Lossless|image + .cue] <Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The White Winds - The White Boat (First View)  1:51
-02.  Hall of the Stairs - Hall of the Mosaics (Meeting You)  5:04
-03.  The Glass Hall (Choose the Crystal) - The Play of the Five Balls - The Five P...  7:36
-04.  The Woman and the Stone  4:25(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4378BF5DBAD56BFC72695CFDC8CB2A08141A7C4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 994885   (888196) от 09.03.2016
+
+Mark Mikel - Collection (1993-2007) [MP3|192 - 320 кб/с] <Classic Rock, Power Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Избранное Марка - бальзам на душу для тех, кто знает и помнит 60-70-ые!01. Holy Roly
+02. Deliver My Love
+03. Come Tomorrow Feel Alright
+04. Right Now(   Читать дальше...   )Жанр: Classic Rock, Power PopПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7858EDDF049B8278E3FDF9B1E5163CEC1DB3A7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494628   (887828) от 08.09.2021
 
 VA - Like Everyday! (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
@@ -719,35 +748,6 @@ VA - Alterportal HITS 14 Vol. 66 - February (2014) [MP3|128-320 кб/с]<Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B4079217F8F6798C1080F4E1C3D710CCA806A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496435   (872865) от 17.09.2021
-
-VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872865.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blutengel - Hymn
-002. Fame On Fire - It's Okay
-003. Redhook - Kamikaze
-004. Slaves - Like I Do(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3A2341EBC2F690EB4CCEC3A80CB6520105B770
 ```
 
 https://mybot314.ru/tekegram_catalog/

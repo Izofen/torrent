@@ -1,3 +1,32 @@
+###  Публикация: 1090105   (949183) от 05.01.2017
+
+Spitfire - State Of Mind (2017) [MP3|320 Kbps] <Groove, Stoner Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kingpin 04:19
+02. I Need Help 03:40
+03. The Train 03:13
+04. Kill Me 03:51(   Читать дальше...   )Жанр: Groove, Stoner Rock, MetalПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4EF51B9EDA482054D53CED90C39B268E7641D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090116   (949179) от 05.01.2017
 
 A.E.R.I.S.T. - Redeemer/Destroyer, Pt. 1: The Strength of Many (2017) [MP3|320 Kbps] <Progressive Metal, Deathcore>
@@ -795,41 +824,6 @@ Angelus Apatrida - Hidden Evolution (2015) [MP3|320 кб/с]<Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF5A434E1045D674A6BCD7A6B1FA845403040440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860185   (941493) от 16.01.2015
-
-Shadowbane - Facing The Fallout (2015) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Red Alert
-02. Beyond the Winds of War
-03. Traitor
-04. Under Bleeding Skies
-05. After the Fallout
-06. Dystopia
-07. Tear Down the Wall
-08. Badlands Law
-09. Last Division
-10. Source of GriefЖанр: Power MetalПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E65B5DCB08BF99B5A9361B6E21909BE31639B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

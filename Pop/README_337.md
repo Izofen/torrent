@@ -1,3 +1,93 @@
+###  Публикация: 458042   (94629) от 26.02.2012
+
+Анжелика Агурбаш - Grand collection (2010) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_94629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821879   (91219) от 04.10.2025
+
+Mireille Mathieu - Mon credo (Best Of) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mon crédo (2:51)
+02. Une histoire d'amour (Love Story) (3:00)
+03. Pardonne-moi ce caprice d'enfant (3:22)
+04. Pourquoi le monde est sans amour (2:53)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 03:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C532A8DF5505679ED3E74C05FED6E3C4FE05191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487805   (90663) от 25.04.2012
+
+East 17 - Dark Light (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Get You Off My Mind (Crazy)
+02. Crazy Fool
+03. Nightlife
+04. Counting Clouds
+05. Break Ur Heart
+06. Friday Night
+07. Kiss Of Winter
+08. Broken Valentine
+09. Where Does Love Go
+10. You Must Be An Angel2012Жанр: Pop, DanceПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C90C77BD9B6781A9E05C43F45896A3F2BC821D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487577   (90517) от 24.04.2012
 
 Eros Ramazzotti - Eros Best Love Songs (2012) [FLAC|Lossless]<Pop>
@@ -769,111 +859,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472897   (84339) от 25.03.2012
-
-Katy Perry - Teenage Dream-The Complete Confection (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teenage Dream (3:48)
-02. Last Friday Night (T.G.I.F.) (3:51)
-03. California Gurls ft. Snoop Dogg (3:55)
-04. Firework (3:48)
-05. Peacock (3:52)
-06. Circle the Drain (4:33)
-07. The One That Got Away (3:47)
-08. E.T.(3:26)
-09. Who Am I Living For? (4:09)
-10. Pearl (4:08)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 543
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12689EDA2C9EF2338F929E9B04C6F09E5BC8CA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472197   (84183) от 24.03.2012
-
-Madonna - MDNA (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl Gone Wild (3:43)
-02. Gang Bang (5:26)
-03. I'm Addicted (4:33)
-04. Turn Up The Radio (3:46)
-05. Give Me All Your Luvin' (3:22)
-06. Some Girls (3:53)
-07. Superstar (3:55)
-08. I Don't Give A (4:19)
-09. I'm A Sinner (4:52)
-10. Love Spent (3:45)(   Читать дальше...   )2012Жанр: PopПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D5633DE082A818D7E40E976C9ADFA9568673F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472187   (84120) от 24.03.2012
-
-Madonna - MDNA (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl Gone Wild (3:43)
-02. Gang Bang (5:26)
-03. I'm Addicted (4:33)
-04. Turn Up The Radio (3:46)
-05. Give Me All Your Luvin' (3:22)
-06. Some Girls (3:53)
-07. Superstar (3:55)
-08. I Don't Give A (4:19)
-09. I'm A Sinner (4:52)
-10. Love Spent (3:46)(   Читать дальше...   )2012Жанр: PopПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5D2E3D371C2E3B5D644B5DDEE49CEB235A4307
 ```
 
 https://mybot314.ru/tekegram_catalog/

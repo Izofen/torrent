@@ -1,3 +1,29 @@
+###  Публикация: 1113627   (836817) от 12.03.2017
+
+Журнал | Таинственные истории №5 (2017) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё самое таинственное и необычное из жизни простых людей, нас с вами. Рассказ от первого лица и немного о таинственном в биографиях знаменитых людей.Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5907DF24108075D4D5B1F862A74121B9DECF8379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004868   (836780) от 07.04.2016
 
 Icecream Slideshow Maker 1.48 [Multi/Ru]
@@ -657,35 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7CDD80AE5B085138D050791F274EF2E954754DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501224   (836573) от 09.10.2021
-
-Alesso - Tomorrowland Friendship Mix (2021-10-07) [MP3|320 Kbps] <House, Tech House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alesso & Marshmello ft. James Bay - Chasing Stars
-02. Salvatore Ganacci - Step-Grandma
-03. Biscits & MITA (BR) - Tribalism
-04. Bruno Furlan - Better Days(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69706B094D2184A8F00F515D24F15A64E3C7535
 ```
 
 https://mybot314.ru/tekegram_catalog/

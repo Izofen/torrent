@@ -1,3 +1,90 @@
+###  Публикация: 953119   (351796) от 03.11.2015
+
+Andrew Hill - Compulsion (1965) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Compulsion [14:19]
+ 02.Legacy [05:55]
+ 03.Premonition [10:35]
+ 04.Limbo [10:18]Жанр: Avant-Garde JazzПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64780D1E07F3310320851F17664C808132EA29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952812   (351794) от 03.11.2015
+
+Erroll Garner - Long Ago And Far Away (1950-1951) /1987, Columbia/[FLAC|tracks+.cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When Johnny Come Marching Home [03:26]
+ 02.It Could Happen To You [03:48]
+ 03.I Don't Know Why [03:30]
+ 04.My Heart Stood Still [04:19](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36C35DD2FD6495EAA6CF5D0747A31DD9A563020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952857   (351788) от 03.11.2015
+
+Trudy Lynn - Everything Comes With A Price (2015) [MP3|320 кб/с]<Texas Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Latch On (03:41)
+02. Fat Daddy (03:39)
+03. Everything Comes With A Price (03:47)
+04. Yesterday I Was Lonely (04:55)(   Читать дальше...   )Жанр: Texas BluesПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D878677007DEED412A79F5952E97AAA0DFBFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953133   (351782) от 03.11.2015
 
 The Warren Vache Quintet - remembers Benny Carter (2015) /Arbors Records/[FLAC|tracks+.cue]<Mainstream Jazz>
@@ -658,93 +745,6 @@ VA - Bongo Boy Records Gospel Blues (2017-2018) 2CD [MP3|320 Kbps] <Blues, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33D5DA18156C0182280047DA3EE00136D5CD3314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200717   (349832) от 06.10.2019
-
-Big Daddy Kinsey & The Kinsey Report - 9 Albums (1985 - 1998) [FLAC|Lossless|tracks + .cue] <Funky Blues Rock, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lester J. Kinsey Jr. (18 марта 1927 года - 3 апреля 2001 года), известный как Big Daddy Kinsey, отец Donald, Ralph и Kenneth Kinsey. Естественным и очевидным будет объединение в единую тему альбомов Big Daddy Kinsey и The Kinsey Report, тем более на всех релизах отца сыновья принимали непосредственное участие. Big Daddy Kinsey представляет последнюю миграционную (   Читать дальше...   )Список альбомов:
-1985 - Bad Situation
-1987 - Edge Of The City
-1989 - Midnight Drive(   Читать дальше...   )Жанр: Funky Blues Rock, Chicago BluesПродолжительность: 07:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7C40B878117DD57F6F1F4D07AA288BEF976F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953202   (349659) от 04.11.2015
-
-Roy Ayers - West Coast Vibes (1963) /2011, EMI Music/[FLAC|tracks+.cue]<Straight-Ahead Jazz, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sound And Sense [06:42]
- 02.Days Of Wine And Roses [03:35]
- 03.Reggie Of Chester [03:48]
- 04.It Could Happen To You [03:15](   Читать дальше...   )Жанр: Straight-Ahead Jazz, Soul JazzПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5963BB2BB159975B8E4FBDE019B070B26E44F6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179499   (349443) от 31.10.2017
-
-Claudio Roditi - Double Standards (1997) Reservoir [FLAC|Lossless|tracks + .cue] <Latin Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reservoir Samba [07:03]
-02. A Felicidade [07:31]
-03. Bye Bye Blackbird [08:13]
-04. Desafinado [05:08](   Читать дальше...   )Жанр: Latin Jazz, Jazz FusionПродолжительность: 01:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58FE5B9C3C1927886CC2597D4FA2BF296B78B586
 ```
 
 https://mybot314.ru/tekegram_catalog/

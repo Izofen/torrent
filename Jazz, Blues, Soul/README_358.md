@@ -1,3 +1,96 @@
+###  Публикация: 1416511   (367962) от 16.10.2020
+
+Chano Dominguez - Piano Iberico (2010) Blue Note [FLAC|Lossless|tracks + .cue] <Latin Jazz, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mantreria [5:03]
+02. El Puerto [6:45]
+03. Tangos a Mompou [6:51]
+04. Andaluza No.5 [4:17](   Читать дальше...   )Жанр: Latin Jazz, Contemporary Jazz, Piano JazzПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73135A2640B44FA4C985A5E810103CDB8E80003E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416459   (367958) от 16.10.2020
+
+Ray Barretto - Que Viva la Musica (1972) 1992, Fania Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Salsa>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Que Viva la Musica [5:31]
+02. Bruca Manigua [4:06]
+03. La Pelota [4:19]
+04. El Tiempo lo Dira [4:23](   Читать дальше...   )Жанр: Latin Jazz, SalsaПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579C5140585213BFC0380F50DF64CFB203B54C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 153631   (367850) от 20.11.2009
+
+John Mayall - Tough (2009) [FLAC]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_367850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing To Do With Love [05:53]
+ 02. Just What You're Looking For [04:23]
+ 03. Playing With A Losing Band [04:08]
+ 04. An Eye For An Eye [04:35]
+ 05. How Far Down [05:05]
+ 06. Train To My Heart [04:33]
+ 07. Slow Train To Nowhere [04:27]
+ 08. Numbers Down [03:58]
+ 09. That Good Old Rockin' Blues [04:56]
+ 10. Tough Times Ahead [07:18](   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176896   (367646) от 23.10.2017
 
 Peter Guidi - Weaver of Dreams (1993) Timeless [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -658,93 +751,6 @@ The Dig 3 - The Dig 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3F0F4B3F7BAA2B620CB4D1BC57B57F55CBCDB2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576464   (366489) от 14.09.2022
-
-The C J Smith Band - Coming Home Again (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Home Again (3:12)
-02. One Golden Dream (4:43)
-03. Riding That Train (4:40)
-04. Let the River Carry Me Home (5:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179ACA458CE83370C3497D1DDC3F1772E5DC3FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576458   (366488) от 14.09.2022
-
-Stone Free - Stone Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone Free (5:15)
-02. Angel (3:58)
-03. Izabella (3:39)
-04. Little Wing (3:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4911886C3FC4BAA9E8932A2563BD942F7DCB9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576465   (366487) от 14.09.2022
-
-The Curve - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sinner (Remastered) (4:50)
-02. Ride My Pony (2022 Radio Edit) (3:09)
-03. I Came Alone (3:37)
-04. Dark Gospel (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95FC70D7F857AF2A142DDCD254A6772D14EB136
 ```
 
 https://mybot314.ru/tekegram_catalog/

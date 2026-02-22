@@ -1,3 +1,32 @@
+###  Публикация: 1095876   (920983) от 23.01.2017
+
+The Modern Jazz Quartet - Together Again: Echoes (1984) 2005, Pablo Records[FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.That Slavic Smile [08:05]
+ 02.Echoes [07:10]
+ 03.The Watergate Blues [06:09]
+ 04.The Hornpipe [08:20](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9D30F308C006BD37B5209B723327992D2D5C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095874   (920949) от 23.01.2017
 
 The George Lewis Band Of New Orleans - Jazz At Preservation Hall IV (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
@@ -729,35 +758,6 @@ Wolfgang Dauner Quintet - The Oimels (1969) 2007, MPS[FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B57F7C2436CADB5E06828796CE6B819BDAC64263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989108   (917376) от 22.02.2016
-
-Dennis Rollins' Velocity Trio - Symbiosis (2015) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Funk, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utopia
-02. Reverence
-03. Symbiosis
-04. Hark!(   Читать дальше...   )Жанр: Contemporary Jazz, Funk, FusionПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B07084B66E5A40DF21A29E248E714A5380F8D211
 ```
 
 https://mybot314.ru/tekegram_catalog/

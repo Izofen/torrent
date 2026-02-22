@@ -1,3 +1,38 @@
+###  Публикация: 628227   (937466) от 10.03.2013
+
+Epicrenel - The Crystal Throne (2013) [MP3|320 кб/с]<Epic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.	 The Calling
+02.	 Thurs Lands Cursed Again
+03.	 Where Kingdoms Fall
+04.	 Walls of the Cave
+05.	 Floating Souls
+06.	 Guarding Fellhound
+07.	 In the Dungeon
+08.	 Skyride
+09.	 Defenders of the Crown
+10.	 Fantom's Grove(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBACC527EC3F31D5C51E63D9EDAE17C3ECE9B7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 284320   (937362) от 19.01.2011
 
 Savatage - Still the Orchestra Plays Greatest Hits Vol 1 and 2 (2010) [MP3|320 kbps]<Heavy Metal/Progressive Metal>
@@ -769,41 +804,6 @@ Imperium Dekadenz - Meadows Of Nostalgia (2013) [MP3|320 кб/с]<Atmospheric Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3BF6FFCD7842A04C457E332B42F6F2AE68408C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283639   (933785) от 22.01.2011
-
-Demons & Wizards - Дискография (2000-2005) [MP3|320 kbps]<Heavy Metal/Progressive Metal/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Metal/Progressive Metal/Power MetalПродолжительность: 00:49:03
-
-1. Crimson King (5:47)
-2. Beneath These Waves (5:12)
-3. Terror Train (4:46)
-4. Seize The Day (5:22)
-5. The Gunslinger (5:15)
-6. Love's Tragedy Asunder (5:28)
-7. Wicked Witch (3:32)
-8. Dorian (6:19)(   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB43A076DB861F53B13C270314478AE3AA30645C
 ```
 
 https://mybot314.ru/tekegram_catalog/

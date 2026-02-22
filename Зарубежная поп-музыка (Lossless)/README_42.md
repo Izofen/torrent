@@ -1,3 +1,32 @@
+###  Публикация: 1226766   (653869) от 22.05.2018
+
+VA - Greatest Feelgood Hits... Ever. Volume 1 (2004) [APE|Lossless|image + .cue] <Pop, Soul,  Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Take That – Everything Changes
+02 Lighthouse Family – Lifted
+03 Kylie Minogue – Some Kind Of Bliss
+04 Five – Keep On Movin'(   Читать дальше...   )Жанр: Pop, Soul,  ElectronicПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307694960D3624573442467EA8D107872DDD3818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540430   (653802) от 29.03.2022
 
 Falco - The Sound Of Musik (The Greatest Hits) (2022) Compilation [FLAC|Lossless|image + .cue] <Pop Rock, New Wave>
@@ -707,35 +736,6 @@ VA - Eurodance Evolution 2019.01 (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2629864888F45F9F586679CE8293B69D56A83AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142460   (643108) от 14.06.2017
-
-Toxic Friends - Cleaning up the Mess (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sellouts  (04:25) 
-02. 87 Night Warriorz  (04:58) 
-03. Hangin' with My Boys  (03:41) 
-04. The Candidate  (03:54) (   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567F88AF5EDA9B5814E55E7EEBAFD0BFF79C8413
 ```
 
 https://mybot314.ru/tekegram_catalog/

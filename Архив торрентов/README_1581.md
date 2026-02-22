@@ -1,3 +1,37 @@
+###  Публикация: 768986   (857267) от 22.03.2014
+
+Enshadowed - Magic Chaos Psychedelia (2013) [MP3|320 кб/с]<Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Stary Throne of It
+02. Is Venit Ex Abyssus
+03. Black Holes, Death Planets
+04. The Scenario
+05. Surrealistic Shade of Color Black
+06. Dethroned
+07. Inner Psy-Trip
+08. The Dual Hypostasis of Nihil
+09. Magic Chaos PsychedeliaЖанр: Black MetalПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55ED4FF192D94B74F45370ED6B576496DF7B5143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 769348   (857266) от 22.03.2014
 
 VA - Fiesta Del Trance (2014) [MP3|320 кб/с]<Trance, Uplifting Trance>
@@ -715,32 +749,6 @@ Eric William Johns - Smoke In The Sky (2014) [MP3|320 кб/с]<Hard Rock, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50E26CC7A1A0B0DEB915DDD5D2F7D32288587AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305564   (857209) от 07.03.2011
-
-Armin van Buuren - A State of Sundays 026 (06.03.2011) [MP3|192 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Blake Jarrell  – Maldives (Original Mix)Жанр: TranceПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B845EC97413413F50DFEAC30500808090062D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

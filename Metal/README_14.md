@@ -1,3 +1,36 @@
+###  Публикация: 745232   (969576) от 13.01.2014
+
+Skydancer - Land Of The Grim (2013) [MP3|320 кб/с]<Melodic Death Metal \ Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Swamp Tomb [00:05:16]
+02 - Ancares [00:05:00]
+03 - Ancestral Lands [00:04:37]
+04 - L'Even [00:02:14]
+05 - The Ferryman [00:03:57]
+06 - O Paso Do Tempo [00:03:34]
+07 - The Galician Exile [00:05:10]
+08 - Lembranza [00:01:32]Жанр: Melodic Death Metal \ Thrash MetalПродолжительность: 00:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87044D26A32B1EFDD12CBAFA3C5ACC53C1563695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 745172   (969496) от 13.01.2014
 
 Cremation - Rise Of The Phoenix (2012) [MP3|320 кб/с]<Death metal>
@@ -746,35 +779,6 @@ Unheilig - Schwarzes Gold 2000-2014 (2015) Remastered, Vinyl-Rip [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2803E1AD9986533C0D5BFF53AAAEF504C349F20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978470   (963505) от 23.01.2016
-
-Nordic Union - Nordic Union (2016) Japanese Edition [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.The War Has Begun
-2.Hypocrisy
-3.Wide Awake
-4.Every Heartbeart(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46151CA554CDC5590CE2D3A2E76083250DA72781
 ```
 
 https://mybot314.ru/tekegram_catalog/

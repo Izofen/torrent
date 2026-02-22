@@ -1,3 +1,36 @@
+###  Публикация: 545883   (483133) от 11.09.2012
+
+Big Big Train - English Electric (Part One) (2012) [FLAC|Lossless]<Crossover Prog>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First Rebreather (8.32)
+02. Uncle Jack (3.49)
+03. Winchester From St Giles' Hill (7.16)
+04. Judas Unrepentant (7.18)
+05. Summoned By Bells (9.17)
+06. Upton Heath (5.39)
+07. A Boy In Darkness (8.03)
+08. Hedgerow (8.52)Жанр: Crossover ProgПродолжительность: 00:58:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545485   (483129) от 11.09.2012
 
 Mozilla Thunderbird 15.0.1 Portable by PortableAppz  [Русский]
@@ -667,35 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 700472   (482883) от 15.09.2013
-
-Supertramp - Breakfast In America (1979) [FLAC 2.0 24/96|tracks (BDRip)] <Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone Hollywood (5:18)
-02. The Logical Song (4:09)
-03. Goodbye Stranger (5:48)
-04. Breakfast In America (2:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF59EF624EBDC9137534F8DD8C5CE4573633CFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

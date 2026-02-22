@@ -1,32 +1,3 @@
-###  Публикация: 1689788   (124364) от 04.01.2024
-
-Electric Asturias - Dimensions (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Symphonic Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Porte de l'Enfer (Gate Of Hell) 6:53
-02. Stone Circle 5:07
-03. Karma 7:55
-04. Shippuu Jinrai 4:03Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D662FFDF77D14E7B6F189D17C520D3896CD7D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694177   (121301) от 23.01.2024
 
 Ryujin - Ryujin (2024) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
@@ -824,6 +795,41 @@ Black Infinity - 666 Metal (2009) [MP3|320 kbps]<Melodic death, gothic metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2241C7697717A7A8D294BB2182B61FC3D1A38427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455965   (77460) от 21.02.2012
+
+Black Infinity - 666 Metal (2009) [FLAC|Lossless]<Melodic death, gothic metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Return For Dying (3:23)
+02. Heaven Downfall (4:44)
+03. Lost Angels (3:42)
+04. The Secret (5:53)
+05. Paint Yourself All Black (5:12)
+06. Embracing Hearts (5:40)
+07. When Her Love On Fire (3:11)
+08. Deathbed Illusion (4:07)
+09. Celebrating Nightmare (4:44)
+10. G.O.D. (4:21)(   Читать дальше...   )2009Жанр: Melodic death, gothic metalПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

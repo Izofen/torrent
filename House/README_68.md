@@ -1,3 +1,90 @@
+###  Публикация: 1188882   (273671) от 03.12.2017
+
+VA - Ibiza House Fillers (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slam Duck - Cortege (Original Mix) 06:46
+02. Ticon - Nefertiti (Original Mix) 07:53
+03. Futurefunk - The Choir (Original Mix) 06:40
+04. Hansgod - Vida (Original Mix) 07:50(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A580BF97ED5EF147FFA7BF291FE6734522724F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083735   (273065) от 16.12.2016
+
+VA - Best Of Deep House (Deluxe Version) (2016) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clark Morrison - Space Rift (Original Mix) 6:53
+02. Ricky Rough - The Way It Is (Original Mix) 9:11
+03. Francesco Chianese - Adday (Original Mix) 6:52
+04. Bess - New Face (Original Mix) 6:15(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063AEA85CAA6D9EEBDDE97A22034A65D0032E416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083881   (272644) от 17.12.2016
+
+VA - Xmax Deephouse Hot Traxx (2016) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azeotrop - Aftermath [00:05:56]
+02. Najwars - Deep Trading [00:06:54]
+03. Simplex Sensus - Up & Away [00:06:02]
+04. Chillelektro - Eggum [00:06:42](   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectronicПродолжительность: 02:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C624DDE2FECBAD3BCBB7BC9B7016BAD32128F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189098   (271341) от 05.12.2017
 
 Andrea Bertolini - Ultimate (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -658,93 +745,6 @@ VA - Black Hole House Music 12-17 (2017) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:239EC99DE0B3DF23FFDC1766FCE753F27F4BA8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193937   (261816) от 23.12.2017
-
-VA - House Party (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Basement Jaxx  -  Do Your Thing (Robbie Rivera Acid Remix)  3:33
-02.  Kristine Blond & James Hype  -  Love Shy  2:52
-03.  Inner City  -  Good Life 2017  3:16
-04.  Harry Romero  -  Revolt  3:26(   Читать дальше...   )Жанр: HouseПродолжительность: 03:26:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532C2D8A96EE3356BC33A158665EA947EE17608B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839042   (261708) от 26.11.2025
-
-VA - Balearic Deep-House Winter 2026 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi.5, Dry & Bolinger - Your Soul 03:23
-02. Steen Thottrup, Eva Scolaro & Calmabohain - Deeper Love (Calmabohain Remix) 03:22
-03. Music Of The Earth - Iou Boarders 05:17
-04. Simone Intrieri - Lie Machine (Extended Mix) 07:46(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BB6CE28B13A0212D63247682EBD8652962BE74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735256   (261682) от 08.07.2024
-
-VA - Polyptych Limited: Year Four (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inessa & IN-sane - Loved And Lost (Original Mix) [6:48]
-02. Rukhman - Forgotten Days (Original Mix) [5:53]
-03. OHM (LB) - Leap Of Faith (Original Mix) [5:43]
-04. Maz (EG) - Conquer Your Fears (Original Mix) [6:35](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C42A34E13DB64AD94B09D54C59DE9CA211EC8AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

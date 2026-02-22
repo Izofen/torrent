@@ -1,3 +1,32 @@
+###  Публикация: 1030775   (672405) от 01.07.2016
+
+Tim Bowman - Paradise (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Of Love [04:55]
+02. Paradise [04:49]
+03. The Only One [04:41]
+04. I'll Never Forget [04:51](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F42A6B964C9393607D64C9D5779E73CFD1CC362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291134   (672231) от 23.03.2019
 
 Konstantin Klashtorni - Kool&Klean (Volume VIII) (2019) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
@@ -716,35 +745,6 @@ Kris Berry - Berry Street (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:660D7053F26338E58A1A54A5E0E5E780920AE8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291553   (668914) от 25.03.2019
-
-Kristin Berardi - Where Or When (2015) ABC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where or When [4:38]
-02. Lucky 13 [4:47]
-03. Suzanne [6:13]
-04. Born to Be Blue [5:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088B98558D92FCBD1568921BA51FA9B78F4FE2F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1164497   (442027) от 09.09.2017
+
+Hal Galper - Live at Maybeck Recital Hall, Vol.6 (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spoken Introduction [00:17]
+02. Whisper Not [07:08]
+03. It Never Was You [07:08]
+04. All God's Chillun Got Rhythm [03:43](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E66002DC77752568D6BBC5BEB1A75F15D81479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164119   (442026) от 09.09.2017
+
+Rob Brown Ensemble - Crown Trunk Root Funk (2008) AumFidelity [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocking Horse [10:58]
+02. Clearly Speaking [06:57]
+03. Sonic Ecosystem [11:18]
+04. Ghost Dog [07:34](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A0CED292B7C6FAD0639C47EA14540F2E312F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164488   (442009) от 09.09.2017
+
+Stan Getz - Sweet Rain (1986) Verve [FLAC|Lossless|image + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Litha [08:24]
+02. O Grande Amour [04:43]
+03. Sweet Rain [07:10]
+04. Con Alma [08:06](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4132CCF4D7C18FF92AE4267E35ED2ED9358C464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164499   (441873) от 09.09.2017
 
 Jeremy Steig - Firefly (1977) 2016, King Record [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -658,93 +745,6 @@ Caravan Palace - Chronologic (2019) [FLAC|Lossless|WEB-DL|tracks] <Future Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C9258A014CF096BA2DDB8B85EF0C01FEA97546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248815   (439831) от 21.09.2018
-
-Nina Simone - The Colpix Singles (1959 - 1964) 2CD, 2018, Stateside [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439831.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Chilly Winds Don't Blow [2:46]
-02. Solitaire [3:24]
-03. Children Go Where I Send You [2:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D272B6C09FC617D388BE0A1B89CD82EC06BAE2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164622   (439050) от 10.09.2017
-
-Bobby Flurie - Hole In The Ozone (2008) [FLAC|Lossless|image + .cue] <Blues Rock, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hole in the Ozone   (04:07) 
-02.  The Cry   (03:21) 
-03.  Evening in Paradise   (03:19) 
-04.  So Right   (02:54) (   Читать дальше...   )Жанр: Blues Rock, InstrumentalПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBB136AB545CABA66D1E1B8E76352B534F2974D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164673   (438927) от 10.09.2017
-
-George Thorogood - Party Of One (2017) [FLAC|Lossless|image + .cue] <Blues, Blues rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438927.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I’m a Steady Rollin’ Man
-2. Soft Spot
-3. Tallahassee Women
-4. Wang Dang Doodle(   Читать дальше...   )Жанр: Blues, Blues rockПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09FAD666B490B76A6984404923CEF167B4807AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

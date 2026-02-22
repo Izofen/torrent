@@ -1,3 +1,32 @@
+###  Публикация: 1543883   (625661) от 13.04.2022
+
+VA - Pop Sauce (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Harry Styles - As It Was (2:45)
+002. Leah Kate - 10 Things I Hate About You (2:43)
+003. EMELINE - cinderella's dead (2:00)
+004. BoyWithUke, blackbear - IDGAF (2:26)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07367D9029A14BB8616EBEFB12F4E03ECB464F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909896   (625565) от 18.06.2015
 
 VA - Полнолуние любви Самая свежая попса (2015) [MP3|320 кб/с]<Pop>
@@ -773,35 +802,6 @@ VA - Pop Dance Top Selection (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:231B90569F399AAD04E16F628D1365BFD2AEC438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230468   (615415) от 12.06.2018
-
-Ebony - The Singles Collection (2018) [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собраны все синглы этой интересной диско группы, которые были выпущены авторами и продюсерами известных диско-поп исполнителей европы.01.  Don't Boogie Mr. Tango (1976) (4:34)
-02.  Slacker (1976) (4:22)
-03.  You Driving Me Crazy (1977) (4:03)
-04.  Move On Up (1977) (3:39)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78576EACF648D17923F955639B01BCF2BEB5AB30
 ```
 
 https://mybot314.ru/tekegram_catalog/

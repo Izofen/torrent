@@ -1,3 +1,38 @@
+###  Публикация: 610735   (990513) от 29.01.2013
+
+VA - Sunset Sounds Vol.1 (2013) [MP3|320 кб/с]<Downtempo, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Sol - Blue Morning (Original Mix)
+02. Schwarz & Funk - The Dawn (Original Mix)
+03. Sunburn In Cyprus - Eye of Reason (Original Mix)
+04. Maria Luisa Lafiandra, Ruggero Campese - Sunset At Cafe Del Mar (Original Mix)
+05. Roberto Sol, Florito - Love Finds You (feat. Martine) (Original Mix)
+06. Chris Le Blanc - Si Vous Voulez (feat. Paris Bizarre) (Original Mix)
+07. Latin League - Mind & Soul (feat. Chris Nukwami) (Original Mix)
+08. Lenny Mac Dowell - Solar Energy Solution (Original Mix)
+09. Xemplify - Naughty Secret (Original Mix)
+10. Pianochocolate, Alfida - Flight (Vocal Edition)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F25C966E98C321DF23EFEFA3BAB7D308657715F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610460   (990512) от 29.01.2013
 
 Seb Dhajje - Leeknath / Calista Nantes (2012) [FLAC|Lossless]<House>
@@ -677,32 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EF64E9A10298DE485BE88B149273038872394F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610653   (990435) от 29.01.2013
-
-Журнал | Загадки истории №2 [2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Загадки истории расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Формат: PDF
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

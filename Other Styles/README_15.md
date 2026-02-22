@@ -1,3 +1,32 @@
+###  Публикация: 1357346   (973157) от 04.02.2020
+
+Nicholas Britell - The King / Король (Original Score from the Netflix Film) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973157.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:29| 01. Ballade in C# Minor: Coronation
+|01:16| 02. Estampie - Eastcheap
+|05:12| 03. Song of Hal: Strings in C# Minor
+|02:14| 04. Tetrachord - War and Fate(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A524B2DD25B7210AC4DEE7ADDA5EB647B076CCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357340   (973155) от 04.02.2020
 
 Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -801,38 +830,6 @@ VA - Seduction Time (2012) [MP3|320 kbps]<Erotic Lounge, Chillout, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D4B40162B9B21495133BCBFD26AA1E08E2CCEBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616974   (971187) от 13.02.2013
-
-The Nymphs - Language of the Nymphs (2012) [MP3|192 кб/с]<New age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971187.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:39) 1. Sa Na Du
-(6:56) 2. Waka Zia
-(6:26) 3. Donde Djembeh
-(4:26) 4. Umna Sa
-(4:46) 5. Na No Mi Ne
-(5:46) 6. Adjah Bihem
-(5:04) 7. Nouri SamahЖанр: New age, Instrumental, RelaxПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517AA0BD7BCF379130E5DEDB194E8DEA3B78F4EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1388657   (786604) от 07.06.2020
+
+Dizzy Gillespie Big Band - Showtime at the Spotlite, 52nd Street, New York City, June 1946 (2008) 2CD, Uptown Records [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786604.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Shaw 'Nuff/I Waited for You [1:51]
+02. Our Delight [3:25]
+03. Groovin' High [4:46](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7523009504773F0CCFB686B707E2CC62ACF3664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388571   (786599) от 07.06.2020
 
 Mustafa Donmez (Mustafa Dönmez) - Gizemli Yolculuk (2009) [FLAC|Lossless|tracks + .cue] <Fusion, Modern Electric Blues>
@@ -714,35 +743,6 @@ Richard Bennett - Contrary Cocktail (2015) [FLAC|Lossless|image + .cue] <Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:128E510BB81D6E338F68ABFCFC674DB929190861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124678   (785663) от 12.04.2017
-
-Tin Pan - The Home Bartender's Song Book (2011) [FLAC|Lossless|image + .cue] <Blues,Vocal Jazz, New York Street Band, New Orlean Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Found a New Baby (3:35)
-02. My Babe (2:28)
-03. Come Home (3:02)
-04. Glory Land (2:53)(   Читать дальше...   )Жанр: Blues,Vocal Jazz, New York Street Band, New Orlean JazzПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADF47E9300937091878510F2D271345846D94FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

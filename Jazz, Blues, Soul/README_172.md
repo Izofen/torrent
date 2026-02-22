@@ -1,3 +1,90 @@
+###  Публикация: 1211898   (776911) от 09.03.2018
+
+Lou Levy Trio - A Most Musical Fella (1956, 1957) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night And Day [04:16]
+02. Angel Eyes [04:07]
+03. Lou's Blues [03:48]
+04. Yesterdays [06:19](   Читать дальше...   )Жанр: Cool, Hard Bop, Piano JazzПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A643B35809656A90226E9C5298E2C82E2B79763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211902   (776900) от 09.03.2018
+
+The New Stan Getz Quartet featuring Astrud Gilberto - Getz Au Go Go (1964) 2007, Verve [FLAC|Lossless|tracks + .cue] <Cool, Bossa Nova, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corcovado [02:52]
+02. It Might As Well Be Spring [04:29]
+03. Eu E Voce [02:33]
+04. Summertime [08:12](   Читать дальше...   )Жанр: Cool, Bossa Nova, Vocal JazzПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12BC49B0504BA60EAE2F7F29038D4D1B81745E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211905   (776873) от 09.03.2018
+
+Michael Musillami - Groove Teacher (1999) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Blend [06:27]
+02. The Gift [08:25]
+03. Open Ended [09:39]
+04. Off the Glass [08:10](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFF7A12A556CE0EB407039DB7D20224E4AF6B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211897   (776861) от 09.03.2018
 
 Jill Fulton - Southern Breeze (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, Country>
@@ -660,93 +747,6 @@ The Nick Moss Band feat. Dennis Gruenling - The High Cost Of Low Living (2018) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:490FDE2E7ECA979142AD32CBF793B5D6933E809F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212415   (776040) от 11.03.2018
-
-Angel Forrest - Electric Love (2018) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All The Way 04:33
-02. Spoil Me Up 06:17
-03. Piece of My Heart 04:18
-04. Walkin' Blues 07:26(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB906C5DE6609F622ED9BF24F146CB878C766A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014679   (775857) от 09.05.2016
-
-Tim Tamashiro - Ai [Love] (2002) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagination    03:06
-02. The Best Is Yet To Come    03:06
-03. My Romance    04:03
-04. Nice 'n Easy    02:53(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB224B4DBA1F1697C27B031EC8DEF0F2726D7460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014970   (775844) от 09.05.2016
-
-The Sonny Moorman Group - Lucky 13 (2014) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ol' Gunslinger (03:56)
-02. Deal With The Devil (05:06)
-03. You Quit On Me, Baby (06:22)
-04. Go Updated (05:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1D04F885BA9FDC326525EA11CD1D2BE3016E2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

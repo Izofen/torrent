@@ -1,25 +1,25 @@
-###  Публикация: 1777382   (71053) от 05.02.2025
+###  Публикация: 1758773   (38272) от 04.11.2024
 
-Leaf Hound - Once Bitten (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Mad Dillon's Deputies - Biting Dynamite (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Male Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71053.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Burn The House Down (05:02)
- 02 - Cinderella (04:20)
- 03 - Broken Dreams (03:44)
- 04 - Chain Gang (04:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:20
+01. Return Of The Dynamite Biters (1:35)
+02. Friendly Fire (4:27)
+03. Creatures Of The Night (4:15)
+04. Underground Shuffle (5:38)(   Читать дальше...   )Жанр: Hard Rock, Male Female VocalПродолжительность: 01:02:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D1E87C5756F0E8DD5ED62E4B3C59489424973B5
+magnet:?xt=urn:btih:B0B65E89FA9250BE30445721A1911AB09C5F53BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777929   (70980) от 07.02.2025
+###  Публикация: 1758796   (38271) от 04.11.2024
 
-Marko Hietala - Roses From The Deep (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Daylight Robbery - Decree Absolute (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70980.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Frankenstein’s Wife
-02. Left On Mars
-03. Proud Whore
-04. Two Soldiers(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:18
+01. The Art of War
+02. Scarred
+03. Godz
+04. Liar(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B1ADC58451F4536D895B237FCD4D11A6406AE05
+magnet:?xt=urn:btih:D6F01779C1652F65A3397EBEC2C4FE9E4429F3C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778347   (70882) от 08.02.2025
+###  Публикация: 1760475   (37285) от 14.11.2024
 
-Stud - Under Silver Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Circles Of Illusion - Lionheart (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70882.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Bridge [00:01:27]
-02. If Living is so Easy [00:04:35]
-03. Spell of Emotion [00:04:22]
-04. Alone [00:04:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:12
+01. Bridge to America
+02. Raise the Flag
+03. Ringing Bell
+04. Escape(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:50:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92142BD284D84B7C0176D6DF2A92F390FE35678D
+magnet:?xt=urn:btih:D88CA71695CA603399E88C8C33BC81234BF7A288
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780209   (70503) от 17.02.2025
+###  Публикация: 1760479   (37283) от 14.11.2024
 
-Glass Hearts Harmony Club - Misfit Love Letter (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Wildheart - Music to Survive (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock , Heavy Metal , Female vocals>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70503.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Dizzy Parade (5:58)
-02.  Bit By A Black Cat (4:48)
-03.  When The Daylight Ends (4:09)
-04.  Misfit Blues (5:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:16
+01. All About You (04:35)
+02. Time to Move (04:12)
+03. Boss Ass (05:02)
+04. Music to Survive (04:51)(   Читать дальше...   )Жанр: Hard Rock , Heavy Metal , Female vocalsПродолжительность: 00:59:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6443B54EB9F31BA9F499E8177C1F01A2B953CFB
+magnet:?xt=urn:btih:1AB830A724D36865FB22580AC614E610297FD2AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780228   (70480) от 17.02.2025
+###  Публикация: 1760519   (37282) от 14.11.2024
 
-R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Voltage Arc - Sextasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70480.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Get It Together (2:39)
-02.  Barbara (4:01)
-03.  A Heart in Winter (3:33)
-04.  Out of Line (2:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:01
+01. Rockin' Man
+02. Make It To The Top
+03. I Don't Know You
+04. Throw It All Away(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:56:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F12B5D819231878E35BDB2935023981705DA4CC4
+magnet:?xt=urn:btih:7A34B640C4CCE5B07D5D664403A5FB0A0E82727C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780618   (70396) от 19.02.2025
+###  Публикация: 1760612   (37181) от 15.11.2024
 
-Crazy Lixx - Thrill of the Bite (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal, Hair Metal>
+Voodoo Circle - Hail To The King (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70396.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Crazy Lixx — шведская хэви-метал/хэйр-метал/хард-рок-группа из Malmö, Sweden, образованная в 2002 году. Благодаря их энергичным выступлениям, запоминающиемся припевам и непримиримым стремлением к возрождению звучания глэм-метала конца 80-х, Crazy Lixx стала флагманом новой волны шведского хард-рок-метала. Группа черпает вдохновение в таких группах, как Def Leppard, (   Читать дальше...   )01. Highway Hurricane (3:35)
-02. Who Said Rock N' Roll Is Dead (3:01)
-03. Little Miss Dangerous (6:09)
-04. Call of the Wild (4:13)(   Читать дальше...   )Жанр: Hard Rock, Glam Metal, Hair MetalПродолжительность: 00:41:17
+01. Lay Down Your Lovin'
+02. Let It Rock
+03. On The Edge
+04. Sweet Little Sister(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:07:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE72BBCCDF28E070241D72D3D4993E9DB444843E
+magnet:?xt=urn:btih:9C821B0D5A534D853FA16BD8018BA6525F3511CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781808   (70153) от 25.02.2025
+###  Публикация: 1761115   (36858) от 18.11.2024
 
-Francesco Marras - Out Of The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+Stone Whiskey - Scream For Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70153.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carnival of Darkness (04:02)
- 02. Out of the Fire (05:06)
- 03. Lost Souls (04:08)
- 04. Through my Veins (04:30)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:14
+01. She's A Live Wire 04:40
+02. Sweet Elixir 04:22
+03. Scream For Rock 03:50
+04. Nowhere To Go 06:45(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8861DE5DD04595555EEC16ECD73D6087CA1D41E
+magnet:?xt=urn:btih:1D347C7ADB6FC68BC818238C056D0952350EB30D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782755   (69951) от 02.03.2025
+###  Публикация: 1761317   (36755) от 19.11.2024
 
-David Lee Roth - The Warner Recordings 1985–1994 (2025) 5xCD, Reissue, Compilation, Limited Edition, Remastered, 2025, Warner Records [FLAC|Lossless|image + .cue] <Hard Rock>
+Grand Funk Railroad - Grand Funk (1969) Reissue, 2002, Toshiba [FLAC|Lossless|tracks + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69951.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Limited Edition 5-CD Box Set! THE WARNER RECORDINGS 1985-1994 годов, вышедший на лейбле Rhino 21 февраля, впервые включает в себя первые пять сольных релизов, записанных членом Rock and Roll Hall of Fame и ведущим вокалистом Van Halen в одном обширном сборнике. 40 лет назад, 28 января 1985 года, David Lee Roth официально дебютировал как сольный исполнитель с (   Читать дальше...   )CD1 - Crazy From The Heat:
-1. Easy Street (2025 Remaster) (3:49)
-2. Just a Gigolo / I Ain't Got Nobody (2025 Remaster) (4:48)
-3. California Girls (2025 Remaster) (2:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:16:24
+01. Got This Thing On The Move
+02. Please Don't Worry
+03. High Falootin' Woman
+04. Mr. Limousine Driver(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C964F996B3CA7AB5C870888684B13EFC3051896
+magnet:?xt=urn:btih:0E32232CFA7DC1B82F5CBC538010E01B6BBA145E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782991   (69863) от 03.03.2025
+###  Публикация: 219796   (36656) от 21.11.2024
 
-Genghis Rex - Behold The Strange Land (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Rainbow - Forever Gold  2CD (1999) [APE|Lossless]<Classic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69863.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Run Brother Run (4:11)
-02.  Wow! Signal (3:31)
-03.  Labareda (participação de Oswaldo Montenegro) (3:33)
-04.  Cloudy Winter Dome (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:07
+CD1
+01. Catch The Rainbow
+02. The Temple Of The King
+03. Self Portrait (From 'Ritchie Blackmore's')(   Читать дальше...   )Жанр: Classic RockПродолжительность: 02:31:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:949009432D8ABC61FD23ABB69BCCA66F434FCC90
+magnet:?xt=urn:btih:38D8F402A5EE2186D31587511702BEE12C33F837
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784015   (69701) от 08.03.2025
+###  Публикация: 459860   (36646) от 21.11.2024
 
-Disturbed - The Sickness (2000) Reissue, 2025, Reprise Records, 25th Anniversary Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+Rainbow - Ballads & Instrumentals (1995) [Rem.2014] [FLAC|Lossless]<Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69701.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD One - Original Album:
-01. Voices
-02. The Game
-03. Stupify(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:32:27
+01. The Temple Of The King (4:42)
+02. Catch The Rainbow (6:32)
+03. Self Portrait (3:13)
+04. Rainbow Eyes (7:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 71:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF6C26E0F1E8F203667C36499F4D6EAF51D8BBE1
+magnet:?xt=urn:btih:EB11DC68EB026A359382C7589BFE535A31E234D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784001   (69679) от 08.03.2025
+###  Публикация: 297792   (36617) от 21.11.2024
 
-Dokken - Original Album Series (2009) Box Set, Reissue, Compilation, 2009, Rhino Records [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+Rainbow - Colour Collection (2007) [FLAC|Lossless]<Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69679.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Breaking The Chains:
-01. Breaking The Chains
-02. In The Middle
-03. Felony(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 04:14:05
+01. All Night Long - 03:54
+02. Catch The Rainbow - 06:39
+03. Since You've Been Gone - 03:20
+04. I Surrender - 04:04(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:17:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20A25D6608682D61C2ED503BB6E213BE4AD69881
+magnet:?xt=urn:btih:5E392111359DAF635D6444076983121C2CA64443
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785056   (69444) от 14.03.2025
+###  Публикация: 1761644   (36564) от 21.11.2024
 
-Eisbrecher - Kaltfront°! (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Goth Rock>
+Wrecked - Sleeping with Knives (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69444.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Minus 90 Grad 01:32
-02. Everything is wunderbar 03:29
-03. Kaltfront 04:16
-04. Auf die Zunge (feat. Schattenmann) 03:41(   Читать дальше...   )Жанр: Hard Rock, Goth RockПродолжительность: 00:51:32
+01 - Venom (04:50)
+ 02 - Not Today (03:49)
+ 03 - Sleeping with Knives (05:24)
+ 04 - Bleed (04:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEF088C2C08D7E6ECB7037224C8B1C2441C15B8A
+magnet:?xt=urn:btih:DFA1702D4DC6EAB925C3FBFD20D0A674BBD4AFD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785650   (69192) от 17.03.2025
+###  Публикация: 1761481   (36562) от 21.11.2024
 
-AC/DC - The Fly Is Rockin' (2010) 2 x CD, Limited Edition, Numbered [FLAC|Lossless|image + .cue] <Hard Rock>
+Saturday Night Satan - All Things Black (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69192.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Live In Austin, Texas – October The 11th, 1985:
-01. Fly On The Wall
-02. Back In Black
-03. Shake Your Foundations(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:25:59
+01. 5AM [00:03:26]
+02. Rule With Fire [00:04:44]
+03. Devil in Disguise [00:04:29]
+04. All Things Black [00:05:29](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD80CFAD344669A67A62CEB064A8BE57D7AA1102
+magnet:?xt=urn:btih:353B08350C3C2D4D3A0558CB3168B8701F555919
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786010   (69140) от 18.03.2025
+###  Публикация: 1761859   (36489) от 22.11.2024
 
-Stryper - Fallen (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+Crossbone Skully - Evil World Machine (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69140.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yahweh
-02. Fallen
-03. Pride
-04. Big Screen Lies(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:19
+01. Evil World Machine
+02. The Boom Went the Boom (feat. Phil Collen of Def Leppard)
+03. Money Sex or God
+04. Flip The Bird(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4B4184C332B75A87363D905EEADFBEA15723C57
+magnet:?xt=urn:btih:B2E9F1690B90538E7AC16C791D6E3414C959FA82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786635   (68971) от 21.03.2025
+###  Публикация: 1294346   (36399) от 23.11.2024
 
-Various - Only UFO Can Rock Me - A Tribute To UFO (2001) Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
+Rainbow - De Luxe Collection (2002) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68971.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Long Gone (Vocals – Doogie White) 05:24
-02. We Belong To The Night (Vocals – Mick White) 03:52
-03. Only You Can Rock Me (Vocals – Nicky Moore) 04:08
-04. Too Hot To Handle (Vocals – Doogie White) 03:37(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:35
+01. Can't let you go (4:21)
+02. Street of dreams (4:26)
+03. Gates of Babylon (6:46)
+04. Lost in Hollywood (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DBFC833019B63E48B0B31589E8590A15E3734ED
+magnet:?xt=urn:btih:EACD6549177BCB2ADA0D32CBDF36A5173CF47EA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787068   (68865) от 23.03.2025
+###  Публикация: 1762832   (35958) от 27.11.2024
 
-Def Leppard - Just Like 73 (Tom Morello Version) (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+Uriah Heep - Living The Dream (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68865.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Just Like 73
-Featuring – Tom Morello
-3:44
-2. Just Like 73 (Alternate Version) 3:29Жанр: Hard RockПродолжительность: 00:07:13
+01. Grazed by Heaven 4:31
+02. Living the Dream 5:34
+03. Take Away My Soul 6:13
+04. Knocking at My Door 4:58(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28FD3C70AE54CA5C6141A58B3C67D45900660F29
+magnet:?xt=urn:btih:78496E9C9A2D985B5887CBB6541450E8CBFF6715
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787056   (68863) от 23.03.2025
+###  Публикация: 1762785   (35928) от 27.11.2024
 
-Gotthard - Stereo Crush (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Black Whiskey - Last Temptation (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68863.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. AI & I (2:53)
-02. Thunder & Lightning (3:38)
-03. Rusty Rose (4:14)
-04. Burning Bridges (3:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:45
+01 - Riding On The Wind (03:58)
+ 02 - Break Me (02:16)
+ 03 - Eat You Alive (03:49)
+ 04 - Down (Devils Highway) (03:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC782A898C2395BFD54756F364E2F0AF2E88C6AA
+magnet:?xt=urn:btih:3611A735B3521CE0B60D0B84F58005DC797FEE0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787018   (68851) от 23.03.2025
+###  Публикация: 208821   (35575) от 01.12.2024
 
-Balance - 2 Albums (1981, 1982) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, AOR>
+Cinderella - Live At The Mohegan Sun (2010) [FLAC|Lossless]<Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68851.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In for the Count [00:04:53]
-02. Is It Over (Album Version) [00:03:06]
-03. Slow Motion (Album Version) [00:04:26]
-04. Undercover Man (Album Version) [00:04:29](   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 2 CD, 01:19:31
+1. Intro (1:36)
+2. Night Songs (3:16)
+3. The Last Mile (3:16)
+4. Somebody Save Me (3:40)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:268729C89E22AD9056B0F854B77968D4B5ED2A48
+magnet:?xt=urn:btih:769F91094751B3BD8B6284B071006D01ABDE6D59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788666   (68478) от 31.03.2025
+###  Публикация: 407819   (35568) от 01.12.2024
 
-My Design Immortal - Ten Scars Deep (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Brian Johnson - Brian Johnson & Geordie & AC/DC (2007) [FLAC|Lossless]<Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68478.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  When I See Your Face (3:27)
-02.  Can't Be Just Like Them (3:14)
-03.  Those Three Words (3:50)
-04.  Blame (3:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:39
+01. Black Cat
+02. Natural Born Loser
+03. Ain't It Just Like A Woman
+04. Strange Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2208DAC0E1A93611BC6D449E8151A5D95193C05
+magnet:?xt=urn:btih:7EAEF15921D6FC921579631ADD39F98B562B2381
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788521   (68474) от 31.03.2025
+###  Публикация: 201073   (35550) от 01.12.2024
 
-Nightstalker - Return From The Point of No Return (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Hard Rock, Rock, Stoner Rock>
+No To Co - So What (1970) [FLAC|Lossless]<Folk-Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68474.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Dust [2:44]
-02 - Heavy Trippin' [4:21]
-03 - Uncut [5:23]
-04 - Return From The Point of No Return [4:22](   Читать дальше...   )Жанр: Stoner Metal, Hard Rock, Rock, Stoner RockПродолжительность: 00:38:16
+01 Dark-Blue Water 2:47
+02 Market-Place Rooster 2:32
+03 So Far Away From You 3:13
+04 If You Want Me 1:31(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:40:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0280F5C621E5F74BF19D44EFA67F7E2DD7DD64E5
+magnet:?xt=urn:btih:CB199C692831FC9AC00AD6BC1059F04F2724A2BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790990   (67966) от 11.04.2025
+###  Публикация: 208974   (35529) от 01.12.2024
 
-Haven - Turn It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Quireboys - HalfPenny Dancer (2009) [FLAC|Lossless]<rock, glam>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67966.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ready to Rock (3:09)
-02. Over the Edge (5:11)
-03. Turn It Up (3:42)
-04. Rebel of the World (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:30
+01. There She Goes Again
+02. Devil Of A Man
+03. Love To Love
+04. Mona Lisa Smiled(   Читать дальше...   )Жанр: rock, glamПродолжительность: 00:51:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AC4FB70EE011B3F701D6918C2F17C90CC4AEE87
+magnet:?xt=urn:btih:7EFEA90E8E411519D9F9DD1F08A4C10A594C17F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791303   (67867) от 13.04.2025
+###  Публикация: 1764694   (34803) от 08.12.2024
 
-Smith/Kotzen - Black Light / White Noise (2025) SHM-CD, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+House Of Lords - Full Tilt Overdrive (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67867.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34803.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Muddy Water
-02. White Noise
-03. Black Light
-04. Darkside(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:05
+01. Crowded Room (4:47)
+02. Bad Karma (4:12)
+03. Cry Of The Wicked (5:09)
+04. Full Tilt Overdrive (4:57)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:00:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C111FF40D1C55EDF7E5FA10A8A7719C398546A71
+magnet:?xt=urn:btih:03267E1BA532BB61193C061A7623E4B50B48FC16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792392   (67658) от 19.04.2025
+###  Публикация: 1765427   (34418) от 12.12.2024
 
-The Quill - In Triumph (2006) Remastered and Expanded Edition, 2025, Metalville Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Stevie DeAcutis - Torn from the Pages (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67658.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Keep the Circle Whole [00:03:34]
-02. Yeah [00:03:38]
-03. Slave Master [00:05:02]
-04. Broken Man [00:03:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:09
+01. Final Resting Place (4:23)
+02. Wake-up Call (4:05)
+03. Your Time Has Run Out (4:04)
+04. Strung Out (6:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F1E6272288631BD2B9927E7DD18B26F40DC9C98
+magnet:?xt=urn:btih:4D558826798C7196C1CBE5F91593906B141280BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792493   (67599) от 20.04.2025
+###  Публикация: 1765410   (34391) от 12.12.2024
 
-Quartz - Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
+Illogica - Underdogs in the Limelight (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67599.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Insomnia [00:04:05]
-02. Come Hell Or High Water [00:03:59]
-03. Give It All You've Got [00:03:54]
-04. Burn In Hell [00:03:51](   Читать дальше...   )Жанр: Hard-Rock, Heavy-MetalПродолжительность: 00:49:03
+01. The Land of Milk and Honey (4:15)
+02. Reef Summer (5:02)
+03. Scars (3:43)
+04. Split (4:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AE7E25BB36F2F6991BDCA0C879DA4A507B4A9B5
+magnet:?xt=urn:btih:C9D98C148FBC26410BE7785B05410B18A8923BB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797506   (66813) от 16.05.2025
+###  Публикация: 1765393   (34390) от 12.12.2024
 
-Soul Seller - Fight Against Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Wolverine Leipzig - Machine Messiah (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66813.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One Wasted Paradise (05:08)
- 02. The Sound Of The Last Survivor (04:18)
- 03. Fight Against Time (04:44)
- 04. Autumn Call (04:56)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:20
+01. We Of the Never Never (03:51)
+02. Call the Ball (04:36)
+03. Grape & the Grain (04:22)
+04. Just Saying (04:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A94FA2C40EFD03A08100AD9A65A62A53A859C75
+magnet:?xt=urn:btih:DD0D081403CBF4EC56E886B3AB67AC1452319FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,28 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798608   (66634) от 22.05.2025
+###  Публикация: 1765408   (34382) от 12.12.2024
 
-Sum Of All - Time to leave (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Erika - United States Of Erika (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66634.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Sitting Ducks (04:33)
- 02 - Lost And Found (04:11)
- 03 - My fears (04:17)
- 04 - Do Talk To Me (03:53)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:17
+01. Northern  Comfort (1:47)
+02. Praise  The Loud (3:01)
+03. Chaq Mol - G-String Drop (3:43)
+04. Ralf Gyllenhammar - Road To Nowhere (3:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2975DC4C2BBDFFA3619105C9D085F6D3339C81A8
+magnet:?xt=urn:btih:E1D87B7E7E7F5DE77AB84266C9B3E5AB68533325
 ```
 
 https://mybot314.ru/tekegram_catalog/

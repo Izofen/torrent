@@ -1,3 +1,32 @@
+###  Публикация: 700472   (482883) от 15.09.2013
+
+Supertramp - Breakfast In America (1979) [FLAC 2.0 24/96|tracks (BDRip)] <Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone Hollywood (5:18)
+02. The Logical Song (4:09)
+03. Goodbye Stranger (5:48)
+04. Breakfast In America (2:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF59EF624EBDC9137534F8DD8C5CE4573633CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405509   (482866) от 30.08.2020
 
 The KMPlayer 4.2.2.43 repack by cuta (build 1) [Multi/Ru]
@@ -656,32 +685,6 @@ Omni Trio - 11 альбомов (1995-2012) [MP3|192-320 kbps] <Drum'n'Bass / Ju
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98E8022598B9CC7513225510F1B30787CF721F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405234   (482595) от 30.08.2020
-
-SamDrivers 20.8 - Сборник драйверов для Windows [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник драйверов от www.SamLab.ws для всех 32-х и 64-битных операционных систем Windows, начиная от Windows 2000 и до Windows 10 , включая серверные платформы.В качестве оболочек-установщиков, для автоопределения вашего оборудования и автоматической установки необходимых драйверов, использованы специализированные утилиты:DriverPack Solution 16.20 Plus / Drivers (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D608FC0CCF742724D9ABF6C2F66FA6AF10A3ED78
 ```
 
 https://mybot314.ru/tekegram_catalog/

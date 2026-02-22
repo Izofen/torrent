@@ -1,3 +1,90 @@
+###  Публикация: 962554   (292841) от 05.12.2015
+
+Tanita Tikaram - The Best Of Tanita Tikaram (1996) [FLAC|tracks+.cue]<Pop Rock, Soft Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twist In My Sobriety (4:51)
+02. Cathedral Song (2:52)
+03. World Outside Your Window (4:52)
+04. Good Tradition (2:51)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, BalladПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A02A022AF17693FC7008C83CC90429F31EA4CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262675   (292654) от 16.11.2018
+
+Кватро - XV лет. Часть 1 (2018) [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292654.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kyrie Eleison
+2. Скажите, девушки, подружке вашей
+3. Шум берёз
+4. Если б не было тебя(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B928B267FF11089791C9F6D3EC04F3F7F32C11BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080014   (292062) от 05.12.2016
+
+Ann Joy - Love Dance (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel Your Way Around  (5:29)
+02. Love Dance (It's Gotta Be Magic)  (8:01)
+03. You Make Me Feel Good  (3:01)
+04. Love Now, Hurt Later  (6:23)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D609D887BE8F5BCAC407CC587516A0811098751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079917   (291908) от 05.12.2016
 
 VA - The Original Maxi-Singles Collection: Disco Fox 80 Vol.6 (2016) [MP3|320 Kbps] <Euro-Disco, Synth-pop, Hi NRG>
@@ -655,93 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4541E8C09FFA96788578BEF8A4E269AF8F60BED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262929   (289925) от 18.11.2018
-
-VA - Veronica #1 Car Hits (2018) 3CD [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289925.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Robbie Williams - Let Me Entertain You
-02. Kensington - Do I Ever
-03. Rag'n'Bone Man - Human(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C9D2EE32C306E2D19A11D407337E7AF1B726F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335209   (289881) от 01.11.2019
-
-VA - Dance Anthems 2019.03 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dolls – It's A Loving Thing 2k19 (Remundo edit) (3:29)
-02. Chrizz Morisson vs Timi Kullai & AK-SWIFT – In The Middle Of The Night (Remundo Deep dub) (2:56)
-03. Dyana Dye Shkendije – Love Is The Key (Bmonde EDM remix) (4:37)
-04. Houzer & LeBons – It's My Show (extended mix) (4:02)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160C95047AEBA946C6632B3A73C2DC6B12E26306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335277   (289876) от 01.11.2019
-
-Jessica Mauboy - HILDA (2019) [MP3|320 Kbps] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blessing (3:09)
-02. Come Runnin' (3:19)
-03. Selfish (3:26)
-04. Jealous (3:28)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C797C3F8849BDAFD0BF55CE16D217BDE5E8E43EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

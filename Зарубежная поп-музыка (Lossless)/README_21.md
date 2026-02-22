@@ -1,3 +1,38 @@
+###  Публикация: 766735   (868883) от 15.03.2014
+
+George Michael - Symphonica (Deluxe Edition) (2014) /Scene/ [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Through
+ 02. My Baby Just Cares For Me
+ 03. A Different Corner
+ 04. Praying For Time
+ 05. Let Her Down Easy
+ 06. The First Time Ever I Saw Your Face
+ 07. Feeling Good
+ 08. John And Elvis Are Dead
+ 09. Roxanne
+ 10. One More Try(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2AE53C762B497EF2EFEF56D33495D4F3B8D36D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 766223   (868880) от 15.03.2014
 
 VA - NRJ Snow Hits (2014) [FLAC|Lossless|2xCD]<Pop, Dance>
@@ -742,32 +777,6 @@ Kenny G - Love Ballads (2008) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF1F0C02B545B265F701B7FB96FCCB1B6DEE0E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647007   (858451) от 22.04.2013
-
-Shania Twain - 2 альбома (1995-1998) [FLAC|Lossless]<Pop, Country-rock, Pop-rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. You're Still The OneЖанр: Pop, Country-rock, Pop-rockФормат: image+cueПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

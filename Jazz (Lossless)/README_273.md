@@ -1,32 +1,3 @@
-###  Публикация: 1581668   (237934) от 07.10.2022
-
-Diego Rivera - Indigenous (2019) 2021, Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marabi [4:22]
-02. Indigenous [5:31]
-03. The Secret Life of Plants [5:05]
-04. Sombras del Pasado [4:04](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A6CBF187E09CFA7E48A42EEACE313CEB4B34EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446184   (237926) от 08.02.2021
 
 Django Reinhardt - 1934 - 1935 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
@@ -745,6 +716,35 @@ Relaxing Piano Crew - Jazz Ballad Piano Played in a Hideaway Restaurant (2022) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67FD5081D56F77078B2CAE5D7F24EEFFAF3AE838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607564   (237192) от 27.01.2023
+
+Fats Waller - 1936 - 1937 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallelujah! Things Look Rosy Now (vocal) [2:49]
+02. Hallelujah! Things Look Rosy Now (instrumental) [2:48]
+03. 'Tain't Good (Like a Nickel Made of Wood) (vocal) [2:31]
+04. 'Tain't Good (Like a Nickel Made of Wood) (instrumental) [2:30](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347B0262B4E8CBD748F2D2E0BD919ACE61FA00DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

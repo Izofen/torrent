@@ -1,3 +1,38 @@
+###  Публикация: 763983   (884004) от 07.03.2014
+
+Lillian Axe - Waters Rising (2007) [APE|Lossless]<Hard'n'Heavy>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Waters Rising [03:55]
+02.  Antarctica [04:10]
+03.  Become A Monster [05:08]
+04.  Quarantine [04:11]
+05.  I Have To Die, Goodbye [06:54]
+06.  Fear Of TIme [05:36]
+07.  Until The End Of The World [05:00]
+08.  Fields Of Yesterday [08:33]
+09.  Thirst [05:19]
+10.  The 2nd Of May [04:57](   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC31AEAD1B1DB6DBFF4099CAB56930604DBC422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372909   (884002) от 04.04.2020
 
 iShowU Studio 2 v2.2.2 [En]
@@ -713,41 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 298244   (883919) от 20.02.2011
-
-VA - Clubbers Guide 2011 Mixed By Jean Elan (19.02.2011) [MP3|~200 kbps]<House/Disco House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Elan - Clubbers Guide 2011 Intro
- 02. Armin Van Buuren Feat Christian Burns - This Light Between Us (Dabruck And Klein Remix)
- 03. EDX - Szeplo
- 04. Cosmic Gate - Fire Wire (Dimitri Vegas And Like Mike Remix)
- 05. Eric Prydz - Niton (The Reason)(Extended Mix)
- 06. Moguai - We Want Your Soul (Thomas Gold Remix)
- 07. Jean Elan - Flashed
- 08. Amloop - Caminhando E Cantando (Deniz Koyu Remix)
- 09. Dimitri Vegas Like Mike Dada Life And Tara McDonald - Tomorrow (Dabruck And Klein Remix)
- 10. Nadia Ali - Rapture (Avicii New Generation Extended Mix)(   Читать дальше...   )Жанр: House/Disco HouseПродолжительность: 03:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC24CC74238A0E25AC894EA8001FF9124732D06E
 ```
 
 https://mybot314.ru/tekegram_catalog/

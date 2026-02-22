@@ -1,3 +1,38 @@
+###  Публикация: 559933   (406224) от 17.10.2012
+
+VA - dBridge & InstraMental - Fabriclive 50 (2010) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riya - Seems Like
+02. Instra-mental - From the Start
+03. Stray - Pushed
+04. Dan Habarnam - Nu Este Roz
+05. Vaccine - Ochre
+06. ASC - Starkwood (Consequence Remix)
+07. Consequence - Lover's Shell
+08. Distance - Sky's Alight (Dub)
+09. Alix Perez - Self Control
+10. Genotype - Distorted Dreams / Meleka - Go (Accapella) - Meleka(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EF509AB2D33C862E7580CF0509FFCA6C653105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559928   (406222) от 17.10.2012
 
 VA - Danny Wheeler Presents - The Brazil Project (2010) [MP3|128 - 320 кб/с]<Drum and Bass>
@@ -709,32 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:461EACA4E2BDC5AC3048A2BFB71D486945C5823F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560003   (406130) от 17.10.2012
-
-[Wallpapers] Обои для рабочего стола - Природа [1280x960-5616x3744] [147шт.] (2012) JPG
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка замечательных широкоформатных обоев,для рабочего стола,которые будут радовать ваш глаз!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8054450E18DE2ABF7055611F3F223ABA61435687
 ```
 
 https://mybot314.ru/tekegram_catalog/

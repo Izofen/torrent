@@ -1,3 +1,32 @@
+###  Публикация: 1268538   (226615) от 11.12.2018
+
+Harold Land - Xocia's Dance (Sue-sha) (1981) 1990, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_226615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Mood [8:20]
+02. Daisy Forever [9:21]
+03. Xocia's Dance (Sue-sha's Dance) [4:51]
+04. Ah, I See [10:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C3C0F89EFF17620440499802C19FE8F9E71DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268610   (226602) от 11.12.2018
 
 Rosemary Clooney And Duke Ellington - Blue Rose (1956) 1991, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -728,41 +757,6 @@ Erika Paul - Jazz Just For Kids (2021) Jazz Q [FLAC|Lossless|tracks + .cue] <Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A790F36904E1547F33996659E0C4C2E53E6B8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736598   (225153) от 20.12.2013
-
-House of Dues - Cross That Line (2013) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Addicted 04:16
-02. Treble and Bass 04:35
-03. Left Lane 04:47
-04. Cross That Line 05:32
-05. Ransom:the Ballad of Billy Hobbs 05:02
-06. Space Is the Ra Place 04:14
-07. It's You 05:12
-08. Comfortable Shoes 03:19
-09. Dues Cruise 07:38
-10. Ain't Over Yet 07:33(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15FC8BB183636A02BE1450AEB372F174C6777D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

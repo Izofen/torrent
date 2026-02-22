@@ -1,3 +1,177 @@
+###  Публикация: 1654833   (194016) от 22.08.2023
+
+Steely Dan - Can't Buy A Thrill (1972) SACD, Reissue, Remastered, 2023, Analogue Productions [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_194016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Do It Again 5:56
+Soloist - Denny Dias, Donald Fagen / Vocals - Donald Fagen
+02 - Dirty Work 3:08
+Soloist, Saxophone - Jerome Richardson / Vocals - David Palmer(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA5B3A63F2CB9C30A64430FD3017FC38B2EE676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549737   (193512) от 01.09.2023
+
+Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_193512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dee Snider — американский рок-музыкант. Наибольшую известность получил как вокалист и фронтмен глэм-метал группы «Twisted Sister». Также известен как радиоведущий, актёр, сценарист, композитор, писатель.2000 - Never Let The Bastards Wear You Down
+2012 - Dee Does Broadway
+2016 - We Are The Ones
+2018 - For The Love Of MetalЖанр: Heavy Metal/Hard RockПродолжительность: 09:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5808E14F07B33EA6095651708607AEE75A80E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828332   (193427) от 24.10.2025
+
+Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garmarna — шведская фолк-рок-группа, основанная в 1990 году.1993 - Garmarna
+1994 - Vittrad
+1996 - Guds speleman
+1999 - VedergallningenЖанр: Folk RockПродолжительность: 05:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3339C8A594217714A1D05338E25254EFEA462313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548510   (193411) от 24.10.2025
+
+Amorphis - Дискография (26 releases) (1991-2025) hand made [restored, declipped] [FLAC|44/16.1|tracks +.cue] <Progressive/Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_193411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amorphis — финская англоязычная метал-группа. Группа была основана в 1990 году Яном Рехбергером и Эсой Холопайненом. Группа неоднократно меняла звучание, и её музыка не укладывается в рамки одного жанра. Её первый альбом выдержан в стиле дэт-метал. Начиная со второго альбома группа соединила финскую народную музыку с дэт-дум-метал. На более поздних записях появилось (   Читать дальше...   )1992 - The Karelian Isthmus
+1994 - Tales from the Thousand
+1996 - Elegy
+1999 - Tuonela(   Читать дальше...   )Жанр: Progressive Metal, Melodic Death Metal, Folk MetalПродолжительность: 23:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8F9435EBC069394420658E09378068B6A0A680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586896   (193257) от 29.10.2022
+
+VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. «Здравствуй, Песня» - Птица Счастья
+02. Эстрадно-симфонический Оркестр Центрального Телевидения И Всесоюзного Радио - День В Сентябре
+03. Алла Пугачева, «Аракс» - Скажи Мне Что-нибудь
+04. Ленинградский Концертный Оркестр - Утро (из к/ф Служебный Роман)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858BFC12A76C6E60593D994E5AA0078D63576A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587012   (193218) от 29.10.2022
+
+Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death/Doom Metal, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tiamat — шведская группа. Существует с 1989 года, её основатель, вокалист, ритм-гитарист и автор песен Юхан Эдлунд остаётся её единственным постоянным участником. На ранних альбомах Tiamat исполняли дум/дэт-метал с гроулингом, но начиная с альбома Wildhoney 1994 года группа постепенно перешла к прославившему её более мелодичному жанру готик-метал с влиянием психоделического (   Читать дальше...   )1990 - Sumerian Cry
+1991 - The Astral Sleep
+1992 - Clouds
+1994 - WildhoneyЖанр: Death/Doom Metal; Gothic MetalПродолжительность: 11:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F942100F8234A7305D9FEF80789D38C2726AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586584   (193169) от 29.10.2022
 
 Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip)]<Art Rock>
@@ -571,180 +745,6 @@ A4 Poet and Peasant (Suppe)(   Читать дальше...   )Жанр: Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66DAF80379FA5C28AD7548BBFE7D03219D9E6E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658504   (191294) от 08.09.2023
-
-Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various - "Party Time" (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Latin, Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191294.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mambo Jambo (Que rico el mambo)/Mambo No. 8
-A2 Siboney/Maria-La-O
-A3 Ay Mama Ines (Mama Ines)/Carioca
-A4 Don Juan/Yira Yira(   Читать дальше...   )Жанр: Latin, Jazz, Easy ListeningПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5279328D692FF53B1057A0E3BF3C053F93BE3F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658510   (191222) от 08.09.2023
-
-The Chemical Brothers - For That Beautiful Feeling (2023) [FLAC 24/44.1|WEB-DL|tracks] <Big Beat, IDM, Electropop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:09]
-02. Live Again [00:05:09]
-03. No Reason [00:04:52]
-04. Goodbye [00:05:49](   Читать дальше...   )Жанр: Big Beat, IDM, ElectropopПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CDD7FB0336E06AC4EB91D18142BE4C84EC1015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012354   (191028) от 06.11.2022
-
-Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes The Nights
-02. Got To Get You Into My Life
-03. Rain
-04. Tell All The World About You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658410   (190972) от 09.09.2023
-
-OOMPH! - Richter und Henker (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial Metal, Neue Deutsche Härte>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wem die Stunde schlägt [00:05:04]
-02. Richter und Henker [00:04:37]
-03. Soll das Liebe sein? [00:04:11]
-04. Nur ein Mensch [00:04:14](   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche HärteПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68F2FEB897CB57B7F3D3E5AA91EB2A8C6FFF96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658727   (190968) от 09.09.2023
-
-Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190968.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Remember
-A2 Drivin' Drivin'
-A3 U Can't Stand It
-A4 Looser(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059507   (190749) от 07.11.2022
-
-George Benson - Tell It Like It Is (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Funk, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190749.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Soul Limbo
-A2 Are You Happy?
-A3 Tell It Like It Is
-A4 Land Of 1000 Dances(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F901F4E26586C0E9AA9BDB3AA95AC0BAEC1D2340
 ```
 
 https://mybot314.ru/tekegram_catalog/

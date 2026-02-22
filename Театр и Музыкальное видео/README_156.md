@@ -1,73 +1,3 @@
-###  Публикация: 452021   (75999) от 13.02.2012
-
-U2 - Live at Glastonbury Festival (2011) HDTVRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление группы U2 на фестивале Glastonbury Festival of Contemporary Performing Arts 2011.Жанр: Rock
-1. Even Better Than the Real Thing (Remix version)
-2. The Fly
-3. Mysterious Ways (with "Independent Women" snippet)
-4. Until the End of the World
-5. One
-6. Where the Streets Have No Name (with "Jerusalem" intro)
-7. I Will Follow
-8. I Still Haven't Found What I'm Looking For (with "Movin' On Up" snippet)
-9. Stay (Faraway, So Close!)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451705   (75982) от 13.02.2012
-
-Amy Winehouse: I Told You I Was Trouble - Live In London (2007/2008) [1080i] Blu-ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Снятый на Sheperd's Bush Empire, певица и ее группа исполнит песни с обоих ее дебютный альбом "Frank" и международный прорыв "Back To Black". За шестьдесят минут Время работы Уайнхаус также охватывает классиков, таких как "Валери" Zuton и "Monkey Man" в Maytals.Live From Shepherd's Bush Empire. London 2007
-01. Addicted
-02. Just Friends
-03. Cherry
-04. Back To Black
-05. Wake Up Alone
-06. Tears Dry On Their Own
-07. He Can Only Hold Her
-08. F*** Me Pumps
-09. Some Unholy War(   Читать дальше...   )Жанр: Jazz, Soul, Rhythm & BluesПродолжительность: 01:06:27 + 0:51:35 (bonus live) + 00:46:27 (documentary)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 451836   (75958) от 13.02.2012
 
 Катя Самбука feat. DJ GRIN - В России Я! (Uncensored) (2010) WEBRip 720p
@@ -754,6 +684,76 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4828158253396996019061962F6FA793B3D0ABFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448077   (74771) от 07.02.2012
+
+Nirvana: Live at the Paramount (1991/2011) [1080p] BDRemux
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Выпуск этого диска приурочен к 20-летию альбома «Nevermind». Легендарный концерт был записан в родном городе группы, в Сиэтле, 31 октября 1991 года, запечатлив их на ранних стадиях восхождения, впоследствии ставшими одной из самых значимых групп своего поколения... NIRVANA - пожалуй последняя группа, столь сильно повлиявшая на рок-музыку, и сделавшая музыкальное направление "гранж" (grunge) голосом целого поколения. Во главе с её лидером Куртом Кобейном (Kurt Cobain) группа добилась настоящего успеха в конце 1991-го года благодаря выходу своего второго альбома "Nevermind", который уже в первые 4 месяца стал трижды платиновым...01. Jesus Doesn't Want Me For A Sunbeam
+02. Aneurysm
+03. Drain You
+04. School
+05. Floyd The Barber
+06. Smells Like Teen Spirit
+07. About A Girl
+08. Polly
+09. Breed
+10. Sliver(   Читать дальше...   )Жанр: Grunge, Video Live ConcertПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448366   (74732) от 07.02.2012
+
+Super Mix Зарубежных Видео Клипов (2012) (720p)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Alexandra Stan - Bittersweet (LIVE) 720p (2:47)
+2. Avril Lavigne - What The Hell (3:45)
+3. Azuro Feat. Elly - Toca Me (Dan Winter Radio Edit) 720p (4:09)
+4. Blero feat Astrit Stafaj - Summer Love (3:19)
+5. Britney Spears - Sweet Dreams (The Circus Tour Video) 720p (2:53)
+6. Cascada - Au Revoir 720p (3:00)
+7. Colina - Farben 720p (3:13)
+8. Dada Life - Kick Out The Epic Motherf ker (2:50)
+9. DJ M.E.G. ft. Demirra - Freeworld (4:20)
+10. E-Partment feat. Kandy - Hang On 720p (3:04)Жанр: PopФормат: mp4 (AVC-H264)Продолжительность: 04:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94AB3066D8C2E35DC48417D8DC6AEA43F90D788
 ```
 
 https://mybot314.ru/tekegram_catalog/

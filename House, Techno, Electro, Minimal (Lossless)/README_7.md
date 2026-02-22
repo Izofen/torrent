@@ -1,3 +1,65 @@
+###  Публикация: 603418   (995891) от 19.01.2013
+
+Dusky - Stick By This (2011) [FLAC|Lossless]<Progressive House, House, Downtempo, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Silence Never Heard (2:53)
+02. - Lost In You (feat. Janai) (5:15)
+03. - Stick By This (5:51)
+04. - Plastique (4:12)
+05. - I'm Running (feat. Soloman) (5:44)
+06. - Falling (7:00)
+07. - Grain (4:06)
+08. - Lost Highway (6:47)
+09. - Mr Miyagi (4:51)
+10. - Thoughts & Motions (4:40)(   Читать дальше...   )Жанр: Progressive House, House, Downtempo, Deep HouseПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605635   (995662) от 20.01.2013
+
+David West Feat. Andreas Hermansson - Larry Mountains 54 (2005) [FLAC|Lossless]<Deep House, Progressive Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Larry Mountains 54 (Original Mix) (8:43)
+02.  Larry Mountains 54 (Inkfish Remix) (7:32)Жанр: Deep House, Progressive TranceПродолжительность: 00:16:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606654   (995263) от 21.01.2013
 
 Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
@@ -681,64 +743,6 @@ The Avener - Heaven (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:817D7E0F7A28B11B7D8AB0CD13C046F22CB6CA15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222943   (968696) от 08.02.2020
-
-Tell - Discography 6 Releases (2014-2018) [FLAC|Lossless|tracks] <Deep House, House, Downtempo, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Lost 200€ In A Club (04:23)
- 02. Cool Bananas (Stringmix) (04:45)
- 03. Starry Night (05:56)
- 04. Camel Ride (07:21)Тип издания: Web, VinylЖанр: House/Deep HouseПродолжительность: 03:00:43 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4196E94AF6C57214E1C7A3432234BD6D4E6F6BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358836   (967417) от 09.02.2020
-
-P. Laoss | P.Laoss - Discography 7 Releases (2009-2014) Hizou, Somnia, Pronounce, Instabil [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rephrasing Dub (06:07)
- 02. I Don't Care (Federsen Remix) (07:53)
- 03. I Don't Care (06:40)
- 04. Never Thought (07:11)Тип издания: CD, Web, VinylЖанр: Techno/Dub Techno/Deep House/Tech HouseПродолжительность: 03:42:03 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF8AB3544C49BD1936DC943B2D517D8CF14F6AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

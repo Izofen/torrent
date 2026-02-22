@@ -1,3 +1,32 @@
+###  Публикация: 1562918   (507130) от 11.07.2022
+
+Jim Adkins - Soul Expression (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Groove
+02. See the Light
+03. A Reason to Smile
+04. Soul Expression(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8EAE5E3D4296AE8EDDAE7A1E1C98AF3C9CDBB42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562885   (507118) от 11.07.2022
 
 Sidney Bechet - 1923 - 1936 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, New Orleans Jazz>
@@ -737,35 +766,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:743F6AB8C265D208B9EFE8F0EFD43A2B83EBA256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316640   (504235) от 28.07.2019
-
-Gene Ammons - Groove Blues & The Big Sound (1958) 2СD, 2003, Азбука Звука [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504235.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Groove Blues:
-01. Ammon Joy [13:20]
-02. Groove Blues [9:35]
-03. Jug Handle [10:12](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1E8A3F2EAC4BB14A5FB34AC3F1E73654CF0D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

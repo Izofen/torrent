@@ -1,3 +1,119 @@
+###  Публикация: 1107630   (866482) от 23.02.2017
+
+Mascha - Stardust (2017) [MP3|320 Kbps] <Pop, Folk, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust 03:22
+02. By The Cherry Tree 03:05
+03. In The Cracks 04:00
+04. The Last Mile 03:25(   Читать дальше...   )Жанр: Pop, Folk, Indie PopПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324FAE0E723FC8A658BAB0159FABCC50677CA4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497359   (866457) от 21.09.2021
+
+Michael B. Tretow (feat. ABBA) - Let's Boogie (1976) Reissue CD, 1998, Universal [MP3|320 Kbps] <Pop, Funk-Soul, Soft Rock, Pop Rock, Parody>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Michael B. Tretow - шведский музыкальный продюсер, звукорежиссер, автор песен и музыкант, родился 20 августа 1944 года в Норчепинге, Швеция. Работал с ABBA в 1972-1982 гг. Первый сольный альбом Микке, выпущенный после того, как ABBA добилась успеха на международном уровне. Этот альбом знаменит тем, что ABBA и все участники их группы представлены в ролях сайдмена (   Читать дальше...   )01. Let's Boogie (3:23)
+02. Paper Dolls (3:24)
+03. Robot Man (2:41)
+04. Bottom Coming Up (2:50)(   Читать дальше...   )Жанр: Pop, Funk-Soul, Soft Rock, Pop Rock, ParodyПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A025759A93C0370D39706DF470188F3B8774D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999160   (866386) от 21.03.2016
+
+Кай Метов - ...Где-то Далеко Идут Дожди (1997) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Где-То Далеко Идут Дожди... (Radio Version) (4:12)
+02. Дай Же Мне (4:44)
+03. Мне Так Хочется Тебя (4:07)
+04. На Сердце Грусть (4:18)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA01C5ADDFA55A70E8A807D9F04CCF9AB38C45BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375605   (865621) от 14.04.2020
+
+Leigha Moore - Ain't Your Girl No More (2020) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. See You Around [3:20]
+ 2. Ain't Your Girl No More [2:22]
+ 3. I Won't Stop You [2:53]
+ 4. Lightning Bolt [3:40]Жанр: PopПродолжительность: 00:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC601881E7B8BA9C9DBA2F5A4B5D2723EDA636B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375659   (865619) от 14.04.2020
 
 Meghan Trainor - Treat Myself (2020) Target Exclusive [FLAC|Lossless|tracks + .cue] <Pop, Hip-Hop, Reggae, Rhythm & Blues>
@@ -630,122 +746,6 @@ La Prohibida - Ruido (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32A04F2DC485D679E4138579DB84B8312F3A655D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375982   (862170) от 16.04.2020
-
-VA - Best Pop (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey (03:29)
-02. Dua Lipa - Future Nostalgia (03:04)
-03. Jess Glynne - I'll Be There (Banx & Ranx Remix) (03:07)
-04. Lizzo - Good as Hell (02:39)(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F21D365BE9912AEDA7DE8C601826A2E9E065D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375892   (862168) от 16.04.2020
-
-VA - Cay Hume And His Music Productions 1-3 (2016-2017) Remastered [FLAC|Lossless|tracks + .cue] <Euro-Disco, Synth-pop, Euro-House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cay Hume - Call Me Up (House Music Version) (6:46)
-02. Top Secret - Let It Be (12'' Version) (5:59)
-03. Jean & Jill - Blue Blue Eyes (12'' Version) (6:59)
-04. T. Ark - Count On Me (12'' Version) (6:31)(   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, Euro-HouseПродолжительность: 03:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FA7BB4AF162A5D9610E1C29708F4583112774C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375650   (861934) от 16.04.2020
-
-Леонид Агутин - Тайна склеенных страниц (2013) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пора домой (3:32)
-02. Ай-ай-ай (feat. Thomas Nevergreen) (3:39)
-03. Авторское кино (feat. Анжелика Варум) (4:49)
-04. Мама-река (5:09)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3275994AD183DC02FC7A61441D39F758A95BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376090   (861791) от 16.04.2020
-
-VA - Eurodisco 80's Maxi Hits & Remixes 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Lime - I Don't Wanna Lose You (Extended Dance Remix) (6:39)
-02. London Boys - I'm Gonna Give My Heart (Special Long Remix Version) (9:22)
-03. Fun Gang - Just for Fun (Radio Remix) (4:02)
-04. Geff Harrison - Bad New York City (Special Mix) (6:11)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83455D61BCEE90205A6DB26EBC457FCE04534768
 ```
 
 https://mybot314.ru/tekegram_catalog/

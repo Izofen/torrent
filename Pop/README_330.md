@@ -1,3 +1,90 @@
+###  Публикация: 1733901   (107209) от 01.07.2024
+
+VA - DJ Hits Vol. 124 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garcia - Vamos (Hey Chico A You Ready) (Single Mix)
+02. Snap! - Rhytm Is A Dancer ('96Remix)
+03. Sandy & Papo - Mueve Mueve (I Like Move Up) (Original Mix)
+04. X-Perience - A Neverending Dream (Radio Version)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0792BF1E6BE289BD2D65990B41B409E011E416B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734007   (107207) от 01.07.2024
+
+VA - DJ Hits Vol. 131 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spice Girls - Wannabe
+02. Peter Andre feat. Bubbler Ranx - Mysterious Girl
+03. Belinda Carlisle - In too Deep
+04. JX - There's Nothing I Won't Do(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51210676BB2E95E817BA0C0B97AE4A67336270A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734191   (107158) от 02.07.2024
+
+Billie Piper - Something Deep Inside (2020) Remaster, 2024, Virgin Records[FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something Deep Inside [00:03:42]
+02. Something Deep Inside [00:03:24]
+03. First Love [00:03:39]
+04. Makin’ My Way (Any Way That I Can) [00:04:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74489DAEFD96F68AD7581C159C60FA1E39449580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734246   (107157) от 02.07.2024
 
 VA - DJ Hits Vol. 133 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -658,93 +745,6 @@ VA - 100 Hits Pop Essentials (2017) Box Set: 5CD [OGG Vorbis|480 Kbps] <Rock, Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9B1D89B9A092C864082F3AD4C0C03980B582B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736782   (106646) от 13.07.2024
-
-Griff - Vertigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vertigo (3:00)
-02. Miss Me Too (3:02)
-03. Into The Walls (3:09)
-04. 19th Hour (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9C1249A8E8D84B4D9EE03261211FF06E260A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736524   (106611) от 14.07.2024
-
-VA - Italia - Dance Music From Italy (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Box - Ride On Time (Massive Mix) (Remix)
-02. Gino Latino - No Sorry (AC Mix)
-03. Starlight - Numero Uno (Club Mix)
-04. Kekkotronics & LTJ - Gimme The Funk(   Читать дальше...   )Жанр: Electronic, Italo HouseПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAF77A4B1B854B6D9BF1FCC221CEAAB1793AEB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736853   (106608) от 14.07.2024
-
-Mega NRG Man - Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Hi NRG, Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back On The Rocks [2024 Remastered] (3:45)
-02. Get Me Power [2024 Remastered] (3:55)
-03. Night Fever [2024 Remastered] (4:09)
-04. Grand Prix [2024 Remastered] (3:53)(   Читать дальше...   )Жанр: Hi NRG, Italo-Disco, Euro-DiscoПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3AEA28607BC69D1A554F3A754B45659E4AE886
 ```
 
 https://mybot314.ru/tekegram_catalog/

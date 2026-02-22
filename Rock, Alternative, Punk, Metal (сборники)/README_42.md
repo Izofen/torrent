@@ -1,3 +1,32 @@
+###  Публикация: 969118   (147010) от 27.12.2015
+
+VA - Рок впрок 4 (2015) [MP3|320 кб/с] <Рок, Поп-Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мара - За мной
+02. J-МОРС - Не край
+03. Ракоший Нелч - Куда уходят кумиры
+04. Pauca Verba - Ничего(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B881978F63BABC1B15E6431AD5D4C5686DC2D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519813   (145395) от 26.12.2021
 
 The BossHoss - Compilation (2021) [MP3|320 Kbps] <Rock/Country/Rockabilly>
@@ -728,35 +757,6 @@ VA - Jingle Bell Rock (2023) [MP3|320 Kbps] <Hard Rock, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85F63A21FAD2A6F5E2E4A20A434AC42A663F6DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685753   (127070) от 19.12.2023
-
-Dr. Arthur Krause - Best of (2003-2016) Compilation Album [MP3|320 Kbps] <Goth Rock, Darkwave>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Hard Hands
-02. Born in Russia
-03. Dance like Hell
-04. Deported Soul II(   Читать дальше...   )Жанр: Goth Rock, DarkwaveПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED49AE5766E566A7B1EE44112EC2BF7C3B2469E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

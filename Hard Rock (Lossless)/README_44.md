@@ -1,3 +1,32 @@
+###  Публикация: 1041507   (582475) от 09.08.2016
+
+Mike Pachelli - Tube Driven (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Intro [0:03:12.35]
+02. Stand Alone [0:05:18.47]
+03. Texas Twin [0:04:07.53]
+04. Good Day's Rain(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502FE046920491BDA01112DB90664EAF15E0F1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041491   (582464) от 09.08.2016
 
 Nick Simpers Fandango - Slipstreaming & Future Times (1999) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -728,35 +757,6 @@ Caught In Action - Devil's Tango (2022) [FLAC|Lossless|image + .cue] <Melodic Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F3AA5D5A9079783552AF2F2CB935A386765D2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555492   (568908) от 04.06.2022
-
-Ten - Here Be Monsters (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fearless (6:51)
-02. Chapter And Psalm (8:16)
-03. Hurricane (4:33)
-04. Strangers On A Distant Shore (6:03)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467990D6B84A99FFD713832466E888B63F10E77C
 ```
 
 https://mybot314.ru/tekegram_catalog/

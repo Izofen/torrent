@@ -1,3 +1,32 @@
+###  Публикация: 1312158   (536592) от 02.07.2019
+
+Зноев - Ты на меня любишь (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эрафлот (3:02)
+ 02. Тайный дневник (3:11)
+ 03. Ты на меня любишь (2:42)
+ 04. Падали (3:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066BB3F0ACE92DE0BBC3084CA19F421B720E80E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312034   (536210) от 02.07.2019
 
 The Hatters - Forte & Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ska, Punk Rock>
@@ -725,35 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2E0269C6508D3B9713918686C76F5631984F09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315063   (515987) от 17.07.2019
-
-СашБаш (Александр Башлачев) & Алиса - Чернобыльские Бобыли На Краю Света (1998/1999) 2006, Bomba-Piter (Manchester) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пляши в огне (5:59)
- 02. Время колокольчиков (4:54)
- 03. Все от винта (5:11)
- 04. Некому березу заломати (3:39)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1141CBD269ED6E78574917DE4FB87529AD17610
 ```
 
 https://mybot314.ru/tekegram_catalog/

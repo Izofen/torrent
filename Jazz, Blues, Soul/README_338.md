@@ -1,3 +1,90 @@
+###  Публикация: 1065511   (419239) от 23.10.2016
+
+Melissa Etheridge - Memphis Rock And Soul (2016) [FLAC|Lossless|tracks + .cue] <Blues Rock, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memphis Train 03:50
+02. Respect Yourself (People Stand Up) 04:25
+03. Who's Making Love 03:51
+04. Hold On, I'm Coming 03:23(   Читать дальше...   )Жанр: Blues Rock, Funk, SoulПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB2D5C45F70459524CBC8D0321D8E6ACC5100C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324954   (419002) от 12.09.2019
+
+Yusef Lateef - Live At Ronnie Scott's (1966) 2017, Gearbox Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Eyes [9:10]
+02. Blues for the Orient [7:33]
+03. Song of Delilah [10:01]
+04. Last Night Blues [5:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686A591521D66AED2C8225782EF72C1B5148D4E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324952   (418994) от 12.09.2019
+
+Catherine Hunter - Dream Maker (2006) ABC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comes Love [2:55]
+02. The Look of Love [5:23]
+03. Save Your Love for Me [5:22]
+04. Moon River [2:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC600971AEE191AAC932C509B1FF7ADE085D606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324949   (418990) от 12.09.2019
 
 Sean Jones - Im•pro•vise Never Before Seen (2014) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -672,93 +759,6 @@ Timo Gross - Heavy Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69E176C2C8025F04D90E5D559F9794BE1D3D9FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065780   (417031) от 24.10.2016
-
-VA - Brazilian Jazz - Brazilian Jazz Beach (2016) [MP3|320 Kbps] <Nu Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smokey Skies (04:31)
- 02. Wed (03:57)
- 03. Attained Dreams (03:56)
- 04. Rnb1 (03:57)(   Читать дальше...   )Жанр: Nu Jazz, LoungeПродолжительность: 01:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714716ECABE79919675A3C23D7C06AE13444ABC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065880   (417029) от 24.10.2016
-
-Ray Fuller And The Bluesrockers - Long Black Train (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn Me Up 03:07
-02. Devil's Den 04:46
-03. Voodoo Mama 03:56
-04. Hip Shakin' Mama 03:03(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93A9E16EA8F33C639256632E11AAB1B7F8733E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325140   (416907) от 13.09.2019
-
-Earl Hines - Tour De Force (1972) 1989, Black Lion Records [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mack the Knife (take 2) [7:34]
-02. Indian Summer [5:34]
-03. I Gotta Right to Sing the Blues [6:46]
-04. I Never Knew (I Could Love Anybody Like I'm Loving You) (take 1) [4:50](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFA484AED8D9389186550C7CC37E8029ED9E6D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1825008   (136854) от 16.10.2025
+
+Family Company - Pieces Of Us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  By Our Self (Just Us) (3:05)
+02.  Pieces Of Us (4:20)
+03.  Need Ya Loven (3:58)
+04.  I Believe In Humanity (3:25)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215B3E4E9C10E7E5CBD54764E13B41A533F4DDF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825013   (136852) от 16.10.2025
 
 James Bratton - Imagination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
@@ -797,41 +826,6 @@ Dan Patlansky - Move my Soul (2009) [APE|Lossless]<Blues>
 08. Come & play
 09. Luka
 10. Lord you are beautiful(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593311   (135401) от 23.12.2012
-
-Don Grusin & Bill Sharpe - Trans Atlantica (2012) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The London Tube
-02. Exotic Boulevard
-03. Down At St Catherine's
-04. War Zone
-05. Chance Encounters
-06. Night Train To Paris
-07. Un Vuelo
-08. Slow Breeze
-09. Mole Trap Cool
-10. After Hours(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:38
 
 ## Скачать торент
 ```bash

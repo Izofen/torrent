@@ -1,3 +1,30 @@
+###  Публикация: 1376274   (860612) от 17.04.2020
+
+GoodNotes 5.4.14 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
+Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 14.04.2020Разработчик: Time Base Technology LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0004AAC696C7E431906ED31F889D404509D4070A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 304135   (860611) от 05.03.2011
 
 VA - House Vip (02.03.11) (2011) [MP3|320 kbps]<Electro House>
@@ -705,41 +732,6 @@ VA - Fetenhits The Real Classics 6 (2CD) (2011) [MP3|320 kbps]<Pop,Rock,Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61717C3968D95DF33875C6D8A7CD217990C29A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 303807   (860521) от 05.03.2011
-
-Various Artists - Lucky Sounds 2010 (2010) [MP3|320 kbps]<House, Electro House, Progressive House, Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Drehkontrolle - Going Deeper (8:24)
-02. Groovemagnet - Comoco (6:34)
-03. Roberto - Amazon Calling (8:17)
-04. IMBEATZ - Wuptizitaet (Peter Latino Chill2tec Mix) (11:30)
-05. Acensor - La Parranda (13:04)
-06. Lars Schneemann - Elextrix (7:03)
-07. Yago - Dark Corw (6:42)
-08. Groovemagnet - Jupiter (Techno Mix) (7:24)
-09. Roberto - Auntie Momma (8:01)
-10. Laurel - Wake Up (8:11)(   Читать дальше...)Жанр: House, Electro House, Progressive House, MinimalПродолжительность: 02:10:13
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,67 +1,3 @@
-###  Публикация: 589964   (145819) от 16.12.2012
-
-Capture The Crown - 'Til Death (2012) [MP3|320 кб/с]<Post-Hardcore | Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145819.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Arrival
-2. #OIMATEWTF (featuring Denis Shaforostov)
-3. Fork Tongued
-4. Ladies & Gentlemen...I Give You Hell!
-5. LAX
-6. You Call That A Knife? This Is A Knife!
-7. Storm In A Teacup
-8. Help Me To Help You
-9. Deja Vu
-10. Insomniac(   Читать дальше...   )Жанр: Post-Hardcore | ElectronicПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150FEDCBD20F96F33D27B2EB4A396501C6A32A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969958   (145425) от 28.12.2015
-
-VA - Kerrang! Ultimate Rock Heroes! (2015) [MP3|320 кб/с] <Alternative Rock, Pop Punk, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Enter Shikari - Know Your Enemy (Rage Against the Machine) :: 04:37
-02.  Neck Deep - Don't Tell Me It's Over (Blink-182) :: 02:29
-03.  Palm Reader - My Plague (Slipknot) :: 03:49
-04.  Feed The Rhino - I'm Broken (Pantera) :: 04:19(   Читать дальше...   )Жанр: Alternative Rock, Pop Punk, HardcoreПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D55EE4251CC35E1E72F5CF8B0511D4A9ABFE10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348312   (145164) от 27.12.2019
 
 Halestorm - Halestorm (2009) The 10th Anniversary Edition, 2019, Atlantic Records [MP3|320 Kbps] <Alternative, Hard Rock>
@@ -819,6 +755,64 @@ Bear Ghost - Jiminy (2023) [MP3|320 Kbps] <Alternative Rock, Art Rock, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BB658D6CDD5AD5E7FA68B1318D0D14FBAF6182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701656   (116203) от 22.02.2024
+
+Smash Into Pieces - 44 Releases (2009-2024) [MP3|320 Kbps] <Alternative rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116203.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 Unbreakable
+2015 The Apocalypse DJ
+2017 Rise and Shine
+2018 EvolverЖанр: Alternative rockПродолжительность: 09:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330EE62FB2DF1CA5453FBE0C3E386417FF84D756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719210   (110601) от 29.04.2024
+
+Billy Idol - Rebel Yell (1982) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rebel Yell [00:04:48]
+02 - Daytime Drama [00:04:04]
+03 - Eyes Without A Face [00:04:59]
+04 - Blue Highway [00:05:07](   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, PunkПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D43952A2933CD5EB4629685B307189FA8614EA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

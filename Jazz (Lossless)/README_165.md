@@ -1,3 +1,34 @@
+###  Публикация: 528482   (571577) от 29.07.2012
+
+Braff Oester Rohrer - The Tide Is In (2001) [FLAC|Lossless]<Bebop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of Wonderful Things
+02. Mc Braff
+03. Jone's Tones
+04. My Little Suede Shoes
+05. You Don't Know What Love Is
+06. New SongЖанр: BebopПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528489   (571292) от 29.07.2012
 
 Brecker Brothers - Out of the Loop (1994) [FLAC|Lossless]<Jazz-Funk, Jazz-Fusion, Crossover Jazz>
@@ -739,35 +770,6 @@ Robin McKelle - The Looking Glass (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99E6BFE8DB11474D24C333E2B699D393CCD0D284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043892   (569102) от 18.08.2016
-
-Simona Parrinello - Con Alma (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beatrice
-02. Con Alma
-03. Melancholia
-04. Everybody's Song But My Own(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1938914094F45B8593F8725D48611C8AC1642E
 ```
 
 https://mybot314.ru/tekegram_catalog/

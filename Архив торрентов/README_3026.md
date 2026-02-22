@@ -1,3 +1,29 @@
+###  Публикация: 1309547   (550346) от 20.06.2019
+
+Tipard HD Video Converter 9.2.18 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tipard HD Video Converter - программа, видео конвертер файлов различных форматов в HD видео, поддержка HD TS, HD MTS, HD WMV, HD MPG, HD MPEG4, H.264/AVC , HD AVI, HD ASF и других видео форматов, поддержка High-Definition (HD) видео кодирования и декодирования, извлечение аудио в AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA и другие аудио форматы, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C183682E11AFF2F7679E4B2A598BE199BA7A1A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309265   (550345) от 20.06.2019
 
 Transmit 5 v5.5.0 [En]
@@ -673,34 +699,6 @@ Lydia Loveless - Real (2016) [FLAC|Lossless|tracks] <Alt Country, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E18FA73C82EFE8A91AD24134F66F21C6E3BFE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047206   (550105) от 29.08.2016
-
-Формула 1. Гран-при Бельгии. 1, 2, 3 практики. Квалификация. Гонка. (2016.08.26-28) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550105.jpg" />
-</div>
-
-
-###  Подробнее
-
-26-28 августа 2016 года.
-Этап 13. Гран-при Бельгии
-Арена: Автодром Спа-Франкоршам (Спа, Бельгия)Телекомпания: Матч Арена HDЖанр: Спорт, автоПродолжительность: 06:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C667F1BD28FE145EA9E3FC26DE741FAB58419BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

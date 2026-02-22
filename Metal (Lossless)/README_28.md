@@ -1,3 +1,264 @@
+###  Публикация: 1469626   (1016168) от 14.05.2021
+
+Batushka - Черная Литургия (2020) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Знаменный Распиев / Znamiennyj Raspiew (0:35)
+02. Ирмос / Irmos I (4:42)
+03. Ирмос / Irmos II (6:08)
+04. Ирмос / Irmos III (6:45)(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7FB4067B841976F47802167E79342A1E1D098C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470018   (1016000) от 15.05.2021
+
+Artas - Riotology (2011) [FLAC|Lossless|image + .cue] <Melodic Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Journey Begins...
+02. Fortress Of No Hope
+03. The Day The Books Will Burn Again
+04. The Suffering Of John Doe(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C6237F56FEF8CDA98BDD62231B57210BBA2EC34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469925   (1015998) от 15.05.2021
+
+Antioch - Antioch V (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hang The Eagle
+02. On A Ledge
+03. A Facade At The Third Castle
+04. Demon Wick(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA6859A3F5B978B332F02D38053A7843E5BD187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469920   (1015995) от 15.05.2021
+
+Fortunato - Insurgency (2021) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carry On To The Depths Of The Sea
+02. Blood Of The Unknowns
+03. For Eternity
+04. Fly Away(   Читать дальше...   )Жанр: Neoclassical Heavy MetalПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6586C038E4CD1DF4D4C308AE9F09282D535C08E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469910   (1015994) от 15.05.2021
+
+Dan Baune's Lost Sanctuary - Lost Sanctuary (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arise
+02. Open Your Eyes (feat. Bob Katsionis)
+03. Temple Of Fear (feat. Rasmus Bom Andersen & Jennifer Diehl)
+04. God Of War (feat. Aliki Katriou)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F117823EF1BB4FD36E50E550D8CEBA217AF05C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470036   (1015993) от 15.05.2021
+
+Witchbound - End Of Paradise (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:03)
+02. Battle of Kadesh (3:34)
+03. Interstellar Odyssey (4:08)
+04. End of Paradise (5:16)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD7F44A0F5B3DB923CD92BF0897AAFF3AC38E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469888   (1015981) от 15.05.2021
+
+Gojira - Fortitude (2021) [FLAC|Lossless|image + .cue] <Technical Death Metal, Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born for One Thing (4:21)
+02. Amazonia (5:01)
+03. Another World (4:20)
+04. Hold On (5:30)(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Death MetalПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7465DB7F713AAFAF1D060D203E8F1ADA900FF653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469917   (1015952) от 15.05.2021
+
+Against Evil - End Of The Line (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound Of Violence
+02. Speed Demon
+03. Out For Blood
+04. Call To War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E59475A9B81CD420A3F04A2091A9A9C339BC868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470201   (1015822) от 16.05.2021
+
+Traveler - Traveler (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starbreaker
+02. Street Machine
+03. Behind The Iron
+04. Konamized(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BDB73CAF0D83E96B695D06648F3E2C28454701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470155   (1015818) от 16.05.2021
 
 Everlasting Mortality - The Retless Waves (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
@@ -484,266 +745,6 @@ Liquid Steel - Mountains Of Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:734FAA7759ECA26ADB13E839FA9909399A413E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471532   (1015006) от 21.05.2021
-
-Agent Steel - No Other Godz Before Me (2021) [FLAC|Lossless|image + .cue] <Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passage to Afron-V (2:15)
-02. Crypts of Galactic Damnation (4:11)
-03. No Other Godz Before Me (4:37)
-04. Trespassers (4:01)(   Читать дальше...   )Жанр: Speed MetalПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3517BCAF4C69E71F879572F1F4A64422B49112AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471619   (1015003) от 21.05.2021
-
-Herman Frank - Two For A Lie (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teutonic Order
-02. Venom
-03. Hate
-04. Eye Of The Storm(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D17A38792ED35A49FED91E42C156A6CF4C399E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471484   (1015001) от 21.05.2021
-
-Artem Illusio - Artem Illusio (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beast (04:16)
-02. The Temple of My Soul (03:49)
-03. Pharaoh (04:58)
-04. Forgiven by the Sun (05:29)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A96C0E1404056B99D69834746CF9DA582D255F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471610   (1014989) от 21.05.2021
-
-Solstice - Casting The Die (2021) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Altruist (3:36)
-02. Transparent (3:25)
-03. Who Bleeds Whom (4:35)
-04. Lifeline (3:53)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F50A259A211C8F4C81209FC329F96864ED2DE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471606   (1014986) от 21.05.2021
-
-Sonic Haven - Vagabond (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vagabond (3:46)
-02. Back To Mad (4:41)
-03. Nightmares (4:56)
-04. Keep The Flame Alive (6:10)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723730B09160F1494871776743E179AEE5869274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471393   (1014964) от 21.05.2021
-
-Nergard - Eternal White (2021) [FLAC|Lossless|WEB-DL] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Forgive My Haunted Mind
-02. Pride Of The North
-03. From The Cradle To The Grave
-04. Carry Me(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C92E7D4207C63941AE53203CD2FFC98A1BADCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471433   (1014963) от 21.05.2021
-
-Amorphis - Live at Helsinki Ice Hall (2021) [FLAC|Lossless|WEB-DL|tracks] <Melancholic Progressive Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-The Bee [00:07:06]
-02-Heart Of The Giant [00:06:17]
-03-Bad Blood [00:05:23]
-04-The Four Wise Ones [00:05:32](   Читать дальше...   )Жанр: Melancholic Progressive Melodic MetalПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804F1637ED335C7B6B62304387A0C0732EBBB925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471813   (1014700) от 23.05.2021
-
-Hatecraft - Hear The Winds (feat. Bjorn Strid) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hear the Winds (feat. Bjorn Strid)
-02. Fire at Will (feat. Bjorn Strid)
-03. Sacred Tongue (feat. Bjorn Strid)Жанр: Modern Metal, Melodic DeathПродолжительность: 00:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235BC1C5162C467904EE911E8A87D5EE226E06A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471818   (1014696) от 23.05.2021
-
-Debauchery - Monster Metal (2021) 3xCD [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Death 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014696.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Debauchery:
-01. Bloodking
-02. Skull Mountain
-03. Debauchery Warmachine(   Читать дальше...   )Жанр: Death Metal, Death 'n' RollПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6943699FF6DEB2AD06BE3A607E8E7829246F5EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

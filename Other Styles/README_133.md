@@ -1,3 +1,32 @@
+###  Публикация: 1171443   (396560) от 04.10.2017
+
+Nino Rota & Carmine Coppola - The Godfather Trilogy I - II - III: 30th Anniversary (2001) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Godfather - Waltz
+02 - The Godfather - Love Theme from The Godfather
+03 - The Godfather - Sicilian Pastorale
+04 - The Godfather - The Pick-Up(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6EDEA0E1F5C14EE1D00DCC3D6C169B5456E922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171430   (395754) от 05.10.2017
 
 Harald Kloser - The Day After Tomorrow (2004) [MP3|320 Kbps] <Score>
@@ -739,35 +768,6 @@ Bob Weir - Blue Mountain (2016) [MP3|320 Kbps] <Folk Rock, Country Rock, Psyched
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2E207E2D444520A2540E4CA205347A445861DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174154   (387235) от 14.10.2017
-
-Стары Ольса - Medieval Classic Rock (2016) [MP3|320 Kbps] <Folk, Folk rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стары Ольса - группа средневековой белорусской музыки, существующая с 1999 года. Создатель и руководитель - Дмитрий Сосновский, состав - 6 человек. Название - от ручья в западной Могилёвщине. В репертуаре группы - белорусские народные баллады и воинские песни, белорусские народные танцы, произведения белорусских композиторов эпохи Ренессанса, композиции из белорусских (   Читать дальше...   )1. Highway to Hell (AC_DC cover) (3:24)
- 2. Another Brick in the Wall, Pt. 2 (Pink Floyd cover) (4:11)
- 3. Californication (Red Hot Chili Peppers cover) (4:14)
- 4. A Hard Day's Night (The Beatles cover) (2:34)(   Читать дальше...   )Жанр: Folk, Folk rockПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0371CA8AC29B3FFC448883A649200629C904D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

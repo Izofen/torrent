@@ -1,3 +1,119 @@
+###  Публикация: 981907   (949988) от 02.02.2016
+
+Andrea Lindsay, Luc De Larochelliere - C'est d'l'amour ou c'est comme (2012) 2015 GSI Musique [FLAC|Lossless|WEB-DL|tracks] <French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le problème avec toi
+02. C'est d'l'amour ou c'est comme
+03. Mad dogs and englishmen
+04. Comme(   Читать дальше...   )Жанр: French PopПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4230AC5AA5B6657F5EBA0E28A546286365299D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981781   (949827) от 02.02.2016
+
+Bloc Party - Hymns (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Dance, Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Love Within
+02. Only He Can Heal Me
+03. So Real
+04. The Good News(   Читать дальше...   )Жанр: Alternative Dance, Indie Pop, ElectronicПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8935C9BC1D6B5383D7D4C2702A6A112FB315E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981998   (949808) от 02.02.2016
+
+Francesca Belmonte - Anima (2015) Deluxe Edition [MP3|320 кб/с] <Alternative Pop, Trip-Hop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом постоянной спутницы Tricky!01. Intro 00:39
+02. Hiding in the Rushes 03:24
+03. Stole 03:27
+04. Keep Moving 03:52(   Читать дальше...   )Жанр: Alternative Pop, Trip-Hop, ElectroПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6207F1988EDF51FEACA2410D902830F45DC8057B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362353   (949696) от 23.02.2020
+
+Dubstar - Stars (1995) Single [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars (Original Mix) (4:12)
+02. Stars (Sky Edit) (4:32)
+03. Stars (Mother Dub) (6:27)
+04. Stars (Search & Destroy Full Vox Mix) (7:35)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C668BA04F6B247AAC5985B827CCAF38CE1D48514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361729   (949598) от 23.02.2020
 
 Justin Bieber - Changes (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop>
@@ -630,122 +746,6 @@ VA - Women Of 80s Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8583585809BCE72134A4CCAE087E961A5DD57F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361323   (946536) от 25.02.2020
-
-Малолетка (Акула) - Где-то звёзды (1999) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночь (4:26)
-02. Увидимся (dj zoomer club mix) (4:09)
-03. Дождь (4:04)
-04. Я люблю тебя (4:27)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88ED192CC7C4E53A5098B2B52068C85AB5AC542D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362879   (946462) от 25.02.2020
-
-Рома Жуков - Первый снег (1988) JAM, 2019, Remaster [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пыль мечты (8:00)
-02. Первый снег (5:45)
-03. Никто не в силах мне помочь (4:11)
-04. Прошу тебя, не верь словам (4:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF80BAF7220E0E9F3A3B3031E1EB98E500C1A48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751137   (946404) от 30.01.2014
-
-C.C. Catch - Maxi Hit-Sensation: Nonstop DJ-Mix+Extra Bass (2006) [FLAC|Lossless]<Disco, Euro House, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soul Suvivor (Long Version)   (4:58)
-02.  Midnight Gambler (Long Version)   (4:11)
-03.  Back Seat Of Your Cadillac (Extended Version)   (4:35)
-04.  Good Guys Only Win In Movies (Maxi-Version)   (4:40)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8072CCB58BA46E6CDDF92FF265F8087C88FC3863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090682   (945885) от 07.01.2017
-
-Hypnosis - Greatest Hits & Remixes (2016) [MP3|320 Kbps] <Italo Disco, Spacesynth, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulstar (Disco Mix) [08:15]
-02. Droid (Extended Swedish Remix) [08:25]
-03. Automatic Piano (Maxi Version) [05:10]
-04. Oxygene (Maxi Version) [08:10](   Читать дальше...   )Жанр: Italo Disco, Spacesynth, SynthpopПродолжительность: 02:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4F3E7B5DFDBF6F05549542E68089E7643AA487
 ```
 
 https://mybot314.ru/tekegram_catalog/

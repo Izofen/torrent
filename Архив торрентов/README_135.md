@@ -1,3 +1,30 @@
+###  Публикация: 1457676   (1024374) от 26.03.2021
+
+WinToUSB Technician 6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024374.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash,
+используя образ ISO или CD/DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71111BF96ED872612B596F0810847A1E3E91B098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457446   (1024370) от 26.03.2021
 
 Topaz Video Enhance AI 2.1.0 RePack by KpoJIuK [En]
@@ -646,32 +673,6 @@ Multitouch 1.24.5 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9EC28215EE4E0765DA24734465398AB4B05D52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458179   (1024085) от 28.03.2021
-
-Middle 1.5.21 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 28.03.2021Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7FFB9DD7C95B46307E68512DD8AAC2D4827F64
 ```
 
 https://mybot314.ru/tekegram_catalog/

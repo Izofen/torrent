@@ -1,3 +1,90 @@
+###  Публикация: 1050444   (536748) от 09.09.2016
+
+VA - Timme’s Treasures (1944, 1945) 2015, Storyville Records[FLAC|Lossless|tracks + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.That Old Black Magic [04:41]
+ 02.Johnny Come Lately [03:31]
+ 03.Tea For Two [02:53]
+ 04.Embraceable You [09:23](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C79E328B90673884FC1C986D2D69A71E722D349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050760   (536746) от 09.09.2016
+
+Bud Shank Quintet and Sextet - New Groove & Barefoot Adventure (1961) 2011, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.New Groove [06:47]
+ 02.The Awakening [04:27]
+ 03.White Lightnin' [05:23]
+ 04.Sultry Serenade [07:14](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFC2CF5AF12D01C04A8DA6141BF6ECA455AD159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050736   (536738) от 09.09.2016
+
+Ella Fitzgerald - Sings Cole Porter & Rodgers and Hart Songbooks (1956) 3CD, 2008, Not Now Music[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536738.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.All Through The Night [03:18]
+02.Anything Goes [03:23]
+03.Miss Otis Regrets [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D5187CA61F06360DF1A027D99D842390BDB84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050507   (536735) от 09.09.2016
 
 Bill Evans - Momentum, Vol. 2 (1972) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -664,93 +751,6 @@ Lester Bowie's Brass Fantasy - The Fire This Time (1992) [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C63A960DDC255FB631FB4146F4FD46DD6F66A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154680   (535422) от 02.08.2017
-
-Members Of The Woody Herman Orchestra - A Tribute To Woody Herman (1997) Green Hill [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Brothers [03:23]
-02. Woodchopper's Ball [04:53]
-03. Apple Honey [03:34]
-04. Goosey Gander [03:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DB95F0096A68D3751EF492422FE75D847798B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154953   (535416) от 02.08.2017
-
-Weather Report - This Is This (1986) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is This (7:08)
-02. Face The Fire (2:34)
-03. I'll Never Forget You (7:51)
-04. Jungle Stuff, Part I (4:44)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC95C2DFE037013342B9039B4360EC01FFC41DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154952   (535415) от 02.08.2017
-
-Weather Report - Domino Theory (1984) [FLAC|Lossless|image + .cue] <Jazz-Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can It Be Done (3:59)
-02. D Waltz (11:09)
-03. The Peasant (8:13)
-04. Predator (5:14)(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678B32C077A53E59DFE1DDD5E3FD79536B4485AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

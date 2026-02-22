@@ -1,3 +1,177 @@
+###  Публикация: 983450   (943612) от 06.02.2016
+
+Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Down To The Waterline
+02 - Water Of Love
+03 - Setting Me Up
+04 - Six Blade Knife(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB81131B695136D0A311CD203087858A122DDC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091572   (942728) от 09.01.2017
+
+Supertramp - The Very Best Of (1992) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye Stranger (5:48)
+02. The Logical Song (4:10)
+03. Bloody Well Right (4:33)
+04. Breakfast In America (2:42)(   Читать дальше...   )Производство: Ладъ - LD 238016Жанр: Progressive RockПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765744893737E078A9B71E1425439F59545B8026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091487   (942626) от 09.01.2017
+
+VA - RETROспектива, часть VII: Эстрадные оркестры VII (1935-1958) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Концерт. анс. п.у. Е. М. Пинке - Шуточная полька (танец)
+02. Концерт. анс. п.у. Е. М. Пинке - Воспоминание (вальс)
+03. Концерт. анс. п.у. Ф. Криша - Вальс-чечетка (танец)
+04. Концерт. анс. п.у. Ф. Криша - Ручеек (полька)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC92B358757DC74DAA57697AF19AE67F1EC7578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 149832   (941990) от 28.02.2020
+
+Bee Gees - Size Isn't Everything (1993) [FLAC|24Bit/96kHz] <pop-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paying The Price Of Love (4:13)
+02. Kiss Of Life (4:15)
+03. How To Fall In Love, Pt.1 (5:58)
+04. Omega Man (3:57)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA23A69194F656517C72AC23134A407C7EEB865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983980   (941862) от 07.02.2016
+
+Владимир Кузьмин - ...пока не пришел понедельник... (1986) 1989, Мелодия, ТЗГ [FLAC 2.0|96/24|image|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ...пока не пришел понедельник... (3:49)
+02. Странные дни (4:57)
+03. Симона (4:05)
+04. Шлифовщик (4:24)(   Читать дальше...   )Производство: Мелодия ТЗГ - С60 27993 009Жанр: RockПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E23248726A484D194DA36E1C0BDE604537663C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 144897   (940464) от 29.02.2020
+
+Demis Roussos - Souvenirs (1975) [FLAC|24Bit/96kHz]<pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940464.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1   Sing An Ode To Love   (4:12)
+A2   Midnight Is The Time I Need You   (3:03)
+A3   I'll Be Your Friend (Schön Wie Mona Lisa)  (4:12)
+A4   Action Lady  (3:01)(   Читать дальше...   )Жанр: Electronic, Funk / SoulПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFDABC9F4D57F1675E28B397A9093B3754752951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983264   (939717) от 08.02.2016
 
 Boney M - Ma Baker, Sunny, Daddy Cool (1977) Japan [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Pop>
@@ -568,177 +742,6 @@ Folk Rock, Fusion, Prog Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C7520B7CCACE8E20A0157F0CF3050D05366FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097439   (913780) от 27.01.2017
-
-The Alan Parsons Project - Eye In The Sky (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sirius (1:55)
-02. Eye In The Sky (4:37)
-03. Children Of The Moon (4:52)
-04. Gemini (2:11)(   Читать дальше...   )Производство: Arista - 25RS-162Жанр: Progressive RockПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916F84058C7A637A95ECA528965370E84EF7C6C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097539   (913661) от 27.01.2017
-
-AC/DC - Rarities (2009) [FLAC 2.0|96/24|tracks+.cue|Vinyl-Rip] (compilation, unofficial release) <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-A1 - Stick Around
-A2 - Love Song
-A3 - Fling Thing(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6B5D32A088427B4E8E7DE4AD3774E5F4851F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490646   (913441) от 23.08.2021
-
-Владимир Высоцкий и Марина Влади - Студийные записи с анс. Мелодия п-у Г.Гараняна (Магнитоальбомы 1,2) (1974) De-Noised, 2021, SMRP [FLAC|Lossless|tracks] <Песни с оркестром>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Две песни об одном воздушном бое.2.Песня самолета-истребителя (03:16)
-02-Затяжной прыжок (Воздушные потоки) (04:10)
-03-Москва - Одесса (02:57)
-04-Скалолазка (02:39)(   Читать дальше...   )Жанр: Песни с оркестромПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BA2751C3DCCFEB232FC11058A5EB99CA6BFCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990226   (911720) от 25.02.2016
-
-Elvis Presley - Rock-And-Roll (1989) [FLAC 2.0 192/24|tracks|Vinyl-Rip]<Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Teddy Bear  1:50
-2. Jailhouse Rock  2:28
-3. A Fool Such As I  2:32(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19955D6BE5EDCAFBC584BF7D01C778DC67ED7F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 180706   (911218) от 06.03.2010
-
-Miles Davis - 12 LP альбомов (1957 - 1969) [24 bit/96 kHz|VinylRip]<Jazz, Hard Bop, Cool Jazz, Modal, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, Hard Bop, Cool Jazz, Modal, FusionПродолжительность: 08:36:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098172   (910490) от 29.01.2017
-
-Supertramp - Brother Where You Bound (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910490.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Cannonball (7:38)
-A2. Still In Love (4:37)
-A3. No Inbetween (4:38)
-A4. Better Days (6:12)(   Читать дальше...   )Производство: A&M Records - SP 5014Жанр: Progressive RockПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B010101BF9A906244A1690CEDF52A4CE5C1B88
 ```
 
 https://mybot314.ru/tekegram_catalog/

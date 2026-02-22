@@ -1,3 +1,90 @@
+###  Публикация: 1552937   (584824) от 23.05.2022
+
+Chico Hamilton - The Complete Pacific Jazz Recordings Of The Chico Hamilton Quintet (1954 - 1959) 6CD, 1997, Mosaic Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584824.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Drums West [4:20]
+02. A Nice Day [2:55]
+03. My Funny Valentine [4:21](   Читать дальше...   )Жанр: West Coast Jazz, Hard BopПродолжительность: 06:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF55CCBEC33DE305169B57A3EE2B432F3B0F1EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552948   (584821) от 23.05.2022
+
+Sarah Vaughan - Ballads (1960 - 1963) 2002, Roulette Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All or Nothing at All [3:14]
+02. Midnight Sun [5:36]
+03. Dreamy [2:58]
+04. You Go to My Head [4:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF3E510950035B2FE2E93E68CDF708B84221820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552978   (584692) от 23.05.2022
+
+Dixie Kings Of Hungary - Still Alive (2018) [FLAC|Lossless|tracks + .cue] <Dixieland, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz me blues (Tom Delaney)
+02. Big butter and egg man (Percy Venable)
+03. Dippermouth blues (K. Oliver / L. Armstrong)
+04. We'll meet again (R. Parker / H. Charles)(   Читать дальше...   )Жанр: Dixieland, Big BandПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A560C89D24C7505C97FB2FB9C3376B4FD48E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810180   (584548) от 04.08.2014
 
 Count Basie and his orchestra - Fancy Pants (2000) [FLAC|Lossless]<Jazz, Swing, Big Band>
@@ -664,93 +751,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:648E384F90009892E38AE5433AE30C98D6D7A8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342689   (583257) от 08.08.2016
-
-John Coltrane - Blue Train (2007) 10CD Box Set [APE|Lossless|image + cue]<Jazz, Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_583257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на относительно короткую карьеру (он стал известен широкой публике только в возрасте 33 лет, а умер, не дожив до 41 года), Джон Колтрейн до сих пор является одной из самых известных и противоречивых фигур джазового мира. Он играл в разных, чуть ли не противоположных, стилях и это служило причиной столь же противоположных отзывов критиков о его музыке. Однако (   Читать дальше...   )01. On It (Hope) (9:05)
-02. Polka Dots And Moonbeams (Van Heusen - Blake) (8:40)
-03. Weeja (Hope) (11:10)
-04. Avalon (Jolson - Desylva - Rose) (9:41)(   Читать дальше...   )Жанр: Jazz, Bop, Hard BopПродолжительность: 09:57:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553325   (582968) от 25.05.2022
-
-Freddie Hubbard - Red Clay (1970) 1987, CBS [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Clay [12:12]
-02. Delphina [7:23]
-03. Suite Soux [8:39]
-04. The Intrepid Fox [10:45](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8901479E55CD28EFF970AE9F8B7C11AE551AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553356   (582960) от 25.05.2022
-
-Brad Mehldau - Jacob's Ladder (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Prog Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe as His Skies Are Wide (3:43)
-02. Herr und Knecht (Master and Slave) (7:48)
-03. (Entr'acte) Glam Perfume (5:45)
-04. Cogs in Cogs I - Dance (4:11)(   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Prog RockПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED58239D0FA1EB3B0C022C41D37A5409A283A388
 ```
 
 https://mybot314.ru/tekegram_catalog/

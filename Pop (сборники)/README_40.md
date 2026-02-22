@@ -1,3 +1,32 @@
+###  Публикация: 1218606   (721642) от 10.04.2018
+
+VA - Philadelphia Sound (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Irraggiungibile - Shade Featuring Federica
+002. Nico Santos - Rooftop
+003. Luis Fonsi & Demi Lovato - Echame la culpa
+004. Lea - Leiser(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9545FBC8FFA2E6846DF65C88FE52801F3664A576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218594   (721634) от 10.04.2018
 
 VA - Живи стильно! Наслаждайся музыкой с Hit FM (14) (2018) [MP3|256 Kbps] <Поп>
@@ -716,35 +745,6 @@ VA - Весенняя 100-ка популярных треков. Часть №
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F31B808433D8ADFBBA7D157DD9F6CD397D071FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130074   (716793) от 01.05.2017
-
-VA - Весенние заводные хиты выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716793.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andy Rey - Люби Пока Молодой 3:09
-002. Eya - Пару Минуток 3:14
-003. Егор Диких - Маэстро 3:55
-004. Сергей Славянский - На Пешеходном Переходе 3:18(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4D80D47E764C917FFCB7BC19EDABDF2DC53FE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 928971   (520311) от 18.08.2015
+
+VA - 100 Hits - 2000s Anthems (2014) 5CD Box Set [FLAC|track+.cue]<Pop, R&B and Soul, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список журнала Rolling Stone 100 лучших песен десятилетия - который первоначально был опубликован в 2009 году и был составлен группой из более чем 100 музыкантов, музыкальных критиков и лидеров музыкальной отрасли - включает в себя сотню треков различных жанров. Под общим названием "100 хитов: гимны (песни) 2000-х" фирма Сони попыталась в одном боксете (   Читать дальше...   )CD1:
+01. The Zutons - You Will You Won't  (2:56)
+02. Editors - Smokers Outside the Hospital Doors  (4:02)
+03. Reef - Set the Record Straight  (3:58)(   Читать дальше...   )Жанр: Pop, R&B and Soul, RockФормат: 5CD, box setПродолжительность: 06:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C97105667F7DF4D6F61316E54DEF3B515B42447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241420   (520122) от 17.08.2018
 
 Ariana Grande - Sweetener (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop, R&B>
@@ -719,35 +748,6 @@ VA - The Greatest Hits / Singer-Songwriter (2015) 2CD[FLAC|image + .cue]<Pop, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4406A3538D05EA2963E87DB91C6E9E98764DA51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934352   (502056) от 05.09.2015
-
-A-Ha - Cast In Steel (2015) 2CD [FLAC|tracks+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End Of The Affair
-02. Mother Nature Goes To Heaven
-03. Nothing Is Keeping You Here
-04. Shadowside (Demo Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEA118B4006F4F6F0127D95C1196DD6F1F305BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

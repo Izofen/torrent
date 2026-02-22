@@ -1,3 +1,61 @@
+###  Публикация: 1332148   (316848) от 19.10.2019
+
+Ken Peplowski - Last Swing Of The Century (1999) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Dance [2:20]
+02. Hunkadola [3:27]
+03. Between the Devil and the Deep Blue Sea [3:12]
+04. King Porter Stomp [7:00](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF6B724279C476EBF27D83DA9C7DE360AC108CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332301   (316841) от 19.10.2019
+
+Onaje Allan Gumbs - Dare To Dream (1991) [FLAC|Lossless|image + .cue] <Smooth Jazz, Contemporary Ja>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Question - 7.24
+02. Second Thoughts - 6.46
+03. The Look - 6.56
+04. Dare To Dream - 4.31(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JaПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86CE982B5DB95E23A345B9E6A776F25CBEEAEB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582998   (316818) от 12.10.2022
 
 Erroll Garner - Symphony Hall Concert (1959) 2021, Mack Avenue [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Eddie Condon - Jam Session Coast-To-Coast (1953) 2005, Membran Music [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B5F47C276A0D3F7F4BAA9AE11C6F71A8F32EC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332427   (314304) от 20.10.2019
-
-The Spitfire Sisters - Who Buys Cds Anymore? (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Vintage>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bag for Life
-02. My Cocktail and Me
-03. Afternoon Tea
-04. Roll on, Mississippi, Roll On(   Читать дальше...   )Жанр: Vocal Jazz, VintageПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A64FEFEAFBC8E2ABC4F71DBF18719A56E92E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845012   (313813) от 27.11.2014
-
-Club Des Belugas - Fishing For Zebras (2014) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Think Twice (feat. Lene Riebau)
-02. Let's Go
-03. Weapon Of Voice (feat. Veronika Harcsa)
-04. Path Of Nothing (feat. Hélène Vogelsinger)(   Читать дальше...   )Жанр: Nu Jazz, Electro SwingПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450D04451B1D556761A1814E4386FCA82C0C1814
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 412945   (619545) от 28.07.2013
+
+Unreal - 3 альбома 3 сингла (2006 - 2013) [FLAC - APE |Lossless]<Goth Industrial, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_619545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Миледи
+02. Аутодафе (Неизданный вариант)
+03. Проклятье Мертвых Роз (Ремастированный вариант)
+04. Одиночество Победителя (Эксклюзивный вариант)Жанр: Goth Industrial, Gothic Metal |Продолжительность: 00:21:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753518   (618994) от 21.07.2016
 
 Sounduk - Том третий (Наше время) (2013) [FLAC|image + .cue]<Rock>
@@ -712,35 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0672068BA313B1F8CBE3BE0BC8109DFC20F3D64A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297579   (603568) от 23.04.2019
-
-Альянс - Хочу летать! (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хочу летать! (4:44)
- 02. Без тебя (4:20)
- 03. Забытые слова (4:19)
- 04. С тобой на краю (5:28)(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A12C50CAC41EE9F02A28E5EE0BEC10713C1F85
 ```
 
 https://mybot314.ru/tekegram_catalog/

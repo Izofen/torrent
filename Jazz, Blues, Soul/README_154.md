@@ -1,3 +1,90 @@
+###  Публикация: 1011255   (797054) от 27.04.2016
+
+Alexey Lapin & Yury Yaremchuk (Алексей Лапин и Юрий Яремчук) - Anatomy of Sound (2010) Solyd Records[APE|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Birth [06:51]
+ 02.Transformations [07:25]
+ 03.Transmutations [06:03]
+ 04.Transconfigurations [10:57](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC865A85A091D2A5CD5AA5BD7E5F679722E83D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011242   (797044) от 27.04.2016
+
+Dave Weckl Band - Perpetual Motion (2002) [APE|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Up
+02. Child's Play
+03. Mesmer-Eyes
+04. Skipper(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8F9C7DDA1A4F88596E6BDC38ACB0ECC4F2A252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011420   (797039) от 27.04.2016
+
+The Blues Experience - Coming Your Way (2005) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can't Loose What You Never Had (06:20)
+02. My Credit Didn't Go Through (04:53)
+03. Stand Back (04:01)
+04. The Way It Goes (03:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C78FE8628545EE9751234093BF305F3528E249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011427   (797029) от 27.04.2016
 
 Magic Sam Blues Band - Black Magic (1969),2015,Delmark Records [FLAC|Lossless|tracks + .cue] <Blues, Chicago Blues>
@@ -658,93 +745,6 @@ Azie Mortimer - Feeling Of Jazz (1963) Remaster, 2014, Solid Records[FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B66C2B8FC2DCFA356A33B5047251ACF35CB2EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509120   (795677) от 11.11.2021
-
-Wes Montgomery - Three Classic Albums Plus (1959, 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795677.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. 'Round Midnight [4:58]
-02. Yesterdays [3:20]
-03. The End of a Love Affair [3:18](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 02:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9907EBCE1A1CD2B7596DB91998670401AA0956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509124   (795671) от 11.11.2021
-
-Benny Goodman - Three Classic Albums Plus (1949 - 1958) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795671.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Let's Dance [1:02]
-02. Don't Be That Way [3:14]
-03. Hallelujah [4:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A783161F3B5A048F9D3C2180DF0A7CC5FD366791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509126   (795670) от 11.11.2021
-
-Benny Goodman - Three Classic Albums Plus (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795670.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Introduction into Let's Dance [1:23]
-02. Mission to Moscow [3:01]
-03. Meet the Band [5:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150875B31298242FBAA4EEDD80F5D2D01227DC27
 ```
 
 https://mybot314.ru/tekegram_catalog/

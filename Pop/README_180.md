@@ -1,3 +1,119 @@
+###  Публикация: 1558736   (528600) от 22.06.2022
+
+VA - Disco Top 50 (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop, Club>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Cheatham - Get Down Saturday Night (4:02)
+02. Lipps Inc. - Funkytown (Single Version) (3:55)
+03. Gloria Gaynor - I Will Survive (Original 7'' Version) (3:19)
+04. Bee Gees - Stayin Alive (4:46)(   Читать дальше...   )Жанр: Disco, Pop, ClubПродолжительность: 03:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92B98EB373401D3177CA47016726FB51671C819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156233   (528550) от 06.08.2017
+
+Roland Bocquet - 3 Albums (1977-1983) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Roland Bocquet с 1969 по 1977 был лидером французской инструментальной рок-группы Catharsis. Далее, сменив стиль, продолжил свое творчество в качестве исполнителя и композитора. Выпустил три предлагаемых альбома и начал писать саундтреки к фильмам.Список альбомов:
+1977 - Paradia
+1982 - Robot Rose (Claviers Synthetiseur)
+1983 - Robot Bleu(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, ExperimentalПродолжительность: 01:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E16FE16100746C820D4DD48F3D0E37CD98B0619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927403   (528508) от 13.08.2015
+
+C.C. Catch - Catch The Catch (2000) [FLAC|image+.cue]<EuroDisco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cause You Are Young (Maxi-Version)
+02. I Can Lose My Heart Tonight (Maxi-Version)
+03. You Shot A Hole In My Soul (Maxi-Version)
+04. One Night's Not Enough(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891F2B45CA0BD6F4A0A1DA25D82F84AEBF6D1F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156145   (528484) от 06.08.2017
+
+Eighth Wonder - 2 Albums (1987, 1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская поп-группа 80-х годов. Образовались в 1983 году и пользовались большим успехом в Японии и Италии между 1985 и 1987 годом, до того как серия хит-синглов не прокатилась по Великобритании и далее по всей Европе в 1988 году. Безусловно "изюминкой" группы стала актриса Пэтси Кенсит (Patsy Kensit).01. When The Phone Stops Ringing (3:41)
+02. Loser In Love (3:23)
+03. Open Your Mind (3:58)
+04. Stay With Me (3:19)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997F71EE3DB5CB6C215A7B0538816DD099C77F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313147   (528281) от 07.07.2019
 
 The Soft Cavalry - The Soft Cavalry (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -628,121 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23858B4E0EA65A871C97E698FA5A6BCA55C988A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053510   (525958) от 17.09.2016
-
-Kygo - Cloud Nine (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:09)
-02. Stole The Show (feat. Parson James) (3:43)
-03. Fiction (feat. Tom Odell) (4:04)
-04. Ringing (feat. Kodaline) (3:44)(   Читать дальше...   )Производство: Kygo MusicЖанр: Pop, DanceПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AB1EE8569D566BA37D05F34810B0FB2B62FE17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157202   (525875) от 10.08.2017
-
-My Mine - Stone (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juaresh (4:37)
-02. Crime Of Passion (4:13)
-03. Cupid Girl (4:02)
-04. Triangle (3:43)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Italo-DiscoПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721B776157FEE84233906FA6E81360BC34454635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157389   (525511) от 11.08.2017
-
-Goody Goody - Goody Goody (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #1 Dee Jay (6:58)
-02. Super Jock (6:30)
-03. Bio-Rythms (5:47)
-04. Goody Goody (4:09)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E549C00A4F6A34C559A666A29D71F34151DD7F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157221   (525506) от 11.08.2017
-
-Roger Meno - Collection (1986, 2001, 2010) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What My Heart Wanna Say
-02. What My Heart Wanna Say (Instrumental Version)
-03. What My Heart Wanna Say (Galaxy Version)Жанр: Italo-DiscoПродолжительность: 02:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FDDD052CD16A9F24D2462106FE30AA346C6A1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

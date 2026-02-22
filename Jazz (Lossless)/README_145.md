@@ -1,3 +1,32 @@
+###  Публикация: 1143094   (637576) от 17.06.2017
+
+Shorty Rogers - The Wizard of Oz & Other Harold Arlen Songs (1959) 2005, DRG Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're Off to See the Wizard [01:21]
+02. Over the Rainbow [03:02]
+03. The Jitterbug [03:18]
+04. The Merry Old Land of Oz [05:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:005A5AC9AB0922604813DF992B41EB2138FAA3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228323   (637529) от 31.05.2018
 
 McCoy Tyner Trio - Live at Sweet Basil, Vol. 1 (1989) King [WavPack|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -716,35 +745,6 @@ Ahmad Jamal - I Remember Duke, Hoagy & Strayhorn (1995) [FLAC|Lossless]<Jazz, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:212883C69774B877188A0FE57444FA5A4CF1F572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228899   (632191) от 03.06.2018
-
-Enrico Pieranunzi - Monsieur Claude A Travel with Claude Debussy (2018) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bluemantique [5:32]
-02. Passepied nouveau [4:53]
-03. L'autre ballade [5:38]
-04. Romance [5:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2309A16B5CDBCB5E6432F2568F98DFCA4DEE4F7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

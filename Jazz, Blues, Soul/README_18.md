@@ -1,3 +1,90 @@
+###  Публикация: 1442536   (1036614) от 25.01.2021
+
+Jeff Lorber - West Side Stories (1994) [FLAC|Lossless|tracks + .cue] <Fusion, Smooth Jazz, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036614.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grasshopper (Lorber) - 4:20
+2. Point Venus (Lorber) - 4:30
+3. Iguassu Falls (Lorber, Milstein) - 5:17
+4. Let the River Run (Lorber) - 4:25(   Читать дальше...   )Жанр: Fusion, Smooth Jazz, Crossover JazzПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0A06F33FCA2B29BDF7F2220A0981F7CA4B7805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616378   (1036452) от 02.03.2023
+
+Dinah Washington - Dinah Jams (1954) 1984, EmArcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Come Back to Me [9:46]
+02. Alone Together [2:23]
+03. Summertime [2:27]
+04. Come Rain or Come Shine [2:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2DA7DF6CA062E85E9B38521859DFB2776F9F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616383   (1036444) от 02.03.2023
+
+Dinah Washington - Collection: 25 songs (1994) The Collection [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad About the Boy [2:50]
+02. Ain't Misbehavin' [2:37]
+03. What a Difference a Day Made [2:32]
+04. Close to You [4:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C602CAAAD4F3B9283034A09837D242E50E61B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616342   (1036441) от 02.03.2023
 
 Najee - Savoir Faire (2022) [FLAC|Lossless|image + .cue] <Smooth Jazz>
@@ -658,93 +745,6 @@ Dinah Shore - Fascination: The Encore Collection (1950-e) 1997, BMG Music [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05F6CF7ECB9731EA51A8BC2C4112DE724FCBCC6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617058   (1035584) от 05.03.2023
-
-Quincy Jones - Milestones Of A Legend (1953 - 1962) 10CD, 2022, The Intense Media [FLAC|Lossless|tracks + .cue] <Bop, Cool, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Golden Touch [3:05]
-02. Jones Beach [4:55]
-03. The Midnight Sun Will Never Set [4:58]
-04. I'm Gone [5:18](   Читать дальше...   )Жанр: Bop, Cool, Big BandПродолжительность: 11:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3F29486D6390723B585BFCB9094B27EC0261BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617171   (1035567) от 05.03.2023
-
-Eva Cassidy & London Symphony Orchestra - I Can Only Be Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Classical Crossover, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Songbird
-02. Autumn Leaves
-03. People Get Ready
-04. Waly Waly(   Читать дальше...   )Жанр: Vocal Jazz, Classical Crossover, Easy ListeningПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA53B2414396FAC477647554C693B1E5028E3E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617061   (1035538) от 05.03.2023
-
-Laura Cox - Head Above Water (2023) [FLAC|Lossless|image + .cue] <Blues Rock, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head Above Water
-02. So Long
-03. One Big Mess
-04. Set Me Free(   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C6F5F289C624D77977C15035EC19324033AEF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

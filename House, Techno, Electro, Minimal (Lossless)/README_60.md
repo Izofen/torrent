@@ -1,3 +1,57 @@
+###  Публикация: 1679569   (138064) от 25.11.2023
+
+Coiro - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C715C4007EDFC9ED253734A421726632D064EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273354   (138046) от 31.12.2018
+
+Thomas Rossetti - Feel Nature EP (2019) Maintain Replay Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature (06:03)
+ 02. Air High (06:30)
+ 03. Feel (06:41)Жанр: Tech House, MinimalПродолжительность: 00:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872C0A3CF1803C26A5136A35A72839AC5F46C739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679544   (138044) от 25.11.2023
 
 VA - CAVALRY 009 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
@@ -671,64 +725,6 @@ Irene Dresel - Rose Fluo (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:416C98DD0002B9FCFA43A3621EB306A4F1032197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706991   (113417) от 15.03.2024
-
-LAO - Chapultepec (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axolotl [00:06:49]
-02. Corriente de aire [00:01:59]
-03. Manantial [00:04:27]
-04. Alita [00:03:29](   Читать дальше...   )Жанр: House, Techno, Electro, MinimalПродолжительность: 01:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1E2904349CDCFE59C46ABA665F05A533925DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707355   (113361) от 16.03.2024
-
-Argy - New World (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Argy, Son Of Son - Faust (3:38)
-02. Argy, Weekend Heroes - No One’s Coming (3:39)
-03. Argy, Omnya - Aria (3:56)
-04. Argy - All Day Long (3:44)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EE6F00C6E27882F2E04941CC7D4AE977B567CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

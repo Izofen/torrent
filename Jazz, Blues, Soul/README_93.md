@@ -1,3 +1,98 @@
+###  Публикация: 760967   (899995) от 26.02.2014
+
+Bad Brad & The Fat Cats - Take A Walk With Me (2014) [MP3|320 кб/с]<Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Take A Walk With Me
+02 - Leghound
+03 - Ego Trip
+04 - Take It Easy
+05 - Going To The Country
+06 - Headin' Out
+07 - Lucky Man
+08 - Other Side
+09 - Runnin' Me Down
+10 - See My Way(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E1220694CC394E1EA48247D16BB3AE7FC808EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100608   (899968) от 04.02.2017
+
+Nils Landgren with Janis Siegel - Some Other Time - A Tribute To Leonard Bernstein (2016) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture: America ( Bernstein, Leonard) 00:42
+02. Some Other Time ( Bernstein, Leonard / Comden, Betty & Green, Adolph) 05:17
+03. Cool ( Bernstein, Leonard / Sondheim, Stephen) 03:40
+04. Maria ( Bernstein, Leonard / Sondheim, Stephen) 03:13(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B191A7C71C53E55453D1FFF6CC9065962AFD3A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760699   (899962) от 26.02.2014
+
+Senas Kuinas - Rinkinys (2011) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Очень хочу познакомить вас с литовским блюзом, диск был куплен в 2012 году
+во время концерта,  так что дата выпуска может быть не точной...01. Valtis
+02. As tau palieku
+03. Traukinys ''Lietuva''
+04. Gerb. Ponai, gerb. Ponios
+05. Nei mamos, nei tevo(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D478C0AF08385C93227F3AEF2BBEC9CBBBA352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 760970   (899959) от 26.02.2014
 
 James Armstrong - Guitar Angels (2014) [MP3|320 кб/с]<Modern Electric Blues>
@@ -666,93 +761,6 @@ Daisy Jopling Band - Awakening (2017) [FLAC|Lossless|tracks] <Jazz, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F8A0ACD0EE513EFAEB5BD31180710E78E3F203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100954   (898012) от 05.02.2017
-
-Rob Tognoni - 4 Album (2012 - 2016) [FLAC|Lossless|image + .cue] <Heavy Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Robert John Tognoni (Тоньони) родился в Улверстоне, на северо-западном побережье Тасмании в 1960 году, в семье итальянских эмигрантов. детство RJT было достаточно далеким от музыки, кроме как пения его матери в кругу семьи и ее спектаклях пантомимы "Al Jolson" в местных залах сообщества. В 60-е Тасмания была в глубокой изоляции и вплоть до 70-х Blues не (   Читать дальше...   )Список альбомов:
-2012 - Art
-2013 - Casino Placebo
-2015 - Birra For Lira(   Читать дальше...   )Жанр: Heavy Blues RockПродолжительность: 03:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FE0E0BB0E54056BBCCBFA146DF135891B9CB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100838   (897959) от 05.02.2017
-
-Eric Clapton - Eric Clapton (1997) [FLAC|Lossless|image + .cue] <Blues Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Your Witchdoctor (John Mayall's Bluesbreakers feat. Eric Clapton)
-02. For Your Love (The Yardbirds with Eric Clapton)
-03. Boom Boom (The Yardbirds feat. Eric Clapton)
-04. Good Morning Little Schoolgirl (The Yardbirds with Eric Clapton)(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A394CED82AF3C6F2FE18B4B8DA29C7D993AB9824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100851   (897945) от 05.02.2017
-
-Eric Clapton - Backtrackin': 22 Tracks Spanning The Career Of A Rock Legend (1984) 2CD [FLAC|Lossless|image + .cue] <Pop/Rock, Blues, Classic Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk1:
-01. I Shot The Sheriff (04:24)
-02. Knockin' On Heavens Door (04:25)
-03. Lay Down Sally (03:53)(   Читать дальше...   )Жанр: Pop/Rock, Blues, Classic RockПродолжительность: 01:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56543B6D6FAA75D2EE06A792BA541BA239F1B9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

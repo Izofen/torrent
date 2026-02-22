@@ -1,3 +1,119 @@
+###  Публикация: 1446095   (1033024) от 08.02.2021
+
+VA - Acoustic Versions of Rock Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Django Wallace - My Hero (03:46)
+02. Shannon & Keast - Wake Me up When September Ends (04:10)
+03. Karizma Duo - Everybody’s Changing (02:35)
+04. Nora & Will - Creep (04:21)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B27F89AA9AB9E8CD1B924210B26DEDC2B9D3B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619439   (1032965) от 16.03.2023
+
+The Cosmic Sound Orchestra - Fly Some Funk Up To The Moon (1978) LP [MP3|320 Kbps] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Some Funk Up To The Moon (3:26)
+02. Listen To The Beat (3:56)
+03. I'm Being Cool (3:47)
+04. Don't Cry (4:05)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778768717387A62CEE286452026E9876C474E623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619463   (1032959) от 16.03.2023
+
+VA - 100 Easy Hits (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032959.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anderson .Paak - Smokin Out the Window
+002. Ed Sheeran - Perfect
+003. Rod Stewart - Have I Told You Lately
+004. THE GOO GOO DOLLS - Iris(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424B027A3F67C38E0CF961278B84A4AAC0560AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619725   (1032795) от 17.03.2023
+
+VA - Old Music Alert 70s (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Travolta - Summer Nights (From “Grease”)
+02. Bee Gees - How Deep Is Your Love
+03. Supertramp - The Logical Song (Remastered 2010)
+04. Iggy Pop - The Passenger(   Читать дальше...   )Жанр: PopПродолжительность: 05:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11CBDBFE3A5AED4AD85E38610C5AC73604F2F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619693   (1032791) от 17.03.2023
 
 VA - 100 Greatest Party Songs (2022) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
@@ -629,122 +745,6 @@ VA - Disney's Exclusive Rock & Pop Collection - Golden Sixties (1998) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B56E71DC29329F61E060C6910929439B1D9DA36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447172   (1032081) от 12.02.2021
-
-The Goombay Dance Band - Mega-Hit-Mix (1998) [FLAC|Lossless|image + .cue] <Europop, Euro-Disco, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley 1 (23:31)
-1.	Sun Of Jamaica
-2.	Island Of Dreams
-3.	My Bonnie(   Читать дальше...   )Жанр: Europop, Euro-Disco, MedleyПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2343479E4F4F32E13E64BF73C8A45383FEE5C191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447199   (1032072) от 12.02.2021
-
-Dalida - Saint Valentin (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032072.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pour te dire je t'aimefer (04:20)
-2. Le temps d'aimer (04:14)
-3. Ti Amo (03:30)
-4. Parle-Moi D'Amour Mon Amour (03:14)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 00:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB38F08C64608DDC3105EC02683F016D00702845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447196   (1032047) от 12.02.2021
-
-Sia - Music (Songs From And Inspired By The Motion Picture) (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032047.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Together
-2. Hey Boy
-3. Saved My Life
-4. Floating Through Space(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67ABB8F03657664C740035798FE4BDBDD4C95FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447206   (1032027) от 12.02.2021
-
-Boney M. - Rasputin - Big And Strong: The Greatest Hits of Boney M. (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rasputin
-02. Daddy Cool
-03. Sunny
-04. Ma Baker(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A9FE11F5BFD769B12B864FB65D7B44AD99DAD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

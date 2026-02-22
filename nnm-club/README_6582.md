@@ -1,22 +1,101 @@
-###  Публикация: 1204589   (784401) от 07.02.2018
+###  Публикация: 1389003   (785079) от 08.06.2020
 
-Light Image Resizer 5.1.2.0 RePack by вовава [Ru/En]
+Мой папа – супергерой / Copperman (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ансельмо — особенный. Уже взрослый мужчина, он смотрит на мир глазами ребенка и до сих пор верит, что отец, который когда-то оставил его, — супергерой. Ансельмо живет своей детской мечтой и однажды понимает: пришло время самому исполнить ее.Производство: Италия / Eliofilm, Notorious Pictures, Rai CinemaЖанр: МелодрамаРежиссер: Эрос ПульеллиАктеры: Лука Арджентеро, Антония Труппо, Галатеа Ранци, Джанлука Гобби, Томмазо Раньо, Себастьян Димулеску, Анджелика Белуччи, Гуальтьеро Бурци, Луис Мольтени, Паоло РоманоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (Full), Итальянские (Full)Продолжительность: 01:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCD0C5102CCB8CBF37C4A04DF17E8583EF76CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388787   (785078) от 08.06.2020
+
+Леонардо да Винчи. Неизведанные миры / Io, Leonardo (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие в сознание Леонардо да Винчи, легенды мировой культуры, одного из самых удивительных гениев, каких знает история человечества, создателя «главной в мире картины» — «Моны Лизы». С помощью самых современных технологий в фильме воссоздаются великие произведения мастера.Производство: Италия / Progetto Immagine, Sky Arte HD, Comune di FirenzeЖанр: БиографияРежиссер: Хесус Гарсес ЛамбертАктеры: Лука Арджентеро, Анджела Фонтана, Массимо Де Лоренцо, Matt DeLuise, Франческо ПаннофиноПеревод: Профессиональный (многоголосый закадровый) (iTunes)Субтитры: Русские форсированныеПродолжительность: 01:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325CDCA189D375C62B5DBF9AA579E51709797CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388862   (785077) от 08.06.2020
+
+Футажи - Bounce Color - Aura Lens Flares 4K [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блики Aura могут использоваться на последовательностях титров, в качестве переходов и могут работать поверх любого видео. Цвет также можно отрегулировать с помощью встроенного цветового инструмента. Есть много способов использовать данные световые эффекты, вы просто должны проявить творческий подход!
+Все блики сняты в разрешении 3840 x 2160 с использованием реальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DD9F5A0D5A1E5CE36BFB301A016EE7D5786574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352324   (785076) от 08.06.2020
+
+VIP Notes 9.9.28 (Paid) [RU]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784401.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Защищенный блокнот с вложениями.Тип издания: ПираткаРелиз состоялся: 08.06.2020Разработчик: Oleg RomantsevПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C56DBD849F951DCF1163B1CA03046E5901496F1
+magnet:?xt=urn:btih:6F93978DED96DF3FB64551912738E4D905BF54DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +103,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204697   (784400) от 07.02.2018
+###  Публикация: 1277667   (785075) от 21.01.2019
 
-Журнал | House Beautiful [UK] №2 (февраль 2018) [PDF] [En]
+Asphyxiate - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Журналы
->>Домоводство (журналы)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784400.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
+01. Blood Feast Ripping Putrescent (3:57)
+ 02. Sickening Canvas of the Dead (3:07)Жанр: Death MetalПродолжительность: 00:07:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8B5E3394FB38E9E598044C5C49B217DE756A9F0
+magnet:?xt=urn:btih:F6603456E1504D1044367565AF65658ECD8BD71A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +130,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204559   (784399) от 07.02.2018
+###  Публикация: 1277674   (785074) от 21.01.2019
 
-The Modern Jazz Quartet - Concert In Japan, Vol.2 (1966) 2014, Warner [FLAC|Lossless|image + .cue] <Cool>
+Deteriorate - Rotting in Hell (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agonized Display (3:46)
+ 02. A Thousand Years of Anguish (3:12)
+ 03. Cannibal Autopsy (3:40)
+ 04. Devoured (2:41)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3E967C64DBAB0C448612294769FCB8E5896D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277673   (785073) от 21.01.2019
+
+Despondency - God on Acid (2003) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embodiment of a Failed Brood (3:52)
+ 02. Fucked (5:00)
+ 03. 9mm Headfuck (4:27)
+ 04. God on Acid (4:30)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B726B4FCB7B201112E8E9DE30A6F1D1F6E01157E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277662   (785072) от 21.01.2019
+
+Orchidectomy - A Prelate's Attrition (2008) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Debridement (2:06)
+ 02. Writhing in Psychotic Hysteria (2:30)
+ 03. Fourth Blessed Gorge (2:59)
+ 04. Procreate to Eviscerate (2:46)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFCB8B17DF28EDE0BBC3F91A0F1449DC482899C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277573   (785071) от 21.01.2019
+
+Eddie Gomez - Power Play (1988) Sony [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784399.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ralph's New Blues [06:48]
-02. I Love You Porgy [04:56]
-03. Pyramid [07:20]
-04. Home [04:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:39:42
+01. Power Play [5:40]
+02. Loco Motive [3:54]
+03. Spanish Flower [5:16]
+04. Mel [5:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C645435FEFEA316E8F4D93F99B14176F6D791D11
+magnet:?xt=urn:btih:21FEB9744C41D6B4E6DEE5EE3BD150B0BB3249A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +246,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204725   (784398) от 07.02.2018
+###  Публикация: 1277575   (785070) от 21.01.2019
 
-VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
+Ornette Coleman Trio - Live Manchester Free Trade Hall 1966 (2018) 2CD, Hi Hat [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784398.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Perfect Stranger - Manifestation (Shanti V Deedrah Remix)
-02. Perfect Stranger & Sphera - Done That (Merkaba Remix)
-03. Perfect Stranger - Six Feet Under (Captain Hook Remix)
-04. Perfect Stranger - Easy (Sphera Remix)(   Читать дальше...   )Жанр: Trance,Psytrance,Progressive HouseПродолжительность: 04:26:01
+CD1:
+01. European Echoes [14:20]
+02. Unnamed [13:54]
+03. Unnamed [17:21]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:35:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08B398A7731E92050E55E5B873927948474DABBC
+magnet:?xt=urn:btih:5D0DCF3CC4C89A3FC16EC2B5007161E004001908
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +275,281 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204744   (784397) от 07.02.2018
+###  Публикация: 1277675   (785069) от 21.01.2019
 
-BlueHarvest 7.0.2 [Multi/Ru]
+Deteriorate - The Senectuous Entrance (1996) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Senectuous Entrance (2:53)
+ 02. In the Presence of Eurus (3:55)
+ 03. Xipe Totec (3:15)
+ 04. Stealing Strength From the Ivory Boar (3:01)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57221767CB27F99AC4F98B5F0F9DB7C5D882950B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277684   (785068) от 21.01.2019
+
+Guttural Disease - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asphyxiation Through Human Arteries (3:42)
+ 02. Fermented Intestine Warfare (3:52)Жанр: Death MetalПродолжительность: 00:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9456082F60FA1604C63433D92363D45091EBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277676   (785067) от 21.01.2019
+
+Lividity - The Age Of Clitoral Decay (2000) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oozing Vaginal Discharge (3:53)
+ 02. The Urge to Splurge (1:38)
+ 03. Chamber of Bone (4:28)
+ 04. Anal Action Wife (4:39)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F3D01BE79BDD586300876DA087204AAE035BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277665   (785066) от 21.01.2019
+
+Waking The Cadaver - Beyond Cops. Beyond God. (2010) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Cops (3:56)
+ 02. Reign Supreme (3:09)
+ 03. Sadistic Tortures (5:02)
+ 04. Made in Hell (3:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DB30FB134DCC6955B9B7978A69336057BECA2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277669   (785065) от 21.01.2019
+
+Despondency - Revelation IV (Rise of the Nemesis) (2009) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Existence of Dismay (3:47)
+ 02. Victimize Their Idols (4:55)
+ 03. Invidious (4:56)
+ 04. Rise of the Nemesis (5:40)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC8715DD7A79E6E33950E40F0D5BBBE38EB46FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277611   (785064) от 21.01.2019
+
+FSNotes 2.6.0 [En/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784397.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BlueHarvest - автоматически удаляем скрытый мусор
-BlueHarvest -  утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
+FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117BB46776537B12748CF7253EACB443C63CAE88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277622   (785063) от 21.01.2019
+
+SQLPro Studio 1.0.335 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785063.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и OracleТип издания: macOS SoftwareРелиз состоялся: январь 2019Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3F9B4E69E01D148360C6BB548200EBBC6213CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277712   (785062) от 21.01.2019
+
+Flasher - Constant Image (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go (01:41)
+02. Pressure (03:15)
+03. Sun Come And Golden (03:35)
+04. Material (03:46)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C2BFEC81EB770CBCB8BB2840B38FF3D65096C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277604   (785061) от 21.01.2019
+
+Ari Brown - Groove Awakening (2013) Delmark [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One For Ken [5:20]
+02. Groove Awakening [5:03]
+03. Enka [11:06]
+04. Veda's Dance [8:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8C97F966F49FEA0621F40753A15DCEFB15272A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277651   (785060) от 21.01.2019
+
+myTracks 3.4.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785060.jpg" />
+</div>
+
+
+###  Подробнее
+
+myTracks — удобный геотаггинг фото
+myTracks — замечательная программа, которая будет полезна многим фотографам и путешественникам. С ее помощью можно легко загрузить ваши маршруты с большинства известных GPS-девайсов или просто из GPX-файла, и добавить геотаги к отснятым во время путешествия фотографиям.
 
-Данная программа будет полезна для тех, кто любит включенную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+Кроме этого myTracks показывает проделанные маршруты на картах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Dirk StichlingПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский, Датский и Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7B3D89754958699212EA3178AAE534890D285B6
+magnet:?xt=urn:btih:0854B35FB97F72FAB2087EC3654BFEA5CBA29A34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,198 +557,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204759   (784396) от 07.02.2018
+###  Публикация: 1277743   (785059) от 21.01.2019
 
-ARGUS - Field of Dreams (2018) [MP3|320 Kbps] <Balearic, Downtempo, Ambien>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Gone (08:11)
-02. Ascent & Argus - Glaciers of Oblivion (08:36)
-03. Followed by Light (08:32)
-04. Wind Song (07:55)(   Читать дальше...   )Жанр: Balearic, Downtempo, AmbienПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DCA40C3A3036F61E1F56DBA83FF806CCE9130F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204651   (784395) от 07.02.2018
-
-Big Boy Bloater & The Limits - Big Boy Bloater And The Limits (2011) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Ugly Way Of Thinking 3:08
-02. I Heard Those Voices Again 3:11
-03. Fumble Fisted Fool 3:19
-04. Sweet & Brown 2:34(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A54F926C4E7BDE0CBA90B1A4049D0675B5067F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204698   (784394) от 07.02.2018
-
-Журнал | House Beautiful [UK] №3 (март 2018) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0295B897A6B8DFBA4D64FF7C90EB37E0BD03AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204658   (784393) от 07.02.2018
-
-Big Boy Bloater - Loopy (2014) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Bear Cat 4:12
-02. Every Path Has Its Puddle 3:08
-03. Pall Bearer's Song 2:58
-04. Bring Her Back To Me 2:47(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC0A4B5693E93F6578CB879BDA44BCE8BF920DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204459   (784392) от 07.02.2018
-
-Peter Karp & Mick Taylor - The Arson's Match (2015) KarpFoley, Live in NYC [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. The Arson's Match (Live) 5:21
-02. Gee Chee Gee Chee Wawa (Live) 6:13
-03. Y'all Be Lookin' (Live) 4:43
-04. The Turning Point (Live) 5:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2BF84C93531CEDF3F8A4A1B2D95A99536F07B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204912   (784391) от 07.02.2018
-
-Н.Е. Чаплина (сост.) | Воспитание души. Календарь для православных родителей на 2018 год (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календарь «Воспитание души» адресован православным родителям, бабушкам и дедушкам, которые хотят воспитать своего ребёнка в благочестии, чистоте.
-
-И не в меньшей степени он будет полезен духовным родителям (крёстным), которые становятся восприемниками чада при Крещении, и также участвуют в воспитании ребёнка, чтобы он вырос верующим православным христианином. Надеемся, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390DCB98B2C04CDFE07D28C6052D589107D0F6FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204888   (784390) от 07.02.2018
-
-VA - Empire Records - Bossanova 2 (2018) [MP3|320 Kbps] <Downtempo, Bossanova, Lounge>
+VA - German Top 50 Party Schlager Charts 21.01.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784390.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Rainer Schnelle  -  Beyond The Blue (Underscore Version)  2:16
-02.  Surfer  -  South Beach  5:06
-03.  Alyssa ZezZA  -  Purple Rain  3:47
-04.  Classical Jazz Guitar Club  -  Delightful Evening  3:06(   Читать дальше...   )Жанр: Downtempo, Bossanova, LoungeПродолжительность: 02:15:45
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Maite Kelly - Die Liebe Siegt Sowieso
+03. Andrea Berg - Ja Ich Will
+04. Kerstin Ott - Regenbogenfarben(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:59:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAEC1D3F415AF2928D1D46757DD1494EDF9FCD93
+magnet:?xt=urn:btih:904A3C752ACE2E852C968F6C33A6A7CAA4657B3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,26 +586,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204841   (784389) от 07.02.2018
+###  Публикация: 1389014   (785058) от 08.06.2020
 
-Николай Вучетич | Красный фонарь (1911) [PDF]
+Мой папа – супергерой / Copperman (2019) BDRip [H.264/720p] [PR]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784389.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повести и рассказы о железнодорожниках.
-Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+Ансельмо — особенный. Уже взрослый мужчина, он смотрит на мир глазами ребенка и до сих пор верит, что отец, который когда-то оставил его, — супергерой. Ансельмо живет своей детской мечтой и однажды понимает: пришло время самому исполнить ее.Производство: Италия, Eliofilm, Notorious Pictures, Rai CinemaЖанр: МелодрамаРежиссер: Эрос ПульеллиАктеры: Лука Арджентеро, Антония Труппо, Галатеа Ранци, Джанлука Гобби, Томмазо Раньо, Себастьян Димулеску, Анджелика Белуччи, Гуальтьеро Бурци, Луис Мольтени, Паоло РоманоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (Full), ИтальянскиеПродолжительность: 01:40:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C84F25D34492858EF829BB5E72A5FAB31A91B8E
+magnet:?xt=urn:btih:2F387DEF1C4E1D5F38AB0EE5E54A07FDE8754340
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,28 +612,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204656   (784388) от 07.02.2018
+###  Публикация: 1388817   (785057) от 08.06.2020
 
-Big Boy Bloater & The Limits - The World Explained (2012) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+Псы 3: Во имя правил / Psy 3: W imie zasad (2020) HDRip [MVO] [AD]
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784388.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Leonard Cohen 3:10
-02. Lifetime Money Back Guarantee 3:19
-03. I Can't Forget About You 4:00
-04. She Gets Naked For A Living 3:35(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:32:14
+Давно знакомый герой культовой саги о полицейских и сотрудниках Службы Безопасности, Франс Маурер выходит на свободу после 25 лет в заключении. Страна изменилась до неузнаваемости, а вместе с ней - сменились и враги...Производство: Польша / Wonder Studio, Polsat, Cyfrowy PolsatЖанр: Боевик, драма, криминалРежиссер: Владислав ПасиковскийАктеры: Богуслав Линда, Марчин Дорочиньский, Цезарий Пазура, Ян Фрыч, Себастьян Фабияньский, Томаш Шухардт, Мирослав Бака, Доминика Вало, Артур Жмиевски, Войцех ЗилинскиПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 02:04:58Реклама: Присутствует баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3224110338112E322845B2E5965BE05CBC098E7B
+magnet:?xt=urn:btih:AE234923E01B1913C2E0F2110A4E9811ED61ABFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,25 +638,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204716   (784387) от 07.02.2018
+###  Публикация: 1388849   (785056) от 08.06.2020
 
-Soft4Boost Document Converter 5.2.3.723 [Multi/Ru]
+Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack xatab (обновляемая)
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в 1940-е годы. В Европе бушует война, США готовится вступить в бой, а бандиты обстряпывают свои делишки, как и всегда. Но сейчас они зашли слишком далеко даже по меркам Винни. Вы сделали шокирующее открытие о том, что же на самом деле случилось в последней сцене из Guns, Gore & Cannoli 1 — бойни в городе бандитов, — а теперь вам надо отправляться (   Читать дальше...   )Тип издания: RepackРазработчик: Crazy Monkey Studios, ClaeysbrothersЖанр: Arcade, Indie, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20372E4EA90F20FBD5DD82F3CD4D90A84048A9BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373184   (785055) от 08.06.2020
+
+Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Eternity and the Auto Memories Doll | Виолетта Эвергарден: Вечность и призрак пера [2019, Movie] BDRemux 1080p raw+rus
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784387.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легкий и функциональный инструмент для просмотра и конвертации документов в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.Язык интерфейса: Русский, Английский, др.
+«Виолетта Эвергарден: Вечность и призрак пера» изображает жизнь Изабеллы Йорк, благородной девушки и наследницы дома Йорков, которая вынуждена своим отцом посещать школу для привилегированных молодых особ. Несмотря на внешнюю красоту школы, она для неё не более чем тюрьма, потому что она задыхается в её стенах. Потеряв всякую надежду, она встречает Вайолет Эвергарден, (   Читать дальше...   )Производство: Kyoto AnimationЖанр: ПриключенияРежиссер: Фудзита ХарукаЯзык озвучки: Японский и русскийСубтитры: ОтсутствуютПродолжительность: 95 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D4641ECC433F787EBADC13DBFA4C93F80319F6C
+magnet:?xt=urn:btih:877643064085A3DD96F7A4D8F41867C7BFC47491
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,297 +690,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204727   (784386) от 07.02.2018
+###  Публикация: 1363555   (785054) от 08.06.2020
 
-BookmarkApp 1.7.6 [Multi/Ru]
+Одинокие родители / Single Parents (2019) WEB-DL [H.264/720p] (сезон 2, серии 1-22 из 22) FOX Life
 
->>Программы для macOS
->>Утилиты для macOS
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784386.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BookmarkApp является уникальным и полезным инструментом для организации закладок в Вашем браузере Safari. Все, кто использует Safari в качестве основного браузера имеет много дубликатов закладок. Даже после очистки, во время импорта или добавления новых закладок может появиться также много дубликатов. Цель этого инструмента сделать Ваш Safari чистым и организованным, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2018Разработчик: Ruslan HakimzhanovПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский и Английский
+Уиллу немного за тридцать, и он в одиночку воспитывает прекрасную семилетнюю дочь. Он настолько глубоко погрузился в роль родителя, что совершенно забыл о том, какой он человек. Именно в это время он знакомится с другими героями сериала «Родители-одиночки»: с людьми, которые понимают его, готовы поддержать, помогут найти потерянную идентичность и наладить личную (   Читать дальше...   )Производство: США / Twentieth Century Fox Film CorporationЖанр: КомедияРежиссер: Эрин О’Мэлли, Джейсон Уайнер, Кэт КойроАктеры: Таран Киллэм, Лейтон Мистер, Кимри Льюис-Дэвис, Джейк Чои, Марлоу Барклей, Тайлер Владис, Миа Аллан, Элла Аллан, Девин Трей Кэмпбелл, Брэд Гэррет и др.Перевод: Многоголосый профессиональный (FOX Life)Субтитры: английские (full, SDH)Продолжительность: ~00:22:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C50A3F30D7346A874F2E6DD3B9687AE7CCD32CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204451   (784385) от 07.02.2018
-
-Peter Karp & Sue Foley - Beyond The Crossroads (2012) Blind Pig Records [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. We're Gonna Make It 2:34
-02. Analyze'n Blues 4:40
-03. Beyond The Crossroads 4:28
-04. Fine Love 3:00(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6F5679942C11ED4D44F58D1EC232AF1A324142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204338   (784384) от 07.02.2018
-
-Ученые из России создали новый материал для обшивки космических кораблей
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Химики из Санкт-Петербурга создали новый материал на базе силикона, который не разрушается при высоких температурах и может послужить одним из ключевых компонентов для обшивки спутников и космических кораблей, говорится в статье, опубликованной в журнале Catalysis Science and Technology."Нам удалось повысить термическую устойчивость силиконового покрытия до (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204465   (784383) от 07.02.2018
-
-Peter Karp - Blue Flame (2018) Rose Cottage Records [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. Rolling On A Log 4:20
-02. Train O'mine 2:58
-03. Your Prettiness 4:12
-04. Valentine's Day 3:18(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927C11834FC9A4BF6120621C5A876C5B7551096B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204672   (784382) от 07.02.2018
-
-The Ira B. Liss Big Band Jazz Machine - Tasty Tunes (2018) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Don't Know What Love Is 06:06
-02. Early Autumn 05:39
-03. I Didn't Know What Time It Was 03:27
-04. When The Lady Dances 08:19(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A742790C6FCF224BFB0514CDDC2D9040409609A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204713   (784381) от 07.02.2018
-
-Vivaldi 1.14.1077.45 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65667992B991E1469AFA922D8EE028E9ADB4ADB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204711   (784380) от 07.02.2018
-
-Slimjet 17.0.9.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D016AE4FBCDC79D6D58AB69C27B64D834DE21B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204710   (784379) от 07.02.2018
-
-Журнал | Сад своими руками №3 (март 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущее российское издание о саде. Рассказывает о том, как без помощи специалистов создать свой, неповторимый сад, как ухаживать за растениями, как своими руками построить беседку, сделать дорожки, забор, водоем и многое другое. В каждом номере журнала представлены проекты садов и «энциклопедии» растений, что поможет вам собрать коллекцию практических решений для (   Читать дальше...   )Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58111575DC990518585D0A351CFEC133A6102F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204691   (784378) от 07.02.2018
-
-Журнал | InfoCity №1 (123) (январь 2018) [PDF] [Ru,Az]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784378.jpg" />
-</div>
-
-
-###  Подробнее
-
-InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C26809CC9E83CA1AA1B30F2A9963CF5048D7CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204726   (784377) от 07.02.2018
-
-VirusKiller Antivirus 4.1.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Endurance Antivirus - Adware & Malware антивирус.
-" ... проведенное исследование группы независимых разработчиков, в области антивирусной безопасности, - атаки на системы с macOS в 2017 г. увеличились на 78% (что несомненно говорит, о все растущей популярности компьютеров Mac)."
-
-Приложение тщательно сканирует все файлы и папки в вашей системе. Уникальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2018Разработчик: EDELWEISS SRLПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4408FE0DCDA2FCA61983AE98F2C9ABA76FBCEEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204761   (784376) от 07.02.2018
-
-Vivaldi 1.14.1077.45 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D3E3467535F337BB253D01DECFEC7DD43ED4CF8
+magnet:?xt=urn:btih:AF335106C9BBBF6DEFB153261DFC142CC5D4A301
 ```
 
 https://mybot314.ru/tekegram_catalog/

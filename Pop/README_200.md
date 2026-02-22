@@ -1,3 +1,119 @@
+###  Публикация: 1163018   (452714) от 04.09.2017
+
+VA - The Sweet Sound of Bossanova (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seby Burgio – Corcovado.mp3
+02. Seby Burgio – Shimbalaie.mp3
+03. Bruno Patinho – Pra Machucar Meu Coracao.mp3
+04. Giacomo Bondi – Moonlight Bossa.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC4C1270E15DD3B80BA18DDB5E751D7006B6D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163078   (452708) от 04.09.2017
+
+The Players Association - Born To Dance (1977) LP [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goin' To The Disco (4:29)
+02. Make It Last All Night (4:55)
+03. Disco Inferno (5:39)
+04. We Were Born To Dance (4:21)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1952E4DF87604CAC04C9DB33F677A109E55E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163086   (452623) от 04.09.2017
+
+Kiki Gyan - 24 Hours In A Disco 1978-82 (2012) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Dancer (6:57)
+02. 24 Hours in a Disco (7:20)
+03. Keep On Dancing (6:30)
+04. Disco Train (10:20)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8CC244E50D059C7E83122A3F1DC55CEE17D84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163026   (452508) от 04.09.2017
+
+Charles Aznavour - Bon Anniversaire Charles (Levon Sayan Presente) (2005) 2CD [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Autobiographie
+02. La Critique
+03. Lisboa(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9411E570997C6158EDDA3387FDAB6F12CF23B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163232   (452500) от 04.09.2017
 
 Soraya - Dolce Vita (2007) [MP3|320 Kbps] <Eurodance, Pop>
@@ -639,122 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94703401A97D415FE6725C44C990C4EE410D8532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163721   (448412) от 06.09.2017
-
-Faith Hill - Cry (2002) Japanese Edition [FLAC|Lossless|tracks + .cue] <Country, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free (4:39)
- 02. Cry (3:46)
- 03. One (5:20)
- 04. When The Lights Go Down (4:05)(   Читать дальше...   )Жанр: Country, PopПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA1F45F605BE5176A0BA634324A636E2434FE75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061438   (448231) от 10.10.2016
-
-Lime - The Greatest Hits (Remixed) (2007) [FLAC|Lossless|tracks + .cue] <Disco,  Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Eyes (Remix) [05:55]
-02. Come And Get Your Love (Remix) [11:51]
-03. Take It Up (Remix) [11:52]
-04. Your Love (Remix) [12:36](   Читать дальше...   )Жанр: Disco,  Hi NRGПродолжительность: 01:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B08DA2D4F75FE3FF9492C647D475C9FA6AC477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409200   (447480) от 16.09.2020
-
-Brass & Congas - Brass & Congas (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lion  (4:36)
-02. Highwayman  (2:41)
-03. New-York  (3:15)
-04. Radio On  (4:59)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFDFD66DB677BB7D1EFF4BA1AD3512B142EE812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569666   (447202) от 15.08.2022
-
-Sandra - Fading Shades (1995) [OGG|485 Kbps] <Downtempo, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fading Shades (Part I)	1:02
-02. Nights In White Satin   3:34
-03. Son Of A Time Machine	5:01
-04. Won't Run Away	4:14(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22B67A1228CC40537E68ACF092A8CC5ADA5D650
 ```
 
 https://mybot314.ru/tekegram_catalog/

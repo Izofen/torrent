@@ -1,3 +1,32 @@
+###  Публикация: 1656562   (203051) от 31.08.2023
+
+Soen - Memorial (2023) [MP3|320 Kbps] <Progressive Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sincere (04:35)
+ 02. Unbreakable (04:12)
+ 03. Violence (03:56)
+ 04. Fortress (04:04)(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8AAF25100960A93271A31F193AE8B1FC29385CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610715   (202963) от 08.02.2023
 
 In Flames - Foregone (2023) Limited Edition [MP3|320 Kbps] <Modern Metal, Alternative Metal>
@@ -716,35 +745,6 @@ La Menade - Reversum (2023) [MP3|320 Kbps] <Alternative Metal, Female Vocals>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CF9020D93C43D2E81FA141722D122D235837F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589941   (189456) от 12.11.2022
-
-The Chapter - 3 Albums (2006-2022) [MP3|320 Kbps] <Doom, Death, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2006 - Into the Abyss
-2017 - Angels & Demons
-2022 - Delusion of ConsciousnessЖанр: Doom, Death, Gothic MetalПродолжительность: 3 CD, 01:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42AF3FE26E6C1A1588087E180EB93F33D65ED777
 ```
 
 https://mybot314.ru/tekegram_catalog/

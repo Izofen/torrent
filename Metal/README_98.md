@@ -1,3 +1,32 @@
+###  Публикация: 1626150   (254661) от 30.04.2023
+
+Metallica - 72 Seasons (2023) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 72 Seasons
+02. Shadows Follow
+03. Screaming Suicide
+04. Sleepwalk My Life Away(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 01:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB66207345442589DF740B08089EAE40A46B8BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498554   (254376) от 19.05.2012
 
 Axxis - reDISCOver(ed) (2012) [MP3|320 кб/с]<Melodic Heavy Metal>
@@ -778,35 +807,6 @@ Windhand - Windhand (2012) [MP3|320 кб/с]<Stoner Doom>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBE531A3ACE4D24812B2121E4100FFEBFD4DD375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491971   (247840) от 05.05.2012
-
-De Lirium’s Order - Veniversum (2012) [MP3|320 кб/с]<Technical Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autistic Savant (06:38)
-02. 44 (06:41)
-03. Maximum Sentence (05:39)
-04. Seppuku (04:20)Жанр: Technical DeathПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BBEE5EF92EB9DFA63FCF9C6CD519A1BF0E486B
 ```
 
 https://mybot314.ru/tekegram_catalog/

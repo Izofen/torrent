@@ -1,3 +1,61 @@
+###  Публикация: 1110703   (851649) от 03.03.2017
+
+Смоки Мо - День третий (2017) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Способ выйти из комы
+02. Палладии
+03. Лёгкие способы (Арнольд скит)
+04. Злой дизайн(   Читать дальше...   )Жанр: RapПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA70B02AED203D6F99B6321526296A9B754E7EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378060   (848423) от 24.04.2020
+
+Czar - Pig Drum (Side B) (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Play with Us (feat. Kalibah) [02:54]
+02. Victor Frankenstein (feat. СД) [03:15]
+03. Creators (feat. ЗАМАЙ) [03:17]
+04. Если Бы Не Я (feat. Danny Hackel) [03:27](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCB0FF05BCCEFF438C48CC15D721B26CF7270E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378057   (848335) от 24.04.2020
 
 lojii & Swarvy - Due Rent (Blends) (2020) [MP3|320 Kbps] <Hip-Hop, R&B, Soul>
@@ -686,64 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906A5BD28865EAD78A2EDCB35975417CBE1D5393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116873   (820441) от 21.03.2017
-
-Drake - More Life (2017) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820441.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Free Smoke [3:39]
-2. No Long Talk (feat. Giggs) [2:30]
-3. Passionfruit [4:59]
-4. Jorja Interlude [1:48](   Читать дальше...   )Жанр: Hip-Hop/RapПродолжительность: 01:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FDB1691122EC4EB004105B54BE192EFDE30711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503536   (819489) от 19.10.2021
-
-Atmosphere - WORD? (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood (3:30)
-02. Something (3:12)
-03. Crumbs (feat. Evidence & Muja Messiah) (4:04)
-04. Woes (3:27)(   Читать дальше...   )Производство: Rhymesayers Entertainment – RSE0330-2Жанр: Hip-HopПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A02AC624985A35C67389A09BE883C3A737A88E
 ```
 
 https://mybot314.ru/tekegram_catalog/

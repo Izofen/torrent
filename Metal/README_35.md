@@ -1,3 +1,32 @@
+###  Публикация: 1000149   (859266) от 25.03.2016
+
+Metal Church - XI (2016) [MP3|320 кб/с] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reset
+02. Killing Your Time
+03. No Tomorrow
+04. Signal Path(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5FF65855ECB1E768CF92D9767E228BB4A31DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000341   (859203) от 25.03.2016
 
 Caliban - Gravity (2016) Deluxe Edition [MP3|320 кб/с]<Metalcore>
@@ -782,34 +811,6 @@ Darkflight - Closure (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Doom Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:382B5DD57FCCB197CCCD05F087CD9A5DA450665C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376848   (855198) от 20.04.2020
-
-In Dying Arms - 3 Albums (2011-2016) [MP3|320 Kbps] <Deathcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855198.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011 - In Dying Arms (Remake 2017)
-2012 - Boundaries
-2016 - Original SinЖанр: Deathcore, MetalcoreПродолжительность: 02:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84490FD0FDA9C26FE98E087C2389D45EBB0E19B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

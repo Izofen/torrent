@@ -1,61 +1,3 @@
-###  Публикация: 1807432   (65160) от 19.07.2025
-
-VA - Cooking Dinner Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Esperanza Spalding - I Know You Know (3:45)
-02.  Vanisha Gould - I Can Say To You (4:13)
-03.  Hiromi - Another autumn (From "BLUE GIANT" Soundtrack) (2:32)
-04.  Richie - Set It Free (4:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A6ACB720D2CC7748929E6A1401E53B09BCCEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807436   (65158) от 19.07.2025
-
-VA - Jazz Verano (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Louis Armstrong - Summertime (4:56)
-02.  John Legend - Summertime Blue (3:30)
-03.  Samara Joy - Flor de Lis (Upside Down) (5:37)
-04.  Jeff Goldblum & The Mildred Snitzer Orchestra - In The Wee Small Hours Of The Morning (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CCDBE9BB7EFD08EFC47A91E3513B7CDCDF676F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807434   (65155) от 19.07.2025
 
 VA - Happy & Jazzy Summer Instrumentals, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -745,6 +687,64 @@ V.A. - Bossa Nova Covers of Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F92CE7A82D9C6417E6521920BCB93BFB9DBABC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719418   (57925) от 01.05.2024
+
+Bobby Watson - Back Home In Kansas City (2022) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Home in Kansas City [4:33]
+02. Red Bank Heist [7:33]
+03. Our Love Remains [5:26]
+04. Bon Voyage [6:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A400E31DC3485BC4D0936EBB88B39991735111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719474   (57924) от 01.05.2024
+
+Judy Wexler - What I See (2013) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow Is Another Day [6:30]
+02. The Moon Is Made of Gold [3:16]
+03. Convince Me [4:17]
+04. They Say It's Spring [4:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C49944DD508EFB17197C5DFC00F1345711F2757
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 487571   (100437) от 24.04.2012
+
+VA - The Essence of Jazz Vocals (2012) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01..  Etta James -  It's A Man's Man's World  (4:55)
+02..  Tony Bennett -  Because Of You (with K.D. Lang)  (4:07)
+03..  Sarah Vaughan -  The Man I Love  (4:06)
+04..  Nina Simone -  I Put A Spell On You  (2:37)
+05..  Betty Carter & Ray Charles -  Alone Together  (4:48)
+06..  Dinah Washington -  Mad About the Boy  (2:48)
+07..  Al Jarreau -  Your Song  (5:38)
+08..  Ella Fitzgerald -  Dream a Little Dream of Me - with Count Basie  (4:09)
+09..  Nat King Cole -  Unforgettable  (3:30)
+10..  Nicki Parrott -  Besame Mucho  (4:45)(   Читать дальше...   )2012Жанр: Vocal JazzПродолжительность: 01:10:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486894   (100330) от 23.04.2012
 
 Randy Scott - Words Unspoken (2002) [FLAC|Lossless]<Smooth Jazz>
@@ -834,41 +869,6 @@ The Blues Band - Be My Guest (2003) [APE|Lossless]<Blues>
 08. When I Itches I Scratch
 09. Bad Boy
 10. Can't Get My Ass In Gear(   Читать дальше...   )2003Жанр: BluesПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476264   (98430) от 02.04.2012
-
-Carl Martin - Crow Jane Blues (1997) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crow Jane Blues
-02. Corrina, Corrina
-03. Trouble on Your Hand, No. 2
-04. State Street Pimp, No. 2
-05. Grave Digger Blues
-06. Worried All the Time
-07. Liza Jane
-08. Good Morning Judge
-09. John Henry
-10. West Virginia Blues(   Читать дальше...   )1997Жанр: BluesПродолжительность: 00:57:29
 
 ## Скачать торент
 ```bash

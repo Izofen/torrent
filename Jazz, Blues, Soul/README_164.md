@@ -1,3 +1,90 @@
+###  Публикация: 1124141   (785970) от 10.04.2017
+
+The Naughty Blokes - We Rise (2016) [FLAC|Lossless|WEB-DL|tracks] <British Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Attack  (03:40) 
+02. Move You  (03:29) 
+03. Tenderly Loved Woman  (05:31) 
+04. Constantly  (04:01) (   Читать дальше...   )Жанр: British BluesПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291F2C75DEF980DF5948A79C93715E75D4D8C6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124133   (785963) от 10.04.2017
+
+Pee Wee Crayton - Things I Used To Do (1971) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Night  (02:50) 
+02. But On The Other Hand  (04:06) 
+03. Peace Of Mind  (02:54) 
+04. Let The Good Times Roll  (02:50) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA4DC15530231ADD486FF78EF3C43E0B3DE663C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124246   (785940) от 10.04.2017
+
+Keb' Mo' - Bluesamericana (2014) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Worst Is Yet To Come  (03:57) 
+02. Somebody Hurt You  (03:37) 
+03. Do It Right  (04:08) 
+04. I'm Gonna Be Your Man  (04:34) (   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE107B09DBF55EDDC8DC311258F2B69BF44978FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124443   (785844) от 11.04.2017
 
 Paul Bley - Live In Haarlem (1966) 1999, DA Music [FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
@@ -658,93 +745,6 @@ Thomas Hardin Trio - Moonlight Cafe (1999) Victor Entertainment [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF74B5A362906399CEC74012B7D748C55018521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277406   (785480) от 20.01.2019
-
-Art Farmer - The Complete Albums Collection 1958-1961 (2016) 4CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785480.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Back In The Cage [5:08]
-02. Stablemates [4:36]
-03. The Very Thought Of You [5:44](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 05:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983F7310C16ACDB1BD0F033D60E5528323F94386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277442   (785479) от 20.01.2019
-
-Sonny Rollins - Complete Sonny Rollins in Japan (1973) 2CD, 2018, JVC [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785479.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Powaii [18:48]
-02. St. Thomas [5:26]
-03. Alfie [13:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD8BFF7A69873627D5F73F2373C8452AD9F90E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277446   (785478) от 20.01.2019
-
-Donald Byrd - Fancy Free (1969) 2017, Universal [FLAC|Lossless|tracks + .cue] <Soul Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy Free [12:07]
-02. I Love the Girl [8:48]
-03. The Uptowner [9:17]
-04. Weasil [9:00]Жанр: Soul Jazz, Hard BopПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B1D1B567C416D2FA012B00F706AFD669B3D16A
 ```
 
 https://mybot314.ru/tekegram_catalog/

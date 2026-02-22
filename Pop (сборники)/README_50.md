@@ -1,3 +1,32 @@
+###  Публикация: 1223922   (667070) от 09.05.2018
+
+VA - Жаркие музыкальные хиты (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667070.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Indira - Делай Меня Любовь
+002. Vitalio - Засыпай
+003. Artemiev - Держи Меня
+004. Оля Краснова - Та Самая Лов(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717206AACE5E3C843E0C24174C0B2AF2901717B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224391   (665936) от 10.05.2018
 
 VA - Music for Car 7 (2018) [MP3|320 Kbps] <Pop>
@@ -737,41 +766,6 @@ CD-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B81933FC9610DF87FF9221A9C5FA18772E9ECA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515238   (656620) от 25.06.2012
-
-VA - Самый Лучший Хит-Парад DFM (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656620.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fly Project - Back In My Life (Radio Edit)
-002. DJ Snach & Supermax - Любовь Как Диско (Dance Version)
-003. Akcent - Chimie Intre Noi (Radio Edit)
-004. Герр Антон (Herr Anton) - Алка Now!
-005. Maroon 5 - One More Night
-006. Sara Oks & Иван Кит - Бой Без Правил
-007. DJ Nano & Kate Ryan feat. Dmol - The Next Road
-008. NikitA - Калинка-Малинка
-009. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
-010. Градусы - Нефть(   Читать дальше...   )Жанр: PopПродолжительность: 06: 12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1441F604D7AF43BCFB1F6289B4D878E3A260A19
 ```
 
 https://mybot314.ru/tekegram_catalog/

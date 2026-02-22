@@ -1,3 +1,32 @@
+###  Публикация: 1117811   (815621) от 24.03.2017
+
+VA - The Best Undeground Music (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Owl Stone - Eternity (Original Mix)  6:33
+02.  Sunmote - Canara (Original Mix)  4:30
+03.  Sunmote - Love Is Gone (Original Mix)  5:15
+04.  Farcoste - I Feel You In Thousand Kilometres (Original Mix)  6:22(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513DE9567BBEEC32BF8100F4C37A5B4CC8F3F0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118097   (815617) от 24.03.2017
 
 Sidify Apple Music Converter 1.1.6 [En]
@@ -664,32 +693,6 @@ Cosmic Flow - The Hermit (2017) [MP3|320 Kbps] <Trance, Psy-Trance, Psychedelic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFFB5540E245C6A3530B207BD5D349437CD6F6C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 316006   (815461) от 30.03.2011
-
-CoreAVC 2.5.1 Professional Edition [Eng]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815461.jpg" />
-</div>
-
-
-###  Подробнее
-
-CoreAVC - это H.264 видео декодер, созданный, базируется на MPEG-4 стандарте, который используется в Blu-ray и High Definition DVD (HD-DVD). Данный декодер считается одним из лучших в мире H.264 видео декодеров. Эффективность CoreAVC заключается в программном подходе к декодированию, он не полагается на аппаратные средсва ПК для увеличения производительности при воспроизведении H.264 видео в отличии от других решений подобного рода. Самый поразительный вывод - декодер CoreAVC, не имеющий аппартной поддержки обогнал по производителтьности собратьев от Cyberlink и NVIDIA, такую имеющих. В последних версиях поддержка деинтерлейсинга осуществляется на программном уровне.Язык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

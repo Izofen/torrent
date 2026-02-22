@@ -1,3 +1,32 @@
+###  Публикация: 1163993   (446204) от 07.09.2017
+
+VA - The Best Of Sarah Russell (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kaimo K, Cold Rush & Sarah Russell - Angel Fly (Radio Edit)  3:34
+02.  Sarah Russell - If I Could (DoubleV Radio Edit)  3:41
+03.  Sarah Russell - Loss & Innocence (Radio Edit)  3:29
+04.  Beat Service & Sarah Russell - Would You (Radio Edit)  4:04(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3FFEE4FBE86585A80BD0AB729E5235A957FFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163589   (446200) от 07.09.2017
 
 Художественная гимнастика. Чемпионат Мира 2017. Пезаро (Италия). День 5. Гала-представление. Церемония закрытия (03.09.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -655,35 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27EDBD16869781F10A70B03594DDC3986221B6D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061208   (446004) от 11.10.2016
-
-Section 1 - Viva La Hardcore (2015) [MP3|320 Kbps] <Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446004.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Follow The Masters
-2 	Viva La Hardcore
-3 	Lose That Second  Featuring – Eva Kade
-4 	Hyppin Beats(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA3CFAC6C6E641FD03892741AE12D5EA0CC1D0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1247102   (457123) от 13.09.2018
+
+Renee Rosnes - Beloved Of The Sky (2018) Smoke Session Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elephant Dust [7:26]
+02. Scorned as Timber, Beloved of the Sky [6:55]
+03. Mirror Image [8:23]
+04. Rosie [6:32](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B8A8CC3019DC855A3D6681AB39647A57E4FE7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247027   (457122) от 13.09.2018
+
+Count Basie - Celebrating the Best of Jazz (2001) [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumping at the Woodside (3:04)
+02. All of Me (3:06)
+03. One O'Clock Jump (3:50)
+04. Lester Leaps In (4:05)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E841944BBF7183600DAD3C1814FA4672918A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247075   (457113) от 13.09.2018
+
+Vic Juris - Eye Contact (2018) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. United [4:06]
+02. Ruby [7:50]
+03. I Fall in Love Too Easily [7:03]
+04. We See [7:25](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F971F5994C7A55FCE29C2274414E69A04E0C5D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246868   (457007) от 13.09.2018
 
 Art Blakey & The Jazz Messengers - Farewell: Live At Sweet Basil (1985) 2CD, 2015, King Record [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -658,93 +745,6 @@ Stanley Cowell Trio - Close To You Alone (1990) DIW [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:963D3EB7BA5A7BEC27F5EAF70470279B01831C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408635   (454022) от 13.09.2020
-
-Stanley Cowell - Reminiscent: plus A Xmas Suite (2015) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intermezzo [4:11]
-02. Re-confirmed [6:05]
-03. A Child Is Born [7:55]
-04. A Xmas Suite [10:03](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA53BDDD5C70A8370E935C6A20F6787C8BCDACA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942766   (453997) от 01.10.2015
-
-The Bill Evans Trio featuring Stan Getz - But Beautiful (1974) /1996, Oldis/[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Grandfather's Waltz [08:06]
-02.Stan's Blues [05:50]
-03.But Beautiful [05:44]
-04.Emily [05:41](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D00E26FCDA332BCA678D051B852DC4A51C27B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 826606   (453939) от 30.09.2014
-
-Jeff Lorber - Chuck Loeb - Everette Harp - Jazz Funk Soul (2014) [FLAC|Lossless]<Smooth Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speed Of Light (4:31)
-02. Swingette (5:09)
-03. Adrenaline (4:29)
-04. Silent Partner (6:25)(   Читать дальше...   )Жанр: Smooth Jazz, FusionПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B13A5C7CA4C9573D2FC6887672D8C7A31DECE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

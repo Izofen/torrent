@@ -1,3 +1,38 @@
+###  Публикация: 548211   (470031) от 17.09.2012
+
+Sarah-Jane Morris - August (2001) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Leave Me This Way [04:26]
+02. I Can't Stand The rain [04:06]
+03. Into My Arms [04:29]
+04. Chelsea Hotel [03:05]
+05. You Can't Put Your Arms Around A Memory [03:16]
+06. Piece Of My Heart [04:21]
+07. Blind Old Friends [04:47]
+08. Move On Up [04:38]
+09. Mercy, Mercy Me [05:01]
+10. Try A Little Tenderness [05:16](   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160927   (469978) от 27.08.2017
 
 Elisabeth Kontomanou - Brewin' the Blues (2008) [FLAC|Lossless|image + .cue] <Vocal Jazz, Post-Bop>
@@ -730,41 +765,6 @@ VA - Accustic Arts - Uncompressed World Vol 2 (2010) [FLAC|Lossless]<Jazz, Audio
 08. Sandra MacBeth - 8Ball [04:14]
 09. Jamie Lynn Noon - To Finally [05:12]
 10. Leslie Tucker - Jessie (Going Through) [03:57](   Читать дальше...   )Жанр: Jazz, Audiophile Female VoicesПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548443   (466455) от 18.09.2012
-
-Susan Wong - 8 Альбомов (2002-2011) [FLAC/APE|Lossless]<Jazz, Vocal, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay Awhile (2008 Version) [03:35]
-02. Superstar [03:37]
-03. Cavatina [04:01]
-04. Killing Me Softly [04:15]
-05. Rainy Days And Mondays [03:48]
-06. Emotion [04:30]
-07. I'm Easy [03:32]
-08. Sway [03:04]
-09. Close to You [03:19]
-10. You Needed Me [03:19](   Читать дальше...   )Жанр: Jazz Vocal, Smooth Jazz, Jazz-PopПродолжительность: 00:59:24
 
 ## Скачать торент
 ```bash

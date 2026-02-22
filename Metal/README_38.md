@@ -1,3 +1,32 @@
+###  Публикация: 1004257   (840310) от 05.04.2016
+
+Confined By Yesterday - Blackmirrors (2016) [MP3|320 кб/с]<Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840310.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:06] 01. The Hunt Is On
+[03:56] 02. Parting
+[04:24] 03. Three Words
+[04:45] 04. Redemption(   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D80C2025B0C631BC5B337DB4CF6C46982AC58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004239   (840309) от 05.04.2016
 
 Condition Critical - Extermination Plan (2016) [MP3|320 кб/с] <Thrash Metal>
@@ -732,35 +761,6 @@ Reverber - Sect Of Faceless (2020) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1672FE89775508ECF68DF508CAD889D5A3C2B57F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116550   (822747) от 20.03.2017
-
-Nocturnal Bloodlust - The Best '09-'17 (2017) 2CD [MP3|320 Kbps] <Metalcore, Deathcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Determination (01:17)
-02.BREAK THIS FAKE (04:32)
-03.Malice against (04:58)
-04.Punch me if you can (03:43)(   Читать дальше...   )Жанр: Metalcore, Deathcore, Post-HardcoreПродолжительность: 01:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:273EAE3427990803EBD43D4B0DFEC4737839648A
 ```
 
 https://mybot314.ru/tekegram_catalog/

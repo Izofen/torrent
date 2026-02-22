@@ -1,3 +1,32 @@
+###  Публикация: 1204613   (784350) от 07.02.2018
+
+Armik - Romantic Spanish Guitar Vol. 3 (2016) [FLAC|Lossless|image + .cue] <Instrumental, Nuevo Flamenco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sol De Sevilla (04:33)
+02. Noche De Romance (04:42)
+03. For Every Kiss (04:38)
+04. Only for You (04:37)(   Читать дальше...   )Жанр: Instrumental, Nuevo FlamencoПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9AA334D91C5B083D8351229911421CE189317E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204538   (784342) от 07.02.2018
 
 Armik - Pacifica (2018) [MP3|320 Kbps] <Nuevo Flamenco>
@@ -710,35 +739,6 @@ David Wahler - Mosaic (2018) [MP3|320 Kbps] <New age, Relax, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671D9086F190FCC92F3097B07DE42F0776A2320A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201235   (780042) от 21.02.2018
-
-Поль Мориа - Музыка хорошего настроения (2005) [APE|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прости мне этот детский каприз
-02. Мой дом и река
-03. Девушка в бикини
-04. Глупышка(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13387109394679395F6965A69F09655CEC857DBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

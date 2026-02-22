@@ -1,3 +1,29 @@
+###  Публикация: 1232347   (599924) от 24.06.2018
+
+Powerwolf - Demons Are a Girl‘s Best Friend (2018) Single [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demons Are a Girl‘s Best FriendЖанр: Power MetalПродолжительность: 00:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687D75CD9DAE5C2D06DFBC1EFA5C8883016288D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039117   (599677) от 30.07.2016
 
 Armored Dawn - Power Of Warrior (2016) [MP3|320 Kbps] <Heavy Metal>
@@ -716,35 +742,6 @@ Burial Vault - Unity in Pluralism (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FD241FB47642EB5D47772511DBD1E06177389E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915962   (590896) от 08.07.2015
-
-Unleash The Archers - Time Stands Still (2015) [MP3|320 кб/с]<Melodic Power/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590896.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Northern Passage
-2. Frozen Steel
-3. Hail of the Tide
-4. Tonight We Ride(   Читать дальше...   )Жанр: Melodic Power/Death Metal (Продолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12791B4799236DE9214AF037C69306172C658B5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

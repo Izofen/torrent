@@ -1,3 +1,32 @@
+###  Публикация: 1267423   (266735) от 06.12.2018
+
+Art Van Damme - State Of Art (1967 - 1970) 2000, MPS [FLAC|Lossless|image + .cue] <Mainstream Jazz, Accordion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone With The Wind [3:26]
+02. When Your Lover Has Gone [3:14]
+03. I Get A Kick Out Of You [2:38]
+04. My Little Boat [3:15](   Читать дальше...   )Жанр: Mainstream Jazz, AccordionПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7338F385202F1EC9A63BA29B79C75EF4B4344282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267501   (266656) от 06.12.2018
 
 Van Morrison - The Prophet Speaks (2018) [MP3|320 Kbps] <Blues, Jazz>
@@ -716,35 +745,6 @@ Hal Galper - The Guerilla Band (1970) 2017, Solid Records [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AF77A87730CA87E72941C83946688150DDB4388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191378   (264526) от 13.12.2017
-
-Denny Zeitlin - Homecoming (1986) Living Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Light [03:36]
-02. Homecoming [03:42]
-03. Waltz for Josephine [05:11]
-04. Morning Touch [03:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609D104F816B775DEA57AB9081A0B369157ED382
 ```
 
 https://mybot314.ru/tekegram_catalog/

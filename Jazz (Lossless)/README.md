@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1854702   (1057490) от 19.02.2026
+
+VA - Chillout & Lounge Ibiza Beats (2026) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Trip-Hop, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jano de Rhodos - Chica Fina (4:29)
+02.  Muehlig - Bayside Rhythm (4:29)
+03.  Zirkadian Sender - Dream Slide (4:16)
+04.  Converted Specifications - Thought Pages (4:14)(   Читать дальше...   )Жанр: Chill Out, Trip-Hop, LoungeПродолжительность: 01:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22E8A8AC88276314F1A55F901C5D7FF9F65F8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849226   (1053443) от 21.01.2026
 
 Richard Marx - After Hours (2026) [FLAC|Lossless|image + .cue] <Jazz, Swing>
@@ -718,35 +747,6 @@ Muggsy Spanier - And His Dixieland Band (1950 - 1952) 2007, Membrane Music [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E21A7B890EEFECD5B4B90513F381A21CF7F078CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602126   (1046224) от 04.01.2023
-
-Woody Herman & Erroll Garner - Music For Tired Lovers (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Melancholy Baby [4:00]
-02. I Hadn't Anyone 'Till You [3:51]
-03. Medley: Let's Fall in Love / Moonglow / I Don't Know Why (I Just Do) / You've Got Me Crying Again [10:26]
-04. If I Could Be With You (One Hour Tonight) [2:39](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583D00AB7BDDA593C823039E7C6E112F844324D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

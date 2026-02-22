@@ -1,3 +1,174 @@
+###  Публикация: 1620922   (25142) от 10.03.2025
+
+Spiritbox - Studio Albums (6 releases) (2017-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Progressive Metal, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_25142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spiritbox — канадская метал-группа из Виктории, Британская Колумбия. Дуэт мужа и жены, гитариста Майка Стрингера и вокалистки Кортни ЛаПланте, основан в 2017 году. Музыкальный стиль группы трудно отнести к определённому жанру метал-музыки, и он представляет собой множество стилей, включая электронную музыку.2017 - Spiritbox (EP)
+2019 - Singles Collection (EP)
+2021 - Eternal Blue
+2022 - Rotoscope (EP)Жанр: Metalcore, Progressive Metal, DjentПродолжительность: 03:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18DF46E1B8EF09FB3EE0FA4115CDCFBAFB2A024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784247   (25106) от 10.03.2025
+
+Disturbed - The Sickness (2000) 25th Anniversary Deluxe Edition, 2025, Reprise [FLAC 16/44.1, 24/96|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Want (Live at The Palladium, Los Angeles, CA, 4/18/01) [5:08]
+02 - Fear (Live at The Palladium, Los Angeles, CA, 4/18/01) [3:49]
+03 - Droppin' Plates (Live at The Palladium, Los Angeles, CA, 4/18/01) [4:16]
+04 - Fetish (Live at The Palladium, Los Angeles, CA, 4/18/01) [3:25](   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Heavy MetalПродолжительность: 02:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0171613494746B9C40CC17F71317118974FD99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784530   (24998) от 11.03.2025
+
+Lights Of Skadi - A Cinematic Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Book of Dead
+02 – Species
+03 – Gods
+04 – Far Away(   Читать дальше...   )Жанр: Symphonic, Progressive MetalПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BEAE1F836A3B98C4E5FC7DE7AAFAC97B7B369C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784529   (24995) от 11.03.2025
+
+Machinedrum - 3RMX82 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bass, Drum & Bass, Dub, Garage, House, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Respek (Feat. Topaz Jones & Ezri) (Cesco Remix)
+02 – Zoom (Feat. Tinashe) (Skeptical Remix)
+03 – Rise (Feat. Rozet) (Gaszia Remix)
+04 – U_want (Feat. Kucka) (Thys Remix)(   Читать дальше...   )Жанр: Bass, Drum & Bass, Dub, Garage, House, TechnoПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5039D5A257D3B7CB4183CDB8EE52BEF72D8EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784485   (24994) от 11.03.2025
+
+Lacrimosa - Dark is this Night (2025) Maxi-Single [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Alternative, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark is this NightЖанр: Alternative, Gothic MetalПродолжительность: 00:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189A0CC7461EA84762200C56D56CF0DFB8FDCA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784411   (24990) от 11.03.2025
+
+Sasami - Blood On The Silver Screen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slugger [00:03:00]
+02. Just Be Friends [00:03:37]
+03. I'll Be Gone [00:03:28]
+04. Love Makes You Do Crazy Things [00:03:45](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Indie PopПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021D32BAB82215A0AE4708DC021B99AD4309AE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784949   (24786) от 13.03.2025
 
 Zopa - Diamond Vehicle (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
@@ -568,177 +739,6 @@ Gotthard — швейцарская рок-группа, основанная С
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63B50B54A45430716A89AED40DAB49AD0110795A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789668   (22285) от 06.04.2025
-
-polnalyubvi - Прощай и люби меня (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:26]
-02. Тернии (feat. pyrokinesis) [00:02:41]
-03. Аня, не плачь [00:02:50]
-04. Петля [00:02:35](   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2F595BEC85D6F9AE369C862E4B2DA0F3F104E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571447   (22281) от 06.04.2025
-
-Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allegaeon — американская экстремальная метал-группа из Форт-Коллинза, штат Колорадо, образованная в 2008 году.2010 - Fragments of Form and Function
-2012 - Formshifter
-2014 - Elements of the Infinite
-2016 - Proponent for SentienceЖанр: Technical Melodic Death MetalПродолжительность: 07:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0A48FCC57FDA4CC2F8E7D7EEF055B54C040C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789740   (22268) от 06.04.2025
-
-Primal Scream - Come Ahead: The Remixes Vol 1 (2024) Vocals, 2025, BMG[FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Ready To Go Home
-02 – Love Insurrection
-03 – Heal Yourself
-04 – Innocent Money(   Читать дальше...   )Жанр: AlternativeПродолжительность: 02:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F769267CE3072A7EACDEA4FC8C5AA658D11D87F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789800   (22262) от 06.04.2025
-
-Haddaway - The Album (1993) Remastered, 2025, Craft Recordings [FLAC 24/48|Lossless|WEB-DL|tracks] <House, Europop, Euro House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – What Is Love (7 Mix)Жанр: House, Europop, Euro HouseПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A02C8B4C2B280C4387FB9A0B450BB1C5BCF007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789623   (22258) от 06.04.2025
-
-Elton John, Brandi Carlile - Who Believes In Angels? (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John - The Rose Of Laura Nyro
-02. Elton John - Little Richard’s Bible
-03. Elton John - Swing For The Fences
-04. Elton John - Never Too Late(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1CC228D413A83354BACF1984D9CE42BC33528A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306071   (22104) от 08.04.2025
-
-Gary Moore - Ballads & Blues 1 & 2 (1995/1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock, Ballads>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ballads & Blues 1
-SIDE A:
-01. Always Gonna Love You
-02. Still Got The Blues(   Читать дальше...   )Жанр: Blues Rock, BalladsПродолжительность: 02:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F771D4E12B44871361A56B3B2C0A9AB46ABA41E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

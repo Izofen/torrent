@@ -1,3 +1,177 @@
+###  Публикация: 1707118   (113339) от 16.03.2024
+
+Владимир Кузьмин - Пока не пришел понедельник (1989) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Пока не пришел понедельник.
+02 - Странные дни.
+03 - Симона.(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCAF74FD1A40A4EE01256B3C0D299EE5FC3E61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707116   (113337) от 16.03.2024
+
+VA - Вас поздравляют звёзды! (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Рождество (А. Буйнов — И. Резник)
+Алла Пугачева, Руслан Горобец, Батыр Шукенов, Александр Барыкин, Александр Буйнов
+02. Ломбаба (музыка традиционная — С. Минаев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941B09A9774DCE39C45A8297CC80046CE118DF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707212   (113328) от 16.03.2024
+
+Elan - School Party (1986) [FLAC 16/192|Lossless|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113328.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vanilla Shanilla
+A2 Good And Bad
+A3 School Party
+A4 Pearl In The Shell(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99B3F25BC47B13EAB7837A9EF323E9B7548D8F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707211   (113327) от 16.03.2024
+
+Alice Cooper - Dada (1983) [FLAC 24/96|Lossless|tracks] <Hard-Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113327.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1-Dada
+A2-Enough's Enough
+A3-Former Lee Warmer
+A4-No Man's Land(   Читать дальше...   )Жанр: Hard-Rock, Classic RockПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255DEEDF973A2F1DEE041DFDD00385952846DAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707001   (113326) от 16.03.2024
+
+Irene Dresel - Rose Fluo (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fluo [00:09:03]
+02. Valkyrie [00:05:05]
+03. Moul [00:03:33]
+04. Glam [00:04:56](   Читать дальше...   )Жанр: House, Techno, Electro, MinimalПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B77209B83F99E38AE29E94871F30561DD62658B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707346   (113318) от 16.03.2024
+
+Группа «Аттракцион» - Аттракцион (1987) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Авиалайнер (А. Шкуратов — Ю. Савельев) — 5.15
+02. Дела (А. Шкуратов — Ю. Савельев) — 5.08
+03. Наутилус (музыка и слова А. Шкуратова) — 6.10(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A7CBDBF657B4C015D2AFB82F78BE0F0421880A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707323   (113316) от 16.03.2024
 
 VA - Для вас, женщины! Женский портрет (1987) [FLAC 24/192|Lossless|tracks] <Pop>
@@ -571,179 +745,6 @@ Bossa Cafe en Ibiza, Bossanova, Instrumental Jazz School, Marco Rinaldo - Sensua
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFFA9B72FF95C7731A9293A49E53F5A2561E0657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708171   (113154) от 19.03.2024
-
-Дельта-Оператор - Дельта-1 (1989) [FLAC 24/192|Lossless|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01. Нам не вернуться назад. (А.Кришта)
-02. Одиночный боец. (Б.Аксенов)
-03. Раб. (А.Арканов)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD602B5F184342A6225B180F9A1D1D34D8AE5EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707988   (113151) от 19.03.2024
-
-Forsaken - Isolated from the Birthland (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In the Night [5:23]
-02 - For All Sacred Tears [9:06]
-03 - Isolated from the Birthland [7:52]Жанр: Atmospheric Black Metal, MetalПродолжительность: 00:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7009FDEF7C096CDFD46894932055EF775C138D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707638   (113147) от 19.03.2024
-
-Elektric Music - Esperanto (1993) [FLAC 24/96|Lossless|tracks] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113147.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 TV
-A2 Show Business
-A3 Kissing The Machine
-Lead Vocals – Andy McCluskey(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AABAFE58EC8827D6C617A7E76DF01D18450D4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708238   (113143) от 19.03.2024
-
-Manntra - Live in Leipzig (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Invocation (LIVE IN LEIPZIG) [1:29]
-02 - Heathens (LIVE IN LEIPZIG) [3:52]
-03 - Morana (LIVE IN LEIPZIG) [3:01]
-04 - Tanz (LIVE IN LEIPZIG) [3:16](   Читать дальше...   )Жанр: Metal, Alternative MetalПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E854EF4B870409038FF7D8045981394023CF884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708009   (113139) от 19.03.2024
-
-Cornelia Nilsson - Where Do You Go (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John's Abbey (4:45)
-02. Ninni / Motions (5:06)
-03. The Sphinx (4:28)
-04. Where Do You Go? (6:58)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE696FD2A52A11186C617D3026432376B98A215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708010   (113133) от 19.03.2024
-
-Harlem Jazz Guitar Quartet - Rock Jazz Fusion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Won't Hide (3:55)
-02. Just Love Me (3:27)
-03. Part of this Game (3:37)
-04. Late Night Jazz (4:09)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6142661168A7AE09CCF312343CB49AEC2CE45122
 ```
 
 https://mybot314.ru/tekegram_catalog/

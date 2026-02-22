@@ -1,32 +1,3 @@
-###  Публикация: 1770243   (100554) от 31.12.2024
-
-John Di Martino - Passion Flower: The Music Of Billy Strayhorn (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Come Lately [5:17]
-02. Lush Life [4:20]
-03. Rain Check [4:19]
-04. Star-Crossed Lovers (Pretty Girl) [4:38](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B243C797D5D8582D9059798EBDE17E453154A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770316   (100547) от 31.12.2024
 
 Judy Garland - Judy At The Palace Closing Night 1952 (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -850,6 +821,40 @@ Arild Andersen Quintet - Auditorio RSI, Lugano, Switzerland, 09. 11. 2011 (2011)
 05. Electra Song 06:05
 06. Unknown Title 10:10
 07. Unknown Title2011Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466767   (96425) от 12.03.2012
+
+Annie Ross - Gypsy (1995) [FLAC|Lossless]<Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsy Overture—Instrumental
+02. Everything’s Coming Up Roses
+03. You’ll Never Get Away
+04. Some People
+05. All I Need Is a Boy
+06. Small World
+07. Together Where You Go
+08. Let Me Entertain You
+09. Reprise1995Жанр: Vocal Jazz, Big BandПродолжительность: 00:31:26
 
 ## Скачать торент
 ```bash

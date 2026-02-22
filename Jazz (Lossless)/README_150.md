@@ -1,3 +1,32 @@
+###  Публикация: 1037061   (615743) от 23.07.2016
+
+Celine Bonacina Crystal Quartet - Crystal Rain (2016) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smiles for Serious People (7:36)
+02. Cyclone (2:12)
+03. Child's Mood (7:51)
+04. Crystal Rain (4:58)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9160254CD2FC1BF6BC3A6F75AAB2516170828A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037045   (615742) от 23.07.2016
 
 Carla Cook - Dem Bones (2001) [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -719,35 +748,6 @@ Dianne Reeves - Palo Alto Sessions 1981-1985 (1996) Blue Note [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF1B438CDEA25A212761B767DCFBA4335AAF2387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545345   (612897) от 20.04.2022
-
-Howard Rumsey's Lighthouse All-Stars - Volume 6 (1954, 1955) Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who's Sleepy [3:10]
-02. Isn't It Romantic [3:17]
-03. Mad at the World [3:30]
-04. East of the Sun [4:05](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6643ED0F5400A702F8C73B461B44DFC38BB9EA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

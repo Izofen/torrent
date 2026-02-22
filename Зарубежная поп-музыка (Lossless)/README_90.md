@@ -1,3 +1,32 @@
+###  Публикация: 1702150   (115167) от 28.02.2024
+
+Al Corley - Riot of Color (1986) Expanded Edition, 2023, Mercury [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Face to Face (04:35)
+02. Havana Blue (04:07)
+03. House of Courage (03:38)
+04. Waste of Time (04:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED303D17DA88437D5863B0B6E0F0289CCC873E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702145   (115164) от 28.02.2024
 
 Al Corley - The Big Picture (1988) Expanded Edition, 2023, Mercury [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ MaWhoo - The Sound Of Magic (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8230CB9F51C45D9D838443F0F67BC30E1146E0A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718482   (110846) от 26.04.2024
-
-Emel - Mra (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Massive Will
-02 – Nar (feat. Ami Yerewolo)
-03 – L’amour (feat. Justina)
-04 – Lose My Mind (feat. Nayomi)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF0709EA58802DB40852C10F64BBA20D9235AB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

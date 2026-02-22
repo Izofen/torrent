@@ -1,3 +1,61 @@
+###  Публикация: 1422331   (310917) от 08.11.2020
+
+Sammy Davis, Jr. - Sings Just For Lovers (1955) 2006, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Do Something to Me [2:19]
+02. You're My Girl [3:32]
+03. Come Rain or Come Shine [3:45]
+04. Body and Soul [3:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23DB02673130917E9CEF7841FF41C62BBB88439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422333   (310914) от 08.11.2020
+
+Wild Bill Davison & Eddie Condon's All Stars - Live! 1955 Miami Beach (2004) Storyville Records [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beale Street Blues [5:26]
+02. Ballad Medley [9:07]
+03. I Ain't Gonna Give Nobody None of My Jelly Roll [4:52]
+04. Struttin' with Some Barbecue [4:46](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4C29023517D83AA767A89D11D8DA7BEE469E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422329   (310908) от 08.11.2020
 
 Terence Blanchard - Simply Stated (1992) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -687,70 +745,6 @@ Barbara Fasano - Busy Being Free (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:655796A78533A789C81DFACD603CF57746E5F0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584493   (307900) от 04.12.2012
-
-Peggy Lee - 2 Compilations (1996) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_307900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: JazzПродолжительность: 01:15:11
-01. Why Don't You Do Right (Get Me Some Money Too) [02:28]
- 02. I Don't Know Enough About You [03:04]
- 03. 'Deed I Do [03:03]
- 04. I'm Glad There Is You (In This World Of Ordinary People) [03:03]
- 05. It's A Good Day [02:50]
- 06. Don't Smoke In Bed [03:07]
- 07. Them There Eyes [03:00]
- 08. Fever [03:21]
- 09. Sugar (That Sugar Baby Of Mine) [02:36](   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960488   (307886) от 28.11.2015
-
-The Bitch And The Bluesmen - Hands All Dirty (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Day Blues (03:51)
-02. Hands All Dirty (03:11)
-03. Bad Girls (04:16)
-04. Coffee Shuffle (03:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62BBA816AB063991B71F75606138214C6598CC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

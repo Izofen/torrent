@@ -1,3 +1,174 @@
+###  Публикация: 1754427   (40811) от 10.10.2024
+
+The Suspenders - Funky Love Affair (Starry Night Fever) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky Love Affair (4:00)
+02. Get Down Get Down (3:38)
+03. Feel The Night (2:30)
+04. Stay All Night (2:59)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CCC8DD1E398A08CA1B74557000A4B95DA07BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754424   (40805) от 10.10.2024
+
+E-Rotic - The Hits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Eurodance, Euro House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Don't Have Sex with Your Ex (Radio EditЖанр: Eurodance, Euro HouseПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CAB79D56C20C52B8A93D90ACA31129725E4255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754466   (40791) от 10.10.2024
+
+Crossbone Skully - High On You (feat. Nikki Sixx) (2024) (EP) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - High On You (feat. Nikki Sixx) [3:50]
+02 - Everyone's On Dope [3:18]
+03 - Money, Sex, or God [3:40]
+04 - I'm Unbreakable [3:38](   Читать дальше...   )Жанр: Hard Rock, RockПродолжительность: 00:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3FA7396239F7B37F650E16DC0DCD0D032E2E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754401   (40789) от 10.10.2024
+
+The Chickens - Fused Minds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust in My Shoes (3:06)
+02. Whiskey In My Tea (4:00)
+03. Walking Cats (2:59)
+04. Angela (2:23)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26306E5E10F83C97E47709316E4038F0F783AEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754475   (40788) от 10.10.2024
+
+Mario Le Mole - Evolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evolution (4:25)
+02. Revenge Of Pharaoh (4:35)
+03. Chase The Buck (3:45)
+04. Carved In Stone (5:03)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6A1B148AA791FA8410550C350DC57FFD742B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754441   (40787) от 10.10.2024
+
+Inertia - Estranged Icon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Rock, Synthpop, EBM>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inertia, Seiben - New Format (5:26)
+02. Inertia - Scowl (4:02)
+03. Inertia - Siren Call (6:01)
+04. Inertia, This Morn' Omina - Heartbeat (5:52)(   Читать дальше...   )Жанр: Industrial Rock, Synthpop, EBMПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055BEF8F561E79D27C0F85F96FE32F9CC622829F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754426   (40786) от 10.10.2024
 
 The Suspenders - Funkology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
@@ -571,180 +742,6 @@ Ilario Ferrari Trio - Above the Clouds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:716AE1503B026DAA6106AD246BB97AF16357FDC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755225   (40366) от 14.10.2024
-
-Schizophrenic Demon - Jazietto (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast Heartbeats (2:10)
-02. A Fast Lane Melody (2:11)
-03. A Fast-Paced Love Affair (2:09)
-04. Chasing the Breeze (2:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1551988CB3B34739CE3F829F22241C82B2780CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755231   (40365) от 14.10.2024
-
-The Headhunters - The Stunt Man (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stunt Man (5:59)
-02. Attitude Of Gratitude (5:42)
-03. Embraceable You (7:05)
-04. ESP (4:06)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BEE3B3AA876F89C78CFB72489BCA7E9ADC191F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755218   (40364) от 14.10.2024
-
-Samy Thiebault - In Waves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armelle CIPPE - In Waves (5:25)
-02. Devenirs (4:15)
-03. Armelle CIPPE - Rituals (4:31)
-04. Horizons (5:33)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBDE85CA5BC0130E1C774FBEEFEE514454EE1BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755124   (40363) от 14.10.2024
-
-Blues Factory - III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unhappy Girl (5:52)
-02. Rolling Man (4:29)
-03. Time To Make Mistake (5:33)
-04. Mountain Man (5:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EB0BD40047B7DA0138DBCC39A7E66B445DC7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755138   (40362) от 14.10.2024
-
-Myles Kennedy - The Art Of Letting Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Art Of Letting Go (4:37)
-02. Say What You Will (3:34)
-03. Mr. Downside (4:17)
-04. Miss You When You're Gone (4:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB2EEBEF24698820F9BBEA721F39CB5375B192B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755166   (40361) от 14.10.2024
-
-Robespierre - Rainy Wednesday (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears (3:52)
-02. It Could've Been (4:26)
-03. Shot (3:16)
-04. Summernights (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09837FF68837C8546751A48509A8BF30E3FF224C
 ```
 
 https://mybot314.ru/tekegram_catalog/

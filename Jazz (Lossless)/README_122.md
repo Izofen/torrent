@@ -1,3 +1,32 @@
+###  Публикация: 1533066   (708997) от 22.02.2022
+
+Maxine Sullivan With The Scott Hamilton Quintet - Uptown (1985) Concord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Were Meant for Me [3:35]
+02. I Thought About You [5:10]
+03. Goody Goody [3:50]
+04. Something to Remember You By [5:22](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25D88E26CC13241F2A2AE0DC782A1E60B99ABDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131319   (708552) от 05.05.2017
 
 Diana Krall - Turn Up The Quiet (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -716,35 +745,6 @@ Masabumi Kikuchi Trio - Feel You (1993) Remaster, 2015, King Record[FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06CB6C376FA41415C7D36297E1A2569C87C041AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220248   (706197) от 18.04.2018
-
-Mose Allison - V-8 Ford Blues (1959 - 1961) 2016, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. V-8 Ford Blues [02:17]
-02. Please Don't Talk About Me When I'm Gone [01:32]
-03. Baby, Please Don't Go [02:38]
-04. Hey, Good Lookin' [01:46](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A26BD3CC7D942841806A2008E36E1138D415120
 ```
 
 https://mybot314.ru/tekegram_catalog/

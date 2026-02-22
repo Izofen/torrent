@@ -1,3 +1,177 @@
+###  Публикация: 1804019   (65719) от 27.06.2025
+
+Mint Club - Slice Of Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulp [00:03:34]
+02. Closer To Closure [00:02:53]
+03. Punch Me Out [00:02:39]
+04. Sick Invite [00:02:33](   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F85C3BBEE919B1AC12CA61E7E2BCF88F6CA414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804237   (65714) от 28.06.2025
+
+Lorde - Virgin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Electropop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hammer [00:03:13]
+02. What Was That [00:03:29]
+03. Shapeshifter [00:04:17]
+04. Man Of The Year [00:03:00](   Читать дальше...   )Жанр: Indie, ElectropopПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9259D406A8574693252BDDAB5737C086F004B397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804268   (65710) от 28.06.2025
+
+Royale Lynn - Black Magic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greed [00:02:50]
+02. E.V.I.L. [00:03:32]
+03. Black Magic [00:03:07]
+04. Sacrifice [00:02:40](   Читать дальше...   )Жанр: Alternative Metal, ElectronicПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C8C4C24ED7DB9B92B766BC733A2507818F0D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804209   (65708) от 28.06.2025
+
+Peter Gabriel - In The Big Room (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn You Up, Burn You Down (Live) [00:04:23]
+02. More Than This (Live) [00:06:12]
+03. Games Without Frontiers (Live) [00:05:01]
+04. Downside Up (Live) [00:05:30](   Читать дальше...   )Жанр: RockПродолжительность: 01:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2604B911D6304803F9F164964B27ACB4F01349D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804290   (65702) от 28.06.2025
+
+Related to Strangers & Matthew. - Ghost (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ordinary (3:31)
+02.  Reaping Era (4:33)
+03.  Oceans (3:18)
+04.  Event Horizon (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E63AFB990097CC881B07A59D76EB9CA149B175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804228   (65698) от 28.06.2025
+
+Frank Zappa, The Mothers Of Invention - Cheaper Than Cheep: The Soundtrack (Live 1974) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Could I Be Such A Fool (Live June 21, 1974) [00:04:01]
+02. I'm Not Satisfied (Live June 21, 1974) [00:02:16]
+03. Wowie Zowie (Live June 21, 1974) [00:02:26]
+04. I Don't Even Care (Live June 21, 1974) [00:01:19](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC6F574BB0C84A08EAAE0DCAD23BAF5A2833DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804298   (65695) от 28.06.2025
 
 Zig Zags - Deadbeat At Dawn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -571,180 +745,6 @@ MYR - Helvegen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9BA121A3996F8FA965B5551E48B0AF0008B97D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804863   (65550) от 02.07.2025
-
-Burnt By Hatred - Myth Or Mortal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65550.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Decadence [1:59]
-2 - Within Reach [4:58]
-3 - A Paths Deceit [6:13]
-4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA34B252AEE7558606C2D37659DC0C9C6D8FC93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805000   (65544) от 03.07.2025
-
-Лауд - Электрическая Музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Side A [00:00:36]
-02. Воздуха нет [00:02:17]
-03. In the Dark [00:02:46]
-04. 123 [00:02:29](   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977520269F247B963147D78FE785F3D315D6E434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805001   (65533) от 03.07.2025
-
-Zero Mindset - Nightdive (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Shoegaze>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightdive [00:03:42]
-02. Liquid Room [00:03:36]
-03. Rebirth [00:03:31]
-04. A Deeper Blue [00:03:48](   Читать дальше...   )Жанр: Alternative Metal, ShoegazeПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77017F1B45E4CA625698594D99BA524AB2011BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804999   (65531) от 03.07.2025
-
-Транкор - Разные вещи (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Разные вещи [00:03:03]
-02. Мало [00:03:07]
-03. Говорят [00:02:05]
-04. Атманов Угол [00:04:11](   Читать дальше...   )Жанр: Rapcore, Nu-MetalПродолжительность: 00:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1254463EE46939DDF944A975A1B288E885168AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805002   (65521) от 03.07.2025
-
-Nastyville - Rebirth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey Of Rebirth [00:01:47]
-02. Power To The People [00:04:12]
-03. Run Wild, Rev High! [00:03:57]
-04. Rocking Through The Night [00:03:28](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86224829BB51B27C481023B4334D3175C82A307C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805141   (65513) от 04.07.2025
-
-WarKings - Armageddon (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Lindisfarne... (1:20)
-02. Armageddon (3:02)
-03. Genghis Khan (feat. Orden Ogan) (3:28)
-04. Kingdom Come (3:51)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA03A53D46FB9FD68DBEFAC731B05D37CD20094F
 ```
 
 https://mybot314.ru/tekegram_catalog/

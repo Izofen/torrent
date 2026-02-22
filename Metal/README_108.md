@@ -1,3 +1,32 @@
+###  Публикация: 1646830   (231730) от 17.07.2023
+
+Unsoulicited - Reflections (2023) [MP3|320 Kbps] <Symphonic Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave You by the Shore
+02. I Wish We Could
+03. Glowing Fairytales
+04. Autumn Clouds(   Читать дальше...   )Жанр: Symphonic Metal, RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9618E6B1E5D3C299F195BE85460F71086479447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647257   (231707) от 18.07.2023
 
 Eria d'Or - Trinity (2017) 3CD, compilation [MP3|320 Kbps] <Atmospheric Doom, Death Metal>
@@ -716,35 +745,6 @@ Mortemia - The Pandemic Pandemonium Sessions (2022) [MP3|320 Kbps] <Symphonic Go
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A7EE418E0035E1E03621063C63B6BBDA17CD856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648811   (231001) от 25.07.2023
-
-Desolator - Unearthly Monument (2013) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thy Flesh Consumed
-02. Desolated
-03. Gravefeast
-04. Mass Human Pyre(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C174EEC204A8F512DDA3E0296E6A5706B3C9823
 ```
 
 https://mybot314.ru/tekegram_catalog/

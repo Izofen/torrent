@@ -1,3 +1,32 @@
+###  Публикация: 1747207   (104775) от 04.09.2024
+
+VA - Music for Yoga & Meditation (Soft, Soothing Instrumentals) (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike L Scott - For Better Times (2:43)
+02. Jaywalker6 - Your Melody (3:59)
+03. Rushana - Vøringsfossen (2:46)
+04. Guido Zitti - Risvegli (3:22)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 01:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391DC54F19F4405835BF310AD7B6A311BFE85D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753599   (103827) от 05.10.2024
 
 The Orient Collective - Gateway to Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -736,35 +765,6 @@ VA - The Orient Collective: The Guardian (2024) [FLAC|Lossless|WEB-DL|tracks] <W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82C4969557B1D22E1784BAA505C00A5D44D4504F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765892   (101295) от 15.12.2024
-
-VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Da Mata - Aich (5:42)
-02. Indiano - Meditation (10:28)
-03. Kalico Jak - Sunlight Through the Treetops (9:04)
-04. 4Moon Music - Sofy (7:48)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FED498FA70FA3B38E35B48E0E0A0A357D4100E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

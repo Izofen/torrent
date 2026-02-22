@@ -1,3 +1,29 @@
+###  Публикация: 1397463   (740466) от 20.07.2020
+
+A Better Finder Attributes 7 v7.00 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740466.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла. С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе. Помимо этого A Better Finder Attributes может синхронизировать дату модификации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2020Разработчик: PublicspaceПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC531C9A568A680EB8F698F5D679C3D0E0F3CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397344   (740463) от 20.07.2020
 
 Money Pro - Personal Finance 2.5.10 [Multi/Ru]
@@ -681,35 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42BEBB9F2C124E9ABB4A1BA863E9103E96655D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217905   (740325) от 07.04.2018
-
-Sincarnate - In Nomine Homini (2017) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attende Domine
-02. Agrat bat mahlat
-03. Curriculum Mortis
-04. She-of-the-Left-Hand (Sophia Pistis)(   Читать дальше...   )Жанр: Doom Metal, Death MetalПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D518D9A39E58456D141151789E0034F1AC9287
 ```
 
 https://mybot314.ru/tekegram_catalog/

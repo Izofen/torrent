@@ -1,3 +1,32 @@
+###  Публикация: 1030757   (672291) от 01.07.2016
+
+Offrandes - Best of 2008-2015 (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Myriads of Light
+02.	Eternal Gratitude
+03.	Vision of the Soul
+04.	Beauty Elvish(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51737C26A5283887250317EE3788D99D4B042170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030736   (672289) от 01.07.2016
 
 Louis Landon - Ebb and Flow - Solo Piano (2016) [MP3|320 Kbps] <New Age>
@@ -739,35 +768,6 @@ Ennio Morricone - Ennio Morricone 2016 Meisterwerke der Filmmusik (2016) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D7AD0AA63AF3694F93C34AB205979027D306F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137518   (667810) от 26.05.2017
-
-Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richter & Woodapple) (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take a Deep Breath - Luke Woodapple
-02. Le Onde - Luke Woodapple
-03. Metamorphosis II - Luke Woodapple
-04. Departure (Lullaby) - Luke Woodapple(   Читать дальше...   )Жанр: Classical, Piano, New AgeПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27117DA459CC6D3842820E0718277DEDB09D227A
 ```
 
 https://mybot314.ru/tekegram_catalog/

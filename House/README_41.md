@@ -1,3 +1,90 @@
+###  Публикация: 1141355   (650552) от 10.06.2017
+
+VA - House Of Ibiza 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650552.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fake.Sake - All I Want Is You (Enzo Siffredi & Timo Garcia remix) (06:13)
+2. Carlos Pulido - Desolate Man (Eskuche remix) (06:16)
+3. Chemical Surf - Cumbuca (06:46)
+4. Claus Casper - Feelin It (07:02)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFCBADE77EC74EA463F853DD0E7DC583E156C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141465   (650546) от 10.06.2017
+
+VA - Ibiza House (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soneec - Once Again 05:18
+02. Alemany - Fresh (Charles J Remix) 05:01
+03. Dave Aude feat. Vassy - Hustlin' (Club Mix) 05:49
+04. Sante Cruze - Get so High 06:51(   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectroПродолжительность: 02:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0382BBE1BFAD0962DC98780E11029778E471C9FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031907   (649832) от 05.07.2016
+
+VA - Ibiza Goes Deeper: A Unique Selection Of Deep House Tunes (2016) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Sandemann - Do It Yourself
+ 02. Ron John - The Last Photo - Frank Fox Mix
+ 03. Modell & Mercier - Black Coral - Lovin' Fashion Mix
+ 04. Greg Vasarely - Notting Hill(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910E51EF39EF71CE04BA1756E38EA3A0E6B3548F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031778   (649821) от 05.07.2016
 
 VA - Sensation Angels and Demons (2016) [MP3|320 Kbps] <House, Electro-House, Progressive-House>
@@ -661,93 +748,6 @@ VA - Vocal House Essentials 2018 (Mixed by Vin Veli) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20B1C70329AC81761BD3ECF0BFB1DEC87128B54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142579   (641065) от 15.06.2017
-
-VA - Champagne Lounge Deep House (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Microwave Monkeys - Twist in My Sobriety - Radio Edit
-02. Mykel Mars - L.A. Nights - Eddy Chrome Marina Del Rey Remix
-03. Klangkubik - Sumbesi
-04. Michael Ruland - Dreamer - Ibiza Dub Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D539D7855285C071C80405B412B06963EE40926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142736   (641064) от 15.06.2017
-
-VA - Chill House Ibiza 2017 (Finest Chill House Music) (2017) [MP3|320 Kbps] <House, Deep House, Chillhouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max TenRoM - Aurores (Extended Mix)  6:38
-02.  Frans Strandberg - Tropical Dreams  5:47
-03.  Shottle - Way Out  3:10
-04.  Adala - Audi (Extended Mix)  6:52(   Читать дальше...   )Жанр: House, Deep House, ChillhouseПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F5C9C0FFF121B0CEC09236B16862EBFDADF00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142633   (641061) от 15.06.2017
-
-VA - Ibiza Beach Chill House Club Party Del Mar (2017) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterhour FlicFlac - Into Silence - Beach Summer Ibiza House Mix
-02. Beachsurfer Reloaded - Beachball - Extended Del Mar Version
-03. Robin Rhodes - Falling in the Ocean - No Chainsmokers Mix
-04. Dimitrova Burak - Balkan Express - Bucovina Yeter Clubmix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655A1D0BF66174CF2AD3187E62DE13F03DC1C00A
 ```
 
 https://mybot314.ru/tekegram_catalog/

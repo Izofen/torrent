@@ -1,3 +1,90 @@
+###  Публикация: 1753544   (41354) от 05.10.2024
+
+VA - Союз 21 (1997) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алёна Апина и Мурат Насыров - Лунные ночи
+02. Максим Леонидoв - Видение
+03. Татьяна Буланова - Серебристый тополь
+04. Кай Метов - Где-то далеко идут дожди(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C2DB27CDB79FFE244DB8BEF8533ACDAE059F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753663   (41250) от 06.10.2024
+
+VA - Суперхиты Дискотеки 90-х Vol.4 (2012) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace of Base - Happy Nation
+02. Corona - The Rhythm Of The Night
+03. Mr. President - Up'n Away
+04. Cappella - U Got 2 let the Music(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB1FFEF7B38E800C7EDA59C9C1FAA67C868E115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753914   (41201) от 07.10.2024
+
+VA - Союз 16  (1995) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Филипп Киркоров - Милая
+02. Александр Буйнов - Падают листья
+03. Лариса Долина - До свидания
+04. Нэнси - Дым сигарет с ментолом(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E5627C3B2B9DC372E5BB37A1A2DEC1846A9948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753913   (41196) от 07.10.2024
 
 Chris De Burgh - 50 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Rock>
@@ -654,93 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:968322FAE7BDA8BE6922A6C94E8E83E500ECF869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756287   (39776) от 20.10.2024
-
-VA - Best Of 93 (1993) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freddie Mercury - Living On My Own
-02. Paul McCartney - Hope Of Deliverance
-03. DJ Bobo - Somebody Dance With Me
-04. Charles & Eddie - Would I Lie To You(   Читать дальше...   )Жанр: Electronic, Rock, Reggae, PopПродолжительность: 02:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD1C5DBDE9841468B8881D31DC9A5097DDB40A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756298   (39770) от 20.10.2024
-
-VA - Super Hits 80's Volume 2 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilly - We Are The Popkings
-02. Taco - Puttin' On The Ritz
-03. Toto Cutugno - L'Italiano
-04. Fine Young Cannibals - She Drives Me Crazy(   Читать дальше...   )Жанр: Electronic, Pop, ItalodanceПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CB5FCDBFAD03FAA6765E0368ACC338A0AA5A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755952   (39750) от 20.10.2024
-
-Barbra Streisand - The Broadway Album (1985) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Putting It Together    [0:04:21.37]
-02. If I Loved You    [0:02:38.38]
-03. Something’s Coming    [0:02:55.10]
-04. Not While I’m Around    [0:03:29.40](   Читать дальше...   )Жанр: Pop, Ballad, VocalПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3CA8C0A971144E69CDBFCBECA784AFDDF05143
 ```
 
 https://mybot314.ru/tekegram_catalog/

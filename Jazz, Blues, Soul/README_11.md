@@ -1,3 +1,90 @@
+###  Публикация: 1608688   (1043465) от 01.02.2023
+
+Barbara Blue - From the Shoals (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shoals (3:20)
+02. Nutthouse Blues (7:11)
+03. Tell Mama (3:23)
+04. Steal Away (4:04)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952DFDC2EF39EB6127ECBA68476D2D189DDB17BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608706   (1043457) от 01.02.2023
+
+Dr. Helander & Third Ward - Shining Pearls (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Wanna Wake up from My Dream (3:18)
+02. Unwanted Person (5:00)
+03. War Is Starting Again (4:21)
+04. 61 Highway (4:42)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41FE51FEEDAE3206646B8BE37145F13441297758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608702   (1043453) от 01.02.2023
+
+Delta Wires - If Somebody Told Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Win for Losin' (4:27)
+02. If Somebody Told Me... (6:32)
+03. I Tried (3:50)
+04. Bring Me Up (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045D945FD68266BEBD2E31C85C6E358F14AA256B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608694   (1043432) от 01.02.2023
 
 Bryce Janey - Sweet Baby Jane - Sweet Baby Jane (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -655,93 +742,6 @@ Doggy Blue - First Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9030B128B69898A9CDBF0C12DE0F21941845C0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609967   (1042611) от 06.02.2023
-
-Brother Kerry & the Hoptones - Into the Pocket (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them Changes (3:56)
-02. Going Down (4:07)
-03. 32-20 Blues (4:53)
-04. Dimples (feat. James Montgomery) (2:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:4029
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1B3083A0CAAA7384D4B121802E7CF9E792BFBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609982   (1042608) от 06.02.2023
-
-Graywolf Blues Band - Best of Graywolf Blues Band (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thin Line (feat. Ellen Todleben) (3:29)
-02. Dancing in the Rain (feat. Angel Moore) (4:24)
-03. Stormy Monday (feat. Ellen Todleben & Angel Moore) (4:31)
-04. Women Across the River (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66FB170558464970790E1204C89AA2CAE36E4694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609983   (1042600) от 06.02.2023
-
-Lex Grey and The Urban Pioneers - How Many Roads (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In It Together (5:02)
-02. How Many Roads? (3:50)
-03. Ain't from Mississippi (3:58)
-04. Old Crookedy Broom (4:27)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E44B8FF1BA4FC21D6C417A8651AFE024B4467D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

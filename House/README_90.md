@@ -1,3 +1,109 @@
+###  Публикация: 487228   (90429) от 24.04.2012
+
+Naked Music Recordings - Коллекция (21 диск, 35 винилов) (1999-2010) [MP3|~148-320 кб/с]<Deep House, Downtempo, Future Jazz, Nu Disco, Lounge>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Naked Music– это звукозаписывающий лейбл танцевальной музыки, расположенный в Нью-Йорке и Сан Франциско. Появился в 1992 году как Нью-Йоркская звукозаписывающая компания, когда Дэйв Буншофт (Dave Boonshoft) и Джей Дэйнс (Jay Danes) добились стремительного успеха на андерграунд сцене со своими релизами на таких независимых лейблах как OM, Francois Kevorkian's Wave imprint и UKs XL records. Naked Sound был рожден как пересечение дэнса, соула и электронной музыки. В 1998 году компания стала настоящим звукозаписывающим лейблом.
+Лейбл известен сериями миксов и компиляций Nude Dimensions и Carte Blanche, а также сольными альбомами таких артистов как Blue Six, Miguel Migs и Lisa Shaw01. Blue Six - Luxury (4:09)
+02. Blue Six - You Play Too Rough (4:45)
+03. Blue Six - If You Turn Your Back On Love (4:38)
+04. Blue Six - You Used To Rock (4:33)
+05. Blue Six - C'Mon (4:19)
+06. Blue Six - Noesis (4:50)
+07. Blue Six - I Tried To Tell You (5:08)
+08. Blue Six - Anything Is Possible (3:38)
+09. Blue Six - Bittersweet (4:21)
+10. Blue Six - One More Night (5:48)(   Читать дальше...   )Продолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305E63EE709EF123F52561791F671F8BD417F9EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485835   (89783) от 21.04.2012
+
+VA - Defected In The House Miami '12 (Mixed by Noir, Treasure Fingers & Franky Rizardo) - 2012 [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1 Mixed By Noir продолжительностью 01:16:55
+01 - Pillow Talk / Roach Motel - Soft (Life & Death Remix) / The Night (Noir Vox Tool)
+02 - Hunter_Game - Touch Me
+03 - Guy Robin feat. Amba ShepherKolombo - Heaven Or Hell (Noir Non-Repeat Shortcut)I'm On Your Side (Noir Vox Tool)
+04 - Tevo Howard feat. Tracey Thorn - Without Me (Noir & Martin Thompson Remix)
+05 - Maceo Plex - Under The Sheets (Original Mix)
+06 - Toky - About You (Hot Since 82 Remix)
+07 - Noir & Haze - Around (Solomon Vox)(The Chorus Tool)
+08 - Dj Ali feat. Tim Fuller - You Don't Know (Matt Tolfrey Remix)
+09 - Dj T feat. Khan - Leaving Me (Clockwork CW Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7BFF36A768831C920FC7BD5808906C7D08D6C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484875   (89373) от 19.04.2012
+
+VA - Workout Stomach Crunch (2012) [MP3|320 кб/с]<Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Nicolai Masur-Hadlek
+02. Shorpi-Feel
+03. Sasha Dith, Sasha Zvereva & Steve Modana-Superboy  (Greysound Remix)
+04. Vincent Dacosta-All The Time
+05. Stereo House-Everyday So Fine (Original Mix)
+06. Nicolai Masur-Window To Another World
+07.  Babe Ruth-Hot Like Paris Hilton (Dr.Jays Pulling It Out Remix)
+08. Aaron Beta-Rave Sleep Repeat
+09. Virus-Mode (Earth Mix)
+10. Houseclashers-Output (Enzio Velli Vs. Balu Da Houseclasher Mix)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DED4A0C4E68F3A8857A95DDE87CBE436A311E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483434   (89365) от 19.04.2012
 
 Oliver Koletzki - Grossstadtmarchen 2 (Deluxe Edition) - 2012 [MP3|~225 кб/с (V1)]<Tech House, Deep House, Electropop>
@@ -773,105 +879,6 @@ VA - Hope Recs Pres - Little World (2012) [MP3|320 kbps]<Tech House, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D01F9DE2BEE48C825D6E747C0D5769B9145C6796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440911   (72190) от 25.01.2012
-
-VA - Electro Doom (2012) [MP3|320 kbps]<Club House, Funky House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Sugar Freak Feat. Diva - Music Change My Life (Loveforce Remix)
-02.Alex Raimond Feat. Vivian B - Tiger (Frenk DJ & Joe Maker Remix)
-03.Tim Sanchez - Can U Feel It (DJ Chick Crazy Mix)
-04.Alex Raimondi Feat. Vivian B - Be As One (Frenk DJ & Joe Maker Remix)
-05.Andrea Masullo Feat. Lizzy B - Satisfy
-06.Daniele Sorrenti - So Much Love (DJ Chick Timbal Remix)
-07.Max Sabatini & Alex B - Electro Echo (Loveforce Remix)
-08.Andrea Masullo Feat. Mery) - On A Line
-09.Andrew Steel - La Prof
-10.Claudio Suriano - Set Me Free (Elektrojack Shining Remix)(   Читать дальше...   )Жанр: Club House, Funky HouseПродолжительность: 01:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E2DB9F118262D8E1BBE8C4B4E7AAD212D7C7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440920   (72180) от 25.01.2012
-
-VA - On The Floor 2 (2012) [MP3|320 kbps]<Club House, Funky House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Jochen Miller - Flashback (Gregori Klosman Remix)
-02.Sebastian Krieg & Andrew Bennett - Azure
-03.Audio Bastardz - 20 Hz
-04.Sem Thomasson Feat. Colonel Red - Like This
-05.Sebastian Gnewkow & Milkwish - Groove Kids
-06.Romeo Blanco - Galactica
-07.Asic & Hugs Feat. Casey Jones - Fantasy
-08.Moguai - Beatbox (Jordy Lishious Dope & Dirty Remix)
-09.Mell Tierra - Nagoya
-10.Lazy Jay - Bingo!(   Читать дальше...   )Жанр: Club House, Funky HouseПродолжительность: 02:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93F1D7E077FA547F98EBBE4BCBF71F28D3A9BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771259   (71927) от 05.01.2025
-
-VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase - Om Shivam (Original Goa Mix) [6:34]
-02. A-Mase & Vika Grand - Fever (Melodic Techno Mix) [5:18]
-03. A-Mase & Sharliz - Beautiful Things 2.0 (Original Mix) [7:04]
-04. A-Mase - Imagine 2.0 (Original Mix) [8:47](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA6C3F6D1A56BB1C2BEFF006A2AFE34EC02D357
 ```
 
 https://mybot314.ru/tekegram_catalog/

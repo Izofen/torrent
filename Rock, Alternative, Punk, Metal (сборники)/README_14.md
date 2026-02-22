@@ -1,3 +1,32 @@
+###  Публикация: 1276833   (787201) от 18.01.2019
+
+The Cranberries - I Still Do (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Do
+02. Dreams
+03. Sunday
+04. Pretty(   Читать дальше...   )Жанр: RockПродолжительность: 03:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E20A81AD1C341282FB9E09EB3AFA7CEDAFEA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388262   (786839) от 05.06.2020
 
 VA - Rock Ballads About The Sublime (2020) [MP3|320 Kbps] <Rock, Ballads, Metal, Symphonic>
@@ -722,35 +751,6 @@ VA - 100 Hits Rock (2018) [MP3|256-320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98A5D327EEAEDD08007D43B254C3F4574E660CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211887   (776739) от 09.03.2018
-
-Cinderella - The Best of the Best (2018) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Don't Like It
-02. Long Cold Winter
-03. Once Around The Ride
-04. Nobody's Fool(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95124F37F8422466CA40220EBDC3C573AD1A87B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

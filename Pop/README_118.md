@@ -1,3 +1,119 @@
+###  Публикация: 1287558   (703626) от 07.03.2019
+
+Sugar & Candy - Come To The Party (1979) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come To The Party (4:03)
+02. Chapel Of Love (2:54)
+03. Teardrops On My Pillow (4:03)
+04. Breaking Up Again (3:49)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49077FFB120041E890B8328BF2CD75BAAFE94A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287537   (703347) от 07.03.2019
+
+Dido - Still on My Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricanes
+02. Give You Up
+03. Hell After This
+04. You Don't Need a God(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6BF22248F105DCA3A766EE0B44B2193530D027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533639   (703326) от 25.02.2022
+
+Mario Renzi - Un Violino In Discoteca (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Love (3:28)
+02. Honey Pie (3:26)
+03. Copacabana (4:12)
+04. One For Me One For You (5:33)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FB607118BE3DE6AEACC6865FA75F3D1EA55B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287393   (703241) от 07.03.2019
+
+Mylene Farmer - Dance Remixes (1992) Compilation, Reissue, 2000, Polydor [FLAC|Lossless|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We'll never die (Techno remix) (7:28)
+02. Sans contrefaзon (Boy remix) (5:48)
+03. Tristana (Remix club) (7:14)
+04. Sans logique (Illogical club remix) (7:13)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FBA248849A749D474DF0798705F8543FA9CE25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287336   (703226) от 07.03.2019
 
 VA - ZYX Italo Disco New Generation Vol. 14 (2019) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
@@ -627,122 +743,6 @@ VA - ZYX Italo Disco: Flemming Dalum Remixes (2021) [MP3|320 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6371754FB990FB1AADEF3937519C789EB7DE9B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287825   (701351) от 08.03.2019
-
-Гречка - сборник малолетки (2019) [MP3|320 Kbps] <Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701351.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. проснись моя любовь
-2. каждую секунду
-3. мир сходит с ума
-4. ты главный герой(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6008A3FB0F5B45F4D6F6C7A5232D41E7D30869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895299   (701015) от 05.05.2015
-
-Lara Fabian - Essential (2015) [FLAC|Lossless]<Pop, Classical Crossover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voce
-02. Tu t’en vas
-03. Tout
-04. Je t’aime(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5558150FCD5F39D76529CFE0FE42D5BB35A1D857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132511   (700841) от 09.05.2017
-
-Lola Coca - The Only Child (2017) [MP3|320 Kbps] <Pop, Britpop, Alternative Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Songs
-02. Big Ben
-03. Dream Date
-04. GQ(   Читать дальше...   )Жанр: Pop, Britpop, Alternative Hip HopПродолжительность: 00:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D0167AF95C890A4400BE7A4F18FFF5DF317B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287821   (700803) от 08.03.2019
-
-Кватро - XV лет. Посвящение женщине. Часть 3 (2019) [MP3|320 Kbps] <Pop, Retro>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700803.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Замок из дождя
-2. Как ты красива сегодня
-3. Сердце в 1000 свечей
-4. Виноградная косточка(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185E119B23AA2EE6CBCDF118335B8927CC932EAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

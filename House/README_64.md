@@ -1,3 +1,90 @@
+###  Публикация: 959352   (317381) от 24.11.2015
+
+VA - 55 Dancefloor Minimal Hits (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corner - Jellyfish (Stefan F Remix) [05:42]
+02. Ochu Laross - Hell And Purgatory And Paradise (Sadder Remix) [07:44]
+03. Copyzor - Minimal Terminal [06:31]
+04. Jose Solano - Bam Motherfucker [06:23](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD4BBB7DB454FF9861F6DE6D75AF0241C8DAFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959340   (317316) от 24.11.2015
+
+VA - 55 Bombs Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus Escobar Kiffen - King [06:41]
+02. Efeckt Mnml - Feel The Reeverb [06:35]
+03. Whisperer - Gibbons [05:36]
+04. The Mnml Robots - Where Is My Sputnik [06:56](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68E733104AA44CFCEA53B066238646F4265653F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959356   (317303) от 24.11.2015
+
+VA - 55 Hits Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Js Music - Cat Dress [06:18]
+02. Claudio Colbert - Smooth (Extended Mix) [06:47]
+03. Will Konen - Youll Be Rock [06:06]
+04. Whisperer - Melodic World [07:07](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B35B0F6B7CEF9F4A7CB3D9A9B976418A161780E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182335   (317170) от 10.11.2017
 
 VA - Progressive Beach House (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -662,93 +749,6 @@ Pete Tong and The Heritage Orchestra - Classic House (2016) [MP3|320 Kbps] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0A4D10BE4540457465D66BC09B7AC4F2A5A60CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 417904   (308766) от 04.12.2011
-
-666 - Дискография 28 Releases (22 Singles / 6 Albums) (1997-2010) [MP3|192-320 kbps]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308766.jpg" />
-</div>
-
-
-###  Подробнее
-
-666 (англ. «six six six», русск. «шесть, шесть, шесть») — немецкая музыкальная группа, работающая в стиле евродэнс, Hard House. За время своего существования на сцене им удалось добиться следующих результатов: 15 золотых премий, 4 платиновых, попадание в музыкальные чарты более 30 раз, 4 миллиона проданных музыкальных копий . Группа добилась высокого уровня известности (   Читать дальше...   )1.Cathedral Of Sin (Introduction)
-2.Amokk
-3.Get Up 2 Da Track (666 Is Back)
-4.La Vasca Se Mueve(   Читать дальше...   )Жанр: HouseПродолжительность: 16:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3735AF6BAA5945E598B568111F2FDE16AE07684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183404   (307870) от 14.11.2017
-
-VA - Club Beats 2017 (Compilation) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fezz - In My House 04:05
-02. WTDJ - Don't Forget 04:22
-03. T3rminal - Moksha 03:56
-04. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound 04:18(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDBB695122932A0D4BA6E1AE86D4462BCF8B0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183776   (307869) от 14.11.2017
-
-VA - Deep Attraction (Deep House Grooves Selection) (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darles Flow and Marga Sol - Alive 5:22
-02. Meital De Razon & Asi Tal - In Love Again (Asi Tal Deep Remix) 4:46
-03. DMPR - Love Life 3:52
-04. Beat Ballistick - Deeper 5:50(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD992B08AA934F9DFA72DE67607E284BB8436A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 995947   (882835) от 12.03.2016
+
+Chris Standring - Ten (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882835.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ready Steady Flow
+2. Snake Oil
+3. Magic Carpet Ride
+4. Carousel(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441B88CFBD4EE7AF5A7B890A8C380F806DE8E405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495131   (882269) от 11.09.2021
+
+The Kyle Asche Organ Trio - Five Down Blues (2021) [FLAC 2.0|88/24|tracks|WEB-DL] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Five Down Blues 07:02
+02 - Dorothy 06:45
+03 - Pretty Eyes 07:30
+04 - Delirium 05:28(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF7BAFE0315245CEB201C6DF2C512948D4B857B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373046   (882211) от 05.04.2020
+
+Vincent Gardner - The Good Book Chapter Three: The Book of Bebop (2012) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Talk [6:07]
+02. Another Hair-Do [7:34]
+03. I Waited for You [6:28]
+04. Compulsion [6:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1326B7CA0859CA3FA897FD3747CD6BE2FDA6EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 764270   (882008) от 08.03.2014
 
 Beegie Adair - The Way You Look Tonight (2004) [FLAC|Lossless]<Piano Jazz>
@@ -690,93 +777,6 @@ Tete Montoliu & Jordi Sabates - Vampyria (1974) 2007, Nuevos Medios [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF036B1D833DC01CE62C27EAAF019B59EDDC0C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104302   (880278) от 15.02.2017
-
-Full Fat - Most of What Follows is True (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of Course I'll Miss You (3:16)
-02. Blue (3:32)
-03. Lucie-Lou (2:45)
-04. I'm Talkin' To You (2:38)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E7B81B4E024A884E491B331F75777EEF0B594B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104045   (880275) от 15.02.2017
-
-Bim Bam Baby - Who Am I Gonna Love Tonight (1999) [FLAC|Lossless|image + .cue] <Jump Jive, Neo Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight I'm Gonna Love You
-02. Come Back My Love
-03. Love Roller Coaster
-04. I Gotta Have Your Love(   Читать дальше...   )Жанр: Jump Jive, Neo SwingПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE71CC49A05D69668FE31CBEBE5992E647C63707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104215   (880264) от 15.02.2017
-
-McCoy Tyner Quartet - New York Reunion (1991) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Recorda Me [09:49]
- 02.Miss Bea [07:10]
- 03.What Is This Thing Called Love? [08:05]
- 04.My Romance [06:37](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FDCEE1EB06871FD2BE6E0A96E4AB313596C3EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

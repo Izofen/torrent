@@ -1,3 +1,94 @@
+###  Публикация: 1323739   (433795) от 05.09.2019
+
+VA - The Best Of Summer Season '19 (2019) [MP3|320 Kbps] <House, Tech House, Bass House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Draxler - Back To The Future (Original Mix) 4:28
+02. David Calfan - Recognize (Original Mix) 5:00
+03. Crunchy Masters - In That World (Dub Mix) 5:17
+04. Carl Armstrong - Strange Condition (Original Mix) 4:59(   Читать дальше...   )Жанр: House, Tech House, Bass House, Funky HouseПродолжительность: 04:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF19DFEA2CBFD26AA1207173232546D86B132C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555686   (431874) от 03.10.2012
+
+Various Artists - Club House 2012 (2012) [MP3|320 кб/с]<Club House, House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pain - Another Glass (Simone Cattaneo & Alex Gardini Remix) (5:50)
+02. Takeshy Kurosawa - Let Me Go (Rudeejay Remix) (1:57)
+03. Niky Martinez - Keep This Love Alive (Dub Mix) (7:32)
+04. Granite - One & Only (Original Mix) (5:20)
+05. A.D.M. - I Want You (David Jones Remix) (6:39)
+06. StoneBridge - I Love It (Album Mix) (3:21)
+07. Patric La Funk - Baltic (Original Mix) (6:33)
+08. Nightstylers - Up Your Rumpa (Original Mix) (8:19)
+09. Wally Lopez - House Of Mine (Simone Vitullo Remix) (8:16)
+10. SIKK - My Washing Machine (Leonardo Glovibes 2012 Remix) (6:10)(   Читать дальше...   )Жанр: Club House, House, Progressive HouseПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F472021AC646D087147424113276945213B3A94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945460   (431747) от 11.10.2015
+
+Dustin Nantais - Cloak / A Long Road (The Remixes) (31.08.2015) [MP3|320 кб/с]<Electronic, Deep, House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dustin Nantais feat. Amber Long - A Long Road (Kobana Remix)
+02. Dustin Nantais - Cloak (Max Cue Remix)Жанр: Electronic, Deep, House, ProgressiveПродолжительность: 00:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD1279437FD20F4DE02027CC7EA1BE730920313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 555645   (431707) от 03.10.2012
 
 Various Artists - Catz 'n Dogz Presents Body Language Volume 12 (2012) [MP3|320 кб/с]<Deep House, Tech House>
@@ -676,99 +767,6 @@ VA - Moments Of House Music Vol.5 (2016) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4B92DD1DC0C1E725B1D1AB9DB08E7D00DBCDD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065303   (419338) от 23.10.2016
-
-VA - Ministry Of Sound - Chilled House Winter (unmixed tracks) (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kungs - Don't You Know (feat Jamie N Commons) [03:04]
-02. Jonas Blue - Perfect Strangers (feat JP Cooper) [03:16]
-03. Avicii - Gonna Love Ya [03:35]
-04. Felix Jaehn - Bonfire (feat ALMA) [03:03](   Читать дальше...   )Жанр: HouseПродолжительность: 04:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BC2A267AB497B5A54882DA5370000E29BEB2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557897   (417242) от 09.10.2012
-
-VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<House, Deep House, Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulmagic - Someone Like You (Original)
-02. Rosie Gaines - Closer Than Close (Schwarz & Funk Classic House Mix)
-03. Angelina - Just Be Good to Me (feat. Angelina) (Robis Latin Breeze Mix)
-04. Erann - Is This Love (feat. Erann) (Deeper People Remix)
-05. Meshach Broderick - You (feat. Benjamin Broderick) (Benjamin Led & Rothmann Remix)
-06. Camille Jones - I AM (Jesse Funk's Lost in Space Dub)
-07. Clara Sofie - Flowing Over (feat. Clara Sofie) (Delicious Ibiza Remix)
-08. Deeper People - Missing (Matt Early Sunset Mix)
-09. ReUnited - Sing It Back (Sidelmann Funkelectric Mix)
-10. Sherell McKenzie - Any Love (feat. Sherell Mckenzie) (Scandall Sunset On Ibiza Remix)(   Читать дальше...   )Жанр: House, Deep House, Soulful HouseПродолжительность: 01:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31B30BAFB4A8CD216454937E6F8F8758A92587C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066109   (414947) от 25.10.2016
-
-VA - Jewels & Gems Vol.1: Selection Of Deep House (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pablo del Monte - Glide over Here - Julius Papp Remix
-02. Ricky Presta - Blind
-03. JP Chronic - It's Okay - DJ Vivona Remix
-04. Rockstar - The White Hole - Nikos Akrivos Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4147A38B348AAD92B0123890DD55D557D83F829C
 ```
 
 https://mybot314.ru/tekegram_catalog/

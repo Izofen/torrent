@@ -1,3 +1,32 @@
+###  Публикация: 1222395   (685154) от 29.04.2018
+
+Joseph Nimoh - Reflections (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Adoration (3:13)
+02.	I'm waiting on you (2:58)
+03.	In my weakness you are strong (2:59)
+04.	In you I repose my trust (2:39)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365CCB82FCB7EF123BDDF314B8A611A833C46B87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134981   (684857) от 17.05.2017
 
 VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2017) [MP3|320 Kbps] <New Age>
@@ -739,35 +768,6 @@ Shastro - Lovers Night (2014) [FLAC|Lossless|tracks] <New Age, Meditative, Relax
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B64F1BD011CE8B58B0B7A45998E6C73C70D1845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029288   (680249) от 27.06.2016
-
-Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора шпиона (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Central Intelligence (02:08)
-02. Robbie (00:38)
-03. Golden Jet (01:02)
-04. I Don't Like Bullies (01:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1222F5D90EC55DD44DFF17B7E272DA09C3DC3EF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

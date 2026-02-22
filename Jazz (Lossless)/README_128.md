@@ -1,3 +1,32 @@
+###  Публикация: 1028476   (688757) от 23.06.2016
+
+Camille - I Sing Stevie: The Stevie Wonder Songbook (2014) [FLAC|Lossless|image + .cue] <Jazz, Latin, Contemporary R&B, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Flower.
+02. As.
+03. The Secret Life Of Plants (Duet with Will Lee).
+04. Free.(   Читать дальше...   )Жанр: Jazz, Latin, Contemporary R&B, Smooth JazzПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941B85133626F215D5B408793C2FC29EDE9F3A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403686   (688642) от 21.08.2020
 
 Max Kaminsky - When The Saints Go Marching In Jazz On The Campus, Ltd (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
@@ -722,35 +751,6 @@ Duke Ellington - Never-Before-Released Recordings (1965 - 1972) 1991, Limelight 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3285FFCC7A3B5DEB4AEF4A11EE9AEA9F5FC6472C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135037   (685226) от 17.05.2017
-
-Duke Ellington - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beautiful Indians - Hiawatha [02:48]
-02. The Beautiful Indians - Minnehaha [03:01]
-03. It Shouldn't Happen to a Dream [03:07]
-04. Diminuendo in Blue [02:52](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F247B0AD15F6D57818B02ECFEAE6C8BFB09FC73E
 ```
 
 https://mybot314.ru/tekegram_catalog/

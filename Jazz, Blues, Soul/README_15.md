@@ -1,3 +1,90 @@
+###  Публикация: 1439507   (1039599) от 14.01.2021
+
+Gotz Alsmann   - In Rom (2017) [FLAC|Lossless|image + .cue] <vocal Jazz. Early Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quando Quando Quando [0:03:46.46]
+02. Azzurro [0:04:05.36]
+03. Die schonste der Erde [0:03:30.14]
+04. Carina [0:02:50.16](   Читать дальше...   )Жанр: vocal Jazz. Early Jazz, SwingПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6D635D6D205699B2361689FFE8FE1F0AC2FCF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613446   (1039578) от 18.02.2023
+
+James Williams - Still Got the Grease (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Movin' on (5:12)
+02. There's a Hole in My Roof Leakin' (7:41)
+03. Goin' to the City (3:43)
+04. Black Cat (3:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6087DC36940AB2F48EB3B7A937E26ABECCF46E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613334   (1039542) от 18.02.2023
+
+Eric Clapton - Rarities 1983-1998 (2023) [FLAC|96/24|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Free
+02. Crossroads (Live in Birmingham, England, 1986)
+03. White Room (Live in Birmingham, England, 1986)
+04. Theme From A Movie That Never Happened (Orchestral)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38449464693835334E1D23A25116241EA08A4B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439678   (1039524) от 14.01.2021
 
 Curtis Fuller Quintet - Blues-ette (1959) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -658,93 +745,6 @@ Helen Merrill - Sings Screen Favorites (1968) 2004, JVC[FLAC|image+.cue] <Vocal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED0724FC8997D475CF10FC7877F3DC11415B0719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102477   (1038817) от 21.02.2023
-
-Ray Brown - I'm Walking (1998) JVC[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I'm Walking [05:16]
- 02.Couch Potate Blues [02:46]
- 03.Time After Time [06:31]
- 04.Drum Feature [04:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE9271EE8274303B008D754F10065E6A024533D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440227   (1038737) от 17.01.2021
-
-Andy Lindquist - Blues Soul Groove (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By the Foot of John Lee (4:23)
-02. Blues Soul Groove (3:23)
-03. That's Where I Born My Blues (3:09)
-04. Bygone Blues (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659FA55497466FB4244886B3E77B23EEC59A2337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614437   (1038609) от 22.02.2023
-
-Charles Mingus - East Coasting (1957) 1986, Bethlehem Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories of You [4:28]
-02. East Coasting [5:14]
-03. West Coast Ghost [10:34]
-04. Celia [7:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50AA8578A34612F94297D87BF7CE0335F5B6EA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

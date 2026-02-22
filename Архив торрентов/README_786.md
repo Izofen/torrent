@@ -1,3 +1,32 @@
+###  Публикация: 1090786   (945861) от 07.01.2017
+
+Camouflage - Relocated (2006) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory (1:06)
+ 02. We Are Lovers (4:00)
+ 03. Motif Sky (3:30)
+ 04. Real Thing (3:11)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77FB8C4BE4998B1CD504879B67D52546E591C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090860   (945851) от 07.01.2017
 
 Benvista PhotoZoom Pro 7.0.2 [Multi/Ru]
@@ -684,32 +713,6 @@ Cookie  - Программа для полного удаления cookie-фа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A0679D959B8944A89FA0F053D5728DF3B269011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983031   (945626) от 05.02.2016
-
-Johnny Beast - Live mix at Kontakt (2016) [MP3|192 кб/с] <House, Future House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945626.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: House, Future HouseПродолжительность: 01:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B55BBB077C6BB3006DE8ACDB489F1EBA1A24593
 ```
 
 https://mybot314.ru/tekegram_catalog/

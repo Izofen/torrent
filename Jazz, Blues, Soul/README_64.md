@@ -1,3 +1,90 @@
+###  Публикация: 1088798   (955161) от 01.01.2017
+
+Erroll Garner - The Complete Concert By The Sea (1955) 3CD, 2015, Legacy[FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955161.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Как пианист Эррол был неподражаем. Многие пианисты пытались копировать его игру, но вряд ли кому это удавалось. Дар этот, посланный свыше, был предназначен ему одному. Чтобы не вдаваться в излишние детали, скажу только, что тайна его гениальности заключена в невероятном чувстве ритма, и в этом он превосходил практически всех музыкантов, независимо от инструмента. (   Читать дальше...   )CD1:
+01.Announcer: Jimmy Lyons [00:38]
+02.Night and Day [05:05]
+03.Spring Is Here [05:14](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Swing, Piano JazzПродолжительность: 02:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7C69771F500E5C49686525F156D21FFFA8A3C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980864   (954779) от 30.01.2016
+
+David Benoit - Conversation (2012) [MP3|320 кб/с] <General Jazz,Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Napa Crossroads Overture 03:48
+02. Feelin' It 03:57
+03. Diary Of A Wimpy Kid 03:08
+04. Kei's Song Redux 04:50(   Читать дальше...   )Жанр: General Jazz, Piano JazzПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A648662574041EB75350F3350CB632D21E8366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980976   (954629) от 30.01.2016
+
+VA - Tanzen Verboten (2016) [MP3|320 кб/с] <Swing, Electro Swing, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mano Meter - Puppet on a String (04:13)
+02. Indy Lopez - Dom Dom Dom 2015 (Rework Mix) (06:46)
+03. Swing Tanzen Verboten - Lass mich dein Badewasser schlurfen (03:04)
+04. Avelino - Monday Morning (04:43)(   Читать дальше...   )Производство: Mystical Wings AudioЖанр: Swing, Electro Swing, ElectronicПродолжительность: 01:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C7EF1E46979B973F7D1CA8F62650CBFDAE8608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089056   (954049) от 02.01.2017
 
 Willie Martinez La Familia Sextet - Family (2005) Cuch Be Witcha[FLAC|Lossless|tracks + .cue] <Post-Bop, Latin Jazz>
@@ -661,93 +748,6 @@ Lee Morgan - The Sidewinder (1963) Remaster, 2013, Universal[FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:511E0955C8C27403A1BE584DD9798203E07E7C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089628   (950766) от 04.01.2017
-
-Pat Martino - Remember: A Tribute To Wes Montgomery (2006) Blue Note[FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Four On Six [06:03]
- 02.Groove Yard [05:55]
- 03.Full House [07:03]
- 04.Heart Strings [06:52](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE9872FFCF029B24E2E5B31D759DA0E7E87494C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089695   (950662) от 04.01.2017
-
-The Blues Mystery - Diesel Rock (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Grimaces On The Bad Mood  (03:51) 
-02|  Don't Get Close To Me Today  (03:35) 
-03|  The Motorbikes Are Roaring  (03:36) 
-04|  Wild Love ( Tamed By The Child )  (04:24) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FF431DC52F8B1350C2F1938DB2E6437382487D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089773   (950654) от 04.01.2017
-
-VA - A Groovy Kind of Sax (1995) авторская раздача [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодние каникулы - благодатное время для того, чтоб ещё раз порыться в своей коллекции. И порою "находишь" диски о которых уже и подзабылось. Из таких "забытых" и этот диск (будут ещё несколько из этой серии), выпущенный в далеком 1995 году сублейблом Demon Music Group и купленных по случаю на Юноне. К сожалению, издатель привел в буклете только (   Читать дальше...   )01. A Groovy Kind of Love  (2:57)
-02. Arthur's Theme (The Best That You Can Do)  (3:48)
-03. Misty  (4:18)
-04. My Cherie Amour  (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B680F361CD0DA6D81682DFA948E319C2F895740E
 ```
 
 https://mybot314.ru/tekegram_catalog/

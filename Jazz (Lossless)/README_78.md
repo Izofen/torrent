@@ -1,3 +1,32 @@
+###  Публикация: 1005000   (834572) от 08.04.2016
+
+Tord Gustavsen - What Was Said (2016) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Your Grief
+ 02 – I See You
+ 03 – Imagine the Fog Disappearing
+ 04 – A Castle in Heaven(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5179FAB895CA858A688F353F7B44210026102001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114306   (833606) от 14.03.2017
 
 Claude Bolling - Jazzgang Amadeus Mozart (1965) 2007, Philips [FLAC|Lossless|tracks + .cue] <Dixieland, Third Stream>
@@ -714,35 +743,6 @@ The George Shearing Quintet & Dakota Staton - In The Night 1957 (2003) Capitol J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58DFCD611A4F9C3FFAD06F8FE0741D7157FF38FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381362   (827834) от 06.05.2020
-
-Lucia Ianniello - ‎Live At Acuto Jazz (2017) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827834.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Our Summer ( 3:02)
-2. Peyote Song No. Iii ( 8:44)
-3. Other ( 5:20)
-4. Little Africa ( 7:08)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAD21E598FC47900366C0EBC835B94743566585
 ```
 
 https://mybot314.ru/tekegram_catalog/

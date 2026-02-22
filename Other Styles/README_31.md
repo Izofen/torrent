@@ -1,3 +1,32 @@
+###  Публикация: 989752   (915701) от 23.02.2016
+
+Isgaard - The Early Days (2015) [MP3|320 кб/с] <New Age, Classical Crossover>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My World
+02. Little Girl
+03. Save Me
+04. Anima (Remix)(   Читать дальше...   )Жанр: New age, Classical CrossoverПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A31E5D2FF57DA08CFF6C1A42EEFC617B47DC3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366744   (915692) от 16.03.2020
 
 Michael Afanasyev - Балканский рубеж (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42498AC32BB5B0ABD0C270A9E0B544E2DD6A5300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098310   (908944) от 30.01.2017
-
-Holly Davis - Animal Healing Workshop (2006) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [00:07:37]
-02. A Safe Place [00:06:00]
-03. Sensing the Emotion [00:03:16]
-04. Working With Energy [00:03:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EBF3A647C2AA48DABA4506140D5EFE35E6669F
 ```
 
 https://mybot314.ru/tekegram_catalog/

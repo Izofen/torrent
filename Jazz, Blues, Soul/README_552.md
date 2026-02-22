@@ -1,3 +1,32 @@
+###  Публикация: 1729597   (108034) от 12.06.2024
+
+VA - Alluring Relaxing Mellow Soothing Jazz Playlist (2024) [FLAC |Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Guessing Game (4:17)
+02. Chillaxing Jazz Kollektion - Send My Love (4:08)
+03. Chillaxonic - Oasis (4:58)
+04. Konstantin Klashtorni - Let's Chill (5:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C400FB95EBB87C741009B15486764FBC913817A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729598   (108031) от 12.06.2024
 
 VA - Alluring Ultimate Mellow Chilly Lounge Enjoyable Playlist (2024) [FLAC |Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -714,35 +743,6 @@ Pimps of Joytime & Sophia Urista - Don't Belong (2024) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89A22D0A8D6E844D8B29E1696E4C27FE8D3291D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731267   (107737) от 20.06.2024
-
-Johnny Griffin - Masters Of Jazz (1964 - 1989) 2006, Storyville Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wee Dot [4:50]
-02. Exactly Like You [10:00]
-03. A Night In Tunesia [8:31]
-04. Blues Up And Down [10:50](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64873155ED15758B9F6A20833FCAF22C0A724E20
 ```
 
 https://mybot314.ru/tekegram_catalog/

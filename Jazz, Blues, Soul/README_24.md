@@ -1,3 +1,90 @@
+###  Публикация: 1620671   (1031864) от 21.03.2023
+
+Angels Of Libra - Revelations (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only Thing Left (4:50)
+02. Revelations (feat. Nathan Johnston) (4:39)
+03. House of Zeus (3:27)
+04. Gabriel (feat. Milo Milone) (4:30)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D94CBF414030C4EFE077CE7C5A8A670F0333FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620673   (1031863) от 21.03.2023
+
+Atomica Music - Hello Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aint Goin Down (3:44)
+02. Hello Blues (3:20)
+03. I Dont Want Nothin (2:28)
+04. If I Ever (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17917474E4FA87C75E9CB0BA393D071EFD96EAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620687   (1031862) от 21.03.2023
+
+Daddy Long Legs - Street Sermons (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Street Sermon (2:25)
+02. Nightmare (3:23)
+03. Rockin' My Boogie (3:51)
+04. Harmonica Razor (2:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96D601326618D31F94E2B882E207B109EF4EC5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620682   (1031860) от 21.03.2023
 
 Big Shoes - Fresh Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -659,93 +746,6 @@ Terlingo Sacchi Blues Quintet - Junior (2021) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D96DF25D26BDDD55310D8F966F123EA6B0F5E3DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447915   (1031293) от 15.02.2021
-
-Tscheky & The Blues Kings - Men of Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Down but Feeling Free (2:47)
-02. Talk to Me Baby (4:21)
-03. Give Me Back My Wig (4:16)
-04. LA Boogie (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FD8EEE6A2C666163E7D9CEF568ACD058AE4050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621142   (1031218) от 24.03.2023
-
-Kevan And The Black Country Sons - Chasing Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing Shadows (4:40)
-02. Mr Johnson (4:16)
-03. In Too Deep (3:55)
-04. Between The Lines (5:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9713D8E960DE5EB509EB7F3A4CB06A21ACCD2592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448056   (1031210) от 16.02.2021
-
-Charlie Christian - The Genius Of The Electric Guitar (1939 - 1941) 4CD, 2002, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031210.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Flying Home [3:13]
-02. Rose Room [2:47]
-03. Stardust [3:14](   Читать дальше...   )Жанр: Swing, Big Band, Guitar JazzПродолжительность: 05:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9FA684E05F61AFEE5CA084B41C2A7677D0602E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

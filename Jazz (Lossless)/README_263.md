@@ -1,32 +1,3 @@
-###  Публикация: 1072375   (244190) от 13.11.2016
-
-Pamela Rose & The Nate Ginsberg Trio - On the Jazzy Side of Blue (1993) [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three-Handed Woman
-02. Ain't-Cha Glad?
-03. Oh Grandpa
-04. No Moon at All(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B06CFE15D926C2F7F5027DBEA4F78EEAC0F62B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610800   (244185) от 09.02.2023
 
 VA - Ladies In Blue (1934 - 1954) 2CD, 2005, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -745,6 +716,35 @@ Harry James - 1939 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Ban
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30596BDFB894CF9A9F518F2E0D47ECCB8FA2544D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333699   (243621) от 26.10.2019
+
+Oscar Brown, Jr. - Between Heaven and Hell 1962 (2010) SuperBird [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Kicks [2:22]
+02. Hazel's Hips [3:12]
+03. Excuse Me for Livin' [2:59]
+04. Lucky Guy [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30268186CC475103517C60AA34A7356EFA2D83A
 ```
 
 https://mybot314.ru/tekegram_catalog/

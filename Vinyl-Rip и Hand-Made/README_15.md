@@ -1,3 +1,180 @@
+###  Публикация: 1524025   (746374) от 14.01.2022
+
+The Beatles - 1967-1970 (1973) Blue Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Beat, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746374.jpg" />
+</div>
+
+
+###  Подробнее
+
+LP1
+A1 Strawberry Fields Forever
+A2 Penny Lane
+A3 Sgt. Pepper's Lonely Hearts Club Band(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 01:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED79CAA200AAA39DE6A04C1F3E3CB96C0EB7126A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665050   (745721) от 05.06.2013
+
+Muse - 4 Альбома (2001-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Alternative rock, Progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative rock, Progressive rock |Продолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B96F35161B6272AF4CDBE00057B47C5CDCCEF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783781   (743906) от 05.05.2014
+
+Тухманов - По волне моей памяти (1976) [FLAC 2.0 24/192|traks(Vinil-Rip)]<ArtRock, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743906.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 сторона
+1. Я мысленно вхожу в Ваш кабинет (М. Волошин) М. Бади ("Арсенал")  5:04
+2. Из сафо (VII век до н.э.) , перевод В. Вересаева) Наталья Капустина (Вокальная группа "Современник")  5:17
+3. Из вагантов (XI - XIII вв.) , перевод Л. Гинзбурга) Игорь Иванов ("Надежда")  3:02
+4. Приглашение к путешествию (Ш. Бодлер , перевод И. Озеровой) А. Барыкин ("Самоцветы")  4:05
+5. Доброй ночи (П. Б. Шелли) М. Бади ("Арсенал")  3:45
+2 сторона
+1. По волне моей памяти (Н. Гильен , перевод И. Тыняновой) В. Андрианов ("Лейся , песня")  3:45
+2. Сентиментальная прогулка (П. Верлен , перевод А. Эфрон) С. Беликов ("Аракс")  3:57
+3. Сердце моё , сердце (И. В. Гёте , перевод В. Левика) А. Лерман (Вокальная группа "Добры молодцы")  3:58(   Читать дальше...   )Жанр: ArtRock, SchlagerПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1ED3739AAD88257D9482A2DC2525664EF9AF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524455   (743627) от 16.01.2022
+
+Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-Rip] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone is Love (2:33)
+ 02. Home Again (3:04)
+ 03. My House And The River (2:56)
+ 04. Could This Be Me (3:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6E43B331867D0BA3FC1D0AEDE3B06D1F0B71CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216829   (743124) от 04.04.2018
+
+Наталья Гулькина - Дискотека (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743124.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1:42] 01. Наташа Гулькина - Интро
+[4:40] 02. Наташа Гулькина - Дискотека
+[4:10] 03. Наташа Гулькина - Ветер, скажи
+[4:44] 04. Наташа Гулькина - Зима(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C85E45CB0746064ABBBAC8DF74572FBA2AD9E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216678   (742980) от 04.04.2018
+
+Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742980.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Don't Know Why
+2. Whatever It Takes
+3. Believer
+4. Walking The Wire(   Читать дальше...   )Жанр: Rock/PopПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524431   (741879) от 17.01.2022
 
 Комиссар - Наше Время Пришло (1991) Питон, со вставками Звук [DSD2.0|11,28MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco, Dance, Techno>
@@ -566,177 +743,6 @@ A4 Canary In A Coalmine(   Читать дальше...   )Жанр: New Wave, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9DB0F5B870D7837767EBF598662E29FA2A7E7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528269   (734960) от 01.02.2022
-
-The Police - Ghost In The Machine (1981) Reissue 1982 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734960.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Spirits In The Material World
-A2 Every Little Thing She Does Is Magic
-A3 Invisible Sun
-A4 Hungry For You (J'Aurais Toujours Faim De Toi)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A5903F929D891E628816CC7600C2B8BA038A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399102   (734306) от 29.07.2020
-
-Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734306.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Motorrennerrock
-A2 Der Kater
-A3 Heut' Spielt Hier 'Ne Soul-Band
-A4 Gemeinsamkeit(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95553D0626A4F5B61519836C45250F8DF0861824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127521   (731843) от 21.04.2017
-
-The Alan Parsons Project - Gaudi (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731843.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. La Sagrada Familia (8:47)
-A2. Too Late (4:32)
-A3. Closer To Heaven (5:53)
-B1. Standing On Higher Ground (5:04)(   Читать дальше...   )Производство: Arista - 206 084Жанр: Progressive RockПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF8849ABAC2433115C8AA00E867F70C52A6B7F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666321   (731394) от 09.06.2013
-
-VA - Red Wave - 4 Underground Bands From The USSR (1986) 2LP [FLAC 2.0 24/96 | image (Vinyl-Rip)<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731394.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Red Wave» - это первый официальный релиз на Западе 4-х рок-групп СССР, которые официально были практически запрещены в России. Чтобы издать эту музыку на Западе, американская энтузиастка Джоанна Стингрей, влюбившаяся в Россию и прожившая здесь более 15 лет, вывезла записи групп из СССР и в 1986 году на фирме "Big Time Records" (Калифорния) тиражом 10 тыс.экз. (   Читать дальше...   )Жанр: RockПродолжительность: 00:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D258B93B68CDDE11AC870264B3455F73AFD0778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529997   (730776) от 09.02.2022
-
-Madeleine Peyroux – Half The Perfect World (2006) 2008 [DSD128 2.0|tracks|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Allright (3:27)
- 02. Summer Wind (3:56)
- 03. Blue Alert (4:11)
- 04. Everybody's Talking (5:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F1EEF69DD3F4DDE3910F40BFE4D2F86CDE9D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666864   (730294) от 10.06.2013
-
-Secret Service - Collection (7 LP) (1979-1987) [FLAC 2.0 24/192|image(Vinyl-Rip)]<Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730294.jpg" />
-</div>
-
-
-###  Подробнее
-
-1979 - Oh Susie
-1981 - Ye Si Ca
-1982 - Cutting Corners
-1984 - Jupiter Sign(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 04:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206AB242BB408334705B6533E3C25AE56E6033B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

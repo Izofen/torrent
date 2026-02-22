@@ -1,3 +1,131 @@
+###  Публикация: 566975   (396697) от 29.10.2012
+
+Donna Summer - 8 Albums (1975-1979) /2012, SHM-CD Universal Music Japan/ [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_396697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Radio 04:02
+02. Love To Love You Baby 04:15
+03. Try Me, I Know We Can Make It 03:18
+04. I Feel Love 03:21
+05. Our Love 03:46
+06. I Remember Yesterday 04:46
+07. I Love You 03:11
+08. Heaven Knows 03:31
+09. Last Dance 04:59
+10. MacArthur Park 03:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567753   (395772) от 30.10.2012
+
+Michael Cretu - Gambit (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Love Is The Missing Word (Extended Version, 1987)
+02. Samurai (Did You Ever Dream) (Long Version, 1985)
+03. Spiel Auf Zeit (Single Version, 1983)
+04. Zeitlose Reise (Extended Version, 1983)
+05. Silver Water (Single Version, 1985)
+06. Carte Blanche (Single Version, 1985)
+07. Captain Right (Single Version, 1988)
+08. Crazy Life (Single Version, 1988)
+09. Mona Lisa (Album Version, 1988)
+10. School's Out (Extended Version, 1987)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171755   (395759) от 05.10.2017
+
+Hans Edler - Dirty Sally (1975) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mus Expo (4:05)
+02. Every Night And Day (2:58)
+03. My Baby's Walking Around (2:34)
+04. Honeymoon (3:08)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B6317823FB34E84C3767F50A1BD99D0FA6E365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171409   (395585) от 05.10.2017
+
+Cerrone - Hysteria (2002) [FLAC|Lossless|tracks + .cue] <Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only One (5:15)
+ 02. Gonna Get You (5:20)
+ 03. Hysteria (4:05)
+ 04. Love On The Dance Floor (6:32)(   Читать дальше...   )Жанр: Disco, HouseПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577B7D5D59AA593C8857479F394BFF559EC535DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567600   (395554) от 30.10.2012
 
 Sandra - Stay In Touch (2 CD, Deluxe Edition) (2012) [FLAC|Lossless]<Pop / Eurodisco>
@@ -655,119 +783,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7531EAC15FB0A811D5FC0F3EC291FA9A16FF3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173449   (389768) от 12.10.2017
-
-Super Value - Super Manifesto (2009) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянский Mixed сборник произведений эпохи Disco. Из-за авторских прав - исполнители не указаны в издании, поэтому сборник признан как Unofficial Release, но все-же есть на Discogs и продажах в сети на CD.01. Pleasure (5:56)
-02. Piece Of My Love (6:56)
-03. Passion (5:39)
-04. Tasty (4:20)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE85A3695ABB1BB415DCA972B08BAB68B61D061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173721   (389599) от 12.10.2017
-
-Pink (P!nk) - Beautiful Trauma (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389599.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beautiful Trauma (4:10)
- 2. Revenge (3:46)
- 3. Whatever You Want (4:03)
- 4. What About Us (4:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64684939283AB801BC611BCD8E4F40A3C339F8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 718401   (389260) от 03.11.2013
-
-Katy Perry - Prism (Deluxe Edition) (2013) Capitol Records [FLAC 2.0 44.1/24|WEB-DL]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roar (03:43)
- 02. Legendary Lovers (03:44)
- 03. Birthday (03:35)
- 04. Walking on Air (03:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2235A9C1DE285870F81937B58BD892B2FA3E1F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571108   (388899) от 06.11.2012
-
-Юлия Савичева - Сердцебиение (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_388899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

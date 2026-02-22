@@ -1,3 +1,30 @@
+###  Публикация: 1033397   (637935) от 11.07.2016
+
+Label Pack - Sir Adrian Music - 16 Releases (2015-2016) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Time (Original Mix) (05:49)
+02. More Time (Dub) (05:49)Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 03:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A733FA6447E9ED30E1800BFAA12822226EF673F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033518   (637934) от 11.07.2016
 
 Смешанные единоборства. UFC 200: Tate vs. Nunes. (09.07.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -654,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EEB2CF9FB86421EC0B0E0D7B9C95BD61A331719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907724   (637745) от 12.06.2015
-
-Daum PotPlayer 1.6.54549 Stable + Portable (x86/x64) by SamLab [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3060F72063C9FD4018062209D0F0484CCB5E32
 ```
 
 https://mybot314.ru/tekegram_catalog/

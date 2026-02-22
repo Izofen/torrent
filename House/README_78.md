@@ -1,3 +1,90 @@
+###  Публикация: 1669682   (172647) от 17.10.2023
+
+VA - Black Hole House Music 10-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PARAFRAME - Panic (Extended Mix) [6:00]
+02. They Kiss & York - Synth Pop Beat (Club Mix) [3:44]
+03. Brendan Mills - Love Is Blind (Club Mix) [3:39]
+04. ZOYA - When Heaven Calls (Extended Mix) [4:44](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4D92697B856AB82EE1C8474AD8797B675B457D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670147   (172321) от 19.10.2023
+
+VA - Electronic Elements - Amsterdam 2023 [MP3|320 Kbps] <House, Progressive House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan Blomqvist & Malou - Alone (Stephan Jolk Extended Remix) [4:31]
+02. Miss Monique & AVIRA feat. LUNA - Subterranean (Extended Mix) [6:07]
+03. Enamour & Warung - Who We Are (Lufthaus Extended Remix) [6:16]
+04. Joachim Pastor - Ice Walls (Extended Mix) [6:14](   Читать дальше...   )Жанр: House, Progressive House, ElectronicПродолжительность: 02:22:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926FCF86A9DA85683C36C78EF8B9D12B97F1D305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671005   (171430) от 24.10.2023
+
+VA - ADE 2023 [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FiddeLozza - Universal Language (Original Mix) [7:57]
+02. Mind Of Us - Last Kiss Goodbye (Original Mix) [8:31]
+03. Ev Rymd - Fata Morgana (Original Mix) [6:57]
+04. Jon Bubble - Faster (Original Mix) [6:31](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E43D0CC16C6FCBB1AD7E97FBE45DD5BE065A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344325   (170468) от 10.12.2019
 
 VA - Merry Christmas/Dance Music Party (2019) [MP3|320 Kbps] <Deep House>
@@ -673,90 +760,6 @@ VA - A Year In The Life Of Heavenly Bodies 2014 Part 2 (2014) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE431639C0BCC111D211986B75CA8508697C17DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085898   (156833) от 22.12.2016
-
-VA - Deep and Loud (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tec 77 - Mediterranean - Dan Rubell Remix
-02. Shivana faction - Elementary Levels
-03. Thrill Rules - Hyped
-04. Najwars - Deep Trading(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F7DD32FC1F25F06B0C96AE56DC412C973CB673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968325   (156621) от 23.12.2015
-
-VA - Hed Kandi Anthems (2015) [MP3|320 кб/с] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. StoneBridge - Put 'Em High (feat. Therese)Жанр: Funky, Club HouseПродолжительность: 11:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882D4D50F2D66E40B620F8E99DEE45F6811F2796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270474   (156408) от 19.12.2018
-
-VA - Christmas Dance Party 2018-2019 (Best of Dance, House & Electro) (2018) [MP3|320 Kbps] <House, Dance, Electro-House, Bigroom>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spikaa feat. Deja - Home (Radio Mix)
-02. Sean Norvis feat. Pacha Man and Alexandra Mitroi - Bad Girls (Radio Edit)
-03. John Reyton - Out Of The Dark (Radio Edit)
-04. Geo Da Silva - Pump It Up (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Electro-House, BigroomПродолжительность: 02:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3619A1AE7B058B83FE2EFB235344ABE8870BE511
 ```
 
 https://mybot314.ru/tekegram_catalog/

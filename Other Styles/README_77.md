@@ -1,3 +1,32 @@
+###  Публикация: 1024500   (717916) от 08.06.2016
+
+VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teamheadkick - Merc with a Mouth (03:47)
+02. Junkie XL - Fear the T-Rex (02:55)
+03. Junkie XL - Because I Want To (01:01)
+04. The Chordettes - Mister Sandman (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0882EFB38857A41C2527E4357123E542D32748BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024311   (717915) от 08.06.2016
 
 VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -713,35 +742,6 @@ Alex Hart - On This Day (2014) [MP3|320 кб/с] <Country, Alt Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1A908D7FBDFCD8DDEA46C2F3EAEBFC2E84B8C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024936   (714134) от 10.06.2016
-
-Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Joy of Quiet Rain Mix
-02. Soft Focus Ocean Mix
-03. Velvet Morning Rain Mix
-04. In Fields of Peace Ocean Mix(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B50D5D512837B0C2FFE67D04A0860F69449DE52
 ```
 
 https://mybot314.ru/tekegram_catalog/

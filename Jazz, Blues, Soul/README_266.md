@@ -1,3 +1,90 @@
+###  Публикация: 342689   (583257) от 08.08.2016
+
+John Coltrane - Blue Train (2007) 10CD Box Set [APE|Lossless|image + cue]<Jazz, Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_583257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на относительно короткую карьеру (он стал известен широкой публике только в возрасте 33 лет, а умер, не дожив до 41 года), Джон Колтрейн до сих пор является одной из самых известных и противоречивых фигур джазового мира. Он играл в разных, чуть ли не противоположных, стилях и это служило причиной столь же противоположных отзывов критиков о его музыке. Однако (   Читать дальше...   )01. On It (Hope) (9:05)
+02. Polka Dots And Moonbeams (Van Heusen - Blake) (8:40)
+03. Weeja (Hope) (11:10)
+04. Avalon (Jolson - Desylva - Rose) (9:41)(   Читать дальше...   )Жанр: Jazz, Bop, Hard BopПродолжительность: 09:57:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553325   (582968) от 25.05.2022
+
+Freddie Hubbard - Red Clay (1970) 1987, CBS [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Clay [12:12]
+02. Delphina [7:23]
+03. Suite Soux [8:39]
+04. The Intrepid Fox [10:45](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8901479E55CD28EFF970AE9F8B7C11AE551AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553356   (582960) от 25.05.2022
+
+Brad Mehldau - Jacob's Ladder (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Prog Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe as His Skies Are Wide (3:43)
+02. Herr und Knecht (Master and Slave) (7:48)
+03. (Entr'acte) Glam Perfume (5:45)
+04. Cogs in Cogs I - Dance (4:11)(   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Prog RockПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED58239D0FA1EB3B0C022C41D37A5409A283A388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553323   (582958) от 25.05.2022
 
 Chick Webb & Ella Fitzgerald - The Complete Chick Webb & Ella Fitzgerald Decca Sessions (1934 - 1941) 8CD, 2013, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz ...
@@ -656,93 +743,6 @@ Shakatak - The Magic Of Shakatak (2015) [FLAC|Lossless]<Smooth jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97D70C3AC34057082DCC417AC017457811AEBE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811220   (580707) от 08.08.2014
-
-Count Basie & Oscar Peterson - The Two Great Albums: The Timekeepers & Night Rider (1998) [FLAC|Lossless]<Jazz, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Rider [12:35]
-02. Memories Of You [04:56]
-03. Sweet Lorraine [07:04]
-04. It's Wonderful World [03:20](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, Piano JazzПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599E1E01BADDFDFB8CC8426A7552A53B1DAF9D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042061   (580657) от 11.08.2016
-
-George Howard - Personal (1997) MCA Records[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Want You For Myself [05:30]
- 02.Shower You With Love [05:02]
- 03.Uptown [06:49]
- 04.You And Me [06:12](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A52E71542FCCD3A56CCB148A10941B5B3B092E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042153   (580522) от 11.08.2016
-
-Seal - Commitment (2010) [FLAC|Lossless|tracks + .cue] <Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I'm Any Closer [03:29]
-02. Weight Of My Mistakes [04:20]
-03. Silence [04:10]
-04. Best Of Me [04:23](   Читать дальше...   )Жанр: SoulПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC285AF3CBA8F2C81A4E6D78698077E6335C10D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1013772   (777314) от 05.05.2016
+
+VA - International Web-Radio Playlist (Dance) (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danky & Brain - Chasing Cars (Radio Mix) (feat. Jenny Joao)
+02. Empir3 - Ride Like the Wind (Blutraxx's Remix) (feat. Pit Bailay)
+03. Marc Mounier - There Were Times (Radio Version)
+04. Honeyz - Definitely Something (Soulshaker Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D489F06754E85F022197CBDF55F6C3D7E3A85685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013751   (777251) от 05.05.2016
 
 Va - Хитовая бомба весны №2 (2016) [MP3|256-320 кб/с] <Pop>
@@ -716,35 +745,6 @@ VA - Mуз-сливки хит-парадов. Русский выпуск (2016
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4030799D87C52A1784518B7234F9E00DA05F1DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015992   (772813) от 12.05.2016
-
-VA - 80s Heart Soul Hits (2016) [MP3|320 кб/с] <Euro Disco, New Wave, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scotch - Disco Band (Remix) 08:49
-02. Lian Ross - Say You'll Never 06:36
-03. Bad Boys Blue - I Wanna Hear Your Heartbeat (Sunday Girl) 06:29
-04. Mike Mareen - Don't Talk To The Snake 08:01(   Читать дальше...   )Жанр: Euro Disco, New Wave, SynthpopПродолжительность: 03:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279CC95CC3AA33A46ABF21D265FC1663306DE7C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

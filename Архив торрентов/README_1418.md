@@ -1,3 +1,30 @@
+###  Публикация: 644160   (871890) от 15.04.2013
+
+Франко Маттеуччи | Праздник цвета берлинской лазури (2006) [FB2, TXT, JAVA(jar+jad)]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+«Праздник цвета берлинской лазури»  — роман известного итальянского писателя Франко Маттеуччи. Это произведение зрелого мастера, причудливо смешивающего мелодраму, эротику, утонченную лирику и добрый юмор.
+ Действие романа разворачивается на роскошной вилле, чей владелец решает устроить по случаю рождения своего первенца грандиозное действо с музыкой, танцами, фейерверками — и все это в декорациях, повторяющих те, что были воздвигнуты в Риме по случаю рождения Людовика XVI. Праздник должны транслировать в прямом (   Читать дальше...   )Жанр: Современная прозаФормат: FB2, TXT, JAVA(jar+jad)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7A69ED7A1ADAD53C7359D1A27C1382D8B9A60E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997831   (871886) от 18.03.2016
 
 Cyberfox 45.0.2 for AMD + Portable [Ru/En]
@@ -658,41 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766171   (871830) от 14.03.2014
-
-VA - John O'Callaghan: Subculture Top 10 March 2014 [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Metcalfe - High Altitude (M.I.K.E. Push Remix Edit)
-002. Sebastian Brandt - Overture (Original Mix)
-003. Giuseppe Ottaviani - Heal This Empty Heart (John O’Callaghan Remix)
-004. Solarstone - Lovers (Giuseppe Ottaviani Remix)
-005. James Rigby - Indigo Delta (Thomas Bronzwaer Remix)
-006. Eddie Bitar - Centipede (Original Mix)
-007. Sied Van Riel - 8 Decades (Original Mix)
-008. Adam Ellis - Mandarine (Original Mix)
-009. Winkee - Helsinki (Original Mix)
-010. Brian Flinn - Ultra Violet (Original Mix)Жанр: TranceПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A02AD4257F0B1CB192F93909787820D259CFE5CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

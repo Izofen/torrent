@@ -1,3 +1,32 @@
+###  Публикация: 1683290   (128694) от 10.12.2023
+
+VA - Chilly Ambient Smooth Operator Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konstantin Klashtorni - 7 x 7 (4:13)
+02. Chillaxing Jazz Kollektion - Drops in the Ocean (4:12)
+03. Chillaxonic - Cosmic Visions (4:26)
+04. Kool&Klean - Drift (6:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF9AA9B5CDEB7FB8AAD5EBB827D89CC645FB46D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683109   (128692) от 10.12.2023
 
 8 Ball Aitken - Ice Cream Man 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -716,35 +745,6 @@ Jessica Williams - Live At Yoshi's, Vol. 2 (2005) MaxJazz [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF67DC25F3D15D197BB9A88C8D2F8021B47E904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683764   (128218) от 12.12.2023
-
-Phil Woods - The Rev & I (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rev and I [6:21]
-02. We Could Make Such Beautiful Music Together [7:55]
-03. Hand in Glove [8:06]
-04. All Too Soon [8:57](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDD841A7CC1DD391710B0168CE57AFB16E33C56
 ```
 
 https://mybot314.ru/tekegram_catalog/

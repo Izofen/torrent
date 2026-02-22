@@ -1,3 +1,32 @@
+###  Публикация: 1310757   (545178) от 26.06.2019
+
+VA - Warm Memories: Collection Classic Rock (2019) [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545178.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Stranglers - Golden Brown
+002. Simon - Bridge Over Troubled Water
+003. Creedence Clearwater Revival - Up Around The Bend
+004. Jefferson Airplane - White Rabbit(   Читать дальше...   )Жанр: Classic RockПродолжительность: 06:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A819D038C25777AC611ACB22993DB0B0F72547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924688   (543005) от 05.08.2015
 
 VA - Alterportal HITS 15 Vol. 83 - July (2015) [MP3 | 128-320 кб/с]<Alternative, Metal, Rock>
@@ -716,32 +745,6 @@ Rock Ballads - Collection (7CD) (1991-1997) [MP3|320 кб/с]<Rock, Art Rock, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B14BE47583E4D03C05CB2BC78B723025D78A444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 228331   (521299) от 19.08.2010
-
-VA - Лучшие хиты НАШЕ РАДИО-3 (2010) [MP3|128 kbps]<pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: popПродолжительность: 12:31:34
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 516087   (654574) от 27.06.2012
+
+Bill Evans Trio Featuring Scott La Faro - Sunday At The Village Vanguard (1997) [FLAC|Lossless]<Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gloria's Step (take 2) [06:13]
+02. My Man's Gone Now [06:27]
+03. Solar [08:57]
+04. Alice in Wonderland (take 2) [08:38]
+05. All of You (take 2) [08:22]
+06. Jade Visions (take2) [03:47]
+07. Gloria's Step (take 3) [06:57]
+08. Alice in Wonderland (take 1) [07:06]
+09. All of You (take 3) [08:07]
+10. Jade Visions (take 1) [05:13]Жанр: Jazz, BopФормат: CD XRCD 20bit K2 SuperCodingПродолжительность: 01:09:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516033   (654507) от 27.06.2012
+
+Art Blakey And The Jazz Messengers - Moanin' (1999) [FLAC|Lossless]<Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warm-Up And Dialogue Between Lee And Rudy [00:35]
+02. Moanin' [09:30]
+03. Are You Real? [04:47]
+04. Along Came Betty [06:08]
+05. The Drum Thunder Suite [07:30]
+* First Theme: Drum Thunder
+* Second Theme: Cry A Blue Tear
+* Third Theme: Harlem's Disciplines
+06. Blues March [06:13]
+07. Come Rain Or Come Shine [05:45](   Читать дальше...   )Жанр: Jazz, BopФормат: CD ADDПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516123   (654498) от 27.06.2012
+
+Ray Charles and Cleo Laine - Porgy & Bess (1990) [FLAC|Lossless]<Jazz, Stage & Screen>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summertime [06:17]
+02. My Man's Gone Now [04:43]
+03. A Woman Is A Sometime Thing [02:45]
+04. They Pass By Singin' [03:05]
+05. What You Want Wid Bess? [02:25]
+06. I Got Plenty O' Nuttin' [03:52]
+07. Buzzard Song [03:25]
+08. Bess, You Is My Woman [05:29]
+09. Oh, Doctor Jesus [02:14]
+10. Crab Man [01:45](   Читать дальше...   )Жанр: Jazz, Stage & ScreenФормат: CDПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904529   (654466) от 03.06.2015
 
 Lester Young - The President Plays (2008) [FLAC|Lossless]<Jazz, Mainstream Jazz>
@@ -658,93 +763,6 @@ Barbara Blue - Memphis Blue: Sweet, Strong, & Tight (2015) [MP3|320 кб/с]<Mod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B058FDD1F8B045BA6A3F54DBFB3F5FDA5B563A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904722   (653461) от 04.06.2015
-
-Larry Coryell - Heavy Feel (2015) [FLAC|Lossless]<Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Note (4:15)
-02. River Crossing (3:36)
-03. The Way It Was (3:49)
-04. Polished (3:30)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D8318A2BE9E5C53DB080CB1A32D0E58CA1FFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904763   (653458) от 04.06.2015
-
-Milton Nascimento - Anima (1982) /1988, Philips/ [FLAC|tracks+.cue]<World Fusion, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evocacao das montanhas (6:03)
-02. Teia de renda (2:43)
-03. Anima (4:12)
-04. Olha (3:13)(   Читать дальше...   )Жанр: World Fusion, Brazilian JazzПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE44CB98447BE28D850226F184FB0D0322454FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905059   (653450) от 04.06.2015
-
-Sonny Landreth - Bound By The Blues (2015) [MP3|320 кб/с]<Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin' Blues (4:50)
-02. Bound By The Blues (3:08)
-03. The High Side (3:57)
-04. It Hurts Me Too (3:37)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC774EE3FD6DDD22BE67CC3339C6F22F3FA761D
 ```
 
 https://mybot314.ru/tekegram_catalog/

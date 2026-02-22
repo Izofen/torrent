@@ -1,3 +1,38 @@
+###  Публикация: 744293   (972278) от 11.01.2014
+
+Gurf Morlix - Finds The Present Tense (2013) [FLAC|Lossless]<Country>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(4:32) 01. My Life's Been Taken
+(5:09) 02. Lookin' For You
+(4:33) 03. Series of Closin' Doors
+(4:27) 04. Small Window
+(3:49) 05. Present Tense
+(4:21) 06. Gasoline
+(3:52) 07. Bang Bang Bang
+(4:30) 08. You Walk Away
+(7:58) 09. These Are My Blues
+(4:10) 10. Empty CupЖанр: CountryПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B66001FE4D5FFD1CF6EF4FFBC0B8861BFAB1520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 440035   (972277) от 21.01.2012
 
 Ninja Blade [Ru] (RePack) 2009 | R.G. Element Arts
@@ -691,33 +726,6 @@ BBC: Жизнь в диких местах / Wilderness Explored (2008) DVDRip [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB1FB90F05D7BD11D8C8EABCD430583575A5079A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617426   (972209) от 12.02.2013
-
-Wallpapers - Motorcycles / Мотоциклы [1366x768] [JPEG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои на ваш рабочий стол.В данной сборке собраны мотоциклы известных мировых марок.
-Начиная с гоночных и заканчивая эксклюзивными моделями.Разрешение файлов: 1366x768Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF2FB9F528FC01F9207977DE10D592289A5B062
 ```
 
 https://mybot314.ru/tekegram_catalog/

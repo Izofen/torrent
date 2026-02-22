@@ -1,3 +1,29 @@
+###  Публикация: 599428   (999431) от 06.01.2013
+
+Фотография - Фотограф Anna Bodnar
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Anna BodnarРазрешение файлов: ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D74910BDFB314D0396031F0F1EBAFC15AD8ADE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599617   (999430) от 06.01.2013
 
 Журнал | Дачная кухня: к столу и впрок №1 [2013] [PDF]
@@ -746,32 +772,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC4AB9C961311564186FAC0F3A8E2D25BFCC8AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599436   (999394) от 06.01.2013
-
-Фотография - Фотограф Christian Kettiger
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Christian Kettiger
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09AED8D1A744C7BAAB4E7BD2C71C2E59A09EFC5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

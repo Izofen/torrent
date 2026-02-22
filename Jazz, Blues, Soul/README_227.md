@@ -1,3 +1,96 @@
+###  Публикация: 903860   (656887) от 01.06.2015
+
+Duke Ellington - Duke Ellington At The Bal Masque (1958) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656887.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alice Blue Gown
+2. Who's Afraid Of The Big Bad Wolf
+3. Got A Date With An Angel
+4. Poor Butterfly(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2015138D921330E304DCE46ABE9C4944F68519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903834   (656886) от 01.06.2015
+
+Johnny Hammond - Gears (1975) [FLAC|tracks+.cue]<Jazz-Funk, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me What To Do (5:21)
+02. Los Conquistadores Chocolates (6:12)
+03. Lost On 23rd Street (5:57)
+04. Fantasy (6:09)(   Читать дальше...   )Жанр: Jazz-Funk, Soul JazzПродолжительность: 00:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C9FE05373D60A7E1075E354A615014F2ECC8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515603   (656009) от 26.06.2012
+
+Mel Torme & Cleo Laine - Nothing Without You (1992) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_656009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Nothing Without You (Coleman, Zippel) [03:04]
+02. I Thought About You (Mercer, VanHeusen) [03:51]
+03. Where or When (Hart, Rodgers) [05:09]
+04. I Wish I Were in Love Again (Hart, Rodgers) [03:11]
+05. Girl Talk (Hefti) [05:09]
+06. After You've Gone (Creamer, Layton) [04:44]
+07. Brazil/Bahia (Barroso, Russell) [04:19]
+08. Birdsong (Sambalaya) (Dankworth) [02:53]
+09. Isn't It a Pity? (Gershwin, Gershwin) [04:04]
+10. Love You Madly (Ellington) [03:34](   Читать дальше...   )Жанр: JazzФормат: *.flacПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140468   (655985) от 06.06.2017
 
 Mike Cuozzo - Mighty Mike (1955) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -671,111 +764,6 @@ VA - Women of Jazz (2008) [FLAC|Lossless]<Jazz>
 08. Stacey Kent - Shall we dance [03:41]
 09. Della Griffin - It could happen to you [004:12]
 10. Etta Jones - Since I fell for you [06:02]Жанр: JazzПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516087   (654574) от 27.06.2012
-
-Bill Evans Trio Featuring Scott La Faro - Sunday At The Village Vanguard (1997) [FLAC|Lossless]<Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gloria's Step (take 2) [06:13]
-02. My Man's Gone Now [06:27]
-03. Solar [08:57]
-04. Alice in Wonderland (take 2) [08:38]
-05. All of You (take 2) [08:22]
-06. Jade Visions (take2) [03:47]
-07. Gloria's Step (take 3) [06:57]
-08. Alice in Wonderland (take 1) [07:06]
-09. All of You (take 3) [08:07]
-10. Jade Visions (take 1) [05:13]Жанр: Jazz, BopФормат: CD XRCD 20bit K2 SuperCodingПродолжительность: 01:09:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516033   (654507) от 27.06.2012
-
-Art Blakey And The Jazz Messengers - Moanin' (1999) [FLAC|Lossless]<Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warm-Up And Dialogue Between Lee And Rudy [00:35]
-02. Moanin' [09:30]
-03. Are You Real? [04:47]
-04. Along Came Betty [06:08]
-05. The Drum Thunder Suite [07:30]
-* First Theme: Drum Thunder
-* Second Theme: Cry A Blue Tear
-* Third Theme: Harlem's Disciplines
-06. Blues March [06:13]
-07. Come Rain Or Come Shine [05:45](   Читать дальше...   )Жанр: Jazz, BopФормат: CD ADDПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516123   (654498) от 27.06.2012
-
-Ray Charles and Cleo Laine - Porgy & Bess (1990) [FLAC|Lossless]<Jazz, Stage & Screen>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summertime [06:17]
-02. My Man's Gone Now [04:43]
-03. A Woman Is A Sometime Thing [02:45]
-04. They Pass By Singin' [03:05]
-05. What You Want Wid Bess? [02:25]
-06. I Got Plenty O' Nuttin' [03:52]
-07. Buzzard Song [03:25]
-08. Bess, You Is My Woman [05:29]
-09. Oh, Doctor Jesus [02:14]
-10. Crab Man [01:45](   Читать дальше...   )Жанр: Jazz, Stage & ScreenФормат: CDПродолжительность: 01:02:42
 
 ## Скачать торент
 ```bash

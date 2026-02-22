@@ -1,3 +1,32 @@
+###  Публикация: 1105694   (876635) от 17.02.2017
+
+Oleta Adams - Third Set (2017) [FLAC|Lossless|tracks + .cue] <Soul, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Alright With Me (8:59)
+02. Only The Lonely (7:21)
+03. Don't Interrupt The Sorrow (4:58)
+04. River (6:35)(   Читать дальше...   )Жанр: Soul, Vocal JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB55B3EFCAEF4AE43999ECAEAD2821D358744B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765106   (876598) от 11.03.2014
 
 The Kenny Clarke-Francy Boland Sextet - Calypso Blues (1998) [APE|Lossless]<Bop, Modern Big Band>
@@ -827,41 +856,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12ABFD4C6DE1551C5B2D0284F1904040905D8783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643301   (875895) от 13.04.2013
-
-V.A. - Bosa Nova Singers (2007) [FLAC|Lossless]<Jazz, Bossanova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Elis Regina - So Tinha De Ser Com Voce
-02. Luiz Henrique - Mas Que Nada
-03. Sylvia Telles - Manha De Carnaval
-04. Jorge Ben - Oba, La, La
-05. Nara Leao - Berimbau
-06. Lucio Alves - O Barquinho
-07. Quarteto Em Cy & Tamba Trio - Agua De Beber
-08. Chico Feitosa - Fim De Noite
-09. Marcia - Samba Da Pergunta
-10. Edu Lobo & Tamba Trio - Reza(   Читать дальше...   )Жанр: Jazz, BossanovaПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

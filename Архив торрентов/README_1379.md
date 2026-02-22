@@ -1,3 +1,29 @@
+###  Публикация: 187300   (875314) от 29.03.2010
+
+Месть полудурков 3: Следующее поколение / Revenge of the Nerds III: The Next Generation (1992) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Два новоиспеченных полудурка приезжают в колледж и навещают своего дядю, который тоже был нердом, но теперь стыдится своего героического прошлого. Далее комедия идет по накатанным рельсам, и единственное отличие заключается в том, что в борьбе вместе объединяются старое и новое поколения полудурков.Жанр: КомедияРежиссер: Роланд МесаАктеры: Роберт Кэррадайн, Тед МакГинли, Кертис Армстронг, Джулия Монтгомери, Грегг Бинкли, Ричард ИзраэльПеревод: Одноголосый закадровыйПродолжительность: 01:32:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 187325   (875312) от 29.03.2010
 
 Пророчество / Premonition / Yogen (2004) DVDRip
@@ -656,35 +682,6 @@ lynda.com | Nuke 5 Essential Training [2010] [EN] [unpacked]
 
 Steve Wright, автор курса Nuke 5 Essential Training, предназначает его цифровым художникам уже знакомым с композитингом визуальных эффектов в таких программах как  Adobe After Effects или Shake. Этот курс обеспечит вас основательными знаниями по работе с Nuke, умением пользоваться основными функциями keying, motion tracking, color correcting, и самой важной 3D композитинг. Вы исследуете пользовательский интерфейс Nuke, его уникальную систему управления цветом, HDR имеджи, маскинг, анимацию ключевых кадров и размытие, имитирующее движение объекта 2D и 3D.
 Файлы проектов прилагаются.Жанр: NukeФормат: unpacked
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187376   (875217) от 29.03.2010
-
-Lynda.com Chris Orwig | Lynda.com - Photoshop CS4 for Photographers: Creative Color [2009] PCRec
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Курс по Photoshop CS4 от Chris Orwig.
-Это продолжение темы креативных фишек в Шопе от великолепного Chris Orwig. На этот раз под его изложение попадает работа с цветом в Photoshop.
-
-Working with color can be an amazing journey, and in Photoshop CS4 for Photographers: Creative Color, Brooks Institute of Photography professor Chris Orwig teaches a different way to create great color in photographs. Chris goes beyond the basics by showing how color can have a profound effect on a photograph's impact. He demonstrates adjusting color and tone to make images more vivid, changing colors, working with color saturation, cross processing, and more. The course culminates with real-world projects that utilize the techniques Chris has shown for creating intriguing and beautiful color photographs. Exercise files accompany the course.Жанр: Видеоуроки
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,119 @@
+###  Публикация: 1405232   (485729) от 29.08.2020
+
+Charlotte Martin - On Your Shore (2004) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Your Shore (03:58)
+02. Limits Of Our Love (03:30)
+03. Your Armor (04:20)
+04. Every Time It Rains (03:43)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5950A9DDBBA60849C64D764E2EAC264EBC9EC85B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937841   (485714) от 16.09.2015
+
+Santa Esmeralda - The Best (1993) [FLAC|tracks+.cue]<Disco, Latin>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let Me Be Misunderstood (Original Version) + Esmeralda Suite (14:20)
+02. Gloria (03:55)
+03. The House Of The Rising Sun + Quasimodo Suite (03:42)
+04. You're My Everything (05:00)(   Читать дальше...   )Жанр: Disco, LatinПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0630EC5D50DBD4CAAE0BFC568DCB1EC9D69E5D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405434   (485696) от 29.08.2020
+
+Debbie Jacobs - Undercover Lover (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undercover Lover  (6:15)
+02. Don't You Want My Love  (7:52)
+03. Think I'm Fallin' In Love  (3:17)
+04. Hot Hot (Give It All You Got)  (6:54)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D3BB07F7C9632961C86887B612583228AFC091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055802   (485655) от 23.09.2016
+
+Cerrone 3 - Supernature (1977) Reissue, 2016, OTP [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supernature (10:11)
+02. Sweet Drums (2:39)
+03. In The Smoke (5:33)
+04. Give Me Love (5:38)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCAB9EBF8F1951BD9B0ABD21F7FD25F9B3DE3C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405115   (485621) от 29.08.2020
 
 VA - Espresso Mega-Mix: Italo Hits Nonstop (1998) [FLAC|Lossless|image + .cue] <Pop>
@@ -636,122 +752,6 @@ Chris De Burgh - A Better World (2016) [MP3|320 Kbps] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45C8A5734E808ED860D74F1DFB0422957C41543D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821452   (483415) от 16.09.2014
-
-VA - 101 Love Songs: The Greatest Love Songs of all Time (2003) [FLAC|Lossless]<Pop, Rock, Classical , Soul, Funk, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Percy Sledge - When A Man Loves A Woman [02:56]
-02. Ben E King - Stand By Me [02:54]
-03. Phyllis Nelson - Move Closer [04:12]
-04. Al Gree - Let's Stay Together [03:16](   Читать дальше...   )Жанр: Pop, Rock, Classical , Soul, Funk, Jazz |Продолжительность: 05:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B028E75E0EF1FDFEFE3C8EE70B1574067DBE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545611   (482509) от 11.09.2012
-
-Sandra - Maybe Tonight (CD Single) (2012) [FLAC (tracks+cue)|Lossless]<Pop, Eurodisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe Tonight (Original Version)
-02. Maybe Tonight (Extended Version)
-03. Maybe Tonight (Dub Version)
-04. Maybe Tonight (Instrumental Version)Жанр: Pop, EurodiscoПродолжительность: 00:16:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566453   (482335) от 29.07.2022
-
-Bananarama - Masquerade (2022) [FLAC|Lossless|image + .cue] <Dance-pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482335.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2022 году легендарная Bananarama отмечает 40-летие сенсационного прорыва на мировой музыкальный Олимп. Именно тогда, в далеком 1982 году синглы новой girl group возглавили UK Singles Chart, а затем покорили музыкальные хит-парады многих стран мира. Феноменальный успех как в pop-, так и в dance чартах привел к тому, что Bananarama была занесена в Книгу рекордов (   Читать дальше...   )01. Favourite (3:08)
-02. Stay Wild (3:47)
-03. Velvet Lies (2:46)
-04. Masquerade (4:13)(   Читать дальше...   )Жанр: Dance-pop, Synth-popПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9B5329F35776C06F792A57FAC4036A54CB3B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566519   (482332) от 29.07.2022
-
-VA - All Time Summer Hits (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Animals - Heat Waves (3:58)
-02. Alexandra Stan - Mr. Saxobeat (Radio Edit) (3:15)
-03. ABBA - Summer Night City (3:33)
-04. Aloe Blacc - Brooklyn In The Summer (3:28)(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C8E8BCC7350E329855B1945FE40533F75BD0E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

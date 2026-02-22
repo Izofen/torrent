@@ -1,3 +1,61 @@
+###  Публикация: 1612458   (1039834) от 17.02.2023
+
+Аким Апачев - 3 Relises (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джамбо [00:02:37]
+02. Русский хулиган [00:02:17]
+03. Окопный дэнс [00:03:08]
+04. Гуляйполе [00:02:58](   Читать дальше...   )Жанр: Hip HopПродолжительность: 3 CD, 00:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F715CB67510325CD7343B917396BD25D64B938A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615378   (1037837) от 25.02.2023
+
+Саша Скул (Sasha Skul) - Пасха мёртвых (Easter of the Dead) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Обращение к мужеложцам (Skit) [00:03:24]
+02. Пасха мёртвых [00:02:45]
+03. Мечтают ли русские об электроовцах? [00:02:41]
+04. Я не каждый день свободен (Skit) [00:01:08](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144CE48B4EBAFEAD2F1248AA43D1F838B0F981FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443586   (1035433) от 29.01.2021
 
 Toni Braxton - Toni Braxton (1993) [FLAC|Lossless|image + .cue] <R&B, Funk, Soul>
@@ -679,64 +737,6 @@ Anacondaz - Перезвони мне +79995771202 (2021) [MP3|320 Kbps] <Rap, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0183746BBD73C2950104E47F202509C0B8053FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447801   (1031687) от 14.02.2021
-
-clipping. - Visions Of Bodies Being Burned (2020) [FLAC|Lossless|tracks + .cue] <Experimental Hip-Hop, Horrorcore Hip-Hop, Industrial Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:20)
-02. Say The Name (5:00)
-03. Wytchboard (Interlude) (0:30)
-04. '96 Neve Campbell (feat. Cam & China) (3:21)(   Читать дальше...   )Производство: Sub Pop – SP1331Жанр: Experimental Hip-Hop, Horrorcore Hip-Hop, Industrial Hip-HopПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76504C4E6BB18077912BC80E9D783CDD292F72AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448391   (1030977) от 17.02.2021
-
-Psalm Trees & Guillaume Muschalle - We Must Believe in Spring (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psalm Trees, Guillaume Muschalle - She Won’t Say (02:24)
-02. Psalm Trees - Some Are Of Love (03:07)
-03. Psalm Trees, Guillaume Muschalle - bringmesun Pt.2 (02:20)
-04. Psalm Trees - Joey’s Gone (02:20)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6507D71AEBCF53D4586540669D0317AC20E1F05
 ```
 
 https://mybot314.ru/tekegram_catalog/

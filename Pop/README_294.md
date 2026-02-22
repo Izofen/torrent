@@ -1,3 +1,90 @@
+###  Публикация: 1596290   (170298) от 09.12.2022
+
+Fancy - Diamonds Forever Part I (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slice Me Nice (2022)
+02. Running Man (2022)
+03. Bolero (2022)
+04. Chinese Eyes (2022)(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BF87BD3624B19F303CD6CB233148549B79DFAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672229   (170267) от 27.10.2023
+
+VA - Disco Laser (1979) LP [MP3|320 Kbps] <Electronic, Rock, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Hernandez - Born To Be Alive (3:08)
+02. Leif Garrett - I Was Made For Dancing (3:07)
+03. Racey - Lay Your Love On Me (3:14)
+04. Wallenstein - Charline (3:59)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, DiscoПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09CACBFA819E9E1A0D20F0A4B379BA2D6FCD9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672218   (170264) от 27.10.2023
+
+Taylor Swift - 1989 (Taylor's Version) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To New York (Taylor's Version) (3:33)
+02. Blank Space (Taylor's Version) (3:52)
+03. Style (Taylor's Version) (3:51)
+04. Out Of The Woods (Taylor's Version) (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DB53C0A07CB261BF6C58519018E61AA63DF378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672173   (170253) от 27.10.2023
 
 Prince & The New Power Generation - Diamonds and Pearls (1991) Super Deluxe Edition, 2023, Warner Records [MP3|320 Kbps] <Contemporary R&B, New Jack Swing, Funk, Minneapolis Sound>
@@ -657,93 +744,6 @@ Taylor Swift - 1989 (2014) Taylor's Version, 2023, Taylor Swift [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FB0B5903C9933357B9E145866B3C8A36D48A43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344601   (169102) от 12.12.2019
-
-VA - Acoustic Christmas (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169102.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Shannon, Keast - Frosty the Snowman (2:22)
-2.Thom Cooper - Silent Night (2:02)
-3.Karizma Duo - Lonely This Christmas (3:47)
-4.Landa - Winter Wonderland (1:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA086D2A20EA38C341B64649530075046EA11629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672290   (169063) от 28.10.2023
-
-Duran Duran - Danse Macabre (2023) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightboat (4:23)
-02. Black Moonlight (3:07)
-03. Love Voudou (4:29)
-04. Bury A Friend (3:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9C58D8251B876B63FF46F30CC342A8A278D4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672421   (169043) от 28.10.2023
-
-Amanda Lear - The Sphinx•1976-1983 ( 2006 ) 3CD [MP3|320 Kbps] <Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fashion Pack - ( Studio 54 ) ( Albom Version ) - 1979
-02. Love Your Body - 1983
-03. Intellectualy - 1979
-04. Enigma ( Give A Bit Of Mmh To Me ) - 1978(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 02:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC99D9B306AEFBBB4EF5F846ED86FC99A4C3FF28
 ```
 
 https://mybot314.ru/tekegram_catalog/

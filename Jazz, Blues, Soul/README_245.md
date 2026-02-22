@@ -1,3 +1,90 @@
+###  Публикация: 1544690   (620195) от 16.04.2022
+
+Andrew Thabah - In the Shadow of Your Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Down on Your Knees (3:59)
+02. Free as Love Can Be (5:30)
+03. I Feel Swell (3:29)
+04. In the Shadow of Your Love (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30DDEB3393B721D0F151AAE8246A83317909643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145564   (620100) от 26.06.2017
+
+Gregoire Maret - Gregoire Maret (2012) M.A.T. [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucilla's Dream [04:57]
+02. The Secret Life Of Plants [04:49]
+03. The Man I Love [04:58]
+04. Travels [04:55](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FDAA1C956AFF093F47E62158E72E72E6B02F32C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145656   (620099) от 26.06.2017
+
+Don Byron - Love, Peace And Soul (2012) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Modern Creative, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway To Heaven [06:09]
+02. When I've Sung My Last Song [06:25]
+03. It's My Desire [07:55]
+04. Sham Time [04:50](   Читать дальше...   )Жанр: Modern Creative, Vocal JazzПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162AC3127BE9335A658D4EFCC5C852731AF012F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145689   (620096) от 26.06.2017
 
 Modern Jazz Quartet - Longing For The Continent (1985) Remaster, 1989, LRC LTD [FLAC|Lossless|image + .cue] <Jazz>
@@ -660,93 +747,6 @@ Taylor Carano - Where Hate & Ash Bury (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:246B95888BD6055D3075BDBBEC2334BD04BD9577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911325   (618497) от 22.06.2015
-
-Artie Shaw - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  It's A Long Way To Tipperary (2:43)
-02.  The Blues (2:54)
-03.  Begin The Beguine (3:14)
-04.  Indian Love Call (3:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3F5CA517DBAE34CE3CA4835C30D7D2DDD7C6EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911321   (618496) от 22.06.2015
-
-Art Blakey - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rain Dance (5:34)
-02.  Blues Rag (5:28)
-03.  Straight No Chaser (3:43)
-04.  Cousin Mary (4:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B1EDDCA5D89A6A171AD1D416E145F71D9D4897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911426   (618495) от 22.06.2015
-
-Charlie Byrd - Bossa Nova Pelos Passaros (1962-1963) /2002, Riverside/[FLAC|tracks+.cue]<Jazz, Latin Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yvone [01:58]
-02. Um Abraco Do Bonfa [02:23]
-03. Meditacao [03:13]
-04. Voce E Eu [02:58](   Читать дальше...   )Жанр: Jazz, Latin Jazz, Bossa NovaПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BDA7C83AB038EDE5200589CB040BA2AFC620FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

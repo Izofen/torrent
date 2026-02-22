@@ -1,32 +1,3 @@
-###  Публикация: 1763076   (102864) от 29.11.2024
-
-Bobby Hutcherson - Skyline (1999) Verve Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who's Got You? [7:30]
-02. I Only Have Eyes for You [6:45]
-03. Delilah [6:30]
-04. Chan's Song [5:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B79574032090666674CC226313792E4232B11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763210   (102833) от 30.11.2024
 
 Hubert Laws - Carnegie Hall (1973) 2002, CTI Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -766,6 +737,35 @@ Randy Newman - Randy Newman's Faust (1995) CD, Album [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D854D2AF2E70B32AFAF6FCFE0F488E78A853556E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765153   (101461) от 11.12.2024
+
+Teddy Wilson And His Orchestra - 1934 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody Loves Me [3:07]
+02. Sweet And Simple [3:23]
+03. Liza [3:08]
+04. Rosetta [3:09](   Читать дальше...   )Жанр: Swing, Big Band, Piano JazzПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48627818452AED9DFBB640E90B7416BAD5B60E2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

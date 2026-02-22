@@ -1,3 +1,32 @@
+###  Публикация: 1381012   (827807) от 06.05.2020
+
+David Hollandsworth - Imagine a World (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827807.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A New Horizon 03:06
+2. Depths of Love 02:43
+3. Limitless	 02:10
+4. Imagine a World 03:44(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EE00000C7E00AECA103D6D0CE729A6560C05A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380801   (827735) от 06.05.2020
 
 Asian Zen - Yoga Meditation Edition 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -713,35 +742,6 @@ Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A5E070B9F9ACC7E5824D6EDC8CBFCFC38F7EAFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115379   (822615) от 20.03.2017
-
-Alan Menken & VA - Beauty and the Beast / Красавица и чудовище (Original Motion Picture Soundtrack) (2017) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Menken - Main Title: Prologue (03:02)
-02. Alan Menken - Belle Meets Gaston (00:54)
-03. Alan Menken - Your Mother (02:14)
-04. Alan Menken - The Laverie (01:22)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:11:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7627050750363C03F8215CE040F18CA970A11CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

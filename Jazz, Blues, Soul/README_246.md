@@ -1,3 +1,90 @@
+###  Публикация: 911325   (618497) от 22.06.2015
+
+Artie Shaw - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  It's A Long Way To Tipperary (2:43)
+02.  The Blues (2:54)
+03.  Begin The Beguine (3:14)
+04.  Indian Love Call (3:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3F5CA517DBAE34CE3CA4835C30D7D2DDD7C6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911321   (618496) от 22.06.2015
+
+Art Blakey - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rain Dance (5:34)
+02.  Blues Rag (5:28)
+03.  Straight No Chaser (3:43)
+04.  Cousin Mary (4:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B1EDDCA5D89A6A171AD1D416E145F71D9D4897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911426   (618495) от 22.06.2015
+
+Charlie Byrd - Bossa Nova Pelos Passaros (1962-1963) /2002, Riverside/[FLAC|tracks+.cue]<Jazz, Latin Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yvone [01:58]
+02. Um Abraco Do Bonfa [02:23]
+03. Meditacao [03:13]
+04. Voce E Eu [02:58](   Читать дальше...   )Жанр: Jazz, Latin Jazz, Bossa NovaПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BDA7C83AB038EDE5200589CB040BA2AFC620FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910983   (618489) от 22.06.2015
 
 Duke Ellington - Live in Zurich, Switzerland 2.5.1950 (2007) [FLAC|tracks]<Jazz>
@@ -664,98 +751,6 @@ VA-South Africa presents: - Women with a Voice (2007) [MP3|224 кб/с]<Ethnic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADFF967BAC44F8517CD21F711E26935976975D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523758   (617203) от 16.07.2012
-
-B.T. Express - Do It ('Til You're Satisfied) (1990) [FLAC|Lossless]<Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_617203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It ('Til You're Satisfied)
-02. This House Is Smokin'
-03. That's What I Want For You Baby
-04. Everything Good To You (Ain't Always Good For You)
-05. Mental Telepathy
-06. If It Don't Turn You On (You Ought To Leave It Alone)
-07. Once You Get It
-08. Do You Like It?
-09. ExpressЖанр: FunkПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295776   (617093) от 14.04.2019
-
-Ellis Marsalis - Duke In Blue (1999) Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mooche [5:19]
-02. Prelude to a Kiss [5:59]
-03. Squatty Roo [2:56]
-04. Sophisticated Lady [5:12](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9445C7A0EBDF3ACB0186ADBE915ACAD4E658AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295876   (616917) от 14.04.2019
-
-Patricia Barber - Higher (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muse
-02. Surrender
-03. Pallid Angel
-04. The Opera Song(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD74A079211AF3C6EFE77BA7B81F5CAB987E676A
 ```
 
 https://mybot314.ru/tekegram_catalog/

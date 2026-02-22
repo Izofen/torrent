@@ -1,3 +1,32 @@
+###  Публикация: 1043892   (569102) от 18.08.2016
+
+Simona Parrinello - Con Alma (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beatrice
+02. Con Alma
+03. Melancholia
+04. Everybody's Song But My Own(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1938914094F45B8593F8725D48611C8AC1642E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555304   (569070) от 04.06.2022
 
 The Red Mitchell-Harold Land Quintet - Hear Ye! (1961) 1989, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -730,35 +759,6 @@ Phil Woods And His European Rhythm Machine - At The Frankfurt Jazz Festival (197
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8458A880163B00311A0DF5993952E0F5968C0F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044497   (565652) от 20.08.2016
-
-Charles Lloyd - Manhattan Stories (1965) 2CD, 2014, Resonance Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565652.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Sweet Georgia Bright [17:50]
-02.How Can I Tell You [11:56]
-03.Lady Gabor [12:52]Жанр: Hard Bop, Post-BopПродолжительность: 01:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A68C577CEC18FBAAC7F7F985246776AD4DB11E
 ```
 
 https://mybot314.ru/tekegram_catalog/

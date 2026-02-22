@@ -1,3 +1,32 @@
+###  Публикация: 1623263   (1029398) от 01.04.2023
+
+VA - Anos 70 - Internacional (2023) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029398.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Earth, Wind & Fire - September [03:35]
+002. Michael Jackson - Don't Stop 'Til You Get Enough [05:51]
+003. Elvis Presley - Suspicious Minds [04:29]
+004. Redbone - Come and Get Your Love (Single Version) [03:26](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 07:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AAA42C597DC890CC2DCBD2994E3B71BEB52882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410598   (1029142) от 25.02.2021
 
 The Rolling Stones - Best of the Best (1965-1973) Remaster SMRP, De-Noised, 2020 [MP3|320 Kbps] <Classic Rock>
@@ -713,35 +742,6 @@ VA - Music For You vol.17 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9686B02628928B86ED36A967D377F2A561D94155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471358   (1015142) от 20.05.2021
-
-The Tiger Lillies - Dark Songs not About Love & Flowers (Compilation Album) (1994-2000) Неофициальный сборник от Yuridar [MP3|320 Kbps] <Rock, Folk Rock, Avantgarde>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels
-02. Bank Robber Blues
-03. Bearded Lady
-04. Bumhole(   Читать дальше...   )Жанр: Rock, Folk Rock, AvantgardeПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4664484C8154D553444D0EE9EC9022183FFD6D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

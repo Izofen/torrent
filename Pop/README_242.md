@@ -1,3 +1,90 @@
+###  Публикация: 1078743   (300163) от 01.12.2016
+
+Elvis Vs Spankox - Re:Versions (2008) [MP3|320 Kbps] <Electronic, Rock>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Let's Play House (Spankox Re-Version - Highpass Radio Edit)
+02. Don't Be Cruel (Spankox Re-Version - Highpass Radio Edit)
+03. (Let Me Be Your) Teddy Bear (Spankox Re-Version - Highpass Album Cut)
+04. Jailhouse Rock (Spankox Re-Version - Highpass Radio Edit)(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9B402B262DDD8D72560E967C022A93CE0FB79B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078652   (300162) от 01.12.2016
+
+Алексей Петров - Девушка и смерть (2012) [MP3|256-320 Kbps] <Pop, Rock, Lo-fi, Experimental, Indie>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маша и шприц
+02. Под аккомпанемент страстей
+03. Чупакабра
+04. Отыскрит(   Читать дальше...   )Жанр: Pop, Rock, Lo-fi, Experimental, IndieПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB682C6520A13C0DB53074DE5F36F6BCA42F8F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423393   (300083) от 13.11.2020
+
+Harold Faltermeyer - Harold F (1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prophecy  (4:33)
+02. Appassionata  (3:18)
+03. Them Changes  (4:12)
+04. Must Be Paradise  (4:30)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA1B6388CD59806C2691DDD3898AA19F3947BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423558   (299794) от 13.11.2020
 
 Mirko Hirsch - Lost In Alphaville (2018) LP [MP3|320 Kbps] <Electronic, New Italo-Disco>
@@ -658,93 +745,6 @@ Roxette - Bag Of Trix Vol. 2 (Music From The Roxette Vaults) (2020) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15EE612D433DC577DB246DDA61A35A0FEAB1B268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078954   (297661) от 02.12.2016
-
-Alekseev - Пьяное солнце (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Океанами стали
-02. Чувствую душой
-03. Пьяное солнце
-04. Больно как в раю(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8ADF4642CAC47581665F6A044241F20BA796FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078973   (297263) от 02.12.2016
-
-VA - New Generation Italo Disco: The Lost Files Vol.1 (2016) [MP3|320 Kbps] <Hi-NRG, Synthpop, Post-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ranger - Don't Play Games (BCR Extended Disco Mix) 9:04
-02. Valerie Star - Flash in the Night 6:32
-03. Casanova - I Love You 6:35
-04. Alan Brando - Don't Let My Heart Say Goodbye 6:31(   Читать дальше...   )Жанр: Hi-NRG, Synthpop, Post-DiscoПродолжительность: 01:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:259E487BCBE78E5530E63A18120D957C036223C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185108   (297040) от 19.11.2017
-
-Оркестр Павла Овсянникова - Звёздный Вираж (1985) [APE|Lossless|WEB-DL|tracks] <Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звездный вираж
-02. Северное сияние
-03. Горные лыжи
-04. У старого дома(   Читать дальше...   )Жанр: RetroПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB925961BE5EA607E719C10F2A42F4A77F3DEC30
 ```
 
 https://mybot314.ru/tekegram_catalog/

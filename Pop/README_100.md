@@ -1,3 +1,119 @@
+###  Публикация: 1280082   (763650) от 01.02.2019
+
+НЕСОЛНЦЕ - Восход (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рай
+02 - Проснись
+03 - Ау
+04 - Сладкая тоска(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B985490D856C7EC46FDE5B8706582053926805C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280162   (763642) от 01.02.2019
+
+VA - Bravo Hits,Vol.104 (2019) [MP3|320 Kbps] <Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763642.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Ava Max - Sweet But Psycho 3:08
+02. HUGEL feat. Amber Van Day - WTF 2:41
+03. Rita Ora - Let You Love Me 3:10(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 02:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A766D1C3267B491E760FE8BA2FA21A914DC8345C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280078   (763639) от 01.02.2019
+
+Luis Fonsi - VIDA (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sola (3:24)
+02. Apaga la Luz (3:32)
+03. Le Pido al Cielo (4:07)
+04. Luis Fonsi & Ozuna – Imposible (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA6AC37E87D10C99DCCC7CEC8B0392EF2C29C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280074   (763638) от 01.02.2019
+
+Вика Дайнеко (Виктория Дайнеко) - Магнитные (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Твоя девочка
+2. Без ума
+3. Под красной луной
+4. По приколу(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFECDB9D2349F7058FC94439AD73509ED29F0567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279937   (763524) от 01.02.2019
 
 Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Dance-pop, Electro>
@@ -623,122 +739,6 @@ Marc De Ville - Don't Smile (1979) LP [MP3|320 Kbps] <Electronic, Power Pop, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CB422895AB1F5AB56C453BB9CF83931AD8418A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522230   (760350) от 06.01.2022
-
-VA - Best Of Funk 2021 (2022) [MP3|320 Kbps] <Disco, Nu-Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Motta - Stay Together (Latouche Finale Remix) (feat. Dave Baron) (05:08)
-02. Eddy Sanchez - Back To Back (05:10)
-03. Jerem A - When The Sun Goes Down (DJ Hakuei Remix) (06:34)
-04. Infradisco - Il vizio (04:38)(   Читать дальше...   )Жанр: Disco, Nu-Disco, Funk, SoulПродолжительность: 01:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB19D0024C55061D536406EE36B2D826CB04E03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215205   (759833) от 25.03.2018
-
-VA - Deutsche Schlager Hits Deluxe 2018 (80 Discofox Hits) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mike Bauhaus - Ich Geh Nicht Zu Boden (03:40)
-02 - Die Herzdiamanten - Am Besten Du Gehst (Fox Mix) (03:28)
-03 - Joel Gutje - Sensationell (Huma Dj Mix) (03:45)
-04 - Pat - Diese Geile Nacht (03:13)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 04:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501CD70323185BC21B8C60DD69DBDF257E474FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215339   (759618) от 25.03.2018
-
-VA - Best Of The 70's (2002) [FLAC|Lossless|tracks + .cue] <Rock, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759618.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Rubettes - Sugar Baby Love [03:21]
-2. Santa Esmeralda - Don't Let Me Be Misunderstood [03:25]
-3. Mud - The Cat Crept In [04:07]
-4. Dillinger - Cocaine In My Brain [05:09](   Читать дальше...   )Жанр: Rock, Reggae, PopПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76EDE5AC949840B748EC95E868B91E3CAACD5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 780720   (759475) от 26.04.2014
-
-VA - Pure... 80s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник от Sony Music возвращает нас к лучшим хитам 80-х. И хотя на первый взгляд вам может показаться, что в сборнике нет ничего необычного, тем не менее обратите внимание на такие неординарные хиты тех лет как "Hungry Like the Wolf," "Our House," "Relax," "Sweet Dreams (Are Made of This)," "Video Killed the Radio (   Читать дальше...   )CD1:
-Продoлжитeльность: 01:14:49
- 01. Bill Medley & Jennifer Warnes - (I've Had) The Time Of My Life  (4:50)
-02. Starship - We Built This City  (4:54)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard RockПродолжительность: 04:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375769D9CC04976F03BAE269B54FEA90F6D1D4D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

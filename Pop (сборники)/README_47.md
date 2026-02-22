@@ -1,3 +1,38 @@
+###  Публикация: 509663   (675305) от 12.06.2012
+
+VA - Дискотека: Жаркое лето №100 50/50 (2012) [MP3|160-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Настя Крайнова - Стоп Время
+02 Far East Movement feat. Flo Rida & Sidney Samson - Change Your Life
+03 Оля Полякова - Лепесток
+04 Aqua - Like A Robot
+05 Челси - Надо
+06 Taio Cruz Feat. Flo-Rida - Hangover
+07 Шатунов - Майский Вечер 2012
+08 Tina Cousins - Wonderful Life (Kenny Hayes Sunshine Funk Edit)
+09 Меседа Багаудинова - Дым
+10 Duck Sauce - Barbra Streisand(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:32:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536530   (675125) от 12.03.2022
 
 VA - German Top 100 Single Charts 11.03.2022 [MP3|320 Kbps] <Pop>
@@ -716,35 +751,6 @@ VA - Зажигай вместе с Europa Plus. Версия № 5 (2017) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D36B1EA88CCDF067EA9FAE1304CAFF8E2F366F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136533   (673005) от 23.05.2017
-
-VA - Топовая весенняя сотня выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673005.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ejen & Lunna - Гармония 3:10
-002. 2 Маши - Не Буди 4:03
-003. Татьяна Буланова & Михаил Боярский - Единственный Дом 4:01
-004. Hann - На Больничном 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEABD28CC02E444D3FD3669359DBCF42D2C4838
 ```
 
 https://mybot314.ru/tekegram_catalog/

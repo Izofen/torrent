@@ -1,3 +1,61 @@
+###  Публикация: 1732335   (107490) от 24.06.2024
+
+No Mana - I Contain Flashing Images (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Contain Flashing Images [00:00:29]
+02. Solarpunk [00:03:59]
+03. Falling in Love [00:03:37]
+04. Digital Friends [00:03:41](   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07144AC269188891C6112B62629D8BEF69A6CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733604   (107215) от 30.06.2024
+
+Dwson - Jewels (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Long [00:06:24]
+02. Topaz [00:06:30]
+03. Ghetto Lover [00:06:57]
+04. Ruby [00:06:46](   Читать дальше...   )Жанр: HouseПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8DC6F95979B86D2B201717A29D7B3CF3617C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734567   (107103) от 04.07.2024
 
 Charlotte de Witte - Overdrive EP (2023) [FLAC|Lossless|tracks] <Techno>
@@ -677,64 +735,6 @@ Jaime Narvaez - Joyous Cosmology EP (2019) [FLAC|Lossless|tracks] <Deep House, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07DAC9F20A734C560BC870734F6390BC355A9C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758478   (103354) от 03.11.2024
-
-Hayla - Dusk (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only I [00:03:48]
-02. Alone [00:03:47]
-03. Freefall [00:03:39]
-04. Visions Of You [00:03:57](   Читать дальше...   )Жанр: DanceПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D978F47AA67CA76CFCBD802C1BEFBB5F027BC731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759540   (103274) от 09.11.2024
-
-VA - Sun Sand & Spirit, Vol. 2 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Breath of Desert (Original Mix) (6:48)
-02. Tibetania - Healing Winds (Original Mix) (7:08)
-03. Tamer ElDerini - Heaven (Original Mix) (5:29)
-04. Leon Music - Sultana (Original Mix) (8:55)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8342F8C68280A9C240C413C63ABB262E449DBB05
 ```
 
 https://mybot314.ru/tekegram_catalog/

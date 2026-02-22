@@ -1,3 +1,32 @@
+###  Публикация: 938515   (479995) от 19.09.2015
+
+Charles Lloyd - Nirvana (1968) /2014, Sony Music/ [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Island Blues [03:28]
+02.Carcara [01:47]
+03.Long Time, Baby [02:14]
+04.East Of The Sun (And West Of The Moon) [05:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15519395BD5967870E0B5643278D6D981AFFE72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938786   (479877) от 19.09.2015
 
 Frank Sinatra - The Voice (1955) /1994, Columbia/[FLAC|image+.cue]<Vocal Jazz>
@@ -716,35 +745,6 @@ Iiro Rantala, Lars Danielsson, Peter Erskine - How Long Is Now? (2016) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22F11608792E225A94520DDC4D3BF28942976E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057064   (477713) от 27.09.2016
-
-Max Roach, Clifford Brown Quintet - Brownie Lives! (Live At Basin Street And In Concert At Carnegie Hall) 2005 [WavPack|Lossless|image + .cue] <Jazz, Hard bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477713.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Waltz Hot (7:44)
-2. I Feel A Song Comin' On (5:17)
-3. What's New (3:19)
-4. Daahoud (5:23)(   Читать дальше...   )Жанр: Jazz, Hard bopПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31505189B09FDCFB9A46C6B0F724AEB5FBE7EDC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

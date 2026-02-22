@@ -1,3 +1,32 @@
+###  Публикация: 1098310   (908944) от 30.01.2017
+
+Holly Davis - Animal Healing Workshop (2006) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [00:07:37]
+02. A Safe Place [00:06:00]
+03. Sensing the Emotion [00:03:16]
+04. Working With Energy [00:03:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42EBF3A647C2AA48DABA4506140D5EFE35E6669F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098324   (908937) от 30.01.2017
 
 Asha - Thunderheart (2016) [MP3|320 Kbps] <New Age, Contemporary Christian>
@@ -752,36 +781,6 @@ VA - The Best Of Cafe Del Mar - Compiled By Lahud (2009) [MP3|320 kbps]<Easy Lis
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865218   (904890) от 07.02.2015
-
-Sub Pub Music - Submersive (2014) [MP3|320 кб/с]<Trailer Music>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Han Dure The Sailor [01:16]
-02. Submersive [01:30]
-03. Follow Your Path [01:28]
-04. Solitude [01:28]
-05. In Too Deep [02:04](   Читать дальше...   )Жанр: Trailer MusicПродолжительность: 00:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D91F893CF66189287AF3ECEA734A0F406BA38A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

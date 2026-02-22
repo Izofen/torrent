@@ -1,3 +1,32 @@
+###  Публикация: 942633   (453250) от 01.10.2015
+
+VA - Rock Хит. Высокое Напряжение (2015) [MP3|256 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeff Buckley - Hallelujah
+02. Би-2 - Три сантиметра над землёй
+03. Сплин - Сын
+04. Мара - Где-то моя любовь(   Читать дальше...   )Жанр: RockПродолжительность: 06:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2512D9ECA724EAA59BF6AE57A7C6563AEE36A8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322003   (452490) от 27.08.2019
 
 VA - Back End Roads: Indie Rock Collection (2019) [MP3|320 Kbps] <Indie, Rock>
@@ -719,35 +748,6 @@ VA - Silent Mutiny (Vol.03) (2020) [MP3|320 Kbps] <Hard Rock, Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:200831B476CD2C52EB1166E1BC3EC49F7A5853BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411709   (422610) от 27.09.2020
-
-H.E.A.T - We Will Never Die (2020) Compilation, 2CD [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dangerous Ground
-02. We Will Never Die
-03. Come Clean
-04. Stay(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC78789345CBD49B6819CD8B17986E4CC832CA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

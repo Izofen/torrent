@@ -1,3 +1,177 @@
+###  Публикация: 1714676   (111652) от 10.04.2024
+
+The Dirty Nil - Free Rein To Passions (2023) Deluxe, 2024, Dine Alone Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Celebration (00:03:31)
+02 - Nicer Guy (00:02:44)
+03 - Undefeated (00:02:50)
+04 - Atomize Me (00:03:01)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AFDCCF7112BBA5475AC0F931F6CA2783A5882C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714886   (111650) от 10.04.2024
+
+Hubert Dorigatti - The Nashville Sessions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low Down (4:21)
+02. Whiskey Drinkin Woman (3:48)
+03. You Are My Root (4:18)
+04. Freedom (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE5D955537529AE5B988E8879EA2D9BE45AD1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714882   (111649) от 10.04.2024
+
+Charlie Parr - Little Sun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Portland Avenue (4:30)
+02. Little Sun (3:57)
+03. Bear Head Lake (7:21)
+04. Boombox (3:56)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0679E731A6FC89667785C4CCA6E03A84506B5C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714896   (111612) от 11.04.2024
+
+Nienke Dingemans - Ain't No Hollywood Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood Girl (2:51)
+02. The House of Lily Jones (2:31)
+03. Southern Way (4:07)
+04. Blue Eyed Dreams (2:31)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22590F0771A15CBF4C6981313BBFF2D9320016DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714946   (111605) от 11.04.2024
+
+Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Math Metal, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Periphery — американская группа, играющая в жанре прогрессивный метал. Возникла в 2005 году в городе Бетесда. Группа популяризовала современный прогрессивный метал, в особенности поджанр джент.2010 - Periphery
+2011 - Icarus (EP)
+2012 - Periphery II: This Time It's Personal
+2014 - Clear (EP)Жанр: Progressive/Math Metal, DjentПродолжительность: 08:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC09D39B5C765154131DE943D3A59AD10BBD084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714903   (111601) от 11.04.2024
+
+Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm a Little Mixed Up (3:18)
+02. 99 1/2 (3:40)
+03. San Francisco (4:12)
+04. Don't Let Me Be Misunderstood (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB6E554A0A20CD14FD5EDB09CB32AD960A82CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714992   (111598) от 11.04.2024
 
 Chris Brown - 11:11 (Deluxe) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&b, Soul>
@@ -561,180 +735,6 @@ Caru de Souza - Amor, Pele e Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E7057D7C92EF54F263FCA709B42F33B6830AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716326   (111357) от 15.04.2024
-
-«Float» - Skies and Highway Signs (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (4:37)
-02. Walking Feet (6:51)
-03. Mathematics (3:04)
-04. Flute Intermezzo (3:51)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB457906F29E6D51F8055E61987A5ECDD1FB7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716333   (111355) от 15.04.2024
-
-Susan Santos - Sonora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Rod Lady (3:59)
-02. Snakebite (4:57)
-03. So Long (4:28)
-04. Have Mercy (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D183FE86C10502B035F15A3D32FD8AB79C2CB30F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716345   (111349) от 16.04.2024
-
-Nick Cave & Warren Ellis - Back to Black (2024) Original Motion Picture Score [FLAC 24/48|Lossless|WEB-DL|tracks] <Soundtracks>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening (00:01:01)
-02. At The Taxi (00:01:57)
-03. Park Bench (00:00:52)
-04. Tattoo Parlour (00:01:29)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6E9706DCB61CBB413743177668258C19A9A9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716342   (111329) от 16.04.2024
-
-Estopa - Estopía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Latin Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - El Dia Que Tu Te Marches (00:03:28)
-02 - Ke Mas Nos Da (00:03:20)
-03 - La Rumba del Pescailla (00:02:41)
-04 - No Digo Na (00:03:17)(   Читать дальше...   )Жанр: Pop Rock, Latin PopПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21358733A2B0DCD34AB673EDCAD55DA3D822E085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716625   (111322) от 16.04.2024
-
-Jeff Russo - Fargo Year 4 (Soundtrack from the MGM/FXP Series) (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open (Meet the Families) [00:11:33]
-02. Ethelrida [00:06:18]
-03. Mayhem (Cannon) [00:05:34]
-04. Mayhem Part Deux (Fada) [00:03:52](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD6D9DD906C6B107805BCE11DDD27F670E5F4E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716622   (111320) от 16.04.2024
-
-Jeff Russo - Fargo Year 5 (Soundtrack from the MGM/ FXP Series) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Who Is Dot
-02 – The Rancher
-03 – Run
-04 – Lorraine(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F34D6EA4257E32974A0E3F852613111FF64D032
 ```
 
 https://mybot314.ru/tekegram_catalog/

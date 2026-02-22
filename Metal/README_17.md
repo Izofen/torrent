@@ -1,3 +1,38 @@
+###  Публикация: 860185   (941493) от 16.01.2015
+
+Shadowbane - Facing The Fallout (2015) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Red Alert
+02. Beyond the Winds of War
+03. Traitor
+04. Under Bleeding Skies
+05. After the Fallout
+06. Dystopia
+07. Tear Down the Wall
+08. Badlands Law
+09. Last Division
+10. Source of GriefЖанр: Power MetalПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E65B5DCB08BF99B5A9361B6E21909BE31639B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 860189   (941379) от 16.01.2015
 
 Serious Black - As Daylight Breaks (2015) [MP3|320 кб/с]<Melodic Power Metal>
@@ -812,41 +847,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DCA8F5037635F99AB99850E8944A20B1B2D73BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628227   (937466) от 10.03.2013
-
-Epicrenel - The Crystal Throne (2013) [MP3|320 кб/с]<Epic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.	 The Calling
-02.	 Thurs Lands Cursed Again
-03.	 Where Kingdoms Fall
-04.	 Walls of the Cave
-05.	 Floating Souls
-06.	 Guarding Fellhound
-07.	 In the Dungeon
-08.	 Skyride
-09.	 Defenders of the Crown
-10.	 Fantom's Grove(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 00:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBACC527EC3F31D5C51E63D9EDAE17C3ECE9B7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

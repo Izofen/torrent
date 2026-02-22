@@ -1,3 +1,90 @@
+###  Публикация: 1365112   (932336) от 06.03.2020
+
+VA - Urban Sports Music, Vol. 2 (2019) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melbourne Bounce Project feat. Gemeni - Melbournia Superstars (Radio Edit) [03:12]
+02. Sunloverz - Summer of Love 2k13 (Edit) [03:04]
+03. Steve Cypress - Play It Loud (A2C Remix Edit) [03:50]
+04. Benjiy - Do It Yourself (Club Edit) [03:02](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEA6486B154FD9B04383006A8B55A8ACBBA5690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365105   (932249) от 06.03.2020
+
+VA - Urban Sports Music, Vol. 4 (2019) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monkey Warriors - In Your Face (Radio Edit) [03:07]
+02. SRNDR - Sandstorm (Radio Edit) [02:37]
+03. Phun and Key - System Crash (Radio Edit) [03:05]
+04. Whitemaxx - Let's Do the Sh..! (Short Mix) [02:57](   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2054F91C3D20A82DE9D0F9E3CCDFD9D1CCB6B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365324   (932244) от 06.03.2020
+
+VA - Afro Tribal House 7 (2020) [MP3|320 Kbps] <House, Afro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christos Fourkis - Funky Feelings (Afro Mix) [06:19]
+02. Raul Soto Inaky Garcia - You Are the One (Jack n Brothas Remix) [06:50]
+03. Teejay Walton Gina Glover - Rescue Me (Nikos Diamantopoulos Remix) [06:48]
+04. Walterino Plastik Guys - Aje-Ajo (Plastik Guys Remix) [05:35](   Читать дальше...   )Жанр: House, Afro HouseПродолжительность: 01:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939AEBD77421F156D5770DDE7162546BB4CA9973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754908   (932161) от 08.02.2014
 
 VA - Deep In Love Vol 5 (2014) [MP3|320 кб/с]<Funky, Club House, Deep House>
@@ -697,93 +784,6 @@ VA - I Love Fitness Training (2017) [MP3|320 Kbps] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E76F1BE9D1F7FFED9BAC7C321DE3978742F4767D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096428   (920932) от 23.01.2017
-
-VA - Motivation Training Music 2016 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Qamil Stello — Gonet 02:52
-02. Saber Wolf — Hong Kong 02:37
-03. Sofia Morales — Macsound 04:01
-04. Jeff Haymaker — Elec 04:40(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817EF78BF0F3DED7A754C72371BD022E3902EEF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096478   (919308) от 24.01.2017
-
-VA - Deephouse Night Beats (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Performative Mode — First Mode (Original Mix) 05:48
-02. Mighty Real — Remote Viewing (Original Mix) 06:43
-03. Circuito Zeta — Step Down (Original Mix) 07:17
-04. Stube — Calling Dingo (Original Mix) 06:30(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B73650F921E9DD2A7E3AE39EBBE9DF0A021E171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096748   (917785) от 25.01.2017
-
-VA - Vocal House on Ice Lech 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack & Jones - Lift Me Up (Outro) [00:01:23]
-02. Mr. Leading - One More Time [00:03:21]
-03. Massimo Vanoni - I See You (Fingerman's Disco Odyssey edit) [00:09:20]
-04. Re-Tide - Try This [00:06:35](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531287E590A6AD80108C469537947E4AEACCF8D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

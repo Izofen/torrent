@@ -1,3 +1,177 @@
+###  Публикация: 1785098   (69410) от 14.03.2025
+
+Sentenced - Shadows of the Past (1991) Released, 2011, Century Media [FLAC|24/96|tracks|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69410.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 When The Moment Of Death Arrives
+A2 Rot To Dead
+A3 Disengagement
+A4 Rotting Ways To Misery(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690D9CAE2362CA0706FB1A876132B21D6AF33BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784921   (69406) от 14.03.2025
+
+Seventh Storm - Maledictus (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69406.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Pirate's Curse
+A2 - Saudade (English Version)
+A3 - Sarpanit
+B1 - Gods of Babylon(   Читать дальше...   )Жанр: Progressive, Gothic MetalПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11AE5B0D3663E69980224660A739910366C09EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785150   (69400) от 14.03.2025
+
+Sentenced - North From Here (1993) Reissue, 2009, 	Century Media [FLAC|24/96|tracks|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69400.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 My Sky Is Darker Than Thine
+A2 Wings
+A3 Fields Of Blood; Harvester Of Hate
+A4 Capture Of Fire(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C4217F949E17F13F253737210D4124E05CB6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785326   (69331) от 15.03.2025
+
+Swallow The Sun - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swallow the Sun — финская группа из Йювяскюля, основанная в 2000 году2003 - The Morning Never Came
+2005 - Ghosts of Loss
+2008 - Hope
+2009 - New MoonЖанр: Melodic Doom/Death MetalПродолжительность: 10:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43FC1B90DBC99B4E9153207DA5894F9AB1C1352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785314   (69312) от 15.03.2025
+
+Carach Angren - Death Came Through A Phantom Ship (2010) Reissue, 2013, Season Of Mist [DSD128|24/44,1|tracks|Vinyl-Rip] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69312.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Electronic Voice Phenomena
+A2. The Sighting Is A Portent Of Doom
+A3. ...And The Consequence Macabre
+B1. Der Decken's Triumph(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85B302155E9D54E64D71050186124036DE25D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785569   (69275) от 16.03.2025
+
+Elton John - Star Collection (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Eldorado
+02. Bellive
+03. Blessed(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DCEACC1D0125A4C8AB39D886499204267272E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785507   (69255) от 16.03.2025
 
 Александр Серов - Звёздная Коллекция (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
@@ -571,176 +745,6 @@ A4 Slow, Love, Slow(   Читать дальше...   )Жанр: Symphonic Power
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4802CA441A8E1FAF968A5D7C585B7E8E28E4867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786769   (68917) от 22.03.2025
-
-Vortex - Drink Bat Blood (2010) Released, 2012, Metalizer Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Megalomizer
-02. Attracted to Fire
-03. Fury
-04. Unexpected(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C447AD831A515C6C1523B726790DF1B472CDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786798   (68916) от 22.03.2025
-
-Nephylim - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nephylim - голландская рок-группа, основанная в 2015 году2015 - Torn (EP)
-2020 - Severance of Serenity
-2025 - CircuitionЖанр: Melodic Death MetalПродолжительность: 01:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB520C36488636975B3852FCD9C2E97FC9EADEFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786855   (68915) от 22.03.2025
-
-Hidden Intent - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hidden Intent - метал-группа из Австралии, сформированна в 2011 году.2014 - Walking Through Hell
-2018 - Fear, Prey, Demise
-2021 - Dead End Destiny
-2025 - TerrorformЖанр: Thrash/Groove MetalПродолжительность: 02:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FC6E73F9B7DE56C75FD259488E2CD349468D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786845   (68897) от 22.03.2025
-
-Forsaken - Tales of Doom and Woe (2010) (Split) [FLAC|24/96|image + .cue|Vinyl-Rip] <Epic Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forsaken:
-A1. Visions in Thy Shadow (09:25)
-A2. Solitude (Candlemass Cover) (06:27)Жанр: Epic Doom MetalПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADA5D9761A6F576F8F4F4ED01D46333FC8D679F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786833   (68896) от 22.03.2025
-
-Forsaken - Virtues of Sanctity (1993) (EP) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68896.jpg" />
-</div>
-
-
-###  Подробнее
-
-A. Where Angels Have Fallen (06:45)
-B. Confessing My Desolation (06:52)Жанр: Epic Doom MetalПродолжительность: 00:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9FF58432445197438227242571790583F28E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786878   (68895) от 22.03.2025
-
-Fallujah - Empyrean (2022) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Technical Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bitter Taste Of Clarity (04:50)
-02. Radiant Ascension (04:03)
-03. Embrace Oblivion (05:55)
-04. Into The Eventide (06:02)(   Читать дальше...   )Жанр: Progressive, Technical Death MetalПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D9B697B65D111F24127BB2283EAA5801F778A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

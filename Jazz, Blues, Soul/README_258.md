@@ -1,3 +1,101 @@
+###  Публикация: 409364   (596140) от 26.06.2018
+
+Taste (Rory Gallagher) - 3 Albums, 1 Box Set (1969 - 2015) [FLAC|Lossless|image + .cue|tracks+.cue]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Taste появилась в 1966-м, первоначально с Rory Gallagher играли Norman Damery и Eric Kitteringham, но состав, завоевавший славу, был сформирован лишь в 1967 году, когда они переехали в Лондон, где Rory определился окончательно (в золотой состав Taste входили Галлахер - гитара, вокал, Джон Уилсон (John Wilson) - барабаны, Ричард МакКрэйкен (Richard McCracken) (   Читать дальше...   )1969 - Taste
+1970 - On The Boards
+1974 - The Best Of TasteЖанр: BluesПродолжительность: 06:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E0F737A8F4ACAD4C890D30A2EB48D10080A0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526817   (595835) от 25.07.2012
+
+VA - Cafe New York (2005) [FLAC|Lossless]<Big Band, Swing, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_595835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy Mitchell - My truly, truly fair [02:48]
+02. Frankie Laine - Jealousy [03:16]
+03. Ella Fitzgerald - I'm making believe [03:13]
+04. Johnnie Ray - All of me [02:10]
+05. Jo Stafford, Johnny Mercer & The Pied Pipers - Candy [03:15]
+06. Jeri Southern - I've got five dollars [01:32]
+07. Leas Paul & Mary Ford - Vaya Con Dias [02:54]
+08. Perry Como - Don't let the stars get in your eyes [02:42]
+09. The Andrew Sisters - I can dream, Can't I? [02:41]
+10. Charlie Barnet - Skyliner [03:03](   Читать дальше...   )Жанр: Big Band, Swing, VocalПродолжительность: 01:10:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526776   (595825) от 25.07.2012
+
+Igor Matković - Sonic Motion (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_595825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. State of Mind
+02. Sonic Space
+03. Intuition
+04. On the Edge
+05. Blue Flow
+06. Approaching Chaos
+07. Inner Voice
+08. Mood Channel
+09. Doors to Open
+10. Keep It ThereЖанр: JazzПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150261   (595288) от 14.07.2017
 
 Chet Baker - The Sesjun Radio Shows (1976 - 1985) 2CD, 2010, T2 Entertainment [FLAC|Lossless|tracks + .cue] <Cool>
@@ -655,93 +753,6 @@ Sonny Stitt Quartet With Don Patterson - Low Flame & Feelin's (1962) 2013, Essen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56795C2CC97E5D25690C54CA21E22B268DE9A56C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039480   (594793) от 02.08.2016
-
-Johnny Lytle Trios - Got That Feeling! & Moon Child (1962, 1963) 2001, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Got That Feeling! [04:55]
- 02.Pow-Wow [02:42]
- 03.(In The) Wee Small Hours (Of The Morning) [03:22]
- 04.Big John Grady [03:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89740EA90D976DCC1257BD050C5DEAD9733A20DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039752   (594706) от 02.08.2016
-
-Duke Ellington - The Essential (1928-1958) 2CD, 2009, Not Now Music[FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594706.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Black And Tan Fantasy [03:29]
-02.East St Louis Toodle-Oo [03:09]
-03.Hot And Bothered [03:21](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D11D4CC638D4C0FC0B727F2B351B263872432F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039464   (594698) от 02.08.2016
-
-Sean Chambers - Ten Til Midnight (2009) [MP3|320 Kbps] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ten Til Midnight (03:36)
-02. Blues And Rock 'N' Roll (04:13)
-03. All The King?s Horses (04:47)
-04. You're Gonna Miss Me (03:57)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC76A7C0A0BE837D1D9843CD0F63FFDDD71582A
 ```
 
 https://mybot314.ru/tekegram_catalog/

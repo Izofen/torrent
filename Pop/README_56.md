@@ -1,3 +1,119 @@
+###  Публикация: 1104046   (881694) от 14.02.2017
+
+VA - Sanremo 2017. Inediti & Cover dei campioni en nuove proposte (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881694.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Elodie - Tutta Colpa Mia
+02. Fiorella Mannoia - Che Sia Benedetta
+03. Nesli Feat. Alice Paba - Do Retta A Te(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9255E93A3CA445A399220D9208CABE195912D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665877   (881562) от 05.04.2020
+
+Вадим Мулерман - "Лада" Золотая коллекция Ретро (2005) [APE|Lossless]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881562.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лада (В.Шаинский - М.Пляцковский)
+2. Тундра (А.Двоскин - В.Петров)
+3. От Владивостока до Карпат (Б.Шапиро - М.Светлов)
+4. Судьба (А.Бабаджанян - Р.Рождественский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030DAC6BAD52B8E4FD583131F658364B66EDB188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104214   (881328) от 14.02.2017
+
+Оля Полякова - Шлёпали шлёпки (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881328.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Polyakova Style
+2. #Шлепки
+3. Плавочки
+4. Люли(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4F2B3B110EFCAEEE8D9C13E898398B0CFEB174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996256   (881276) от 13.03.2016
+
+Lorenzo Fragola - Zero Gravity (2016) [MP3|320 кб/с] <Italian Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Infinite Volte (03:28)
+02. Parlami (03:55)
+03. Con Le Mani (03:24)(   Читать дальше...   )Жанр: Italian PopПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3722535D1102FF0335E21FEC6E150CA1F0351B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871258   (881216) от 21.02.2015
 
 VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
@@ -629,120 +745,6 @@ OQJAV (Окуджав) - Марта (2016) [MP3|320 кб/с] <Dance pop, New Wav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:336FEBBDED56259DDC9CDBD437833143E0A666E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495610   (878937) от 13.09.2021
-
-VA - Monster Pop Hits (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - Love Story (Taylor’s Version) (03:55)
-02. Maroon 5 - Beautiful Mistakes (03:47)
-03. OneRepublic - Run (02:49)
-04. Shawn Mendes - Señorita (03:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798A4863B803EEF7A643F8554787F9F75DED19DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373655   (878482) от 07.04.2020
-
-Teri DeSario - Moonlight Madness (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Madness (5:07)
-02. Heart Of Stone (3:24)
-03. With Your Love (4:27)
-04. Hold On, Hold On (4:54)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88E7BF54C573E9D1E59EC79A35F7B99ED39BE00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104643   (878219) от 16.02.2017
-
-Cosmic Hoffmann - Weltraumboogie / Space-Disco (1982) 7" [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weltraumboogie (3:48)
-02. Space-Disco (4:30)Жанр: Electronic, DiscoПродолжительность: 00:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0209CF4A1773BEF9E8E896392CD904F3C1E9BC49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104739   (878212) от 16.02.2017
-
-Patchworks Galactic Project - Space (2013) [MP3|320 Kbps] <Electronic, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Tripping (2:04)
-02. Cruising Through Space (4:16)
-03. Approaching The Black Whole (1:44)
-04. Time And Space (5:09)(   Читать дальше...   )Жанр: Electronic, Soul, DiscoПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFE3E103B3B49A04A68B2C8EDF972E54F089BCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

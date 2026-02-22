@@ -1,3 +1,93 @@
+###  Публикация: 1837304   (256785) от 15.11.2025
+
+VA - Enormous Tunes - The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nora En Pure - Memories (Original Mix) [3:36]
+02. Passenger 10 - Dare To Dream (Original Mix) [3:26]
+03. ENU (AU) feat. Jordan Whitlock - Lost Without You (Original Mix) [3:34]
+04. Sons Of Maria - The Long Way Home (Original Mix) [3:55](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 02:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBAC528AC87EF4732F916823DC7CFBE6CFCF99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837453   (256685) от 16.11.2025
+
+VA - Ibiza Winter 2026 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yantra Mantra & Mazelo Nostra - Hum Tum Ganja 05:17
+02. Calmabohain - Never Forget 03:25
+03. Steen Thottrup - While We Are Dreaming (Nice Therapy Dreamcatcher Remix) 07:37
+04. Jaques Le Noir - My Love For You (Radio Edit) 02:44(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179272DD13CFDBE8AED98F4A84724570960F7570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499758   (256334) от 21.05.2012
+
+Oxia - Tides Of Mind (2012) [MP3|320 кб/с]<Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Oxia - Tides Of Mind (2012)Год: 2012  |  Лейбл: InFine  |  Страна:   |  Жанр: Deep House, Tech House, Downtempo |  Формат: WEB, Album
+Продолжительность: 01:00:05  |  Кодек: MP3  |  Битрейт: 320 кб/с  |  Тип битрейта: CBR
+Описание:
+Приятный и мелодичный альбом от Olivier Raymond.  Помесь ритмичных треков в стиле дип- и тех- хаус, а также парочка мелодичных баллад, звучат свежо и по летнему тепло.Треклист:
+01. Premiss /1:08/
+02. Rue Brusherie /7:58/
+03. Housewife /6:10/(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33A2DDB00B85A9FAC6507E7F323FA124AB0A627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499352   (256058) от 20.05.2012
 
 Stephanie Cooke - Beautiful (2012) [MP3|320 кб/с]<Soulful House, Deep House>
@@ -714,99 +804,6 @@ VA - Beautiful Barcelona: Chill House Deluxe (2012) [MP3|320 кб/с]<Chill Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C6539B80636A3518C710F5C4417E71F38F16AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110916   (247548) от 16.06.2023
-
-DJ Грув - Ты не со мной (2008) [MP3|320 kbps]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты Не Со Мной (при уч. Иракли,Гарик DMC B,Батишта)
-02. Счастье Есть 2008
-03. Forever Dancing (при уч. А. Чумакова)
-04. I Want You (при уч. Audio DJs(Android,M.Pravda)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7CCBA4EFCA0DF0000AE44AC12BFA272330167F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 16500   (247534) от 17.06.2023
-
-DJ Грув - Последние Киноремиксы (2007)
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вокзал прощания из к/ф "17 мгновений весны"
-02 - Камыш 2007
-03 - Прелюдия из к/ф "9 рота"
-04 - Вальс из к/ф "Мой ласковый и нежный зверь"(   Читать дальше...   )Жанр: electronic
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A99B58489A1BEE274BFC71173C6EE5AC85ED57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491403   (246368) от 03.05.2012
-
-VA - Monotone Vol.7: Tech House Selection (2012) [MP3|320 кб/с]<House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Jesper Aubin - Back Up Down (Original Mix) (8:30)
-2. Darren Bailie - Dream (Danny Dewills & Damir Pushkar Remix) (7:13)
-3. Zoo Brazil - Tear the Club Up (Rene Amesz Snikkel Rework) (7:53)
-4. Nino Anthony - Awww Shhh (Original Mix) (5:27)
-5. Nick Fay - House in My House (Original Mix) (6:40)
-6. Matthew Codek - Dungusmartus (Original Mix) (6:24)
-7. Carlos Caballero - Moving Together (Original Mix) (7:17)
-8. D-Formation - Stuck in the Airport (Original Mix) (6:14)
-9. Supernova - Movimiento (Original Mix) (7:34)
-10. Mario Ochoa - The Fluteman (Original Mix) (6:29)(   Читать дальше...   )2012Жанр: House, Tech House, Deep HouseПродолжительность: 02:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D412A630BC69780746664E86BE224AF61F5325
 ```
 
 https://mybot314.ru/tekegram_catalog/

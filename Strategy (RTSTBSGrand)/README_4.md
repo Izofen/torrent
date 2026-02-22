@@ -1,3 +1,29 @@
+###  Публикация: 1010478   (769445) от 15.05.2016
+
+Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.0/dlc) License PROPER - PLAZA
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игроков ждет масштабная космическая стратегия с возможностью управления сотнями планет, исследованием многочисленных технологий, командованием многотысячных флотов, развитой дипломатией, добычей ресурсов и торговлей. Кроме того, вы сможете разрабатывать конструкции кораблей в соответствии со своей стратегией.Тип издания: LicenseРазработчик: Blind Mind StudiosЖанр: Strategy (Real-time, Grand strategy), 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72E4412E1BD076519AF57C2F378A0618C605482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125241   (768380) от 14.04.2017
 
 SpellForce 2 (2017) [Ru/Multi] (2.01.8596) License PLAZA [Anniversary Edition]
@@ -644,32 +670,6 @@ Homeworld: Deserts of Kharak - стратегия в реальном време
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC1FBE116FCA8C24078B40B5F9BA2BB10A491F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219329   (712491) от 02.03.2019
-
-Galactic Civilizations III / Galactic Civilizations 3 (2015) [En] (3.5/dlc) License CODEX
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Galactic Civilizations III – самая глобальная игра-песочница, где вам никогда не придется играть в одну и ту же игру дважды. Каждая новая игра предлагает набор настроек – выбирайте масштаб вашей карты, изобилие планет и ресурсов, частоту событий и многое другое, раз за разом наслаждаясь уникальным игровым опытом.Тип издания: LicenseРазработчик: Stardock EntertainmentЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD254341647B57CEF869BFE6D56750284F66A50C
 ```
 
 https://mybot314.ru/tekegram_catalog/

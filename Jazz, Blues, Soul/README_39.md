@@ -1,3 +1,90 @@
+###  Публикация: 1479509   (1009548) от 24.06.2021
+
+V.A. - Alligator Records 50 Years Of Genuine Houserockin' Music (2021) 3CD [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009548.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Hound Dog Taylor - Give Me Back My Wig (Remastered) (3:35)
+02. Koko Taylor - I'm A Woman (Remastered)
+03. Big Walter Horton;Carey Bell - Have Mercy (Remastered)(   Читать дальше...   )Жанр: Blues, Blues-Rock |Продолжительность: 03:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640ED329373CE58EFC52D9D5479360E55022EEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479523   (1009537) от 24.06.2021
+
+Rozedale - Rozedale (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost for You (4:22)
+02. Brand New Slate (3:49)
+03. Shine (3:54)
+04. Burning (3:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B94520C6785EF1F699E3CE679FFDC8734F3BB93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479525   (1009535) от 24.06.2021
+
+The Poppy Jasper Band - One for the Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mississippi Delta (4:06)
+02. Wanted Man (4:00)
+03. Whiskey River (3:31)
+04. County Line (4:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE847067BCBD3358E789703CA81DA7D434579D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479529   (1009533) от 24.06.2021
 
 Veronique Gayot - Animal (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -659,93 +746,6 @@ P.J. Perry & Doug Riley - Come Sunday: Songs of Spirituality (2004) Justin Time 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A816B3B6FB75F5F81243172A23CCE4E18D3449C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482026   (1007867) от 06.07.2021
-
-Chris King Robinson - Chris King Robinson (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Track You Down (03:31)
- 02. Why Don't You Give Me Your Love (04:41)
- 03. Million Miles Away (04:21)
- 04. Going My Own Way (03:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9692FD3F709A8134F0C7046679E92D0E285007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482053   (1007839) от 06.07.2021
-
-Barbara Lewis - Don't Forget About Me: The Atlantic & Reprise Recordings (2020) 3CD [FLAC|Lossless|tracks + .cue] <Rhythm & Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Longest Night of the Year (Mono Single) (2:23)
-02. My Heart Went Do Dat Da (Mono Single) (2:22)
-03. My Mama Told Me (aka 'My Momma Told Me') (2:14)
-04. Gonna Love You Till the End of Time (2:16)(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 03:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F111F09EAEA8612F6C7B92B8C84DE03980A677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482158   (1007788) от 07.07.2021
-
-Dave Brubeck - In Berlin (1964) 1999, SME Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Louis Blues [12:03]
-02. Koto-Song [6:59]
-03. Take the 'A' Train [7:43]
-04. Take Five [7:09]Жанр: Cool, Mainstream JazzПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADBC6410B5EDDC805ECC72125CABB69DD326B020
 ```
 
 https://mybot314.ru/tekegram_catalog/

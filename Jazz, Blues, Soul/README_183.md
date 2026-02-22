@@ -1,3 +1,90 @@
+###  Публикация: 1280935   (755299) от 06.02.2019
+
+Laura Ellis - Femme Fatale (2011) Vintage Voice Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Been Kissed Before [3:03]
+02. Somewhere in the Night [2:42]
+03. Again [2:34]
+04. I Want to Be Talked About [1:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A565F19973BE385636C3EBF902DA9FD40C3F9F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522941   (755288) от 09.01.2022
+
+Eve St. Jones - French Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break My Heart
+02. Simple Song
+03. Peaches
+04. New Light(   Читать дальше...   )Жанр: Pop Jazz, Easy ListeningПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9849B7378DD0F16C59CF6CE46F9931A6678A0AC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522881   (755065) от 09.01.2022
+
+VA - Classic Savoy Be-Bop Sessions (1945 - 1949) 10CD, 2016, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755065.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Dexter Gordon - Blow Mr. Dexter (alternate take) [2:40]
+02. Dexter Gordon - Blow Mr. Dexter [2:58]
+03. Dexter Gordon - Dexter's Deck [2:56](   Читать дальше...   )Жанр: BopПродолжительность: 10:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD85A8DADBEA2B464FDB54D2E67730D96548A087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522943   (754935) от 09.01.2022
 
 V.A. - Blues Legends (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -656,93 +743,6 @@ Woody Shaw - With Tone Jansa Quartet (1985) Remaster, 2015, Solid Records[FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6C72BE0EA0102DD98BB68F312F597D96DF0D5DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019463   (750268) от 23.05.2016
-
-Stanley Clarke - At The Movies (1995) Unofficial Release [APE|Lossless|image + .cue] <Jazz, Stage & Screen>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passenger 57 Main Title
-02. Lisa
-03. Justice's Groove
-04. Lucky Again(   Читать дальше...   )Жанр: Jazz, Stage & ScreenПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F6D277B20A59F5496A27695648C1778ECAAB59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281719   (750138) от 09.02.2019
-
-Joe Lovano - Trio Tapestry (2019) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Time In [3:42]
-02. Seeds of Change [5:14]
-03. Razzle Dazzle [3:40]
-04. Sparkle Lights [4:08](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D065B006940F07D35CBA7A09ECE0D1DB5939D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281651   (750016) от 09.02.2019
-
-Free Nelson Mandoomjazz - The Organ Grinder (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open the Gate (4:32)
-02. You Are Old, Father William (6:44)
-03. The Woods (10:10)
-04. Funambule (5:55)(   Читать дальше...   )Производство: RareNoise Records – RNR068Жанр: Dark Jazz, Doom Jazz, Experimental, Avantgarde JazzПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973E049A9E39AF677812EBC73D18DEEEC321269B
 ```
 
 https://mybot314.ru/tekegram_catalog/

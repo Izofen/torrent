@@ -1,3 +1,90 @@
+###  Публикация: 1638141   (197435) от 07.06.2023
+
+VA - 70s Pop Mega Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bee Gees - Stayin Alive                                 [04:45]
+   02. Jerry Williams - Cotton Jenny                           [03:30]
+   03. Rupert Holmes - Escape (The Pina Colada Song)           [04:37]
+   04. Rod Stewart - Maggie May                                [05:44](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E973D11D8E8CE257D6456E6725ED6FCDC731D47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638201   (197356) от 07.06.2023
+
+Руки Вверх - Дышите Равномерно (1997) 2 x CD, Reissue, Remastered, 2023, Maschina Records, Deluxe Expanded Edition [FLAC|Lossless|image + .cue] <Russian Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197356.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Дышите Равномерно:
+01. Доброе Утро
+02. Малыш (Complete Version)
+03. Студент(   Читать дальше...   )Жанр: Russian PopПродолжительность: 01:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF205567EB5BEACC6336E227577D950C478F5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641590   (196719) от 23.06.2023
+
+Братья Грим - Лететь высоко (2023) [MP3|320 Kbps] <Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196719.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лететь высоко
+2. Солнце моё
+3. Лелею
+4. Крылья рукава(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B1444F57F6C96971D561218FD8CEECA455397A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641592   (196699) от 23.06.2023
 
 VA - Песни Виктора Резникова (2023) [MP3|320 Kbps] <Pop>
@@ -658,93 +745,6 @@ VA - NOW That's What I Call Music! 113 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:093F345EA1F6729C6345218EB4FA17F01C78052E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588217   (191816) от 03.11.2022
-
-Blue System - Here I Am (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Will Drive Me Crazy
-02. Anything
-03. I Miss You
-04. I Love The Way You Are(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC240FA638920FF4361604266B41CEF3DA9C84AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588268   (191809) от 03.11.2022
-
-Blue System - Body To Body (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body To Body (Radio Version)
-02. Only With You (Radio Version)
-03. For The Children
-04. It's For You(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5E3EB3180E1E2E63708624D9D789F985801400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588173   (191795) от 03.11.2022
-
-Маленький Принц - Мы Встретимся Снова (1994) Reissue, 2022, Maschina Records [OGG Vorbis|480 Kbps] <Disco, Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я не знаю, зачем мне ты
-02. Голос в ночи
-03. Прощай
-04. Не знаю я тебя(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA26DE828DD95EB03482E2415B54A2F26922EF6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

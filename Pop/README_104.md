@@ -1,3 +1,119 @@
+###  Публикация: 1282353   (745321) от 12.02.2019
+
+Michael Bolton - A Symphony Of Hits (2019) [MP3|320 Kbps] <Pop, Soul, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Said I Loved You...But I Lied (4:43)
+02. When A Man Loves A Woman (3:59)
+03. Soul Provider (5:07)
+04. Time, Love Tenderness (4:21)(   Читать дальше...   )Жанр: Pop, Soul, Pop-RockПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9AFC41C247464E940751A4B14DBC8FEF41F1842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282409   (745313) от 12.02.2019
+
+Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|tracks + .cue] <Electronic, Pop, RnB, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Like A Bird (4:04)
+ 02. Turn Off The Light (4:36)
+ 03. Shit On The Radio (Remember The Days) (3:55)
+ 04. Fotografia (Duet with Juanes) (4:01)(   Читать дальше...   )Жанр: Electronic, Pop, RnB, LatinПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E2830D38029B2D85427AE890679B20A1B295DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376260   (745278) от 16.07.2020
+
+София Ротару - 9 Альбомов (1995 - 2010) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я не оглянусь
+02. Время подождет
+03. Забирай ( дуэт с О. Газмановым )
+05. Цветы сирени(   Читать дальше...   )Жанр: PopПродолжительность: 07:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8045CE5E124E841A9B2623159837B1703708E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282494   (745255) от 12.02.2019
+
+Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Souvenirs to Souvenirs
+02. Goodbye My Love Goodbye
+03. My Friend the Wind
+04. Rain and Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6C92E0EE8F88D5033BFE004CC510540848BF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020494   (745223) от 26.05.2016
 
 VA - Radio Italia Summer Hits (2 CD) (2015) [FLAC|Lossless|image + .cue] <Italo-Pop>
@@ -626,123 +742,6 @@ Deana Carter (Дина Картер) - Father Christmas (2001) Rounder Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F26258B6ED3ED69B321B429F7BAC3DDE496B9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021126   (742190) от 28.05.2016
-
-Azoto - 2 Albums (1978, 1980) [MP3|320 кб/с] <Electronic, Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянская группа Azoto - еще один проект композитора, аранжировщика и продюсера Celso Valli, являющимся одним из пионеров итальянской диско-сцены и известным по работе с Macho, Passengers и Tantra.01. Havah Nagilah   (8:51)
-02. Rainfall   (5:52)
-03. Discomedley   (7:06)
-04. Zorba's Dance   (3:23)(   Читать дальше...   )Жанр: Electronic, Disco, Funk, SoulПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C95D3CDB84C587894EE71C5B51FA01D278D441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021200   (741720) от 28.05.2016
-
-Sandra - The Very Best Of Sandra (2016) 2CD, Compilation [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741720.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. (I'll Never Be) Maria Magdalena (Single Version) (Remastered 2016) (03:58)
-02. Everlasting Love (Remastered 2016) (03:42)
-03. We'll Be Together ('89 Remix Single Version) (Remastered 2016) (03:46)(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51400D4EBCD4C4B3C22C07A477BD57423276639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890997   (741581) от 22.04.2015
-
-Яак Йоала - Grand Collection (2003) [MP3|320 кб/с]<Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здравствуй
-02. Я тебя рисую
-03. Солнечные часы
-04. Предсказание
-05. Не забывай(   Читать дальше...   )Жанр: RetroПродолжительность: 01:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAD5ABA2416DB8E2BD04AB798F462898224ED81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397140   (741340) от 19.07.2020
-
-VA - Holiday Body Workout Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amy Phillips - Sorry Not Sorry (3:23)
-02. Jonas Gerard - I'm Upset (3:18)
-03. Little Play, Layla Young - Girls Like You (4:14)
-04. Tia Matthews - Most Girls (3:23)(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558B43781E0A68BC308300EA857F75F5935AF140
 ```
 
 https://mybot314.ru/tekegram_catalog/

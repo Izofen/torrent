@@ -1,3 +1,32 @@
+###  Публикация: 1072103   (355028) от 12.11.2016
+
+Miss Sophie Lee and The Parish Suites - Traverse This Universe (2016) Sophieleemusic[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You And Me (The Universe) [04:20]
+ 02.That's When Your Heartaches Begin [04:22]
+ 03.Someday [03:27]
+ 04.A Safe Place [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE973B08B9A43A0C5465A9052274CB5B63B38A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072137   (355022) от 12.11.2016
 
 Carmen McRae - The Sound Of Silence & Portrait Of Carmen (1968) 2001,  Collectables Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -722,35 +751,6 @@ Paolo Conte - Paris Milonga (2000) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B08F52174DB237A9031F72A6DF639941EC785180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072626   (352281) от 13.11.2016
-
-Paolo Conte - Psiche (2008) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psiche (3:17)
-02. Il quadrato e il cerchio (3:17)
-03. Intimita' (3:28)
-04. Big Bill (3:44)(   Читать дальше...   )Жанр: Jazz-Pop, VocalПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2295AF55F6999040D2BCEB1872347857DCFD71
 ```
 
 https://mybot314.ru/tekegram_catalog/

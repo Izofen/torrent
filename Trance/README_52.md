@@ -1,3 +1,32 @@
+###  Публикация: 968115   (156353) от 23.12.2015
+
+VA - Anjunabeats Volume 12 (Mixed by Above and Beyond) (2015) [MP3|320 кб/с] <Trance,Progressive Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Howling - X Machina (Cubicolor Remix)
+02. Thomas Schwartz & Fausto Fanizza - Circles
+03. Oliver Smith - Your Love
+04. Jaytech - Great Divide(   Читать дальше...   )Жанр: Trance,Progressive Trance,Progressive HouseПродолжительность: 05:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E806BEC3E5510D79D6229F3F8E76C4B0DE7F89F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270631   (155962) от 20.12.2018
 
 VA - Infrasonic: The Best Of 2018 (Mixed by Solis & Sean Truby) (2018) [MP3|320 Kbps] <Trance>
@@ -720,35 +749,6 @@ VA - Platipus - Archive 13 (Mixed by Luke Brancaccio) (2018) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D91765094A197E9B9108F28AC80F6102D49D0F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195373   (144400) от 28.12.2017
-
-VA - Mondo Records: The Best Of (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Hawcroft - Your Eyes (Original Mix)
-02. Credland - Photosphere (Original Mix)
-03. Manda Dex - Dream Beat (Original Mix)
-04. Like It Lite - Sometimes Ibiza (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1F41E955DF0D0F98D0EE05120C061BCBAD97AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

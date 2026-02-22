@@ -1,3 +1,178 @@
+###  Публикация: 1754844   (103671) от 12.10.2024
+
+Joe Bonamassa - Different Shades Of Blue (Overdrive) (2014) 2024 Reissue, 10th Anniversary Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Baby (New Rising Sun)
+02. Oh Beautiful!
+03. Love Ain't A Love Song
+04. Living On The Moon(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C8829A41B7FBEBB84EAB8D8AF9C54D170852BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754987   (103611) от 13.10.2024
+
+Бранимир (Александр Геннадиевич Паршиков) - Ждут домой (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Acoustic, Dark-Folk-Rock, Dark-Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты меня где-то ждёшь [00:03:49]
+02. Вахтовик звонит домой [00:03:52]
+03. Провожал я друга на войну [00:03:41]
+04. Стёпка украл гуся [00:03:20](   Читать дальше...   )Жанр: Acoustic, Dark-Folk-Rock, Dark-ChansonПродолжительность: 00:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247368BED278E525A98929B8F7BA460981E379C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755819   (103594) от 18.10.2024
+
+Cold Cave - Passion Depression (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Reigns Down [00:02:45]
+02. Shadow Dance [00:02:43]
+03. Blackberries [00:04:19]
+04. Hourglass [00:05:02](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20825ABE652672B000F16399C2C70BBCF8F76045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755912   (103577) от 18.10.2024
+
+DGM - Endless (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянские мастера прогрессив-метала DGM с радостью объявляют о выходе своего нового студийного альбома “Endless”, который выйдет 18 октября 2024 года на лейбле Frontiers Music Srl.
+Гитарист Симоне Муларони (Simone Mularoni), комментируя новую пластинку, сказал: “Endless” - это первый по-настоящему концептуальный альбом группы. И это также первый альбом DGM, который (   Читать дальше...   )01. Promises (5:17)
+02. The Great Unknown (7:03)
+03. The Wake (7:30)
+04. Solitude (5:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21444571B8FAF18E20B871D65D25B8AF8B1F791C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755719   (103576) от 18.10.2024
+
+Widespread Panic - Warfield 2000 #4 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Alternative Rock, Blues Rock, Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Joe (Live) [00:04:12]
+02. Driving Song (Live) [00:04:42]
+03. Pilgrims (Live) [00:09:12]
+04. Party at Your Mama's House (Live) [00:11:18](   Читать дальше...   )Жанр: Southern Rock, Alternative Rock, Blues Rock, Country RockПродолжительность: 03:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E766A3542EFDE4760BB70CD215919283CF879F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755803   (103574) от 18.10.2024
+
+Health - Rat Wars (2023) Ultra Edition, 2024,  Loma Vista Recordings [FLAC 24/48|Lossless|WEB-DL|tracks] <Experimental, Alternative, Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demigods [00:05:41]
+02. Future of hell [00:02:32]
+03. Hateful [00:04:08]
+04. (of all else) [00:02:30](   Читать дальше...   )Жанр: Experimental, Alternative, IndieПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66E1244A287496371E818C3B5F3F06C7D5B2D8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756186   (103561) от 19.10.2024
 
 Red Giant - Red Giant (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -571,180 +746,6 @@ Malakye Grind - Dystopian Dream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD7C45189AEC8973DD34B2BFB27D259C4EE0B86B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756192   (103510) от 19.10.2024
-
-Smash Atoms - Smash Atoms (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring The River (3:23)
-02. Black Cloud (3:19)
-03. Buried Under The Open Sky (3:41)
-04. Dead Season (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BC0CCA4998E5A2E1E4F3636D0F50E6E64AD7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756161   (103509) от 19.10.2024
-
-NRBQ - Brass Tacks (2014) 10th Anniversary Edition, 2024, Omnivore Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waitin' On My Sweetie Pie [00:02:55]
-02. Greetings From Delaware [00:03:31]
-03. Sit In My Lap [00:02:39]
-04. Fightin' Back [00:03:31](   Читать дальше...   )Жанр: RockПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB02E80C4AC3812AC3D2BA33E49BA628AE57EBEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756979   (103492) от 24.10.2024
-
-The Grammers - Rockfield (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil in the Eyes of Men (3:33)
-02. DNA (2:40)
-03. Live It Up (4:39)
-04. I Know You're Strong (4:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4668C87514275B2CDF48545BBDC234A341F7FBD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757003   (103491) от 24.10.2024
-
-Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger (5:01)
-02. Impatient (4:54)
-03. Closer to Heaven (5:21)
-04. Ring Me Around (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8823A18633939A217E04E32BC1A9AF77390FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757018   (103490) от 24.10.2024
-
-Malabari - Down The Maelstrom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down The Maelstrom (1:54)
-02. Maelstrom (4:38)
-03. Empty Sacrifice (3:51)
-04. Shadows (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED6111EADC96F3863DA85978798128964B207BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756929   (103489) от 24.10.2024
-
-Gillian Welch & David Rawlings - Woodland (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Folk, Blues, Americana>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empty Trainload Of Sky (3:25)
-02. What We Had (3:59)
-03. Lawman (4:32)
-04. The Bells And The Birds (3:14)(   Читать дальше...   )Жанр: Folk, Blues, AmericanaПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C23DE161E88A2CDFC4C1188DA1290BEE2836FA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

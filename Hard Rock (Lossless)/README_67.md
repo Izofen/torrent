@@ -1,3 +1,32 @@
+###  Публикация: 1624764   (244853) от 08.04.2023
+
+Viva - Das ist die Wahrheit (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Punk Rock, Deutschrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alles wird gut [00:03:32]
+02. Die Wahrheit über uns [00:03:08]
+03. Wir sind unser Ziel [00:03:44]
+04. Immer erst am Anfang [00:03:48](   Читать дальше...   )Жанр: Hard Rock, Melodic Punk Rock, DeutschrockПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A59A1D6585900A1875FE67C36C6542E48FE9CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530827   (244667) от 12.02.2022
 
 Degreed - Are You Ready (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -717,35 +746,6 @@ Warrant - Dog Eat Dog (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA9A07ACCCE96E02AAD33D4A990B9BC081E80B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627035   (243310) от 17.04.2023
-
-L.A.Guns - Black Diamonds (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американцы L.A. Guns объявили о выпуске своего последнего студийного альбома Black Diamonds, вышедшем на лейбле Frontiers. Альбом, спродюсированный одним из основателей и гитаристом Tracii Guns, представляет собой проявление силы рок-н-ролла и демонстрация мастерства, которого фэны ожидают от давних хард-рокеров. Написанный и записанный в течение 2022 года, Black (   Читать дальше...   )01. You Betray (3:30)
-02. Wrong About You (3:21)
-03. Diamonds (5:19)
-04. Babylon (3:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1F3BE35372A56752916CA8D43BEFB0B986B76B
 ```
 
 https://mybot314.ru/tekegram_catalog/

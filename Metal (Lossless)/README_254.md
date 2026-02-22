@@ -1,3 +1,264 @@
+###  Публикация: 1647856   (231349) от 21.07.2023
+
+Witchmaster - Witchmaster (2004) [FLAC|Lossless|image + .cue] <Black, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Stop the Madness
+02. The Eyes of Darkness Are Mirror of Cave
+03. Narkotic Amok
+04. Spiral(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:24.58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752AB6C38D5195945EBFD67EF7A6E9368798FC81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647894   (231341) от 21.07.2023
+
+World End Man - Suffer Leader (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Splitter (02:08)
+02. Dance Under the Noose (02:05)
+03. Breathless (02:18)
+04. Never Learn (02:27)(   Читать дальше...   )Жанр: Death Metal, HardcoreПродолжительность: 00:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B21840B8EEB0756851006DE6FE1076EDBEAB783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649044   (231331) от 26.07.2023
+
+Grip - Solstici (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roots [00:06:07]
+02. Pirene [00:06:40]
+03. Aloja [00:07:17]
+04. Tretze Vents [00:07:42](   Читать дальше...   )Жанр: Doom, Stoner MetalПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6234BB78A279C40E3FBE2FD6418168E5B4700D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648298   (231324) от 23.07.2023
+
+Cavalera Conspiracy - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morbid Visions (Re-Recorded) [00:03:37]
+02. Mayhem (Re-Recorded) [00:03:05]
+03. Troops Of Doom (Re-Recorded) [00:03:39]
+04. War (Re-Recorded) [00:04:55](   Читать дальше...   )Жанр: Groove Thrash MetalПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF58E9DE82946672492F3B4218C2A98E29A3BAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648305   (231311) от 23.07.2023
+
+Velvet Viper - Nothing Compares To Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Compares To Metal [00:06:14]
+02. Invisible Danger [00:05:27]
+03. Urd Wardande Skula [00:07:05]
+04. Blood On The Moon [00:05:57](   Читать дальше...   )Жанр: Power, Heavy MetalПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DD0439E3D444F3AC66EC3AB92D11C6A7D340A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648585   (231293) от 23.07.2023
+
+Mark7 - Clockwork Century (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thoughts of an Unruly Mind (remastered 2023)
+02. Chosen
+03. Escape (remastered 2023)
+04. Planetary Migration (remastered 2023)(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE14396DBF32BA833C9FD789BB6956DA8D840C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649024   (231290) от 26.07.2023
+
+Emerald Sun - Kingdom of Gods (2022) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Book Of Genesis
+02. Heroes On The Rise
+03. Hellbound
+04. Legions Of Doom(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB858507E33680ABCCB48820D3E988F7C022E458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649171   (231284) от 26.07.2023
+
+False Memories - Live Until the Twiligh (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Deep Breath (05:29)
+02 - Rain of Souls (04:41)
+03 - The Illusionist (04:29)
+04 - Black Shades (04:42)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E57F93971F361A46C39FD9A98294FDD71F454F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648353   (231270) от 23.07.2023
+
+Carnal Agony - Back from the Grave (2020) [FLAC|Lossless|image + .cue] <Power, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rebirth
+02. Back From The Grave
+03. The Cellardoor
+04. The Witching Hour(   Читать дальше...   )Жанр: Power, Thrash MetalПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE41F898964ECEB9D73C75518E18D4BDFF71B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530147   (231248) от 04.06.2022
 
 Korn - Сollection (1994-2022) 23 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Nu Metal>
@@ -484,273 +745,6 @@ Damnatory - The Complete Disgoregraphy 1991-2003 (2018) Compilation [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BED6873AB2AB702D592C978EDFC780AA0CBE7131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648454   (231087) от 23.07.2023
-
-Ornamentos Del Miedo - El Cosmos Me Observa En Silencio (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231087.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sombra agonizante (08:25)
-2. Vida es violencia (13:53)
-3. Infierno sutil (11:12)
-4. El cosmos me observa en silencio (15:40)(   Читать дальше...   )Жанр: Atmospheric Funeral Doom MetalПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B35A2E9A1013DE54D8F429C1DC2B5D8C06285B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649363   (231070) от 27.07.2023
-
-Hænesy (Haenesy) - Garabontzia (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fate of the Depth (08:17)
-02. Sinking Deep for a Hidden God (06:08)
-03. Path to the Weeping Hollow (05:30)
-04. Létrontás (04:53)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091050EF835A771481AA2252991BC3AB7494DC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649314   (231062) от 27.07.2023
-
-Gardenian - Sindustries (2000) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Selfproclaimed Messiah
-02. Doom & Gloom
-03. Long Snap to Zero
-04. Courageous(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D68CA4FB111F23B54AA8939BD5AC72825119175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648790   (231052) от 25.07.2023
-
-Desolator - Sermon of Apathy (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Portal Tomb
-02. Adversarial Doctrine
-03. Creatures of Habit
-04. Methods of Self-Deception(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A492C84CA91A19E48400C9C70F610DD361E107E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649248   (231048) от 27.07.2023
-
-Gardenian - Two Feet Stand (1997) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Feet Stand
-02. Flipside of Reality
-03. The Downfall
-04. Awake of Abuse(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECEAEF4FDA9083BF4BC37BC24CBEB2513389C092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648786   (231046) от 25.07.2023
-
-Desolator - Unearthly Monument (2013) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thy Flesh Consumed (04:45)
-02. Desolated (02:48)
-03. Gravefeast (03:47)
-04. Mass Human Pyre (04:24)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91134EAD6FBF97277F7CD65D748764EDECACB37F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649228   (231041) от 27.07.2023
-
-Cavern Deep - 3 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Cavern Deep
-2023 - Breach, Pt. II
-2023 - Skeletal WastesЖанр: Doom MetalПродолжительность: 3 CD, 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD286E2999844FEBC5875CF83B2F748E49DF507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648762   (231039) от 25.07.2023
-
-Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Adolescence
-02. Virgin Flesh
-03. The Damned
-04. Bleeding the Bled(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECB9A78D1BB811767DC6F93171FBF114C0AAA53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681706   (231037) от 05.06.2022
-
-Helloween - Keeper Of The Seven Keys Parts I & II (2010) Remastered, Deluxe Expanded Edition [FLAC|Lossless]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Invitation - 1:09
-02. Eagle Fly Free - 5:11
-03. You Always Walk Alone - 5:11
-04. Rise And Fall - 4:23
-05. Dr. Stein - 5:06
-06. We Got The Right - 5:09
-07. March Of Time - 5:16
-08. I Want Out - 4:42
-09. Keeper Of The Seven Keys - 13:38
-10. Save Us - 5:15(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7501163D7CC1C6BFF013EEE28C6CA76650041D5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

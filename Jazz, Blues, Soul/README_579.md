@@ -1,3 +1,35 @@
+###  Публикация: 460927   (95066) от 02.03.2012
+
+Alvin Queen - Jammin' Uptown (2008) [FLAC|Lossless]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Europia
+02. Jammin' Uptown
+03. After Liberation
+04. Mind Wine
+05. Hear Me Drummin'
+06. Resolution of Love
+07. Hassan2008Жанр: Mainstream JazzПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460328   (95041) от 01.03.2012
 
 Kinny - Can't Kill A Dame With Soul (2012) [MP3|320 кб/с]<Downtempo, Nu Jazz, Nu Soul, Nu Funk>
@@ -840,40 +872,6 @@ The 335 Experience - Croydon Bluegie (2011) [MP3|320 kbps]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BEB1A5FDA68125DB7593765C0E1BEDBE1F8FA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453718   (93763) от 18.02.2012
-
-Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Rain (7:38)
-02. Blue Moon (9:55)
-03. Gypsy (5:14)
-04. Invitation (13:13)
-05. I Remember Italy (13:08)
-06. Laura (6:30)
-07. Morning Mist (8:20)
-08. This is the Life (7:09)
-09. Woody'n You (4:57)2012Жанр: Post-Bop, Piano JazzПродолжительность: 01:16:02
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

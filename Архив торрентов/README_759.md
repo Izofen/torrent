@@ -1,3 +1,32 @@
+###  Публикация: 979733   (953066) от 31.01.2016
+
+Northern Lite - Letters & Signs (Part One) (2009) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Letters & Signs [3:02]
+ 02. The Sick Rose [3:28]
+ 03. The Land of Dreams [5:05]
+ 04. Gimme Your Number [3:42](   Читать дальше...   )Жанр: Synthpop, Rock, ElectronicПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA107FCC6DEF4974EF7BCDEBF9AD4BC48C6FF2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979796   (953051) от 31.01.2016
 
 Northern Lite - Small Chamber Works (2000) Reissue, 2008, 1st Decade Records [FLAC|Lossless|image + .cue] <Synthpop>
@@ -686,35 +715,6 @@ VA - Hospitality (2016) [MP3|320 кб/с] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C699AD3C745A69526AE198CDB7F5FDEA65105FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981471   (952614) от 31.01.2016
-
-VA - A State Of Trance Year Mix 2015 (Mixed By Armin Van Buuren) (2015) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952614.jpg" />
-</div>
-
-
-###  Подробнее
-
-В двенадцатый раз Armin Van Buuren публикует свой итоговый микс года. У вас есть возможность ещё раз погрузиться в эту сотню треков и вместе с миллионами таких же любителей наслаждаться ощущением покидающего вас разума. Подобранные треки, которые по сути сформировали всё трансовое поле года, вызывают совершенно реальное погружение в транс. Year Mix 2015 ретроспективно (   Читать дальше...   )01. Armin van Buuren - A State Of Trance Year Mix 2015 - The Talk Up Hour On WWKDASOTWKZZ FM (Intro)  (2:42)
-02. Luke Bond & Omnia - Reflex (Radio Edit)  (2:50)
-03. Cosmic Gate with Emma Hewitt - Going Home (Gareth Emery Radio Edit)  (3:09)
-04. Ilan Bluestone - 43 (Radio Edit)  (3:58)(   Читать дальше...   )Тип издания: WEB-DLРелиз состоялся: December 18th, 2015Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 08:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5CA7F0308F6E237FF4DA1179092B18BB4A7491
 ```
 
 https://mybot314.ru/tekegram_catalog/

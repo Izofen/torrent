@@ -1,3 +1,35 @@
+###  Публикация: 302371   (868919) от 28.02.2011
+
+Perkins Animated 3D Diesel Engine Screensaver 2007 [Eng]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Скринсейвер демонстрирует процесс сборки дизельного двигателя!
+
+One of the biggest draws to my blog site has been the Deutz Screensaver which shows the construction and operation of a car motor engine. I posted the animation because of the educational benefit it brought to the Scouts who were learning all about car engines. In fact, we stripped down a car engine to its component parts. What we weren't able to show was how the engine operated, which is where the screensaver did it so wonderfully well.
+
+Thanks to Yoseph Santoz, a reader of this blog, he pointed me to another screensaver which shows the construction and working of a Diesel Engine. Rather than using drawn artwork, this screensaver appears to be using 3D representations of the actual parts. It's amazing. Thanks Yoseph!
+
+This version is compatible with Windows only, although there is an mpg movie contained within the zip archive for playback using QuickTime on a Macintosh or Windows PC.Язык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 302308   (868918) от 28.02.2011
 
 Сфера / Sphere (1998) [1080p] BDRemux
@@ -684,32 +716,6 @@ VA - Psychedelic Selections Vol 005 (2020) [MP3|320 Kbps] <Psytrance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91573EA6F6FD3D54F99CA918BE5B2A4499CFE22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766614   (868816) от 15.03.2014
-
-Benvista PhotoZoom Pro 5.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-PhotoZoom Professional - программа является лучшей из имеющихся технологий для увеличения цифровых фотографий! Фирменная технология масштабирования S-Spline, используемая в PhotoZoom Professional, основана на запатентованной адаптивной методике, которую можно отнести к категории революционных. Сохраните качество Ваших снимков! Теперь Вы сможете увеличивать Ваши фотографии не переживая о потере качества. PhotoZoom Professional - это крайне необходимая программа для увеличения цифровых изображений, используемых для DTP, Internet и цифрового фото. Программа имеет мультиязычный интерфейс, включая Русский.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E337B703C702CF48643E1525F4C15E2075A99FB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

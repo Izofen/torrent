@@ -1,3 +1,35 @@
+###  Публикация: 1328162   (365372) от 29.09.2019
+
+The Beatles - White Album De-Noised From Demos & Takes 2CD (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-01 - Back In The U.S.S.R. (Esher Demo) (03:00)
+01-02 - Dear Prudence (04:46)
+01-03 - Glass Onion (Esher Demo) (01:56)
+01-04 - Ob-La-Di, Ob-La-Da (Esher Demo) (03:11)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:41:19
+02-01 - Birthday (2018 Stereo Mix) (02:42)
+02-02 - Yer Blues (Esher Demo) (03:30)
+02-03 - Mother Nature's Son (Take 15) (02:29)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6741F49A89C67679022B3444E8B3A450E596722D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 423341   (365335) от 28.10.2015
 
 VA - Metal Compilation - Best (2011) [MP3|128-320 kbps]<Symphonic, Black, Gothic, Power, Folk, Doom Metal, Rock>
@@ -712,35 +744,6 @@ Motley Crue это целая эпоха в мире музыки. В сборн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3211D8E6A1F0F029ECE328703A0280DC7BCFFD48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578228   (347753) от 22.09.2022
-
-VA - Hammond Organ for the Soul (2022) 2CD [MP3|320 Kbps] <Rock, Hammond>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Georges Arvanitas - Moanin' [04:43]
-02. Deep Purple - Lazy (Live; 1998 Remaster) [10:27]
-03. Uriah Heep - Circle of Hands (2017 Remastered) [06:27]
-04. Emerson, Lake & Palmer - Fanfare For The Common Man (Original 1977 Recording) [09:47](   Читать дальше...   )Жанр: Rock, HammondПродолжительность: 08:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D58DCDAEA819B627B2447E2C0FF366E723578D
 ```
 
 https://mybot314.ru/tekegram_catalog/

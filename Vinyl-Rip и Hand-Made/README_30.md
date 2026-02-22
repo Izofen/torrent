@@ -1,3 +1,177 @@
+###  Публикация: 1410619   (433861) от 22.09.2020
+
+Puhdys - Far From Home (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433861.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Prison Walls Are Silent = Doch Die Gitter Schweigen
+A2 The Times I've Cried Over You = Nie Wieder Werd' Ich Weinen Um Dich
+A3 But Not For Ever = Bis Ans Ende Der Welt
+A4 Journey To The Centre Of The World = Reise Zum Mittelpunkt Der Erde(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C268CC30659A4323C4A5E5CB29BE7CE444C5829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410612   (433857) от 22.09.2020
+
+VA - Мы Друг Друга Нашли Песни на стихи В. Харитонова (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Soul, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433857.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ансамбль п/у А. Слизунова - Что Прошло, То Прошло
+A2 Ансамбль п/у А. Слизунова - Бывают В Мае Холода
+A3 Я. Йоала - Что-То Было
+A4 В. Дьяконов - День, В Котором Жил Я(   Читать дальше...   )Жанр: Pop Rock, Soul, SchlagerПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DB32256656BCB23CFB5E9AEC011DFAAE0C1A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410614   (433750) от 22.09.2020
+
+Wings - Venus And Mars (1994) Recorded 1975 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433750.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Venus And Mars
+A2 Rock Show
+A3 Love In Song
+A4 You Gave Me The Answer(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BDF5DC1E86CB1F425135296872F490FA1598BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959688   (433726) от 21.08.2022
+
+Helen Reddy - Free And Easy (1974) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433726.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Angie Baby
+A2	Raised On Rock
+A3	I've Been Wanting You So Long
+A4	You Have Lived(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A77064A5F4D73D15E37FC4A86E203D5B5C9E2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165600   (432118) от 13.09.2017
+
+VA - 80's Dance Classic (2001) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop Rock, Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Opus - Life Is Life
+02. Status Quo - You're In The Army Now
+03. Desireless - Voyage(   Читать дальше...   )Жанр: Pop Rock, Pop, DiscoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DC71C62A866B850A365E729AE0EBCDF881E4F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571469   (431689) от 22.08.2022
+
+Mustasch - Дискография (13 albums) (2001-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Stoner Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mustasch — шведская рок-группа. Сформирована осенью 1998 года Ральфом Джилленхаммаром, Ханнесом Ханссоном, Матсом Ханссоном и Стамом Йоханссоном в Гётеборге.2002 - Above All
+2003 - RatSafari
+2005 - Powerhouse
+2007 - Latest Version of the Truth(   Читать дальше...   )Жанр: Heavy Metal, Stoner MetalПродолжительность: 08:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A572D12A122F07EDC0FB74286296C4D97E3F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571456   (431679) от 22.08.2022
 
 Incubus - Дискография (11 albums) (1995-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Rock, Indie Rock>
@@ -571,180 +745,6 @@ Led Zeppelin - Led Zeppelin II (1969) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B4ADAF8FA9FC66C1424E026D030BD04EE0979ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065660   (416484) от 24.10.2016
-
-Зоопарк - Позавчера... и вчера - уездный город N (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Странные дни  2:54
-2. Если ты хочешь  2:48
-3. Дрянь  4:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B42223412DC3B121F461FD29E0A8AEBF1ACF7F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066043   (416172) от 24.10.2016
-
-The Rolling Stones - Emotional Rescue (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416172.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Dance (4:23)
-A2. Summer Romance (3:15)
-A3. Send It To Me (3:43)
-A4. Let Me Go (3:52)(   Читать дальше...   )Производство: Rolling Stones Records - ESS-81285Жанр: RockПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3750246EDB63CFBE915CF22E4B28727E61A0E093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573094   (414623) от 30.08.2022
-
-Chimaira - Studio Albums (1999 - 2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Groove/Nu-Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chimaira (kaɪˈmɪərə) — американская грув-метал группа из Кливленда, Огайо, существовавшая с 1998 по 2014 год. Являлась представителем Новой волны американского хеви-метала. Музыкальный стиль группы сочетает грув-метал с элементами металкора. Название группа взяла из греческого написания слова «химера» (Χίμαιρα), (   Читать дальше...   )1999 - This Present Darkness (EP)
-2001 - Pass Out Of Existence
-2003 - The Impossibility Of Reason
-2005 - ChimairaЖанр: Groove/Nu-Metal/MetalcoreПродолжительность: 08:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E93F0FDC99144E2A0CFE9E34A0F3F797E6DE39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412901   (413465) от 01.10.2020
-
-T.Rex - Electric Warrior (1971) 2020 [DSD 128|tracks|Vinyl-Rip] <Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mambo Sun (3:39)
- 02. Cosmic Dancer (4:31)
- 03. Jeepster (4:11)
- 04. Monolith (3:50)(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBDC4F8C6D58B0F07C260EC5A5D07E2AC791A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066900   (409401) от 27.10.2016
-
-The Beatles - Вкус мёда (1986) WavPack|192/32|tracks|Vinyl-Rip] <Beat, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. P.S. Я люблю тебя - P.S. I Love You  2:02
-02. Хочешь узнать тайну? - Do You Want To Know A Secret?  1:54
-03. Вкус мёда - A Taste Of Honey  2:00(   Читать дальше...   )Жанр: Beat, Rock & RollПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8016860C410274BB321059A7AAFF06967012F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948576   (408054) от 22.10.2015
-
-Оскар Питерсон и Каунт Бейси - Оскар Питерсон и Каунт Бейси (1982) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Булочки (Buns)  4:28
-2. Эти пустяки напоминают мне о тебе (These Foolish Things)  5:34
-3. RB  5:26(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BB934EC2AF75F7DBC56404EE85A75F7C9BD876
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -327,32 +327,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477199   (85890) от 02.04.2012
-
-Никита - Прости (Uncensored) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_85890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251B090A077C905DBAE2C9DCB85B3B530F7E0FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476649   (85784) от 01.04.2012
 
 Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
@@ -773,6 +747,35 @@ Bass player and founding member Steve Harris comments, For The Final Frontier To
 8. The Trooper
 9. The Wicker Man
 10. Blood Brothers(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:55:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473737   (84613) от 26.03.2012
+
+Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Iron Maiden 26 марта 2012 года выпустила концерт "En Vivo" в формате Blu-Ray, двойного DVD, а также саундтрека на CD. Шоу "En Vivo" было снято 10 апреля 2011 года в присутствии 50 тысяч восторженных фанатов на стадионе Estadio Nacional в Сантьяго (Чили) в рамках финальной части глобального тура The Final Frontier World Tour под названием (   Читать дальше...   )01. Satellite 15
+02. The Final Frontier
+03. El Dorado
+04. 2 Minutes To Midnight(   Читать дальше...   )Жанр: Heavy metal, concertПродолжительность: 01:55:10
 
 ## Скачать торент
 ```bash

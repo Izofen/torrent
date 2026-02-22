@@ -1,3 +1,32 @@
+###  Публикация: 1386452   (794553) от 29.05.2020
+
+Tony Bennett - Tony Bennett's Greatest Hits of the '50s (2006) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boulevard of Broken Dreams (Gigolo and Gigolette) [2:58]
+02. Because of You [2:59]
+03. Cold, Cold Heart [2:40]
+04. Blue Velvet [3:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18DA62FF37BD95868C605924B8EA4A35C5AEEB05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386367   (794477) от 29.05.2020
 
 Miles Davis - Birth Of The Cool (1957) Remastered 2001 [FLAC|Lossless|tracks] <Jazz>
@@ -715,35 +744,6 @@ Glenn Miller And The Army Air Force Band - Rare Broadcast: Performances from 194
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C337547A2C3C5D0D9BC600EDFD91D542B78A0B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387028   (792645) от 31.05.2020
-
-Wayne Shorter - The All Seeing Eye 1965 (1994) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The All Seeing Eye [10:33]
-02. Genesis [11:46]
-03. Chaos [6:58]
-04. Face of the Deep [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29B56EFD36DC21B0C27275C992E8C5871B8338B
 ```
 
 https://mybot314.ru/tekegram_catalog/

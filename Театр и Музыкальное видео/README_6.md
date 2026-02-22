@@ -1,3 +1,87 @@
+###  Публикация: 599355   (999338) от 06.01.2013
+
+AC/DC - Live at the Hippodrome Golders Green London (1977) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Зажигательное, живое выступление, еще молодых участников группы01.Let There Be Rock
+02.Problem Child
+03.Hell Ain`t A Bad Place To Be
+04.Whole Lotta Rosie
+05.Bad Boy Boogie
+06.Rocker
+07.T.N.T.Жанр: Концерт, RockПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DD90D32D85CD48645D40512CDB5E142ECC2D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599449   (999323) от 06.01.2013
+
+BAZUKA - Christmaz Bitchez (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отЖанр: House, ElectroПродолжительность: 00:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB805082B038CC709C10B92564052C8D76E2D99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599120   (999314) от 06.01.2013
+
+Ibiza vs. VDJ Rossonero - Happy New Year (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отЖанр: Club, House, DanceПродолжительность: 00:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C32BCDBB7493B94317AA898CA5BE18BF67CA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599450   (999303) от 06.01.2013
 
 Young Swift Feat. Young Jeezy - I Like (Uncensored)(2012) [H.264/720p] WEBRip
@@ -643,99 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F5D490A0612CC872EF13B93F28331426578557D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600438   (997981) от 11.01.2013
-
-Песня года 2012 (1 часть) (2013) 1080i HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997981.jpg" />
-</div>
-
-
-###  Подробнее
-
-На телеканале "Россия" - главный концерт страны! Участвуют все звезды! Концерт "Песня года" в Москве – это своеобразное подведение итогов. Каждый уходящий год – это отдельный музыкальный сезон, в котором были свои дебюты и свои провалы, взлеты и падения. По итогам каждого музыкального сезона звездное жюри отбирает лучшие композиции. Так "Песня (   Читать дальше...   )Жанр: Концерт, ТелепередачаПродолжительность: 02:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6E928CB67AF1EF9257958A0D28BD4C13A1252E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601784   (997944) от 11.01.2013
-
-Лучшие клипы для настроения / Best clips for mood [H.264] Mp4 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представляется лучшие клипы для поднятия настроения!01. Ace of Base - All That She Wants
-02. Bob Marley -  Could You Be Loved
-03. Modern Talking - Don't Take Away My Heart
-04. Rednex - Football is our Religion
-05. Bonnie Tyler - Holding Out For A Hero
-06. Sabrina - Boys boys boys
-07. Captain Jack - Get Up
-08. Rico Benrnasconi VS Vaya Con Dios - Nah Neh Nah
-09. C.C.Catch - Are You Man Enough
-10. Madonna - FrozenЖанр: Музыка, Pop, Dance, CountryПродолжительность: 01:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049BE239BC3E2AE86633151219B360FA6DDFE269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602095   (997817) от 12.01.2013
-
-Eloy - The Legacy Box DVD 1 (русские субтитры) (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997817.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом диске представлена 40 летняя история группы Eloy (с музыкальными фрагментами и русскими субтитрами!)01. Introduction
-02. The Beginning and First steps forward (1969-1975)
-03. Years of Success  (1976-1979)
-04. New Paths and old Values (1980-1984)
-05. From project to Band (1985-TODAY)
-06. Credits
-07. Picture GalleryЖанр: Музыка, Progressive rockПродолжительность: 01:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F816B63FE659B7BEAC4D7C669CED1B31A4C94A45
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1403125   (694268) от 18.08.2020
+
+Серия Кубков NASCAR-2020. Дайтона Дорожный Курс 235 / NASCAR Cup Series 2020. GoBowling 235, Daytona International Speedway Road Course (2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694268.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 этап Nascar Cup Series, GoBowling 235, Daytona International Speedway Road Course (65 Laps, 231 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 03:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6770AFD6E43969B358424F19BC3CA543B4F480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403210   (694260) от 18.08.2020
 
 Autorun Organizer 4.43 [Ru/En]
@@ -658,32 +684,6 @@ AIMP – проигрыватель, включающий в себя множе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBF391878F2876ED8C7F0F8F386D40937DA847AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534601   (694134) от 02.03.2022
-
-jv16 PowerTools 7.3.1.1372 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694134.jpg" />
-</div>
-
-
-###  Подробнее
-
-jv16 PowerTools - достаточно мощный набор утилит, позволяющий наблюдать, очищать и контролировать системный реестр, файловую систему и локальную сеть. Объединяет в себе 24 отдельных компонента с различной функциональностью под конкретные задачи.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7570C1A18417EADC4E6623AE5483A77C5EFA3D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

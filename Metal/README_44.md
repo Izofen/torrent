@@ -1,3 +1,32 @@
+###  Публикация: 1277854   (775099) от 22.01.2019
+
+Helevorn - Aamamata (2019) [MP3|320 Kbps] <Gothic Metal, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sail to Sanity
+02. Goodbye, Hope
+03. Blackened Waves
+04. Aurora(   Читать дальше...   )Жанр: Gothic Metal, DoomПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E0CFDC221B01192055767B484162AEBE958B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015241   (775076) от 10.05.2016
 
 Unhoped - Sonic Violence (2016) [MP3|320 кб/с] <Thrash Metal>
@@ -713,35 +742,6 @@ Trollfest - Norwegian Fairytales (2019) [MP3|320 Kbps] <Folk Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABAC3BFF50EFA18148B3AFAE75404391E8A19733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278894   (767778) от 27.01.2019
-
-Cecile Monique - Genesis (2018) [MP3|320 Kbps] <Gothic Rock, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767778.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:51] 1 - Overture (Sicut Erat)
-[04:22] 2 - Genesis
-[04:06] 3 - Heat
-[03:19] 4 - Break(   Читать дальше...   )Жанр: Gothic Rock, Symphonic MetalПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611AD2735D8B78BC64E132DA620B5108FC83851E
 ```
 
 https://mybot314.ru/tekegram_catalog/

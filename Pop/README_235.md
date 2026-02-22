@@ -1,3 +1,96 @@
+###  Публикация: 1331634   (322938) от 16.10.2019
+
+Frankie Valli - 6 Albums (1975-1980) LP [MP3|320 Kbps] <Funk Soul, Pop Rock, Vocal, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнки Валли - наст. имя Francesco Stephen Castelluccio. Американский певец, наиболее известный как фронтмен вокальной поп-группы The Four Seasons и обладатель мощного фальцета. Диапазон голоса Валли - три с половиной октавы. На фальцет со своего «природного» баритона он может переходить без обычного для певцов фальцетом разрыва. В середине 1960-х, оставаясь участником (   Читать дальше...   )Список альбомов:
+1975 - Closeup
+1975 - Our Day Will Come
+1976 - Valli(   Читать дальше...   )Жанр: Funk Soul, Pop Rock, Vocal, DiscoПродолжительность: 03:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02CB54DCE09E04A9F04E68906746AE2814B9EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581249   (322762) от 28.11.2012
+
+Tiziano Ferro - Lamore E Una Cosa Semplice (Special Edition 2CD) (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hai delle isole negli occhi (03:58)
+ 02. L'amore e una cosa semplice (04:02)
+ 03. La differenza tra me e te (03:53)
+ 04. La fine (03:45)
+ 05. Smeraldo (03:11)
+ 06. Interludio: 10.000 scuse (02:29)
+ 07. L'ultima notte al mondo (03:53)
+ 08. Paura non ho (03:03)
+ 09. TVM (04:12)
+ 10. Troppo buono (04:30)(   Читать дальше...   )Жанр: PopПродолжительность: (00:55:30)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A76D8DBC2FD92F9532947049907B98193CAAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331666   (322364) от 16.10.2019
+
+Angeleyes - ABBAdance (1999) [APE|Lossless|image + .cue] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.O.S. (3:13)
+02. Dancing Queen (3:11)
+03. Gimme! Gimme! Gimme! (A Man After Midnight) (4:05)
+04. One Of Us (3:58)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C7DE307D29E1752195EFF9F5C3F1082DC4B2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421208   (322214) от 03.11.2020
 
 VA - DMC - Cool Grooves 56 (2019) [MP3|320 Kbps] <Electronic, Hip Hop, Funk / Soul, Pop>
@@ -677,93 +770,6 @@ VA - Musicland - The Sound Of Munich (1978) LP [MP3|320 Kbps] <Electronic, Funk 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA775FC39504D27AC624F777D1E5D942F5279310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332003   (318503) от 18.10.2019
-
-Syncophonic Orchestra - Columbia - A Space Symphony (1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автором и продюсером проекта является Alec R. Costandinos, выпустивший диск под псевдонимом A. Kouyoumdjian.01. Ignition (1:41)
-02. A Theme For Columbia (3:35)
-03. Tomorrow Starts Today (3:26)
-04. The Conquest (4:43)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134A74E74F0CD7C1DA593B503EA581BBCC193CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075848   (318379) от 23.11.2016
-
-VA - NOW That's What I Call Music! 95 (2016) [MP3|320 Kbps] <Top 40, Pop Compilation, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318379.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. James Arthur - Say You Won't Let Go  (3:33)
-02. Little Mix - Shout Out To My Ex  (3:47)
-03. Clean Bandit Feat. Sean Paul & Anne-Marie - Rockabye  (4:12)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, ElectronicПродолжительность: 02:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534C1432BD4E373059375EB75E322EB976C65EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331936   (318360) от 18.10.2019
-
-VA - 100 Greatest Xmas Top Christmas Classics (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pogues, Kirsty Maccoll - Fairytale Of New York (Feat. Kirsty Maccoll) 4:32
-02. Chris Rea - Driving Home For Christmas 3:59
-03. Wizzard - I Wish It Could Be Christmas Everyday (2006 Remaster) 4:50
-04. Kylie Minogue - At Christmas 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9131703636CB094B6FFB789578DE708B44461ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

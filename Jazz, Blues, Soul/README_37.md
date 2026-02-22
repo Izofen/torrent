@@ -1,3 +1,90 @@
+###  Публикация: 1473428   (1013723) от 29.05.2021
+
+Andy LaVerne - Rhapsody (2021) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waltz For Debby [9:14]
+02. Retroactive [6:36]
+03. My Foolish Heart [8:48]
+04. Autumn Leaves [5:42](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEC6BFA0F713022FE47568483E15B16D8774F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473418   (1013679) от 29.05.2021
+
+Rosalie Drysdale - Mumbo Jumbo (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mumbo Jumbo (4:02)
+02. One More Chance (4:50)
+03. Kiss You Goodbye (4:24)
+04. Blurry in the Rain (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B03CAA3D3B9F2511F65374FC91D224B2BD6D220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473422   (1013654) от 29.05.2021
+
+Tommy Z - Plug in and Play (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pumpin' (Let's Have Fun) (5:35)
+02. Tommy Guns (4:22)
+03. My Alarm Clock (4:08)
+04. Please Come Back to Me (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6319B2DD8E5BA9E9B461F9C2C719783D1BA3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473636   (1013569) от 30.05.2021
 
 David Kikoski With Boris Kozlov - Sure Thing (2021) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -656,93 +743,6 @@ Chico Hamilton - Believe (2006) Joyous Shout! [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:374CCBC6FDA35072E2C5F2AEDD7FE9BCD34625EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475929   (1012025) от 09.06.2021
-
-Rodney Whitaker - Outrospection: The Music of Gregg Hill (2021) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outrospection [6:28]
-02. New Sunday [4:12]
-03. Dollah Hollah [3:31]
-04. Bridge to Nashua [7:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10867BA08B170D02C662AF5440AAD166986CE68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476204   (1011854) от 10.06.2021
-
-Ella Fitzgerald - Best Of The BBC Vaults (1940 - 1949) 1992, LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lady Is a Tramp [4:46]
-02. Mack the Knife [4:05]
-03. Manhattan [3:14]
-04. Ev'ry Time We Say Goodbye [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77126BC2482F19407E4117A14AE714A39E96977B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476207   (1011853) от 10.06.2021
-
-Ella Fitzgerald - Sing Song Swing (1940 - 1949) 1992, LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Home [4:30]
-02. Mister Paganini (Swings for Me) [4:19]
-03. How High the Moon [3:35]
-04. Old Mother Hubbard [1:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB665C82BF8B96DE9F3CDBFD57705E6D7D59E40D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1023997   (720303) от 07.06.2016
+
+John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalypse (03:43)
+02. The Transference (03:50)
+03. Pyramid Collapse / Main Titles (02:25)
+04. Eric's New Life (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0357E92259386C875748C50A943E4B6026C136A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024000   (720182) от 07.06.2016
 
 John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -715,35 +744,6 @@ Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Or
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9649590417B07F47C6DE54738E2BF645B9DE4111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024500   (717916) от 08.06.2016
-
-VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teamheadkick - Merc with a Mouth (03:47)
-02. Junkie XL - Fear the T-Rex (02:55)
-03. Junkie XL - Because I Want To (01:01)
-04. The Chordettes - Mister Sandman (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0882EFB38857A41C2527E4357123E542D32748BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

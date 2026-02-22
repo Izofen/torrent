@@ -1,3 +1,36 @@
+###  Публикация: 605309   (995927) от 19.01.2013
+
+Markus Schulz - Global DJ Broadcast (17-01-2013) [MP3|256 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lange - Hold That Sucker Down (Intro Mix)
+ 02. Ferry Corsten - Kudawudashuda
+ 03. Aerofoil vs. E&G - One Word (Markus Schulz Big Room Reconstruction)
+ 04. Markus Schulz Featuring Ana Diaz - Nothing Without Me (Markus Schulz Return to Coldharbour Remix)
+ 05. Gal Abutbul & Sigal Cohen - Patana (Tucandeo Remix)
+ 06. Lana Del Rey - Summertime Sadness (Cedric Gervais Remix)
+ 07. SkyKeeper - Tornado 2013 (Reload Mix)
+ 08. DNS Project - ShatterЖанр: TranceПродолжительность: 01:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F659797979F8DD5BEBEE190584933AEDC5B3DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605529   (995926) от 19.01.2013
 
 [Wallpapers] vodopad
@@ -720,32 +753,6 @@ CrystalDiskInfo следит за «здоровьем» жестких диск
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605544   (995892) от 19.01.2013
-
-Журнал | Вышиваю крестиком № 2(103) [февраль 2013] [JPEG]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите внести новые краски в картину своей жизни, ищете душевного покоя и мечтаете о творчестве - читайте самый популярный в Европе журнал о вышивке крестиком - инновационное в России издание о рукоделии - журнал Вышиваю Крестиком!Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B61F29B64D49806599DB6D3C3E4066AD2E3B39
 ```
 
 https://mybot314.ru/tekegram_catalog/

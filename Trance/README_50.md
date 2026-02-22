@@ -1,3 +1,32 @@
+###  Публикация: 1666895   (177464) от 07.10.2023
+
+VA - Trance 2023 Vol.9 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stoneface & Terminal - Lost (Ciaran McAuley Remix) (3:20)
+02. Allen Watts - Spectral (2:57)
+03. Aly & Fila - Eye Of The Storm (4:41)
+04. Thirdwave - Love Is The Answer (3:56)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07907D63B3C5C3C9811F490FA383743A7C8C2F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595009   (176776) от 03.12.2022
 
 VA - The Best Of Suanda Voice 2022 [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - EDM Rave 2020 Electronic Dance Trance Dubstep Techno House (2019) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7A0E76E005CEC01DE6392B05A1551288B450133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596855   (168060) от 12.12.2022
-
-VA - A State Of Trance Year Mix 2022 - Selected by Armin van Buuren (2022) [MP3|320 Kbps] <Trance, Progressive, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168060.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hardwell - INTO THE UNKNOWN (Extended Mix) (6:05)
-002. Gareth Emery & Omnia - Unity (Extended Mix) (5:05)
-003. Armin van Buuren & Florentin feat. Jordan Grace - Echoes (Extended Mix) (5:41)
-004. Armin van Buuren & Sam Gray - Human Touch (Extended Club Mix) (4:13)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 10:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A8519DC07908B01F1E06EA6D04414DB3A9CD15
 ```
 
 https://mybot314.ru/tekegram_catalog/

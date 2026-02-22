@@ -1,3 +1,90 @@
+###  Публикация: 979295   (959784) от 26.01.2016
+
+George Thorogood & The Destroyers - 2120 South Michigan Ave. (2011) [MP3|320 кб/с] <Blues Rock, Rockabilly>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Back (03:25)
+02. Hi-Heel Sneakers (03:30)
+03. Seventh Son (03:07)
+04. Spoonful (04:14)(   Читать дальше...   )Жанр: Blues Rock, RockabillyПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21C1BCED61C500A49393303999E0A3F879D0AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360669   (959480) от 16.02.2020
+
+Ted Curson - Pop Wine 1971 (2013) Futura Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quartier Latin [13:18]
+02. Flip Top [6:33]
+03. Pop Wine [5:09]
+04. L.S.D. Takes A Holiday [12:43](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7195223FA199EC4C29DBECEE800C5F89F8D0ECA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978956   (959439) от 26.01.2016
+
+VA - Ken Burns Jazz: The Story of American Music (22 CD) (2000) [MP3|320 кб/с] <Hard Bop, Big Band, Vocal Jazz, Swing, Avant-Garde Jazz, Saxophone Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Blakey
+ Benny Goodman
+ Billie Holiday
+ Charles Mingus(   Читать дальше...   )Жанр: Hard Bop, Big Band, Vocal Jazz, Swing, Avant-Garde Jazz, Saxophone JazzПродолжительность: 26:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77DB5DA749D22BA542375AE381F21641A3F0492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 622844   (959014) от 23.02.2013
 
 Paul Hardcastle - Hardcastle VII (2013) [FLAC|Lossless]<Nu Jazz, Lounge, Chillout>
@@ -654,93 +741,6 @@ Sam Rivers Quartet - Lazuli (1989) Remaster, 2015, Solid Records[FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:270750C064CC2B2342715B9616C3ABFCC2D9E962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088798   (955161) от 01.01.2017
-
-Erroll Garner - The Complete Concert By The Sea (1955) 3CD, 2015, Legacy[FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955161.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Как пианист Эррол был неподражаем. Многие пианисты пытались копировать его игру, но вряд ли кому это удавалось. Дар этот, посланный свыше, был предназначен ему одному. Чтобы не вдаваться в излишние детали, скажу только, что тайна его гениальности заключена в невероятном чувстве ритма, и в этом он превосходил практически всех музыкантов, независимо от инструмента. (   Читать дальше...   )CD1:
-01.Announcer: Jimmy Lyons [00:38]
-02.Night and Day [05:05]
-03.Spring Is Here [05:14](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Swing, Piano JazzПродолжительность: 02:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7C69771F500E5C49686525F156D21FFFA8A3C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980864   (954779) от 30.01.2016
-
-David Benoit - Conversation (2012) [MP3|320 кб/с] <General Jazz,Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Napa Crossroads Overture 03:48
-02. Feelin' It 03:57
-03. Diary Of A Wimpy Kid 03:08
-04. Kei's Song Redux 04:50(   Читать дальше...   )Жанр: General Jazz, Piano JazzПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A648662574041EB75350F3350CB632D21E8366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980976   (954629) от 30.01.2016
-
-VA - Tanzen Verboten (2016) [MP3|320 кб/с] <Swing, Electro Swing, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mano Meter - Puppet on a String (04:13)
-02. Indy Lopez - Dom Dom Dom 2015 (Rework Mix) (06:46)
-03. Swing Tanzen Verboten - Lass mich dein Badewasser schlurfen (03:04)
-04. Avelino - Monday Morning (04:43)(   Читать дальше...   )Производство: Mystical Wings AudioЖанр: Swing, Electro Swing, ElectronicПродолжительность: 01:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C7EF1E46979B973F7D1CA8F62650CBFDAE8608
 ```
 
 https://mybot314.ru/tekegram_catalog/

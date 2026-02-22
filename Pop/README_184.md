@@ -1,3 +1,117 @@
+###  Публикация: 1242616   (513997) от 23.08.2018
+
+Chris de Burgh - Far Beyond These Castle Walls (1975) Reissue, 1987 [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On (4:07)
+ 02. Key (4:09)
+ 03. Windy Night (4:55)
+ 04. Sin City (4:42)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE69308E76A90D41EF21CB89F8F11C5C5E66F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242619   (513991) от 23.08.2018
+
+Chris de Burgh - At the End of a Perfect Day (1997) Reissue, 1988 [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken wings (3:10)
+ 02. Round and around (3:07)
+ 03. I will (3:31)
+ 04. Summer rain (4:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C83AE2E9D3BA002F546EDF19582B74B59BA4EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242598   (513987) от 23.08.2018
+
+Eros Ramazzotti - Stilelibero (2000) Europe [FLAC|Lossless|image + .cue] <Rock, Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Ombra Del Gigante           (4:42)
+02. Fuoco Nel Fuoco               (4:02)
+03. Lo Spirito Degli Alberi       (4:11)
+04. Un Angelo Non E               (4:38)(   Читать дальше...   )Жанр: Rock, Latin, PopПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779CC0D63630EC4323DA394BD25509A1DB712DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242623   (513986) от 23.08.2018
+
+Levina - Perfect Life (2017) CDS, Single [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Life (3:05)
+ 02. Wildfire (3:10)Жанр: PopПродолжительность: 00:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455C906E1A938FAD58524F481722B52B7F937B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315447   (513900) от 19.07.2019
 
 Peter Thomas Orchestra - In Discoland (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
@@ -653,131 +767,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F0427AE1F6D6A32C51CC232297A56B06CA8E90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315910   (510898) от 22.07.2019
-
-F.R. David - The Best Of (2002) [FLAC|Lossless|image + .cue] <Electronic, Italo-Disco, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Words (03:26)
-02. Pick Up The Phone (03:10)
-03. Girl (You Are My Song) (03:40)
-04. Take Me Back (03:06)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-pop, DiscoПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DF2B3DCE4750B7AC3EF1F7E2222E169D04827A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537721   (510318) от 22.08.2012
-
-Bad Boys Blue - 25 Best Songs (2012) [MP3|320 кб/с]<Euro Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Woman 1985
-02. Pretty Young Girl 1985
-03. I Wanna Hear Your Heartbeat (Sunday Girl) 1986
-04. One Night In Heaven 1986
-05. Kisses & Tears (My One And Only) 1986
-06. Come Back And Stay 1987
-07. Gimme Gimme Your Lovin (Little Lady) 1987
-08. Kiss You All Over, Baby (New Version) 1987
-09. A World Without You (Michelle) (Radio Edit) 1988
-10. Lovers In The Sand 1988(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 01:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B052BD410D911AB37785CFD4B3C6FD4D0FAA1629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537729   (510236) от 22.08.2012
-
-Lara Fabian - Greatest Hits (2010) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc-1Жанр: PopПродолжительность: 01:19:54
-01. Russian fairy tale (4:04)
-02. Il ne manquait que toi (4:32)
-03. Aimer dejа (4:07)
-04. Je t'aime (4:21)
-05. Soleil soleil (3:56)
-06. L'homme qui n'avait pas de maison (4:22)
-07. Dites moi pourquoi je l'aime (4:57)
-08. Мама моя (4:22)
-09. I guess i loved you (3:35)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E119A07109631EFFEB2BA4A82DDAF030B57636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376342   (510201) от 17.08.2011
-
-Кай Метов - 7 альбомов (1994-2009) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

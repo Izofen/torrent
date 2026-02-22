@@ -1,3 +1,90 @@
+###  Публикация: 1063407   (435380) от 16.10.2016
+
+Larry Coryell - Barefoot Man: Sanpaku (2016) Purple Pyramid[FLAC|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sanpaku [10:42]
+ 02.Back To The Russia [06:16]
+ 03.If Miles Were Here [07:02]
+ 04.Improv On 97 [05:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEA5CA9F36505BA3FE85936205334DD298F35B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063253   (435372) от 16.10.2016
+
+Marc Antoine - Laguna Beach (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Not (featuring Philippe Saisse)
+ 02. This And That (featuring Paul Brown)
+ 03. Laguna Beach
+ 04. Deixa (featuring Tim Welvaars)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B8418899B6D1390E919C70383E287E43E4C7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063432   (435352) от 16.10.2016
+
+Joanna Connor - Believe It! (1989) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Texas Flyer   (03:23)
+02. He's Mine   (03:55)
+03. Doctor Feelgood   (05:06)
+04. I'm Satisfied   (03:33)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3009B55696452561421741C1CEDE2F1B3B9A2427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063386   (434664) от 16.10.2016
 
 Katie Melua - In Winter (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Folk, World>
@@ -658,93 +745,6 @@ The Flatlands Collective - Maatjes (2008) Clean Feed [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69CE8BFBC650D4B6811F9E909D5A0B946C9ADD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165522   (433049) от 13.09.2017
-
-Rembrandt Frerichs - Ordem e Progresso (2009) 2CD, Rembrandt Frerichs [FLAC|Lossless|tracks + .cue] <Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433049.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dastagh [04:20]
-02. Ordem e Progresso [04:25]
-03. Rosenthalia [03:57](   Читать дальше...   )Жанр: Modern CreativeПродолжительность: 01:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64257DA87B3FF8DF9B6BF4993ACBC70ACFF4A017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165530   (432944) от 13.09.2017
-
-Don Redman And His Orchestra - 1931-1933 (1990) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble, Why Pick On Me? [02:51]
-02. Shakin' The African [02:53]
-03. Chant Of The Weed [03:17]
-04. Shakin' The African [02:43](   Читать дальше...   )Жанр: Early Jazz, Swing, Big BandПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF8F3F584B28A8E06E3C4C154A9D002B8E68EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063722   (432854) от 17.10.2016
-
-Duke Ellington And His Orchestra - Such Sweet Thunder (1957) 1991, Columbia[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Such Sweet Thunder [03:26]
- 02.Sonnet For Caesar [03:03]
- 03.Sonnet To Hank Cinq [01:24]
- 04.Lady Mac [03:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3616FB68BF527A91DD76C6844A52EEA7AFC6F6EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

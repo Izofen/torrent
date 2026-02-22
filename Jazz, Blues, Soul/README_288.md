@@ -1,3 +1,90 @@
+###  Публикация: 1154680   (535422) от 02.08.2017
+
+Members Of The Woody Herman Orchestra - A Tribute To Woody Herman (1997) Green Hill [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Brothers [03:23]
+02. Woodchopper's Ball [04:53]
+03. Apple Honey [03:34]
+04. Goosey Gander [03:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DB95F0096A68D3751EF492422FE75D847798B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154953   (535416) от 02.08.2017
+
+Weather Report - This Is This (1986) [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is This (7:08)
+02. Face The Fire (2:34)
+03. I'll Never Forget You (7:51)
+04. Jungle Stuff, Part I (4:44)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC95C2DFE037013342B9039B4360EC01FFC41DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154952   (535415) от 02.08.2017
+
+Weather Report - Domino Theory (1984) [FLAC|Lossless|image + .cue] <Jazz-Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can It Be Done (3:59)
+02. D Waltz (11:09)
+03. The Peasant (8:13)
+04. Predator (5:14)(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678B32C077A53E59DFE1DDD5E3FD79536B4485AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155051   (535315) от 02.08.2017
 
 Trudy Lynn - I'll Sing The Blues For You (2016) [MP3|320 Kbps] <Texas Blues>
@@ -659,93 +746,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ADA9321774B4B589E1C51D385585187F3275E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926862   (531729) от 11.08.2015
-
-Barney Wilen - Barney (1959) /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Besame Mucho [12:50]
-02. Stablemates [05:38]
-03. Jordu [09:06]
-04. Lady Bird [11:30](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C79085A820EAB111D6A850BA6BCE7F0047727F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926795   (531726) от 11.08.2015
-
-Fattburger - One Of A Kind (1986) /Golden Boy Jazz/[FLAC|tracks+.cue]<Jazz, Smooth, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 59th St. [07:26]
-02. Park Lane [04:09]
-03. Yum Yum [05:17]
-04. Auto Bahn [04:56](   Читать дальше...   )Жанр: Jazz, Smooth, Jazz-PopПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EDFB18379C7CA75F6462C8A2FA7020513DBFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926832   (531717) от 11.08.2015
-
-Dee Dee Bridgewater - Dee Dee's Feathers (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Fine Thing
-02. What a Wonderful World
-03. Big Chief
-04. Saint James Infirmary(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C40B127CE777D2BD7A521828B4D3586FBA29B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

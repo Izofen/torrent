@@ -1,3 +1,32 @@
+###  Публикация: 1486601   (1004573) от 01.08.2021
+
+VA - Get Lucky Punk Rock (2021) [MP3|320 Kbps] <Punk Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004573.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sketchy Trench - Greater
+002. Kolossus Däächt - Fast Food
+003. Lice - R.D.C.
+004. Tocotronic - Stürmt Das Schloss(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 08:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4042E3F56BBC8A680F5BA2BDB0AF4C339D2CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486604   (1004552) от 01.08.2021
 
 VA - Greatest Hard Rock And Metal Songs (2021) [MP3|320 Kbps] <Hard Rock, Hardcore, Metal>
@@ -713,35 +742,6 @@ Lita Ford - Can't Catch Me (2020) 2CD Compilation [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE2411DEC8074ACDD1FA966A49763D57FE836C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357941   (970466) от 06.02.2020
-
-VA - 100 Greatest Guitar Solos (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970466.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Van Halen - Eruption
-002. Jimi Hendrix - All Along the Watchtower
-003. AC/DC - Thunderstruck
-004. Thin Lizzy - The Boys Are Back In Town(   Читать дальше...   )Жанр: RockПродолжительность: 08:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721DD14AD990EDE89C3A5471961BB5B20573DD96
 ```
 
 https://mybot314.ru/tekegram_catalog/

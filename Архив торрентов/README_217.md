@@ -1,3 +1,30 @@
+###  Публикация: 1483630   (1006751) от 14.07.2021
+
+PhotoLine 22.52 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006751.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoLine - простая в обращении программа, представляющая собой редактор растровой и векторной графики.
+Данный редактор позволяет редактировать как готовые фотоизображения, так и рисовать различные картинки при помощи специальных эффектов, инструментов и фильтров. В программе присутствует полная поддержка цветовой модели CMYK, работа с файлами форматов PLD, PDF, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CAFBFEB8DEF0204CD401C5612A230222F76537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483563   (1006750) от 14.07.2021
 
 Microsoft .NET 5.0.8 [Ru/En]
@@ -651,32 +678,6 @@ OCCT 9.0.0 Final Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD44833946A09F49E392216B61ADB81E6FA60FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483945   (1006505) от 16.07.2021
-
-AAF DCH Optimus Sound v6.0.9191.1 Realtek Mod by AlanFinotty [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006505.jpg" />
-</div>
-
-
-###  Подробнее
-
-AAF DCH Optimus Sound Realtek Mod, аудио драйвер "всё в одном". При установке AAF DCH Optimus Sound Realtek Mod есть варианты установки; Realtek Audio Console + Sound Blaster Connect, Dolby Atmos, Nahimic, Sonic Studio. Цель проекта AAF DCH Optimus Sound Realtek Mod - извлекать превосходное качество звука из музыки, фильмов, игр или другого контента под (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64DE30C5306D160756D90982A6C9F09516D55DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1033373   (638229) от 11.07.2016
+
+Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638229.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Au Dessous Des Nuages 10:47
+2. Brooklyn 5:19
+3. Movements In Love 8:20
+4. Futura 5:03(   Читать дальше...   )Жанр: Trance, AmbientПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFFD21C3E67A247C59DD83F517F9AABF5753F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033451   (638046) от 11.07.2016
 
 A.R. Rahman - Best Of A.R. Rahman - Nadaan Parindey (2013) [MP3|320 Kbps] <Bollywood>
@@ -772,35 +801,6 @@ Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:531B21B12BADD057382F81A92BC70EDDF9928E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033884   (634311) от 13.07.2016
-
-The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock, Power Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's All In The Head
-02. Just Another Party
-03. Never Take You For Granted
-04. Waiting On The Other Side(   Читать дальше...   )Жанр: Rock, Garage Rock, Power PopПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C989504E5E651A18AABC4B06B130D17AC15DCDAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

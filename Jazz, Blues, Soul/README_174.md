@@ -1,3 +1,90 @@
+###  Публикация: 1124803   (773602) от 13.04.2017
+
+Lonnie Smith & Alvin Queen - Lenox And Seventh (1985) 2000, Black And Blue [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.L.S. Blues [06:21]
+ 02.Slightly Monkish [05:50]
+ 03.Who Can I Turn To? [08:01]
+ 04.Billie's Bounce [05:59](   Читать дальше...   )Жанр: Jazz-Funk, Jazz FusionПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E396ECFB4F1101851D15938D59C059CB8B90EEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125027   (773532) от 13.04.2017
+
+Dizzy Gillespie, Stan Getz, Coleman Hawkins - Sittin' In (1957) 2005, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dizzy Atmosphere [10:57]
+ 02.Ballad Medley (I'm Through With Love- Without A Word Of Warning - Sweet Lorraine - Love Walked  In - September Song) [11:00]
+ 03.Ballad Medley (On The Alamo - Stompin' At The Savoy - This Time The Dream's On Me - Time After Time - Gone With The Wind) [12:29]
+ 04.The Way You Look Tonight [13:38]Жанр: Mainstream Jazz, BopПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2C98BC46A69C8E60C1FF5D22EE59878D22D4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124732   (773529) от 13.04.2017
+
+Chuck Mangione - Journey To A Rainbow (1983) [FLAC|Lossless|image + .cue] <Fusion, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journey To A Rainbow (07:03)
+02. Do I Dare To Fall In Love (05:59)
+03. Love Bug Boogie (05:56)
+04. Buttercorn Lady (05:02)(   Читать дальше...   )Жанр: Fusion, Smooth JazzПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374C05C264D4909AA529C36EEEE9046485D078D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124826   (773310) от 13.04.2017
 
 Tommy Emmanuel - It’s Never Too Late (2015) [FLAC|Lossless|image + .cue] <Jazz, Acoustic, Fingerpicking>
@@ -657,93 +744,6 @@ The Oscar Peterson Trio - The Music From Fiorello! 1960 (1994) Verve [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41A3BEF0A026557306EB59DD8F7D6B96F8F54FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391740   (771629) от 22.06.2020
-
-Bridget Kelly Band - Dark Spaces (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Me  (05:01)
- 02. Sky's The Limit (04:25)
- 03. Dark Spaces  (05:19)
- 04. Find My Way Back Home  (03:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209C21D603C3088E399A74C9697C31D50C7C695E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016223   (771592) от 13.05.2016
-
-Ken Navarro - Unbreakable Heart (2015) [FLAC|Lossless|tracks] <Contemporary Smooth Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaco Smiled
-02. One Night In Mumbai
-03. Unbreakable Heart
-04. Juliet(   Читать дальше...   )Жанр: Contemporary Smooth Jazz, FusionПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EE89834A178C9E20F8FDFB3F306A1DFEE558D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016304   (771474) от 13.05.2016
-
-Catfish John Tisdell - Nothin but the Blues (2016) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sky's Been Cryin' (04:17)
-02. Sweet Home Chicago (04:15)
-03. Early in the Mornin' (04:19)
-04. Before You Accuse Me (03:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58ED6412FC84E0359408049B157CAA3F5C66A951
 ```
 
 https://mybot314.ru/tekegram_catalog/

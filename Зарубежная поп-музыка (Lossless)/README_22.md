@@ -1,3 +1,29 @@
+###  Публикация: 647007   (858451) от 22.04.2013
+
+Shania Twain - 2 альбома (1995-1998) [FLAC|Lossless]<Pop, Country-rock, Pop-rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. You're Still The OneЖанр: Pop, Country-rock, Pop-rockФормат: image+cueПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 768510   (858160) от 21.03.2014
 
 Amel Bent - Instinct (2014) [FLAC|Lossless]<Pop, French Pop, R&B, Soul>
@@ -743,35 +769,6 @@ Lexi Strate - Waves (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A144A4B30714CFC7063142DE7091C2591DF4A3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002581   (847104) от 01.04.2016
-
-Aurora & The Betrayers - Vudu (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul-Jazz Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey, Hey!
-02. Voodoo
-03. Pay Me Back
-04. You Can Come Back(   Читать дальше...   )Жанр: Pop, Rock, Soul-Jazz Female VocalПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2085F7708D493BCA58D7BAE2076A6AEC60CCA0C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

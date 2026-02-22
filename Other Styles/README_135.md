@@ -1,3 +1,32 @@
+###  Публикация: 1068637   (380610) от 01.11.2016
+
+Galactic Agents - Human Contact (2002) [MP3|320 Kbps] <New Age, Worldbeat, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Passport Denied (3:34)
+02. Mullumbimby Bazaar (7:52)
+03. Anasazi Exodus (5:35)
+04. Afro Tech Suite (7:46)(   Читать дальше...   )Жанр: New Age, Worldbeat, Native AmericanПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB93F8494A91EE2237C09C8C81001EDBF156057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068651   (380602) от 01.11.2016
 
 Steve Orchard - Zanzibar (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -714,35 +743,6 @@ Armik - Cafe Romantico (2004) [MP3|320 Kbps] <Flamenco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90D9665BB4195D2A8FB80C52D0DF1C71B8CA920E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947844   (374863) от 24.10.2015
-
-Kike Fernandez - 100 Tangos Inolvidables (2010) [MP3|192 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374863.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - Adios Pampa Mia
-002 - El Choclo
-003 - Mi Buenos Aires Querido
-004 - Malevaje(   Читать дальше...   )Жанр: TangoПродолжительность: 04:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409BC030AC25D6C836116275267E7CA604D09B47
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1095498   (924639) от 21.01.2017
+
+Pepper Adams - Encounter! (1968) [WavPack|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Inanout [05:56]
+ 02.Star-Crossed Lovers [03:58]
+ 03.Cindy's Tune [06:03]
+ 04.Serenity [06:31](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F822C9D1C7BF31DE9A9B5CA14A20F140DBF6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987682   (924583) от 18.02.2016
+
+Nancy Harms - Ellington at Night (2016) [MP3|320 кб/с] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lush Life (03:40)
+02. Rocks In My Bed (04:14)
+03. Do Nothin' Till You Hear From Me (02:56)
+04. Lost In Meditation (05:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD2653BC0D1063A511C4C4672DD28AB06BCA6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095633   (924568) от 21.01.2017
+
+Chico Hamilton - The Master (1973) 2016, Culture Factory[FLAC|Lossless|tracks + .cue] <Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.One Day Five Months Ago [08:03]
+ 02.Feels Good [05:33]
+ 03.Fancy [03:11]
+ 04.Stu [03:57](   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA25A0B5DD25A3E7D9D7250C130AE42EA5CCEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095214   (924564) от 21.01.2017
 
 Alastair Greene - Through The Rain (2011) [FLAC|Lossless|tracks + .cue] <Blues Rock>
@@ -670,96 +757,6 @@ VA - Мастера Джаза (2000) S&V #07/2000 [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C5C153C4BD3AE2E8D08A47B1F73158AD54A534C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288126   (922466) от 29.01.2011
-
-VA - Jazz Break (The Best Of Contemporary Smooth Jazz) (2007) [FLAC|Lossless]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, Smooth JazzПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288517   (922419) от 29.01.2011
-
-Dave Brubeck - Legacy Of A Legend 2CD (2010) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922419.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Jeepers Creepers (4:58)
-02. Taking A Chance On Love (4:15)
-03. The Duke (2:55)
-04. Someday My Prince Will Come (8:19)
-05. Ode To A Cowboy (5:03)
-06. Thank You (Dziekuje) (3:34)
-07. Camptown Races (2:09)
-08. Gone With The Wind (6:24)
-09. Blue Rondo A La Turk (6:46)(   Читать дальше...)Жанр: JazzПродолжительность: 01:50:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366660   (922367) от 12.03.2020
-
-Benny Carter & Dizzy Gillespie - Sweet And Lovely 1976 (2000) ADA Sound Ltd. [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet and Lovely [10:44]
-02. Broadway [7:52]
-03. The Courtship [6:35]
-04. Constantinople [9:01](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08941104E85C1EC9EAFDB2EF0C288912E4CA814F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 842205   (328179) от 18.11.2014
+
+Гоша Куценко - Музыка (2014) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка
+ 02. Танцы
+ 03. Голая
+ 04. Береты(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79ABBBC47F4D08D32107DDBD88A3BDA0489BB810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581089   (328065) от 04.10.2022
+
+Robbie Williams - Intensive Care (2005) [OGG Vorbis|484 Kbps] <Electronic, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghosts	3:42
+02. Tripping	4:37
+03. Make Me Pure	4:33
+04. Spread Your Wings	3:51(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697341F0C0CF243C65944EDD6D4530275A8512E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581145   (328064) от 04.10.2022
+
+Robbie Williams - Heavy Entertainment Show (2016) [OGG Vorbis|484 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Heavy Entertainment Show
+02. Party Like a Russian
+03. Mixed Signals
+04. Love My Life(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2968BF4B23BE5684F8C2F1872089EFE418FE5F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581259   (328062) от 04.10.2022
 
 Milou - Change Your Mind (1990) [OGG Vorbis|485 Kbps] <Electronic, Synth-pop, Euro-Disco>
@@ -657,93 +744,6 @@ Sarah Brightman - La Luna (2000) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DB608A038921A0A06570FA50D6F5E3FABD70BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581997   (325321) от 07.10.2022
-
-VA - Top Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325321.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Glass Animals - Heat Waves (3:58)
-002. Justin Bieber - Ghost (2:33)
-003. Olivia Rodrigo - good 4 u (2:58)
-004. Elton John, Dua Lipa - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE4543506DF0116922017D842CCCC7A1CD6BAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958261   (324766) от 20.11.2015
-
-Ёлка - #2 (2015) [FLAC|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Город обмана#2
-02. Цепи - ленты#2
-03. Сука-любовь#2
-04. Одна#2(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B4308F69A1FF6D3BBEA17AF8AE7AEC092CAC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958157   (324714) от 20.11.2015
-
-Adele - 25 (2015) [FLAC|Tracks+cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
-02. Send My Love (To Your New Lover)
-03. I Miss You
-04. When We Were Young(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7C36D8FF9D268A72AF189F309F24D774689121
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1505910   (801816) от 29.10.2021
+
+Exposure Software Blow Up 3 v3.1.4.391 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
+Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D74477FB6340FA32EB947F81D3D0F0EF71D321E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505917   (801813) от 29.10.2021
 
 Exposure X7 v7.0.2.119 [En]
@@ -659,32 +686,6 @@ The Flight Of Sleipnir - Eventide (2021) [FLAC|Lossless|image + .cue] <Stoner Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7551BCA8EC81EC98C0B0F190D8317CBCA79791FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505918   (801653) от 29.10.2021
-
-Exposure X7 Bundle v7.0.1.68 [EN]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения.Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: Exposure Software, LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3366CD17931E185CA1D670A9B366627876A937B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

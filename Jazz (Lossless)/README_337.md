@@ -1,32 +1,3 @@
-###  Публикация: 1705063   (113966) от 07.03.2024
-
-Toni Germani - Easy Pieces Against War, Virus And Crisis (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desejo da Banalidade do Bem (9:34)
-02. A War Is Knockin' At Your Door (8:32)
-03. Waiting For The Rain (8:02)
-04. Elena Is A Name Of Beauty (10:08)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA06812183508FD80B71C3C6037FFF546F7BD75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705050   (113965) от 07.03.2024
 
 VA - Classy Hotel - Jazz & Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -745,6 +716,35 @@ Branford Marsalis Quartet - Coltrane's A Love Supreme: Live In Amsterdam (2004) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13685FC494826607EE050046890F3AD85F5D9494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705837   (113747) от 10.03.2024
+
+Curtis Fuller - The Complete Blue Note / UA Sessions (1957 - 1962) 3CD, 1996, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuss Budget [7:46]
+02. Oatmeal Cookie [4:39]
+03. Da-Baby [7:33]
+04. Down Home [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 03:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C7F9DA17CD70C29CEFE637E44BA2946ED991F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1024909   (713802) от 10.06.2016
+
+Проекты - VideoBlocks - Security Breach Promo [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо-ролика.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD752D9DF3BA2574962E5C65F47DEC3EB81695A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024847   (713404) от 10.06.2016
 
 Проекты - VideoHive - Kinetic Typography Engine V2 4K [AEP]
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1467CE4D66AEE44BCBAEE8F67B3F5ABFB235FB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026333   (703573) от 15.06.2016
-
-Проекты - VideoHive - Flat Corporate Motion Design [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flat Corporate Motion Design - пакет для создания неповторимых корпоративных презентаций.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F984651019255EC7786EC4199C41DC96D5444E86
 ```
 
 https://mybot314.ru/tekegram_catalog/

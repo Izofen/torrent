@@ -1,3 +1,90 @@
+###  Публикация: 1843757   (1049496) от 21.12.2025
+
+Blueback - Blueback Revisited (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walk On Revisited (3:48)
+02.  The Things in These Rooms (3:10)
+03.  Do It The Natural Way (2:30)
+04.  There's a Tavern Up in Nashville (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92245E0F292938FE88E5B9FECE4EABB722DF42D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843758   (1049495) от 21.12.2025
+
+Bluesman and The Blues Essentials - Girl of My Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blind Love Blues (3:53)
+02.  Satisfied (3:45)
+03.  The Way (4:44)
+04.  I Can't Say Goodbye (7:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433C84021CEB55D331CEB997B16BFB7ABD9834F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843761   (1049494) от 21.12.2025
+
+Bonny B. - Love & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blue Tone (5:48)
+02.  All on Board (4:52)
+03.  Run in the Rain (5:08)
+04.  My Story (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6A8BD69D7E0AF0A61161DF74D14DEA0A575C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843762   (1049489) от 21.12.2025
 
 DaBeDa - Leavin' the Shell (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -658,93 +745,6 @@ Tricia Danieli - Breakthrough (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7634AD422B7AF2D8074A5B81C4637E874E3E9A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842160   (1048572) от 14.12.2025
-
-VA - Jacktown USA (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jacktown Sons - Hold Up (3:32)
-02.  Dexter Allen - Hooked (4:52)
-03.  Eddie Cotton - Delivered By The Blues (5:19)
-04.  Four Washington - Dancing In Our Love (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E1EC44E030FB1876E1105BB8401480701EE6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842048   (1048340) от 14.12.2025
-
-Marcus King - Darling Blue (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  On & On (3:02)
-02.  Here Today (2:57)
-03.  Honky Tonk Hell (3:16)
-04.  Heartlands (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88CBFADF87E579089446102FE2AF0CA153EE5E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842050   (1048339) от 14.12.2025
-
-Mozzpit - Luke Gibson (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Welcome to the MOZZPIT (1:14)
-02.  Virginia (5:13)
-03.  Windy Mountain (3:27)
-04.  Been Burnt (2:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C937C3AF201652DCA4CF1222A7C4981ED0572927
 ```
 
 https://mybot314.ru/tekegram_catalog/

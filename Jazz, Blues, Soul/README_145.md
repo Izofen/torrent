@@ -1,3 +1,91 @@
+###  Публикация: 1117991   (815493) от 24.03.2017
+
+Green - Waltz-N-All (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock, Rock, Rock'n'Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Girls (4:22)
+02. Heading Down (4:40)
+03. The Letter (5:04)
+04. My Whole World (6:02)(   Читать дальше...   )Жанр: Blues-Rock, Rock, Rock'n'RollПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F815E0223F3DD48A17563675E36ED7E291B1471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117733   (815492) от 24.03.2017
+
+Julian Sas - Feelin' Alive (2016) Live, 2017, Cavalier Recordings [FLAC|Lossless|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Jump For Joy  (04:48) 
+02| High And Low  (06:26) 
+03| Did You Ever Wonder  (04:04) 
+04| Fear Of Falling  (08:00) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96C3EDF27136966C9AA9C6AC92B9F56D57CF839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117875   (815484) от 24.03.2017
+
+Quinn Sullivan - Midnight Highway (2017) [FLAC|Lossless|tracks + .cue] <Blues-Rock, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой американский музыкант, гитарист и блюзмен, которым по-настоящему восхищается Бадди Гай. Сегодня даже матерые музыканты, глядя на гитариста-подростка, удивлены – он слишком хорошо, совсем 'не по возрасту' играет блюз. При этом сам Куинн говорит, что он вовсе не сводит свою жизнь к игре на гитаре – он ведет обычную жизнь обычного американского подростка.
+American (   Читать дальше...   )01. Something For Me (4:53)
+02. Tell Me I'm Not Dreaming (3:52)
+03. Midnight Highway (5:56)
+04. Crazy Into You (4:02)(   Читать дальше...   )Жанр: Blues-Rock, Electric BluesПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1ECADA4B98D82A883F0A471702BBDCB3828A502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382995   (815449) от 13.05.2020
 
 VA - I Feel Blues In My Roots (2020) [MP3|320 Kbps] <Blues>
@@ -656,93 +744,6 @@ Eddie Harris Trio - Eddie Who? (1986) Remaster, 2015, Solid Records[FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A8E32D07BBDAB41A7111EBF65462609F6799115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009115   (812182) от 20.04.2016
-
-Big Harp George - Wash My Horse In Champagne (2016) [MP3|320 кб/с] <West Coast Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home Stretch (04:14)
-02. Road Kill (02:44)
-03. Wash My Horse In Champagne (05:21)
-04. Cool Mistake (03:57)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D966C229CEA6615DE1D3B203104A0BB4D183E48E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008988   (812181) от 20.04.2016
-
-Curtis Salgado - More Than You Can Chew (1995) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Hell Withit (pt 1) (00:44)
-02. Little Charmer (04:46)
-03. I Don?t Care (05:13)
-04. Salt In My Wounds (05:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32667AF0A67D1722C32218C664A7242A959C7315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197662   (812140) от 09.01.2018
-
-Yusef Lateef - The Sounds of Yusef (1957) 1996, Original Jazz Classics [WavPack|Lossless|image + .cue] <Hard Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [11:15]
-02. Playful Flute [04:19]
-03. Love and Humor [06:13]
-04. Buckingham [05:11](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732FF8ED8E6350D4EFFA390958C079D382957D9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

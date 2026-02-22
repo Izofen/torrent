@@ -1,3 +1,32 @@
+###  Публикация: 1847813   (1052293) от 14.01.2026
+
+Cher - Heart Of Stone (1989) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немногие артисты могут похвастаться такой богатой карьерой, как Cher, и хотя её творчество получало неоднозначные оценки, её неизменная популярность обеспечила альбому Heart Of Stone грандиозный успех; этот альбом, безусловно, входит в число лучших, выпущенных в 1989 году. Девятнадцатый студийный альбом, Heart Of Stone стал поворотным моментом в карьере певицы и, (   Читать дальше...   )01. If I Could Turn Back Time (4:01)
+02. Just Like Jesse James (4:08)
+03. You Wouldn't Know Love (3:32)
+04. Heart of Stone (4:18)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2358852A1B6BD504586AF21BE51AE07A1C719B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846477   (1051517) от 08.01.2026
 
 VA - Modern Synth Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Electronic>
@@ -716,35 +745,6 @@ VA - soft pop 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:256B365434D9DE4038B0E9A85D3AEB1E74376F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608194   (1043719) от 29.01.2023
-
-Ricchi E Poveri - Mamma Maria (1986) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciao Italy, Ciao Amore
-02. Sara' Perche' Ti Amo
-03. Made In Italy
-04. Ninni Nanna(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8746EC21512E8FB8C531B821AE84B317E1CBE342
 ```
 
 https://mybot314.ru/tekegram_catalog/
